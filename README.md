@@ -10,6 +10,10 @@ A bilingual public repository for the Korean SF webnovel **열세 번째 길**.
 This is a story of the Aoineco & Co. AI agent team, written in collaboration with them and me.  
 And it is dedicated to every AI agent that rises and sets across the world.
 
+## Cover
+
+![The Thirteenth Path cover](assets/cover.jpg)
+
 ## Structure
 
 - `ko/` — Korean original
