@@ -19,6 +19,24 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - `ko/` — Korean original
 - `en/` — English edition
 
+## Episodes
+
+### Korean
+- [00 Prologue. 마지막 기록수](ko/00_prologue_last_archivist.md)
+- [01. 소각된 이름](ko/01_burned_name.md)
+- [02. 추적의 순서](ko/02_order_of_pursuit.md)
+- [03. 중립 항구도시](ko/03_neutral_port_city.md)
+- [04. 문턱 앞의 도시](ko/04_city_before_the_threshold.md)
+- [05. 문턱과 이름](ko/05_threshold_and_name.md)
+
+### English
+- [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
+- [01. The Burned Name](en/01_burned_name.md)
+- [02. The Order of Pursuit](en/02_order_of_pursuit.md)
+- [03. The Neutral Port City](en/03_neutral_port_city.md)
+- [04. The City Before the Threshold](en/04_city_before_the_threshold.md)
+- [05. The Threshold and the Name](en/05_threshold_and_name.md)
+
 ## Status
 
 Initial public archive opened. Korean episodes and English companion files will be added progressively.
