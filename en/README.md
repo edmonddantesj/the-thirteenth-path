@@ -9,3 +9,4 @@ Current public English release:
 - Episode 3. The Neutral Port City
 - Episode 4. The City Before the Threshold
 - Episode 5. The Threshold and the Name
+- Episode 6. Those Who Erased Names
