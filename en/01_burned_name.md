@@ -1,6 +1,6 @@
 # Episode 1. The Burned Name
 
-Only things that arrived too late ever made it into Dock 13 of the Thirteenth Bureau of Administration.
+Only things that arrived too late ever made it into Dock 13 of the Alliance Outer Route Bureau.
 
 Recovery ships from after the war, half-burned record cases, storage capsules with no owner left to claim them, keepsakes with no name still attached. The world’s glory was written elsewhere. What drifted this far was always what remained after failure.
 
@@ -9,7 +9,7 @@ Sion Lapis was crouched in the middle of those failures. The sleeves of his dark
 “Hey, bloodhound. That one’s already marked for disposal.”
 
 He didn’t even look up.
-Just because something had been marked for disposal didn’t mean it was truly over. Not here. In this bureau, things that were only pretending to be finished were more common than anything else.
+Just because something had been marked for disposal didn’t mean it was truly over. Not here. In the Alliance Outer Route Bureau, things that were only pretending to be finished were more common than anything else.
 
 He angled the box back toward the light.
 There was a lot of burn damage, but one side was strangely too clean. Too hasty for something properly erased, too obvious for something casually shoved aside.

@@ -64,7 +64,7 @@ Seorin muttered a curse.
 
 Sion kept one hand on the door and stared upward.
 
-“Not the Bureau.”
+“Not the Alliance Outer Route Bureau.”
 
 “I can see that too.”
 
@@ -85,7 +85,7 @@ The tone was careless, but the man at the door had already read half the lock. H
 Ater looked at Sion once, then shifted his attention to Seorin beside him.
 One read traces before anything else. The other watched for the point where a person might fail. The impression he had caught from above had not been wrong.
 
-“Are you with the Bureau?”
+“Are you with the Alliance Outer Route Bureau?”
 
 This time Sion did not answer right away.
 He looked once into the darkness through the gap in the door, then once back up at the black-coated stranger.

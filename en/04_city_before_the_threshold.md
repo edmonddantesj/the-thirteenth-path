@@ -108,7 +108,7 @@ One had the rough stride of a field worker. The other moved half a beat behind, 
 
 Seorn spoke first.
 
-“The Bureau side.”
+“The Alliance Outer Route Bureau side.”
 
 Ater did not answer.
 
@@ -189,7 +189,7 @@ Seorn asked softly,
 
 “Yes.”
 
-“One Bureau field worker and one assistant, by the look of it.”
+“One Alliance Outer Route Bureau field worker and one assistant, by the look of it.”
 
 Ater did not answer right away.
 His gaze moved slowly over the lock, the two shadows standing before it, and the dark access bridge continuing behind them.
