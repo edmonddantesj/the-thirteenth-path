@@ -17,6 +17,7 @@ Smoke was rising from the collapsed stellar archive.
 
 In his other hand he carried a half-melted storage capsule and several scorched fragments of a record plate.
 Once, they must have been one whole thing.
+But it was also the kind of record that should never have been allowed to remain whole to the end.
 Now all that remained were blackened edges and a few lines that had refused to burn away.
 
 He might never have managed to read all of what he was carrying.
@@ -30,18 +31,18 @@ The archivist staggered, but he did not stop.
 At the end of the corridor he reached an old maintenance terminal embedded in the wall and nearly collapsed against it, pressing his palm to the surface.
 A screen that should have been dead flickered a few times and dimly came back to life.
 
-Authentication failed.
-Authorization revoked.
+Authentication failed.  
+Authorization revoked.  
 Access denied.
 
 He knew those words well.
 Too well.
 For a moment he almost laughed.
 
-He pulled out the least-charred record fragment and forced it into the terminal slot.
+He pulled out the least-charred fragment and forced it into the terminal slot.
 A grinding sound followed, and the screen trembled again.
-Broken lines of text rose into view.
-An erased name. A severed approval line. A closed route coordinate. And part of a signature that had survived to the end.
+Broken lines of text rose into view.  
+An erased name, a severed approval line, a closed access sequence, and part of a signature that had survived to the end.
 
 His breath caught.
 
@@ -51,21 +52,22 @@ Someone shouted from the far end of the passage.
 
 He did not turn around.
 Instead, with shaking fingers, he opened one final command line.
-An old record-preservation protocol.
+An old record-preservation procedure.  
 A route that should have vanished from any official process long ago.
 
 The screen flooded red.
 
-**Preservation route error.**
-**Original order mismatch.**
+**Preservation route error.**  
+**Original order mismatch.**  
 **Recovery impossible.**
 
 Recovery impossible.
 
 When he read those words, the archivist closed his eyes for the briefest moment.
-Then, like someone who had been preparing for this for a very long time, he split the remaining record fragment in two.
+Then, like someone who had been preparing for this for a very long time, he split the remaining fragment in two.
 One half he shoved deep inside the terminal.
 The other he hid inside his coat.
+He moved like someone who knew that if everything vanished at once, it would be over, and so it had to be left behind in pieces that could not be erased all at once.
 
 The footsteps were right behind him now.
 
@@ -98,3 +100,6 @@ And somewhere in the neutral port city,
 an old preservation route,
 one no record would ever admit had opened,
 awakened in perfect silence.
+Whether it was one man’s last line of escape,
+or the remnant of a much older relay route,
+no one knew yet.

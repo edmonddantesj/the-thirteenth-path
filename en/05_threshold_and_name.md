@@ -1,8 +1,8 @@
 # Episode 5. The Threshold and the Name
 
-The R-12 ruin access bridge had been closed so long that it seemed built from the start to push people away.
+The R-12 ruin access bridge stood the way a place long closed was supposed to, built from the start to drive people away.
 
-The official guide lights had died long ago, replaced by layers of temporary restriction marks. No entry. Structural instability. Residual record contamination risk. Any one of those warnings should have been enough to turn a person back, but Sion had lived long enough around places like this to know that the more warning signs there were, the more likely it was that something inside was still worth seeing.
+The official guide lights had died ages ago, replaced by layer after layer of temporary restriction marks. No entry. Structural instability. Residual record contamination risk. Any one of them should have been enough to turn a person back, but Sion had learned long ago that the more warning signs a place carried, the more likely it was something inside still mattered.
 
 Fresh scrape marks ran along the side of the lock.
 Not the marks of a door untouched for years, but of one that had been forced and shut again not long ago.
@@ -19,7 +19,7 @@ From behind him Seorin asked,
 “That’s worse.”
 
 Sion let out a short breath.
-Inside the lock slot were two different kinds of scratches. One from a cheap port-side opening tool. The other far more precise. Both meant someone had tried to open this door. And one of them had definitely gotten in.
+Inside the lock slot were two different kinds of scratches. One from a cheap port-side opening tool. The other far more precise. Both meant someone had tried to open this door. And one of them had definitely gotten in. It felt less like someone simply hiding and more like a hand that had failed to carry everything away at once and had chosen to close the door again.
 
 He took a thin access pin from his recovery pocket and slid it into the locking groove.
 Seorin widened her field of view at once, checking the lower railing, the upper connector bridge, even the dead surveillance lens bolted to the wall. This was the part where both of them naturally spoke less.
@@ -149,7 +149,7 @@ Sion tapped the edge of the door lightly with one fingertip.
 “It was locked again from the inside.
 Whether whoever did it was fleeing or hiding, it means someone in there was still alive.”
 
-Seorin looked like she was thinking, Here we go again, but she did not stop him.
+Seorin looked like she was thinking, *Here we go again,* but she did not stop him.
 When Sion spoke in that tone, he was usually right.
 
 Ater paused.
@@ -257,47 +257,3 @@ Seorin said very quietly,
 
 Ater looked not at the corpse first, but at the floor around it.
 Drag marks. Knee prints. Signs that someone had tried and failed to shut the chamber door in haste. This was not a simple murder scene. It was the place where someone had tried, to the very end, to leave something behind.
-
-Seorn scanned the chamber beyond and said shortly,
-
-“It hasn’t been emptied completely.”
-
-Sion reached for the shattered capsule fragment in the corpse’s hand, then stopped.
-The dead fingers were caked in black ash.
-Not the hand of someone who had touched fire.
-The hand of someone who had held a record until the instant before it burned.
-
-And beneath that hand, on the floor, a thin record fragment caught the faintest trace of light.
-
-Sion picked it up.
-
-A cut sentence. Burn-dead edges. A carved approval line.
-This time, more had survived than before.
-
-Ater’s gaze fell onto the shard at once.
-So did Seorin’s. So did Seorn’s.
-
-In the middle of the fragment,
-between flame damage and knife-cut lines,
-a few characters of a name remained,
-still refusing to vanish.
-
-**… Jun Aste…**
-
-The air in the passage seemed to stop entirely.
-
-Sion stared down at the shard in his hand for a long moment without speaking.
-Seorin said nothing either.
-Seorn lifted his head slowly.
-Ater could not take his eyes off the broken remains of that name.
-
-The name that should have been erased,
-returned at last,
-in the final place where the dead archivist had tried to leave it behind,
-refusing to burn away completely.
-
-And at that exact moment,
-somewhere deeper inside the preservation chamber,
-an automatic preservation unit woke with a low mechanical sound.
-
-As if to say it was not over yet.

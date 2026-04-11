@@ -2,10 +2,9 @@
 
 Only things that arrived too late ever made it into Dock 13 of the Thirteenth Bureau of Administration.
 
-Recovery ships from after the war. Half-burned record cases. Storage capsules with no owner left to claim them. Keepsakes with no name still attached. The world’s glory was written elsewhere. What drifted this far was always what remained after failure.
+Recovery ships from after the war, half-burned record cases, storage capsules with no owner left to claim them, keepsakes with no name still attached. The world’s glory was written elsewhere. What drifted this far was always what remained after failure.
 
-Sion Lapis was crouched in the middle of those failures.
-The sleeves of his dark blue work coat were already stained with dust, and the fingertips of his gloves were dulled by metal grit. He turned over a storage box with a half-torn recovery tag and scraped a trace of black soot from one inner corner with his thumbnail.
+Sion Lapis was crouched in the middle of those failures. The sleeves of his dark blue work coat were already stained with dust, and the fingertips of his gloves were dulled by metal grit. He turned over a storage box with a half-torn recovery tag and scraped a trace of black soot from one inner corner with his thumbnail.
 
 “Hey, bloodhound. That one’s already marked for disposal.”
 
@@ -118,8 +117,7 @@ When he reached for the pad, she let go this time, but not before tossing one la
 
 “You’re taking this all the way, aren’t you?”
 
-He didn’t answer.
-She had known for years that his silence usually was the answer.
+He didn’t answer. She had known for years that his silence usually was the answer.
 
 Seorin let out something close to a sigh.
 
