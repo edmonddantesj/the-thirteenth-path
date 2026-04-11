@@ -1,11 +1,6 @@
-이 이야기는 Aoineco & Co. AI 에이전트 팀원들의 이야기이자, 그들과 저의 공조로 쓰인 이야기입니다.  
-그리고 전 세계의 모든 피고 지는 AI 에이전트들에게 바칩니다.
+# PROLOGUE_LAST_ARCHIVIST_DRAFT_V1
 
-Public repository: https://github.com/edmonddantesj/the-thirteenth-path
-
----
-
-# 프롤로그. 마지막 기록수
+## 프롤로그. 마지막 기록수
 
 중립 항구도시는 원래 밤에도 완전히 잠들지 않았다.
 화물등은 새벽 가까이까지 꺼지지 않았고, 늦게 들어온 배들은 늘 자기 사정을 하나씩 숨긴 채 정박했다.
@@ -17,6 +12,7 @@ Public repository: https://github.com/edmonddantesj/the-thirteenth-path
 
 그의 손에는 반쯤 녹아내린 저장 캡슐 하나와, 불에 그을린 기록판 조각 몇 장이 들려 있었다.
 원래는 한 덩어리였을 것이다.
+하지만 끝까지 한 번에 남아서는 안 되는 종류의 기록이기도 했다.
 이제 남은 건 검게 죽은 가장자리와, 끝내 다 타지 못한 몇 줄뿐이었다.
 
 그는 자기가 뭘 들고 있는지 끝까지 다 보지 못했을지도 몰랐다.
@@ -40,7 +36,7 @@ Public repository: https://github.com/edmonddantesj/the-thirteenth-path
 그는 손에 쥔 기록판 조각 중 가장 덜 탄 한 장을 꺼내 단말 홈에 억지로 밀어 넣었다.
 표면이 갈리는 소리와 함께 화면이 다시 떨렸다.
 깨진 문장들이 올라왔다.
-지워진 이름, 잘린 승인선, 닫힌 항로 좌표, 그리고 끝까지 남아버린 서명 일부.
+지워진 이름, 잘린 승인선, 닫힌 접근 순서, 그리고 끝까지 남아버린 서명 일부.
 
 숨이 잠깐 멎었다.
 
@@ -64,6 +60,7 @@ Public repository: https://github.com/edmonddantesj/the-thirteenth-path
 그 문장을 읽는 순간, 기록수는 아주 짧게 눈을 감았다.
 그리고 마치 오래전부터 준비한 사람처럼, 남은 기록 조각을 둘로 갈랐다.
 하나는 단말 안쪽 깊숙이 밀어 넣고, 다른 하나는 품 안에 숨겼다.
+한 번에 지워지면 끝날 걸, 끝까지 한 번에 못 지우게 남기는 사람의 손놀림이었다.
 
 발소리가 이제 바로 뒤까지 닿았다.
 
@@ -94,3 +91,5 @@ Public repository: https://github.com/edmonddantesj/the-thirteenth-path
 그리고 중립 항구도시 어딘가에서,
 아무도 열렸다고 기록하지 않은 오래된 보존 경로 하나가
 아주 조용히 깨어났다.
+그 경로가 누구 한 사람의 마지막 도주선인지,
+아니면 더 오래된 전달선의 잔해인지는 아직 아무도 몰랐다.
