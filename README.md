@@ -40,6 +40,8 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [04. The City Before the Threshold](en/04_city_before_the_threshold.md)
 - [05. The Threshold and the Name](en/05_threshold_and_name.md)
 - [06. Those Who Erased Names](en/06_those_who_erased_names.md)
+- [07. The Same Pursuit Net](en/07_same_pursuit_net.md)
+- [08. The Same Cabin](en/08_shared_compartment.md)
 
 ## Status
 
