@@ -28,6 +28,9 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [03. 중립 항구도시](ko/03_neutral_port_city.md)
 - [04. 문턱 앞의 도시](ko/04_city_before_the_threshold.md)
 - [05. 문턱과 이름](ko/05_threshold_and_name.md)
+- [06. 이름을 지운 자들](ko/06_those_who_erased_names.md)
+- [07. 같은 추적망](ko/07_same_pursuit_net.md)
+- [08. 같은 선실](ko/08_shared_compartment.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -36,6 +39,7 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [03. The Neutral Port City](en/03_neutral_port_city.md)
 - [04. The City Before the Threshold](en/04_city_before_the_threshold.md)
 - [05. The Threshold and the Name](en/05_threshold_and_name.md)
+- [06. Those Who Erased Names](en/06_those_who_erased_names.md)
 
 ## Status
 
