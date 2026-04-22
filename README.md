@@ -31,6 +31,15 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [06. 이름을 지운 자들](ko/06_those_who_erased_names.md)
 - [07. 같은 추적망](ko/07_same_pursuit_net.md)
 - [08. 같은 선실](ko/08_shared_compartment.md)
+- [09. 마지막 항구로](ko/09_to_the_last_harbor.md)
+- [10. 같이 온 게 아니네](ko/10_not_together_but_chased.md)
+- [11. 남겨진 순서](ko/11_the_remaining_order.md)
+- [12. 첫 조각의 좌표](ko/12_first_coordinate.md)
+- [13. 출발선](ko/13_departure_line.md)
+- [14. 나가는 길](ko/14_the_way_out.md)
+- [15. 첫 갈아타기](ko/15_first_transfer.md)
+- [16. 같은 항로 위](ko/16_on_the_same_route.md)
+- [17. 접속점의 얼굴](ko/17_face_at_the_transfer_point.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -42,7 +51,16 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [06. Those Who Erased Names](en/06_those_who_erased_names.md)
 - [07. The Same Pursuit Net](en/07_same_pursuit_net.md)
 - [08. The Same Cabin](en/08_shared_compartment.md)
+- [09. The Road to the Last Harbor](en/09_to_the_last_harbor.md)
+- [10. So They Didn't Come Together](en/10_not_together_but_chased.md)
+- [11. The Remaining Sequence](en/11_the_remaining_order.md)
+- [12. The First Coordinate](en/12_first_coordinate.md)
+- [13. Departure Line](en/13_departure_line.md)
+- [14. The Way Out](en/14_the_way_out.md)
+- [15. The First Transfer](en/15_first_transfer.md)
+- [16. On the Same Route](en/16_on_the_same_route.md)
+- [17. The Face at the Access Point](en/17_face_at_the_transfer_point.md)
 
 ## Status
 
-Initial public archive opened. Korean episodes and English companion files will be added progressively.
+Public archive updated through Episode 17 in both Korean and English.
