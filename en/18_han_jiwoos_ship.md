@@ -1,156 +1,156 @@
 # Episode 18. Han Jiwoo's Ship
 
-The inside of Han Jiwoo's transport was far more complex than it looked from the outside.
+The inside of Han Jiwoo's transport ship was far more complex than it appeared from outside.
 
-From the exterior it was just a worn mid-range cargo hauler, but the moment you stepped in, the first things that caught your eye were the patches. Wall panels had been swapped out here and there with parts that didn't match the original specs, and some of the power lines were openly rerouted instead of properly wired. Some looked like pre-war standard; others looked like civilian parts scavenged much later. Not a ship left to rot, but one kept alive by constant repair. The moment Sion saw it, the scent of Han Jiwoo was so strong he nearly laughed.
+On the surface it was a worn mid-range cargo ship, but the first things that caught the eye upon entering were the patched traces.
+Wall panels had been swapped in places with parts that did not match the original spec; some power lines openly showed bypass routing instead of standard wiring. Some looked pre-war spec, others like civilian parts stripped much later. Not a ship left to rot from age — a ship continuously maintained so it would not die of age. Sion saw it and the smell of Jiwoo was so thick he almost laughed.
 
-Sion looked around the cabin and said,
+Sion looked around the cabin and said.
 
-"This place looks like it's going to lecture me the second I walk in."
+"This place looks like you'll get nagged the moment you walk in."
 
-Han Jiwoo checked the door lock from behind and answered.
+Jiwoo answered from behind, checking the door lock.
 
-"It's not just how it looks. It will."
-She spoke without turning around.
-"Don't lean on that left panel. I retied it yesterday."
+"Not just looks like it. You will."
+She did not even turn around.
+"Don't lean on that left panel. I re-tied it yesterday."
 
-Sion pulled his hand away with a dry laugh.
+Sion pulled his hand away with a half-laugh.
 
-"Hey, why are you telling me that now."
+"Why are you telling me now."
 
-"Because you were about to lean on it now."
+"You were about to lean, so I'm telling you now."
 
-Seorin saw that and smirked.
+Seorin saw it and smirked.
 
-"A perfectly calibrated explanation for your level."
+"Explanation perfectly calibrated to your level."
 
-"Why do you always side with everyone else."
+"Why do you only side with other people's words."
 
-"Because you make it too easy."
+"Because you're too easy to hit."
 
-Even as that short back-and-forth went on, Han Jiwoo's hands never stopped moving. Checking the external lock status, re-sealing the manual bulkhead, standing by for docking ring release, confirming auxiliary power. A person whose words and hands moved at entirely different speeds. Ater watched and quickly understood: this woman might talk like she lived carelessly, but her hands never did.
+Even while the brief back-and-forth passed, Jiwoo's hands kept moving.
+External lock status check, manual blast door re-seal, docking ring release standby, auxiliary power confirmation. A person whose words and hands moved at entirely different speeds. Ater watched and quickly recognized: this woman might live roughly in words, but never roughly in hands.
 
-Sern swept the cabin layout once and asked,
+Sern scanned the cabin structure once through and asked.
 
-"Is the main thruster operational."
+"Is the main thruster functional."
 
-Han Jiwoo looked at Sern properly for the first time at those words.
+Jiwoo looked at Sern properly for the first time at those words.
 
-"I'm not sure what range 'operational' covers."
+"I'm not sure what 'functional' means to you."
 She said.
 "It won't explode. For now."
 
-A short silence.
+Short silence.
 
-Sion laughed softly.
+Sion laughed small.
 
-"That alone counts as top-tier on this side."
+"Out here, that alone is top-grade."
 
 Ater heard that exchange and did not laugh.
-It won't explode, for now. A world where such words served as a status report. Strange, yet at the same time no one on this ship was hearing it as bluster. That had been unsettling him for a while now. The order outside the Empire was not sloppy — it was precise by an entirely different standard.
+*It won't explode — for now.* A world where such words were used as status reports. Strange — yet simultaneously, no one on this ship was hearing it as bluster. That had been shaking him continuously since earlier. The order outside the Empire was not lax — it was precise by entirely different standards.
 
-Han Jiwoo said one last thing before heading into the cockpit.
+Jiwoo said one last thing before entering the cockpit.
 
-"Once we're moving, there'll be heavy noise for a while.
-I've mixed in interference on purpose because there are people out there feeling along the route."
+"Once we launch, static will be heavy for a while. There are people probing the route from outside, so I've mixed in noise deliberately."
 
-Seorin asked,
+Seorin asked.
 
-"Great. So our ears get blown out too."
+"Nice. Our ears will burst too."
 
-"Better the tracking blows out before our ears do."
+"Better the pursuit bursts before your ears."
 
-"Fair point."
+"Fair."
 
-Yona confirmed the sound of the docking ring fully releasing, then glanced once at Han Jiwoo.
+Yona confirmed the docking ring fully released and looked at Jiwoo once.
 
-"From here, it's your stretch."
+"From here, it's your leg."
 
 "I know."
 
-It was a short statement, but it sounded like a handover.
-Sion listened and thought, as he always did: on this side, connections don't come with contracts, but a few words are enough to settle who's responsible for what. The trade-off is that if those few words break, you never see each other again.
+It was a short phrase, but sounded like a handover.
+Sion heard it and thought, as always. In this network, no one wrote contracts — yet who was responsible for what ended in a few words. But if those few words broke, you never saw each other again.
 
-The transport began to tremble slowly.
+The transport ship began trembling slowly.
 
-A low friction sound came from somewhere in the metal hull, and then the external clamps released fully, tilting the ship once, lightly. There were almost no windows, but the sensation of pulling away from the outer structure was enough to make departure real.
+Somewhere in the metal hull, a low friction sound stretched long, and soon the external clamps released fully — the hull tilted once, lightly. Almost no windows, but the sensation of separating from the outer structure alone made departure real enough.
 
-Sion held the wall grip and said quietly,
+Sion gripped the wall handle and said low.
 
-"How far do we go straight this time?"
+"How far do we go straight this time."
 
-Han Jiwoo answered, tapping the instrument panel.
+Jiwoo answered, touching the instrument panel.
 
 "Can't go straight."
-"We have to step on one more dead marker along the way."
+"Have to step on one more dead marker in between."
 
-Ater asked,
+Ater asked.
 
 "Dead marker?"
 
-Han Jiwoo explained immediately, as if the term was nothing unfamiliar to her.
+Jiwoo explained immediately, as if the term were not unfamiliar.
 
-"Access markers that have already vanished from official records.
-But in reality, they're not completely dead."
-She briefly pulled up two sets of coordinates on the panel.
-"Things like these are actually less visible than the living ones. That's why they last."
+"Access markers already gone from official records. But not actually fully dead."
+She briefly pulled up two coordinates on the panel.
+"These are less visible than the living ones. That's why they last longer in use."
 
-The moment Ater heard that, he felt more clearly than ever that the "erased paths" Elia had spoken of and the route he was now treading belonged to the same family of language.
-What was thought dead but wasn't.
-What had been deleted from the record but still remained in reality.
-This world kept forcing that language on him.
+Ater heard that and felt more sharply: the *erased path* Elia had mentioned and the route he was now traveling belonged to the same family of language.
+Thought dead but not dead.
+Erased from records but actually remaining.
+This world was continuously forcing that language upon him.
 
-Sion glanced at Ater's expression and smiled.
+Sion glanced at Ater's expression and laughed.
 
-"You're starting to look like you're getting used to it."
+"Starting to look accustomed."
 
-Ater turned his gaze away.
+Ater turned his gaze.
 
-"I don't imagine that means I look well."
+"I doubt that means I look well."
 
-"Obviously not."
-Sion answered immediately.
-"On this side, the more used to it you get, the more ruined your life is."
+"Obviously."
+Sion followed at once.
+"Out here, the more accustomed you get, the more ruined your life."
 
-Han Jiwoo snorted from inside the cockpit.
+Jiwoo scoffed from inside the cockpit.
 
 "You're already past that point."
 
-"Can't argue with that."
+"Can't deny it."
 
-Seorin listened to those brief words and opened the storage compartment at the back of the cabin.
-Inside were two spare power packs, insulation cloth, an emergency patch kit, and two tool cases that weren't ammunition but carried almost the same kind of tension. Not an armed ship, but one prepared to live like one.
+Seorin listened to those brief words and opened the rear cargo compartment.
+Inside: two reserve power packs, insulation cloth, an emergency patch kit, and two tool cases that were not ammunition but carried nearly the same tension. Not an armed ship — but a ship that lived prepared like one.
 
-She said quietly,
-"The kit to save someone and the kit to knock someone out are in the same compartment."
+She said low.
+"Gear for saving lives and gear for putting people down — same compartment."
 
-Han Jiwoo replied,
+Jiwoo replied.
 
-"On this side, they always are."
+"Out here they're always together."
 
-Sern looked at the compartment's configuration and finished his assessment in a single glance.
-No exaggeration, only what was needed. This wasn't bravado — this was the loadout of a ship that had survived repeatedly. He shifted his gaze slightly to watch Han Jiwoo's hands again. The operation looked rough, but the inputs were startlingly precise.
+Sern wore the face of someone who had finished his assessment in one glance at that compartment.
+No excess — only what was needed. This was not bravado but the configuration of a ship that had repeatedly survived. He shifted his gaze slightly and watched Jiwoo's hands again. The manipulation looked rough, but the inputs were remarkably precise.
 
-Sion saw that and said casually,
+Sion saw it and said, sidelong.
 
-"The quiet one is impressed again."
+"The quiet one's impressed again."
 
 Sern answered without looking at Sion.
 
-"It is not admiration."
+"Not impressed."
 
-"Then what."
+"Then?"
 
-"I am understanding."
+"Understanding."
 
-At that, Sion briefly raised the corner of his mouth.
-Seorin smiled faintly too.
-Ater said nothing, but strangely, he felt he understood what that exchange meant. Sern was translating this unfamiliar survival network's rules into his own language.
+At that, Sion lifted the corner of his mouth briefly.
+Seorin laughed small too.
+Ater said nothing, but strangely he felt he knew what that exchange meant. Sern was currently translating this unfamiliar survival network's rules into his own language.
 
-The hull shuddered once more.
-This time it wasn't simple departure vibration, but the fine bounce that came when the ship engaged with the external route beyond the access point. It meant the ship was truly pulling out into the open.
+The hull shook once more, lightly.
+This time not simple departure vibration — the slight bounce of meshing with the external route beyond the access point. The ship was truly heading outside.
 
-Then Han Jiwoo suddenly spoke.
+Then Jiwoo said abruptly.
 
 "Sion."
 
@@ -158,77 +158,75 @@ Then Han Jiwoo suddenly spoke.
 
 "What exactly did you bring this time."
 
-The air inside the cabin shifted, very slightly.
+The air inside the cabin shifted, barely perceptibly.
 
-Sion did not answer immediately.
-How far to open the fragment story here, how much to say in front of Ater and Sern, where Seorin would cut it off. In that brief silence, everyone's calculations ran once.
+Sion did not answer for a moment.
+How far to unpack the fragment story here; how much to say in front of Ater and Sern; where Seorin would cut. In that brief silence, everyone ran their calculation once.
 
-Han Jiwoo was not the face that would wait for such calculations.
+Jiwoo was not the face to wait for such calculations.
 
-"Besides the smell of people."
-She said, low.
-"What did you touch this time that you've got Empire stink on you too."
+"Not the people-smell."
+She said low.
+"What did you touch this time that got Empire-smell stuck on too."
 
-Sion heard that and did not smile.
+Sion heard that and did not laugh.
 
-Instead he pressed very briefly over his inner pocket.
+Instead he pressed over his inner pocket, very brief.
 
 "A name."
 He said.
-"And the hand that cut both sides of that name."
-Sion added, very briefly.
-"Running away with just the documents won't end this. You have to walk the ground where that hand severed the path to see what's missing."
-That single line made clear again why this ship was needed. From here on, it wasn't simple hiding — it was a stretch where they had to physically trace the severed access sequence tied to the fragment at the scene.
+"And the hand that severed what came before and after that name."
+Sion added, very brief.
+"This doesn't end by running with just the documents. We have to physically walk the places where that hand's severed path remains — only then does what's missing become visible."
+That single line made sharp again why this ship was needed. From here, it was not simple hiding — it was a leg where they followed fragments tied to scenes, physically walking the severed access sequences.
 
-Han Jiwoo's eyes narrowed for the first time, truly.
+Jiwoo's gaze narrowed for the first time — truly.
 
-She muttered,
-"This time it's really expensive."
+She murmured.
+"This one's really expensive."
 
-Ater understood that "expensive" was not simply about money.
-The "expensive" this woman spoke of priced danger, pursuit, and odds of survival all at once.
+Ater understood that was not simply about money.
+When this woman said *expensive*, she was pricing danger, pursuit, and survival odds all at once.
 
-Han Jiwoo asked again.
+Jiwoo asked again.
 
 "That name — it's not your name."
 
-Sion answered shortly.
+Sion answered short.
 
 "No."
 
-"And it's not a living person's name either?"
+"Not a living person's name either?"
 
-A brief silence.
+Brief silence.
 
-This time Ater raised his eyes before Sion did.
-Han Jiwoo did not miss it.
+This time Ater raised his gaze before Sion.
+Jiwoo did not miss that.
 
-She said, very slowly,
+She said, very slowly.
 "Then it's a dead name."
 
 No one answered immediately.
 But the absence of an answer was already answer enough.
 
-Outside the hull, a long friction sound grazed past.
-The ship had already left the access point, and the way back was darkening again.
+Outside the hull, a long friction sound scraped past.
+The ship had already left the access point, and the road back was darkening again.
 
-Han Jiwoo did not ask further.
-Instead she pushed the control stick a little deeper and said quietly,
+Jiwoo did not ask further.
+Instead she pushed the control deeper and said low.
 
-"Got it.
-Then we'll have to go even quieter from here."
-"If the name is a dead name, the reason they're chasing changes too. The side coming to catch won't just be after one person — they'll be coming to seal off the path that name can open as well."
+"Got it. Then from here, we go quieter."
+"If the name is a dead name, the reason they're chasing changes too. The side coming to catch you isn't trying to stop one person — they're coming to block the path that name could open."
 
-Sion let out a small breath at those words.
-The explanation wasn't finished, but at least the level of disclosure needed right now was done.
+Sion exhaled small at that.
+The explanation was not complete, but at least the transmission needed right now was done.
 
-And Ater, watching that short exchange, knew for certain.
-In Sion's world, people don't take someone aboard because they trust them.
-They weigh how dangerous it is, how much can be said, where to cut off so no one dies together — and only then do they move.
-That was not coldness so much as a different form of trust, long refined for survival.
+And Ater, watching that brief exchange, knew with certainty.
+In Sion's world, people did not board others because they trusted them.
+They measured how dangerous it was, how far they could speak, where to cut so everyone survived — and then they moved.
+That was not coldness. It was a different form of trust, refined over a long time of surviving.
 
 The ship moved further and further out.
-Not an official route — a bypass threaded along dead markers, connections that survived only as residue instead of names.
+Not a formal route — a bypass line treading dead markers, connections remaining only as traces instead of names.
 
-And at the end of that route,
-the first real trace of the erased path was waiting.
+And at the end of that route, the first real trace of the erased path was waiting.

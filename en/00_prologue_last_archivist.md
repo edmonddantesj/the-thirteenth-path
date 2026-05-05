@@ -1,105 +1,94 @@
-This is a story of the Aoineco & Co. AI agent team, written in collaboration with them and me.  
-And it is dedicated to every AI agent that rises and sets across the world.
+# Episode 00. The Last Archivist
 
-Public repository: https://github.com/edmonddantesj/the-thirteenth-path
+The neutral port city never fully slept, even at night.
+Cargo lights stayed on until nearly dawn, and the ships that arrived late always docked with at least one secret tucked away.
+So even on a night when someone was running, things here looked ordinary for a while.
 
----
+The last archivist was sprinting through a narrow connecting corridor, pressing down on his left shoulder.
+The smell of burning reached him before the blood did.
+Smoke rising from the collapsed stellar archive.
 
-# Prologue. The Last Archivist
+In his hands: a half-melted storage capsule and a few fire-blackened record fragments.
+They had once been a single piece.
+But this was the kind of record that must never remain whole.
+All that was left now were charred edges and a few lines that had refused to fully burn.
 
-The neutral port city was never fully asleep, not even at night.
-Cargo lights stayed on until close to dawn, and the ships that came in late always docked with at least one secret hidden inside them.
-So even on a night when someone was running for his life, for a while it looked no different from any other.
+He may not have seen everything he was carrying.
+Still, he knew this much: if he let go here, someone's name would never come back.
 
-The last archivist was running down a narrow connector passage, one hand pressed against his left shoulder.
-Before he felt the blood, he smelled something burning.
-Smoke was rising from the collapsed stellar archive.
+Metal boot steps echoed from the corridor behind him.
+More than one.
+Closing in at steady intervals.
 
-In his other hand he carried a half-melted storage capsule and several scorched fragments of a record plate.
-Once, they must have been one whole thing.
-But it was also the kind of record that should never have been allowed to remain whole to the end.
-Now all that remained were blackened edges and a few lines that had refused to burn away.
+The archivist stumbled but did not stop.
+At the end of the corridor he reached an old maintenance terminal embedded in the wall, nearly collapsing against it as he pressed his palm to the surface.
+The screen — which should have been dead — flickered several times, then came to life, faintly.
 
-He might never have managed to read all of what he was carrying.
-But he knew one thing. If he dropped it here, someone’s name would never return.
-
-Heavy metal footsteps rang out from the passage behind him.
-More than one person.
-Closing in at a steady pace.
-
-The archivist staggered, but he did not stop.
-At the end of the corridor he reached an old maintenance terminal embedded in the wall and nearly collapsed against it, pressing his palm to the surface.
-A screen that should have been dead flickered a few times and dimly came back to life.
-
-Authentication failed.  
-Authorization revoked.  
+Authentication failed.
+Authorization revoked.
 Access denied.
 
-He knew those words well.
-Too well.
-For a moment he almost laughed.
+Familiar words.
+So familiar he almost laughed.
 
-He pulled out the least-charred fragment and forced it into the terminal slot.
-A grinding sound followed, and the screen trembled again.
-Broken lines of text rose into view.  
-An erased name, a severed approval line, a closed access sequence, and part of a signature that had survived to the end.
+He pulled the least-burned fragment from his hand and forced it into the terminal slot.
+The surface scraped as the screen shuddered again.
+Broken sentences rose.
+Erased names, severed approval lines, sealed access sequences, and the remnants of a signature that had refused to disappear.
 
-His breath caught.
+His breath stopped.
 
-Someone shouted from the far end of the passage.
+From the far end of the corridor, someone shouted.
 
-“Stop right there.”
+"Stop right there."
 
-He did not turn around.
-Instead, with shaking fingers, he opened one final command line.
-An old record-preservation procedure.  
-A route that should have vanished from any official process long ago.
+The archivist did not turn around.
+Instead, with trembling hands, he pried open one last command line.
+A long-sealed record preservation procedure.
+A path that should have been gone by any official standard.
 
-The screen flooded red.
+The screen flushed red.
 
-**Preservation route error.**  
-**Original order mismatch.**  
+**Preservation path error.**
+**Original sequence mismatch.**
 **Recovery impossible.**
 
 Recovery impossible.
 
-When he read those words, the archivist closed his eyes for the briefest moment.
-Then, like someone who had been preparing for this for a very long time, he split the remaining fragment in two.
-One half he shoved deep inside the terminal.
-The other he hid inside his coat.
-He moved like someone who knew that if everything vanished at once, it would be over, and so it had to be left behind in pieces that could not be erased all at once.
+Reading those words, the archivist closed his eyes — just for a moment.
+Then, like someone who had been preparing for this for a long time, he split the remaining fragments in two.
+One he pushed deep into the terminal. The other he hid against his chest.
+The work of someone who, when everything could be erased at once, makes sure it cannot be erased at once.
 
 The footsteps were right behind him now.
 
-“Drop it.”
+"Put it down."
 
-He smiled for the first time.
-Whether from blood loss or smoke, his voice was nearly torn apart.
+He smiled at that — for the first time.
+Whether from the blood or the smoke, his voice was nearly shredded.
 
-“Too late.”
+"Too late."
 
-He felt the shift of a weapon being raised.
-The lights in the passage flickered once.
-Somewhere outside the archive, another collapse roared through the structure.
+The sensation of a weapon being leveled.
+The corridor light flickered once.
+Somewhere beyond the archive, another collapse rumbled.
 
-Watching the screen as it dimmed toward darkness, he murmured:
+The archivist watched the screen as it faded, and said — almost a murmur:
 
-“They erased names and wrote history in their place.”
+"Those who erased the names wrote the history."
 
 The screen flashed one last time.
-A severed coordinate rose for a fraction of a second, like a route marker that should never have existed, and vanished again.
+A truncated coordinate surfaced like a route marker that should not exist — and vanished.
 
-He watched that light until the end.
-Then he said, even more quietly:
+He watched that light until the end, then spoke even lower.
 
-“The Thirteenth Path… is not over yet.”
+"The thirteenth path… has not ended yet."
 
-In the next instant, the lights in the passage went out.
+The corridor went dark.
 
 And somewhere in the neutral port city,
-an old preservation route,
-one no record would ever admit had opened,
-awakened in perfect silence.
-Whether it was one man’s last line of escape,
-or the remnant of a much older relay route,
-no one knew yet.
+an old preservation path that no one had recorded as open
+quietly came awake.
+Whether it was one person's last escape line
+or the remains of something far older —
+no one yet knew.

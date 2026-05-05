@@ -1,262 +1,250 @@
 # Episode 13. Departure Line
 
-Even after Elia closed the reading plate, she did not rise at once.
+Elia did not rise from her seat even after closing the reading plate.
 
-The fragment still lay on the desk, and the air in the room still revolved around it.
-But everyone knew the same thing. Staying in this room any longer would not make the matter easier. The moment the coordinates existed, flight stopped being a matter of staying hidden in place. It became a matter of where they moved next.
+The fragment still lay on the desk, and the room's air still revolved around it.
+But everyone knew. Staying longer in this room would not make the affair easier. From the moment a coordinate existed, flight was no longer about hiding in place — it was a matter of where to move.
 
-Seorin was the first to break the silence.
+Seorin broke the silence first.
 
-"Good. Then let's start with the method."
+"Nice. Let's look at the method."
 
-Elia looked up.
+Elia raised her head.
 
-"Nice.
-As expected, movement comes before sentiment for you."
+"Good. You're always movement before sentiment."
 
-"Feeling things doesn't buy fuel."
-Seorin reached at once for the route pad.
-"And if we don't get out by tonight, the price for reading those coordinates lands immediately.
-Two people from the inner holding district, one outside contact—all of them become sellable."
+"Sentiment doesn't generate fuel."
+Seorin reached toward the route pad.
+"And if we don't get out by tonight, the price of reading this coordinate hits immediately. Two people who were in the inner storage district, one outer access — all of it could get sold."
 
-Yona, leaning by the door, picked it up at once.
+Yona, leaning against the doorframe, followed at once.
 
-"That part is true."
+"That's right."
 
-Sion grinned briefly, but his eyes went serious again just as fast.
-A closed transfer point in the outer cluster. Just because they had one coordinate now did not mean a path had cleanly opened. Places like that were usually dead in the official record while still being half-chewed on by smugglers or ruined logistics lines in practice. The route there was annoying, and getting seen there was worse.
+Sion smirked, but his eyes turned serious again fast.
+A closed transfer point in the outer cluster. Having one coordinate did not mean the road opened immediately. Places like that were usually dead in official records — in reality, half-held by smuggling lines or closed logistics networks. The way there was troublesome, and being caught more so.
 
-Ater asked quietly,
+Ater asked quietly.
 
 "When can we depart."
 
-Instead of answering, Yona first looked at Elia.
-She was the one who had read the coordinates in this room, and in the end she was the one who could put a price on how dangerous those coordinates actually were.
+Yona looked at Elia first instead of answering.
+She was the one who had read the coordinate in this room, and she was the one who would ultimately price its danger.
 
 Elia folded the snack bag once and pushed it aside.
 
-"If you run this second, you die.
-If you stay a day or two, everything gets more expensive."
+"Run now and you die. Stay a day or two and it gets more expensive."
 She said.
-"So the best move is to slip inward tonight."
+"So slipping out within tonight is best."
 
 Seorin nodded at once.
 
 "Within expected range."
 
-Sern asked in a low voice,
+Sern asked low.
 
 "Is there a direct route."
 
 Elia laughed.
 
-"If there were, no one would call it a closed transfer point."
+"If there were, who would call it a closed transfer point."
 
-A brief stillness.
+Short silence.
 
-Ater did not let that pass by.
-In the Approval Bureau, when a path was said to be closed, it usually meant authority over it had vanished. But out here, even a closed path seemed to keep living so long as the right people knew how to move through it. That difference kept catching in his mind.
+Ater did not let that pass.
+In the Empire Approval Bureau, a closed path usually meant authorization had vanished — but on this side, even a closed path seemed to leave routes that those who knew still used. That difference kept nagging.
 
-Elia pulled an old route pad from beneath the desk and opened it.
-What appeared on the screen was not the official route network, but detour lines already pushed outside the record, dead transfer points, and dock markers that survived only under names no longer used.
+Elia pulled an old route pad from below the desk and opened it.
+What appeared on screen was not formal routes — but bypass lines already pushed outside the records, dead transfer points, dock markers remaining only under unused names.
 
-"The formal lines won't work."
-She swept one line away with her thumbnail.
-"Your names are already stamped in a few inner places, and the longer you carry that fragment, the more dangerous it gets."
+"Official lines won't work."
+She erased one line with her thumbnail.
+"Your names are already pinned in several inner places, and the longer you carry that fragment, the more dangerous it gets."
 
-Sion asked,
+Sion asked.
 
 "So we go straight on Yona's ship?"
 
-"We switch once in between."
+"Need one swap in the middle."
 Yona answered instead.
-"I can pull you to the outer access point on mine, but if you're going deeper toward the cluster side after that, you'll need another line."
+"I can pull you out to the outer access, but going deeper into the cluster from there needs a different ship."
 
-Seorin frowned.
+Seorin grimaced.
 
-"Nice. We're changing ships already."
+"Already transferring."
 
-"No part of this is nice."
-Elia said indifferently.
-"But when you head toward dead paths, it rarely ends with just one ship."
+"Not ideal."
+Elia said, unbothered.
+"But when you're heading toward a dead path, one ship never does."
 
-Sern was already calculating in his head as he looked at the route pad.
-Possible departure windows. The cycle at which pursuit lines would realign. The speed at which Imperial blockades would bleed into the outer side. The moment harbor brokers would start dirtying the coordinate. And how quickly the number of choices his lord could still walk back from would shrink the farther they moved from here.
+Sern was already calculating time in his head, watching the route pad.
+Departure window, pursuit-net realignment cycle, the speed at which the Empire blockade would spread outward, the timing at which port brokers would contaminate the coordinate. And how much his lord's options for return would shrink with each step further from here.
 
-Without asking, Ater could read the outline of that calculation.
-The heir of House Valkar, moving like a fugitive toward a closed transfer point beyond the Imperial record. This was no longer a path of ordinary return. And yet he was still here.
+Ater could read that calculation roughly without asking.
+The heir of House Valkar, moving like a fugitive toward a closed transfer point outside Empire Approval Bureau records. Already not a normal return path. And yet he was still here.
 
-Elia glanced at him once and asked,
+Elia glanced his way and asked.
 
-"You still thinking of turning back?"
+"Do you still think about going back?"
 
-The question was clearly aimed at Ater.
+The question clearly went to Ater.
 
-The room fell still.
-Neither Sion, nor Seorin, nor Sern interrupted at once. This was not a question anyone else could answer for him.
+The room went quiet.
+Sion, Seorin, Sern — none cut in. This was not a question anyone could answer for him.
 
-Ater stayed silent longer than expected.
+Ater was silent longer than expected.
 
-For a brief moment, his father Kairon's face rose in his mind.
-Just because something can be opened doesn't mean it should be.
-The one who protects must stand on the side others will hate.
+His father Kairon's face surfaced, very briefly.
+Just because you can open it does not mean you should.
+The one who guards must stand on the hated side.
 
-Those sentences were still inside his body.
-But at the same time, the fragment of the name left beside the dead records keeper and the severed sequence had already entered his eyes. And after seeing them, he knew he could not return in the same way as before.
+Those sentences still remained in his body.
+But at the same time, the name fragment left at the dead archivist's place and the severed sequence were already inside his eyes. And after seeing them, he knew — at least, he could not return in the same manner as before.
 
-At last he said, very low,
+He said at last, low.
 
-"Even if I return, I cannot return to my former place."
+"Even if I return, I cannot return to the place I was."
 
-Elia gave a small nod without looking moved by it.
+Elia nodded at that answer with an unremarkable face.
 
-"Good.
-Then at last you're fit to put on the same ship as the rest of them."
+"Good. Now you're worth putting on the same ship."
 
-Sion let out a short grin.
+Sion smirked.
 
-"That's a strange standard."
+"Strange standard."
 
-"No. Accurate."
-Elia answered at once.
-"If you board someone who's only halfway in, they're the first one to betray you halfway through."
+"No. Precise."
+Elia followed immediately.
+"Put someone who's only half-in on a ship, and they're the first to betray you mid-route."
 
-Seorin glanced briefly at Sion at that.
-Sion pretended not to notice, but both of them understood. Elia's line had not been meant only for Ater. It meant anyone in this room who left half their mind elsewhere would be the end of the whole line.
+Seorin glanced at Sion at that.
+Sion pretended not to notice, but both knew. Those words were not aimed only at Ater. They meant anyone in this room with half their heart pulled out — that was the end.
 
-Sern spoke quietly.
+Sern opened his mouth quietly.
 
-"Then there are things we need to settle before departure."
+"Then there are things to settle before departure."
 
-Everyone's gaze turned to him.
+All eyes turned his way.
 
-"First, the number of people who know the coordinates must stay limited to those in this room.
-Second, until we reach the outer access point, it would be best not to leave traces in an Imperial style.
-Third, from here on, we should also divide who carries which fragment."
+"First — knowledge of the coordinate must be limited to those in this room.
+Second — before outer access, it is better to leave no Empire-style traces.
+Third — from now, we must also divide who carries which fragment while moving."
 
-Elia gave a short laugh.
+Elia laughed brief.
 
-"Nice.
-When the quiet one starts talking, he's the most practical of all."
+"The quiet one opens his mouth and he's the most operational."
 
-Sern showed almost no expression at that.
+Sern showed no reaction to that.
 
-Sion uncrossed his arms and asked,
+Sion unfolded his arms and asked.
 
-"Then who carries the fragment."
+"So who carries the fragment."
 
-That was not a question to pass lightly.
+That was not a question to pass over lightly.
 
-The fragment left at the records keeper's side.
-The remaining trace of Jun Aster's name.
-And now, even the trace of the path newly discovered inside it.
-What they still had now was not only an object. It was closer to a state of divided preservation, where shard, coordinate, reading, and memory all had to move separately.
+The fragments left at the dead archivist's place.
+The trace where Jun Aster's name remained.
+And the path-trace just discovered.
+What they carried now was no longer just objects. It was closer to a state of divided preservation — fragments, coordinates, interpretation, and memory all split and moving separately.
 
-Elia looked once at the piece on the desk and answered.
+Elia looked at the fragment on the desk once and answered.
 
-"Sion should carry the name fragment."
+"The name fragment — Sion should carry it."
 
-Ater's brow shifted by the faintest degree.
-Sern, too, wore the face of someone waiting for the reason.
+Ater's eyebrow shifted, barely perceptibly.
+Sern's face also waited for the reason.
 
-Elia tipped her chin toward Sion.
+Elia pointed her chin toward Sion.
 
-"Things like that should be carried by someone whose way of reading has sunk into the hand.
-Someone who won't panic and hold it too precious, but won't handle it carelessly either."
+"Things like that need to be held by someone whose hands know the way of reading.
+Someone who won't get scared and hold it too preciously — but won't handle it carelessly either."
 
 Then she turned her gaze to Ater.
 
-"But you'd be better off memorizing the path marker."
+"But the path marking — better if you memorize it."
 
 "Why."
 
-"Because you're used to the language that closes paths."
-Elia answered calmly.
-"That means when you look at an erased path, you'll be the first to feel where it turns suspicious."
+"You're used to the language of closing paths."
+Elia said, calm.
+"Then inversely — when you see an erased path, you'll feel fastest where it's most suspicious."
 
-Ater did not answer at once.
-But neither did he reject it. That alone was enough.
+Ater did not answer immediately.
+But he did not deny it either. That alone was enough.
 
-Seorin muttered beside them,
+Seorin muttered low from beside.
 
-"Nice. Even the division of roles is finished."
+"Roles assigned and done."
 
-"It's not roles."
+"Not role assignment."
 Sion said.
-"It's just splitting things in the direction that's less disastrous."
+"Just dividing toward the side that fails less."
 
-"That's what roles are."
+"That's role assignment."
 
-Meanwhile Yona was sweeping the map again.
+Yona scanned the map between that exchange.
 
-"I'll only pull you as far as the outer access point.
-After that, you're the one connecting the next line."
+"I'll pull you out to the outer access. After that, you attach the next ship."
 
 Elia nodded.
 
-"Already have it connected.
-I'm not giving you the name yet. You'll get it at the access point."
+"Already arranged. Won't give the name yet — I'll give it at the access point."
 
-Sion immediately narrowed his eyes.
+Sion narrowed his brow immediately at that.
 
 "Why."
 
-"In case you get caught and sell it too fast."
+"In case you get caught and it gets sold immediately."
 
-"That's harsh."
+"Harsh."
 
-"It's true."
+"True."
 
-Seorin laughed softly.
+Seorin laughed small.
 
-"Good. Most reliable thing said all night."
+"Nice. Most trustworthy thing said all day."
 
-The words moved lightly back and forth, but the room's atmosphere had already shifted toward departure. Who would carry what, how far they would go together, at what point they would switch, and how far each name would remain hidden. None of that was abstract anymore. It was the kind of conversation only people who were truly about to move ever had.
+Words passed light, but the room's atmosphere had already shifted toward pre-departure.
+Who carries what, how far they travel together, where they transfer, whose name to hide and to what extent. That was no longer abstract discussion. It was the kind of conversation only people truly about to move have.
 
-Ater looked at the faint outer lines across the route pad and let out a slow breath.
-This was no longer only about crossing a door the Empire could have closed from inside. He was now trying, with his own feet, to move against the kind of path the Approval Bureau and House Valkar had long pushed beyond the boundary.
+Ater looked at the faint outer lines on the route pad and exhaled, very quietly.
+This had now passed beyond one door he could close from inside the Empire. He was about to walk — on his own feet — backward along the very routes that House Valkar and the Approval Bureau had pushed beyond the boundary.
 
-And strangely enough, the fact frightened him—but not only frightened him.
+And strangely, that fact was not only frightening.
 
-Sion pressed the fragment back into the deepest inner pocket and fastened his coat.
-Even while fleeing, his hands had gone strangely steady.
-When something to do appeared clearly before him, he always shook less. At a time like this, that trait was undeniably useful.
+Sion pushed the fragment deep into his inner pocket again and fastened his coat button.
+Even in the middle of running, his hands were strangely calm.
+The temperament that steadied rather than shook when there was something to be done — at times like this, it clearly helped.
 
-Seorin watched him once and said softly,
+Seorin looked at him once, then said, small.
 
-"Good.
-Then this is really where we leave."
+"Nice. So we're really leaving now."
 
 Sion answered.
 
 "Yeah."
 
-"Any regrets."
+"Regrets?"
 
-Sion laughed very briefly.
+Sion laughed, very brief.
 
-"Not the kind of question you ask before departure."
+"Not a question to ask before departure."
 
-Ater could not laugh at that.
-This departure was not simple flight. If they failed to get out before night ended, then the very fact that they had read those coordinates would become living proof—reason enough for blockade on the Imperial side and a bounty on the harbor floor. It was not merely that the road back would shrink. It was closer to all the roads left becoming dirtied together.
+Ater heard that but could not laugh. This departure was not simple flight. If they did not get out within the night, the very fact of having read the coordinate would become living evidence — giving the Empire grounds for a blockade, giving the port floor a bounty. Not merely a shrinking path back, but closer to every remaining path turning dirty.
 
-Elia folded the snack bag once more and put it back in the drawer.
+Elia folded the snack bag again and tucked it in the drawer.
 
-"Good. Then all of you fix your faces before you go out."
+"Good. Everyone fix your faces and head out."
 She said.
-"From here on, the ones who live longest are the ones who pretend to be hiding while traveling the farthest."
+"From now, the ones who pretend to hide while actually going farthest — those are the ones who live longest."
 
-The alley outside the door was still quiet, but everyone knew that quiet would not last long.
-The neutral port city was a place that could hold erased things for a long time, but it did not hide them forever. Especially not when names and paths were tied together in the same matter.
+The alley outside the door was still quiet, but everyone knew that quiet would not last.
+The neutral port city was a city that held erased things for a long time — but it did not hide them infinitely. Especially when both name and path were at stake.
 
-One by one, they began preparing to move.
-Sion took the name fragment. Ater took the coordinates into memory. Seorin took the improvised escape line that would keep changing on the spot. Sern took the blank spaces in the blockade net. Yona gathered the fuel and time needed to reach the next connection.
+One by one, each began finishing preparations to move.
+Sion was carrying the name fragment; Ater, the coordinate in his head; Seorin, the escape lines that would shift on the fly; Sern, the gaps in the blockade net; Yona, the fuel and time to the next connection.
 
-No one was yet at the stage of calling the others companions.
-But at the very least, none of them could deny anymore that they were facing the same direction.
+No one was yet at the stage of calling each other allies.
+But at least now, the fact that they were looking the same direction could not be denied.
 
-And that direction,
-following the trail of the erased name,
-was opening—slowly, but unmistakably—
-toward the outer cluster,
-where the first fragment of the severed path remained.
+And that direction — following behind an erased name, toward the outer cluster where the first fragment of a severed path remained — was opening. Very slowly, but unmistakably.

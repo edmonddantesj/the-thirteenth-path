@@ -1,50 +1,49 @@
-# Episode 9. The Road to the Last Harbor
+# Episode 09. To the Last Harbor
 
 Yona's cargo ship was not fast.
 Instead, it was a ship accustomed to disappearing.
 
-Rather than riding the official route straight, it threaded through the shadows of outer maintenance bridges and derelict hulls. From a distance it looked like a junk hauler that had lost its bearings, and up close it looked no different. That was probably why it had survived so long. In this harbor, it was not the eye-catching ships but the ones that looked roughly abandoned that traveled farthest.
+It did not run straight along formal routes but slipped between outer maintenance bridge shadows and dead hulls. From afar it looked like a drifter that had lost its heading, and up close it looked no different. That was likely why it had survived so long. In this port, ships that looked vaguely discarded went farther than ships that caught the eye.
 
 The cabin lights never fully brightened.
-Yona kept only a few instrument panels lit at minimum and moved in short trips between the cockpit and the cargo hold. He did not ask more than necessary, yet he was not entirely indifferent either. That degree of distance was the most expensive courtesy on these waters.
+Yona kept only a few instrument panels at minimum, moving briefly between the cockpit and the cargo hold. He did not ask more than necessary, nor was he entirely indifferent. That degree of line was the most expensive courtesy on this floor.
 
-Sion was used to Yona's manner.
-He knew that saying little was not indifference but the kind of politeness that simply did not ask what did not need asking.
+Sion was accustomed to Yona's way.
+He knew that few words was not indifference — it was the politeness of not asking what did not need asking.
 
-Ater, on the other hand, still wore the face of someone not yet accustomed to that distinction.
+Ater, by contrast, still wore a face unaccustomed to that distinction.
 
-He sat with his back against the cabin wall, but he looked like a man who had not fully surrendered any part of his body to this ship. A narrow, worn space, minimal lighting, movement governed not by documents but by reading faces and moods. It was plainly not the kind of seat a Valkar heir and Imperial Approval Bureau man normally occupied.
+He sat with his back against the cabin wall, but looked like a person who had not fully surrendered any part of his body to this ship. A narrow, worn space; minimal light; movement that ran on faces and instinct rather than documents. Not the seat where the heir of House Valkar and a man of the Empire Approval Bureau would normally sit.
 
-Seorin saw it and did not bother to say so.
+Seorin saw it but did not bother saying so.
 Instead she turned her gaze toward Sion.
 
-"He's not going to die."
+"He's not going to die on us."
 
 "Who."
 
-"Him."
+"That one."
 
-There was no need to say the name to know who she meant.
+No need to name him — they both knew.
 
-Sion glanced briefly toward Ater.
-The black coat was already dusted with grime and metal powder, less neat than before, yet somehow it looked even more out of place. People who stayed composed in a setting like this were usually one of two kinds. Either truly stupid, or truly long-enduring.
+Sion glanced toward Ater.
+The black coat was already dusted with grime and metal powder, less composed than at first, but strangely looked more foreign. People who stayed unshaken in a place like this were usually one of two kinds. Truly foolish, or truly long-enduring.
 
-"I suppose that's just how he is."
+"Guess he's always like that."
 
 "No."
-Seorin gave a low laugh.
-"People who are naturally like that usually show it off at least once before they board a ship like this."
+Seorin laughed low.
+"People who are always like that usually show it once more before boarding a ship like this."
 
 Sion did not reply.
-The remark was oddly accurate, and that was why.
+Because the remark was strangely accurate.
 
-On the opposite side, Sern was quietly and continuously reading the gap in the cabin door, the reflections off the instrument panels, and the external access signals.
-Even in transit he was someone who never fully released his vigilance. And yet, strangely, the sight was not unsettling but familiar. As though he, too, had long ago lost the seat where he could sit at ease.
+On the other side, Sern was quietly continuing to read the cabin door gap, the instrument panel reflections, and the outside approach signals.
+A person who never fully released tension, even while moving. Yet strangely, the sight looked not uncomfortable but familiar. As if he, too, had long ago lost the seat where he could sit at ease.
 
-From the cockpit, Yona called out.
+Yona asked from the cockpit side.
 
-"No tail yet.
-But if you want to change the destination, say it now."
+"No tail yet. But if you want to change destination, say it now."
 
 Sion shook his head.
 
@@ -52,189 +51,181 @@ Sion shook his head.
 
 "Figured."
 
-"There's nowhere else to go anyway."
+"Nowhere else to go."
 
 Yona did not answer that.
-He knew from experience that when only people with nowhere to go gathered together, the ship usually either sank or, against all odds, stayed afloat for a strangely long time.
+He knew from experience: when people with nowhere to go gathered, the ship usually sank — or, conversely, stayed afloat for a strangely long time.
 
-After a brief silence, Ater asked first for the first time.
+After a short silence, Ater asked first for the first time.
 
-"This person called Elia Vern -- have you known her long?"
+"This Elia Vern — is she someone you have known long."
 
-The question was directed at Sion, but everyone in the cabin heard it.
+The question was aimed at Sion, but everyone in the cabin heard.
 
-Before answering, Sion briefly pressed the inner pocket where the fragment lay.
+Sion pressed the inner pocket holding the fragment briefly before answering.
 
-"Long enough."
+"Known her a long time."
 
-"Do you trust her?"
+"Do you trust her."
 
 "No."
 
-Ater's brow narrowed almost imperceptibly.
+Ater narrowed his brow, barely.
 
 "You gave the same answer before."
 
 "It's the same question."
 
-Seorin cut in as if swallowing the gap between them.
+Seorin cut between them as if biting.
 
-"He's not going because she's someone he trusts. He's going because she's someone he needs. How many times do I have to say it before you understand?"
+"How many times do I have to say — we're not going because we trust her, we're going because we need her."
 
-Sern asked quietly,
+Sern asked quietly.
 
-"What do you mean by 'needs,' specifically?"
+"What does 'need' mean, specifically."
 
-This time Sion did not answer immediately. He looked once toward Seorin.
-When she gave the faintest tilt of her chin as if to say go on, only then did he open his mouth.
+This time Sion did not answer immediately — he looked once at Seorin.
+Seorin moved her chin very briefly, as if to say *go on*, and only then did he speak.
 
-"What we have in our hands is a fragment.
-Half-burned, half-severed, with every name and sequence broken off."
+"What we have in hand are fragments.
+Half-burned, half-severed, name and sequence both cut — fragments."
 
-He was not speaking of the piece of record plate picked up from the corpse's side. He was speaking of the entire affair.
+He was not talking about the record plate picked up at the body. He was talking about the entire incident.
 
-"To read it,
-we need someone who can read not what's left, but what's missing."
-Sion paused briefly and added,
-"You can carry a fragment in your hand, but answers don't come from fragments alone. You have to go back to the place it was cut from before the pieces finally connect."
+"To read those, we need someone who can read not what remains, but what is missing."
+Sion paused briefly, then added.
+"You can carry fragments in your hand, but fragments alone don't give you answers. You have to go to the place they were cut from — only then do they connect."
 
-The light in Ater's eyes shifted just slightly.
-It was not curiosity so much as the expression of someone seriously accepting, for the first time, a way of thinking outside his own language.
+Ater's gaze shifted, just slightly.
+It was not quite interest — closer to the expression of someone seriously receiving, for the first time, a way of thinking outside their own language.
 
 Sion continued.
 
-"They have to be able to hide it too.
-They have to know how far the danger reaches.
-And most important, it'd be better if they're someone who won't pretend they've never seen it."
+"She has to be able to hide things too.
+And know how far the danger goes.
+And most important — better if she's someone who won't pretend she's never seen this before."
 
-Yona let out a small scoff at that.
+Yona snorted softly at that.
 
-"Nice.
-In the end, what you're looking for isn't a person -- it's the last harbor."
+"Nice. What you're all looking for isn't really a person — it's a last harbor."
 
-Ater heard the expression and turned his head.
+Ater turned his head at the phrase.
 
-"The last harbor."
+"Last harbor."
 
 Yona shrugged briefly.
 
-"You know those things that are too precious to throw away completely, but too costly to your life to keep holding?
-People are like that, and records are like that."
+"You know — things too precious to throw away completely, but holding them makes your life feel more precious first. People, records — same thing."
 
-Seorin added low,
+Seorin added low.
 
-"That's exactly what it's like where Elia is."
+"Where Elia is — that's exactly it."
 
-After that single line, the air in the cabin shifted slightly.
-Until now Elia had existed only as a name. For the first time she acquired a sense of place. A place where discarded and erased things caught on one final ledge before vanishing entirely.
+After that single line, the cabin air changed slightly.
+Until now, Elia had existed only as a name. For the first time, a sense of place attached. A place where discarded and erased things catch, one last time, before vanishing entirely.
 
-Ater lowered his gaze for just an instant.
-There is order outside the Imperial Approval Bureau. An order that does not cease to exist simply because the Empire never sanctioned it. He had known that fact in his head. But a moment like this, where he had to lean directly on that order, was an entirely different matter.
+Ater lowered his gaze for the briefest moment.
+Order existed outside the Empire Approval Bureau too. Order that did not stop existing just because the Empire did not permit it. He knew that fact intellectually. But a moment like this — where he had to lean on that order directly — was an entirely different matter.
 
-"Is it safe there?"
+"Is it safe there."
 
-This time Yona was the one who laughed first.
+This time Yona laughed first.
 
-"If it were safe, why would you be going there?"
+"If it were safe, why would you be going."
 
 Sion smirked too.
 
-"He has a point."
+"He's right about that."
 
-Sern listened to that brief exchange without a word.
-The people on Sion's side plainly operated by different standards. Not the Imperial way of choosing doors on the assumption of safety, but a method of selecting which among dangerous places was the least treacherous. It was unfamiliar, but in a situation like the present one, it actually looked more realistic.
+Sern listened to that short exchange without a word.
+Sion's side of people clearly ran on different standards. Not choosing doors on the premise of safety, the way the Empire did — but choosing which of the dangerous places was least likely to betray. Unfamiliar, but in a situation like this, it looked paradoxically more realistic.
 
-Yona slowed the speed a little and said,
+Yona eased the speed slightly and spoke.
 
-"Almost there.
-Everyone put your faces away. The alleys around Elia's place read expressions before they read faces."
+"Almost in. Everyone fix your face. Elia's alley reads expressions before faces."
 
-Seorin looked toward Sion at once and grinned.
+Seorin immediately looked at Sion and grinned.
 
-"Hear that? He says fix your face first."
+"Hear that? Fix your face first."
 
 "What's wrong with my face."
 
 "You look like a bitten dog."
 
-"Great. Your descriptions are lovely as always."
+"Great. Beautiful wording, as always."
 
-After the brief laughter passed, the cabin went quiet again.
+After a brief laugh passed, the cabin went quiet again.
 
-Beyond the outer windows, a different face of the neutral port city slowly revealed itself.
-Not the bright docks and noisy transit levels, but the older storage quarters deeper inside. Decrepit warehouses pressed wall to wall, alleys where new signs were nailed over the remains of discarded ones. Light existed behind the windows but barely leaked outside, and every door was shut even though everyone knew who was inside. That kind of district.
+Through the outer window, a different face of the neutral port city slowly emerged.
+Not the bright docks and noisy transfer levels — the older storage district deeper in. Worn warehouses layered upon each other, alleys where new signs were pasted over discarded ones. Even where light existed behind windows, almost none leaked outside; all doors were closed, yet everyone knew who was inside. That kind of district.
 
-Yona said low,
+Yona said low.
 
 "We're here."
 
-The cargo ship docked against one dark access gap with almost no sound.
-Not a formal berth but a rear loading bay known only to those who knew. Before the gangway even lowered, Sion was already reading the outside air. The scent of old paper, dust, damp wood, spices, metal locks, and the particular smell of a place where things that were never quite discarded had lingered for a long time.
+The cargo ship attached to a dark access gap on one side, almost soundlessly.
+Not a formal berth — a rear loading area known only to those who knew. Before the gangway even descended, Sion was already reading the outside air. Old paper smell, dust, damp wood, spices, metal locks, and the scent particular to places where things not yet fully discarded had stayed a long time.
 
-Seorin must have sensed it too, because she murmured softly,
+Seorin must have felt it too — she muttered small.
 
-"Nice. A real last harbor."
+"Nice. Really is the last harbor."
 
-Ater stood at the ramp and looked out.
-It seemed shoddy. At least at first. It looked like a place sustained not by order but by the cracks between things.
-And yet, strangely, within that shoddiness there were lines of its own. What to let inside and how far, what to leave standing outside. Entirely unlike the Empire's way, and yet too precise a set of standards to be called disorder.
+Ater stood before the ramp, looking out.
+It looked flimsy. At least at first. Like a place sustained not by order but by cracks.
+Yet strangely, within that flimsiness there were lines of their own. What to let in and how far, what to keep standing outside. Entirely different from the Empire's methods — but calling it disorder would be wrong. The standards were far too precise for that.
 
-Sern asked very quietly,
+Sern asked, very quietly.
 
-"Shall we go in?"
+"Shall we enter."
 
-Ater did not answer right away.
-Until a moment ago he had been a man alive in the language of the Imperial Approval Bureau. But now he had come to knock, of his own will, on a door that existed outside Imperial records.
+Ater did not answer for a moment.
+Until just now, he had been a person alive in the language of the Empire Approval Bureau. But now, he was about to knock on a door that existed outside the Empire's records — of his own volition.
 
-In the end he said, very low,
+He said, finally, very low.
 
-"We've already come this far."
+"We have already come this far."
 
-Sion heard those words and glanced briefly at his profile.
-There was neither agreement nor trust in them yet, but at the very least it was not a declaration of turning back.
+Sion heard that and glanced only at the side of his face.
+There was no agreement or trust in those words yet — but at least it was not a declaration of turning back.
 
-Yona lowered the ramp all the way first.
+Yona lowered the ramp fully first.
 
-"Good. Then let's go.
-Just don't say I was here today."
+"Fine. Go. But don't say I was here today."
 
 "When have we ever."
 
-"You always pretend you didn't, and then my name pops up later."
+"You always act like you don't, then my name pops up later."
 
 Seorin laughed.
 
 "That's true."
 
-The four of them descended the ramp in turn.
+The four descended the ramp in turn.
 
-The alley was narrower and quieter than expected.
-In the distance, harbor noise lay dead-flat in the background, but around here even a single footstep sounded unnecessarily loud. Between the shut doors it felt as though no eyes were watching, yet in truth everything was seen. That kind of street.
+The alley was narrower than expected, and quiet.
+Port noise lay in the distance like something dead, but around here even a single footstep sounded unreasonably loud. Between the closed doors it felt like no eyes watched — but in truth, everything was seen. That kind of street.
 
-Sion led the way.
-One turn, then another, through crooked alleys until he stopped before an old storage building. The sign above the door had faded long ago, half its letters dead, and over it hung a more recent marker nailed on at an angle. It was neither an official repository nor a fully private warehouse -- an ambiguous face.
+Sion led.
+One turn, two turns, past bent alleys until he stopped before an old storage building. The sign above the door had faded — half the letters dead long ago — and over it, a more recent marker hung at a crooked angle. Neither an official depot nor a fully private warehouse. An ambiguous face.
 
-Ater looked at that door and thought for just a moment.
+Ater looked at that door and thought, very briefly.
 
-Could the next answer to this affair really be in a place like this?
+Could the next answer to this affair really exist in a place like this.
 
 But Sion did not hesitate.
 Neither did Seorin.
 Yona had already fallen back, and Sern was reading the surrounding sightlines before the door itself.
 
-Sion stood before the door and knocked twice, very brief, left a beat to breathe, then knocked once more.
+Sion stood before the door and knocked — twice, short, a breath's pause, then once more.
 
-Inside was quiet.
+Silence inside.
 
-Then, after a moment,
-from within came the slow, deliberate sound of a single metal lock releasing.
+Then, after a moment, from within — the sound of one metal lock releasing, very slowly.
 
-No one said anything more.
+No one said another word.
 
-Sion pressed his inner pocket once more without realizing it,
-and Ater felt, with sharp clarity for the first time, that if this door opened he would truly have to hear a language from outside his world.
+Sion pressed his inner pocket once more without thinking, and Ater felt it clearly for the first time — that if this door opened, he would truly have to listen to a language from outside his world.
 
-The door handle turned.
+The handle turned.
 
-And the four of them stood
-on the threshold of a place where erased things drifted in one last time before vanishing for good.
+And the four stood at the threshold of the place where erased things flowed in one last time, before vanishing entirely.

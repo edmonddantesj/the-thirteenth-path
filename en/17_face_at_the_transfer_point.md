@@ -1,235 +1,229 @@
-# Episode 17. The Face at the Access Point
+# Episode 17. Face at the Transfer Point
 
-The access ship came to a stop a little later than scheduled.
+The shuttle stopped slightly later than the scheduled time.
 
-It was not a large difference, but on paths like this, even a small delay always scraped at the nerves.
-Sion opened his eyes the moment the engine tremor began to fade, and Seorin lifted herself at almost the same time. Sern had never been fully asleep to begin with, and Ater had only been resting with his eyes closed.
+Not a huge difference — but on roads like these, that slight always pricks. Sion opened his eyes the instant the engine tremor faded, and Seorin rose almost simultaneously. Sern had never fully fallen asleep; Ater had only closed his eyes — already awake.
 
-From the cockpit, Yona spoke briefly.
+Yona said short from the cockpit.
 
 "We're here."
 
-The door had not opened yet, but the air inside the ship had already changed.
-Not the sealed density of something still in motion, but the kind of held tension that came when a vessel had locked itself onto some outer structure. Through the wall came the metallic pressure of an old hull and an old docking clamp biting into each other.
+The door had not opened yet, but the air inside the ship was already different.
+Not the sealed feeling of being in motion — the stilled tension particular to docking against an external structure. The metallic pressure of an old hull and worn docking ring interlocking each other transmitted through the wall.
 
 Sion asked first.
 
-"What's the side we latched onto look like."
+"How's the side we've docked to."
 
-Yona swept the panel briefly and answered.
+Yona scanned the panel briefly and answered.
 
-"Alive, at least."
+"It's alive."
 
-Seorin frowned.
+Seorin grimaced.
 
-"Nice. That's a phrase that reassures me not at all."
+"Nice. Not remotely reassuring."
 
-"In a place like this, that's already good news."
+"In a place like this, that counts as good news."
 
-It sounded like a joke, but it was not entirely one.
-An outer access point was not a living port in the ordinary sense. It was closer to a place where dead lines that could not quite die were forced together. Just having power still on was already half a success.
+It sounded like a joke but was not entirely one.
+The outer access point was, as its name suggested, not a living port — closer to a place where paths that could not die were forced together. Just the electricity not being fully out was already half a success.
 
-When the door opened, cold air flooded into the narrow cabin.
+When the door opened, cold air rushed into the narrow cabin.
 
-Outside was emptier than the previous access layer.
-One ceiling light survived for every few dead ones, and on the walls of the long access bridge the pale traces of old dock numbers still remained. There were almost no formal signs left—only old directional arrows and warning text painted over warning text. It looked like the kind of place where no one alive could remember the last time it had been called an official facility. A place abandoned, yet not fully dead, because access systems and structures from different eras had overlapped here and somehow kept holding.
+Outside was even emptier than the previous access layer.
+Ceiling lights were alive only every few sections, and on the long access bridge walls, dock numbers erased long ago remained in faint traces. Hardly any formal signs — only old direction arrows and overwritten warnings layered on top of each other. A space where no one could likely remember who last called this an official facility. The reason it had not fully died despite being abandoned was that access rules and equipment from different eras had half-overlapped and endured here.
 
-The moment he stepped out, Ater halted faintly.
-This was not merely the outer side of a port. It was a structure abandoned for a long time, and yet unable to die completely because necessity kept holding it there. The Empire would have either closed it outright as a matter of cost, or sealed it deeper as a matter of authority. This place, instead, had stayed half-alive.
+Ater stepped out and immediately hesitated.
+This was not simply outside a port. A structure long abandoned yet unable to fully die because of need. If it were the Empire, cost would have shut it long ago, or authority would have sealed it deeper. Yet here it lived, ambiguously.
 
-That ambiguity felt like the rule governing the entire place.
+That ambiguity felt like the rule of this entire place.
 
-Yona tipped her chin forward.
+Yona pointed ahead with his chin.
 
-"We go there. Keep the words down."
+"That far. Fewer words."
 
-Not far away, in a dark waiting-bay-like space near the far end of the access bridge, someone was leaning against the wall.
+Not far away, in a dark waiting-area-like space at the access bridge's end, someone was leaning against the wall.
 
-At first, Sion had taken it for part of the structure's shadow.
-The lighting was too dim to make out the face clearly, and the line of the body blended into the wall. But after only a couple of steps, he realized it was a person.
-And in the same instant, he realized who.
+At first it looked like a structural shadow.
+The lighting was too dim to see the face, the body line overlapped with the wall. But Sion recognized it as a person only after two steps closer — and recognized who, at the same time.
 
-"Wow."
-He let out a short breath of disbelief.
-"It's really you?"
+"Well."
 
-The woman leaning there slowly raised her head.
+A half-laugh escaped him.
 
-Hair cut short. Work jacket stained here and there with grease and metal dust. An insulated band wound carelessly around one wrist. Her expression was listless, but her eyes were nothing like listless. They were the kind of eyes that, the moment they saw something, measured its worth, its condition, and its risk all at once.
+"You're really the one here?"
 
-Han Jiwoo looked Sion up and down and said,
+The woman leaning against the wall slowly raised her head.
+
+Short-cropped hair, a work jacket stained in spots with grease and metal dust, an insulation band wound carelessly around one wrist. Her expression was indifferent, but her eyes were not indifferent at all. The eyes of someone who assessed value, condition, and risk simultaneously the moment she saw something.
+
+Han Jiwoo looked Sion up and down once and said.
 
 "Why do you look like that."
 
-Sion let out a short grin.
+Sion smirked.
 
-"That's your first line for someone you're glad to see?"
+"Not very warm for a first word to someone you're glad to see."
 
 "I am glad."
-Han Jiwoo answered dryly.
-"You made it here alive.
-But for someone who made it alive, you look like you paid too much to do it."
+Han Jiwoo said, dry.
+"You came alive. But for someone who came alive, you look like it cost too much."
 
-Seorin laughed softly from the side.
+Seorin laughed small beside her.
 
-"Nice. Starting strong with nothing but accurate lines."
+"Every word accurate from the start."
 
-Only then did Han Jiwoo's gaze shift to Seorin.
+Only then did Jiwoo's gaze go to Seorin.
 
-"So you came too."
+"You too."
 
-"Looks like it."
+"Yeah."
 
-"Then this really is something annoying."
+"Then this one's truly troublesome."
 
 "Yeah. Very."
 
-It was only a few short lines, but Ater could tell at once.
-This woman knew Sion well. Had known him long. Had seen him many times. Knew, at least, what face he made when he brought something dangerous with him. And she was not meeting Seorin for the first time either.
+Just a few short lines of exchange, yet Ater could tell immediately.
+This woman knew Sion well. Knew him long, had seen him many times, and was familiar — at minimum — with what face he wore when carrying something dangerous. And she was no stranger to Seorin either.
 
-Silently, Sern looked at Han Jiwoo's hands.
-On the back of one hand were the ghost marks of old burns and the scratches of long metal contact. Hands belonging to someone who dealt directly with machines and structures in the field. Not just another broker.
+Sern silently looked at Jiwoo's hands.
+On the backs — burn scars remaining like afterimages, and old metal scratches. The hands of someone who touched equipment at the scene directly. Not a simple broker.
 
-Han Jiwoo then moved her gaze to Ater.
-For the first time, her eyes shifted by a trace. Not a look at his clothes, but at his posture, the spacing of his silence, the rhythm of the way he held breath.
+Jiwoo soon shifted her gaze to Ater.
+Only then did her eyes change, very faintly. Not reading clothes — reading posture, silence, the interval of steadied breath.
 
-"And this one is what."
+"What's this one."
 
-Sion answered briefly.
+Sion answered short.
 
 "Long explanation."
 
-"Then I won't take it."
+"Long and I don't take it."
 
 "That's why I'm keeping it short."
 Sion said.
-"One of the people we need if we're all supposed not to die."
+"The necessary side, if we don't want to die together."
 
-Han Jiwoo did not nod at once.
-Instead, she looked once at Ater, and once more at Sern, then said,
+Jiwoo heard that but did not nod immediately.
+Instead she looked at Ater once, Sern once more, and said.
 
-"Nice. If you're saying something like that, then this really is a strange combination."
-What she meant was not mere sarcasm. To take people aboard at an access point like this meant staking her own line and the next dead-marker approach routes along with them.
+"Nice. If you're saying that much, it really is a strange combination."
+What she said was not simple mockery. Taking people on at the access point meant staking her own line and the next dead-marker approach route along with them.
 
-Inside, Ater sensed at once that this woman belonged to the same broad kind as Elia.
-But where Elia was a person of storage and reading, this one was a person of movement and machinery. The kind who looked at objects and people together, and calculated first whether both could endure.
+Ater did not change his expression, but inside he sensed this woman was a similar kind to Elia. Except where Elia was a person of storage and reading, this one was a person of movement and equipment. Someone who looked at objects and people together, calculating first whether both could hold.
 
-From behind them, Yona said shortly,
+Yona said short from behind.
 
 "No time."
 
-Han Jiwoo adjusted the band on her wrist once and nodded.
+Jiwoo adjusted the band on her wrist once and nodded.
 
-"I know. That's why I waited."
-That line also meant she had already finished one round of calculation. If she did not take them on here, she might preserve one line. But she might also miss the much larger route their fragment pointed toward.
+"I know. That's why I've been waiting."
+Mixed into those words was the meaning: she had already finished her calculation. Not taking them on might preserve one route — but the larger line that the fragment they carried pointed toward might be lost entirely.
 
-She turned and gestured toward the deeper part of the waiting bay.
-Inside were two old cargo carts, panels ripped half away, and one mid-range transport line slightly larger than the access ship. From the outside it looked even more worn, but precisely because of that, the marks of a great deal of work on it were plain as well. Temporary reinforcement plates. External wiring rerouted by hand. Manual locks replaced. It was not a dying ship kept alive by force. It was a ship held in a state of not dying by someone who had kept calculating for it.
+She turned and pointed deeper into the waiting area.
+Inside were two old cargo carts, half-stripped panels, and one mid-range transport ship slightly larger than the shuttle — hidden. The exterior looked even more worn, but precisely because of that, signs of heavy handwork were also clear. Temporary reinforcement plates, external wiring bypasses, manual lock replacements. Not a dying ship forced alive — a ship held together with calculation so it would not die.
 
-The moment Sion saw it, he laughed.
+Sion saw it and laughed immediately.
 
-"Your hands have been all over that thing."
+"Your hands touched this."
 
 "Obviously."
-Han Jiwoo said.
-"If someone else had worked on it, I wouldn't have let you on."
+Jiwoo said.
+"If someone else's hands had, I wouldn't have put you on it."
 
-Seorin looked the ship over and said low,
+Seorin looked at the ship and said low.
 
 "Better than it looks."
 
-"I hate that line the most."
-Han Jiwoo answered at once.
-"It looks plenty fine too."
+"I hate that phrase most."
+Jiwoo fired back instantly.
+"It looks plenty good too."
 
-Seorin gave a short laugh, and Sion, seeing it, felt an old memory pass briefly through him.
-It had always been like this. Han Jiwoo pushed people away with her words, but her hands moved first. The kind who cursed about it and still finished all the adjustments needed before anyone asked.
+Seorin smirked, and Sion saw it — for the briefest moment, old memories flashed.
+It was always like this. Jiwoo pushed people away with words, but her hands moved first. Cursed and said she hated it, yet the necessary adjustments were already done.
 
-Sern asked quietly,
+Sern asked quietly.
 
-"This is the next line."
+"Is this the next transport."
 
-Only then did Han Jiwoo look squarely at him.
+Only then did Jiwoo face Sern directly.
 
 "Yeah. But it won't be a smooth ride."
-She tipped her chin toward the access ship.
-"I'm the kind who reads dead markers by stitching them to the equipment that's still alive. This stretch won't connect without that."
-She went on,
-"Of the lines heading into the outer cluster side, two are already dead. One more is being felt out from behind as we speak. So we have to swing further out than planned."
+She pointed her chin toward the shuttle side.
+"I'm the type who reads dead markers and still-living equipment together. This leg — can't attach it without that."
+She said.
+"Of the paths into the outer cluster, two are already dead. One — someone's been feeling along it from behind since earlier. So we have to loop further out than originally planned."
 
-Ater asked low,
+Ater asked low.
 
 "Is that possible."
 
-"Making it possible is why I'm here."
+"I'm here to make it possible."
 
-It did not sound like bluff.
-For one brief moment, Ater felt that this woman carried the same species of certainty as the nobles and Approval Bureau officials of his own world—but in a way completely reversed from theirs. That certainty came not from bloodline or authority, but from someone who had repaired things, salvaged them, and failed with them again and again.
+That did not sound like bluster.
+Ater felt, in that instant, that this woman held the same kind of certainty as the nobles and Approval Bureau officials of his world — but in the precisely opposite manner. Her certainty was not born of lineage or authority, but the kind only someone who had repeatedly fixed, revived, and failed could possess.
 
-Sion asked,
+Sion asked.
 
-"How bad is it."
+"How dangerous."
 
-Han Jiwoo answered with perfect calm.
+Jiwoo answered, perfectly calm.
 
-"Pretty bad, judged by the people standing next to you."
-Then she added briefly,
-"Only a little worse than usual, by your standards."
+"By the standards of the people standing next to you — quite."
+And added brief.
+"By your standards — a bit more than usual."
 
-"Nice. Not comforting at all."
+"Not comforting at all."
 
-"I didn't come here to comfort you."
+"I'm not here to comfort."
 
-A short stillness fell.
+Short silence passed.
 
-Then, somewhere far off within the access point, the sound of metal being struck rang once.
-It could have been taken for an ordinary noise from an aging structure—but Sern and Yona raised their heads at the same time. Seorin also went silent at once, and Sion instinctively checked the layout behind Han Jiwoo before anything else.
+In the gap, from somewhere distant in the access point, a single metallic knock sounded.
+It could have been natural aging noise — but Sern and Yona raised their heads at the same time. Seorin held her breath immediately, and Sion instinctively checked the positioning behind Jiwoo first.
 
-Han Jiwoo said low,
+Jiwoo said low.
 
-"Yeah. That's why we can't stay here long."
+"Yeah. That sound's why we can't stay long."
 
-Yona bit down on a curse.
+Yona chewed a short curse.
 
-"They're already feeling this place out?"
+"Already probing."
 
-"Not sure yet."
-Han Jiwoo answered.
-"More like they're not certain yet.
-But if I hear that sound two more times, they'll become certain."
+"Precisely — a side that isn't sure yet."
+Jiwoo answered.
+"But two more sounds and they'll be sure."
 
-Sern asked,
+Sern asked.
 
-"Once we board, can we depart immediately."
+"Can we depart immediately after boarding."
 
-"I've already made it so we can."
-Han Jiwoo said.
-"But once you're on, there are almost no choices left for getting off halfway."
+"I made it possible."
+Jiwoo said.
+"But once you're on, the option of getting off in the middle is nearly zero."
 
-Sion heard that and did not laugh.
-By now all of them knew too well that lines like that were no longer jokes.
+Sion heard that and did not even laugh.
+By now, everyone knew too well that such sentences were not jokes.
 
-Seorin moved first.
+Seorin took the first step.
 
-"Good. Then let's board."
+"Nice. Let's get on."
 
-Ater felt, strangely, that those short words sounded more solid than any instruction that had been given since they started this line.
-Seorin was always like this. Whenever an atmosphere started to sag or judgment began to split, she cut it cleanly to only the length needed and shoved everyone forward.
+Ater felt that short phrase sound strangely more solid than any directive given so far.
+Seorin was always like this. The moment the atmosphere stretched or judgment threatened to split, she cut to exactly the needed length and pushed forward.
 
-As Sion passed by Han Jiwoo on the way up, he said quietly,
+Just before boarding, Sion passed beside Jiwoo and said, small.
 
-"Looks like I owe you another one."
+"One more debt."
 
-Without even looking at him, Han Jiwoo answered,
+Jiwoo did not even look at him and answered.
 
-"You were never good at carrying debts anyway."
-Then, very softly, she added,
-"So stay alive long enough to repay it."
+"Your debts never shrink."
+And added, very small.
+"So pay them back alive."
 
 Sion did not answer.
-But that one small line lodged somewhere in him with a weight heavier than the ship's hull itself.
+But that brief line somehow hung heavier in his chest than the hull itself.
 
-And the five of them,
-from outside the neutral port city to a place further still,
-began moving one step deeper toward the outer cluster,
-chasing the first fragment of the road left behind the erased name.
+And five people — beyond the outside of the neutral port city, further still — began stepping one degree deeper toward the outer cluster, chasing the first path-fragment left behind an erased name.

@@ -1,189 +1,199 @@
 # Episode 19. Dead Marker
 
-Han Jiwoo's ship glided through unmarked darkness for a long while.
+Han Jiwoo's ship slid through unmarked darkness for a long time.
 
-The hull had almost no windows, so there was no direct view of the outside. Instead, there were subtle changes. The rhythm of the engine exerting itself, the intervals of external friction brushing the hull, the short vibrations transmitted through the floor each time they connected to a new route segment. Any cat-folk who had spent enough time aboard ships like this could roughly gauge their position from those tiny differences alone.
+The hull had almost no windows, so the outside was not directly visible — but there were subtle changes instead.
+The rhythm at which the engine pushed power, the intervals of external friction scraping the hull, the short vibrations transmitted through the floor at each route connection. A trace-reader who had ridden ships like this for a long time could roughly sense where they were from those differences alone.
 
-Sion was that kind of cat-folk. He couldn't read exact coordinates, but his body knew before his mind whether the ship was riding a living route or treading a dead one.
+Sion was that kind of trace-reader.
+He could not read precise coordinates, but his body knew first whether the ship rode a living road or walked a dead one.
 
-So when Han Jiwoo twisted the control stick ever so slightly and eased off the speed, Sion looked up almost simultaneously.
+So when Jiwoo twisted the control just slightly and slowed, Sion raised his eyes almost at the same time.
 
 "We're here."
 
-Han Jiwoo glanced over with a grin.
+Jiwoo smirked.
 
-"Nice. At least your instincts aren't dead yet."
+"Nice. You've still got the sense."
 
-Seorin pushed off from the wall and asked.
+Seorin pulled herself off the wall and asked.
 
-"What changed?"
+"What changed."
 
-Sion didn't answer right away. Instead, he pressed his palm against the inner hull wall. Between the low, steady vibrations, a very thin jolt had begun mixing in at regular intervals. Not the smooth flow of an official route, but the feel of forcing a path along severed connection traces that had long fallen off the standard.
+Sion did not explain immediately.
+Instead he pressed his palm flat against the cabin's inner wall. Between the low, steady vibrations, one very thin rattle was mixing in periodically. Not the smooth flow of a formal route — the feeling of forcing a ride over access traces long since pushed out of standard.
 
-"The route isn't smooth."
+"The road isn't smooth."
 He said.
-"It's not a continuous line—more like cut sections forced back together."
+"Not a continuous line — more like cut sections forced together."
 
-Ater heard that and immediately recalled Elia's words.
+Ater heard that and immediately recalled Elia's sentence.
 
-They didn't just sever the record. They severed the path along with it.
+*They didn't just sever the sentence — they severed the path along with it.*
 
-Perhaps the route they were treading now had been cut in exactly the same way, and what remained was whatever had stubbornly refused to disappear.
+The path they were treading now might also be one that was severed that way and forcibly left remaining.
 
-Han Jiwoo pulled up a worn coordinate overlay on top of the instrument panel. Not the official route display, but supplementary markers she had drawn in herself. Dead access points, traces of closed transfer stations, communication blind spots, residual power signatures. The kind of map that never appeared on any official chart but circulated among people who were still alive out here.
+Jiwoo pulled up one more layer of an old coordinate grid on the panel.
+Not a formal route screen — supplementary markers she had drawn in herself. Dead access points, closed transfer traces, comm shadow zones, power echoes. Not on any standard map, but the kind of map that living people passed among themselves.
 
 Sern looked at it and asked.
 
-"Two of those three markers are dead."
+"Two of three markers are dead."
 
-"I wrote 'dead,' not 'gone.'"
-Han Jiwoo replied.
-"If they'd completely vanished, I wouldn't have written them down either."
+"I wrote *dead*, not *gone*."
+Jiwoo answered.
+"If they were fully gone, I wouldn't use them either."
 
-Sion chuckled softly.
+Sion laughed low.
 
-"The dictionary out here really is something else."
+"This side's dictionary really is strange."
 
 "A living dictionary is always like that."
 
-It was a short exchange, but to Ater it sounded like a description of this entire world. The Empire recorded what vanished as vanished, what was forbidden as closed. But out here, things written as dead were still used, and passages declared shut were still traversed. The words were different, and so was the way the world was perceived.
+Brief exchange, but to Ater it sounded like that sentence explained this entire world.
+The Empire wrote *vanished* for what vanished and *closed* for what was forbidden. But this side still used what it wrote as dead, and even what was called closed — someone still passed through. The words were different, and so the world-perception was different.
 
 The ship slowed once more.
 
-This time everyone felt it. Not quite a full stop, but the speed of someone about to check something.
+This time everyone felt it.
+Not quite a stop, but the speed of needing to confirm something soon.
 
-Han Jiwoo said briefly.
+Jiwoo said short.
 
-"There's a first marker trace ahead."
+"First marker trace ahead."
 
-Seorin narrowed her eyes.
+Seorin narrowed her brow.
 
 "Can you see it?"
 
 "Not yet."
-Han Jiwoo said.
-"But there's a point where things start going wrong before they're supposed to become visible."
+Jiwoo said.
+"But there's a point where things get strange before the moment it should become visible."
 
-Sion nodded. That wasn't an explanation—it was closer to a shared sensation. Between people who knew, that much was enough.
+Sion nodded.
+That was not an explanation — it was closer to shared sense. Between people who knew, that much was enough.
 
-Ater felt oddly uncomfortable hearing it. He still couldn't fully understand their language. But it wasn't completely beyond him either. And that in-between state grated on him more. He had followed too far to draw a clean line and call this someone else's world.
+Ater listened and felt, strangely, slightly uncomfortable.
+He still could not fully understand that language. But he did not fully not-understand it either. And that in-between state grated more. To draw a line and say *this is not my world* — he had already followed too far for that.
 
 Sern asked quietly.
 
-"If it's a marker trace, does that mean a structure remains?"
+"If it is a marker trace, does that mean a structure remains."
 
-Han Jiwoo thought for a moment, then said.
+Jiwoo thought briefly, then said.
 
 "Could be a structure, could be a signal, could be half of both."
-"Nothing out here is usually intact."
+"Out here, nothing's really whole."
 
 Sion laughed.
 
-It was the most accurate thing he'd heard all day.
+Sion smirked. Most accurate thing he'd heard all day.
 
-At that moment, a warning light on the left side of the cockpit flickered once, very briefly.
+At that moment, one warning light on the cockpit's left side blinked — very brief.
 
-Han Jiwoo's eyes changed instantly.
+Jiwoo's gaze changed immediately.
 
 "Everyone quiet."
 
-The air inside the cabin dropped at once. Sion killed his smile, Seorin had already shifted her hand toward the cargo hold. Sern was calculating the warning light's interval against the ship's deceleration, and Ater silently watched the faint afterimages on the instrument panel.
+The air inside the cabin dropped at once.
+Sion erased his laugh; Seorin had already moved her hand toward the cargo compartment. Sern was calculating the warning light's cycle and the ship's deceleration together; Ater said nothing, watching the faint traces on the panel.
 
-Han Jiwoo tapped one side of the panel twice, and the hull's external listening device cracked open just a sliver. A rush of static flooded in, and beneath it was something rhythmic—an interference pattern. Not natural noise, but an artificial marker left long ago that still hadn't died, still trembling.
+Jiwoo tapped one side of the panel twice, and the hull's external listening device cracked open, very thin.
+Noise rushed in for an instant, and beneath it — something rhythmic, an interference pattern. Not natural noise. The sound of an artificial marker left long ago, still trembling, not yet dead.
 
-Sion said very quietly.
+Sion said, very low.
 
 "This is it."
 
 Seorin asked.
 
-"What."
+"What is it."
 
-"The marker trace."
-Sion murmured, his face locked in concentration on the noise.
-"I thought it was completely severed, but one side is still trembling."
+"Marker trace."
+Sion murmured with the face of someone listening to noise.
+"Thought it was completely cut — but one side is still trembling."
 
-Sern immediately narrowed his eyes in understanding.
+Sern narrowed his eyes as if he understood immediately.
 
-"A guidance signal."
-His words flowed straight into structural analysis.
-"Not an official guidance line. Most likely the remnant of an approach-sequencing device."
+"A guide signal."
+Sern's words connected straight to structural recognition.
+"Not a formal guide line — most likely the trace of an access-sequence device."
 
-Han Jiwoo flicked her fingers once.
+Jiwoo flicked her fingers, short.
 
 "Right."
 She said.
-"Not an official guidance line—a broken half left over from the cut."
-"But the fact that it's still here means either someone couldn't fully erase it, or…"
-She didn't finish the sentence.
+"Not a formal guide — a surviving half, after the cut."
+"But the fact that this remains means either someone couldn't fully erase it, or…"
+She did not finish the sentence.
 
-Ater continued it for her, his voice low.
+Ater picked up, low, as if continuing.
 
 "Someone was still using it."
 
-A short silence.
+Short silence.
 
-Han Jiwoo looked at Ater properly for the first time. This time it wasn't the gaze of someone eyeing a stranger aboard her ship. It was closer to the eyes of someone testing whether he actually understood what was being said.
+Jiwoo looked at Ater properly for the first time.
+This time it was not simply the eyes of viewing an unfamiliar passenger. Closer to eyes testing whether he understood the language.
 
-Han Jiwoo nodded once.
-"Now we're speaking the same language."
+Jiwoo nodded once.
+"Now we're talking the same thing."
 
-Sion didn't react to that. Instead, he was concentrating harder. Finding the steady beat within the static, reading the directionality left in the gaps between severed cycles. It was different from reading records, but ultimately this was always what Sion was best at—finding the thread that hadn't yet died in what everyone else dismissed as scrap or noise.
+Sion did not react to that.
+Instead he was concentrating deeper. Finding a steady beat within the noise, reading the remaining directionality between severed cycles. It was a different thing from reading records — but in the end, what Sion was always good at was exactly this. Finding the grain not yet dead in what others dismissed as disposal or noise.
 
 Seorin glanced at him.
 
 "Can you read it?"
 
-Sion didn't answer right away. A few seconds later, he spoke very quietly.
+Sion did not answer immediately.
+A few seconds later, very low.
 
-"Not completely.
-But this… the marker isn't pointing to the destination. It's the kind that makes you change direction just before you arrive."
+"Not completely. But this… the marker isn't pointing at the destination. It's the kind that makes you turn just before the destination."
 
 Sern asked.
 
-"A trap?"
+"A trap."
 
-"Can't tell yet."
+"Don't know yet."
 Sion said.
-"But whoever left this path definitely didn't leave it in a straight line."
+"But it's certain — whoever left this path didn't leave it straight."
 
 Ater heard that and slowly lowered his gaze.
-Those who erased the sequence.
-Those who severed the path itself.
-If these were traces left by such people, they were far more likely to have twisted the method of approach rather than the destination itself. It resembled the way Imperial certifiers designed their seal mechanisms. What mattered wasn't the door, but controlling the sequence of whoever approached the door. And if they misread things here, it wouldn't just kill a single trace—it could sever the entire remaining reaction line leading to the next threshold.
+Those who erased the sequence. Those who severed the path.
+If the traces they left behind — then the approach method toward the destination itself was likely twisted, rather than the destination itself. That resembled how the Empire Approval Bureau designed seal mechanisms. What mattered was not the door itself, but controlling the sequence of those approaching the door. And if misread here, it was not just one trace that died — the entire remaining response line leading to the next threshold could be severed.
 
-Han Jiwoo adjusted the controls again.
+Jiwoo adjusted the control again.
 
-"Fine. Then we don't go straight in."
-"We follow the trace, but the final approach goes in at an angle."
+"Good. Then we don't go head-on."
+"Follow the trace, but enter the final approach from an angle."
 
-Seorin nodded briefly.
+Seorin nodded brief.
 
 "I like that."
 
-"If you like it, pay extra."
+"If you like it, pay more."
 
-"I'll think about it once we arrive alive."
+"I'll think about it when we arrive alive."
 
-Sion almost laughed but held it in. Right now, the dead marker's echo trembling outside the hull concerned him more than laughter. It wasn't a simple set of coordinates. It was the still-living reflection of a path someone had deliberately severed.
+Sion almost laughed at that but held it.
+Right now, more than laughter — the echo of that dead marker trembling outside the hull demanded attention. It was not a simple coordinate. It was the still-living reflection of a path someone had deliberately severed.
 
-And that reflection was calling them somewhere.
+And that reflection was calling them somewhere, right now.
 
-The ship turned slowly. The hull, which had been heading straight ahead, twisted ever so slightly into an angle that let the signal trace flow past on the side rather than hitting it head-on. Even inside the windowless cabin, the shift was small enough for everyone to feel. This choice mattered not because it was elegant, but because once a direct approach left a record, anyone tracking from behind could follow the same trace.
+The ship turned slowly.
+The hull that had been heading straight twisted, barely — shifting to an angle that read the signal trace from the side rather than head-on. A small change that everyone could feel even inside a windowless cabin. This choice mattered not because it was elegant. If a head-on approach was recorded once, those probing from behind could follow the same trace.
 
-Ater felt his breathing go shallow at that moment.
-From here on, this was no longer simple flight.
-The moment was approaching where his own choice—not just his feet—would touch the first real trace of a severed path.
+Ater felt his breath go shallow in that moment, strangely.
+From now, this was not simple flight.
+The moment when his own choice — not just his feet — touched the first real trace of a severed path was approaching.
 
-Han Jiwoo said one last thing, briefly.
+Jiwoo said one last thing, short.
 
 "Everyone ready."
-"From here on, we have to read only what's left and go in."
+"From here — for real — we enter reading only what remains."
 
 Quiet settled over the cabin again.
-But this time it wasn't the silence of waiting—it was the silence between people each reading the same signal in their own way.
+But this quiet was not the silence of waiting — it was closer to the silence between people reading the same signal, each in their own way.
 
-And at the end of that silence,
-the fact that the first marker of the erased path
-had not yet fully died
-was becoming clear to everyone.
+And at the end of that silence, one thing was becoming clear to everyone: the first marker of the erased path had not yet fully died.

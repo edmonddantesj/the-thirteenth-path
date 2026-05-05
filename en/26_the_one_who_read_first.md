@@ -1,215 +1,216 @@
 # Episode 26. The One Who Read First
 
-The shadow beyond the corner didn't move for some time.
+The shadow beyond the corner did not move for a long time.
 
-Sion stood watching that spot without so much as twitching a finger. There was almost nothing to gain by moving first right now. The fact that the other party held the larger fragment was already confirmed. That they moved alone, could read the structure, and hadn't fully collapsed while fleeing had all been revealed. What was needed now wasn't the act of seizing, but confirming how far that hand knew.
+Sion watched the spot without twitching a finger. There was almost nothing to be gained by moving first right now. That the other party held the larger fragment — already confirmed. That they moved alone, could read the structure, and had not fully collapsed while fleeing — already revealed. What was needed now was not the motion of catching, but confirming how far that hand knew.
 
-Ater, looking at the wall's damage lines, said very low.
+Ater, watching the wall's damage lines, said very low.
 
-"We need to decide before the next discrimination section dies completely."
+"We must decide before the next discrimination section dies completely."
 
-Sern added at once.
+Sern added immediately.
 
-"The other party knows that too. That's why they haven't fully withdrawn."
+"The other party knows as well. That is why they have not fully retreated."
 
 That was right.
 
-If the other side couldn't read the structure, they would have grabbed the larger fragment and fled long ago. But they were holding beyond a single corner right now. That meant they couldn't safely escape before crossing the next discrimination section—and that these three couldn't recklessly charge in either. Within this structure, neither the pursuing side nor the pursued could afford the death of the discrimination section.
+If they were someone who did not know the structure, they would have fled long ago with just the larger fragment. Yet they were holding here, one corner between them. Meaning: they could not exit safely before passing the next discrimination section — and simultaneously, these three could not rush in carelessly either. Inside this structure, neither the chaser nor the chased could afford the discrimination unit's death.
 
-Over the short-range channel, Seorin said briefly.
+Seorin said short from beyond the channel.
 
-"Don't drop your guard just because they're out of sight."
+"Don't let your guard down just because you can't see them."
 
-Han Jiwoo picked up right away.
+Jiwoo followed at once.
 
-"Hull is still holding. But not for long."
+"Hull's still holding. But not for long."
 
-Sion didn't let those words pass unheard.
+Sion did not let those words pass unheard.
 
-Right now, the two who had stayed behind were holding the same scene in different ways. Seorin was watching for the moment to cut, and Han Jiwoo was calculating whether the hull they'd return to was still alive. The amount of time this site could be maintained was itself the time limit of this conversation.
+Right now, the two remaining behind were holding the same scene in different ways. Seorin was watching for the moment to cut; Jiwoo was calculating whether the hull to return to was still alive. The time this scene held together was itself the conversation's time limit.
 
-Beyond the corner, a footstep finally sounded.
+From beyond the corner, finally — one footstep sounded.
 
-Not light. Not menacingly dragged either. The step of someone carrying a heavy panel surface in one hand and bracing against the structure wall with the other for balance. A moment later, the edge of a black coat appeared first from the shadow's end. Dust and fine metal powder were thinly caked on its torn hem, and the right cuff bore a mark of hasty mending.
+Not light. But not a threatening drag either. The step of someone holding a heavy plate in one hand, steadying balance against the structure wall with the other. Moments later, a black coat's hem appeared first from the shadow's edge. Torn ends bore thin layers of old dust and metal powder pressed in; the right sleeve's end showed a mark of hasty stitching, done once.
 
-And behind that, the face appeared.
+And behind that — a face emerged.
 
-Younger than expected. Over pale skin lay the thin shadow particular to someone who hadn't slept properly in a long time, and below the left jawline a short old scar traced past. The eyes were tired but not clouded. Unsettlingly straight, like someone who had survived by watching only one thing for far too long.
+Younger than expected. Over pale skin, the thin shade particular to someone who had not slept in a long time. Below the left jawline, one old scar passed briefly. The eyes were tired but not clouded. Rather — like someone who had survived looking at one single thing for too long — the gaze was straight to a strange degree.
 
-They didn't come all the way forward. They stopped at the boundary where light met dark, lowering the hand that held the larger fragment slightly. Not a posture of full surrender, and not one poised for immediate flight either. The distance where neither would kill the other.
+He did not approach all the way. Stopping at the boundary where light and dark split, he lowered the hand holding the larger fragment slightly. Not a posture of full surrender, nor preparation to immediately flee. The distance where neither side would kill the other.
 
 Sion spoke first.
 
-"Now I've seen your face."
+"Now we've seen a face."
 
-Instead of answering, the stranger looked at each of the three in turn.
+Instead of answering, the other looked at the three, one by one.
 
 Sion, Sern, Ater.
-And very briefly, toward the static that carried over the channel.
+And very briefly — toward the noise audible from beyond the channel.
 
-"Five of you."
-They said low.
-"More than I expected."
+"Five."
+He said low.
+"More than I thought."
 
-Over the channel, Seorin responded at once.
+Seorin reacted from beyond the channel immediately.
 
-"And you lasted longer than expected."
+"You held out longer than we thought too."
 
-The man made an expression that might or might not have been a faint smile.
+The man wore an expression that almost — but not quite — smiled.
 
-"I didn't last. Nobody can get out of here yet."
+"Didn't hold out. No one can leave here yet."
 
-Ater's gaze darkened at that.
+Ater's gaze deepened at that.
 
-"So you haven't crossed the next discrimination section either."
+"You also failed to pass the next discrimination section."
 
-"Not that I couldn't—I chose not to."
-The man raised the edge of the fragment just slightly.
-"Force the crossing in this state and this side dies too."
+"Didn't fail — chose not to pass."
+The man lifted the fragment's edge just slightly.
+"Cross wrong in this state and this side dies too."
 
-Sion's gaze went to the panel surface.
+Sion's gaze went to the plate.
 
-Up close, the larger fragment was bigger than expected. Large enough that two palms laid over each other would barely cover it. Parts of the edges were burned or broken, but the grain of the metal near the center was still alive, and faint alignment patterns remained on its surface. Not a simple record plate. The kind of object whose reason for sitting in a discrimination slot was visible to the eye.
+Seen closer, the larger fragment was bigger than expected. Two palms overlapping would barely cover it. Parts of the edges were burned or broken, but toward the center the metal grain was still alive, and faint alignment patterns remained on its surface. Not just a record plate. The kind of object where the reason it had been inserted in a discrimination slot was visible.
 
 Sion asked.
 
 "Did you read it?"
 
-The man didn't answer right away. Instead he closed his eyes once and opened them.
+The man did not answer immediately. Instead he closed his eyes once, then opened them.
 
-"Some."
+"A little."
 
-"Some?"
+"A little?"
 
-"If I could read it all, I wouldn't be standing here doing this with you."
+"If I could read it all, I wouldn't be here doing this with you."
 
-There was no bluster in those words. Brief, the voice of someone tired, but without any forced boasting. Someone who had read as far as they actually could and hadn't gone further.
+That was not bluster. Short, a tired voice — but no forced boasting in it. The grain of someone who had read as far as they could, and could not go further.
 
 Sern asked low.
 
 "How far did you read."
 
-The man looked at Sern once. Even in that brief glance, he seemed to read that this quiet figure's manner of questioning was not idle curiosity but structural verification.
+The man looked at Sern once. In that brief glance alone, he seemed to read that the quiet figure's question was not simple curiosity but structural confirmation.
 
-"Far enough to know this is a transit record."
+"That this is a passage record."
 He said low.
-"And that when someone erased it, they didn't just erase the name—they severed the access sequence too."
+"And that when someone erased it, they didn't just erase the name — they severed the access sequence too."
 
-A brief silence.
+Short silence.
 
-Those words overlapped with the conclusion these three had already reached. But what mattered was not the conclusion but the sequence. That hand had actually read the larger fragment first and survived carrying it all the way here. They had walked the traces before Sion, seen inside the discrimination section before Ater, and calculated that their own escape line was blocked before Sern.
+Those words overlapped with the conclusion these three had already reached. But the hand showed before the conclusion. The man's fingers gripping the fragment were worn at the edges — wear that was not from touching once or twice. This person had walked before them, read before them, and hit the wall before them.
 
 Ater asked.
 
-"You're neither Imperial nor Alliance."
+"You are neither Empire nor Alliance."
 
 "You know that."
 
 "Then who are you."
 
-The man fell silent for the first time at that question, very briefly.
+The man fell silent for the first time at that question — very briefly.
 
-"I don't have a name on record."
+"I have no recorded name."
 He said.
 "I can't give you the answer you want."
 
-Over the channel, Seorin cut in coldly.
+Seorin cut in from beyond the channel, cold.
 
-"Then you do know what we want."
+"Then you know what we want."
 
-This time the man didn't deny it.
+This time the man did not deny it.
 
-Watching that brief exchange, Sion was certain. This person's goal wasn't to hide their identity. They'd simply been outside the records for so long that there was no name to give, or none that would mean anything. What mattered was not the name but the position. This person was a hand that had endured for a long time at the edge of erased paths, outside the world's official maps.
+Sion watched that brief exchange and was certain. This person's goal was not hiding their identity. It was closer to having been outside the records so long that there was no name to give, or that a name had no meaning. What mattered was not the name but the position. This person was a hand that had endured long at the edge of the erased path, outside the world's official maps.
 
 Sion asked slowly.
 
-"Then one more thing. Why are you alone."
+"Then one more. Why alone."
 
-This time the man smiled right away. A very brief, tired smile.
+This time the man laughed immediately. Very short, a tired laugh.
 
-"This kind of path—the more people on it, the faster it dies."
-He shifted his grip slightly on the fragment.
-"And usually, it's the ones chasing together who disappear first."
+"This path — originally, the more people, the faster it dies."
+He tightened his grip on the fragment slightly.
+"And usually, the side that was chasing together — they disappear first."
 
-Sion's expression tightened just slightly at those brief words.
+At that single brief line, Sion's expression hardened just slightly.
 
-That was information. Not mere sentiment, but information that this person had done the same thing at least once before and lost someone that time. That was why they were alone now, and why they couldn't simply hand off the larger fragment even though they held it.
+That was information. Not simple sentiment — information that this person had done the same thing at least once before, and lost someone then. That was why he was alone now; that was why even holding the larger fragment, he could not simply pass it on.
 
-Sern seemed to read it too—his voice dropped even lower.
+Sern seemed to read it too — his voice dropped lower.
 
-"Then you must have considered cutting us off here as well."
+"Then you also considered cutting us off here."
 
-The man didn't deny it.
+The man did not deny it.
 
 "I did."
-A brief silence.
-"But the way you three came in was a bit different."
+Short silence.
+"But the way you three entered here was a bit different."
 
 Ater raised his eyes.
 
-"How so."
+"What was."
 
-"One reads the traces."
+"One reads traces."
 The man's gaze went to Sion.
-"One reads the structure."
-This time, Ater.
-"One watches the sequence."
-Finally, Sern.
-"Usually only one of the three is present."
+"One reads structure."
+This time to Ater.
+"One watches sequence."
+Finally to Sern.
+"Usually there's only one of the three."
 
-Sion said very low.
+Sion said, very low.
 
-"Great. Feels like a job interview."
+"Nice. Feels like a job interview."
 
-This time the man actually smiled, just a little.
+This time the man actually laughed, just slightly.
 
 "Not an interview."
 He said low.
-"Just checking if you're alive."
+"Checking if you're alive."
 
-At that moment, a discrimination reaction deeper inside the structure flickered briefly again. All eyes went there at once. The reaction was weak, unsteady, on the verge of cutting out. It meant that if they waited any longer, conversation, fragment, and all could close together.
+At that moment, one discrimination reaction from inside the structure wavered briefly again. All gazes went there simultaneously. The reaction was weak, unstable as if about to cut. Meaning: wait longer and conversation, fragment, everything could close together.
 
 The man spoke first.
 
-"Running out of time."
+"No time left."
 
-Sion looked at the fragment in the man's hand instead of answering.
+Sion looked at the fragment in his hand instead of answering.
 
 "So."
 
-The man hesitated for a moment. Very brief, but definitely there. And that hesitation was closer to calculation than fear. Carry it out alone and he can't get much farther. Fight here and both sides die. Hand it over now and he still hasn't fully read the other party. After that calculation passed once, he finally pushed the larger fragment slightly forward.
+The man hesitated. Very briefly — but clearly there. And that hesitation was closer to calculation than fear. Carry it out alone and he could not go much further. Fight here and both sides die. Hand it over immediately and he had not yet fully read the other party. After that calculation passed once — he finally extended the larger fragment forward, just slightly.
 
-Not fully offering it. But at least no longer the stance of someone who intended to clutch it and flee alone.
+Not a full handover posture. But at least, no longer the stance of someone intending to flee alone.
 
 "I couldn't read it to the end."
 He said low.
-"But what's needed to open the next discrimination section… we can probably see it together."
+"But what's needed to open the next discrimination section… probably works if we look together."
 
-The moment those words dropped, Sion knew the man had shifted his weight from fragment to people for the first time. It wasn't cooperation yet. Trust, even less. But at minimum, he had stepped back from the side that monopolized the path and the preservation alone.
+The instant those words fell, Sion knew: this person had shifted weight from fragment toward people, for the first time. Not yet cooperation. Trust, even less. But at minimum, a step back from monopolizing the path and its maintenance alone.
 
-Ater asked very low.
+Ater asked, very low.
 
-"Why are you showing us that."
+"Why show that to us."
 
-The man looked at Sion for a while this time.
+The man looked at Sion this time, longer.
 Then at Ater.
 
 "This isn't something I can finish."
 He said.
-"Just because I got there first alone doesn't mean I can read it alone to the end."
+"Arriving first alone doesn't mean you can read to the end alone."
 
-A brief silence.
+Short silence.
 
-That sentence sank deeper than expected.
+That sentence landed deeper than expected.
 
-Sion knew those words were not simple resignation. He had endured long, arrived first, and actually taken the larger fragment first. And still, in the end, he had acknowledged it. This was not something he could carry alone to the finish.
+Sion knew those words were not simple resignation. This person had endured long, arrived first, actually taken the larger fragment into hand first. And still — in the end — acknowledged it. This was not something one person could carry to the finish.
 
-Over the short-range channel, Seorin said quietly.
+Seorin said quietly from beyond the channel.
 
-"Good. Now it feels like a beginning."
+"Nice. Now it feels like a beginning."
 
 No one denied it.
 
-The corner, the discrimination section, the dying reaction, the larger fragment, and the person who had seen the severed sequence before the name—now between these five and that one person, at least one thing was shared.
+The corner and the discrimination unit, the dying reaction and the larger fragment, and a person who had seen the sequence severed before the name.
+Between these five and that one person, at least one commonality had now formed.
 
-They all already knew that alone, no one could go any further from here.
+Everyone already knew: alone, they could go no further from here.

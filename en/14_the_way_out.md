@@ -1,178 +1,173 @@
 # Episode 14. The Way Out
 
-Even after they left Ellia's storage, the air in the room hadn't fully loosened.
+Even as they left Elia's repository, the room's air had not fully released.
 
-The fragments had been divided and distributed, the coordinates committed to memory, and even the order of departure had been settled. Yet not a single person wore an expression that said "we're good." This kind of work was like that—the more prepared you became, the more clearly you could see it. The fact that from here on out, the road back would only shrink.
+The fragments had been divided and taken; the coordinate stored in a mind; the departure order decided. Yet no one wore the face of *that's settled*. This kind of thing only became clearer the more prepared you were — the fact that from now on, the way back was truly shrinking.
 
-Ellia held the door half-open and spoke one last time.
+Elia held the door half-open and said one last thing.
 
-"Keep your words short out there.
-From now on, the less you pretend to know, the longer you live."
+"Keep words short outside. From now, those who act like they know less live longer."
 
-Seorin picked it up immediately.
+Seorin followed at once.
 
 "That advice is mostly for Sion."
 
-Sion turned around, incredulous.
+Sion turned, incredulous.
 
-"What did I do?"
+"What did I do."
 
-"When you're supposed to hide something, your face says it all first."
+"When you should be hiding, your face says everything first."
 
-"Great. So watching me is your hobby now?"
+"Nice. Is watching me your hobby these days?"
 
 "It's been a long-standing one."
 
-It was a brief joke, but enough to shave off a bit of the tension.
-Ellia watched the two of them, let out a small laugh, and stepped aside from the door.
+A brief joke, but enough to shave off some tension.
+Elia saw the two of them, smirked, and moved her body aside from the door.
 
-"Go.
-Next time you come back, try to look a little less dead."
+"Go. Next time you come back, try to look a little less dead."
 
 Sion answered.
 
 "Can't promise that."
 
-"I know. That's why I'm only saying it."
+"I know. That's why I'm just saying it."
 
-The air outside the alley was colder and thinner than inside the storage.
-The inner holding district of the neutral port city was always quiet, but quiet didn't mean safe. Eyes hid between every closed door, and within the dead hum of distant noise, the sound of someone selling someone else was always mixed in.
+The air outside the alley was colder and thinner than inside the repository.
+The neutral port city's inner storage district was always quiet, but quiet did not mean safe. Eyes hid between every closed door, and the noise that lay dead in the distance always had the sound of someone selling someone else mixed in.
 
 Yona took the lead.
-She didn't make a show of knowing the way, nor did she keep looking back. In this district, that was actually the mark of someone who'd lived here a long time. People who truly knew the place turned corners naturally and avoided dangerous paths before anyone could point them out.
+He did not flash knowledge of the route, nor did he keep looking back. That was precisely how someone who had lived long in this district appeared. Those who truly knew turned corners naturally, and dangerous paths — they simply did not step on them before anyone said they were dangerous.
 
-Sern was quietly reading Yona's movements from beside her.
-At intersections where several paths crossed, which ones she deliberately avoided, which shadows she gave a second glance, which doors she wouldn't pass even if they were shut. People like her never appeared on official maps, but in practice, they were often more accurate than any chart.
+Sern was quietly reading Yona's movement from beside.
+Which path he deliberately avoided at intersections, which shadow he gave an extra glance, which doors he did not pass even though they were closed. People like this never appeared on official maps, but in practice they were often more accurate than any chart.
 
-Seorin noticed and said in a low voice.
+Seorin noticed and said low.
 
-"Nice. You two are reading each other's routes right now."
+"Both of them are reading each other's routes right now."
 
 Yona smirked.
 
-"That one's calculating. I'm just walking out of habit."
+"He's calculating. I'm walking by habit."
 
-Sern replied evenly.
+Sern received it, plain.
 
-"Sometimes habit is the most accurate thing there is."
+"Habit is most accurate at times."
 
-Sion listened to the short exchange and thought to himself.
-Both had measured ways of speaking, yet their textures were subtly different. One was a habit born from surviving on the ground floor. The other, from enduring on the side that manages.
+Sion heard the short exchange and thought to himself.
+Composed speech on both sides, but strangely different grain. One was the habit of surviving on the floor; the other, the habit of surviving on the management side.
 
-Ater trailed a step behind, scanning the rising and falling contours of the alley.
-The inner reaches of the neutral port city were truly a strange place. Layer upon layer of patching and mending by unknown hands. The paths weren't straight, staircases cut off frequently, and every door was shut—yet movement continued unbroken. The Empire would never have built anything like this. And yet the structure hadn't collapsed.
+Ater followed a half-step behind, scanning the alley's heights and depths.
+The inner part of the neutral port city was truly a strange place. Additions and repairs repeated by unknown designers. Paths were not straight, stairs cut off frequently, all doors were closed yet movement continued. The Empire would never have built it this way. And yet this structure had not collapsed.
 
-That bothered him in a way he couldn't quite place.
+That stuck in his mind, strangely.
 
-"Is this city always more complex the deeper you go?"
+"Is this city always more complex the deeper you go."
 
-When he asked quietly, Yona answered first this time.
+He asked quietly, and this time Yona answered first.
 
-"The deeper you go, the more paths have survived."
+"The deeper you go, the more roads that survived a long time."
 
-"Even when it looks so disorganized?"
+"Even though they look unorganized?"
 
-"It has to look disorganized to last."
-Seorin cut in.
-"If it's too clean, everyone wants to pry it open first."
+"Looking unorganized is how they last."
+Seorin cut in instead.
+"Too clean and everyone tears it open first."
 
-Ater couldn't immediately counter that.
-The order of this world was always like that. Look ramshackle, but hide everything that truly matters behind that ramshackle face. It seemed the opposite of how the Empire's Approval Bureau sealed things shut, and yet there were uncanny similarities.
+Ater could not refute that immediately.
+This world's order was always like that. Look lax — but hide what truly matters behind the lax face. It seemed opposite to the way the Empire Approval Bureau closed doors, yet had a strange resemblance too.
 
-Sion listened and let out a small laugh.
+Sion listened to the exchange and laughed small.
 
-"Nice. You're finally starting to sound like a port city local."
+"Now you're starting to talk like a port person."
 
-Ater shifted his gaze to the side.
+Ater turned his gaze aside.
 
-"That's nothing to celebrate."
+"That is not something to celebrate."
 
-"True enough."
+"True."
 
-The brief exchange ended, but compared to a moment ago, the speed at which they read one another had quickened just a little.
-It wasn't that they'd become comfortable. But at least they were beginning to see what language the other person thought in.
+The short exchange ended, but compared to moments before, the speed at which they read each other had quickened slightly.
+Not fully comfortable. But at least, what language the other thought in was beginning to show.
 
-After two turns at the end of the alley, the damp scent of the inner port began to thin, replaced by colder air from the outer rim. Warehouses and storage blocks gave way to piles of decommissioned hulls and the remnants of access bridges. By this point, it was no longer the city's interior—it was the outermost edge the city clung to as it shed itself. If the interior was a place to hide names and goods, then this edge was the place where hidden things were cast outward, though never fully severed.
+Two turns past the alley's end, the damp smell of the port's interior thinned gradually and colder outer air began mixing in. Warehouses and storage buildings grew fewer; in their place, dead hull heaps and access bridge remnants multiplied. By this point it was no longer the city's interior — it was the edge the city was barely holding while shedding everything else. If the interior was where names and objects were hidden, this edge was the place where hidden things were not quite severed from the outside air.
 
-Yona slowed her pace.
+Yona slowed.
 
-"Keep your voices down from here.
-The outer access points have more ears than the inner port."
+"Fewer words from here. The outer access has more ears than the port's inside."
 
-Seorin asked quietly.
+Seorin asked low.
 
-"Is someone waiting for us?"
+"Anyone waiting for us?"
 
-"Less waiting, more the type that disappears the moment you don't show up on time."
+"Less waiting — more the type that vanishes if we don't show at the set time."
 Yona answered.
-"Out here, that kind is more trouble."
+"Out here, that's more troublesome."
 
-The first exit access Ellia had arranged was an old cargo elevator.
-From the outside, it looked like a completely dead steel structure, but when Yona nudged one of the floor panels with her toe, a faint power light flickered on inside. Originally, it had been the remains of a sublevel freight shuttle used to smuggle outer materials and discarded records downward.
+The first exit connection Elia had arranged was an old cargo lift.
+On the surface it looked like a completely dead steel structure, but when Yona nudged one floor panel up with his toe, a living power light flickered on faintly from inside. Originally the remnant of a lower-level logistics line that used to slide outer materials and discarded records downward.
 
-Sion immediately peered inside.
+Sion looked inside immediately.
 
-"Nice. They still use things like this."
+"Nice. Still in use."
 
-"Playing dead is how you last."
+"Playing dead is how things last."
 
 Yona said.
 
-Sern scanned the elevator's interior once and gave a very brief nod.
+Sern scanned the lift's interior once, then nodded very briefly.
 
-"No immediate signs of tracking."
+"No immediate trace of pursuit."
 
-"Somehow that makes me more nervous."
+"Hearing that makes me more nervous."
 Seorin muttered.
 
-Ater noticed the old code marks beside the steel door.
-They weren't standard freight specifications. Most likely, this had once been a sublevel elevator for moving outer materials and discarded records. By now it would have been erased from official records, but it wasn't completely dead. A path that seemed dead but was actually alive.
+Ater looked at the old code marks left beside the steel door.
+Not standard logistics-line spec. Likely once a lower-level lift that moved outer materials and disposal records. Erased from official records by now, but not fully dead.
 
-A path presumed dead, yet still breathing.
+Thought dead — but actually alive.
 
-Perhaps the "erased paths" Ellia had mentioned were something like this.
-What made this place important wasn't simply that it was a passage leading outside. It was the boundary where things the inner order had decided not to take responsibility for—nameless deliveries, discarded records—touched the air beyond the city one final time.
+The *erased path* Elia mentioned might look just like this.
+This place mattered not simply because it was a passage outward. It was the boundary where things the inner order had decided not to take responsibility for — nameless deliveries, disposal records — caught the outside air one last time.
 
-"Get in first."
-Yona looked toward Sion.
-"You're the most impatient one."
+"Get on first."
+Yona looked at Sion.
+"You're the most impatient."
 
-Sion laughed even as he stepped in first.
-Seorin, Sern, and Ater followed in that order. The elevator was cramped, the ceiling light dim, and the moment the door closed, outside noise fell away all at once.
+Sion laughed but stepped in first.
+Seorin followed, then Sern, then Ater. The lift was narrow, the ceiling light faint, and the moment the door closed, outside noise fell away all at once.
 
-A brief silence.
+Short silence.
 
-Then slowly, the ancient steel body began to move downward.
+Then slowly, the very old steel body began moving downward.
 
-A heavy vibration climbed up through the floor.
+A heavy, trembling vibration rose through the soles of their feet.
 No one spoke.
-The port noise that had been above grew fainter, replaced by the dull resonance of dormant machinery and hollow spaces below.
+The port noise that had risen above grew distant, and in its place, the dull resonance of sleeping machines and empty spaces below grew louder.
 
-In that silence, Sion rested his hand over his inner pocket once more.
-The thought came a beat late—we're really leaving now.
+Sion, in that silence, placed his hand over his inner pocket once more.
+*We're really leaving now* — the thought arrived slightly late.
 
-Seorin saw it but didn't speak to him on purpose.
-Instead, she glanced once at Sern leaning against the opposite steel wall, then once at Ater beside him. They'd all been inside the same port just moments ago, yet in this cramped elevator, it felt strangely as though they were headed somewhere much farther.
+Seorin saw it but did not speak to him deliberately.
+Instead she looked once at Sern, leaning against the opposite steel wall, and once at Ater beside him. They'd been in the same port until moments ago, yet inside this narrow lift it felt — strangely — like they were going much farther.
 
-Ater closed his eyes for the briefest moment, then opened them.
-His father Kairon's face flashed through his mind.
-Just because you can open it doesn't mean you should.
-Even as he recalled that sentence, he was descending deeper with his own two feet along a path that had been sealed shut.
+Ater closed his eyes very briefly, then opened them.
+His father Kairon's face flashed past.
+Just because you can open it does not mean you should.
+Even recalling that sentence, he was now following a closed path downward — deeper — on his own feet.
 
-Suddenly, Sion spoke very quietly.
+Suddenly, Sion said, very low.
 
-"This is where it really begins."
+"The real start, from here."
 
-It wasn't clear who the words were meant for.
-But strangely, everyone in the elevator heard them as if they were meant for themselves.
+It was not clear who he said it to.
+But strangely, everyone in the lift heard those words as meant for them.
 
-The steel body shuddered one last time, then slowly came to a stop.
+The steel body trembled once, large and final, then slowly stopped.
 
-Outside the door, an entirely different air awaited.
-Not the humidity and noise of the inner port, but the colder, emptier air of the outer access level. From here on, it was no longer the interior of the neutral port city—it was the way out.
+Outside the door, an entirely different air waited.
+Not the humidity and noise of the port's interior — the colder, emptier air of the outer access layer. From here, it was no longer the neutral port city's inside. It was the path leading out.
 
-The moment they crossed this boundary, both the Empire's blockades and the inner port's protections would weaken together. In exchange, if caught, you disappeared more quietly. It was the kind of zone where you could be cut away without a trace—from official ledgers and underground dealings alike.
+The moment they crossed this boundary, Empire blockade and the port's inner protection would both weaken together. In return, getting caught meant disappearing more quietly. A section where traces vanished easily — cut clean from both official ledgers and floor trades.
 
-And the four of them—
-they had followed a name to get this far,
-but from here on, they would have to follow the severed path even further.
+And the four — having followed a name this far — now had to follow a severed path even farther.

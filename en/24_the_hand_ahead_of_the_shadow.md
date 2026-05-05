@@ -1,62 +1,62 @@
 # Episode 24. The Hand Ahead of the Shadow
 
-The metallic scraping from the darkness ahead was brief, but too distinct to dismiss as imagination.
+The metallic scrape from the darkness ahead was short, but too clear to dismiss as illusion.
 
-All three stopped at the same instant. The interior of the structure had always been quiet, but the silence in that moment was sharper. The distant vibration of debris, the faint maintenance hum of Han Jiwoo's ship rising from the hull side, and the conviction that someone was still out there, somewhere just ahead in the dark.
+All three stopped at once. The structure's interior was quiet by nature, but the silence at that moment was sharper. The residual vibration of distant debris, the faint maintenance hum of Jiwoo's ship rising from the hull side, and the certainty that somewhere in the darkness directly ahead — someone was still there.
 
-Sion drew a very shallow breath. Oil smell, metal dust, the lingering residue of old ozone. Mixed in among them was something very faintly new. Not blood, not combustion residue. Closer to the dry fiber smell of someone who had been moving for a long time, and the scent that lingers on the fingertips of someone who frequently handles metal surfaces.
+Sion drew breath, very shallow. Oil smell, metal dust, old ozone afterscent. Between them, a very faint new smell was mixed. Not blood, not combustion trace. Closer to the dry fiber smell of clothes long worn by someone in motion, and the scent that remains on the fingertips of someone who frequently touches metal surfaces.
 
-He spoke with barely more than the shape of his mouth.
+He spoke almost only in the shape of his mouth.
 
 "There."
 
-Sern answered even lower.
+Sern answered, lower still.
 
 "Yes."
 
-Ater said nothing, his gaze fixed on the narrow junction deeper inside. The sound just now was closer to something made while resettling a stance than a sound made by accident. In other words, the other party was also reading this structure—not simply fleeing, but someone who knew where to hold.
+Ater said nothing, fixing his gaze on the narrow junction inside the darkness. The sound just now was less an accidental noise — closer to the sound of someone finding their footing again while stopping. Meaning: the other party was also reading this structure, and was not simply fleeing but knew where to hold.
 
-Over the short-range channel, Seorin's voice came in low.
+Seorin's voice came through the close-range channel, low.
 
-"Close in?"
+"Engaging?"
 
 Sion shook his head immediately.
 
 "Not yet."
 
-In a space this narrow, whoever moved first could end up caught rather than chasing. At this distance, what mattered wasn't who arrived first but who made the first mistake.
+In a structure this narrow, rushing first could make you the caught rather than the chaser. At this distance, who made the first mistake mattered more than who arrived first.
 
 Sern whispered.
 
-"There's an empty space in the upper frame on the right. Wide enough for one person to tuck in and then redirect."
+"Upper right frame — an empty space. Width where one person could hide and turn again."
 
-Sion gave only the smallest nod.
+Sion nodded, barely perceptibly.
 
-"I saw it too."
+"Saw it too."
 
-Ater added, looking at the underside of that frame.
+Ater, looking below that frame, added.
 
-"It's not a fully blocked route. It's a hiding spot and, at the same time, a position to scout the next escape line."
+"Not a fully blocked path. A hiding position that also serves as a viewpoint for the next exit line."
 
-Sion lifted a corner of his mouth at that.
+Sion lifted the corner of his mouth briefly at that.
 
-"Now we're looking at the same thing."
+"Now you're looking at the same side."
 
-And right then, the darkness ahead shifted very faintly.
+And right then — the darkness ahead moved, very faintly.
 
-No one appeared. Instead, between the gaps in the structure, briefly cutting the residual glow of dead lighting, something like the edge of a coat swept past as a shadow and vanished. Too quick to make out a face, let alone a build. But one thing was certain.
+Not a person showing themselves. Instead, between the structure's gaps, cutting through the dead lighting's afterglow for just an instant — a shadow like a coat's hem passed and was gone. Too brief to catch face or build. But one thing was certain.
 
-The other party also knew they had followed.
+The other party knew they were being followed.
 
-Over the short-range channel, Seorin murmured very low.
+Seorin murmured, very low, from beyond the channel.
 
-"Spotted us."
+"They noticed."
 
-Sern said more coldly.
+Sern said, colder.
 
-"There's a possibility they knew from the start."
+"There is also a possibility they knew from the start."
 
-Sion didn't respond to that right away. Instead he was watching all the way to the point where the shadow had just vanished. The other party wasn't simply hiding—they were the type who calculated the fact of being pursued and withdrew accordingly. This kind would rather try to make the pursuer misread once more than panic and run.
+Sion did not react to that immediately. Instead he was watching the exact spot where the shadow had vanished, to the very end. The other party was not simply the hiding type — but the type that retreated while calculating the fact of being pursued. This kind does not flee in panic; they try to make the pursuer misread one more time.
 
 Ater said quietly.
 
@@ -64,87 +64,87 @@ Ater said quietly.
 
 "I know."
 Sion answered low.
-"But having come this far, there's no way not to step in it."
+"But having come this far, we can't not step."
 
-That applied equally to the three on-site and the two who had stayed with the hull. Touch this wrong and the remaining discrimination reaction dies, and the hand holding the larger fragment slips away too. Wait too long and the other party vanishes down the next escape line. At this distance, hesitation was loss.
+That applied equally to the three on the scene and the two remaining on the ship. Touch wrong here and the remaining discrimination reaction dies — the hand holding the larger fragment, lost too. Wait too long and the other party vanishes into the next exit line. At this distance, hesitation was loss.
 
-Han Jiwoo's voice grazed the inside of the comm line, very faintly.
+Jiwoo's voice grazed through the comm line, very small.
 
-"Reaction is climbing on your side."
+"Reaction's rising on your side."
 
-Seorin asked immediately.
+Seorin asked at once.
 
 "Which direction."
 
-"Outside the structure is still quiet, but the inner metal reaction is waking up little by little."
-Han Jiwoo said low.
-"Feels like someone passing through re-triggered some of the reactions."
+"Outside the structure is still quiet — but inside, the metal response is waking bit by bit."
+Jiwoo said low.
+"Feels like someone passing through triggered some reactions again."
 
-Sern's gaze darkened.
+Sern's gaze sank.
 
-"They didn't erase their trail while fleeing—they left it on purpose."
+"They did not erase traces while fleeing — they left them."
 
-Ater picked up as if continuing the thought.
+Ater picked up as if continuing.
 
-"They're leading us."
+"They are pulling us."
 
-A brief silence.
+Short silence.
 
-The moment those words dropped, Sion found his certainty instead. If the other party had simply panicked and dropped a fragment, they wouldn't move like this. This was the movement of someone who, even after extracting the larger piece first, believed they could handle pursuers to at least some degree. In other words, not a simple courier.
+The instant those words fell, Sion felt certainty rather than doubt. If the other party had panicked and dropped the fragment, they would not move like this. This was the movement of someone who — even after taking the larger piece first — believed they could handle pursuers to some degree. Meaning: not a simple courier.
 
-He said very low.
+He said, very low.
 
 "Someone who read it before us."
 
-Over the short-range channel, Seorin asked briefly.
+Seorin asked from beyond the channel, short.
 
 "Is that good news?"
 
 "Not at all."
 
-Sion took one more step toward the narrow junction deeper inside. The metal plates underfoot were unstable, but following the load line Sern had pointed out earlier held them. Sern, from behind, kept watching the sequence of his steps, and Ater read only the next escape line the other party might choose, tracking wall marks and damage patterns.
+Sion moved one step closer into the narrow junction inside the structure. The metal plates underfoot were unstable, but following only the load lines Sern had indicated earlier, they held. Sern kept watching that foot-sequence from behind; Ater was reading wall marks and damage patterns, looking only at the next exit line the other party would likely choose.
 
-The movements of the three were now far less clumsy than at the start. They still couldn't be called a team. But at least within this narrow structure, what each needed to watch had nearly converged.
+The three's movement was now far less clumsy than at the start. Still could not be called a team. But at least inside this narrow structure now — what each needed to watch was nearly converging.
 
-At the far edge of the shadow ahead, metal scraped again.
+From the shadow's end ahead, metal scraped once more.
 
 This time, a very brief afterglow followed the sound.
 
-As if some thin panel surface had reflected light once in the darkness and vanished.
+As if a thin plate surface had reflected light once in the darkness and vanished.
 
-Sion's eyes changed at once.
+Sion's gaze changed at once.
 
-"You saw it."
+"You saw."
 
 Ater was looking at the same point.
 
 "Yes."
 
-Sern said very low.
+Sern said, very low.
 
-"A panel surface."
+"A plate."
 
-Over the short-range channel, Seorin narrowed her brow.
+Seorin narrowed her brow from beyond the channel.
 
 "The larger fragment?"
 
 "Probably."
 Sion answered.
-"Not sure it's an exact match, but if it were just equipment, you wouldn't carry it like that."
+"Not completely sure, but if it were just equipment — you wouldn't hold it like that while moving."
 
-A brief silence.
+Short silence.
 
-That fragment was right now in someone's hands.
+That fragment was, right now, in someone's hands.
 
-And that single fact made every hypothesis up to this point one step more real. Someone had read this path first, extracted the larger fragment, and was still moving without letting go.
+And that single fact alone made every hypothesis so far one step more real. Someone had read this path first, extracted the larger piece, and was still moving without letting go.
 
-Han Jiwoo whispered again.
+Jiwoo whispered again.
 
-"Can't hold long. Structure reaction is growing."
+"Can't hold much longer. Structure reaction is growing."
 
-Sion looked ahead and steadied his breath very slowly.
+Sion looked ahead and steadied his breath, very slowly.
 
-Catch them here, and maybe the larger fragment would be in hand immediately. But push too hard and the entire structure could destabilize. Wait too long and the other party would slip down a deeper escape line.
+Catch them here, and at minimum the larger fragment could come into hand immediately. But push too hard and the entire structure could shake. Go too slowly and the other party would slip into a deeper exit line.
 
 Ater said low.
 
@@ -152,28 +152,28 @@ Ater said low.
 
 "What."
 
-"At this distance, they'll pause once at the next corner."
+"At this distance — they will stop once at the next corner."
 
-Sion asked briefly.
+Sion asked back, short.
 
-"Sure about that?"
+"Certain?"
 
 "Yes."
 Ater's voice was cold and clear.
-"If this person reads the structure, they won't simply bolt. They'll take one breath to see the next discrimination section."
+"If they are someone who reads this structure, they do not simply run. They will pause once — to see the next discrimination section."
 
-Sern picked it up at once.
+Sern received that immediately.
 
-"And that's when we'll be closest."
+"And that is when they are closest."
 
-Sion looked at both of them in turn. One read the structure, one read the sequence. Both spoke a different language from his, yet right now they were all somehow arriving at the same answer.
+Sion looked at the two, once each. One read structure; one read sequence. Both used a different language from his — yet right now, strangely, all were converging on the same answer.
 
-He said very low.
+He said, very low.
 
 "We catch them at the next corner."
 
-And right at that moment, from beyond the corner, a very short, shallow breath leaked out. Not a simple footstep or metallic scrape—the living breath of someone carrying something heavy who had paused for just a moment.
+And in that exact moment — from beyond the corner, one very short, shallow breath leaked out. Not simple footsteps or metallic scrape — the living breath of someone holding something heavy, stopped for a moment.
 
-All three gazes converged on the edge of that darkness at once, and the silence on the other end of the channel hardened with them.
+Three gazes converged on that darkness's end simultaneously, and the silence beyond the channel hardened with them.
 
-The hand that had taken the larger fragment first was truly still right there, just beyond.
+The hand that took the larger fragment first — was truly still right beyond there.

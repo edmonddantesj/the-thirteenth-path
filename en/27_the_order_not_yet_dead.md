@@ -2,101 +2,101 @@
 
 The air between the corners was different from moments ago.
 
-Still narrow, still unstable, still a distance where one wrong touch from anyone could kill the fragment and the path together. But now the three knew at least one thing. The hand that had taken the larger fragment first also already knew that they couldn't carry this alone to the end.
+Still narrow, still unstable, still the kind of distance where one wrong touch could kill both fragment and path. Yet now the three knew at least one thing. The hand that had taken the larger fragment first — it already knew it could not carry this to the end alone.
 
-Sion spoke without taking his eyes off the fragment.
+Sion said without taking his eyes off the fragment.
 
-"Drag this out any longer and everything dies together. The fragment, the path, whatever reaction is still left."
+"Drag this out and everything dies together. Fragment, path, the reaction that's left."
 
-The man answered, leaving only a little strength in the hand that held the larger fragment.
+The man answered, keeping only minimal force in the hand holding the larger fragment.
 
 "That's why I didn't run."
 
-Sern said low, looking between the wall surface and the fragment's edge.
+Sern looked between the wall and the fragment's edge, low.
 
-"The next discrimination section might react one last time. But if we get the sequence wrong, that's it."
+"The next discrimination section can respond perhaps one more time. But if the sequence is wrong — that's the end."
 
-Ater continued the thought.
+Ater continued.
 
-"What's needed now is opening, not recovery."
+"What is needed now is not recovery but opening."
 
-The man looked at Ater for a little longer than before, hearing that.
+The man heard that and looked at Ater for the first time, slightly long.
 
-"That's a rare thing for someone on the Imperial side to say correctly."
+"Rare to hear something right from the Empire side."
 
-Ater's expression didn't change.
+Ater did not change his expression.
 
-"And you're rather less noisy than a bottom-tier laborer."
+"You are also less noisy than a floor laborer."
 
-Over the short-range channel, Seorin cut in low.
+Seorin cut in from beyond the channel, low.
 
-"Keep talking only as long as you're both still alive."
+"Both of you — keep going only while you're alive."
 
-That single brief line recentered everything.
+That short line recentered things.
 
 Sion asked.
 
 "Name."
 
-The man was silent for a moment.
-That silence felt less like hesitation and more like the habit of someone for whom the name they could give no longer mattered—real or not.
+The man was silent briefly.
+That silence felt less like hesitation — more like the habit of someone for whom whether the name given was real or not held no meaning.
 
 "Kael."
 
-Sion rolled the name once inside his head.
+Sion rolled the name once inside.
 
-Short, light, easily severed. And perhaps for that very reason, the kind of name someone who had spent a long time outside the records might choose. A person who leaves a name you can use right now before their real one.
+Short, light, the kind that could be severed too easily. Yet precisely for that — it felt like the kind a person who had long lived outside the records would choose. Someone who left a name you could call now, before a real name.
 
-Over the channel, Seorin fell very briefly silent.
-That silence had a different grain from her usual evaluative pauses.
+Beyond the channel, Seorin went very briefly silent.
+That silence was a different grain from her usual judgment-pause.
 
 "…Kael?"
 
-Sion caught it immediately.
+Sion noticed at once.
 
 "Why."
 
 "Nothing."
-Seorin's voice returned to normal at once.
-"Same as my surname."
+Seorin's voice returned to normal quickly.
+"Same as my family name."
 
-Sion let out a half-laugh.
+Sion smirked.
 
-"Since when is Kael a special name among the Myo? Step outside and one in three is a Kael."
+"Kael isn't exactly rare among trace-readers. Go outside and one in three is Kael."
 
 "That's true."
-Seorin didn't press further.
-Only for a moment, there was a flicker of something—like someone who had already noted that the name was an alias before anything else.
+Seorin did not press further.
+Only — briefly — a trace of someone checking first whether that name was an alias.
 
 Sern said low.
 
-"Good. Kael, then. Let's start by matching how far each of us has read."
+"Good. Kael. Then let us start by aligning how far each has read."
 
 Kael's gaze narrowed.
 
-"Testing me?"
+"You're testing me?"
 
 "No."
-Sern answered coldly.
-"Making sure we don't step on the wrong sequence."
+Sern answered cold.
+"I am saying we will not step on wrong sequences."
 
-That was a matter of actual survival, not feelings. Kael seemed to understand that at once and didn't push further.
+That was not sentiment — an actual survival matter. Kael seemed to understand immediately and did not push further.
 
-Ater took one very careful step forward. Maintaining the distance instinctive to someone who reads structures, it was the minimum approach needed to see the pattern lines and the severed endorsement section on the larger fragment.
+Ater took one very careful step forward. Maintaining the distance particular to someone who reads structure, the minimum approach to see the larger fragment's patterns and damage lines.
 
-"You did read it first."
+"You read it first. That is confirmed."
 He said low.
-"Then you also know where it breaks off."
+"Then you also know where it cut off."
 
-Kael indicated a point slightly below center on the fragment with his chin.
+Kael pointed with his chin to slightly below the fragment's center.
 
-"Here. The surface pattern is still alive, but the inner endorsement line dies midway."
+"Here. The surface pattern is alive, but the inner approval line dies mid-way."
 
-Ater's gaze shifted at once.
+Ater's gaze changed immediately.
 
-"It's not dead. It's been cut."
+"It did not die. It was severed."
 
-A brief silence.
+Short silence.
 
 Kael looked at him.
 
@@ -104,7 +104,7 @@ Kael looked at him.
 
 "A large one."
 Ater's voice was low and clear.
-"A dead record makes you consider restoration. A severed record changes the method of reconnection entirely."
+"A dead record requires considering recovery. But a severed record — the method of reconnection changes entirely."
 
 Sion looked between the two.
 
@@ -112,120 +112,120 @@ Sion looked between the two.
 
 This time Sern summarized.
 
-"This fragment alone won't open it."
+"It means this fragment alone will not open it."
 
-No one objected.
+No one disagreed.
 
-It was a fact everyone had already vaguely known, but having it confirmed in structural language changed its weight. Possessing the larger fragment first was not the end. The small shard, the surviving discrimination reaction, the afterglow of the site, and different ways of reading—all of it had to come together before the next door would open.
+Confirmed in words, the weight changed.
 
 Sion said low.
 
 "So that's why you didn't run."
 
-Kael didn't deny it this time.
+Kael did not deny it this time.
 
-"Running is always an option."
+"I could run."
 He answered slowly.
-"But if I do, this just becomes expensive scrap."
+"But then this just becomes expensive scrap metal."
 
-Over the short-range channel, Han Jiwoo's voice came in briefly.
+Jiwoo's voice came through the channel, short.
 
-"Reaction is dropping again. Can't drag it out."
+"Structure reaction dropping again. Can't hold long."
 
-At those words, all eyes briefly snapped inward.
+At that, all gazes briefly turned inward simultaneously.
 
-Sion drew his conclusion immediately.
+Sion drew the conclusion immediately.
 
-"Fine. Then let's cut roles first."
+"Fine. Then let's cut roles."
 
-Kael didn't look surprised. If anything, he looked at Sion as if he'd been waiting.
+Kael was not surprised hearing that. If anything, he looked at Sion as if he'd been waiting.
 
 Sion spoke first.
 
-"I connect the afterglow and the traces."
+"I connect the afterglow and traces."
 
-Ater followed right away.
+Ater followed at once.
 
-"I read the discrimination lines and endorsement structure."
+"I read the discrimination line and approval structure."
 
 Sern added low.
 
-"I'll hold the sequence and intervals."
+"I hold sequence and interval."
 
-After a brief silence, Kael spoke.
+After a brief silence, Kael said.
 
 "Good."
 
-He shifted his grip on the larger fragment slightly.
+He adjusted his grip on the larger fragment slightly.
 
-"I'll carry this. Partly because of the weight, and partly because when the reaction goes wrong, the one holding it should be the first to be cut."
+"I hold this. Partly for the weight — and partly because if the reaction goes wrong, the side holding this needs to be severed first."
 
-Sion lifted the corner of his mouth just slightly.
+Sion lifted the corner of his mouth, barely.
 
 "First thing you've said that I like."
 
-Kael didn't react to that.
+Kael did not react to that.
 
-"But if I go in first,"
-he said low,
-"you connect the afterglow I miss. The structure gets patched from behind, and the sequence cuts after that."
+"But when I go in first,"
+He said low.
+"You connect the afterglow I missed. Structure gets attached from behind. Sequence gets cut after that."
 
 Sern asked quietly.
 
 "And if it goes wrong?"
 
-Over the short-range channel, Seorin cut first.
+Seorin cut first from beyond the channel.
 
-"I cut it."
+"I cut."
 
-Sion was about to retort but stopped.
+Sion started to reply but stopped.
 
-Seorin's voice was low but without a tremor.
+Seorin's voice was low but without tremor.
 
-"If I judge that you're pushing past the point where staying means dying together, I cut it. Saying that up front."
+"If I judge that you holding on longer will kill everyone together — I cut. Stating that now."
 
-This time no one objected.
+This time no one argued.
 
-Kael said nothing to that either. Only he lowered his gaze very briefly and raised it again. As if there was no need to verify that those words came from someone who could actually do it, rather than someone posturing.
+Kael said nothing to that either. Only lowered his eyes very briefly, then raised them again. As if confirming that those words came from someone who could actually do it needed no confirmation.
 
 Ater said low.
 
-"We get one chance."
+"One chance."
 
-Sern followed at once.
+Sern followed immediately.
 
-"And that chance is now."
+"And that one chance is now."
 
-Kael brushed the short metal handle fixed at his hip. Not grand enough to call a sword, not rough enough to call a tool. Something whose shape had grown familiar in the hand from long use—metal kept close for opening paths, for blocking what must be blocked, and ultimately for surviving.
+Kael grazed the short metal handle attached at his waist. Too modest to call a blade; too familiar in the hand to call a tool. The kind of metal used for opening paths, for blocking when needed — ultimately kept against the body to survive.
 
-Sion, seeing it, asked low.
+Sion saw it and asked low.
 
-"Does that work for opening paths too."
+"Use that for opening paths too?"
 
 Kael answered without lowering his gaze.
 
 "Not only for opening paths."
 
-A brief answer, but enough.
+A short answer, but enough.
 
-Inside those words was the sense that the metal had long been part of his body—whether for offense or defense, or somewhere in between.
+Inside it — the sense that this metal had been rolling as part of the body for a long time, whether for attack or defense or somewhere between.
 
-Over the short-range channel, Han Jiwoo said briefly.
+Jiwoo said short from beyond the channel.
 
-"Reaction, dropping further."
+"Reaction. Dropping more."
 
-Sion steadied his breath once.
+Sion steadied one breath.
 
 "Going."
 
-After that single word, all movement organized itself at once.
+After that single word, all movement organized simultaneously.
 
-Kael turned the larger fragment just enough for Ater to see, and Ater began reading the pattern lines and the severed endorsement section from just short of arm's reach. Sern lowered his gaze to measure the intervals between steps and the speed at which the reaction wavered, and Sion moved his eyes along the thinnest thread of afterglow still connecting the structure's interior.
+Kael turned the larger fragment just slightly to an angle Ater could see, and Ater — at the distance just before reaching — began reading the pattern lines and severed approval section. Sern lowered his gaze to watch the spacing of steps and the speed of the reaction's wavering. Sion moved his eyes along the thinnest grain where the structure's inner afterglow still continued.
 
-Seorin and Han Jiwoo, beyond the channel, added nothing more.
+Seorin and Jiwoo beyond the channel added no more words.
 
-In that moment, all six were looking at the same failure.
-Open it wrong and it's over.
-But don't open it now and it's over too.
+In that moment, all six were watching the same failure.
+Open wrong, and it ends.
+But not opening now also ends.
 
-And right then, the discrimination section that had been on the verge of death stirred faintly to life one more time.
+And right then — the discrimination unit that had nearly died came alive one more time, very faintly.

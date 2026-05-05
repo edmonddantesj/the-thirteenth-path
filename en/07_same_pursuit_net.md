@@ -1,288 +1,278 @@
-# Episode 7. The Same Pursuit Net
+# Episode 07. Same Pursuit Net
 
-The fracture behind the archive chamber was only wide enough for a single person to squeeze through.
+The crack behind the preservation room was barely wide enough for one person to pass through.
 
-Sion twisted through first, and a jagged shard of broken metal scraped along the side of his coat. Seorin came right after him, Sern moved half-crouched while scanning the structure inside the crack, and Ater was the last to enter after checking the rear one final time.
+Sion twisted in first, and a broken shard of metal scraped along the side of his coat. Seorin followed immediately behind, and Sern moved half-crouched, scanning the crack's inner structure as he went. Ater checked behind him until the very last moment before entering.
 
-Something struck metal behind them once more.
-Closer than before.
+Behind them, another sound struck metal.
+Closer than the one before.
 The front corridor was already compromised.
 
-Beyond the crack, a low ventilation conduit opened immediately ahead.
-It had been built long ago for maintenance, so the ceiling was absurdly low and the floor was slick with old oil and dust clotted together. Every breath pressed the smell of metal, rust, and aged insulation deep into their lungs.
+Past the narrow gap, a low ventilation pipe corridor continued.
+Built long ago for maintenance, the ceiling was far too low, and the floor was slick with oil and dust caked together. Every breath pressed the smell of metal, rust, and old insulation deep into the lungs.
 
-Seorin cursed under her breath.
+Seorin cursed low.
 
-“Nice. Even the escape route is rotten.”
+"Nice. Even the escape route is rotten."
 
-“As long as it’s alive.”
+"Alive is enough."
 
-Sion answered without taking his eyes off the front.
+Sion answered, looking ahead.
 
-Sern spoke right behind him.
+Sern spoke from just behind.
 
-“It is fortunate that the route is still alive. On the official schematics, this section was sealed long ago.”
+"Be glad it is alive. On official blueprints, this section is already sealed."
 
-“Why are you the only one who knows that?”
+"And why are you the only one who knows that."
 
-Sion threw it back, and Sern answered in a voice that had not even lost its breath.
+Sion tossed the words out, and Sern answered without evening his breath.
 
-“Routes that trap feet were first found long ago by people outside the houses. We learned them only later.”
+"People outside the houses found the roads that trap your feet long before us. We only learned them after."
 
-It was short, but Seorin immediately caught the old chill clinging to it.
-The word learned sounded strangely heavy.
-The sort of road that had been survival to someone and management to someone else.
-And the conduit and maintenance bridge the four of them were crawling through now felt less like infrastructure than the remains of an old escape line through which unrecorded people and goods had once slipped quietly out.
+It was brief, but Seorin immediately read the old chill embedded in it. *Learned* — a strangely heavy word. The kind of road that was survival for some and management for others. And this pipe and maintenance bridge the four of them now crawled through was itself closer to the remains of an old escape line — where people and goods outside the records had quietly slipped away since long before.
 
-Crawling in front, Sion suddenly raised a hand.
+Sion, crawling ahead, suddenly raised his hand.
 
-Everyone froze at once.
+Everyone stopped at once.
 
-A faint metallic vibration rang from above the conduit.
-Footsteps, running through the passage directly overhead. Not one person. Three, four, all with different weight. Then a brief clipped electronic sound. It resembled the noise made by an Imperial communications severance device at close range.
+A faint metallic vibration hummed from above the pipe.
+Footsteps — someone running through the corridor directly above. Not one. Three, four — different weights. And a very brief cut of electronic noise. Similar to the sound Empire-standard comm-jamming equipment made at close range.
 
-Ater said quietly,
+Ater said low.
 
-“They’ve started sealing the upper level.”
+"They have begun closing above."
 
-Seorin answered at once.
+Seorin followed immediately.
 
-“Then the lower one will move faster.”
+"Then below gets faster."
 
-As if in reply, somewhere below the conduit a loose cover rattled violently.
-Not the formal suppression team this time, but dockside humans climbing up from below by riding the route.
+As if answering her words, somewhere below the pipe, an old panel cover shook violently.
+Not a formal suppression team — port-floor people climbing the route from underneath.
 
-Sern muttered shortly,
+Sern murmured short.
 
-“Both sides.”
+"Both sides."
 
 Sion grimaced.
 
-“Good. A real shared pursuit net.”
+"Great. Really the same pursuit net."
 
-This time no one disagreed.
+This time, no one disagreed.
 
-The tunnel split into two branches.
-One was narrower but led straight out beneath the outer maintenance bridge. The other was a little wider, but had two open inspection gaps along the way. The second route was faster, but with people already searching from above and below, the exposed gaps made it more dangerous.
+The corridor ahead split in two.
+One path was narrower but dropped straight below the outer maintenance bridge; the other was slightly wider but had two open inspection hatches along the way. The faster exit was the latter — but with someone sweeping from above and below simultaneously, the path with hatches was more dangerous.
 
 Sern spoke first.
 
-“The left is slower, but it does not open.”
+"Left is slower but does not close."
 
-“And the right?” Seorin asked.
+"Right?" Seorin asked.
 
-“Faster, but exposed twice in the middle.”
+"Faster, but exposed twice in between."
 
 Sion did not hesitate.
 
-“Left.”
+"Left."
 
-Ater answered immediately.
+Ater spoke immediately.
 
-“A slower route invites pursuit from behind.”
+"A slow path invites pursuit from behind."
 
-Sion replied over his shoulder with a mocking edge.
+Sion said over his shoulder, half-mocking.
 
-“The fast route is over if we’re seen.”
+"A fast path — get spotted and it is over."
 
-“The slow route can still end.”
+"A slow path can also end."
 
-“I’m still picking it.”
+"I still pick it."
 
-Just as the two were about to clash again, Seorin cut in, low and sharp.
+The moment the two were about to clash again, Seorin cut in low.
 
-“Fine, both of you shut up.
-Sion’s right. Right now not getting seen matters more than getting through fast.”
+"Both of you, shut it.
+Sion's right. Right now, not being seen comes before being fast."
 
 Sern agreed at once.
 
-“I concur.
-The upper level is being closed by the Empire, and the lower is being climbed by whoever heard the rumor and latched on. If we are exposed, the response types will differ, which makes it worse.”
+"Agreed. The Empire is closing above; below, those who heard the rumor are climbing. If we are exposed, the response types differ — which makes it worse for us."
 
-Ater fell silent for a moment, then said shortly,
+Ater was silent briefly, then said, short.
 
-“…We go left.”
+"…Left."
 
-Only then did Sion move again.
+Only then did Sion move his body again.
 
-The conduit tightened further.
-Now it was not enough to hunch. They almost had to crawl. Through the metal grating below, the outer harbor lights were faintly visible, and beneath them maintenance bridges and dead hull shadows tangled endlessly together.
+The pipe grew narrower still.
+Now it was no longer stooping — nearly crawling. Through the metal grate below, the faint lights of the port's outer edge were visible, and beneath that, an endless tangle of maintenance bridges and dead hull shadows layered over one another.
 
-Looking back, Seorin whispered,
+Seorin glanced back and whispered.
 
-“The ones following, two kinds of footwork.”
+"The ones following those two — their sounds are separating."
 
-“How many?”
+"How many?"
 
-“Three above, two below.
-The two below feel like the paid kind. Light feet.”
+"Three above, two below. But the two below feel like hired legs. Light on their feet."
 
 Sion clicked his tongue softly.
 
-“Brokers got on us.”
+"Brokers attached."
 
-“They had reason to.”
+"Expected."
 
-Sern added,
+Sern added.
 
-“I expected it from the moment word about the archivist spread inside the harbor.”
+"It was anticipated from the moment the archivist rumor spread inside the port."
 
-Sion heard that and gave a dry little laugh.
+Sion heard that and smirked.
 
-“If you expected it, you could’ve said it sooner.”
+"If you anticipated it, you should've said so earlier."
 
-Sern’s answer was cold and brief.
+Sern's answer was cold and short.
 
-“You are not of a disposition that informs others first either.”
+"You are not the type to share first either."
 
-The moment the words ended, something behind them tore loose completely.
-Someone had found the route properly.
+The instant those words ended, a panel cover was ripped clean off somewhere behind the pipe. Someone had found the route properly.
 
-“We run.”
+"Run."
 
-This time Ater said it first.
+This time Ater spoke first.
 
-Sion looked back.
-It was faintly ridiculous to hear something like that from a man so composed, but oddly enough it wasn’t wrong.
+Sion looked back. It was slightly funny hearing that word come first from the composed one's mouth, but strangely, it was not wrong.
 
-At the end of the narrow conduit there was a vertical ladder dropping to the maintenance bridge below.
-The problem was that the space beneath it was not clear. Temporary power lines and wastewater pipes were tangled under the outer bridge, and one wrong step would make noise and likely wreck an ankle.
+Where the narrow pipe ended, a single vertical ladder dropped to the maintenance bridge below.
+The problem was that the space below the ladder was not entirely clear. Beneath the outer maintenance bridge, temporary power lines and waste discharge pipes tangled in a complex web — one wrong step and the sound would be loud, the ankle gone.
 
-Sion scanned below and said immediately,
+Sion scanned below and spoke immediately.
 
-“I go first.”
+"I go first."
 
-Ater answered on reflex.
+Ater answered reflexively.
 
-“That is reckless.”
+"Reckless."
 
-“I’m faster at reading a route.”
+"I read paths faster."
 
-“You cannot be cert—”
+"You cannot be cert—"
 
-Seorin cut him off again.
+Seorin cut in again.
 
-“We don’t have time for certainty.”
+"No time for certainty."
 
-Then she shoved Sion lightly in the back.
+And gave Sion's back a short push.
 
-“Go, hound.”
+"Go, nose."
 
-Sion swallowed the curse rising to his mouth and climbed down.
-His toes found the first rung, one hand caught the rusted side rail, and his body slipped down. One middle rung had rotted away entirely, but he shifted his weight over a side pipe as if he had known it would be missing.
+Sion swallowed one curse and descended the ladder.
+His toes found the first rung, his hands gripped the rusted side bar, his body slid downward. One rung in the middle was completely corroded and empty, but he stepped onto the side pipe as if he'd already known — shifting his weight across.
 
-Once he landed below, Sion looked up.
+After touching down first, Sion looked up.
 
-“Come on.”
+"Clear."
 
 Seorin came down second.
-The moment she saw the missing rung, she stepped onto the same side line Sion had used without hesitation. As soon as she reached the bottom, she slid one step aside and called up,
+The moment she saw the corroded rung, she took the same pipe-edge Sion had used without hesitation. Once down, she stepped one space aside and called up.
 
-“Next.”
+"Next."
 
-Sern had the sort of eyes that calculated the structure below before the ladder itself.
-He seemed to grasp at once where to step for less noise and which metal only looked solid while hollow inside. There was no wasted force in the way he descended.
+Sern's eyes calculated the structure below before the ladder itself.
+Where to step for less sound, where the metal only looked solid but was hollow inside — he read it almost at once. His descent wasted no force.
 
-Ater came last.
+Last was Ater.
 
-Watching from below, Sion briefly twisted one corner of his mouth.
+Sion watched from below and twisted the corner of his mouth, just briefly.
 
-“You climb routes like this a lot in that uniform?”
+"Climb routes like this often in that uniform?"
 
-Ater answered shortly from midway down the ladder.
+Ater answered short, standing midway on the ladder.
 
-“Today is the first time.”
+"First time today."
 
-“Nice. Rough first day.”
+Seorin let out a brief sigh. This mess, on the first day.
 
-“Thanks to you.”
+"Thanks to you."
 
-Sion almost laughed when a beam of light flashed at the upper conduit entrance.
+The moment Sion was about to smirk, a flashlight beam flared from the pipe entrance above.
 
-“Down!”
+"Down!"
 
-At Seorin’s shout, all of them dropped.
-The light swept the lower maintenance bridge. If they had been even a moment later, it would have caught them outright.
+At Seorin's shout, everyone dropped low simultaneously.
+The beam swept across the maintenance bridge below. A fraction slower and they would have been caught.
 
-Sern spoke almost in a whisper.
+Sern whispered.
 
-“Further vertical movement is impossible. They will fix our position soon.”
+"No more vertical movement is possible. Our position will be fixed shortly."
 
-Sion pointed to the left side beneath the bridge.
-Behind a cluster of bundled power lines lay a half-collapsed inspection passage. Barely wide enough for one adult to force through, but beyond it the route could reconnect to the outer berth layers.
+Sion pointed to the left side of the lower maintenance bridge.
+Behind a bundle of power lines, a half-collapsed inspection corridor was visible. Barely wide enough for one adult to squeeze through, but at its end the structure let out toward the outer docking layer.
 
-“There.”
+"There."
 
-Ater asked immediately,
+Ater asked immediately.
 
-“Are you certain?”
+"Are you certain."
 
-“No.
-But it feels like the least dead route right now.”
+"No.
+But right now it looks like the least-dead path."
 
-Seorin answered at once.
+Seorin followed at once.
 
-“Then that makes it certain enough.”
+"Then that's certain enough."
 
-The four of them moved again.
+The four moved again.
 
-This time the order shifted.
-Sion read the route, Seorin cut the rear line of sight, Sern calculated pursuit spacing and escape angles, and Ater estimated how their remaining traces would be read by Imperial containment lines and chose the least bad option.
+This time the order was different.
+Sion read the path; Seorin cut the rear sightlines; Sern calculated the actual pursuit interval and escape angle; and Ater predicted how remaining traces would be read by the Empire's blockade lines and chose the least-bad option.
 
-For the first time, what each of them did best locked together differently.
+For the first time, what each did best meshed differently.
 
-It had nothing to do with trust.
-In this kind of escape, the fact that they did not trust each other mattered less than the fact that without one another they would die faster.
+It was nothing close to trust.
+But in this kind of escape, the fact that they did not trust each other mattered less than the fact that without each other, they would die faster.
 
-Halfway through the inspection passage, the harbor exterior opened all at once beyond the grating.
-Hard cold wind poured in, and in the distance the boundary lights were shutting down one by one. The Empire was closing the upper access lines.
+Halfway through the inspection corridor, the port's outer edge opened all at once through the grate leading outside.
+Rough, cold wind rushed in, and in the distance, perimeter lights were going dark one by one. The Empire was closing the upper access lines.
 
-At the same time, a completely different kind of commotion broke out on the lower docks.
-Two civilian cargo vessels abruptly changed lanes, and a few men from the tavern alley started running in the same direction like beasts scenting money. Whoever had spread it, a bounty and a rumor had already been loosed below.
+At the same time, an entirely different kind of disturbance rose from the docks below.
+Two civilian cargo ships changed berths in a hurry, and from the bar alley side, several people began running in the same direction — like animals that had caught the scent of money. Whoever had spread it, the lower level was already flooded with bounties and rumors.
 
-Sion saw it and swore quietly.
+Sion saw it and cursed low.
 
-“Right. Everyone’s here.”
+"They're really all here."
 
-Ater looked outside and said shortly,
+Ater looked out and said short.
 
-“The Empire has closed the upper side.”
+"The Empire has closed above."
 
-Seorin picked up the next piece.
+Seorin picked up.
 
-“And the lower side is spreading through whoever moves for money.”
+"Below, the money-driven side has spread."
 
-Sern laid down the last one.
+Sern placed the last piece.
 
-“From here on, if we do not move in the same direction, we will not even be able to screen each other.”
+"From now, if we do not move in the same direction, we cannot even cover each other."
 
-At that, Sion turned and looked at the other three in turn.
-The black-coated approval officer, the even quieter shadow of a strategist beside him, and Seorin already waiting for the next decision.
+Sion turned his head at those words and looked at the other three, one by one.
+The Approval Bureau man in the black coat. His shadow of a strategist, even more silent. And beside him, Seorin, already waiting for the next decision.
 
-Like it or not, here they were one bundle.
+Like it or not — here, the four were one unit.
 
-He said shortly,
+He said, short.
 
-“We get out alive.
-After that, we can go back to disliking each other.”
+"We get out alive.
+After that, we can go back to disliking each other."
 
-Seorin laughed under her breath.
+Seorin laughed low.
 
-“Nice.
-For an agreement, I hate it, but for now it’s enough.”
+"Nice.
+Not fond of it as an agreement, but for now it's enough."
 
-Sern said nothing and simply pointed to the front exit. Ater only gave a single nod.
+Sern wordlessly pointed toward the exit ahead, and Ater nodded once.
 
-At last the four of them shoved open the far end of the inspection passage and emerged beneath the outer maintenance bridge.
+Finally, the four pushed open the end of the inspection corridor and slipped out below the outer maintenance bridge.
 
 Cold wind struck their faces.
-Behind them someone was still coming down the route, and ahead the harbor had already turned into chaos, with closing paths and infiltrating ones tangled together.
+Behind them, someone was still climbing down the route, and ahead, the port was already a chaos of closing roads and seeping paths tangled together.
 
-But at least in that moment, they caught the outside air first.
+But at least — in this moment — they had caught the outside air first.
 
-And only then did Sion realize it.
+And Sion realized it only then.
 
-From the moment he had seen Jun Aster’s name,
-these four had ceased to be people from separate worlds.
-They had become people passing through the same pursuit net.
-And perhaps only those who had seen the same fragment would, in the end, be driven into the same road.
+From the instant they had seen Jun Aster's name, these four were no longer people from separate worlds — they had become people passing through the same pursuit net. And probably, only those who had seen the same fragment would be driven, in the end, down the same road.

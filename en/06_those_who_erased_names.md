@@ -1,235 +1,294 @@
-# Episode 6. Those Who Erased Names
+# Episode 06. Those Who Erased Names
 
 Jun Aster.
 
-Those few letters left in the center of the fire-scorched record fragment were enough to change the entire air inside the corridor.
+Those few characters remaining in the center of a fire-scarred record plate were enough to change the entire air inside the corridor.
 
-Sion stood still for a long time with the shard in his hand. Erased names were usually erased all the way through. Once a name was burned out, it vanished not only from records but from people’s mouths. That was why the return of a long-forbidden name in a place like this, from the last position of a dead record keeper, felt almost like a nightmare.
+Sion could not move for a long time, holding the fragment. Erased names usually stayed erased to the end. Once incinerated, a name vanished not only from records but from people's mouths. So for a name that had been forbidden since long ago to return like this — from the dead archivist's final resting place — was something close to a nightmare.
 
 Seorin was the first to recover her voice.
 
-“…Damn.”
+"…Insane."
 
-The word was so exact that Sion almost could not look up.
+That single word was so precise that Sion could not even raise his head.
 
-Across from him, Seorn said nothing either.
-He looked at Ater before he looked at the fragment.
-His lord had stopped. It was only a very brief silence, but Seorn knew Ater Valkar rarely stopped like that. Especially not in front of a name.
+Sern, standing on the other side, was also silent.
+He looked at Ater before the record plate.
+His lord had stopped. It was a very brief silence, but Sern knew. It was rare for Ater Valkar to stop like that. Especially before a name.
 
-Ater opened his mouth very slowly.
+Ater opened his mouth, very slowly.
 
-“Look at the fragment.”
+"Look at the fragment."
 
-The words were aimed at Sion, but they sounded as if he were saying them to himself as well. Do not react first. Do not judge by emotion first. Look at the record first. It was an old habit, the kind that had been engraved into him for life in the Valkar line and inside the Imperial Approval Office.
+The words were directed at Sion, but sounded as if spoken to himself as well. Do not get excited, do not judge by emotion first, look at the record first — the kind of old habit ground into bone. In House Valkar, in the Approval Bureau, the method practiced until it became second nature.
 
-Only then did Sion let out a short laugh.
+Sion heard that and finally smirked.
 
-“You’re really saying that first even now?”
+"Even in this situation, that comes out first?"
 
-Seorin answered immediately.
+Seorin followed immediately.
 
-“Nice. A name just clawed its way back from the dead and your first thought is still, let’s inspect the record.”
+"Nice. A name comes back from the dead, but sentiment later, records first."
 
-Seorn said in a low voice,
+Sern said low.
 
-“Nothing is proven by reaction alone.”
+"Nothing is proven by sentiment."
 
-“Something is proven.”
+"It's already proven."
 
-This time Sion lifted his head.
-The eyes that had been fixed on the shard turned forward.
+This time Sion raised his head.
+The eyes that had been on the fragment a moment ago now faced forward.
 
-“At least one thing. Someone tried to erase this name all the way to the end.”
-He looked down at the broken edge.
-“And instead of getting rid of it in one pass, they tried to kill it piece by piece.”
+"At least one thing. That someone tried to erase this name to the end."
+Sion looked at the fragment's edge.
+"And instead of destroying it all at once, they killed it in pieces, cut by cut."
 
-Ater did not answer at once. Instead he lowered his gaze to the floor beside the body. The record keeper’s final posture, the broken capsule, the scratched preservation room door, the torn access port, and the automatic preservation device that had not fully died. Whatever anyone felt, the site itself was speaking clearly.
+Ater did not answer immediately. Instead he lowered his gaze to the floor beside the body. The archivist's final posture, the broken capsule, the scratched preservation room door, the forcibly torn access terminal, and the automatic preservation device not yet fully dead. Apart from emotion, the scene was speaking clearly.
 
 Someone had come here.
 Someone had tried to take something out.
-And the record keeper had succeeded in leaving part of it behind.
-Because this was the kind of record that would be finished if it all passed out at once, it felt less like a failed escape and more like a hand that had managed to keep it from being lost all at once.
+And the archivist had succeeded in leaving part of it behind, until the very end.
+Because it was the kind of record that would be finished if it passed whole at once — he had kept it from passing whole. Closer to someone who deliberately left fragments so that nothing could be taken all at once.
 
-Seorn moved first.
-He knelt at a preservation terminal two steps away from the body and checked the dying display.
+Sern moved first.
+He knelt before the preservation terminal two steps from the body and checked the dying screen.
 
-“One device is still alive.”
+"One device is still alive."
 
-Sion turned his eyes there at once.
-The surface of the terminal was cracked, and the lower frame was blackened by fire, but the inner core still blinked with a faint blue light.
+Sion shifted his gaze at once.
+The terminal surface was cracked and the lower section scorched, but the inner core blinked a faint blue light — not fully dead.
 
-Ater asked,
+Ater asked.
 
-“Can it be recovered?”
+"Can it be recovered."
 
-Seorn answered shortly.
+Sern answered short.
 
-“Not from the device alone. But something was forced into it at the end.”
+"From the device alone, difficult. But there are traces of someone pushing something in at the end."
 
-Before the sentence had even finished, Sion searched around the dead keeper’s hand again. From a crack in the floor, packed with black ash and dried blood, he found two more thin record fragments. One had died completely. The other was only a surviving edge.
+Before Sern finished speaking, Sion was already searching near the dead archivist's hand again. From the cracks in the floor thick with black ash and dried blood, two more thin record-plate fragments emerged. One was completely dead. The other had only an edge remaining.
 
-Looking at the body, Seorin said quietly,
+Seorin looked at the body and said low.
 
-“He never let go.”
+"Never let go, till the end."
 
-At that, Sion stopped for a moment.
-Black ash still clung between the stiff fingers. It was the trace of a hand that kept gripping, tearing loose, and pushing things in until the end. A hand that had not let go of its work even while dying.
+At that, Sion paused his hand briefly.
+Between the archivist's stiffened fingers, black ash still clung. The trace of someone who had held on, torn free, tried to push in — until the last moment. The hand of a person who could not stop working even as they died.
 
-Sion muttered very softly,
+Sion murmured, very small.
 
-“He carried all of it alone.”
-It was clear now that this had not been a hand that died trying to save a few documents. It had been a hand trying to leave things divided behind so not everything would be lost at once.
+"Carried it all alone."
+That this was not simply the hand of someone who'd gathered a few documents and died — that much was now clear. It was the hand of someone who had divided and left behind, until the very end, so that not everything would be lost at once.
 
-Seorn fixed an improvised line into the underside of the device. Ater forced life back into the collapsing authority structure with his wrist terminal. Sion slid one of the fragments taken from the record keeper’s hand into the slot Seorn indicated.
+Sern connected a temporary line to the device's underside, and Ater forced the dying authorization structure awake through his wrist terminal. Sion took one fragment pulled from the archivist's hand and slid it into the slot Sern indicated.
 
 For a moment, nothing happened.
 
-Then broken lines of text rose into the air above the terminal.
+Then, in the air above the terminal, broken sentences surfaced.
 
-At first there was only noise.
-Corrupted visual data. Collapse warnings. Incomplete approval numbers. Deletion failure markers.
+At first, only noise.
+Shattered visual data, collapse warnings, incomplete approval numbers, deletion failure markers.
 
-Then the voice came.
+Then came the voice.
 
-It was rough and torn, the voice of someone speaking at the very edge of death.
+Rough and cracked — the voice of someone moments from death.
 
-The record keeper.
+The archivist.
 
-“…recovery… order… no… the order first…”
+"…Recovery… the sequence… no… look at the sequence first…"
 
-The sound broke, then returned.
-Most of the middle was missing, but that made it worse.
+The voice cut, then continued.
+Most of the middle was destroyed, but that only made it more wrenching.
 
-“…the name can remain… but if the order dies… the ruling changes…”
+"…The name remains… but… if the sequence dies… the verdict changes…"
 
-Sion’s eyes shifted.
-For the first time Seorin closed her mouth without a word.
+Sion's eyes trembled.
+Seorin, for the first time, closed her mouth without a word.
 
-Seorn was reading the shattered lines in the air, and Ater was absorbing the meaning more slowly, but more deeply.
+Sern was reading the broken sentences floating in the air; Ater was receiving their meaning more slowly, but more deeply.
 
-The voice came back one last time.
+The voice came alive one last time.
 
-This one was much shorter.
+This time, far shorter.
 
-“…the ones who erased the names… wrote…”
+"…Those who erased the name… the history…"
 
 Noise.
 
-“…history.”
+"…they wrote it."
 
-And then a final line remained in the air.
+And one final sentence remained in the air.
 
-**Original approval order mismatch**  
-**Recovery on hold: upper seal interference**
+**Original approval sequence mismatch**
+**Recovery hold reason: upper-level seal intervention**
 
-The last error line trembled once more, then scattered into blue light over the cracked terminal and died.
+The last error message lingered, trembling, then spread blue across the cracked terminal and vanished.
 
 No one spoke immediately.
-The name returning alone had already been enough. The message left by the dying keeper hinted at something even larger.
-All of them could already feel, however dimly, that what they had to chase now might not be a single sentence, but severed order and the scenes where pieces of it had been left behind.
-But there was no time to shape that into words here.
+A single name returning was already enormous, and the voice the archivist had left behind implied far more. That what they now had to chase was not a single sentence but severed sequences and the scenes left behind — everyone felt it, dimly. But there was no time to put that into words here.
 
-A short warning tone suddenly burst from the dying underside of the terminal.
+From below the dying terminal, a short warning tone suddenly spiked.
 
-Seorn turned first.
+Sern turned his gaze first.
 
-“My lord.”
+"Sir."
 
-A red line ran across the terminal surface.
-Even though the playback had ended, the device was pushing its last remaining authority signal outward.
-A signal that a long-hidden record had just been opened again.
+A red line spread across the terminal surface.
+Though playback had ended, the device was pushing its last remaining authorization signal outward.
+A signal that a long-hidden record had been accessed again.
 
-Ater reached toward it immediately, but too late.
-The red line flashed once more and died.
+Ater reached for the terminal immediately, but too late.
+The red indicator flashed once more, then died.
 
-Sion cursed under his breath.
+Sion cursed low.
 
-“Great. So we’re not the only ones who saw it now.”
+"We're not the only ones who saw it now."
 
-“It is worse than that.”
+"It is worse than that."
 
-Seorn already had his wrist terminal active.
-The official Imperial Approval Office line was still quiet.
-But outside that, thinner contact webs, the kind that never survived into formal reports, had started to move first.
+Sern was already activating his wrist terminal.
+The Empire Approval Bureau's formal line was still quiet.
+But outside it — the thin networks that left no trace in formal reports — those were already trembling.
 
-One. Two. Three.
+One, two, three.
 
-The Black Gate Oath descendant line.
-The outer ring of the aftertone net.
-Old eyes seeded around the port outskirts.
+The Black Covenant descendant line.
+The outer ring beyond the echo network.
+Old eyes planted at the port's edge long ago.
 
-Seorn’s gaze sank a fraction.
+Sern's gaze sank, barely perceptibly.
 
-“They’re here.”
+"They are here."
 
-Ater read the look and asked,
+Ater read his expression and asked.
 
-“Which side?”
+"Which side."
 
-Without closing the screen, Seorn answered,
+Sern answered without closing the screen.
 
-“Not only the Empire.”
+"Not only the Empire."
 
-That single sentence changed the air in the corridor completely.
+That single short sentence changed the air inside the corridor completely.
 
 Seorin reacted first.
 
-“Nice. Then they’re coming from above and below.”
+"Nice. So they're coming from above and below."
 
 Sion looked at her.
 
-“Below?”
+"Below?"
 
-“At this level of access, the upper line of the Alliance Outer Route Bureau won’t be the only thing moving.”
-Seorin’s words were fast. Her head had already moved to the next square.
-“Port brokers, middle relays, civilian watchers, all of them will move if the money moves. Means we’re not dealing with one line coming for us.”
+"An access of this scale — there's no way only the Alliance outer-route administration's upper level moves."
+Seorin's words were fast; her mind had already moved to the next frame.
+"Port brokers, middleman couriers, civilian surveillance lines — they'll all attach for money. Meaning the ones coming to stop us aren't a single line."
 
-Ater said quietly,
+Ater said low.
 
-“The Empire will close the gates first.”
+"The Empire will close the gate first."
 
-“And everything else will seep through that gap.”
+"And through that gap, the other side seeps in."
 
-Seorin answered immediately.
-She was no longer looking at the body or the record. She was reading the corridor structure, the rear preservation exit, the upper pipework, the wall fracture, the rhythm of the steps outside.
+Seorin followed immediately.
+She was no longer looking at the body or the records. Instead she was reading the corridor structure, the preservation room's rear exit, the upper piping, the side wall's crack, and the interval of footsteps outside — all at once.
 
-“Sion.”
+"Sion."
 
-“Yeah.”
+"Yeah."
 
-“Understanding comes later. Live first, then read.”
+"From now, understanding comes later. Get out alive, then read."
 
-Sion took a short breath.
-She was right. If they searched for more fragments here now, the record might survive while they did not.
+Sion drew a short breath.
+She was right. The moment they dug for more fragments here, the records might survive but the people would not.
 
-Seorn had already moved into a different line of calculation.
-How long before the formal Imperial closure sealed. Outer-port surveillance routes. The last remaining escape line left by Black Gate descendants. The survival odds if the four of them moved together, and if they split.
+Sern had already entered a different calculation.
+Time remaining before the Empire's formal blockade closed, the port's outer surveillance routes, the last viable exit corridor the Black Covenant descendants had left behind, and the survival probability of these four moving together versus apart.
 
 The answer was unpleasantly clear.
 
-“My lord.”
+"Sir."
 
-“Speak.”
+"Speak."
 
-“We leave together.”
+"We must exit together."
 
-The first expression to change was Sion’s.
+The first face to change at those words was Sion's.
 
-“Great. There’s the line I didn’t want to hear.”
+"Great. There's the thing I didn't want to hear."
 
-Seorn did not blink.
+Sern did not blink.
 
-“If we split, we get picked apart.”
+"Separately, we are destroyed one by one."
 
-Seorin gave a short laugh.
+Seorin laughed short.
 
-“That’s a pretty way to say all four of us are in the same net now.”
+"Pretty way to put it. You're saying all four of us are caught in the same pursuit net."
 
-“That’s correct.”
+"Yes."
 
-Ater was silent for a brief moment.
-An Imperial Approval Office man having to leave as one unit with two Alliance Outer Route Bureau field operatives was already abnormal enough. But the signals outside were clear. What was moving now was not formal order alone. Formal order and unofficial greed had caught the same scent.
+Ater was silent for the briefest moment.
+The situation itself — an Empire Approval Bureau officer needing to escape as a single unit with two Alliance outer-route administration operatives — was already abnormal. But the signals from outside were clear. What was moving now was not formal order alone. Formal order and informal greed had caught the same scent at the same time.
 
-He gave the conclusion shortly.
+He concluded, short.
 
-“We withdraw first.”
+"We extract first."
+
+Sion mocked immediately.
+
+"Approval granted."
+
+"This is not a situation for joy."
+
+"On that, I agree."
+
+From the outer corridor, the sound of metal striking metal grew closer.
+This time from multiple directions. One sound of something closing from the upper level, two sets of rough footsteps running up from below, and one faint vibration approaching along the outer wall from behind.
+
+Seorin pointed direction with her hand immediately.
+
+"Front is blocked. Above is closing. The preservation room's back wall — that crack. I saw it earlier."
+
+Sion turned his body at once.
+
+"Ventilation piping?"
+
+"Yeah. One person at a time can fit through."
+
+Sern added the calculation immediately.
+
+"The pipe's end drops below the outer maintenance bridge. Official blueprints show it sealed, but the echo network's old waypoint markers have it live."
+
+Sion heard that and looked back at Sern.
+
+"How do you know that."
+
+Sern answered short.
+
+"There is always at least one person who knows the roads you do not."
+
+Seorin smirked at that.
+
+"Annoying, but competent."
+
+"Likewise."
+
+Ater was already recovering the capsule fragments and terminal core left beside the body.
+Sion tucked the fragment bearing Jun Aster's name deeper inside his coat. Records were a later problem now. Whether they could carry them out came first.
+
+From outside the corridor entrance, someone shouted.
+
+"The inside is open!"
+
+Immediately after, an impact like gunfire struck the metal wall.
+Dust rained down.
+
+"Go!"
+
+This time Seorin moved first.
+
+Sion followed behind, Sern held the direction toward the actual open crack beside them, and Ater looked back once at the very end. The dead archivist's resting place, the dead terminal, the half-open preservation room door. He could not look long at a place already too late.
+
+The four pushed their bodies into the crack behind the preservation room wall without another word.
+
+And in that moment — the Empire closed from above, and the Alliance and the port's dirty hands began seeping in from below.
+
+The instant Jun Aster's name resurfaced, all four who had seen it were sliding into the same pursuit net.

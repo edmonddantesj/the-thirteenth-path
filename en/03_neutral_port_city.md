@@ -1,183 +1,195 @@
-# Episode 3. The Neutral Port City
+# Episode 03. Neutral Port City
 
-From a distance, the neutral port city always looked like a heap of scrap metal suspended in space.
+From a distance, the neutral port city always looked like a floating heap of scrap metal.
 
-Hundreds of connector bridges and transfer bands. Makeshift docking tiers built from old hulls patched together. Signs and dock numbers that did not fit any official standard. Cargo lights that never slept, not even at night. The Empire, the Alliance, and the border worlds had all tried to name the city in their own language, yet none of them had ever managed to truly claim it. That was why it remained neutral, and why it remained filthy.
+Hundreds of docking bridges and transfer belts, temporary mooring layers patched with old hulls, mismatched signs and dock numbers, cargo lights that never slept even at night. The Empire, the Alliance, the border worlds — all tried to claim this place in their own language, but none ever fully succeeded. So it was always neutral, and always filthy.
 
-The moment the recovery ship latched onto the outer docking tier, the passengers who had been crouched in silence began to scatter in every direction. No one said goodbye. No one looked back at anyone else. In a place like this, politeness was often more suspicious than rudeness.
+The moment the collection vessel docked at the outer mooring layer, the people who'd been crouched inside scattered in their own directions. No one said goodbye. No one looked at anyone again. In this port, that kind of courtesy was suspicious.
 
-Sion and Seorin did not wait until the very end.
-The two voices that had spoken about the archivist from beyond the forward hatch had already begun moving toward the upper section before docking was complete. If they lost them now, they would not find them again easily.
+Sion and Seorin didn't wait until last either. The two voices that had mentioned *archivist* beyond the front cabin door had already been moving toward the upper section of the ship since just before docking. Lose them now, and finding them again would be hard.
 
-The instant they came down the metal ramp, the air changed.
-Oil, salt, residual engine heat, old wiring, even some spice burning somewhere far off. Everything mixed here at once. Language, cargo, people, lies.
+The air changed the instant they stepped down the steel ramp. Oil, salt, lingering exhaust heat, old wiring, the smell of spices burning somewhere — all mixed together. This place always had too many things piled into the same air. Languages, cargo, people, lies.
 
-Seorin said quietly,
+Seorin spoke low.
 
-“Nice. Perfect place for things to disappear.”
+"Nice. Perfect neighborhood for hiding."
 
-“That’s why everyone comes here.”
+"That's why everyone comes here."
 
-“You too?”
+"You too?"
 
-Sion gave a short laugh.
+Sion laughed briefly.
 
-“I got dragged here.”
+"I was sent. Not my choice."
 
-“That’s the line even you don’t believe.”
+"That line — you believe it least of all."
 
-Instead of answering, he looked up.
-The two men who had left before them had already half-melted into the crowd. Not completely gone yet. One was tall. The other favored his left leg ever so slightly. Sion still didn’t know which one had spoken the word archivist, but neither of them looked like ordinary dock hands.
+Instead of answering, Sion lifted his gaze. The two who'd disembarked ahead were already half-blended into the crowd. Not completely lost. One was tall; the other had a slight limp in the left leg. He still didn't know which one had said *archivist*, but neither looked like a simple worker.
 
-“Left.”
+"Left."
 
-He said it softly.
+Sion said it small.
 
-Seorin did not ask why. She peeled off to the right at once.
-At moments like this they moved like old partners. One found the path, the other cut the angle of sight.
+Seorin didn't ask — she immediately widened to the right. In moments like this, the two moved like old partners. One reads the road; the other splits the field of vision.
 
-Below the outer docking tier, hand-drawn route marks were more common than official signs. Narrow corridors linking storage blocks, unauthorized stairwells, back doors where a face mattered more than a permit. It was the perfect place for one archivist to vanish, and the perfect place for one hunter to blend in as well.
+Below the outer mooring layer, hand-drawn guide lines outnumbered official markers. Thin corridors linking warehouse to warehouse, unlicensed connecting stairs, back doors where a face worked better than a docking permit. Perfect for an archivist to slip into — and equally suited for a pursuer.
 
-The limping man glanced back once.
-Sion dropped his head immediately and slid into a group of passing freight laborers. Had he been a breath slower, he would have been spotted.
+The limping man of the two ahead glanced back once. Sion immediately ducked his head and blended into a passing group of cargo workers. A beat later and he'd have been spotted.
 
-From the other side Seorin clicked her tongue.
+Seorin clicked her tongue from the other side.
 
-“They’ve chased people before too.”
+"Those two have chased people before."
 
-“I know.”
+"I know."
 
-“Great. Such a wholesome port.”
+"What a wholesome port."
 
-They met again at the end of the docking platform.
-The men ahead were heading downward toward the transfer bridges. Beyond that lay temporary lodging rows, cheap bars, and storage sheds that doubled as pawn shops. The kind of district where people vanished faster than records.
+The two reconverged at the end of the mooring layer. The targets were descending toward the lower-level transfer bridge. At the end of that path: temporary lodging blocks, cheap bars, and warehouse-pawnshops. A zone where people vanished before records did.
 
-Watching the direction they had taken, Sion said low,
+Sion looked in that direction and said low:
 
-“If an archivist is hiding, that’s where he’d go.”
+"If it's an archivist, hiding there makes sense."
 
-“Why?”
+"Why."
 
-“Because it’s the last district a man-hunter checks first.”
+"It's the last zone people looking for someone would check."
 
-“But you’re going there.”
+"But you're going."
 
-“I’m a bloodhound.”
+"I'm the bloodhound."
 
-Seorin snorted.
+Seorin smirked.
 
-“Right. There’s the official title.”
+"Good. Official title deployed."
 
-They took the steel staircase down.
-Every groan of the metal beneath their boots made the noise below clearer. Dice rolling. People fighting. Freight tags being haggled over. Someone swearing in another language. This city always ran a little overheated, which was why it devoured more than it should.
+The two took the steel stairs heading down. Every time the iron plate underfoot creaked, the noise from below rose more clearly. Dice rolling, someone fighting, cargo-tag haggling, curses in another language. This city was always slightly overheated, and that was why it swallowed so much.
 
-Halfway down, Sion stopped abruptly.
+Halfway down the stairs, Sion stopped suddenly.
 
-Seorin whispered behind him,
+Seorin whispered from right behind.
 
-“What?”
+"What."
 
-He tipped his chin toward the far end of the plaza.
-Two figures in gray coats were slipping past the pair they had been following. They did not look like brokers. They were too tidy for that. Too silent. They looked less like people sniffing out money and more like people already moving under instruction.
+Sion gestured with his chin toward the far end of the lower plaza. Two people in gray coats were briefly crossing paths with the pair from before. From their marks and movement, they weren't port brokers. Too clean. Too quiet. Less like people sniffing for money — more like people who'd already received instructions.
 
-“Who are those?”
+"Who are those."
 
-“Not just us, then,” Sion answered quietly.
+To Seorin's question, Sion answered low:
 
-Before he had finished speaking, a struggle broke out below.
-The limping man twisted free from someone’s grip, and one of the gray-coated figures drove straight into him. For a split second, something flashed, not quite a knife and not quite a shock baton, but close enough to either.
+"We're not the only ones here."
 
-The crowd burst apart with shouts.
+Before he finished, a short scuffle broke out below. The limping man shook off someone's hand and turned — one of the gray coats immediately dove into his inner space. A blade, a shock baton, something in between — a glint of light, very brief.
 
-“They’re moving.”
+The crowd screamed and split apart.
 
-This time Seorin went first.
-Sion was right behind her, taking the steps two at a time.
+"Run."
 
-The lower plaza collapsed into chaos at once.
-Crates spilled. Bottles shattered. Voices yelled for people to get out of the way. The limping man shoved himself into the crowd, and the two gray-coated pursuers peeled off in separate directions after him.
+Seorin moved first this time. Sion followed, leaping down the stairs two at a time.
 
-Sion ran with his eyes trying to hold all three of them at once.
-He still couldn’t say for certain which was the archivist, which the courier, which the hunter. But one thing was clear.
+The plaza below descended into chaos instantly. Cargo crates spilled, bottles shattered, curses erupted as people shoved for clearance. The limping man pushed himself into the crowd's gaps; the two gray coats pursuing him split in different directions to follow.
 
-**They were already chasing each other over the same thing.**
+Sion tried to track all three while running. Who was the archivist, who was the courier, who was the pursuer — he couldn't be sure yet. But one thing was clear:
 
-Seorin cut right and shouted,
+**They were already chasing each other over the same object.**
 
-“I’m taking the limping one!”
+Seorin cut right and shouted:
 
-“Don’t overdo it!”
+"I'll take the limping one!"
 
-“Then you don’t either!”
+"Don't overdo it!"
 
-Even then, the exchange nearly made Sion laugh.
-It wasn’t funny. But sometimes words like that were the only thing that kept your head in place.
+"You first!"
 
-At the rusted sign tower on the far side of the plaza, the limping man lost his footing and lurched hard.
-Something fell from inside his coat.
+Even in the middle of this, that comeback escaped — and Sion almost laughed. Not the situation for it, but those words in that moment were what kept his head together.
+
+At the far end of the plaza, under a rusted guide tower, the limping man lurched and nearly lost his balance. In that moment, something fell from inside his coat to the ground.
 
 A small record tag.
 
-Sion changed direction instantly.
-He slid across the ground and snatched it up before it could be kicked away under the crowd’s feet. Heat still clung to its surface. It had only just fallen.
+Sion changed direction. He scooped up the tag just before it was kicked under someone's feet — almost sliding — and felt residual heat detection against his fingertips. Freshly dropped.
 
-Someone came after him swearing.
-One of the gray coats.
+Behind him, someone came running with a stream of curses. One of the gray coats.
 
-Without thinking, Sion twisted his body and rolled into a side alley.
-With the tag clenched in one hand, he pressed his back to the wall as the gray-coated figure tore past the alley mouth. He hadn’t been fully lost, only thrown off when the crowd broke again.
+Without time to think, Sion twisted his body and rolled into a side alley. Back against the wall with the tag gripped in his hand, the gray coat swept past the alley entrance. Not completely lost — but the crowd had scattered again, and the pursuer had lost the sightline.
 
 His heart was still hammering.
 
-Seorin slipped in from the opposite passage a moment later.
+Seorin slid in from the opposite connecting corridor.
 
-“You alive?”
+"Alive?"
 
-“Barely.”
+"Barely."
 
-“Lost the limping one.”
+"Lost the limping one."
 
-“But I got this.”
+"But I got this."
 
-He opened his palm.
-The record tag looked like a cheap outer-route freight tag, but one side was marked with a burn-blackened handprint. Part of its ID surface had been scraped away, and along the edge a faint line of familiar punctuation remained.
+Sion opened his hand. The record tag looked like cheap outer-logistics grade, but one side bore a soot-stained handprint. Part of the identification surface was scratched, and along the edge — very faintly — identical punctuation marks had been inscribed.
 
-Still breathing hard, Seorin looked at it.
+Seorin caught her breath and peered at the tag.
 
-“Can you read it?”
+"Readable?"
 
-“The outer layer’s blocked.”
+"Surface is blocked."
 
-“Great. Nothing’s easy today.”
+"Nice. Nothing's been easy today."
 
-Sion turned it over and found a small pressed notch near the opposite corner.
-Not factory-made. A personal seal had been added after the fact.
+Sion flipped the tag and found a tiny pressed groove on the opposite edge. Not a factory lock — more like someone had personally added a second seal.
 
-He pressed it with his thumbnail.
+He pressed the groove with the tip of his fingernail.
 
-The surface quivered once, and a faint projection appeared.
-Not a full sentence. Part of a destination code. Part of a transfer time. And one short line.
+The tag surface trembled for a very brief moment, then a faint projection appeared. Not a complete sentence. Part of a destination code, part of a transfer time window, and one short line.
 
-**Delivery on hold pending confirmation that the archivist is alive.**
+**Delivery on hold until archivist survival confirmed.**
 
-Both of them stopped breathing.
+Both stopped breathing at the same time.
 
-Seorin was the first to curse under her breath.
+Seorin cursed first, low.
 
-“Damn.”
+"No way."
 
-Sion kept his eyes on the projection.
+Sion said without taking his eyes off the projection:
 
-“He’s alive.”
+"Still alive."
 
-“For now.”
+"For now."
 
-“Yeah. For now.”
+"Yeah. For now."
 
-The blue letters warped in the air and vanished.
-The tag went cold again in his hand, as dead as any other object.
+The short blue text wavered in the air and vanished. The tag went cold in his hand again, like a dead object.
 
-But it was enough.
+But it was already enough.
 
-The archivist was not dead.
-At least inside this port, he was still being treated as alive. And someone was refusing to pass something along until that survival was confirmed.
+The archivist wasn't dead. At least in this port, they were still being treated as alive. And someone was holding back a delivery until that survival was confirmed.
+
+Seorin lifted her head first.
+
+"So what are we chasing now. The archivist, or the delivery."
+
+Sion tightened his grip on the tag. This was no longer a pursuit to confirm one person's life or death. Someone needed to be kept alive for the next delivery to proceed — meaning the object, the person, and the sequence were all bound to the same line.
+
+"Both."
+
+"This just got bigger."
+
+"It always gets bigger from here."
+
+Outside the alley, the commotion still continued. Someone was searching for the limping man. Someone was searching for the dropped object. Someone was already preparing to cut their own line and disappear.
+
+Sion watched the gray-toned crowd beyond the alley and exhaled, very slowly.
+
+And right at that moment — on the upper connecting bridge across the plaza — several dark coats passing caught his eye.
+
+Not port workers. Not brokers. Not civilian security. Their gait was too ordered, and they'd arrived too precisely on time.
+
+Seorin followed his gaze upward.
+
+"What's that now."
+
+Sion looked at them briefly, then gripped the tag again.
+
+"A more troublesome scent."
+
+In the middle of the neutral port city's noise, Sion became certain for the first time:
+
+This was no longer something that could be buried inside the Administration. And in this city, other hands — whose faces he didn't yet know — had already entered.
