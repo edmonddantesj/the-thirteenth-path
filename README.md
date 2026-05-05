@@ -40,6 +40,16 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [15. 첫 갈아타기](ko/15_first_transfer.md)
 - [16. 같은 항로 위](ko/16_on_the_same_route.md)
 - [17. 접속점의 얼굴](ko/17_face_at_the_transfer_point.md)
+- [18. 한지우의 배](ko/18_han_jiwoos_ship.md)
+- [19. 죽은 표지](ko/19_dead_marker.md)
+- [20. 남은 쪽의 문턱](ko/20_threshold_of_what_remains.md)
+- [21. 첫 판별](ko/21_first_judgment.md)
+- [22. 남겨진 결](ko/22_grain_left_behind.md)
+- [23. 먼저 지나간 손](ko/23_the_hand_that_passed_first.md)
+- [24. 그림자보다 앞선 손](ko/24_the_hand_ahead_of_the_shadow.md)
+- [25. 모서리 너머의 얼굴](ko/25_the_face_beyond_the_corner.md)
+- [26. 먼저 읽은 자](ko/26_the_one_who_read_first.md)
+- [27. 아직 안 죽은 순서](ko/27_the_order_not_yet_dead.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -60,7 +70,17 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [15. The First Transfer](en/15_first_transfer.md)
 - [16. On the Same Route](en/16_on_the_same_route.md)
 - [17. The Face at the Access Point](en/17_face_at_the_transfer_point.md)
+- [18. Han Jiwoo's Ship](en/18_han_jiwoos_ship.md)
+- [19. Dead Marker](en/19_dead_marker.md)
+- [20. Threshold of What Remains](en/20_threshold_of_what_remains.md)
+- [21. First Judgment](en/21_first_judgment.md)
+- [22. Grain Left Behind](en/22_grain_left_behind.md)
+- [23. The Hand That Passed First](en/23_the_hand_that_passed_first.md)
+- [24. The Hand Ahead of the Shadow](en/24_the_hand_ahead_of_the_shadow.md)
+- [25. The Face Beyond the Corner](en/25_the_face_beyond_the_corner.md)
+- [26. The One Who Read First](en/26_the_one_who_read_first.md)
+- [27. The Order Not Yet Dead](en/27_the_order_not_yet_dead.md)
 
 ## Status
 
-Public archive updated through Episode 17 in both Korean and English.
+Public archive updated through Episode 27 in both Korean and English.
