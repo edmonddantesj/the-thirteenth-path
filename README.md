@@ -50,6 +50,9 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [25. 모서리 너머의 얼굴](ko/25_the_face_beyond_the_corner.md)
 - [26. 먼저 읽은 자](ko/26_the_one_who_read_first.md)
 - [27. 아직 안 죽은 순서](ko/27_the_order_not_yet_dead.md)
+- [28. 이름 없이 열리는 것](ko/28_what_opens_without_a_name.md)
+- [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
+- [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -80,7 +83,10 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [25. The Face Beyond the Corner](en/25_the_face_beyond_the_corner.md)
 - [26. The One Who Read First](en/26_the_one_who_read_first.md)
 - [27. The Order Not Yet Dead](en/27_the_order_not_yet_dead.md)
+- [28. What Opens Without a Name](en/28_what_opens_without_a_name.md)
+- [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
+- [30. The Place Not Owned](en/30_the_place_not_owned.md)
 
 ## Status
 
-Public archive updated through Episode 27 in both Korean and English.
+Public archive updated through Episode 30 in both Korean and English.
