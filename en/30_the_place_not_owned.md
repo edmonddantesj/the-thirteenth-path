@@ -1,231 +1,173 @@
 # Episode 30. The Place Not Owned
 
-Even when the hull had completely pulled away from the structure's outer wall, the air inside had still not shaken off all the tremor of the scene moments ago.
+When the hull fully separated from the structure's outer wall, the air inside had still not shed the tremor of the scene moments before.
 
-Han Jiwoo was moving quickly between the cockpit and the engine panel, reading the state of the ship. One side of the hull's underside had taken residual vibration from the collapse just now, and one external fixed axis was responding more slowly than usual. It was not about to burst immediately, but neither was it in any state to hold out leisurely for long. This ship was optimized right now for barely getting out alive, not for taking a direct route with pursuit attached.
+Jiwoo moved rapidly between the cockpit and engine panel, reading status. One side of the lower hull had absorbed residual vibration from the collapse aftermath, and one external pivot was responding slower than normal. Not about to burst — but not in any state to hold leisurely either. This ship was currently optimized for barely escaping alive, not for riding a direct route with pursuit attached.
 
-"Can't raise speed right away."
-Han Jiwoo said low.
-"If the fixed axis gets pressed one more time, the turning angle goes off."
+"Can't raise speed yet."
+Jiwoo said low.
+"If the pivot gets pressed once more, the turn angle goes off."
 
-Seorin straightened from where she had been leaning against the wall and asked shortly.
+Seorin released her stance from the wall and asked short.
 
-"Pursuit ships."
+"Pursuit."
 
 Sern answered at once.
 
-"No direct response yet. But the afterglow of the discrimination unit restarting remains."
+"No direct response yet. But the discrimination unit's reactivation afterecho remains."
 
 Ater added low.
 
-"Before direct blockade, it is highly likely the surrounding approval network will read the abnormal signal."
+"Before direct blockade, the surrounding approval networks are likely to read the anomaly signal first."
 
-Sion only listened quietly to those words.
+Sion listened to all of that in silence.
 
-There were six people aboard the ship. Until a moment ago, that number itself had felt abnormal, but now, strangely, no one said that fact aloud. Everyone was looking at other problems first. How to pass on the sentence they had read, where to jump before pursuit attached, when and how to open again the larger fragment Kael had brought. Problems that took priority over the number of people had already appeared.
+Six people on the ship. Moments ago that number itself had felt abnormal, yet now strangely no one mentioned it aloud. Everyone was looking at different problems first. How to carry the sentences just read forward; where to bolt before pursuit attached; when and how to reopen the larger fragment Kael brought. Problems that already outranked headcount.
 
-Kael was sitting leaned against the most recessed corner inside the hull. He had not fully settled in, but neither had he braced his body like someone about to jump back down at once. The fragment was still not out of his hand, and his eyes followed the movements of the people inside the hull more often than the darkness outside the slit. It was the gaze of someone who had tilted toward surviving, but had not yet entrusted his body fully to either side.
+Kael sat leaning in the most corner-like space inside the hull. Not fully settled, nor posed like someone about to leap back out. The fragment was still in his hand, and his gaze followed the movement of people inside the hull more often than the darkness beyond the slit. He had leaned toward the surviving side — but his gaze was still that of someone who had not fully entrusted themselves to either direction.
 
 Seorin spoke first.
 
-"Let's cut down the options now."
+"Let's cut options."
 
-Han Jiwoo let out a breath like a snort.
+Jiwoo exhaled something close to a scoff.
 
-"There's nothing to cut down. If we enter a harbor in this state, we'll be marked immediately."
+"Nothing to cut. Walk into a port in this state and we're flagged immediately."
 
-Sern lowered her head slightly.
+Sern lowered his head slightly.
 
-"Correct. If we cause a reaction like that and take a fixed route, whether Imperial side or Alliance side, they can read the pattern quickly."
+"Correct. If we take a fixed route after triggering a reaction like that, either the Empire side or the Alliance side will read the pattern quickly."
 
-Ater arranged it more coldly.
+Ater summarized, colder.
 
-"We must exclude the option of going directly to Elia Vern's repository."
+"The option of going directly to Elia Vern's repository must be excluded."
 
-A short silence.
+Short silence.
 
-No one refuted those words.
+No one disagreed.
 
-Sion leaned his back against the wall, closed his eyes, then opened them. Normally, by now Elia's face would have come to mind first. Someone who could read, who could hide, who knew the grain of the remaining value. Until now, going to that person with the fragment would have been the fastest way. But now it was also a way that could not be taken because it was fast. Now that they had disturbed a reaction this large, a person like Elia, someone capable of reading it, would be among the first things in the enemy's calculations too.
+Sion leaned against the wall, closed his eyes and opened them. Normally, Elia's face would have surfaced first by now. Someone who could read, hide, and know the grain of remaining value. Until now, taking fragments to her had been the fastest path. But right now, fast was exactly why it would not work. Having triggered a reaction this large — someone like Elia, who could read — would be first in the enemy's calculation too.
 
 Seorin said quietly.
 
-"If we go to the repository, it's over."
+"Go to the repository and it's over."
 
 "I know."
-Sion answered shortly too.
-"That was the first thought I had."
+Sion answered short.
+"That was my first thought too."
 
-"That's exactly why we can't."
+"That's why it won't work."
 
-That one sentence was closer to arrangement than reproach.
+That single line was not a rebuke — closer to organization.
 
-At the end of that exchange, Kael cut in for the first time.
+Kael cut in for the first time at the end of that exchange.
 
 "Elia."
 He said in a sunken voice.
-"A reading hand's name?"
+"The reading-hand's name?"
 
-Sion did not immediately deny or affirm it. Only after a brief silence did he say shortly.
+Sion neither confirmed nor denied immediately. After a brief silence, he said short.
 
 "Someone who can read."
 
-Kael did not ask further. Instead, as if that brief answer was enough, he swept his thumb once along the fragment's edge. What mattered now was less who Elia was than the fact itself that such a person was needed.
+Kael did not ask further. Instead, as if that short answer was enough, he swept the fragment's edge once with his thumb. What mattered now was not who Elia was — but the fact itself that such a person was needed.
 
 Ater looked at Sion.
 
-"Is there another way?"
+"Is there another path."
 
-Sion still did not answer at once. Instead he lowered his head slightly as if thinking, and his hand, out of habit, felt through his jacket pocket. His fingertips missed once, then caught on a small piece of paper that had been pressed for a long time between an inner fold.
+Sion was silent for a moment, then pressed his hand against his inner pocket — a reflex. But this time his fingers caught on something that should not have been there. A folded piece of thin paper, slipped in without him noticing when.
 
-Sion's hand stopped for a very brief moment.
+He pulled it out.
 
-Han Jiwoo raised an eyebrow.
+Worn paper, a single fold. Inside — two words in handwriting so small it was almost invisible.
 
-"What is it."
+**Hazran. Aka.**
 
-Sion did not unfold the paper immediately. It was a texture he had never felt before. A piece of paper he had no memory of putting there.
+Sion stared at that paper for a long time without speaking.
 
-Seorin asked first.
+Seorin noticed his expression changing and came closer.
 
-"Is it yours?"
+"What."
 
-"I don't know."
-Sion said low.
-"First time I've seen it."
+Sion did not answer immediately. But Seorin saw the paper. And she immediately knew whose handwriting it was.
 
-Sern lowered his voice.
+"The reading-hand left it?"
 
-"When we came out of the repository, there was one moment when Elia Vern came close."
+Sion held the paper, unable even to fold it back, silent for a moment.
 
-A short silence.
-
-Sion lifted his eyes.
-
-Sern continued.
-
-"I did not realize something had been handed over then. But seeing it now, it seems it was placed there at that time."
-
-This time even Kael took his gaze off the fragment and looked that way. Ater was silently watching only Sion's fingertips, and Sern closed his mouth again.
-
-Only then did Sion slowly unfold the folded paper.
-
-Inside, without any other explanation, only two words were written.
-
-`Hazran`
-
-One line below it.
-
-`Aka`
-
-Han Jiwoo reacted almost reflexively.
-
-"Hazran?"
-Jiwoo breathed out shortly.
-"That desert belt side?"
-
-Sion did not take his eyes off the paper.
-
-"You know it?"
-
-"I know it."
-Han Jiwoo laughed like a snort.
-"A place it's embarrassing to call a harbor. Scrap metal rolls around half-buried in sand, and fake tags move faster than proper ones."
-
-Seorin's expression hardened very slightly, then loosened.
-
-"I remember."
-She said low.
-"A frontier where no one's law reaches all the way. Sand, abandoned hulls, moving markets, smuggled fuel. Easy to hide in, filthy to get out of alive."
-
-Ater looked back and forth between the two lines on the paper.
-
-"What is Aka?"
-
-No one could answer immediately.
-
-Sern said quietly.
-
-"There is a high possibility it is a person's name. But no notation catches immediately in our records."
-
-Kael asked low.
-
-"The reading hand left that?"
-
-Sion was silent for a moment, unable even to fold the paper.
-
-"It's her handwriting."
-He said quietly.
-"But I don't remember her giving it to me."
+"That handwriting."
+He said, small.
+"But I don't remember receiving it."
 
 Seorin looked at Sion briefly.
 
-"She must have known your habit."
+"She would have known your habits."
 
-The words were short, but enough. The habit of his hand going to his pocket first when things became difficult. If she had calculated even a moment like this and placed it there in advance, the lack of explanation was, rather, like her.
+Short words, but enough. The habit of going to the pocket when things got difficult. If she calculated this far ahead and slipped it in beforehand — the lack of explanation was, paradoxically, very like her.
 
-Han Jiwoo looked at the paper once more and said.
+Jiwoo looked at the paper once more and said.
 
-"Nice. One planet, one name. Truly damn Elia-like."
+"Nice. One planet, one name. Filthy Elia-like."
 
-"Even so, we have a direction."
+"But we have a direction now."
 Sern said.
 
-Ater still had not taken his eyes off `Aka`.
+Ater still could not take his eyes from the *Aka* side.
 
-"It is too little."
+"Too little."
 
-"On purpose, probably."
+"On purpose."
 Sion said, folding the paper.
-"Right now, if she'd written more than that, discovery would have been faster."
+"Writing more right now — the side that gets caught would be faster."
 
-Before those words had even ended, Sern's gaze shot toward the panel.
+Before those words even finished, Sern's gaze snapped to the panel.
 
-"Reaction coming."
+"Reaction incoming."
 
-Han Jiwoo turned immediately.
+Jiwoo turned her body immediately.
 
 "What."
 
 "Rear approval network reignition."
-Sern's voice became very low.
-"Pursuit ship. Faster than expected."
+Sern's voice dropped very low.
+"Pursuit vessel. Faster than expected."
 
-The next moment, one side of the hull shook shortly and roughly.
+The next moment, one side of the hull shook — short and rough.
 
-Han Jiwoo flung herself toward the cockpit, breathing out as if swallowing a curse.
+Jiwoo swallowed a curse through her breath and threw herself toward the cockpit.
 
-"Shit, they fired already."
+"Shit — already firing."
 
-The warning sound rang late. One red line spread diagonally over the wall panel. What had just grazed past was not a direct hit, but it meant there was no room left for them to wait.
+The warning tone sounded late. One red line spread diagonally across the wall panel. What had just grazed past was not a direct hit — but it meant there was no patience left to give.
 
-Seorin pulled away from the wall and said shortly.
+Seorin pulled herself from the wall and said short.
 
-"Think later. First, live."
+"Think later. Survive first."
 
-Ater was already pulling the side panel and folding the approval traces, and Sern began reading the pursuit angle. Kael stood from his place and hid the fragment inward. The air inside the hull changed in an instant from the silence of deciding a direction to the silence of bodies moving in order to survive.
+Ater was already pulling the side panel to fold away the approval traces; Sern had begun reading the pursuit angle. Kael rose from his spot and tucked the fragment deeper inside. The cabin air had shifted instantly — from the silence of deciding direction to the silence of bodies moving to stay alive.
 
-Sion said shortly, holding the folded paper.
+Sion gripped the folded paper and said short.
 
-"We go to Hazran."
+"We head for Hazran."
 
-Instead of answering, Han Jiwoo roughly woke the engine.
+Instead of answering, Jiwoo woke the engine rough.
 
-"If the talking's done, hold on tight. From here on, if you fall, you really die."
+"If you're done talking — hold tight. From here, falling off means actually dying."
 
-The hull tilted once, greatly.
+The hull tilted hard.
 
-Until just a moment ago, they had been talking about where they should go. But now there was not even time to consider that. A desert planet, one unknown name, and two words Elia had left behind before disappearing. The pursuit ship gave them no time to hold onto those any longer.
+Moments ago they had been discussing where to go. Now there was no room even for that. A desert planet, one unknown name, and two words Elia had left behind before vanishing. The pursuit vessel did not give them time to hold onto more.
 
-All that remained was not losing direction while they ran.
+All that remained was not losing direction while fleeing.
 
-The hull slowly began to turn its route.
+The hull began turning onto its route, slowly.
 
-It was not a line fleeing straight ahead, but a gray route that deliberately skimmed once toward the wreckage belt of a dead cargo ship, then bent its angle again from there. Anyone could see it was not a fast path. Instead, it was a path that did not leave a single trace, a path that made straight-line pursuit irritating, a path people of the gray zones had long accustomed their bodies to in order to survive.
+Not a line of running straight — but a grey path that deliberately grazed a dead cargo ship debris field, then angled out from there. Obviously not the fast way. Instead: a path that did not leave a single trace; a path that made linear pursuit annoying; the kind of path grey-zone people had learned with their bodies to survive long.
 
-Hazran was not at a distance they could reach immediately. But if they abandoned the fixed route and rode the gray belt behind the heat layer, they could at least blur the pursuit calculations for a while as they approached the frontier side. What they needed now was not fast arrival, but slipping in alive all the way there.
+Hazran was not within immediate reach. But if they abandoned the fixed route and rode the grey belt behind the heat layer, they could blur the pursuit calculation at least for a while during approach toward the frontier. What was needed now was not fast arrival — but sliding in alive.
 
-Outside the slit, a belt of dust brushed past in a long line instead of starlight.
+Through the slit, instead of starlight, a long dust band scraped past.
 
-From there on, it was not a matter of who died first.
-It was a matter of who first reached the place that belonged to no one.
+From there onward, it was no longer a question of who died first.
+It was a question of who reached the place owned by no one — first.

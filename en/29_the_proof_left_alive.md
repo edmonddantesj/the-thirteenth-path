@@ -2,263 +2,155 @@
 
 The sound of collapse followed for a long time.
 
-Even until the three crossed the auxiliary footholds and broken connection sections one after another and escaped back toward the outer ring, the sound of metal striking and splitting continued to echo from the deep darkness below. It was not simple debris falling. It was the sound of part of the discrimination structure, which had barely been holding until moments ago, folding in sequence as they withdrew. If not for the two lines and part of the approval line they had just secured, this site too would have lost its meaning exactly like what had collapsed down there.
+Even as the three vaulted over auxiliary footholds and severed junctions to exit back toward the outer ring, deep below the darkness — metal kept striking and splitting. Not simple debris falling. Part of the discrimination structure that had barely held until moments ago was folding in chain reaction with their departure. If not for the two lines and partial approval section just secured, this entire scene would have lost its meaning alongside what collapsed below.
 
-Sion first fixed his body on the outer foothold. Right behind him, Sern took position while checking again the load line that had not collapsed, and Ater rested a hand against the wall, catching his breath for the briefest moment. Kael kept looking back until the very end, and only after pulling the larger fragment firmly inward against his chest did he move his body outside.
+Sion fixed his body on the external foothold first. Right behind, Sern found his footing tracing load lines that had not collapsed. Ater steadied his breath briefly with a hand against the wall. Kael watched behind him until the very last — then pulled the larger fragment firmly inside his coat before extracting his body outward.
 
-Han Jiwoo's voice came through the close-range channel.
+Jiwoo's voice came through the channel.
 
 "Alive?"
 
-Sion answered shortly.
+Sion answered short.
 
 "Still."
 
-"Then get attached fast."
-Han Jiwoo said.
-"Even the hull holding halfway is nearly done now."
+"Then attach fast."
+Jiwoo said.
+"The hull's half-holding act is almost done."
 
-That was not an exaggeration.
+That was not exaggeration.
 
-The vibration wrapped around the structure's outer wall had grown rougher than before. It meant this boundary section itself was receiving both the aftermath of the discrimination unit's restart and its collapse. What they needed now was not appreciation but withdrawal, and only after that would interpretation barely be possible.
+The vibration wrapping the structure's outer wall was rougher than before. This boundary section was receiving both the discrimination unit's reactivation and the collapse aftermath simultaneously. What was needed now was not reflection but extraction — and only after that, interpretation.
 
-Seorin said low beyond the channel.
+Seorin said from beyond the channel, low.
 
-"Talk later. Everyone back to the ship first."
+"Talk later. Everyone back on the ship first."
 
 This time no one argued.
 
-The short return was more dangerous than pursuit. When they came in, they had still been closer to opening the structure; now, going out, they had to step again on a path that had already shaken once. Sern marked the order of steps first, and Sion followed not the afterglow already beginning to die, but the lines of metal damage and recent traces of weight shifting. Ater no longer read patterns and looked only at the angle of collapse. Kael, at the very rear of the three, kept choosing the position from which he could hold immediately if someone misplaced a foot or the structure twisted one more time.
+The short return was more dangerous than pursuit. Entering, they had still been on the side of opening the structure; exiting now, they had to walk a path already shaken once. Sern traced the foot-sequence first; Sion followed metal damage lines and recent weight-shift marks instead of the already-dying afterglow. Ater no longer read patterns — only watched collapsing angles. Kael, farthest back of the three, was choosing positions where he could immediately brace if someone mistepped or the structure twisted once more.
 
-That brief movement alone made it clear their roles had already changed.
+Even in that short traverse, the shift in roles was visible.
 
-Until moments ago, they had been at distances where they could sever one another. Now, if someone collapsed first, which side had to support them was almost already decided. Too early to call it trust, too quickly interlocked to call it function. But at least inside this scene, they could not deny it.
+Moments ago they had been at the distance of being able to cut each other off; now, who would brace whom if someone collapsed first was nearly decided. Too early to call trust; too quickly meshed to call merely function. But at least within this scene, it could not be denied.
 
-When Sion put his body into the hull slit first, a very faint machine heat brushed past along with the air inside. It was far from complete relief, but the fact that the ground beneath his feet would not immediately drop into space was enough. Sern and Ater came in one after another, and Kael only pushed his body inside the hull after sweeping the outside one more time until the end.
+When Sion pushed his body through the hull slit first, the inside air carried a faint trace of machine heat. Far from complete relief — but the simple fact that the ground would not drop into space was enough. Sern and Ater entered in succession; Kael scanned outside one final time before pushing himself inside last.
 
-Han Jiwoo spat out low as if she had been waiting.
+Jiwoo exhaled low, as if she'd been waiting.
 
 "Good. Now actually breathe."
 
-Seorin stood leaning against the wall and looked over the four who had just entered, one by one. That gaze was closer to confirmation than relief. Whether anyone was badly out of alignment, whether anyone was in no state to be pushed again right now, whether the fragment was still in hand. And finally, all the way to Kael.
+Seorin, leaning against the wall, looked at the four who had just entered, one by one. Her gaze was closer to confirmation than relief. Whether anyone was seriously off; whether anyone was in no state to push again immediately; whether the fragment was still in hand. And last — Kael.
 
-"You didn't drop that."
+"Didn't lose it."
 She said low.
 
 Kael did not set the fragment down.
 
-"If I had, it would've been wasted effort for all of us."
+"If I had, this would all be wasted effort."
 
-Seorin did not answer that. Instead, she turned her gaze toward Sion.
+Seorin did not reply to that. Instead she turned her gaze to Sion.
 
 "Explain."
 
-With that one word, the air inside the hull organized again.
+That single word reorganized the cabin's air.
 
-Sion leaned his back against the wall, caught his breath briefly, and said.
+Sion leaned his back against the wall, steadied one short breath, and said.
 
-"It's not a location."
+"Not a location."
 
-Ater followed immediately.
+Ater followed at once.
 
-"More precisely, it was an approval sequence before coordinates."
+"Precisely — an approval sequence prior to coordinates."
 
-Han Jiwoo frowned.
+Jiwoo frowned.
 
-"Translate."
+"Translation."
 
-This time Sern arranged it.
+This time Sern summarized.
 
-"It means this is not a structure for finding the way to somewhere, but one that can only be passed through in the correct order."
+"Not a path you follow to find somewhere. A structure that can only be passed in the correct sequence."
 
-A short silence.
+Short silence.
 
-Seorin's eyes sank very slightly.
+Seorin's gaze sank, just slightly.
 
-"So that is why it didn't open by finding only the name."
+"So that's why the name alone never opened it."
 
 "Right."
 Sion said low.
-"A name can be the start, but it wasn't proof."
+"The name might be the start — but it was never the proof."
 
-Kael did not cut in even after hearing that. Instead, with one knee raised near the hull floor, he only looked at the edge of the larger fragment still held against him. As if the sentences he had just seen had not yet fully arranged themselves on his side either.
+Kael heard that and did not interject. Instead, one knee propped near the cabin floor, he was still looking at the larger fragment's edge held against his body. As if the sentences just seen were not yet fully organized on his side either.
 
-Ater glanced at him, then said.
+Ater glanced at him and said.
 
-"What we secured is only two lines and part of the approval line. We cannot say we have read the whole structure yet."
+"What we secured is only two lines and a partial approval section. We cannot claim to have read the full structure yet."
 
-"Still much better than before."
-Han Jiwoo said.
-"Before, we were holding onto one name. Now at least we know what got cut out."
+"Still far better than before."
+Jiwoo said.
+"Before we were holding one name. Now at least we know what was cut."
 
-The words were rough, but right.
+The words were rough but right.
 
-Until now, who had been erased had come first. But now, what had been cut away with them was beginning to show. Restoring a name alone was not enough. If the approval sequence and connection structure that name had to pass through were not restored as well, this would remain a half-truth until the end.
+Until now, *who was erased* had come first. But now, *what was severed along with them* was becoming visible. Reinstating the name alone was not enough. Unless the approval sequence and access structure that name was supposed to pass through were also restored — this would remain a half-truth to the end.
 
-Seorin asked very shortly.
+Jiwoo clicked her tongue softly.
 
-"And one more thing."
+"Right. Now there's really no options left."
 
-Sion knew at once what she was about to say.
+Seorin cut across that brief silence.
 
-"Multiple approvals."
-
-This time everyone's gaze went to Ater.
-
-Ater slowly nodded.
-
-"At least two. One is certainly an Imperial approval line. The other was not completely identical to the Alliance either."
-
-Sern's eyes changed minutely.
-
-"Then it is still uncertain who created the structure."
-
-"Yes."
-Ater answered.
-"But what is certain is that the way the current Empire and Alliance explain things cannot explain this structure in full."
-
-Those words landed more heavily in Sion.
-
-It meant that outside the official language moving the current world, another grammar that had not yet died still remained. Perhaps the reason names had been erased, judgments altered, and access sequences severed was ultimately to prevent that grammar from coming alive again.
-
-Silence settled inside the hull for a moment.
-
-And this time Seorin looked at Kael.
-
-"How much did you know."
-
-Kael did not answer immediately.
-
-Until moments ago, that silence on the scene had looked like wariness. Now it was a little different. It was closer to the silence of calculating whether to say more, how far to say it, and what he would give up on his side the moment he spoke.
-
-"I didn't know it wouldn't open by finding only the name."
-He said low.
-"But I knew this wasn't just about finding coordinates."
-
-"How."
-Sion asked.
-
-Kael tapped very briefly with a finger at the end of the pattern on the larger fragment.
-
-"Every fragment I got hold of before was cut off at the same place."
-
-A short silence.
-
-Ater lifted his eyes.
-
-"Fragments?"
-
-Kael paused briefly under that gaze, then in the end did not deny it.
-
-"This isn't the first."
-
-At that one sentence, the air inside the hull changed minutely.
-
-Seorin did not even move an eyebrow, but Sion felt within that short silence that she was already changing priorities again. Han Jiwoo openly narrowed her brow, and Sern rather became quieter. Ater's gaze was caught not on the fragment in Kael's hand, but on the sentence just spoken — `not the first`.
-
-Sion asked low.
-
-"How many."
-
-Kael caught his breath shortly.
-
-"None read properly. Most were dead fragments, and they went out as soon as I touched them."
-He paused briefly, then added.
-"Still, the pattern remained."
-
-"What pattern."
-
-"The pattern that it wasn't the name that had been cut, but the order."
-Kael said calmly.
-"That's why I couldn't just take this one out right away either. If it got cut at the same place again, holding it alone would mean nothing."
-
-Only then did Sion see more clearly the choices Kael had made since the first moment they met beyond the corner.
-
-This person had not suddenly cooperated. He had already hit the same wall several times, and so this time he had no choice but to lean toward confirming other reading hands rather than grabbing it alone and running. Even if that was not trust, it was at least a judgment of reality born from failure.
-
-Han Jiwoo said with her arms crossed.
-
-"Nice. Then there's one conclusion."
-
-When no one answered immediately, Han Jiwoo continued on her own.
-
-"Now you can't go alone, and we can't go without you."
-
-This time too, Kael did not deny it. Instead, he looked briefly outside the slit.
-
-Han Jiwoo did not miss that gaze.
-
-"Why. Did you have something you rode in on outside?"
-
-Kael was silent for a moment, then answered low.
-
-"There was one attached shuttle."
-
-A short silence.
-
-"Was?"
-Sion asked back.
-
-"It broke loose when the reaction came alive a moment ago."
-Kael said calmly.
-"Whether it detached automatically or got swept up in the debris, I can't recover it now."
-
-Han Jiwoo clicked her tongue quietly.
-
-"Right. Now there really aren't any options."
-
-Seorin cut across that short silence.
-
-"Whether this is joining or cooperation, decide later."
+"Whether it's joining or cooperating — decide later."
 She said low.
 "What matters now is not dying before that."
 
 That was right.
 
-Which side Kael was on, how far he would go with them, what his real name was, where the fragments he had found before were. All of them were important issues. But what mattered more right now was passing the two lines and part of the approval line they had just secured to the next interpretation without killing them.
+Whose side Kael was on, how far he would go with them, what his real name was, where the fragments he had previously taken were — all important questions. But what mattered more immediately was carrying the two lines and partial approval section just secured to the next interpretation without killing them.
 
 Ater said low.
 
 "First, we must read."
 
-Sern followed immediately.
+Sern followed at once.
 
-"And we must move. Now that the reaction came alive, this site will not end quietly by itself."
+"And we must move. Now that the reaction came alive, this scene will not end quietly."
 
-Sion lifted his head at those words.
+Sion raised his head at that.
 
-Right. The discrimination unit had worked again, however briefly. There was no way that ended only inside the site. If there were other eyes watching this place, they might already have read the afterecho, and the restart of the discrimination structure had likely shaken the tracking net farther outside as well.
+Correct. The discrimination unit had briefly reactivated. That could not have ended only inside the scene. If other eyes had been watching this place, they might have already read the afterecho. And the discrimination structure's reactivation likely shook the pursuit net further out as well.
 
-Seorin came to the conclusion at once.
+Seorin drew the conclusion immediately.
 
-"Good. Then we go in order."
-Her gaze moved from one person to the next.
-"Han Jiwoo, detach the hull first. Sern, arrange the site reaction just now. Ater, do not lose the sentences you read. Sion."
+"Nice. Then we go in order."
+Her gaze moved to each person in turn.
+"Jiwoo — detach the hull. Sern — organize the scene reaction just now. Ater — do not lose those sentences. Sion."
 
 "I know."
-Sion cut in first.
-"I hear about the remaining fragments from this person."
+Sion cut first.
+"I'll hear what's left of the fragment story from this one."
 
 Seorin looked at Kael last.
 
 "You're still a guest."
 
-Kael did not look offended by that either.
+Kael did not look offended at that.
 
-"As long as you keep me alive, I don't care."
+"Just keep me alive and I don't care."
 
-"That isn't yours to decide."
+"That's not yours to decide."
 
-Kael moved the corner of his mouth very briefly. It was less a smile than an expression close to acknowledging that those words were not wrong.
+Kael moved the corner of his mouth, very briefly. Less a smile — closer to the expression of acknowledging that she was not wrong.
 
-The hull slowly began to pull away from the outer wall.
+The hull began separating from the outer wall, slowly.
 
-The metal tremor rose once, large, and part of the structure the three had been hanging from until moments ago collapsed farther downward, flickering past outside the slit. Now that site might close even deeper than before it had opened again. But it had not vanished completely. The two lines they brought back alive, the larger fragment, and the facts they had just confirmed remained.
+One large metallic tremor rose, and through the slit — part of the structure the three had clung to moments ago fell further below. The scene might now close even deeper than before it was reopened. But it had not vanished entirely. What they had brought back alive remained: two lines, the larger fragment, and the fact just confirmed.
 
-A name does not prove passage.
-Only when the order is correct does the path open.
+*A name does not prove passage.*
+*Only when the sequence is correct does the path open.*
 
-Sion slowly retraced those two sentences inside.
+Sion traced those two sentences slowly inside himself.
 
-What they truly had to chase now was no longer only one person's name.
-It was the entire order that name had needed to pass through.
+What truly needed chasing now was no longer one person's name alone.
+It was the entire sequence that name was supposed to pass through.
