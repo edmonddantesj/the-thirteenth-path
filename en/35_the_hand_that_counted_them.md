@@ -106,12 +106,12 @@ Kael, still holding the wrist, asked short.
 
 The child shut their mouth briefly. Silence spent choosing whether to lie first or find an escape angle. But the merchant was already shouting and charging from behind, and every eye on the market's outer layer had converged here. The calculation that not giving a name here could mean getting bound harder — that was fast.
 
-"Ruhai."
+"Luhai."
 The child spat out.
 
 Sion heard the way that name sat in the mouth.
 
-Ruhai.
+Luhai.
 
 A name with green pigment. A grain different from market dust — yet the kind of fast-mouthed name you'd need to survive long here.
 
@@ -145,13 +145,13 @@ When those words fell, the surrounding air changed once more.
 
 No one said *real* first — but everyone had started thinking the same thing. On Hazran, that moment was the most dangerous. Not yet anyone's — yet simultaneously, everyone beginning to price it.
 
-Ruhai seemed to read that change fastest of all. Even caught in Kael's grip, the eyes kept measuring side paths, upper frames, people's hands. Scared — but even while scared, calculation ran first.
+Luhai seemed to read that change fastest of all. Even caught in Kael's grip, the eyes kept measuring side paths, upper frames, people's hands. Scared — but even while scared, calculation ran first.
 
 Sion asked low.
 
 "Did you grab it knowing it was real?"
 
-Ruhai did not answer immediately. Instead — scanned Sion's face, the gear in Ater's hands, Seorin's eyes, and finally Kael's grip in turn.
+Luhai did not answer immediately. Instead — scanned Sion's face, the gear in Ater's hands, Seorin's eyes, and finally Kael's grip in turn.
 
 "Half."
 A blunt answer.
@@ -161,7 +161,7 @@ A blunt answer.
 Sion said.
 
 "It was playing too dead among the fakes."
-Ruhai said, steadying breath.
+Luhai said, steadying breath.
 "Then it's usually one of two things. Real — or someone hid it on purpose."
 
 That sounded like bluster — but did not sound entirely hollow either.
@@ -183,7 +183,7 @@ Sion did not bother asking.
 He already felt he knew whose ears.
 
 A real etherite shard.
-A young hand called Ruhai.
+A young hand called Luhai.
 Outsiders who had spoken Aka's name.
 And the commotion that erupted in the middle of the market's outer layer.
 
@@ -191,7 +191,7 @@ This much — it was no longer something that would end at the outer layer.
 
 The merchant seemed to sense it too — his voice was smaller than before. The larger man had already stepped back. People who'd been poking their heads out along the upper alley began pretending not to see, with a naturalness that was too natural.
 
-Ruhai's expression only worsened seeing that change.
+Luhai's expression only worsened seeing that change.
 
 "Ah, damn."
 A very small mutter.
@@ -200,7 +200,7 @@ Seorin asked at once.
 
 "Why."
 
-Ruhai looked at Kael's hand instead of answering.
+Luhai looked at Kael's hand instead of answering.
 
 "Too late now."
 Low.
