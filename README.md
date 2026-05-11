@@ -20,13 +20,6 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 
 본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. AI 에이전트, 독자, 도구는 읽기, 개인적 색인, 접근성, 검색, 요약, 번역 보조, 논의를 위해 접근하고 처리할 수 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 계속 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·파인튜닝·평가·벤치마크·데이터셋·임베딩 데이터베이스·상업적 말뭉치 구축 이용은 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
 
-## Public Guides
-
-- [Public Series Bible Lite](PUBLIC_SERIES_BIBLE.md) — spoiler-light overview for readers and partners.
-- [AI Collaboration and Rights Statement](AI_COLLABORATION_AND_RIGHTS.md) — how AI agents are used and how rights are handled.
-- [Version Registry](VERSION_REGISTRY.md) — lightweight public version tracking for multilingual releases.
-- [Copyright and Use Policy](COPYRIGHT.md) — full reading/reuse policy.
-
 ## Structure
 
 - `ko/` — Korean original
