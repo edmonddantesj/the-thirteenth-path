@@ -256,3 +256,7 @@ Ahead — etherite, a person called only Aka, and a market where someone might t
 Hazran did not welcome them.
 
 Instead, it looked like a place that told those who walked in to put their price forward first.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

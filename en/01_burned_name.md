@@ -442,3 +442,7 @@ He exhaled briefly.
 Seorin didn't ask further. Instead, she shifted one step to the side, clearing Sion's blind spot. Ready to run, fight, or turn — at any moment.
 
 And Sion walked up the ramp of the collection vessel — a vessel where someone had cleaned up too hastily, and someone else had watched too quietly.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

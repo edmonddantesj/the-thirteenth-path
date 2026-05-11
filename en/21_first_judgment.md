@@ -219,3 +219,7 @@ Only then did Sion lift his eyes from the structure and nod, very brief.
 The air inside the ship changed again at once. Jiwoo locked the hull at its current angle and checked the external access foothold and retrieval line; Seorin would stay on the ship side, holding the moment to cut and the line back. Meanwhile Sion, Ater, and Sern finished preparations to descend and verify what lay beyond the first judgment directly. Here, who went inside and who held the return position mattered as much as the passage sequence itself.
 
 And from deep inside the structure — like a signal that the next grain was alive — one very faint afterglow trembled again.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

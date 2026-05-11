@@ -159,3 +159,7 @@ All four lowered their breath at once.
 And right then — from the darkness ahead, metal scraped against metal, very shallow.
 
 As if someone had not yet gotten far.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

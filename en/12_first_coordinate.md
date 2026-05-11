@@ -211,3 +211,7 @@ Outside, port noise still lived, and this repository was no eternal refuge eithe
 But at least in this moment, for the first time, what lay before the four was not mere survival but a direction.
 
 And that direction was making them ask — beyond who erased the name — who had tried to erase the path as well.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

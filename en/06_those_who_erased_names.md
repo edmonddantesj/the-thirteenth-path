@@ -292,3 +292,7 @@ The four pushed their bodies into the crack behind the preservation room wall wi
 And in that moment — the Empire closed from above, and the Alliance and the port's dirty hands began seeping in from below.
 
 The instant Jun Aster's name resurfaced, all four who had seen it were sliding into the same pursuit net.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

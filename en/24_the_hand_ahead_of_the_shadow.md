@@ -177,3 +177,7 @@ And in that exact moment — from beyond the corner, one very short, shallow bre
 Three gazes converged on that darkness's end simultaneously, and the silence beyond the channel hardened with them.
 
 The hand that took the larger fragment first — was truly still right beyond there.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

@@ -190,3 +190,7 @@ Ater picked up, quiet, as if continuing.
 "Then the choice is one of two. Confirm deeper inside first — or bite the trace that's emerged right now."
 
 And before the five — what was opening was not simple ruin exploration, but a true next stage: chasing who had read this path first, and who had fled holding the larger fragment.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

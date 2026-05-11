@@ -193,3 +193,7 @@ Sion looked at them briefly, then gripped the tag again.
 In the middle of the neutral port city's noise, Sion became certain for the first time:
 
 This was no longer something that could be buried inside the Administration. And in this city, other hands — whose faces he didn't yet know — had already entered.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

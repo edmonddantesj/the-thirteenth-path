@@ -171,3 +171,7 @@ Not the humidity and noise of the port's interior — the colder, emptier air of
 The moment they crossed this boundary, Empire blockade and the port's inner protection would both weaken together. In return, getting caught meant disappearing more quietly. A section where traces vanished easily — cut clean from both official ledgers and floor trades.
 
 And the four — having followed a name this far — now had to follow a severed path even farther.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

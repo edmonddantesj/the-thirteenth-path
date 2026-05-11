@@ -243,3 +243,7 @@ Seorin's eyes had already read the same.
 "Nice."
 She said, very low.
 "Now it really starts."
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

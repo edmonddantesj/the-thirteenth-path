@@ -286,3 +286,7 @@ A name they had thought erased — returning, unburned to the end, from the dead
 And right then, from somewhere deeper inside the preservation room, the sound of an automatic preservation device waking — very low — began to hum.
 
 As if to say: it was not over yet.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

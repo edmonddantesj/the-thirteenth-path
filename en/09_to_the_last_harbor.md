@@ -229,3 +229,7 @@ Sion pressed his inner pocket once more without thinking, and Ater felt it clear
 The handle turned.
 
 And the four stood at the threshold of the place where erased things flowed in one last time, before vanishing entirely.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

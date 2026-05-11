@@ -230,3 +230,7 @@ The ship moved further and further out.
 Not a formal route — a bypass line treading dead markers, connections remaining only as traces instead of names.
 
 And at the end of that route, the first real trace of the erased path was waiting.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

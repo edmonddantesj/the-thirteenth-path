@@ -197,3 +197,7 @@ Quiet settled over the cabin again.
 But this quiet was not the silence of waiting — it was closer to the silence between people reading the same signal, each in their own way.
 
 And at the end of that silence, one thing was becoming clear to everyone: the first marker of the erased path had not yet fully died.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

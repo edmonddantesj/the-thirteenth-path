@@ -177,3 +177,7 @@ As the distance between structure and hull shrank, no one inside the cabin spoke
 And the moment those five senses converged on a single point for the first time — the first real threshold of the erased path began opening its mouth before them, quietly.
 
 From now, the cost of failure was different too. Getting caught meant not simply running again — it meant the first scene for confirming who had severed this path would die. So this approach was not exploration. It was the first discrimination that would set the price of everything after.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

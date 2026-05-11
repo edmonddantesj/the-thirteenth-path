@@ -229,3 +229,7 @@ Open wrong, and it ends.
 But not opening now also ends.
 
 And right then — the discrimination unit that had nearly died came alive one more time, very faintly.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

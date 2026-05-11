@@ -213,3 +213,7 @@ The market's outer-layer noise had not fully stopped — yet that direction alon
 Someone was coming.
 
 Not a hand arriving to watch the commotion — but a hand coming to personally count who had touched the wrong price.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

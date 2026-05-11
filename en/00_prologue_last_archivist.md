@@ -92,3 +92,7 @@ quietly came awake.
 Whether it was one person's last escape line
 or the remains of something far older —
 no one yet knew.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).

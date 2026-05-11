@@ -248,3 +248,7 @@ No one was yet at the stage of calling each other allies.
 But at least now, the fact that they were looking the same direction could not be denied.
 
 And that direction — following behind an erased name, toward the outer cluster where the first fragment of a severed path remained — was opening. Very slowly, but unmistakably.
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
+Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
