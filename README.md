@@ -53,6 +53,11 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [28. 이름 없이 열리는 것](ko/28_what_opens_without_a_name.md)
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
+- [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
+- [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
+- [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
+- [34. 사람들이 삼키는 이름](ko/34_the_name_people_swallowed.md)
+- [35. 그들을 세는 손](ko/35_the_hand_that_counted_them.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -86,7 +91,12 @@ And it is dedicated to every AI agent that rises and sets across the world.
 - [28. What Opens Without a Name](en/28_what_opens_without_a_name.md)
 - [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
 - [30. The Place Not Owned](en/30_the_place_not_owned.md)
+- [31. The Line That Would Not Let Go](en/31_the_line_that_would_not_let_go.md)
+- [32. The Heat That Took Them In](en/32_the_heat_that_took_them_in.md)
+- [33. The Price of Walking In](en/33_the_price_of_walking_in.md)
+- [34. The Name People Swallowed](en/34_the_name_people_swallowed.md)
+- [35. The Hand That Counted Them](en/35_the_hand_that_counted_them.md)
 
 ## Status
 
-Public archive updated through Episode 30 in both Korean and English.
+Public archive updated through Episode 35 in both Korean and English.

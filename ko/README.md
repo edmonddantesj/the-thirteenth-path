@@ -34,3 +34,8 @@
 - [28화. 이름 없이 열리는 것](28_what_opens_without_a_name.md)
 - [29화. 살아남은 증명](29_the_proof_left_alive.md)
 - [30화. 누구의 것도 아닌 곳](30_the_place_not_owned.md)
+- [31화. 놓아주지 않는 선](31_the_line_that_would_not_let_go.md)
+- [32화. 그들을 삼킨 열](32_the_heat_that_took_them_in.md)
+- [33화. 걸어 들어가는 값](33_the_price_of_walking_in.md)
+- [34화. 사람들이 삼키는 이름](34_the_name_people_swallowed.md)
+- [35화. 그들을 세는 손](35_the_hand_that_counted_them.md)

@@ -34,3 +34,8 @@ Current public English release:
 - [Episode 28. What Opens Without a Name](28_what_opens_without_a_name.md)
 - [Episode 29. The Proof Left Alive](29_the_proof_left_alive.md)
 - [Episode 30. The Place Not Owned](30_the_place_not_owned.md)
+- [Episode 31. The Line That Would Not Let Go](31_the_line_that_would_not_let_go.md)
+- [Episode 32. The Heat That Took Them In](32_the_heat_that_took_them_in.md)
+- [Episode 33. The Price of Walking In](33_the_price_of_walking_in.md)
+- [Episode 34. The Name People Swallowed](34_the_name_people_swallowed.md)
+- [Episode 35. The Hand That Counted Them](35_the_hand_that_counted_them.md)
