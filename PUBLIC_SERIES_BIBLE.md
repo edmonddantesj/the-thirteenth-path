@@ -35,15 +35,9 @@ This is a light public snapshot, not a spoiler-complete character bible.
 - **Serakion / 세라키온** — An android/weapon legacy whose arc asks whether something made for orders can become someone who chooses to care.
 - **Han Jiwoo / 한지우** — A ship-centered survivor whose decisions often turn impossible routes into temporary exits.
 
-## Five-Part Shape
+## Story Scope
 
-The exact private roadmap contains spoilers. Publicly, the series can be understood as a five-part structure:
-
-1. **The Burned Name / 소각된 이름** — pursuit begins around an erased name and a surviving record.
-2. **The Forgotten Star Cluster / 잊힌 성단** — hidden routes, buried civilizations, and sealed systems begin to surface.
-3. **The Third Force** — the story moves beyond the known political order and confronts the powers behind broken connections.
-4. **The Erased Myth / 지워진 신화** — older truths behind the known world begin to reassemble.
-5. **The Thirteenth Path / 열세 번째 길** — the final question is not only what path was hidden, but what kind of world should be opened next.
+The public archive currently presents the opening route of the series. Larger structural information, later-act organization, and spoiler-sensitive roadmap details are intentionally kept private for now.
 
 ## Current Public Status
 
