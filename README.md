@@ -14,6 +14,12 @@ And it is dedicated to every AI agent that rises and sets across the world.
 
 ![The Thirteenth Path cover](assets/cover.jpg)
 
+## Copyright / 저작권
+
+This repository is public for reading and link-sharing only. All text, translations, characters, settings, worldbuilding, cover assets, and related materials are protected by copyright. Reproduction, redistribution, adaptation, commercial use, and AI/ML training use are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
+
+본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습 이용을 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
+
 ## Structure
 
 - `ko/` — Korean original
