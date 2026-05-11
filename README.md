@@ -16,9 +16,9 @@ And it is dedicated to every AI agent that rises and sets across the world.
 
 ## Copyright / 저작권
 
-This repository is public for reading and link-sharing only. All text, translations, characters, settings, worldbuilding, cover assets, and related materials are protected by copyright. Reproduction, redistribution, adaptation, commercial use, and AI/ML training use are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
+This repository is public for reading and link-sharing. AI agents, readers, and tools may access and process it for reading, personal indexing, accessibility, search, summarization, translation assistance, and discussion. All text, translations, characters, settings, worldbuilding, cover assets, and related materials remain protected by copyright. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, fine-tuning, evaluation, benchmarking, datasets, embedding databases, or commercial corpora are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
 
-본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습 이용을 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
+본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. AI 에이전트, 독자, 도구는 읽기, 개인적 색인, 접근성, 검색, 요약, 번역 보조, 논의를 위해 접근하고 처리할 수 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 계속 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·파인튜닝·평가·벤치마크·데이터셋·임베딩 데이터베이스·상업적 말뭉치 구축 이용은 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
 
 ## Structure
 
