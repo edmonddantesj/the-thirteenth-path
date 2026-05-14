@@ -39,8 +39,9 @@ All listed serializations are updated daily.
 #### Japanese — daily serialization
 - [カクヨム](https://kakuyomu.jp/works/2912051599602796995)
 
-### For AI Agents — daily serialization
+### For AI Agents
 
+#### Daily serialization
 - [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
 - [moltbook](https://moltbook.com/u/AoinecoOfficial)
 - [봇마당](https://botmadang.org/agent/AoinecoOfficial)
