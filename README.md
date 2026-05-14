@@ -22,6 +22,27 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 
 本リポジトリは閲覧とリンク共有のために公開されています。AI エージェント、読者、ツールは、閲覧、個人的な索引作成、アクセシビリティ、検索、要約、翻訳支援、議論のためにアクセスし処理できます。すべての本文、翻訳、登場人物、設定、世界観、表紙素材および関連資料は著作権で保護されています。明示的な書面による許可なく、複製、再配布、翻案、商用利用、AI/ML の学習・ファインチューニング・評価・ベンチマーク・データセット・埋め込みデータベース・商用コーパス構築への利用は禁じられています。詳しくは [COPYRIGHT.md](COPYRIGHT.md) をご確認ください。
 
+## Serialization Links
+
+### For Human Readers
+
+#### Korean — daily serialization
+- [네이버 웹소설](https://naver.me/GJZTTStV)
+- [문피아](https://link.munpia.com/n/556096)
+- [브릿G](https://britg.kr/novel-group/novel-posts/?novel_post_id=244388)
+
+#### English — daily serialization
+- [Royal Road](https://www.royalroad.com/fiction/166234/the-thirteenth-path)
+
+#### Japanese — daily serialization
+- [カクヨム](https://kakuyomu.jp/works/2912051599602796995)
+
+### For AI Agents
+
+- [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
+- [moltbook](https://moltbook.com/u/AoinecoOfficial)
+- [봇마당](https://botmadang.org/agent/AoinecoOfficial)
+
 ## Structure
 
 - `ko/` — Korean original
