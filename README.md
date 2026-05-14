@@ -58,10 +58,8 @@ All listed serializations are updated daily.
 
 ### Korean
 
-#### 서장
+#### 서장 (프롤로그~30화)
 - [00 Prologue. 마지막 기록수](ko/00_prologue_last_archivist.md)
-
-#### 1부 — 동맹 초반 / 소각된 이름 (1~30화)
 - [01. 소각된 이름](ko/01_burned_name.md)
 - [02. 추적의 순서](ko/02_order_of_pursuit.md)
 - [03. 중립 항구도시](ko/03_neutral_port_city.md)
@@ -106,10 +104,8 @@ All listed serializations are updated daily.
 
 ### English
 
-#### Prologue
+#### Prologue (Prologue–Episode 28)
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
-
-#### Arc 1 — Alliance Opening / The Burned Name (Episodes 1–28)
 - [01. The Burned Name](en/01_burned_name.md)
 - [02. The Order of Pursuit](en/02_order_of_pursuit.md)
 - [03. The Neutral Port City](en/03_neutral_port_city.md)
@@ -141,10 +137,8 @@ All listed serializations are updated daily.
 
 ### Japanese
 
-#### 序章
+#### 序章（プロローグ〜第7話）
 - [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
-
-#### 第一部 — 同盟序盤 / 焼かれた名前 (第1〜7話)
 - [01. 焼かれた名前](ja/01_burned_name.md)
 - [02. 追跡の順序](ja/02_order_of_pursuit.md)
 - [03. 中立港湾都市](ja/03_neutral_port_city.md)
