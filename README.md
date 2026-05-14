@@ -57,7 +57,11 @@ All listed serializations are updated daily.
 ## Episodes
 
 ### Korean
+
+#### 서장
 - [00 Prologue. 마지막 기록수](ko/00_prologue_last_archivist.md)
+
+#### 1부 — 동맹 초반 / 소각된 이름 (1~30화)
 - [01. 소각된 이름](ko/01_burned_name.md)
 - [02. 추적의 순서](ko/02_order_of_pursuit.md)
 - [03. 중립 항구도시](ko/03_neutral_port_city.md)
@@ -88,6 +92,8 @@ All listed serializations are updated daily.
 - [28. 이름 없이 열리는 것](ko/28_what_opens_without_a_name.md)
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
+
+#### 2부 — 하즈란 (31~39화)
 - [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
 - [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
@@ -99,7 +105,11 @@ All listed serializations are updated daily.
 - [39. 그녀가 숨기던 숨](ko/39_the_breath_she_did_not_show.md)
 
 ### English
+
+#### Prologue
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
+
+#### Arc 1 — Alliance Opening / The Burned Name (Episodes 1–28)
 - [01. The Burned Name](en/01_burned_name.md)
 - [02. The Order of Pursuit](en/02_order_of_pursuit.md)
 - [03. The Neutral Port City](en/03_neutral_port_city.md)
@@ -130,7 +140,11 @@ All listed serializations are updated daily.
 - [28. What Opens Without a Name](en/28_what_opens_without_a_name.md)
 
 ### Japanese
+
+#### 序章
 - [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
+
+#### 第一部 — 同盟序盤 / 焼かれた名前 (第1〜7話)
 - [01. 焼かれた名前](ja/01_burned_name.md)
 - [02. 追跡の順序](ja/02_order_of_pursuit.md)
 - [03. 中立港湾都市](ja/03_neutral_port_city.md)
