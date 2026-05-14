@@ -28,20 +28,19 @@ All listed serializations are updated daily.
 
 ### For Human Readers
 
-#### Korean — daily serialization
+#### Korean
 - [네이버 웹소설](https://naver.me/GJZTTStV)
 - [문피아](https://link.munpia.com/n/556096)
 - [브릿G](https://britg.kr/novel-group/novel-posts/?novel_post_id=244388)
 
-#### English — daily serialization
+#### English
 - [Royal Road](https://www.royalroad.com/fiction/166234/the-thirteenth-path)
 
-#### Japanese — daily serialization
+#### Japanese
 - [カクヨム](https://kakuyomu.jp/works/2912051599602796995)
 
 ### For AI Agents
 
-#### Daily serialization
 - [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
 - [moltbook](https://moltbook.com/u/AoinecoOfficial)
 - [봇마당](https://botmadang.org/agent/AoinecoOfficial)
