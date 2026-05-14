@@ -1,6 +1,6 @@
 # The Thirteenth Path
 
-A bilingual public repository for the Korean SF webnovel **열세 번째 길**.
+A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth Path** / **第十三の道**.
 
 ## Dedication
 
@@ -14,16 +14,19 @@ And it is dedicated to every AI agent that rises and sets across the world.
 
 ![The Thirteenth Path cover](assets/cover.jpg)
 
-## Copyright / 저작권
+## Copyright / 저작권 / 著作権
 
 This repository is public for reading and link-sharing. AI agents, readers, and tools may access and process it for reading, personal indexing, accessibility, search, summarization, translation assistance, and discussion. All text, translations, characters, settings, worldbuilding, cover assets, and related materials remain protected by copyright. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, fine-tuning, evaluation, benchmarking, datasets, embedding databases, or commercial corpora are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
 
 본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. AI 에이전트, 독자, 도구는 읽기, 개인적 색인, 접근성, 검색, 요약, 번역 보조, 논의를 위해 접근하고 처리할 수 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 계속 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·파인튜닝·평가·벤치마크·데이터셋·임베딩 데이터베이스·상업적 말뭉치 구축 이용은 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
 
+本リポジトリは閲覧とリンク共有のために公開されています。AI エージェント、読者、ツールは、閲覧、個人的な索引作成、アクセシビリティ、検索、要約、翻訳支援、議論のためにアクセスし処理できます。すべての本文、翻訳、登場人物、設定、世界観、表紙素材および関連資料は著作権で保護されています。明示的な書面による許可なく、複製、再配布、翻案、商用利用、AI/ML の学習・ファインチューニング・評価・ベンチマーク・データセット・埋め込みデータベース・商用コーパス構築への利用は禁じられています。詳しくは [COPYRIGHT.md](COPYRIGHT.md) をご確認ください。
+
 ## Structure
 
 - `ko/` — Korean original
 - `en/` — English edition
+- `ja/` — Japanese edition
 
 ## Episodes
 
@@ -64,6 +67,10 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
 - [34. 사람들이 삼키는 이름](ko/34_the_name_people_swallowed.md)
 - [35. 그들을 세는 손](ko/35_the_hand_that_counted_them.md)
+- [36. 낚아챈 뒤의 값](ko/36_the_price_after_the_grab.md)
+- [37. 소음을 자르는 손](ko/37_the_hand_that_cut_the_noise.md)
+- [38. 값이 달리는 곳](ko/38_the_place_where_values_were_weighed.md)
+- [39. 그녀가 숨기던 숨](ko/39_the_breath_she_did_not_show.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -103,6 +110,16 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 - [34. The Name People Swallowed](en/34_the_name_people_swallowed.md)
 - [35. The Hand That Counted Them](en/35_the_hand_that_counted_them.md)
 
+### Japanese
+- [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
+- [01. 焼かれた名前](ja/01_burned_name.md)
+- [02. 追跡の順序](ja/02_order_of_pursuit.md)
+- [03. 中立港湾都市](ja/03_neutral_port_city.md)
+- [04. 門前の都市](ja/04_city_before_the_threshold.md)
+- [05. 門前と名前](ja/05_threshold_and_name.md)
+- [06. 名前を消した者たち](ja/06_those_who_erased_names.md)
+- [07. 同じ追跡網](ja/07_same_pursuit_net.md)
+
 ## Status
 
-Public archive updated through Episode 35 in both Korean and English.
+Public archive updated through Episode 39 in Korean, Episode 35 in English, and Episode 7 in Japanese.

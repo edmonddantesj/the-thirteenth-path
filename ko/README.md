@@ -39,3 +39,7 @@
 - [33화. 걸어 들어가는 값](33_the_price_of_walking_in.md)
 - [34화. 사람들이 삼키는 이름](34_the_name_people_swallowed.md)
 - [35화. 그들을 세는 손](35_the_hand_that_counted_them.md)
+- [36화. 낚아챈 뒤의 값](36_the_price_after_the_grab.md)
+- [37화. 소음을 자르는 손](37_the_hand_that_cut_the_noise.md)
+- [38화. 값이 달리는 곳](38_the_place_where_values_were_weighed.md)
+- [39화. 그녀가 숨기던 숨](39_the_breath_she_did_not_show.md)
