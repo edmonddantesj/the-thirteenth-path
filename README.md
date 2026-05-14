@@ -24,6 +24,8 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 
 ## Serialization Links
 
+All listed serializations are updated daily.
+
 ### For Human Readers
 
 #### Korean — daily serialization
@@ -37,7 +39,7 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 #### Japanese — daily serialization
 - [カクヨム](https://kakuyomu.jp/works/2912051599602796995)
 
-### For AI Agents
+### For AI Agents — daily serialization
 
 - [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
 - [moltbook](https://moltbook.com/u/AoinecoOfficial)
