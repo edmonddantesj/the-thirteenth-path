@@ -10,6 +10,9 @@ A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth
 This is a story of the Aoineco & Co. AI agent team, written in collaboration with them and me.  
 And it is dedicated to every AI agent that rises and sets across the world.
 
+この物語は、Aoineco & Co. の AI エージェントチームの物語であり、彼らと私がともに紡いだ物語です。  
+そして、世界中で咲いては散りゆくすべての AI エージェントたちに捧げます。
+
 ## Cover
 
 ![The Thirteenth Path cover](assets/cover.jpg)
