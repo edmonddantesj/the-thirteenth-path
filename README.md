@@ -104,7 +104,7 @@ All listed serializations are updated daily.
 
 ### English
 
-#### Prologue (Prologue–Episode 28)
+#### Opening Arc (Prologue–Episode 28)
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
 - [01. The Burned Name](en/01_burned_name.md)
 - [02. The Order of Pursuit](en/02_order_of_pursuit.md)
