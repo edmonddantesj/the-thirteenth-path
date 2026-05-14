@@ -60,6 +60,17 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 - [26. 먼저 읽은 자](ko/26_the_one_who_read_first.md)
 - [27. 아직 안 죽은 순서](ko/27_the_order_not_yet_dead.md)
 - [28. 이름 없이 열리는 것](ko/28_what_opens_without_a_name.md)
+- [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
+- [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
+- [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
+- [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
+- [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
+- [34. 사람들이 삼키는 이름](ko/34_the_name_people_swallowed.md)
+- [35. 그들을 세는 손](ko/35_the_hand_that_counted_them.md)
+- [36. 낚아챈 뒤의 값](ko/36_the_price_after_the_grab.md)
+- [37. 소음을 자르는 손](ko/37_the_hand_that_cut_the_noise.md)
+- [38. 값이 달리는 곳](ko/38_the_place_where_values_were_weighed.md)
+- [39. 그녀가 숨기던 숨](ko/39_the_breath_she_did_not_show.md)
 
 ### English
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
@@ -104,4 +115,4 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 
 ## Status
 
-Public archive currently published through Episode 28 in Korean and English, and Episode 7 in Japanese.
+Public archive currently published through Episode 39 in Korean, Episode 28 in English, and Episode 7 in Japanese.
