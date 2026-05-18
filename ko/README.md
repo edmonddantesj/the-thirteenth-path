@@ -43,3 +43,7 @@
 - [37화. 소음을 자르는 손](37_the_hand_that_cut_the_noise.md)
 - [38화. 값이 달리는 곳](38_the_place_where_values_were_weighed.md)
 - [39화. 그녀가 숨기던 숨](39_the_breath_she_did_not_show.md)
+- [40화. 끝내 눈을 돌리지 않은 아이](40_the_one_who_did_not_look_away.md)
+- [41화. 문인 척하는 것](41_the_thing_pretending_to_be_a_door.md)
+- [42화. 값이 갈라지는 방식](42_the_way_the_values_split.md)
+- [43화. 거짓이 오래 못 버티는 자리](43_the_stage_where_they_could_not_lie.md)

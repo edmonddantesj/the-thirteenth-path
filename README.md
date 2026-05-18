@@ -91,7 +91,7 @@ All listed serializations are updated daily.
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
 
-#### 2부 — 하즈란 (31~39화)
+#### 2부 — 하즈란 (31~43화)
 - [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
 - [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
@@ -101,10 +101,14 @@ All listed serializations are updated daily.
 - [37. 소음을 자르는 손](ko/37_the_hand_that_cut_the_noise.md)
 - [38. 값이 달리는 곳](ko/38_the_place_where_values_were_weighed.md)
 - [39. 그녀가 숨기던 숨](ko/39_the_breath_she_did_not_show.md)
+- [40. 끝내 눈을 돌리지 않은 아이](ko/40_the_one_who_did_not_look_away.md)
+- [41. 문인 척하는 것](ko/41_the_thing_pretending_to_be_a_door.md)
+- [42. 값이 갈라지는 방식](ko/42_the_way_the_values_split.md)
+- [43. 거짓이 오래 못 버티는 자리](ko/43_the_stage_where_they_could_not_lie.md)
 
 ### English
 
-#### Opening Arc (Prologue–Episode 28)
+#### Opening Arc (Prologue–Episode 30)
 - [00 Prologue. The Last Archivist](en/00_prologue_last_archivist.md)
 - [01. The Burned Name](en/01_burned_name.md)
 - [02. The Order of Pursuit](en/02_order_of_pursuit.md)
@@ -134,10 +138,20 @@ All listed serializations are updated daily.
 - [26. The One Who Read First](en/26_the_one_who_read_first.md)
 - [27. The Order Not Yet Dead](en/27_the_order_not_yet_dead.md)
 - [28. What Opens Without a Name](en/28_what_opens_without_a_name.md)
+- [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
+- [30. The Place Not Owned](en/30_the_place_not_owned.md)
+
+#### Part 2 — Hazran (Episodes 31–36)
+- [31. The Line That Would Not Let Go](en/31_the_line_that_would_not_let_go.md)
+- [32. The Heat That Took Them In](en/32_the_heat_that_took_them_in.md)
+- [33. The Price of Walking In](en/33_the_price_of_walking_in.md)
+- [34. The Name People Swallowed](en/34_the_name_people_swallowed.md)
+- [35. The Hand That Counted Them](en/35_the_hand_that_counted_them.md)
+- [36. The Price After the Grab](en/36_the_price_after_the_grab.md)
 
 ### Japanese
 
-#### 序章（プロローグ〜第7話）
+#### 序章（プロローグ〜第15話）
 - [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
 - [01. 焼かれた名前](ja/01_burned_name.md)
 - [02. 追跡の順序](ja/02_order_of_pursuit.md)
@@ -146,7 +160,15 @@ All listed serializations are updated daily.
 - [05. 門前と名前](ja/05_threshold_and_name.md)
 - [06. 名前を消した者たち](ja/06_those_who_erased_names.md)
 - [07. 同じ追跡網](ja/07_same_pursuit_net.md)
+- [08. 同じ船室](ja/08_shared_compartment.md)
+- [09. 最後の港へ](ja/09_to_the_last_harbor.md)
+- [10. 一緒に来たんじゃない](ja/10_not_together_but_chased.md)
+- [11. 残された順序](ja/11_the_remaining_order.md)
+- [12. 最初の欠片の座標](ja/12_first_coordinate.md)
+- [13. 出発線](ja/13_departure_line.md)
+- [14. 外へ抜ける道](ja/14_the_way_out.md)
+- [15. 最初の乗り換え](ja/15_first_transfer.md)
 
 ## Status
 
-Public archive currently published through Episode 39 in Korean, Episode 28 in English, and Episode 7 in Japanese.
+Public archive currently published through Episode 43 in Korean, Episode 36 in English, and Episode 15 in Japanese.
