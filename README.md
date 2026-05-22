@@ -35,6 +35,7 @@ All listed serializations are updated daily.
 - [네이버 웹소설](https://naver.me/GJZTTStV)
 - [문피아](https://link.munpia.com/n/556096)
 - [브릿G](https://britg.kr/novel-group/novel-posts/?novel_post_id=244388)
+- [밀리로드](https://www.millie.co.kr/v4/millieRoad/37242)
 
 #### English
 - [Royal Road](https://www.royalroad.com/fiction/166234/the-thirteenth-path)
@@ -91,7 +92,7 @@ All listed serializations are updated daily.
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
 
-#### 2부 — 하즈란 (31~43화)
+#### 2부 — 하즈란 (31~47화)
 - [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
 - [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
@@ -105,6 +106,10 @@ All listed serializations are updated daily.
 - [41. 문인 척하는 것](ko/41_the_thing_pretending_to_be_a_door.md)
 - [42. 값이 갈라지는 방식](ko/42_the_way_the_values_split.md)
 - [43. 거짓이 오래 못 버티는 자리](ko/43_the_stage_where_they_could_not_lie.md)
+- [44. 목소리를 높이지 않는 사람](ko/44_the_man_who_did_not_raise_his_voice.md)
+- [45. 증명을 요구하는 규칙](ko/45_the_rule_that_asked_for_proof.md)
+- [46. 손의 값이 달리는 곳](ko/46_the_place_where_hands_were_weighed.md)
+- [47. 처음 불린 이름](ko/47_the_name_called_first.md)
 
 ### English
 
@@ -141,17 +146,25 @@ All listed serializations are updated daily.
 - [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
 - [30. The Place Not Owned](en/30_the_place_not_owned.md)
 
-#### Part 2 — Hazran (Episodes 31–36)
+#### Part 2 — Hazran (Episodes 31–44)
 - [31. The Line That Would Not Let Go](en/31_the_line_that_would_not_let_go.md)
 - [32. The Heat That Took Them In](en/32_the_heat_that_took_them_in.md)
 - [33. The Price of Walking In](en/33_the_price_of_walking_in.md)
 - [34. The Name People Swallowed](en/34_the_name_people_swallowed.md)
 - [35. The Hand That Counted Them](en/35_the_hand_that_counted_them.md)
 - [36. The Price After the Grab](en/36_the_price_after_the_grab.md)
+- [37. The Hand That Cut the Noise](en/37_the_hand_that_cut_the_noise.md)
+- [38. The Place Where Values Were Weighed](en/38_the_place_where_values_were_weighed.md)
+- [39. The Breath She Did Not Show](en/39_the_breath_she_did_not_show.md)
+- [40. The One Who Did Not Look Away](en/40_the_one_who_did_not_look_away.md)
+- [41. The Thing Pretending to Be a Door](en/41_the_thing_pretending_to_be_a_door.md)
+- [42. The Way the Values Split](en/42_the_way_the_values_split.md)
+- [43. The Stage Where They Could Not Lie](en/43_the_stage_where_they_could_not_lie.md)
+- [44. The Man Who Did Not Raise His Voice](en/44_the_man_who_did_not_raise_his_voice.md)
 
 ### Japanese
 
-#### 序章（プロローグ〜第15話）
+#### 序章（プロローグ〜第23話）
 - [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
 - [01. 焼かれた名前](ja/01_burned_name.md)
 - [02. 追跡の順序](ja/02_order_of_pursuit.md)
@@ -168,7 +181,15 @@ All listed serializations are updated daily.
 - [13. 出発線](ja/13_departure_line.md)
 - [14. 外へ抜ける道](ja/14_the_way_out.md)
 - [15. 最初の乗り換え](ja/15_first_transfer.md)
+- [16. 同じ航路の上で](ja/16_on_the_same_route.md)
+- [17. 接続点の顔](ja/17_face_at_the_transfer_point.md)
+- [18. ハン・ジウの船](ja/18_han_jiwoos_ship.md)
+- [19. 死んだ標識](ja/19_dead_marker.md)
+- [20. 残った側の敷居](ja/20_threshold_of_what_remains.md)
+- [21. 最初の判別](ja/21_first_judgment.md)
+- [22. 残された結](ja/22_grain_left_behind.md)
+- [23. 先に通った手](ja/23_the_hand_that_passed_first.md)
 
 ## Status
 
-Public archive currently published through Episode 43 in Korean, Episode 36 in English, and Episode 15 in Japanese.
+Public archive currently published through Episode 47 in Korean, Episode 44 in English, and Episode 23 in Japanese.
