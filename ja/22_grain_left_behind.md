@@ -190,3 +190,8 @@
 「であれば選択は二つですね。ここでさらに奥を先に確かめるか、今出た痕跡をすぐ追うか」
 
 そして五人の前には、単なる遺跡探査ではなく、誰がこの道を先に読み、誰がもっと大きな欠片を握ったまま逃げたかを追う、本当の次の段階が開きつつあった。
+
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.
+읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](https://github.com/edmonddantesj/the-thirteenth-path/blob/main/COPYRIGHT.md)를 확인해 주세요.

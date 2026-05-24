@@ -252,3 +252,8 @@
 
 여기까지 왔을 때도 그 두 단어뿐이었는데,
 이제는 그 두 단어가 다음 판 전체를 여는 열쇠처럼 느껴지고 있었다.
+
+---
+
+© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.
+읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](https://github.com/edmonddantesj/the-thirteenth-path/blob/main/COPYRIGHT.md)를 확인해 주세요.
