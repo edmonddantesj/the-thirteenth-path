@@ -195,8 +195,8 @@ Elia rested her fingertip on the fragment and swept her gaze over the four, one 
 A different silence than before.
 No one had yet spoken the next question aloud — but everyone knew, in this silence, that someone would eventually have to ask it.
 
-And in that moment, the work of reclaiming an erased name began, for the first time, to look like the work of touching an entirely different world.
+## And in that moment, the work of reclaiming an erased name began, for the first time, to look like the work of touching an entirely different world.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

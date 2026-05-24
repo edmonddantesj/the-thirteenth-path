@@ -170,8 +170,8 @@ But right now, inside this small repository, the four stood before a different k
 Jun Aster's name had returned.
 What remained was to follow who had erased the sequence before and after that name — and why that sequence had to be rewritten.
 
-And that was already no longer any one person's problem alone.
+## And that was already no longer any one person's problem alone.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

@@ -164,9 +164,8 @@
 그리고 왜 엘리아가 아무 설명 없이 `하즈란`과 `아카` 두 단어만 남겼는지,
 조금은 더 가까이 보게 될 것이다.
 
-그 안쪽 어디엔가,
-아카가 있었다.
+## 그 안쪽 어디엔가,<br>아카가 있었다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

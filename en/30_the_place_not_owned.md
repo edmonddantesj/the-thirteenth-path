@@ -169,9 +169,8 @@ Hazran was not within immediate reach. But if they abandoned the fixed route and
 
 Through the slit, instead of starlight, a long dust band scraped past.
 
-From there onward, it was no longer a question of who died first.
-It was a question of who reached the place owned by no one — first.
+## From there onward, it was no longer a question of who died first.<br>It was a question of who reached the place owned by no one — first.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

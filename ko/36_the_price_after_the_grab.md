@@ -214,9 +214,8 @@
 
 골목 입구 그림자 너머에서, 검은 천 아래 단단한 팔 하나가 먼저 보였다.
 
-그리고 그 뒤로,
-사람보다 통제를 먼저 믿는 눈이 천천히 이쪽을 향해 들어오고 있었다.
+## 그리고 그 뒤로,<br>사람보다 통제를 먼저 믿는 눈이 천천히 이쪽을 향해 들어오고 있었다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

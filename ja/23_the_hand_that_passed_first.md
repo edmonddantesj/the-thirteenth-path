@@ -158,9 +158,8 @@
 
 そしてまさにそのとき、前方の暗がりの中で金属がごく浅くかすめる音がした。
 
-誰かがまだ遠くへは行けていないとでも言うように。
+## 誰かがまだ遠くへは行けていないとでも言うように。
 
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](https://github.com/edmonddantesj/the-thirteenth-path/blob/main/COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>閲覧とリンク共有のみ許可されています。複製、再配布、翻案、商用利用、AI/ML の学習・データセット作成・モデル構築への利用は、明示的な書面による許可なく禁止されています。詳しくは <a href="../COPYRIGHT.md">COPYRIGHT.md</a> をご確認ください。</sub>

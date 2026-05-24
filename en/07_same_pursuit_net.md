@@ -275,8 +275,8 @@ But at least — in this moment — they had caught the outside air first.
 
 And Sion realized it only then.
 
-From the instant they had seen Jun Aster's name, these four were no longer people from separate worlds — they had become people passing through the same pursuit net. And probably, only those who had seen the same fragment would be driven, in the end, down the same road.
+## From the instant they had seen Jun Aster's name, these four were no longer people from separate worlds — they had become people passing through the same pursuit net. And probably, only those who had seen the same fragment would be driven, in the end, down the same road.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

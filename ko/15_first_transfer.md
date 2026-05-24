@@ -209,8 +209,8 @@
 중립 항구도시를 벗어나 외곽 성단 쪽으로.  
 지워진 이름의 뒤를 쫓아, 잘려나간 길의 첫 조각을 따라.
 
-이제 정말로, 돌아오는 것보다 가는 쪽이 먼저가 된 순간이었다.
+## 이제 정말로, 돌아오는 것보다 가는 쪽이 먼저가 된 순간이었다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

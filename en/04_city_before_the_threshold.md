@@ -205,8 +205,8 @@ And at that moment — from inside the mouth of the R-12 debris access bridge, i
 
 As if someone inside had not yet fully left. A signal.
 
-Sion and Seorin, Ater and Sern — not yet knowing each other's faces — had finally arrived before the same threshold.
+## Sion and Seorin, Ater and Sern — not yet knowing each other's faces — had finally arrived before the same threshold.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

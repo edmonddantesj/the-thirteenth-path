@@ -213,8 +213,8 @@ No one denied it.
 The corner and the discrimination unit, the dying reaction and the larger fragment, and a person who had seen the sequence severed before the name.
 Between these five and that one person, at least one commonality had now formed.
 
-Everyone already knew: alone, they could go no further from here.
+## Everyone already knew: alone, they could go no further from here.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

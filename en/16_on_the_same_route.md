@@ -220,9 +220,8 @@ Those words had been said to Sion — but at the same time, to himself.
 Only Sern still had his eyes open.
 He did not never-sleep, but in situations like this, he knew: staying awake last was always his share.
 
-The ship kept running through the dark.
-The destination was still far — but the place to return to had already grown farther.
+## The ship kept running through the dark.<br>The destination was still far — but the place to return to had already grown farther.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

@@ -181,13 +181,8 @@
 
 그 문장이 떨어지자, 시온은 이 판이 단순한 내부 검증으로 끝나지 않으리라는 걸 직감했다. 자히르는 바깥층 시장까지 포함한 하즈란 전체를 무대로 삼을 생각이었다. 누가 진짜를 들 수 있는지, 누가 가짜에 끌려가는지, 누가 이름과 물건과 조각과 공포를 동시에 감당할 수 있는지.
 
-그리고 그 판 끝에,
-에테라이트도,
-아카도,
-자신들이 쫓아온 흉내의 정체도,
-전부 한 번 더 크게 흔들릴 거였다.
+## 그리고 그 판 끝에,<br>에테라이트도,<br>아카도,<br>자신들이 쫓아온 흉내의 정체도,<br>전부 한 번 더 크게 흔들릴 거였다.
 
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](https://github.com/edmonddantesj/the-thirteenth-path/blob/main/COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

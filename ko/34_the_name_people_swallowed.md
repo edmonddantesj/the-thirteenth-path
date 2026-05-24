@@ -243,10 +243,8 @@
 
 서린도 이미 같은 걸 읽은 눈이었다.
 
-“좋아.”
-그녀가 아주 낮게 말했다.
-“이제 진짜 시작이네.”
+## “좋아.”<br>그녀가 아주 낮게 말했다.<br>“이제 진짜 시작이네.”
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

@@ -228,8 +228,8 @@
 잘못 열면 끝난다.
 하지만 지금 안 열어도 끝난다.
 
-그리고 바로 그때, 죽기 직전까지 갔던 판별부가 아주 희미하게 다시 한 번 살아났다.
+## 그리고 바로 그때, 죽기 직전까지 갔던 판별부가 아주 희미하게 다시 한 번 살아났다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

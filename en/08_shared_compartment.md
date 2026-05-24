@@ -293,8 +293,8 @@ Seorin said one last thing, short.
 "Nice.
 So — who explains first?"
 
-With those words, the first shared compartment of four people pressed together for survival finally began to shift into a place for real conversation.
+## With those words, the first shared compartment of four people pressed together for survival finally began to shift into a place for real conversation.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

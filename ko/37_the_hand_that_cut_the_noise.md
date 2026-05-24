@@ -255,9 +255,8 @@
 
 대신 이제는 분명해지고 있었다.
 
-이 이름은 찾는다고 끝나는 이름이 아니라,
-잘못 찾으면 그대로 먹히는 이름이라는 걸.
+## 이 이름은 찾는다고 끝나는 이름이 아니라,<br>잘못 찾으면 그대로 먹히는 이름이라는 걸.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

@@ -86,13 +86,8 @@ He watched that light until the end, then spoke even lower.
 
 The corridor went dark.
 
-And somewhere in the neutral port city,
-an old preservation path that no one had recorded as open
-quietly came awake.
-Whether it was one person's last escape line
-or the remains of something far older —
-no one yet knew.
+## And somewhere in the neutral port city,<br>an old preservation path that no one had recorded as open<br>quietly came awake.<br>Whether it was one person's last escape line<br>or the remains of something far older —<br>no one yet knew.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

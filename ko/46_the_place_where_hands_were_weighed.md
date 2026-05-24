@@ -142,10 +142,8 @@
 이제 남은 건,
 누가 제일 먼저 그 판 위로 올라서게 되느냐였다.
 
-그리고 시온은 이상하게도 그 첫 이름이,
-자기 쪽에서 나올 수도 있다는 예감을 지울 수 없었다.
+## 그리고 시온은 이상하게도 그 첫 이름이,<br>자기 쪽에서 나올 수도 있다는 예감을 지울 수 없었다.
 
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](https://github.com/edmonddantesj/the-thirteenth-path/blob/main/COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

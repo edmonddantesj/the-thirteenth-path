@@ -260,9 +260,8 @@
 
 시온은 그 두 문장을 속으로 천천히 되짚었다.
 
-이제 진짜로 쫓아야 하는 건 한 사람의 이름만이 아니었다.
-그 이름이 지나가야 했던 순서 전체였다.
+## 이제 진짜로 쫓아야 하는 건 한 사람의 이름만이 아니었다.<br>그 이름이 지나가야 했던 순서 전체였다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

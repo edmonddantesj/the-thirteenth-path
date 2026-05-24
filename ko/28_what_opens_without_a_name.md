@@ -227,9 +227,8 @@
 
 다들 알고 있었다.
 
-방금 이들이 연 건 문 하나가 아니었다.
-이름보다 먼저 잘려 나간 순서가 실제로 존재했다는 첫 증명이었다.
+## 방금 이들이 연 건 문 하나가 아니었다.<br>이름보다 먼저 잘려 나간 순서가 실제로 존재했다는 첫 증명이었다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

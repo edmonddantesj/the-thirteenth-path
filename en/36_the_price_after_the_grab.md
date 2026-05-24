@@ -212,8 +212,8 @@ Who was coming, why everyone reacted this way — his body already knew.
 
 From beyond the alley entrance's shadow — one firm arm beneath black cloth showed first.
 
-And behind it — eyes that believed in control before people were slowly turning this way, entering.
+## And behind it — eyes that believed in control before people were slowly turning this way, entering.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are not permitted without explicit written permission. See [COPYRIGHT.md](../COPYRIGHT.md).
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

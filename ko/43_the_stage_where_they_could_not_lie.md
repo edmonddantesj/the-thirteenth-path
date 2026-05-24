@@ -144,9 +144,8 @@
 여기까지 온 이상,
 이제 누구도 이전처럼 거짓을 오래 붙들고 있을 순 없을 거였다.
 
-그리고 그 안쪽에는,
-드디어 판을 쥔 손이 기다리고 있을 것이다.
+## 그리고 그 안쪽에는,<br>드디어 판을 쥔 손이 기다리고 있을 것이다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>

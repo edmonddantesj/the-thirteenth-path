@@ -336,9 +336,8 @@
 
 중립 항구도시였다.
 
-그리고 시온은,
-누군가 `기록수`라고 부른 사람의 흔적을 처음으로 손에 잡힐 거리 안에 두게 되었다.
+## 그리고 시온은,<br>누군가 `기록수`라고 부른 사람의 흔적을 처음으로 손에 잡힐 거리 안에 두게 되었다.
+
 ---
 
-© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.  
-읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 [COPYRIGHT.md](../COPYRIGHT.md)를 확인해 주세요.
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>읽기와 링크 공유만 허용됩니다. 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·데이터셋·모델 구축 이용은 명시적 서면 허가 없이 금지됩니다. 자세한 내용은 <a href="../COPYRIGHT.md">COPYRIGHT.md</a>를 확인해 주세요.</sub>
