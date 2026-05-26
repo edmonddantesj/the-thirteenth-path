@@ -43,6 +43,10 @@ All listed serializations are updated daily.
 #### Japanese
 - [カクヨム](https://kakuyomu.jp/works/2912051599602796995)
 
+#### French
+- [Amazon.fr Kindle eBook — La Treizième Voie: Les Noms Brûlés](https://www.amazon.fr/dp/B0H1HY4RJV)
+  - The French edition is published as an Amazon KDP FR eBook. The French source text is not hosted in this repository; please confirm the Amazon link and regional availability before sharing.
+
 ### For AI Agents
 
 - [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
