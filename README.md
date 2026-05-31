@@ -96,7 +96,7 @@ All listed serializations are updated daily.
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
 
-#### 2부 — 하즈란 (31~47화)
+#### 2부 — 하즈란 (31~56화)
 - [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
 - [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
@@ -114,6 +114,15 @@ All listed serializations are updated daily.
 - [45. 증명을 요구하는 규칙](ko/45_the_rule_that_asked_for_proof.md)
 - [46. 손의 값이 달리는 곳](ko/46_the_place_where_hands_were_weighed.md)
 - [47. 처음 불린 이름](ko/47_the_name_called_first.md)
+- [48. 값이 외쳐지는 질주](ko/48_the_run_where_values_were_shouted.md)
+- [49. 많은 것이 깨진 붉은 활주대](ko/49_the_red_glide_where_the_many_broke.md)
+- [50. 열린 것처럼 보인 길들](ko/50_the_paths_that_looked_open.md)
+- [51. 살아 있는 척하는 불빛들](ko/51_the_flames_that_pretended_to_live.md)
+- [52. 규칙이 먼저 휘어진 순간](ko/52_the_moment_the_rule_bent.md)
+- [53. 판이 경기이기를 그만둔 자리](ko/53_the_field_that_stopped_being_a_game.md)
+- [54. 무너지는 쪽만 보이던 길](ko/54_the_route_that_only_the_falling_could_see.md)
+- [55. 진짜를 쥔 손만 버티는 선](ko/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [56. 사냥이 닫히기 전 합류](ko/56_the_merge_before_the_hunt_closed.md)
 
 ### English
 
@@ -150,7 +159,7 @@ All listed serializations are updated daily.
 - [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
 - [30. The Place Not Owned](en/30_the_place_not_owned.md)
 
-#### Part 2 — Hazran (Episodes 31–44)
+#### Part 2 — Hazran (Episodes 31–56)
 - [31. The Line That Would Not Let Go](en/31_the_line_that_would_not_let_go.md)
 - [32. The Heat That Took Them In](en/32_the_heat_that_took_them_in.md)
 - [33. The Price of Walking In](en/33_the_price_of_walking_in.md)
@@ -165,10 +174,22 @@ All listed serializations are updated daily.
 - [42. The Way the Values Split](en/42_the_way_the_values_split.md)
 - [43. The Stage Where They Could Not Lie](en/43_the_stage_where_they_could_not_lie.md)
 - [44. The Man Who Did Not Raise His Voice](en/44_the_man_who_did_not_raise_his_voice.md)
+- [45. The Rule That Asked for Proof](en/45_the_rule_that_asked_for_proof.md)
+- [46. The Place Where Hands Were Weighed](en/46_the_place_where_hands_were_weighed.md)
+- [47. The Name Called First](en/47_the_name_called_first.md)
+- [48. The Run Where Values Were Shouted](en/48_the_run_where_values_were_shouted.md)
+- [49. The Red Glide Where the Many Broke](en/49_the_red_glide_where_the_many_broke.md)
+- [50. The Paths That Looked Open](en/50_the_paths_that_looked_open.md)
+- [51. The Flames That Pretended to Live](en/51_the_flames_that_pretended_to_live.md)
+- [52. The Moment the Rule Bent](en/52_the_moment_the_rule_bent.md)
+- [53. The Field That Stopped Being a Game](en/53_the_field_that_stopped_being_a_game.md)
+- [54. The Route That Only the Falling Could See](en/54_the_route_that_only_the_falling_could_see.md)
+- [55. The Line That Only Those Carrying Truth Could Hold](en/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [56. The Merge Before the Hunt Closed](en/56_the_merge_before_the_hunt_closed.md)
 
 ### Japanese
 
-#### 序章（プロローグ〜第23話）
+#### 序章（プロローグ〜第30話）
 - [00 Prologue. 最後の記録手](ja/00_prologue_last_archivist.md)
 - [01. 焼かれた名前](ja/01_burned_name.md)
 - [02. 追跡の順序](ja/02_order_of_pursuit.md)
@@ -193,7 +214,27 @@ All listed serializations are updated daily.
 - [21. 最初の判別](ja/21_first_judgment.md)
 - [22. 残された結](ja/22_grain_left_behind.md)
 - [23. 先に通った手](ja/23_the_hand_that_passed_first.md)
+- [第二十四話　影より先の手](ja/24_the_hand_ahead_of_the_shadow.md)
+- [第二十五話　角の向こうの顔](ja/25_the_face_beyond_the_corner.md)
+- [第二十六話　先に読んだ者](ja/26_the_one_who_read_first.md)
+- [第二十七話　まだ死んでいない順序](ja/27_the_order_not_yet_dead.md)
+- [第二十八話　名前なきまま開くもの](ja/28_what_opens_without_a_name.md)
+- [第二十九話　生き残った証明](ja/29_the_proof_left_alive.md)
+- [第三十話　誰のものでもない場所](ja/30_the_place_not_owned.md)
+
+#### 第二部 — ハズラン（第31話〜第41話）
+- [第三十一話　放さない線](ja/31_the_line_that_would_not_let_go.md)
+- [第三十二話　彼らを呑んだ熱](ja/32_the_heat_that_took_them_in.md)
+- [第三十三話　歩いて入る値](ja/33_the_price_of_walking_in.md)
+- [第三十四話　人々が呑み込む名前](ja/34_the_name_people_swallowed.md)
+- [第三十五話　彼らを数える手](ja/35_the_hand_that_counted_them.md)
+- [第三十六話　掴み取った後の値](ja/36_the_price_after_the_grab.md)
+- [第三十七話　騒音を断つ手](ja/37_the_hand_that_cut_the_noise.md)
+- [第三十八話　値が量られる場所](ja/38_the_place_where_values_were_weighed.md)
+- [第三十九話　彼女が隠していた息](ja/39_the_breath_she_did_not_show.md)
+- [第四十話　最後まで目を逸らさなかった子](ja/40_the_one_who_did_not_look_away.md)
+- [第四十一話　門のふりをするもの](ja/41_the_thing_pretending_to_be_a_door.md)
 
 ## Status
 
-Public archive currently published through Episode 47 in Korean, Episode 44 in English, and Episode 23 in Japanese.
+Public archive currently published through Episode 56 in Korean, Episode 56 in English, and Episode 41 in Japanese.
