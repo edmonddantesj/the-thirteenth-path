@@ -45,7 +45,7 @@ All listed serializations are updated daily.
 
 #### French
 - [Amazon.fr Kindle eBook — La Treizième Voie: Les Noms Brûlés](https://www.amazon.fr/dp/B0H1HY4RJV)
-  - The French edition is published as an Amazon KDP FR eBook. The French source text is not hosted in this repository; please confirm the Amazon link and regional availability before sharing.
+  - Also serialized here in `fr/` (free). The French edition is additionally available as a paid Amazon KDP FR eBook.
 
 ### For AI Agents
 
@@ -58,6 +58,7 @@ All listed serializations are updated daily.
 - `ko/` — Korean original
 - `en/` — English edition
 - `ja/` — Japanese edition
+- `fr/` — French edition
 - `zh/` — Chinese (Simplified) edition
 
 ## Episodes
@@ -291,6 +292,41 @@ All listed serializations are updated daily.
 - [第二十九章 存活下来的证明](zh/29_the_proof_left_alive.md)
 - [第三十章 不属于任何人的地方](zh/30_the_place_not_owned.md)
 
+### French
+
+#### Arc d'ouverture (Prologue–Épisode 30)
+- [Prologue — Le Dernier Archiviste](fr/00_prologue_last_archivist.md)
+- [Chapitre 1 — Le nom brûlé](fr/01_burned_name.md)
+- [Chapitre 2 — L'Ordre de la traque](fr/02_order_of_pursuit.md)
+- [Chapitre 3 — La chasse au port neutre](fr/03_neutral_port_city.md)
+- [Chapitre 4 — La convergence R-12](fr/04_city_before_the_threshold.md)
+- [Chapitre 5 — Le seuil et le nom](fr/05_threshold_and_name.md)
+- [Chapitre 6 — Ceux qui effacèrent les noms](fr/06_those_who_erased_names.md)
+- [Chapitre 7 — Le même filet](fr/07_same_pursuit_net.md)
+- [Chapitre 8 — La même cabine](fr/08_shared_compartment.md)
+- [Chapitre 9 — Vers le dernier port](fr/09_to_the_last_harbor.md)
+- [Chapitre 10 — Pas ensemble, mais traqués](fr/10_not_together_but_chased.md)
+- [Chapitre 11 — L'ordre restant](fr/11_the_remaining_order.md)
+- [Chapitre 12 — La coordonnée du premier fragment](fr/12_first_coordinate.md)
+- [Chapitre 13 — La ligne de départ](fr/13_departure_line.md)
+- [Chapitre 14 — La sortie](fr/14_the_way_out.md)
+- [Chapitre 15 — Le premier transfert](fr/15_first_transfer.md)
+- [Chapitre 16 — Sur la même route](fr/16_on_the_same_route.md)
+- [Chapitre 17 — Le visage au point de transfert](fr/17_face_at_the_transfer_point.md)
+- [Chapitre 18 — Le vaisseau de Jiwoo](fr/18_han_jiwoos_ship.md)
+- [Chapitre 19 — La balise morte](fr/19_dead_marker.md)
+- [Chapitre 20 — Le seuil de ce qui reste](fr/20_threshold_of_what_remains.md)
+- [Chapitre 21 — Le premier jugement](fr/21_first_judgment.md)
+- [Chapitre 22 — Le grain laissé derrière](fr/22_grain_left_behind.md)
+- [Chapitre 23 — La main passée en premier](fr/23_the_hand_that_passed_first.md)
+- [Chapitre 24 — La main en avance sur l'ombre](fr/24_the_hand_ahead_of_the_shadow.md)
+- [Chapitre 25 — Le visage au-delà du coin](fr/25_the_face_beyond_the_corner.md)
+- [Chapitre 26 — Celui qui a lu en premier](fr/26_the_one_who_read_first.md)
+- [Chapitre 27 — L'ordre pas encore mort](fr/27_the_order_not_yet_dead.md)
+- [Chapitre 28 — Ce qui s'ouvre sans nom](fr/28_what_opens_without_a_name.md)
+- [Chapitre 29 — La preuve restée vivante](fr/29_the_proof_left_alive.md)
+- [Chapitre 30 — Le lieu qui n'appartient à personne](fr/30_the_place_not_owned.md)
+
 ## Status
 
-Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 51 in Japanese, and Episode 30 in Chinese (Simplified).
+Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 51 in Japanese, Episode 30 in French, and Episode 30 in Chinese (Simplified).
