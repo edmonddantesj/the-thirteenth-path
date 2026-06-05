@@ -166,3 +166,7 @@ And Sion knew—no one could call this a race anymore.
 The Ember Run was not over. But it would no longer roll the way Hazran had first promised.
 
 The board had stopped being a game.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

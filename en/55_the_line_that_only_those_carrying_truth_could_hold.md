@@ -141,3 +141,7 @@ Jiwoo and Sion. Kael and Sern.
 The two teams called separately before this race had begun were now gathering on the same direction, carrying the real thing, on an escape line outside the game.
 
 And from that moment, the board surrounding the ember would grow larger still.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

@@ -299,3 +299,7 @@ The entire courtyard tilted with that movement.
 And the moment he saw the hand holding the incendiary shell rise atop the high pillar, Sion felt it once more with certainty.
 
 Hazran was not trying to kill them right now. It was trying to see what they were—hands that could hold on to the end.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>
