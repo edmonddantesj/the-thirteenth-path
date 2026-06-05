@@ -55,4 +55,3 @@
 - [第四十九話　多くが砕けた赤い滑走台](49_the_red_glide_where_the_many_broke.md)
 - [第五十話　開いているように見えた道](50_the_paths_that_looked_open.md)
 - [第五十一話　生きているふりをする灯り](51_the_flames_that_pretended_to_live.md)
-- [第五十二話　規則が先に歪んだ瞬間](52_the_moment_the_rule_bent.md)

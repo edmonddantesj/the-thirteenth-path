@@ -65,4 +65,3 @@
 - [59화. 살아서 돌아온 손들](59_the_hands_that_came_back_alive.md)
 - [60화. 판 앞으로 다시 들고 온 값](60_the_price_paid_back_to_the_stage.md)
 - [61화. 끝까지 본 뒤에야 준 말](61_the_word_she_gave_after_watching.md)
-- [62화. 그녀가 끝내 보여 준 안쪽](62_the_inside_she_finally_showed.md)
