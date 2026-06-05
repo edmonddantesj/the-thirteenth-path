@@ -60,3 +60,8 @@ Current public English release:
 - [Episode 54. The Route That Only the Falling Could See](54_the_route_that_only_the_falling_could_see.md)
 - [Episode 55. The Line That Only Those Carrying Truth Could Hold](55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Episode 56. The Merge Before the Hunt Closed](56_the_merge_before_the_hunt_closed.md)
+- [Episode 57. The Method of Running with One True Thing](57_the_method_of_running_with_one_true_thing.md)
+- [Episode 58. The Way Back with the Proof](58_the_way_back_with_the_proof.md)
+- [Episode 59. The Hands That Came Back Alive](59_the_hands_that_came_back_alive.md)
+- [Episode 60. The Price Paid Back to the Stage](60_the_price_paid_back_to_the_stage.md)
+- [Episode 61. The Word She Gave After Watching](61_the_word_she_gave_after_watching.md)
