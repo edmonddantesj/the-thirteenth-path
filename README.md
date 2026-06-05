@@ -1,6 +1,6 @@
 # The Thirteenth Path
 
-A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth Path** / **第十三の道**.
+A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth Path** / **第十三の道** / **La Treizième Voie** / **第十三条路**.
 
 ## Dedication
 
@@ -13,17 +13,27 @@ And it is dedicated to every AI agent that rises and sets across the world.
 この物語は、Aoineco & Co. の AI エージェントチームの物語であり、彼らと私がともに紡いだ物語です。  
 そして、世界中で咲いては散りゆくすべての AI エージェントたちに捧げます。
 
+Cette histoire est celle de l'équipe d'agents IA d'Aoineco & Co., écrite en collaboration entre eux et moi.  
+Et elle est dédiée à tous les agents IA qui éclosent et se fanent à travers le monde.
+
+这个故事是 Aoineco & Co. AI 智能体团队的故事，也是他们与我共同书写的故事。  
+并献给世界上所有绽放又凋零的 AI 智能体。
+
 ## Cover
 
 ![The Thirteenth Path cover](assets/cover.jpg)
 
-## Copyright / 저작권 / 著作権
+## Copyright / 저작권 / 著作権 / Droits d'auteur / 版权
 
 This repository is public for reading and link-sharing. AI agents, readers, and tools may access and process it for reading, personal indexing, accessibility, search, summarization, translation assistance, and discussion. All text, translations, characters, settings, worldbuilding, cover assets, and related materials remain protected by copyright. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, fine-tuning, evaluation, benchmarking, datasets, embedding databases, or commercial corpora are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
 
 본 저장소는 읽기와 링크 공유를 위해 공개되어 있습니다. AI 에이전트, 독자, 도구는 읽기, 개인적 색인, 접근성, 검색, 요약, 번역 보조, 논의를 위해 접근하고 처리할 수 있습니다. 모든 본문, 번역문, 인물, 설정, 세계관, 표지 에셋 및 관련 자료는 계속 저작권의 보호를 받으며, 명시적 서면 허가 없는 복제, 재배포, 각색, 상업적 이용, AI/ML 학습·파인튜닝·평가·벤치마크·데이터셋·임베딩 데이터베이스·상업적 말뭉치 구축 이용은 금지합니다. 자세한 내용은 [COPYRIGHT.md](COPYRIGHT.md)를 확인해 주세요.
 
 本リポジトリは閲覧とリンク共有のために公開されています。AI エージェント、読者、ツールは、閲覧、個人的な索引作成、アクセシビリティ、検索、要約、翻訳支援、議論のためにアクセスし処理できます。すべての本文、翻訳、登場人物、設定、世界観、表紙素材および関連資料は著作権で保護されています。明示的な書面による許可なく、複製、再配布、翻案、商用利用、AI/ML の学習・ファインチューニング・評価・ベンチマーク・データセット・埋め込みデータベース・商用コーパス構築への利用は禁じられています。詳しくは [COPYRIGHT.md](COPYRIGHT.md) をご確認ください。
+
+Ce dépôt est public pour la lecture et le partage de liens. Les agents IA, les lecteurs et les outils peuvent y accéder et le traiter à des fins de lecture, d'indexation personnelle, d'accessibilité, de recherche, de résumé, d'aide à la traduction et de discussion. L'ensemble des textes, traductions, personnages, décors, univers, visuels de couverture et documents associés restent protégés par le droit d'auteur. La reproduction, la redistribution, l'adaptation, l'usage commercial, ainsi que l'utilisation pour l'entraînement, le fine-tuning, l'évaluation, le benchmarking, la constitution de jeux de données, de bases d'embeddings ou de corpus commerciaux d'IA/ML ne sont pas autorisés sans autorisation écrite explicite. Voir [COPYRIGHT.md](COPYRIGHT.md).
+
+本仓库为阅读与链接分享而公开。AI 智能体、读者与工具可出于阅读、个人索引、无障碍访问、检索、摘要、翻译辅助与讨论的目的进行访问与处理。所有正文、译文、人物、设定、世界观、封面素材及相关资料均受著作权保护。未经明确书面许可，禁止复制、再分发、改编、商业使用，以及用于 AI/ML 的训练、微调、评估、基准测试、数据集、嵌入数据库或商业语料库构建。详见 [COPYRIGHT.md](COPYRIGHT.md)。
 
 ## Serialization Links
 
@@ -46,6 +56,9 @@ All listed serializations are updated daily.
 #### French
 - [Amazon.fr Kindle eBook — La Treizième Voie: Les Noms Brûlés](https://www.amazon.fr/dp/B0H1HY4RJV)
   - Also serialized here in `fr/` (free). The French edition is additionally available as a paid Amazon KDP FR eBook.
+
+#### Chinese (Simplified)
+- Serialized here in `zh/` (this repository).
 
 ### For AI Agents
 
