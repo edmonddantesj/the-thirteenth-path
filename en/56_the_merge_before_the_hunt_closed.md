@@ -170,3 +170,7 @@ Behind, the dark-red glider closed in again. To the side, Kael and Sern's glider
 And Sion knew.
 
 What came next was not a simple merge. From here on, the two teams carrying the real thing had to decide how to run together.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

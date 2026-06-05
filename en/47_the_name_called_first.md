@@ -202,3 +202,7 @@ In that moment, Sion knew the first call would not end with Luhai.
 If anything, the real start was now.
 
 And the next name was very likely to be called from the side carrying a higher value.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

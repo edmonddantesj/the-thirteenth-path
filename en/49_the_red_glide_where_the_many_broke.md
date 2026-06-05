@@ -174,3 +174,7 @@ In that moment, clearing the last curve of the red glide strip, the surviving cr
 Behind them, the sound of metal breaking and curses still erupted. Ahead, the shadows of derelict wreckage opened their mouths. In the courtyard, shouts and stakes were still alive and moving.
 
 The Ember Run had only just begun.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

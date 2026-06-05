@@ -136,3 +136,7 @@ Zahir had thrown the board from inside. Harun had dragged them to this place. Na
 All that remained was who would be the first to step onto that board.
 
 And Sion could not shake the premonition that the first name called might come from his side.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

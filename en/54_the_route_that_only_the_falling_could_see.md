@@ -167,3 +167,7 @@ Two different lines were finally heading toward the same lower outer edge.
 And Sion knew.
 
 From here on, this was not a race return. The people carrying the real thing would be gathering onto the same escape line.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

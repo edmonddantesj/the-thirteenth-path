@@ -177,3 +177,7 @@ He said low.
 When that sentence landed, Sion sensed instinctively that this board would not end as a mere internal verification. Zahir intended to use all of Hazran as the stage, outer-layer market included. Who could hold the real thing. Who would be dragged by the false. Who could bear name and object and fragment and fear all at once.
 
 And at the end of that board, the etherite, Aka, the true nature of the imitation they had chased—all of it would be shaken once more, on a far larger scale.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

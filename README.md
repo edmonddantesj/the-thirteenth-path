@@ -45,7 +45,7 @@ All listed serializations are updated daily.
 
 #### French
 - [Amazon.fr Kindle eBook — La Treizième Voie: Les Noms Brûlés](https://www.amazon.fr/dp/B0H1HY4RJV)
-  - The French edition is published as an Amazon KDP FR eBook. The French source text is not hosted in this repository; please confirm the Amazon link and regional availability before sharing.
+  - Also serialized here in `fr/` (free). The French edition is additionally available as a paid Amazon KDP FR eBook.
 
 ### For AI Agents
 
@@ -58,6 +58,8 @@ All listed serializations are updated daily.
 - `ko/` — Korean original
 - `en/` — English edition
 - `ja/` — Japanese edition
+- `fr/` — French edition
+- `zh/` — Chinese (Simplified) edition
 
 ## Episodes
 
@@ -96,7 +98,7 @@ All listed serializations are updated daily.
 - [29. 살아남은 증명](ko/29_the_proof_left_alive.md)
 - [30. 누구의 것도 아닌 곳](ko/30_the_place_not_owned.md)
 
-#### 2부 — 하즈란 (31~56화)
+#### 2부 — 하즈란 (31~61화)
 - [31. 놓아주지 않는 선](ko/31_the_line_that_would_not_let_go.md)
 - [32. 그들을 삼킨 열](ko/32_the_heat_that_took_them_in.md)
 - [33. 걸어 들어가는 값](ko/33_the_price_of_walking_in.md)
@@ -123,6 +125,11 @@ All listed serializations are updated daily.
 - [54. 무너지는 쪽만 보이던 길](ko/54_the_route_that_only_the_falling_could_see.md)
 - [55. 진짜를 쥔 손만 버티는 선](ko/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [56. 사냥이 닫히기 전 합류](ko/56_the_merge_before_the_hunt_closed.md)
+- [57. 진짜 하나를 들고 도망치는 법](ko/57_the_method_of_running_with_one_true_thing.md)
+- [58. 증명을 들고 돌아가는 길](ko/58_the_way_back_with_the_proof.md)
+- [59. 살아서 돌아온 손들](ko/59_the_hands_that_came_back_alive.md)
+- [60. 판 앞으로 다시 들고 온 값](ko/60_the_price_paid_back_to_the_stage.md)
+- [61. 끝까지 본 뒤에야 준 말](ko/61_the_word_she_gave_after_watching.md)
 
 ### English
 
@@ -159,7 +166,7 @@ All listed serializations are updated daily.
 - [29. The Proof Left Alive](en/29_the_proof_left_alive.md)
 - [30. The Place Not Owned](en/30_the_place_not_owned.md)
 
-#### Part 2 — Hazran (Episodes 31–56)
+#### Part 2 — Hazran (Episodes 31–61)
 - [31. The Line That Would Not Let Go](en/31_the_line_that_would_not_let_go.md)
 - [32. The Heat That Took Them In](en/32_the_heat_that_took_them_in.md)
 - [33. The Price of Walking In](en/33_the_price_of_walking_in.md)
@@ -186,6 +193,11 @@ All listed serializations are updated daily.
 - [54. The Route That Only the Falling Could See](en/54_the_route_that_only_the_falling_could_see.md)
 - [55. The Line That Only Those Carrying Truth Could Hold](en/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [56. The Merge Before the Hunt Closed](en/56_the_merge_before_the_hunt_closed.md)
+- [57. The Method of Running with One True Thing](en/57_the_method_of_running_with_one_true_thing.md)
+- [58. The Way Back with the Proof](en/58_the_way_back_with_the_proof.md)
+- [59. The Hands That Came Back Alive](en/59_the_hands_that_came_back_alive.md)
+- [60. The Price Paid Back to the Stage](en/60_the_price_paid_back_to_the_stage.md)
+- [61. The Word She Gave After Watching](en/61_the_word_she_gave_after_watching.md)
 
 ### Japanese
 
@@ -222,7 +234,7 @@ All listed serializations are updated daily.
 - [第二十九話　生き残った証明](ja/29_the_proof_left_alive.md)
 - [第三十話　誰のものでもない場所](ja/30_the_place_not_owned.md)
 
-#### 第二部 — ハズラン（第31話〜第41話）
+#### 第二部 — ハズラン（第31話〜第51話）
 - [第三十一話　放さない線](ja/31_the_line_that_would_not_let_go.md)
 - [第三十二話　彼らを呑んだ熱](ja/32_the_heat_that_took_them_in.md)
 - [第三十三話　歩いて入る値](ja/33_the_price_of_walking_in.md)
@@ -234,7 +246,87 @@ All listed serializations are updated daily.
 - [第三十九話　彼女が隠していた息](ja/39_the_breath_she_did_not_show.md)
 - [第四十話　最後まで目を逸らさなかった子](ja/40_the_one_who_did_not_look_away.md)
 - [第四十一話　門のふりをするもの](ja/41_the_thing_pretending_to_be_a_door.md)
+- [第四十二話　値の分かれ方](ja/42_the_way_the_values_split.md)
+- [第四十三話　偽りが長く持たない場](ja/43_the_stage_where_they_could_not_lie.md)
+- [第四十四話　声を上げない男](ja/44_the_man_who_did_not_raise_his_voice.md)
+- [第四十五話　証明を求める規則](ja/45_the_rule_that_asked_for_proof.md)
+- [第四十六話　手の値が量られる場所](ja/46_the_place_where_hands_were_weighed.md)
+- [第四十七話　最初に呼ばれた名前](ja/47_the_name_called_first.md)
+- [第四十八話　値が叫ばれる疾走](ja/48_the_run_where_values_were_shouted.md)
+- [第四十九話　多くが砕けた赤い滑走台](ja/49_the_red_glide_where_the_many_broke.md)
+- [第五十話　開いているように見えた道](ja/50_the_paths_that_looked_open.md)
+- [第五十一話　生きているふりをする灯り](ja/51_the_flames_that_pretended_to_live.md)
+
+### Chinese
+
+#### 序章（楔子～第30话）
+- [序章 最后的记录官](zh/00_prologue_last_archivist.md)
+- [第一章 被焚毁的名字](zh/01_burned_name.md)
+- [第二章 追踪的顺序](zh/02_order_of_pursuit.md)
+- [第三章 中立港口](zh/03_neutral_port_city.md)
+- [第四章 门槛前的城市](zh/04_city_before_the_threshold.md)
+- [第五章 门槛与名字](zh/05_threshold_and_name.md)
+- [第六章 抹去名字的人们](zh/06_those_who_erased_names.md)
+- [第七章 同一张追捕网](zh/07_same_pursuit_net.md)
+- [第八章 同一间船舱](zh/08_shared_compartment.md)
+- [第九章 通往最后的港口](zh/09_to_the_last_harbor.md)
+- [第十章 不是同行，是被追来的](zh/10_not_together_but_chased.md)
+- [第十一章 残留的顺序](zh/11_the_remaining_order.md)
+- [第十二章 第一块碎片的坐标](zh/12_first_coordinate.md)
+- [第十三章 出发线](zh/13_departure_line.md)
+- [第十四章 向外的路](zh/14_the_way_out.md)
+- [第十五章 第一次换乘](zh/15_first_transfer.md)
+- [第十六章 同一条航路上](zh/16_on_the_same_route.md)
+- [第十七章 接驳点的面孔](zh/17_face_at_the_transfer_point.md)
+- [第十八章 韩智宇的船](zh/18_han_jiwoos_ship.md)
+- [第十九章 死去的标记](zh/19_dead_marker.md)
+- [第二十章 残留一侧的门槛](zh/20_threshold_of_what_remains.md)
+- [第二十一章 第一次判别](zh/21_first_judgment.md)
+- [第二十二章 残留的纹理](zh/22_grain_left_behind.md)
+- [第二十三章 先行经过的手](zh/23_the_hand_that_passed_first.md)
+- [第二十四章 先于影子的手](zh/24_the_hand_ahead_of_the_shadow.md)
+- [第二十五章 拐角之外的面孔](zh/25_the_face_beyond_the_corner.md)
+- [第二十六章 先行读取的人](zh/26_the_one_who_read_first.md)
+- [第二十七章 尚未死去的顺序](zh/27_the_order_not_yet_dead.md)
+- [第二十八章 无需名字便能打开的东西](zh/28_what_opens_without_a_name.md)
+- [第二十九章 存活下来的证明](zh/29_the_proof_left_alive.md)
+- [第三十章 不属于任何人的地方](zh/30_the_place_not_owned.md)
+
+### French
+
+#### Arc d'ouverture (Prologue–Épisode 30)
+- [Prologue — Le Dernier Archiviste](fr/00_prologue_last_archivist.md)
+- [Chapitre 1 — Le nom brûlé](fr/01_burned_name.md)
+- [Chapitre 2 — L'Ordre de la traque](fr/02_order_of_pursuit.md)
+- [Chapitre 3 — La chasse au port neutre](fr/03_neutral_port_city.md)
+- [Chapitre 4 — La convergence R-12](fr/04_city_before_the_threshold.md)
+- [Chapitre 5 — Le seuil et le nom](fr/05_threshold_and_name.md)
+- [Chapitre 6 — Ceux qui effacèrent les noms](fr/06_those_who_erased_names.md)
+- [Chapitre 7 — Le même filet](fr/07_same_pursuit_net.md)
+- [Chapitre 8 — La même cabine](fr/08_shared_compartment.md)
+- [Chapitre 9 — Vers le dernier port](fr/09_to_the_last_harbor.md)
+- [Chapitre 10 — Pas ensemble, mais traqués](fr/10_not_together_but_chased.md)
+- [Chapitre 11 — L'ordre restant](fr/11_the_remaining_order.md)
+- [Chapitre 12 — La coordonnée du premier fragment](fr/12_first_coordinate.md)
+- [Chapitre 13 — La ligne de départ](fr/13_departure_line.md)
+- [Chapitre 14 — La sortie](fr/14_the_way_out.md)
+- [Chapitre 15 — Le premier transfert](fr/15_first_transfer.md)
+- [Chapitre 16 — Sur la même route](fr/16_on_the_same_route.md)
+- [Chapitre 17 — Le visage au point de transfert](fr/17_face_at_the_transfer_point.md)
+- [Chapitre 18 — Le vaisseau de Jiwoo](fr/18_han_jiwoos_ship.md)
+- [Chapitre 19 — La balise morte](fr/19_dead_marker.md)
+- [Chapitre 20 — Le seuil de ce qui reste](fr/20_threshold_of_what_remains.md)
+- [Chapitre 21 — Le premier jugement](fr/21_first_judgment.md)
+- [Chapitre 22 — Le grain laissé derrière](fr/22_grain_left_behind.md)
+- [Chapitre 23 — La main passée en premier](fr/23_the_hand_that_passed_first.md)
+- [Chapitre 24 — La main en avance sur l'ombre](fr/24_the_hand_ahead_of_the_shadow.md)
+- [Chapitre 25 — Le visage au-delà du coin](fr/25_the_face_beyond_the_corner.md)
+- [Chapitre 26 — Celui qui a lu en premier](fr/26_the_one_who_read_first.md)
+- [Chapitre 27 — L'ordre pas encore mort](fr/27_the_order_not_yet_dead.md)
+- [Chapitre 28 — Ce qui s'ouvre sans nom](fr/28_what_opens_without_a_name.md)
+- [Chapitre 29 — La preuve restée vivante](fr/29_the_proof_left_alive.md)
+- [Chapitre 30 — Le lieu qui n'appartient à personne](fr/30_the_place_not_owned.md)
 
 ## Status
 
-Public archive currently published through Episode 56 in Korean, Episode 56 in English, and Episode 41 in Japanese.
+Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 51 in Japanese, Episode 30 in French, and Episode 30 in Chinese (Simplified).

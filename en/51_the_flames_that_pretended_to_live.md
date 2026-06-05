@@ -192,3 +192,7 @@ Three surviving teams were about to collide before nearly the same ember candida
 And Sion knew.
 
 From here, the rules of this race alone might not be enough to end it.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

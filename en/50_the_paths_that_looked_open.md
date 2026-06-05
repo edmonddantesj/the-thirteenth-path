@@ -219,3 +219,7 @@ In that moment, the surviving craft cleared the wreckage zone's last bend almost
 Behind them, the sound of breaking metal and curses still lived. Ahead, hot air and hazy lights were beginning to shimmer. From the courtyard, the stakes and shouts were growing louder.
 
 The Ember Run was now standing before the real test.
+
+---
+
+<sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>
