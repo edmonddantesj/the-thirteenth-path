@@ -1,0 +1,23 @@
+{
+  "name": "thirteenthpath-web",
+  "private": true,
+  "version": "0.1.0",
+  "description": "thirteenthpath.aoineco.ai — 공식 연재 사이트(미묘 설계). 회차 본문(../ko ../en ../ja)은 빌드 소스로 읽기만 — 적묘·번역 영역.",
+  "scripts": {
+    "dev": "next dev",
+    "build": "next build",
+    "start": "next start",
+    "lint": "next lint"
+  },
+  "dependencies": {
+    "next": "^15.1.0",
+    "react": "^19.0.0",
+    "react-dom": "^19.0.0",
+    "gray-matter": "^4.0.3"
+  },
+  "devDependencies": {
+    "@types/node": "^22.10.0",
+    "@types/react": "^19.0.0",
+    "typescript": "^5.7.0"
+  }
+}
