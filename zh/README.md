@@ -35,3 +35,4 @@
 - [第二十九章 存活下来的证明](29_the_proof_left_alive.md)
 - [第三十章 不属于任何人的地方](30_the_place_not_owned.md)
 - [第三十一章 不肯放手的线](31_the_line_that_would_not_let_go.md)
+- [第三十二章 吞噬他们的热](32_the_heat_that_took_them_in.md)

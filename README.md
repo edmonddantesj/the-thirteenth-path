@@ -143,6 +143,7 @@ All listed serializations are updated daily.
 - [59. 살아서 돌아온 손들](ko/59_the_hands_that_came_back_alive.md)
 - [60. 판 앞으로 다시 들고 온 값](ko/60_the_price_paid_back_to_the_stage.md)
 - [61. 끝까지 본 뒤에야 준 말](ko/61_the_word_she_gave_after_watching.md)
+- [62. 그녀가 끝내 보여 준 안쪽](ko/62_the_inside_she_finally_showed.md)
 
 ### English
 
@@ -211,6 +212,7 @@ All listed serializations are updated daily.
 - [59. The Hands That Came Back Alive](en/59_the_hands_that_came_back_alive.md)
 - [60. The Price Paid Back to the Stage](en/60_the_price_paid_back_to_the_stage.md)
 - [61. The Word She Gave After Watching](en/61_the_word_she_gave_after_watching.md)
+- [62. The Inside She Finally Showed](en/62_the_inside_she_finally_showed.md)
 
 ### Japanese
 
@@ -270,6 +272,7 @@ All listed serializations are updated daily.
 - [第五十話　開いているように見えた道](ja/50_the_paths_that_looked_open.md)
 - [第五十一話　生きているふりをする灯り](ja/51_the_flames_that_pretended_to_live.md)
 - [第五十二話　規則が先に歪んだ瞬間](ja/52_the_moment_the_rule_bent.md)
+- [第五十三話　板が競技であることをやめた場所](ja/53_the_field_that_stopped_being_a_game.md)
 
 ### Chinese
 
@@ -306,6 +309,7 @@ All listed serializations are updated daily.
 - [第二十九章 存活下来的证明](zh/29_the_proof_left_alive.md)
 - [第三十章 不属于任何人的地方](zh/30_the_place_not_owned.md)
 - [第三十一章 不肯放手的线](zh/31_the_line_that_would_not_let_go.md)
+- [第三十二章 吞噬他们的热](zh/32_the_heat_that_took_them_in.md)
 
 ### French
 
@@ -342,7 +346,8 @@ All listed serializations are updated daily.
 - [Chapitre 29 — La preuve restée vivante](fr/29_the_proof_left_alive.md)
 - [Chapitre 30 — Le lieu qui n'appartient à personne](fr/30_the_place_not_owned.md)
 - [Chapitre 31 — La ligne qui ne les lâchait pas](fr/31_the_line_that_would_not_let_go.md)
+- [Chapitre 32 — La chaleur qui les engloutit](fr/32_the_heat_that_took_them_in.md)
 
 ## Status
 
-Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 52 in Japanese, Episode 31 in French, and Episode 31 in Chinese (Simplified).
+Public archive currently published through Episode 62 in Korean, Episode 62 in English, Episode 53 in Japanese, Episode 32 in French, and Episode 32 in Chinese (Simplified).

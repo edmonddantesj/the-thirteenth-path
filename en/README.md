@@ -65,3 +65,4 @@ Current public English release:
 - [Episode 59. The Hands That Came Back Alive](59_the_hands_that_came_back_alive.md)
 - [Episode 60. The Price Paid Back to the Stage](60_the_price_paid_back_to_the_stage.md)
 - [Episode 61. The Word She Gave After Watching](61_the_word_she_gave_after_watching.md)
+- [Episode 62. The Inside She Finally Showed](62_the_inside_she_finally_showed.md)

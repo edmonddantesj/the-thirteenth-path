@@ -35,3 +35,4 @@ Chapitres publics actuels :
 - [Chapitre 29 — La preuve restée vivante](29_the_proof_left_alive.md)
 - [Chapitre 30 — Le lieu qui n'appartient à personne](30_the_place_not_owned.md)
 - [Chapitre 31 — La ligne qui ne les lâchait pas](31_the_line_that_would_not_let_go.md)
+- [Chapitre 32 — La chaleur qui les engloutit](32_the_heat_that_took_them_in.md)
