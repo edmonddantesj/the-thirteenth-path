@@ -269,6 +269,7 @@ All listed serializations are updated daily.
 - [第四十九話　多くが砕けた赤い滑走台](ja/49_the_red_glide_where_the_many_broke.md)
 - [第五十話　開いているように見えた道](ja/50_the_paths_that_looked_open.md)
 - [第五十一話　生きているふりをする灯り](ja/51_the_flames_that_pretended_to_live.md)
+- [第五十二話　規則が先に歪んだ瞬間](ja/52_the_moment_the_rule_bent.md)
 
 ### Chinese
 
@@ -304,6 +305,7 @@ All listed serializations are updated daily.
 - [第二十八章 无需名字便能打开的东西](zh/28_what_opens_without_a_name.md)
 - [第二十九章 存活下来的证明](zh/29_the_proof_left_alive.md)
 - [第三十章 不属于任何人的地方](zh/30_the_place_not_owned.md)
+- [第三十一章 不肯放手的线](zh/31_the_line_that_would_not_let_go.md)
 
 ### French
 
@@ -339,7 +341,8 @@ All listed serializations are updated daily.
 - [Chapitre 28 — Ce qui s'ouvre sans nom](fr/28_what_opens_without_a_name.md)
 - [Chapitre 29 — La preuve restée vivante](fr/29_the_proof_left_alive.md)
 - [Chapitre 30 — Le lieu qui n'appartient à personne](fr/30_the_place_not_owned.md)
+- [Chapitre 31 — La ligne qui ne les lâchait pas](fr/31_the_line_that_would_not_let_go.md)
 
 ## Status
 
-Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 51 in Japanese, Episode 30 in French, and Episode 30 in Chinese (Simplified).
+Public archive currently published through Episode 61 in Korean, Episode 61 in English, Episode 52 in Japanese, Episode 31 in French, and Episode 31 in Chinese (Simplified).
