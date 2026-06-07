@@ -36,3 +36,4 @@ Chapitres publics actuels :
 - [Chapitre 30 — Le lieu qui n'appartient à personne](30_the_place_not_owned.md)
 - [Chapitre 31 — La ligne qui ne les lâchait pas](31_the_line_that_would_not_let_go.md)
 - [Chapitre 32 — La chaleur qui les engloutit](32_the_heat_that_took_them_in.md)
+- [Chapitre 33 — Le prix pour entrer](33_the_price_of_walking_in.md)

@@ -273,6 +273,7 @@ All listed serializations are updated daily.
 - [第五十一話　生きているふりをする灯り](ja/51_the_flames_that_pretended_to_live.md)
 - [第五十二話　規則が先に歪んだ瞬間](ja/52_the_moment_the_rule_bent.md)
 - [第五十三話　板が競技であることをやめた場所](ja/53_the_field_that_stopped_being_a_game.md)
+- [第五十四話　崩れる側にしか見えなかった道](ja/54_the_route_that_only_the_falling_could_see.md)
 
 ### Chinese
 
@@ -310,6 +311,7 @@ All listed serializations are updated daily.
 - [第三十章 不属于任何人的地方](zh/30_the_place_not_owned.md)
 - [第三十一章 不肯放手的线](zh/31_the_line_that_would_not_let_go.md)
 - [第三十二章 吞噬他们的热](zh/32_the_heat_that_took_them_in.md)
+- [第三十三章 走进去的代价](zh/33_the_price_of_walking_in.md)
 
 ### French
 
@@ -347,7 +349,8 @@ All listed serializations are updated daily.
 - [Chapitre 30 — Le lieu qui n'appartient à personne](fr/30_the_place_not_owned.md)
 - [Chapitre 31 — La ligne qui ne les lâchait pas](fr/31_the_line_that_would_not_let_go.md)
 - [Chapitre 32 — La chaleur qui les engloutit](fr/32_the_heat_that_took_them_in.md)
+- [Chapitre 33 — Le prix pour entrer](fr/33_the_price_of_walking_in.md)
 
 ## Status
 
-Public archive currently published through Episode 62 in Korean, Episode 62 in English, Episode 53 in Japanese, Episode 32 in French, and Episode 32 in Chinese (Simplified).
+Public archive currently published through Episode 62 in Korean, Episode 62 in English, Episode 54 in Japanese, Episode 33 in French, and Episode 33 in Chinese (Simplified).
