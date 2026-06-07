@@ -66,3 +66,4 @@
 - [60화. 판 앞으로 다시 들고 온 값](60_the_price_paid_back_to_the_stage.md)
 - [61화. 끝까지 본 뒤에야 준 말](61_the_word_she_gave_after_watching.md)
 - [62화. 그녀가 끝내 보여 준 안쪽](62_the_inside_she_finally_showed.md)
+- [63화. 모두에게 열지 않은 문턱](63_the_threshold_she_did_not_open_for_everyone.md)

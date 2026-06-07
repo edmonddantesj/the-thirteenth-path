@@ -58,3 +58,4 @@
 - [第五十二話　規則が先に歪んだ瞬間](52_the_moment_the_rule_bent.md)
 - [第五十三話　板が競技であることをやめた場所](53_the_field_that_stopped_being_a_game.md)
 - [第五十四話　崩れる側にしか見えなかった道](54_the_route_that_only_the_falling_could_see.md)
+- [第五十五話　本物を握った手だけが堪える線](55_the_line_that_only_those_carrying_truth_could_hold.md)

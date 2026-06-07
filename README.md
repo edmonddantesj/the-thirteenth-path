@@ -144,6 +144,7 @@ All listed serializations are updated daily.
 - [60. 판 앞으로 다시 들고 온 값](ko/60_the_price_paid_back_to_the_stage.md)
 - [61. 끝까지 본 뒤에야 준 말](ko/61_the_word_she_gave_after_watching.md)
 - [62. 그녀가 끝내 보여 준 안쪽](ko/62_the_inside_she_finally_showed.md)
+- [63. 모두에게 열지 않은 문턱](ko/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ### English
 
@@ -213,6 +214,7 @@ All listed serializations are updated daily.
 - [60. The Price Paid Back to the Stage](en/60_the_price_paid_back_to_the_stage.md)
 - [61. The Word She Gave After Watching](en/61_the_word_she_gave_after_watching.md)
 - [62. The Inside She Finally Showed](en/62_the_inside_she_finally_showed.md)
+- [63. The Threshold She Did Not Open for Everyone](en/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ### Japanese
 
@@ -274,6 +276,7 @@ All listed serializations are updated daily.
 - [第五十二話　規則が先に歪んだ瞬間](ja/52_the_moment_the_rule_bent.md)
 - [第五十三話　板が競技であることをやめた場所](ja/53_the_field_that_stopped_being_a_game.md)
 - [第五十四話　崩れる側にしか見えなかった道](ja/54_the_route_that_only_the_falling_could_see.md)
+- [第五十五話　本物を握った手だけが堪える線](ja/55_the_line_that_only_those_carrying_truth_could_hold.md)
 
 ### Chinese
 
@@ -312,6 +315,7 @@ All listed serializations are updated daily.
 - [第三十一章 不肯放手的线](zh/31_the_line_that_would_not_let_go.md)
 - [第三十二章 吞噬他们的热](zh/32_the_heat_that_took_them_in.md)
 - [第三十三章 走进去的代价](zh/33_the_price_of_walking_in.md)
+- [第三十四章 人们吞下的名字](zh/34_the_name_people_swallowed.md)
 
 ### French
 
@@ -350,7 +354,8 @@ All listed serializations are updated daily.
 - [Chapitre 31 — La ligne qui ne les lâchait pas](fr/31_the_line_that_would_not_let_go.md)
 - [Chapitre 32 — La chaleur qui les engloutit](fr/32_the_heat_that_took_them_in.md)
 - [Chapitre 33 — Le prix pour entrer](fr/33_the_price_of_walking_in.md)
+- [Chapitre 34 — Le nom que les gens avalaient](fr/34_the_name_people_swallowed.md)
 
 ## Status
 
-Public archive currently published through Episode 62 in Korean, Episode 62 in English, Episode 54 in Japanese, Episode 33 in French, and Episode 33 in Chinese (Simplified).
+Public archive currently published through Episode 63 in Korean, Episode 63 in English, Episode 55 in Japanese, Episode 34 in French, and Episode 34 in Chinese (Simplified).
