@@ -67,3 +67,4 @@ Current public English release:
 - [Episode 61. The Word She Gave After Watching](61_the_word_she_gave_after_watching.md)
 - [Episode 62. The Inside She Finally Showed](62_the_inside_she_finally_showed.md)
 - [Episode 63. The Threshold She Did Not Open for Everyone](63_the_threshold_she_did_not_open_for_everyone.md)
+- [Episode 64. The Way She Held the Dying Shape](64_the_way_she_held_the_dying_shape.md)

@@ -39,3 +39,4 @@ Chapitres publics actuels :
 - [Chapitre 33 — Le prix pour entrer](33_the_price_of_walking_in.md)
 - [Chapitre 34 — Le nom que les gens avalaient](34_the_name_people_swallowed.md)
 - [Chapitre 35 — La main qui les comptait](35_the_hand_that_counted_them.md)
+- [Chapitre 36 — Le prix après la prise](36_the_price_after_the_grab.md)

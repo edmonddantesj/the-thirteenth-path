@@ -145,6 +145,7 @@ All listed serializations are updated daily.
 - [61. 끝까지 본 뒤에야 준 말](ko/61_the_word_she_gave_after_watching.md)
 - [62. 그녀가 끝내 보여 준 안쪽](ko/62_the_inside_she_finally_showed.md)
 - [63. 모두에게 열지 않은 문턱](ko/63_the_threshold_she_did_not_open_for_everyone.md)
+- [64. 죽어 가는 형태를 붙드는 법](ko/64_the_way_she_held_the_dying_shape.md)
 
 ### English
 
@@ -215,6 +216,7 @@ All listed serializations are updated daily.
 - [61. The Word She Gave After Watching](en/61_the_word_she_gave_after_watching.md)
 - [62. The Inside She Finally Showed](en/62_the_inside_she_finally_showed.md)
 - [63. The Threshold She Did Not Open for Everyone](en/63_the_threshold_she_did_not_open_for_everyone.md)
+- [64. The Way She Held the Dying Shape](en/64_the_way_she_held_the_dying_shape.md)
 
 ### Japanese
 
@@ -278,6 +280,7 @@ All listed serializations are updated daily.
 - [第五十四話　崩れる側にしか見えなかった道](ja/54_the_route_that_only_the_falling_could_see.md)
 - [第五十五話　本物を握った手だけが堪える線](ja/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [第五十六話　狩りが閉じる前の合流](ja/56_the_merge_before_the_hunt_closed.md)
+- [第五十七話　本物一つを持って逃げる方法](ja/57_the_method_of_running_with_one_true_thing.md)
 
 ### Chinese
 
@@ -318,6 +321,7 @@ All listed serializations are updated daily.
 - [第三十三章 走进去的代价](zh/33_the_price_of_walking_in.md)
 - [第三十四章 人们吞下的名字](zh/34_the_name_people_swallowed.md)
 - [第三十五章 清点他们的手](zh/35_the_hand_that_counted_them.md)
+- [第三十六章 抢到之后的代价](zh/36_the_price_after_the_grab.md)
 
 ### French
 
@@ -358,7 +362,8 @@ All listed serializations are updated daily.
 - [Chapitre 33 — Le prix pour entrer](fr/33_the_price_of_walking_in.md)
 - [Chapitre 34 — Le nom que les gens avalaient](fr/34_the_name_people_swallowed.md)
 - [Chapitre 35 — La main qui les comptait](fr/35_the_hand_that_counted_them.md)
+- [Chapitre 36 — Le prix après la prise](fr/36_the_price_after_the_grab.md)
 
 ## Status
 
-Public archive currently published through Episode 63 in Korean, Episode 63 in English, Episode 56 in Japanese, Episode 35 in French, and Episode 35 in Chinese (Simplified).
+Public archive currently published through Episode 64 in Korean, Episode 64 in English, Episode 57 in Japanese, Episode 36 in French, and Episode 36 in Chinese (Simplified).
