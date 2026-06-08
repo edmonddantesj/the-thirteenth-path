@@ -277,6 +277,7 @@ All listed serializations are updated daily.
 - [第五十三話　板が競技であることをやめた場所](ja/53_the_field_that_stopped_being_a_game.md)
 - [第五十四話　崩れる側にしか見えなかった道](ja/54_the_route_that_only_the_falling_could_see.md)
 - [第五十五話　本物を握った手だけが堪える線](ja/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [第五十六話　狩りが閉じる前の合流](ja/56_the_merge_before_the_hunt_closed.md)
 
 ### Chinese
 
@@ -316,6 +317,7 @@ All listed serializations are updated daily.
 - [第三十二章 吞噬他们的热](zh/32_the_heat_that_took_them_in.md)
 - [第三十三章 走进去的代价](zh/33_the_price_of_walking_in.md)
 - [第三十四章 人们吞下的名字](zh/34_the_name_people_swallowed.md)
+- [第三十五章 清点他们的手](zh/35_the_hand_that_counted_them.md)
 
 ### French
 
@@ -355,7 +357,8 @@ All listed serializations are updated daily.
 - [Chapitre 32 — La chaleur qui les engloutit](fr/32_the_heat_that_took_them_in.md)
 - [Chapitre 33 — Le prix pour entrer](fr/33_the_price_of_walking_in.md)
 - [Chapitre 34 — Le nom que les gens avalaient](fr/34_the_name_people_swallowed.md)
+- [Chapitre 35 — La main qui les comptait](fr/35_the_hand_that_counted_them.md)
 
 ## Status
 
-Public archive currently published through Episode 63 in Korean, Episode 63 in English, Episode 55 in Japanese, Episode 34 in French, and Episode 34 in Chinese (Simplified).
+Public archive currently published through Episode 63 in Korean, Episode 63 in English, Episode 56 in Japanese, Episode 35 in French, and Episode 35 in Chinese (Simplified).

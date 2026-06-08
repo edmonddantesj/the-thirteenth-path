@@ -38,3 +38,4 @@ Chapitres publics actuels :
 - [Chapitre 32 — La chaleur qui les engloutit](32_the_heat_that_took_them_in.md)
 - [Chapitre 33 — Le prix pour entrer](33_the_price_of_walking_in.md)
 - [Chapitre 34 — Le nom que les gens avalaient](34_the_name_people_swallowed.md)
+- [Chapitre 35 — La main qui les comptait](35_the_hand_that_counted_them.md)
