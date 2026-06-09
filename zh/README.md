@@ -38,3 +38,5 @@
 - [第三十二章 吞噬他们的热](32_the_heat_that_took_them_in.md)
 - [第三十三章 走进去的代价](33_the_price_of_walking_in.md)
 - [第三十四章 人们吞下的名字](34_the_name_people_swallowed.md)
+- [第三十五章 清点他们的手](35_the_hand_that_counted_them.md)
+- [第三十六章 抢到之后的代价](36_the_price_after_the_grab.md)
