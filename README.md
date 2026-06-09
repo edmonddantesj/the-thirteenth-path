@@ -281,6 +281,7 @@ All listed serializations are updated daily.
 - [第五十五話　本物を握った手だけが堪える線](ja/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [第五十六話　狩りが閉じる前の合流](ja/56_the_merge_before_the_hunt_closed.md)
 - [第五十七話　本物一つを持って逃げる方法](ja/57_the_method_of_running_with_one_true_thing.md)
+- [第五十八話　証明を持って帰る道](ja/58_the_way_back_with_the_proof.md)
 
 ### Chinese
 
@@ -322,6 +323,7 @@ All listed serializations are updated daily.
 - [第三十四章 人们吞下的名字](zh/34_the_name_people_swallowed.md)
 - [第三十五章 清点他们的手](zh/35_the_hand_that_counted_them.md)
 - [第三十六章 抢到之后的代价](zh/36_the_price_after_the_grab.md)
+- [第三十七章 切断噪音的手](zh/37_the_hand_that_cut_the_noise.md)
 
 ### French
 
@@ -363,7 +365,8 @@ All listed serializations are updated daily.
 - [Chapitre 34 — Le nom que les gens avalaient](fr/34_the_name_people_swallowed.md)
 - [Chapitre 35 — La main qui les comptait](fr/35_the_hand_that_counted_them.md)
 - [Chapitre 36 — Le prix après la prise](fr/36_the_price_after_the_grab.md)
+- [Chapitre 37 — La main qui coupait le bruit](fr/37_the_hand_that_cut_the_noise.md)
 
 ## Status
 
-Public archive currently published through Episode 64 in Korean, Episode 64 in English, Episode 57 in Japanese, Episode 36 in French, and Episode 36 in Chinese (Simplified).
+Public archive currently published through Episode 64 in Korean, Episode 64 in English, Episode 58 in Japanese, Episode 37 in French, and Episode 37 in Chinese (Simplified).
