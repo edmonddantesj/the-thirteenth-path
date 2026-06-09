@@ -62,3 +62,4 @@
 - [第五十六話　狩りが閉じる前の合流](56_the_merge_before_the_hunt_closed.md)
 - [第五十七話　本物一つを持って逃げる方法](57_the_method_of_running_with_one_true_thing.md)
 - [第五十八話　証明を持って帰る道](58_the_way_back_with_the_proof.md)
+- [第五十九話　生きて帰ってきた手](59_the_hands_that_came_back_alive.md)

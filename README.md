@@ -146,6 +146,7 @@ All listed serializations are updated daily.
 - [62. 그녀가 끝내 보여 준 안쪽](ko/62_the_inside_she_finally_showed.md)
 - [63. 모두에게 열지 않은 문턱](ko/63_the_threshold_she_did_not_open_for_everyone.md)
 - [64. 죽어 가는 형태를 붙드는 법](ko/64_the_way_she_held_the_dying_shape.md)
+- [65. 길이 식지 않았다는 증거](ko/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ### English
 
@@ -217,6 +218,7 @@ All listed serializations are updated daily.
 - [62. The Inside She Finally Showed](en/62_the_inside_she_finally_showed.md)
 - [63. The Threshold She Did Not Open for Everyone](en/63_the_threshold_she_did_not_open_for_everyone.md)
 - [64. The Way She Held the Dying Shape](en/64_the_way_she_held_the_dying_shape.md)
+- [65. The Proof That the Path Had Not Gone Cold](en/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ### Japanese
 
@@ -282,6 +284,7 @@ All listed serializations are updated daily.
 - [第五十六話　狩りが閉じる前の合流](ja/56_the_merge_before_the_hunt_closed.md)
 - [第五十七話　本物一つを持って逃げる方法](ja/57_the_method_of_running_with_one_true_thing.md)
 - [第五十八話　証明を持って帰る道](ja/58_the_way_back_with_the_proof.md)
+- [第五十九話　生きて帰ってきた手](ja/59_the_hands_that_came_back_alive.md)
 
 ### Chinese
 
@@ -324,6 +327,7 @@ All listed serializations are updated daily.
 - [第三十五章 清点他们的手](zh/35_the_hand_that_counted_them.md)
 - [第三十六章 抢到之后的代价](zh/36_the_price_after_the_grab.md)
 - [第三十七章 切断噪音的手](zh/37_the_hand_that_cut_the_noise.md)
+- [第三十八章 值被标上的地方](zh/38_the_place_where_values_were_weighed.md)
 
 ### French
 
@@ -366,7 +370,8 @@ All listed serializations are updated daily.
 - [Chapitre 35 — La main qui les comptait](fr/35_the_hand_that_counted_them.md)
 - [Chapitre 36 — Le prix après la prise](fr/36_the_price_after_the_grab.md)
 - [Chapitre 37 — La main qui coupait le bruit](fr/37_the_hand_that_cut_the_noise.md)
+- [Chapitre 38 — Le lieu où les valeurs se pesaient](fr/38_the_place_where_values_were_weighed.md)
 
 ## Status
 
-Public archive currently published through Episode 64 in Korean, Episode 64 in English, Episode 58 in Japanese, Episode 37 in French, and Episode 37 in Chinese (Simplified).
+Public archive currently published through Episode 65 in Korean, Episode 65 in English, Episode 59 in Japanese, Episode 38 in French, and Episode 38 in Chinese (Simplified).

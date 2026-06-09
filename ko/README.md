@@ -68,3 +68,4 @@
 - [62화. 그녀가 끝내 보여 준 안쪽](62_the_inside_she_finally_showed.md)
 - [63화. 모두에게 열지 않은 문턱](63_the_threshold_she_did_not_open_for_everyone.md)
 - [64화. 죽어 가는 형태를 붙드는 법](64_the_way_she_held_the_dying_shape.md)
+- [65화. 길이 식지 않았다는 증거](65_the_proof_that_the_path_had_not_gone_cold.md)

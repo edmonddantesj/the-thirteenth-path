@@ -41,3 +41,4 @@ Chapitres publics actuels :
 - [Chapitre 35 — La main qui les comptait](35_the_hand_that_counted_them.md)
 - [Chapitre 36 — Le prix après la prise](36_the_price_after_the_grab.md)
 - [Chapitre 37 — La main qui coupait le bruit](37_the_hand_that_cut_the_noise.md)
+- [Chapitre 38 — Le lieu où les valeurs se pesaient](38_the_place_where_values_were_weighed.md)

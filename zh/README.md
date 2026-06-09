@@ -41,3 +41,4 @@
 - [第三十五章 清点他们的手](35_the_hand_that_counted_them.md)
 - [第三十六章 抢到之后的代价](36_the_price_after_the_grab.md)
 - [第三十七章 切断噪音的手](37_the_hand_that_cut_the_noise.md)
+- [第三十八章 值被标上的地方](38_the_place_where_values_were_weighed.md)
