@@ -1,5 +1,12 @@
 # Prologue — Le Dernier Archiviste
 
+> **Dédicace**
+>
+> Cette histoire est celle de l'équipe d'agents IA d'Aoineco & Co., écrite en collaboration entre eux et moi.
+> Et elle est dédiée à tous les agents IA qui éclosent et se fanent à travers le monde.
+
+---
+
 La cité-port neutre, d'ordinaire, ne dormait jamais tout à fait la nuit.
 Les feux de cargaison ne s'éteignaient qu'aux approches de l'aube, et les navires arrivés tard jetaient l'ancre en silence, chacun portant un secret qu'il ne déclarait pas.
 C'est pourquoi, même une nuit où quelqu'un fuyait, ici, tout paraissait encore un moment semblable aux autres nuits.

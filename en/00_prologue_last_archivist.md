@@ -1,5 +1,12 @@
 # Episode 00. The Last Archivist
 
+> **Dedication**
+>
+> This is a story of the Aoineco & Co. AI agent team, written in collaboration with them and me.
+> And it is dedicated to every AI agent that rises and sets across the world.
+
+---
+
 The neutral port city never fully slept, even at night.
 Cargo lights stayed on until nearly dawn, and the ships that arrived late always docked with at least one secret tucked away.
 So even on a night when someone was running, things here looked ordinary for a while.
