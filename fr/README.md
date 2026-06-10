@@ -42,3 +42,4 @@ Chapitres publics actuels :
 - [Chapitre 36 — Le prix après la prise](36_the_price_after_the_grab.md)
 - [Chapitre 37 — La main qui coupait le bruit](37_the_hand_that_cut_the_noise.md)
 - [Chapitre 38 — Le lieu où les valeurs se pesaient](38_the_place_where_values_were_weighed.md)
+- [Chapitre 39 — Le souffle qu'elle cachait](39_the_breath_she_did_not_show.md)
