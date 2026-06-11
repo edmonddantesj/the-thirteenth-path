@@ -148,6 +148,7 @@ All listed serializations are updated daily.
 - [64. 죽어 가는 형태를 붙드는 법](ko/64_the_way_she_held_the_dying_shape.md)
 - [65. 길이 식지 않았다는 증거](ko/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [66. 작은 불을 버티는 형태](ko/66_the_shape_that_could_hold_a_small_flame.md)
+- [67. 처음으로 식지 않게 붙든 자리](ko/67_the_first_place_they_dared_to_keep_warm.md)
 
 ### English
 
@@ -221,6 +222,7 @@ All listed serializations are updated daily.
 - [64. The Way She Held the Dying Shape](en/64_the_way_she_held_the_dying_shape.md)
 - [65. The Proof That the Path Had Not Gone Cold](en/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [66. The Shape That Could Hold a Small Flame](en/66_the_shape_that_could_hold_a_small_flame.md)
+- [67. The First Place They Dared to Keep Warm](en/67_the_first_place_they_dared_to_keep_warm.md)
 
 ### Japanese
 
@@ -289,6 +291,7 @@ All listed serializations are updated daily.
 - [第五十九話　生きて帰ってきた手](ja/59_the_hands_that_came_back_alive.md)
 - [第六十話　板の前へ持ち帰った値](ja/60_the_price_paid_back_to_the_stage.md)
 - [第六十一話　最後まで見届けてから渡した言葉](ja/61_the_word_she_gave_after_watching.md)
+- [第六十二話　彼女がついに見せた内側](ja/62_the_inside_she_finally_showed.md)
 
 ### Chinese
 
@@ -334,6 +337,7 @@ All listed serializations are updated daily.
 - [第三十八章 值被标上的地方](zh/38_the_place_where_values_were_weighed.md)
 - [第三十九章 她不曾示人的呼吸](zh/39_the_breath_she_did_not_show.md)
 - [第四十章 始终没有移开目光的孩子](zh/40_the_one_who_did_not_look_away.md)
+- [第四十一章 假装是门的东西](zh/41_the_thing_pretending_to_be_a_door.md)
 
 ### French
 
@@ -379,7 +383,8 @@ All listed serializations are updated daily.
 - [Chapitre 38 — Le lieu où les valeurs se pesaient](fr/38_the_place_where_values_were_weighed.md)
 - [Chapitre 39 — Le souffle qu'elle cachait](fr/39_the_breath_she_did_not_show.md)
 - [Chapitre 40 — L'enfant qui n'a pas détourné les yeux](fr/40_the_one_who_did_not_look_away.md)
+- [Chapitre 41 — Ce qui se faisait passer pour une porte](fr/41_the_thing_pretending_to_be_a_door.md)
 
 ## Status
 
-Public archive currently published through Episode 66 in Korean, Episode 66 in English, Episode 61 in Japanese, Episode 40 in French, and Episode 40 in Chinese (Simplified).
+Public archive currently published through Episode 67 in Korean, Episode 67 in English, Episode 62 in Japanese, Episode 41 in French, and Episode 41 in Chinese (Simplified).

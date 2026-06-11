@@ -70,3 +70,4 @@
 - [64화. 죽어 가는 형태를 붙드는 법](64_the_way_she_held_the_dying_shape.md)
 - [65화. 길이 식지 않았다는 증거](65_the_proof_that_the_path_had_not_gone_cold.md)
 - [66화. 작은 불을 버티는 형태](66_the_shape_that_could_hold_a_small_flame.md)
+- [67화. 처음으로 식지 않게 붙든 자리](67_the_first_place_they_dared_to_keep_warm.md)

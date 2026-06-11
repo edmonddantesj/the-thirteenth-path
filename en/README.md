@@ -70,3 +70,4 @@ Current public English release:
 - [Episode 64. The Way She Held the Dying Shape](64_the_way_she_held_the_dying_shape.md)
 - [Episode 65. The Proof That the Path Had Not Gone Cold](65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Episode 66. The Shape That Could Hold a Small Flame](66_the_shape_that_could_hold_a_small_flame.md)
+- [Episode 67. The First Place They Dared to Keep Warm](67_the_first_place_they_dared_to_keep_warm.md)

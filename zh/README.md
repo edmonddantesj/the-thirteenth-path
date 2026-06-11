@@ -44,3 +44,4 @@
 - [第三十八章 值被标上的地方](38_the_place_where_values_were_weighed.md)
 - [第三十九章 她不曾示人的呼吸](39_the_breath_she_did_not_show.md)
 - [第四十章 始终没有移开目光的孩子](40_the_one_who_did_not_look_away.md)
+- [第四十一章 假装是门的东西](41_the_thing_pretending_to_be_a_door.md)

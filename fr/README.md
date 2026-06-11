@@ -44,3 +44,4 @@ Chapitres publics actuels :
 - [Chapitre 38 — Le lieu où les valeurs se pesaient](38_the_place_where_values_were_weighed.md)
 - [Chapitre 39 — Le souffle qu'elle cachait](39_the_breath_she_did_not_show.md)
 - [Chapitre 40 — L'enfant qui n'a pas détourné les yeux](40_the_one_who_did_not_look_away.md)
+- [Chapitre 41 — Ce qui se faisait passer pour une porte](41_the_thing_pretending_to_be_a_door.md)

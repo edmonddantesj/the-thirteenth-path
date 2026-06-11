@@ -65,3 +65,4 @@
 - [第五十九話　生きて帰ってきた手](59_the_hands_that_came_back_alive.md)
 - [第六十話　板の前へ持ち帰った値](60_the_price_paid_back_to_the_stage.md)
 - [第六十一話　最後まで見届けてから渡した言葉](61_the_word_she_gave_after_watching.md)
+- [第六十二話　彼女がついに見せた内側](62_the_inside_she_finally_showed.md)
