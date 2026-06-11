@@ -64,3 +64,4 @@
 - [第五十八話　証明を持って帰る道](58_the_way_back_with_the_proof.md)
 - [第五十九話　生きて帰ってきた手](59_the_hands_that_came_back_alive.md)
 - [第六十話　板の前へ持ち帰った値](60_the_price_paid_back_to_the_stage.md)
+- [第六十一話　最後まで見届けてから渡した言葉](61_the_word_she_gave_after_watching.md)

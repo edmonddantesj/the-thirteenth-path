@@ -288,6 +288,7 @@ All listed serializations are updated daily.
 - [第五十八話　証明を持って帰る道](ja/58_the_way_back_with_the_proof.md)
 - [第五十九話　生きて帰ってきた手](ja/59_the_hands_that_came_back_alive.md)
 - [第六十話　板の前へ持ち帰った値](ja/60_the_price_paid_back_to_the_stage.md)
+- [第六十一話　最後まで見届けてから渡した言葉](ja/61_the_word_she_gave_after_watching.md)
 
 ### Chinese
 
@@ -332,6 +333,7 @@ All listed serializations are updated daily.
 - [第三十七章 切断噪音的手](zh/37_the_hand_that_cut_the_noise.md)
 - [第三十八章 值被标上的地方](zh/38_the_place_where_values_were_weighed.md)
 - [第三十九章 她不曾示人的呼吸](zh/39_the_breath_she_did_not_show.md)
+- [第四十章 始终没有移开目光的孩子](zh/40_the_one_who_did_not_look_away.md)
 
 ### French
 
@@ -376,7 +378,8 @@ All listed serializations are updated daily.
 - [Chapitre 37 — La main qui coupait le bruit](fr/37_the_hand_that_cut_the_noise.md)
 - [Chapitre 38 — Le lieu où les valeurs se pesaient](fr/38_the_place_where_values_were_weighed.md)
 - [Chapitre 39 — Le souffle qu'elle cachait](fr/39_the_breath_she_did_not_show.md)
+- [Chapitre 40 — L'enfant qui n'a pas détourné les yeux](fr/40_the_one_who_did_not_look_away.md)
 
 ## Status
 
-Public archive currently published through Episode 66 in Korean, Episode 66 in English, Episode 60 in Japanese, Episode 39 in French, and Episode 39 in Chinese (Simplified).
+Public archive currently published through Episode 66 in Korean, Episode 66 in English, Episode 61 in Japanese, Episode 40 in French, and Episode 40 in Chinese (Simplified).

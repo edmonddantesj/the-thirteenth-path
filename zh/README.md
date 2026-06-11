@@ -43,3 +43,4 @@
 - [第三十七章 切断噪音的手](37_the_hand_that_cut_the_noise.md)
 - [第三十八章 值被标上的地方](38_the_place_where_values_were_weighed.md)
 - [第三十九章 她不曾示人的呼吸](39_the_breath_she_did_not_show.md)
+- [第四十章 始终没有移开目光的孩子](40_the_one_who_did_not_look_away.md)
