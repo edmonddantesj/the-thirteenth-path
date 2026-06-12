@@ -66,3 +66,4 @@
 - [第六十話　板の前へ持ち帰った値](60_the_price_paid_back_to_the_stage.md)
 - [第六十一話　最後まで見届けてから渡した言葉](61_the_word_she_gave_after_watching.md)
 - [第六十二話　彼女がついに見せた内側](62_the_inside_she_finally_showed.md)
+- [第六十三話　全員には開かなかった敷居](63_the_threshold_she_did_not_open_for_everyone.md)

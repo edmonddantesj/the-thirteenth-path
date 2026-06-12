@@ -292,6 +292,7 @@ All listed serializations are updated daily.
 - [第六十話　板の前へ持ち帰った値](ja/60_the_price_paid_back_to_the_stage.md)
 - [第六十一話　最後まで見届けてから渡した言葉](ja/61_the_word_she_gave_after_watching.md)
 - [第六十二話　彼女がついに見せた内側](ja/62_the_inside_she_finally_showed.md)
+- [第六十三話　全員には開かなかった敷居](ja/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ### Chinese
 
@@ -338,6 +339,7 @@ All listed serializations are updated daily.
 - [第三十九章 她不曾示人的呼吸](zh/39_the_breath_she_did_not_show.md)
 - [第四十章 始终没有移开目光的孩子](zh/40_the_one_who_did_not_look_away.md)
 - [第四十一章 假装是门的东西](zh/41_the_thing_pretending_to_be_a_door.md)
+- [第四十二章 值分开的方式](zh/42_the_way_the_values_split.md)
 
 ### French
 
@@ -384,7 +386,8 @@ All listed serializations are updated daily.
 - [Chapitre 39 — Le souffle qu'elle cachait](fr/39_the_breath_she_did_not_show.md)
 - [Chapitre 40 — L'enfant qui n'a pas détourné les yeux](fr/40_the_one_who_did_not_look_away.md)
 - [Chapitre 41 — Ce qui se faisait passer pour une porte](fr/41_the_thing_pretending_to_be_a_door.md)
+- [Chapitre 42 — La manière dont les valeurs se séparaient](fr/42_the_way_the_values_split.md)
 
 ## Status
 
-Public archive currently published through Episode 67 in Korean, Episode 67 in English, Episode 62 in Japanese, Episode 41 in French, and Episode 41 in Chinese (Simplified).
+Public archive currently published through Episode 67 in Korean, Episode 67 in English, Episode 63 in Japanese, Episode 42 in French, and Episode 42 in Chinese (Simplified).
