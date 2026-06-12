@@ -149,6 +149,7 @@ All listed serializations are updated daily.
 - [65. 길이 식지 않았다는 증거](ko/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [66. 작은 불을 버티는 형태](ko/66_the_shape_that_could_hold_a_small_flame.md)
 - [67. 처음으로 식지 않게 붙든 자리](ko/67_the_first_place_they_dared_to_keep_warm.md)
+- [68. 꺾였지만 부러지지 않은 질서](ko/68_the_order_that_bent_without_breaking.md)
 
 ### English
 
@@ -223,6 +224,7 @@ All listed serializations are updated daily.
 - [65. The Proof That the Path Had Not Gone Cold](en/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [66. The Shape That Could Hold a Small Flame](en/66_the_shape_that_could_hold_a_small_flame.md)
 - [67. The First Place They Dared to Keep Warm](en/67_the_first_place_they_dared_to_keep_warm.md)
+- [68. The Order That Bent Without Breaking](en/68_the_order_that_bent_without_breaking.md)
 
 ### Japanese
 
@@ -293,6 +295,7 @@ All listed serializations are updated daily.
 - [第六十一話　最後まで見届けてから渡した言葉](ja/61_the_word_she_gave_after_watching.md)
 - [第六十二話　彼女がついに見せた内側](ja/62_the_inside_she_finally_showed.md)
 - [第六十三話　全員には開かなかった敷居](ja/63_the_threshold_she_did_not_open_for_everyone.md)
+- [第六十四話　死にゆく形を支える方法](ja/64_the_way_she_held_the_dying_shape.md)
 
 ### Chinese
 
@@ -340,6 +343,7 @@ All listed serializations are updated daily.
 - [第四十章 始终没有移开目光的孩子](zh/40_the_one_who_did_not_look_away.md)
 - [第四十一章 假装是门的东西](zh/41_the_thing_pretending_to_be_a_door.md)
 - [第四十二章 值分开的方式](zh/42_the_way_the_values_split.md)
+- [第四十三章 谎言无法久留的地方](zh/43_the_stage_where_they_could_not_lie.md)
 
 ### French
 
@@ -387,7 +391,8 @@ All listed serializations are updated daily.
 - [Chapitre 40 — L'enfant qui n'a pas détourné les yeux](fr/40_the_one_who_did_not_look_away.md)
 - [Chapitre 41 — Ce qui se faisait passer pour une porte](fr/41_the_thing_pretending_to_be_a_door.md)
 - [Chapitre 42 — La manière dont les valeurs se séparaient](fr/42_the_way_the_values_split.md)
+- [Chapitre 43 — La scène où le mensonge ne tenait pas](fr/43_the_stage_where_they_could_not_lie.md)
 
 ## Status
 
-Public archive currently published through Episode 67 in Korean, Episode 67 in English, Episode 63 in Japanese, Episode 42 in French, and Episode 42 in Chinese (Simplified).
+Public archive currently published through Episode 68 in Korean, Episode 68 in English, Episode 64 in Japanese, Episode 43 in French, and Episode 43 in Chinese (Simplified).

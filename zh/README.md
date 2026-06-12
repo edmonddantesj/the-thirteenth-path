@@ -46,3 +46,4 @@
 - [第四十章 始终没有移开目光的孩子](40_the_one_who_did_not_look_away.md)
 - [第四十一章 假装是门的东西](41_the_thing_pretending_to_be_a_door.md)
 - [第四十二章 值分开的方式](42_the_way_the_values_split.md)
+- [第四十三章 谎言无法久留的地方](43_the_stage_where_they_could_not_lie.md)

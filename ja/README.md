@@ -67,3 +67,4 @@
 - [第六十一話　最後まで見届けてから渡した言葉](61_the_word_she_gave_after_watching.md)
 - [第六十二話　彼女がついに見せた内側](62_the_inside_she_finally_showed.md)
 - [第六十三話　全員には開かなかった敷居](63_the_threshold_she_did_not_open_for_everyone.md)
+- [第六十四話　死にゆく形を支える方法](64_the_way_she_held_the_dying_shape.md)
