@@ -76,4 +76,3 @@
 - [66화. 작은 불을 버티는 형태](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [67화. 처음으로 식지 않게 붙든 자리](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [68화. 꺾였지만 부러지지 않은 질서](02_hazran/68_the_order_that_bent_without_breaking.md)
-- [프롤로그. 마지막 기록수](00_the_last_archivist.md)
