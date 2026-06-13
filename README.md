@@ -296,6 +296,7 @@ All listed serializations are updated daily.
 - [第六十二話　彼女がついに見せた内側](ja/62_the_inside_she_finally_showed.md)
 - [第六十三話　全員には開かなかった敷居](ja/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四話　死にゆく形を支える方法](ja/64_the_way_she_held_the_dying_shape.md)
+- [第六十五話　道が冷めていなかった証拠](ja/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ### Chinese
 
@@ -344,6 +345,7 @@ All listed serializations are updated daily.
 - [第四十一章 假装是门的东西](zh/41_the_thing_pretending_to_be_a_door.md)
 - [第四十二章 值分开的方式](zh/42_the_way_the_values_split.md)
 - [第四十三章 谎言无法久留的地方](zh/43_the_stage_where_they_could_not_lie.md)
+- [第四十四章 从不提高嗓音的人](zh/44_the_man_who_did_not_raise_his_voice.md)
 
 ### French
 
@@ -392,7 +394,8 @@ All listed serializations are updated daily.
 - [Chapitre 41 — Ce qui se faisait passer pour une porte](fr/41_the_thing_pretending_to_be_a_door.md)
 - [Chapitre 42 — La manière dont les valeurs se séparaient](fr/42_the_way_the_values_split.md)
 - [Chapitre 43 — La scène où le mensonge ne tenait pas](fr/43_the_stage_where_they_could_not_lie.md)
+- [Chapitre 44 — L'homme qui n'élevait pas la voix](fr/44_the_man_who_did_not_raise_his_voice.md)
 
 ## Status
 
-Public archive currently published through Episode 68 in Korean, Episode 68 in English, Episode 64 in Japanese, Episode 43 in French, and Episode 43 in Chinese (Simplified).
+Public archive currently published through Episode 68 in Korean, Episode 68 in English, Episode 65 in Japanese, Episode 44 in French, and Episode 44 in Chinese (Simplified).

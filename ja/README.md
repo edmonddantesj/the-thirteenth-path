@@ -68,3 +68,4 @@
 - [第六十二話　彼女がついに見せた内側](62_the_inside_she_finally_showed.md)
 - [第六十三話　全員には開かなかった敷居](63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四話　死にゆく形を支える方法](64_the_way_she_held_the_dying_shape.md)
+- [第六十五話　道が冷めていなかった証拠](65_the_proof_that_the_path_had_not_gone_cold.md)

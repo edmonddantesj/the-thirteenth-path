@@ -47,3 +47,4 @@ Chapitres publics actuels :
 - [Chapitre 41 — Ce qui se faisait passer pour une porte](41_the_thing_pretending_to_be_a_door.md)
 - [Chapitre 42 — La manière dont les valeurs se séparaient](42_the_way_the_values_split.md)
 - [Chapitre 43 — La scène où le mensonge ne tenait pas](43_the_stage_where_they_could_not_lie.md)
+- [Chapitre 44 — L'homme qui n'élevait pas la voix](44_the_man_who_did_not_raise_his_voice.md)
