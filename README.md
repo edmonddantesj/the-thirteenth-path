@@ -155,6 +155,7 @@ Each language directory is organized by arc:
 - [66. 작은 불을 버티는 형태](ko/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [67. 처음으로 식지 않게 붙든 자리](ko/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [68. 꺾였지만 부러지지 않은 질서](ko/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [00. 프롤로그. 마지막 기록수](ko/00_the_last_archivist.md)
 
 ### English
 
@@ -230,6 +231,7 @@ Each language directory is organized by arc:
 - [66. The Shape That Could Hold a Small Flame](en/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [67. The First Place They Dared to Keep Warm](en/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [68. The Order That Bent Without Breaking](en/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [00. The Last Archivist](en/00_the_last_archivist.md)
 
 ### Japanese
 
@@ -302,6 +304,7 @@ Each language directory is organized by arc:
 - [第六十三話　全員には開かなかった敷居](ja/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四話　死にゆく形を支える方法](ja/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五話　道が冷めていなかった証拠](ja/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [第十三の道 ―焼かれた名前を拾う者たち―](ja/00_the_last_archivist.md)
 
 ### Chinese
 
@@ -353,6 +356,7 @@ Each language directory is organized by arc:
 - [第四十二章 值分开的方式](zh/02_hazran/42_the_way_the_values_split.md)
 - [第四十三章 谎言无法久留的地方](zh/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [第四十四章 从不提高嗓音的人](zh/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [序章 最后的记录官](zh/00_the_last_archivist.md)
 
 ### French
 
@@ -404,7 +408,8 @@ Each language directory is organized by arc:
 - [Chapitre 42 — La manière dont les valeurs se séparaient](fr/02_hazran/42_the_way_the_values_split.md)
 - [Chapitre 43 — La scène où le mensonge ne tenait pas](fr/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [Chapitre 44 — L'homme qui n'élevait pas la voix](fr/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [Prologue — Le Dernier Archiviste](fr/00_the_last_archivist.md)
 
 ## Status
 
-Public archive currently published through Episode 68 in Korean, Episode 68 in English, Episode 65 in Japanese, Episode 44 in French, and Episode 44 in Chinese (Simplified).
+Public archive currently published through Episode 0 in Korean, Episode 0 in English, Episode 0 in Japanese, Episode 0 in French, and Episode 0 in Chinese (Simplified).

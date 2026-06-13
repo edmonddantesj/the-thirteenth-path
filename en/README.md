@@ -76,3 +76,4 @@ Current public English release:
 - [Episode 66. The Shape That Could Hold a Small Flame](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Episode 67. The First Place They Dared to Keep Warm](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Episode 68. The Order That Bent Without Breaking](02_hazran/68_the_order_that_bent_without_breaking.md)
+- [Episode 00. The Last Archivist](00_the_last_archivist.md)
