@@ -302,6 +302,7 @@ Each language directory is organized by arc:
 - [第六十三話　全員には開かなかった敷居](ja/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四話　死にゆく形を支える方法](ja/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五話　道が冷めていなかった証拠](ja/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [第六十六話　小さな火を堪える形](ja/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 
 ### Chinese
 
@@ -353,6 +354,7 @@ Each language directory is organized by arc:
 - [第四十二章 值分开的方式](zh/02_hazran/42_the_way_the_values_split.md)
 - [第四十三章 谎言无法久留的地方](zh/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [第四十四章 从不提高嗓音的人](zh/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [第四十五章 要求证明的规则](zh/02_hazran/45_the_rule_that_asked_for_proof.md)
 
 ### French
 
@@ -404,7 +406,8 @@ Each language directory is organized by arc:
 - [Chapitre 42 — La manière dont les valeurs se séparaient](fr/02_hazran/42_the_way_the_values_split.md)
 - [Chapitre 43 — La scène où le mensonge ne tenait pas](fr/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [Chapitre 44 — L'homme qui n'élevait pas la voix](fr/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [Chapitre 45 — La règle qui exigeait une preuve](fr/02_hazran/45_the_rule_that_asked_for_proof.md)
 
 ## Status
 
-Public archive currently published through Episode 0 in Korean, Episode 0 in English, Episode 0 in Japanese, Episode 0 in French, and Episode 0 in Chinese (Simplified).
+Public archive currently published through Episode 68 in Korean, Episode 68 in English, Episode 66 in Japanese, Episode 45 in French, and Episode 45 in Chinese (Simplified).

@@ -73,3 +73,4 @@
 - [第六十三話　全員には開かなかった敷居](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四話　死にゆく形を支える方法](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五話　道が冷めていなかった証拠](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [第六十六話　小さな火を堪える形](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)

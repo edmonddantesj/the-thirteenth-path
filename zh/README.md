@@ -52,3 +52,4 @@
 - [第四十二章 值分开的方式](02_hazran/42_the_way_the_values_split.md)
 - [第四十三章 谎言无法久留的地方](02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [第四十四章 从不提高嗓音的人](02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [第四十五章 要求证明的规则](02_hazran/45_the_rule_that_asked_for_proof.md)
