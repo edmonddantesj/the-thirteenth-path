@@ -74,3 +74,4 @@
 - [第六十四話　死にゆく形を支える方法](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五話　道が冷めていなかった証拠](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [第六十六話　小さな火を堪える形](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [第六十七話　初めて冷まさずに支えた場所](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
