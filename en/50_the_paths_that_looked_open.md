@@ -178,7 +178,7 @@ Sion answered shortly.
 
 Jiwoo did not hesitate.
 
-He pressed the skiff not onto the upper route but directly below it, onto a narrow line so dirty it looked like no one would take it.
+She pressed the skiff not onto the upper route but directly below it, onto a narrow line so dirty it looked like no one would take it.
 
 And exactly three beats later, the upper frame plate split wide and the front of the dark-red glider sank downward.
 
