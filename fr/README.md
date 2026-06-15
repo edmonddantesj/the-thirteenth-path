@@ -54,3 +54,4 @@ Chapitres publics actuels :
 - [Chapitre 44 — L'homme qui n'élevait pas la voix](02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [Chapitre 45 — La règle qui exigeait une preuve](02_hazran/45_the_rule_that_asked_for_proof.md)
 - [Chapitre 46 — Le lieu où les mains se pesaient](02_hazran/46_the_place_where_hands_were_weighed.md)
+- [Chapitre 47 — Le nom appelé en premier](02_hazran/47_the_name_called_first.md)

@@ -54,3 +54,4 @@
 - [第四十四章 从不提高嗓音的人](02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [第四十五章 要求证明的规则](02_hazran/45_the_rule_that_asked_for_proof.md)
 - [第四十六章 手值被标上的地方](02_hazran/46_the_place_where_hands_were_weighed.md)
+- [第四十七章 最先被叫到的名字](02_hazran/47_the_name_called_first.md)

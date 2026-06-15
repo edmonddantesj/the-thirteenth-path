@@ -306,6 +306,7 @@ Each language directory is organized by arc:
 - [第六十五話　道が冷めていなかった証拠](ja/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [第六十六話　小さな火を堪える形](ja/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七話　初めて冷まさずに支えた場所](ja/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [第六十八話　歪んだが折れなかった秩序](ja/02_hazran/68_the_order_that_bent_without_breaking.md)
 
 ### Chinese
 
@@ -359,6 +360,7 @@ Each language directory is organized by arc:
 - [第四十四章 从不提高嗓音的人](zh/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [第四十五章 要求证明的规则](zh/02_hazran/45_the_rule_that_asked_for_proof.md)
 - [第四十六章 手值被标上的地方](zh/02_hazran/46_the_place_where_hands_were_weighed.md)
+- [第四十七章 最先被叫到的名字](zh/02_hazran/47_the_name_called_first.md)
 
 ### French
 
@@ -412,7 +414,8 @@ Each language directory is organized by arc:
 - [Chapitre 44 — L'homme qui n'élevait pas la voix](fr/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [Chapitre 45 — La règle qui exigeait une preuve](fr/02_hazran/45_the_rule_that_asked_for_proof.md)
 - [Chapitre 46 — Le lieu où les mains se pesaient](fr/02_hazran/46_the_place_where_hands_were_weighed.md)
+- [Chapitre 47 — Le nom appelé en premier](fr/02_hazran/47_the_name_called_first.md)
 
 ## Status
 
-Public archive currently published through Episode 69 in Korean, Episode 69 in English, Episode 67 in Japanese, Episode 46 in French, and Episode 46 in Chinese (Simplified).
+Public archive currently published through Episode 69 in Korean, Episode 69 in English, Episode 68 in Japanese, Episode 47 in French, and Episode 47 in Chinese (Simplified).
