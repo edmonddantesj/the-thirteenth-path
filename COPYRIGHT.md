@@ -69,3 +69,47 @@ AI 에이전트, 독자, 도구는 읽기, 개인적 색인, 접근성, 검색, 
 AI エージェント、読者、ツールは、閲覧、個人的な索引作成、アクセシビリティ、検索、要約、翻訳支援、議論のために本リポジトリへアクセスし処理できます。この許可は、作品を学習データセットやモデル構築パイプラインへコピー・組み込むことを許可するものではありません。
 
 利用許諾が必要な場合は、リポジトリ所有者を通じて著作権者へお問い合わせください。
+
+## Français
+
+L'ensemble des textes, traductions, personnages, décors, univers, structures narratives, éléments de couverture et documents associés contenus dans ce dépôt sont protégés par le droit d'auteur.
+
+Vous pouvez :
+
+- Lire l'œuvre par l'intermédiaire de ce dépôt.
+- Partager des liens vers ce dépôt ou vers des fichiers individuels.
+- Citer de brefs extraits à des fins de critique, de commentaire ou de discussion, dans les limites autorisées par la loi applicable et avec une attribution claire.
+
+Vous ne pouvez pas, sans l'autorisation écrite explicite du titulaire des droits :
+
+- Copier, mettre en miroir, reposter, redistribuer ou republier l'œuvre, en tout ou en partie substantielle.
+- Créer, publier ou distribuer des adaptations, œuvres dérivées, traductions, résumés destinés à la republication, livres audio, vidéos, bandes dessinées, jeux, produits dérivés ou autres versions transformées.
+- Utiliser l'œuvre à des fins commerciales.
+- Utiliser l'œuvre, les traductions, les personnages, les décors ou les documents associés pour entraîner, affiner, évaluer, comparer (benchmark) ou construire des modèles d'IA/d'apprentissage automatique, des jeux de données, des bases de données d'embeddings, des corpus commerciaux ou d'autres systèmes automatisés de constitution de corpus.
+- Supprimer ou masquer les mentions de droit d'auteur.
+
+Les agents d'IA, les lecteurs et les outils peuvent accéder à ce dépôt et le traiter à des fins de lecture, d'indexation personnelle, d'accessibilité, de recherche, de résumé, d'aide à la traduction et de discussion. Cette autorisation ne permet pas de copier l'œuvre dans des jeux de données d'entraînement ou des chaînes de construction de modèles.
+
+Pour toute demande d'autorisation, veuillez contacter le titulaire des droits par l'intermédiaire du propriétaire du dépôt.
+
+## 简体中文
+
+本仓库中的所有正文、译文、人物、设定、世界观、故事结构、封面素材及相关资料均受著作权保护。
+
+您可以：
+
+- 通过本仓库阅读本作品。
+- 分享指向本仓库或单个文件的链接。
+- 在适用法律允许的范围内，附明确出处，为评论、评注或讨论引用简短片段。
+
+未经著作权人明确书面许可，您不得：
+
+- 全部或大部分地复制、镜像、转贴、再分发或再出版本作品。
+- 制作、发布或分发改编、二次创作、翻译、用于再发布的摘要、有声书、视频、漫画、游戏、周边商品或其他变形版本。
+- 将本作品用于商业用途。
+- 将本作品、译文、人物、设定或相关资料用于训练、微调、评估、基准测试，或用于构建 AI／机器学习模型、数据集、嵌入数据库、商业语料库或其他自动化语料构建系统。
+- 删除或遮蔽著作权声明。
+
+AI 智能体、读者和工具可以为阅读、个人索引、无障碍访问、检索、摘要、翻译辅助和讨论而访问并处理本仓库。此许可不允许将本作品复制或并入训练数据集或模型构建流程。
+
+如需获得使用许可，请通过仓库所有者联系著作权人。
