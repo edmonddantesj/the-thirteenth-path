@@ -64,7 +64,7 @@ Kael cut in for the first time at the end of that exchange.
 
 "Elia."
 He said in a sunken voice.
-"The reading-hand's name?"
+"The reading hand's name?"
 
 Sion neither confirmed nor denied immediately. After a brief silence, he said short.
 
@@ -92,7 +92,7 @@ Seorin noticed his expression changing and came closer.
 
 Sion did not answer immediately. But Seorin saw the paper. And she immediately knew whose handwriting it was.
 
-"The reading-hand left it?"
+"The reading hand left it?"
 
 Sion held the paper, unable even to fold it back, silent for a moment.
 

@@ -49,13 +49,13 @@ She asked.
 
 Sion did not hide it.
 
-"The reading-hand."
+"The reading hand."
 
 Nasim murmured from beside, half-smiling.
 
 "People like that always leave problems behind."
 
-Sion did not let that pass. It was not someone who knew Elia precisely — but the voice of someone who knew how reading-hands were treated on this floor.
+Sion did not let that pass. It was not someone who knew Elia precisely — but the voice of someone who knew how reading hands were treated on this floor.
 
 Nahira looked at Sion's face for a long time, then asked again.
 

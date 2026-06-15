@@ -22,7 +22,7 @@ Ater did not answer immediately, even at Sern's words. Instead, his fingertips s
 
 Ater's hand stopped then.
 
-Sern did not miss that moment. Very brief. But clearly — sir had paused his thought at that point.
+Sern did not miss that moment. Very brief. But clearly — my lord had paused his thought at that point.
 
 "This is not a routine disposal case." Sern added. "The access line went through first, and the seal line covered it afterward. The sequence is wrong."
 
@@ -40,7 +40,7 @@ Before answering, Ater let his gaze rest on the closed record panel's surface. B
 
 "For now, verification."
 
-Sern stored that *for now* separately in his mind. Sir always used precise language, and precise language usually came slightly after the actual judgment had already been made.
+Sern stored that *for now* separately in his mind. My lord always used precise language, and precise language usually came slightly after the actual judgment had already been made.
 
 "Understood."
 
@@ -52,7 +52,7 @@ Ater finally turned.
 
 "Sern."
 
-"Yes, sir."
+"Yes, my lord."
 
 "First determine who reached the scene before us."
 
@@ -64,7 +64,7 @@ Ater neither confirmed nor denied. He only said, very low:
 
 "It seems an unordered hand has entered."
 
-Sern asked nothing further. Instead he turned back toward the terminal. Sir rarely used the word *unordered*. And when that expression appeared, things usually flowed in a direction more troublesome than sealing.
+Sern asked nothing further. Instead he turned back toward the terminal. My lord rarely used the word *unordered*. And when that expression appeared, things usually flowed in a direction more troublesome than sealing.
 
 He pulled up the outer access list kept separately beyond the approval line. There was more than one way into the neutral port city. Official envoy vessels, Empire logistics-authorized lines, civilian-contracted transfer ships, and gray routes that left no record. The question was which of those had moved first.
 
@@ -76,7 +76,7 @@ Absence meant two things. Either they had not moved yet — or they had already 
 
 Sern leaned toward the latter.
 
-"Sir."
+"My lord."
 
 "Go ahead."
 

@@ -136,15 +136,15 @@ Sion said.
 
 Jiwoo did not answer shortly this time.
 
-Instead, he listened to the skiff's vibration once, then spoke.
+Instead, she listened to the skiff's vibration once, then spoke.
 
 "Close in and we die. Break away and we live."
 
-That was said to Sion, and sounded like a conclusion spoken to himself.
+That was said to Sion, and sounded like a conclusion spoken to herself.
 
 The next moment, in front of the bottleneck the dark-red glider was trying to seal, Jiwoo did not go further inside.
 
-He went down.
+She went down.
 
 A dead slope beneath the heat-warped outer edge that barely looked like ground. A line no race hand would ride. But right now, a line only hands that needed to survive—not race—would ride.
 

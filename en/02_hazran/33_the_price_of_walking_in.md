@@ -14,17 +14,17 @@ The two words still had no explanation. But now they felt less like a direction 
 Jiwoo, upper body nearly shoved inside the panel, said.
 
 "Nice."
-He muttered low.
+She muttered low.
 "Just wonderful. This broke beautifully."
 
 Seorin followed at once.
 
 "Can you save it or not."
 
-Jiwoo did not answer for a long time, then — after prying something loose inside with a *tok* — pulled himself out. In his fingertips: a blackened response-line fragment.
+Jiwoo did not answer for a long time, then — after prying something loose inside with a *tok* — pulled herself out. In her fingertips: a blackened response-line fragment.
 
 "I can save it."
-He said.
+She said.
 "But it absolutely cannot fly like this. One axis is near-dead, two auxiliary lift plates have delayed response. Without proper etherite, this thing becomes a coffin here."
 
 Short silence.
@@ -35,7 +35,7 @@ Sion asked.
 
 "Quality over quantity."
 Jiwoo answered immediately.
-"Not fake — real. And for this level of damage, powder won't work. Needs grain-alive material to bond."
+"Not fake — real. And for this level of damage, powder won't work. Needs material with the grain still alive to bond."
 
 Ater said low.
 
@@ -69,7 +69,7 @@ Kael, hearing that, pulled his gaze from outside the slit for the first time.
 
 "Is there a specific place selling etherite?"
 
-Jiwoo rolled his shoulders once.
+Jiwoo rolled her shoulders once.
 
 "There'll be places selling it. The question is whether the real thing is there."
 
@@ -113,7 +113,7 @@ Jiwoo asked back.
 Seorin cut.
 "If we sit here going through this ship's full condition, the trace only gets deeper. Take what's needed and find the market first."
 
-Jiwoo clicked his tongue as if swallowing complaint, but did not argue. In truth he knew better than anyone. The engine heat, the broken axis, the hot outer wall — he'd want to touch them before they cooled, but getting the materials to survive had to come first.
+Jiwoo clicked her tongue as if swallowing complaint, but did not argue. In truth she knew better than anyone. The engine heat, the broken axis, the hot outer wall — she'd want to touch them before they cooled, but getting the materials to survive had to come first.
 
 Ater asked quietly.
 
@@ -183,7 +183,7 @@ Kael said, plain.
 
 That did not sound like bluster. Sion, Seorin, Ater — none immediately argued. This person had clearly chased similar fragments before, multiple times. The ability to price information at a market, dodge eyes, and follow scent — here, that was clearly useful.
 
-Jiwoo clicked his tongue softly.
+Jiwoo clicked her tongue softly.
 
 "Nice. So it's just me and Sern left."
 

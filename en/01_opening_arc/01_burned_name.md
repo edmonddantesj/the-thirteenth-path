@@ -365,7 +365,7 @@ Seorin asked.
 
 Seorin laughed like a sigh.
 
-Then just scoffed. Bureau-grade lawbreaker. Exactly that scent.
+She just scoffed. Bureau-grade lawbreaker. That was exactly the scent of it.
 
 ---
 

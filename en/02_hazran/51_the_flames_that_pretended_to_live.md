@@ -112,7 +112,7 @@ Sion said low.
 
 Jiwoo did not ask immediately.
 
-Instead, he pressed the skiff slowly toward it. Piloting that knew rushing in could cause the glass layer beneath to slide—in this final zone, his hands were far more careful than at the opening glide strip.
+Instead, she pressed the skiff slowly toward it. Piloting that knew rushing in could cause the glass layer beneath to slide—in this final zone, her hands were far more careful than at the opening glide strip.
 
 Right then, from the outer right, the dark-red glider cut back in on a revived line.
 

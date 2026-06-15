@@ -98,7 +98,7 @@ The experienced pilot righted the hull immediately, but the rear rider shook har
 
 Jiwoo would not miss that gap.
 
-He pushed the skiff not further inside but beneath a broken frame below.
+She pushed the skiff not further inside but beneath a broken frame below.
 
 Sion knew almost by instinct.
 
