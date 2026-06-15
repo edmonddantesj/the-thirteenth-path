@@ -55,3 +55,4 @@
 - [第四十五章 要求证明的规则](02_hazran/45_the_rule_that_asked_for_proof.md)
 - [第四十六章 手值被标上的地方](02_hazran/46_the_place_where_hands_were_weighed.md)
 - [第四十七章 最先被叫到的名字](02_hazran/47_the_name_called_first.md)
+- [第四十八章 值被喊出的疾驰](02_hazran/48_the_run_where_values_were_shouted.md)

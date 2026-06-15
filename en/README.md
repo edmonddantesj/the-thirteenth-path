@@ -77,3 +77,4 @@ Current public English release:
 - [Episode 67. The First Place They Dared to Keep Warm](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Episode 68. The Order That Bent Without Breaking](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [Episode 69. The Air of Staying Before Leaving](02_hazran/69_the_air_of_staying_before_leaving.md)
+- [Episode 70. The First Day They Did Not Have to Run](02_hazran/70_the_first_day_they_did_not_have_to_run.md)

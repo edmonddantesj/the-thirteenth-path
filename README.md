@@ -156,6 +156,7 @@ Each language directory is organized by arc:
 - [67. 처음으로 식지 않게 붙든 자리](ko/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [68. 꺾였지만 부러지지 않은 질서](ko/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [69. 떠나기 전에 한 번 머무는 공기](ko/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [70. 아직은 더 살려야 하는 몸](ko/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ### English
 
@@ -232,6 +233,7 @@ Each language directory is organized by arc:
 - [67. The First Place They Dared to Keep Warm](en/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [68. The Order That Bent Without Breaking](en/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [69. The Air of Staying Before Leaving](en/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [70. The First Day They Did Not Have to Run](en/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ### Japanese
 
@@ -307,6 +309,7 @@ Each language directory is organized by arc:
 - [第六十六話　小さな火を堪える形](ja/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七話　初めて冷まさずに支えた場所](ja/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八話　歪んだが折れなかった秩序](ja/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [第六十九話　発つ前に一度留まる空気](ja/02_hazran/69_the_air_of_staying_before_leaving.md)
 
 ### Chinese
 
@@ -361,6 +364,7 @@ Each language directory is organized by arc:
 - [第四十五章 要求证明的规则](zh/02_hazran/45_the_rule_that_asked_for_proof.md)
 - [第四十六章 手值被标上的地方](zh/02_hazran/46_the_place_where_hands_were_weighed.md)
 - [第四十七章 最先被叫到的名字](zh/02_hazran/47_the_name_called_first.md)
+- [第四十八章 值被喊出的疾驰](zh/02_hazran/48_the_run_where_values_were_shouted.md)
 
 ### French
 
@@ -415,7 +419,8 @@ Each language directory is organized by arc:
 - [Chapitre 45 — La règle qui exigeait une preuve](fr/02_hazran/45_the_rule_that_asked_for_proof.md)
 - [Chapitre 46 — Le lieu où les mains se pesaient](fr/02_hazran/46_the_place_where_hands_were_weighed.md)
 - [Chapitre 47 — Le nom appelé en premier](fr/02_hazran/47_the_name_called_first.md)
+- [Chapitre 48 — La course où les valeurs se criaient](fr/02_hazran/48_the_run_where_values_were_shouted.md)
 
 ## Status
 
-Public archive currently published through Episode 69 in Korean, Episode 69 in English, Episode 68 in Japanese, Episode 47 in French, and Episode 47 in Chinese (Simplified).
+Public archive currently published through Episode 70 in Korean, Episode 70 in English, Episode 69 in Japanese, Episode 48 in French, and Episode 48 in Chinese (Simplified).

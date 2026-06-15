@@ -76,3 +76,4 @@
 - [第六十六話　小さな火を堪える形](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七話　初めて冷まさずに支えた場所](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八話　歪んだが折れなかった秩序](02_hazran/68_the_order_that_bent_without_breaking.md)
+- [第六十九話　発つ前に一度留まる空気](02_hazran/69_the_air_of_staying_before_leaving.md)
