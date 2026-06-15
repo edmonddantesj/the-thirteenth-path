@@ -35,7 +35,7 @@ Sion asked.
 
 "Quality over quantity."
 Jiwoo answered immediately.
-"Not fake — real. And for this level of damage, powder won't work. Needs grain-alive material to bond."
+"Not fake — real. And for this level of damage, powder won't work. Needs material with the grain still alive to bond."
 
 Ater said low.
 

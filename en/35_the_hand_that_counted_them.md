@@ -113,7 +113,7 @@ Sion heard the way that name sat in the mouth.
 
 Luhai.
 
-A name with green pigment. A grain different from market dust — yet the kind of fast-mouthed name you'd need to survive long here.
+A name with a green tint to it. A grain different from market dust — yet the kind of fast-mouthed name you'd need to survive long here.
 
 The merchant reached nearly arm's length and screamed.
 

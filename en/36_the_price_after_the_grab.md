@@ -1,8 +1,8 @@
 # Episode 36. The Price After the Grab
 
-The footsteps walking in from beyond the alley entrance's shadow were not someone coming to settle a commotion.
+The footsteps walking in from beyond the alley entrance's shadow were not coming to settle a commotion.
 
-They were footsteps coming to count who had touched the wrong price and who could afford to pay.
+They were coming to count who had touched the wrong price and who could afford to pay.
 
 People cleared the way first. No one shouted for them to — they just did. A rare kind of organizing for the outer-layer market. When prices climbed, the crowd usually pressed closer — but now they were stepping back. Laughter and curses had not fully died, yet over them a thinner layer of silence was settling.
 
