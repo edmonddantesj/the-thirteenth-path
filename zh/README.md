@@ -57,3 +57,4 @@
 - [第四十七章 最先被叫到的名字](02_hazran/47_the_name_called_first.md)
 - [第四十八章 值被喊出的疾驰](02_hazran/48_the_run_where_values_were_shouted.md)
 - [第四十九章 许多东西碎裂的红色滑道](02_hazran/49_the_red_glide_where_the_many_broke.md)
+- [第五十章 看似敞开的路](02_hazran/50_the_paths_that_looked_open.md)

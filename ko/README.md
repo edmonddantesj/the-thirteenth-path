@@ -78,3 +78,4 @@
 - [68화. 꺾였지만 부러지지 않은 질서](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [69화. 떠나기 전에 한 번 머무는 공기](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [70화. 아직은 더 살려야 하는 몸](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [71화. 열이 가신 뒤에야 열리는 바자르](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)

@@ -157,6 +157,7 @@ Each language directory is organized by arc:
 - [68. 꺾였지만 부러지지 않은 질서](ko/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [69. 떠나기 전에 한 번 머무는 공기](ko/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [70. 아직은 더 살려야 하는 몸](ko/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [71. 열이 가신 뒤에야 열리는 바자르](ko/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 
 ### English
 
@@ -234,6 +235,7 @@ Each language directory is organized by arc:
 - [68. The Order That Bent Without Breaking](en/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [69. The Air of Staying Before Leaving](en/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [70. The First Day They Did Not Have to Run](en/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [71. The Bazaar That Only Opened After Heat](en/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 
 ### Japanese
 
@@ -311,6 +313,7 @@ Each language directory is organized by arc:
 - [第六十八話　歪んだが折れなかった秩序](ja/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九話　発つ前に一度留まる空気](ja/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十話　まだもっと生かさなければならない体](ja/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [第七十一話　熱が引いてから開くバザール](ja/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 
 ### Chinese
 
@@ -367,6 +370,7 @@ Each language directory is organized by arc:
 - [第四十七章 最先被叫到的名字](zh/02_hazran/47_the_name_called_first.md)
 - [第四十八章 值被喊出的疾驰](zh/02_hazran/48_the_run_where_values_were_shouted.md)
 - [第四十九章 许多东西碎裂的红色滑道](zh/02_hazran/49_the_red_glide_where_the_many_broke.md)
+- [第五十章 看似敞开的路](zh/02_hazran/50_the_paths_that_looked_open.md)
 
 ### French
 
@@ -423,7 +427,8 @@ Each language directory is organized by arc:
 - [Chapitre 47 — Le nom appelé en premier](fr/02_hazran/47_the_name_called_first.md)
 - [Chapitre 48 — La course où les valeurs se criaient](fr/02_hazran/48_the_run_where_values_were_shouted.md)
 - [Chapitre 49 — La piste rouge où tant se brisèrent](fr/02_hazran/49_the_red_glide_where_the_many_broke.md)
+- [Chapitre 50 — Les chemins qui semblaient ouverts](fr/02_hazran/50_the_paths_that_looked_open.md)
 
 ## Status
 
-Public archive currently published through Episode 70 in Korean, Episode 70 in English, Episode 70 in Japanese, Episode 49 in French, and Episode 49 in Chinese (Simplified).
+Public archive currently published through Episode 71 in Korean, Episode 71 in English, Episode 71 in Japanese, Episode 50 in French, and Episode 50 in Chinese (Simplified).
