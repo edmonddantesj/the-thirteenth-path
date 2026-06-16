@@ -310,6 +310,7 @@ Each language directory is organized by arc:
 - [第六十七話　初めて冷まさずに支えた場所](ja/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八話　歪んだが折れなかった秩序](ja/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九話　発つ前に一度留まる空気](ja/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [第七十話　まだもっと生かさなければならない体](ja/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ### Chinese
 
@@ -365,6 +366,7 @@ Each language directory is organized by arc:
 - [第四十六章 手值被标上的地方](zh/02_hazran/46_the_place_where_hands_were_weighed.md)
 - [第四十七章 最先被叫到的名字](zh/02_hazran/47_the_name_called_first.md)
 - [第四十八章 值被喊出的疾驰](zh/02_hazran/48_the_run_where_values_were_shouted.md)
+- [第四十九章 许多东西碎裂的红色滑道](zh/02_hazran/49_the_red_glide_where_the_many_broke.md)
 
 ### French
 
@@ -420,7 +422,8 @@ Each language directory is organized by arc:
 - [Chapitre 46 — Le lieu où les mains se pesaient](fr/02_hazran/46_the_place_where_hands_were_weighed.md)
 - [Chapitre 47 — Le nom appelé en premier](fr/02_hazran/47_the_name_called_first.md)
 - [Chapitre 48 — La course où les valeurs se criaient](fr/02_hazran/48_the_run_where_values_were_shouted.md)
+- [Chapitre 49 — La piste rouge où tant se brisèrent](fr/02_hazran/49_the_red_glide_where_the_many_broke.md)
 
 ## Status
 
-Public archive currently published through Episode 70 in Korean, Episode 70 in English, Episode 69 in Japanese, Episode 48 in French, and Episode 48 in Chinese (Simplified).
+Public archive currently published through Episode 70 in Korean, Episode 70 in English, Episode 70 in Japanese, Episode 49 in French, and Episode 49 in Chinese (Simplified).

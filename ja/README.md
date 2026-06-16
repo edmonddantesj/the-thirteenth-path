@@ -77,3 +77,4 @@
 - [第六十七話　初めて冷まさずに支えた場所](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八話　歪んだが折れなかった秩序](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九話　発つ前に一度留まる空気](02_hazran/69_the_air_of_staying_before_leaving.md)
+- [第七十話　まだもっと生かさなければならない体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)

@@ -56,3 +56,4 @@ Chapitres publics actuels :
 - [Chapitre 46 — Le lieu où les mains se pesaient](02_hazran/46_the_place_where_hands_were_weighed.md)
 - [Chapitre 47 — Le nom appelé en premier](02_hazran/47_the_name_called_first.md)
 - [Chapitre 48 — La course où les valeurs se criaient](02_hazran/48_the_run_where_values_were_shouted.md)
+- [Chapitre 49 — La piste rouge où tant se brisèrent](02_hazran/49_the_red_glide_where_the_many_broke.md)

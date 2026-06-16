@@ -56,3 +56,4 @@
 - [第四十六章 手值被标上的地方](02_hazran/46_the_place_where_hands_were_weighed.md)
 - [第四十七章 最先被叫到的名字](02_hazran/47_the_name_called_first.md)
 - [第四十八章 值被喊出的疾驰](02_hazran/48_the_run_where_values_were_shouted.md)
+- [第四十九章 许多东西碎裂的红色滑道](02_hazran/49_the_red_glide_where_the_many_broke.md)
