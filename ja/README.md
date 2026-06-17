@@ -79,3 +79,4 @@
 - [第六十九話　発つ前に一度留まる空気](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十話　まだもっと生かさなければならない体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一話　熱が引いてから開くバザール](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [第七十二話　ずっとあったのに今ようやく見える距離](02_hazran/72_the_distance_that_had_always_been_there.md)

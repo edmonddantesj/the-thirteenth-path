@@ -79,3 +79,4 @@ Current public English release:
 - [Episode 69. The Air of Staying Before Leaving](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Episode 70. The First Day They Did Not Have to Run](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Episode 71. The Bazaar That Only Opened After Heat](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [Episode 72. The Distance That Had Always Been There](02_hazran/72_the_distance_that_had_always_been_there.md)

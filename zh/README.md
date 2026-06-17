@@ -59,3 +59,4 @@
 - [第四十九章 许多东西碎裂的红色滑道](02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [第五十章 看似敞开的路](02_hazran/50_the_paths_that_looked_open.md)
 - [第五十一章 那些假装活着的火光](02_hazran/51_the_flames_that_pretended_to_live.md)
+- [第五十二章 规则先弯折的瞬间](02_hazran/52_the_moment_the_rule_bent.md)

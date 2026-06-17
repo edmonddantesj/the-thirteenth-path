@@ -59,3 +59,4 @@ Chapitres publics actuels :
 - [Chapitre 49 — La piste rouge où tant se brisèrent](02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Chapitre 50 — Les chemins qui semblaient ouverts](02_hazran/50_the_paths_that_looked_open.md)
 - [Chapitre 51 — Les flammes qui feignaient de vivre](02_hazran/51_the_flames_that_pretended_to_live.md)
+- [Chapitre 52 — L'instant où la règle plia](02_hazran/52_the_moment_the_rule_bent.md)

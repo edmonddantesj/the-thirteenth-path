@@ -158,6 +158,7 @@ Each language directory is organized by arc:
 - [69. 떠나기 전에 한 번 머무는 공기](ko/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [70. 아직은 더 살려야 하는 몸](ko/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [71. 열이 가신 뒤에야 열리는 바자르](ko/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [72. 늘 있었는데 이제야 보이는 거리](ko/02_hazran/72_the_distance_that_had_always_been_there.md)
 
 ### English
 
@@ -236,6 +237,7 @@ Each language directory is organized by arc:
 - [69. The Air of Staying Before Leaving](en/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [70. The First Day They Did Not Have to Run](en/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [71. The Bazaar That Only Opened After Heat](en/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [72. The Distance That Had Always Been There](en/02_hazran/72_the_distance_that_had_always_been_there.md)
 
 ### Japanese
 
@@ -314,6 +316,7 @@ Each language directory is organized by arc:
 - [第六十九話　発つ前に一度留まる空気](ja/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十話　まだもっと生かさなければならない体](ja/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一話　熱が引いてから開くバザール](ja/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [第七十二話　ずっとあったのに今ようやく見える距離](ja/02_hazran/72_the_distance_that_had_always_been_there.md)
 
 ### Chinese
 
@@ -372,6 +375,7 @@ Each language directory is organized by arc:
 - [第四十九章 许多东西碎裂的红色滑道](zh/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [第五十章 看似敞开的路](zh/02_hazran/50_the_paths_that_looked_open.md)
 - [第五十一章 那些假装活着的火光](zh/02_hazran/51_the_flames_that_pretended_to_live.md)
+- [第五十二章 规则先弯折的瞬间](zh/02_hazran/52_the_moment_the_rule_bent.md)
 
 ### French
 
@@ -430,7 +434,8 @@ Each language directory is organized by arc:
 - [Chapitre 49 — La piste rouge où tant se brisèrent](fr/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Chapitre 50 — Les chemins qui semblaient ouverts](fr/02_hazran/50_the_paths_that_looked_open.md)
 - [Chapitre 51 — Les flammes qui feignaient de vivre](fr/02_hazran/51_the_flames_that_pretended_to_live.md)
+- [Chapitre 52 — L'instant où la règle plia](fr/02_hazran/52_the_moment_the_rule_bent.md)
 
 ## Status
 
-Public archive currently published through Episode 71 in Korean, Episode 71 in English, Episode 71 in Japanese, Episode 51 in French, and Episode 51 in Chinese (Simplified).
+Public archive currently published through Episode 72 in Korean, Episode 72 in English, Episode 72 in Japanese, Episode 52 in French, and Episode 52 in Chinese (Simplified).
