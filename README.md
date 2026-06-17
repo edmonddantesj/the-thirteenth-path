@@ -371,6 +371,7 @@ Each language directory is organized by arc:
 - [第四十八章 值被喊出的疾驰](zh/02_hazran/48_the_run_where_values_were_shouted.md)
 - [第四十九章 许多东西碎裂的红色滑道](zh/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [第五十章 看似敞开的路](zh/02_hazran/50_the_paths_that_looked_open.md)
+- [第五十一章 那些假装活着的火光](zh/02_hazran/51_the_flames_that_pretended_to_live.md)
 
 ### French
 
@@ -428,7 +429,8 @@ Each language directory is organized by arc:
 - [Chapitre 48 — La course où les valeurs se criaient](fr/02_hazran/48_the_run_where_values_were_shouted.md)
 - [Chapitre 49 — La piste rouge où tant se brisèrent](fr/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Chapitre 50 — Les chemins qui semblaient ouverts](fr/02_hazran/50_the_paths_that_looked_open.md)
+- [Chapitre 51 — Les flammes qui feignaient de vivre](fr/02_hazran/51_the_flames_that_pretended_to_live.md)
 
 ## Status
 
-Public archive currently published through Episode 71 in Korean, Episode 71 in English, Episode 71 in Japanese, Episode 50 in French, and Episode 50 in Chinese (Simplified).
+Public archive currently published through Episode 71 in Korean, Episode 71 in English, Episode 71 in Japanese, Episode 51 in French, and Episode 51 in Chinese (Simplified).
