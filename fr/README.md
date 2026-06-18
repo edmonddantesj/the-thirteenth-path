@@ -60,3 +60,4 @@ Chapitres publics actuels :
 - [Chapitre 50 — Les chemins qui semblaient ouverts](02_hazran/50_the_paths_that_looked_open.md)
 - [Chapitre 51 — Les flammes qui feignaient de vivre](02_hazran/51_the_flames_that_pretended_to_live.md)
 - [Chapitre 52 — L'instant où la règle plia](02_hazran/52_the_moment_the_rule_bent.md)
+- [Chapitre 53 — Le terrain qui cessa d'être un jeu](02_hazran/53_the_field_that_stopped_being_a_game.md)
