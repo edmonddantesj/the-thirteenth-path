@@ -80,3 +80,6 @@
 - [70화. 아직은 더 살려야 하는 몸](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [71화. 열이 가신 뒤에야 열리는 바자르](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [72화. 늘 있었는데 이제야 보이는 거리](02_hazran/72_the_distance_that_had_always_been_there.md)
+- [73화. 저마다 하즈란에서 본 것들](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [74화. 오늘 밤만은 조금 더 머물 수 있을 것 같은 밤](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [75화. 전쟁보다 먼저 움직인 보고들](02_hazran/75_the_reports_that_moved_before_the_war.md)

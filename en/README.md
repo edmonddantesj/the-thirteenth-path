@@ -80,3 +80,6 @@ Current public English release:
 - [Episode 70. The First Day They Did Not Have to Run](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Episode 71. The Bazaar That Only Opened After Heat](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [Episode 72. The Distance That Had Always Been There](02_hazran/72_the_distance_that_had_always_been_there.md)
+- [Episode 73. The Things Each of Them Saw in Hazran](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [Episode 74. The Night That Felt Long Enough to Stay](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [Episode 75. The Reports That Moved Before the War](02_hazran/75_the_reports_that_moved_before_the_war.md)

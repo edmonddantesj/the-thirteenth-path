@@ -80,3 +80,6 @@
 - [第七十話　まだもっと生かさなければならない体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一話　熱が引いてから開くバザール](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [第七十二話　ずっとあったのに今ようやく見える距離](02_hazran/72_the_distance_that_had_always_been_there.md)
+- [第七十三話　それぞれがハズランで見たもの](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [第七十四話　今夜だけはもう少し留まれそうな夜](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [第七十五話　戦争より先に動いた報告](02_hazran/75_the_reports_that_moved_before_the_war.md)

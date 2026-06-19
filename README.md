@@ -159,6 +159,9 @@ Each language directory is organized by arc:
 - [70. 아직은 더 살려야 하는 몸](ko/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [71. 열이 가신 뒤에야 열리는 바자르](ko/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [72. 늘 있었는데 이제야 보이는 거리](ko/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [73. 저마다 하즈란에서 본 것들](ko/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [74. 오늘 밤만은 조금 더 머물 수 있을 것 같은 밤](ko/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [75. 전쟁보다 먼저 움직인 보고들](ko/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ### English
 
@@ -238,6 +241,9 @@ Each language directory is organized by arc:
 - [70. The First Day They Did Not Have to Run](en/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [71. The Bazaar That Only Opened After Heat](en/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [72. The Distance That Had Always Been There](en/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [73. The Things Each of Them Saw in Hazran](en/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [74. The Night That Felt Long Enough to Stay](en/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [75. The Reports That Moved Before the War](en/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ### Japanese
 
@@ -317,6 +323,9 @@ Each language directory is organized by arc:
 - [第七十話　まだもっと生かさなければならない体](ja/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一話　熱が引いてから開くバザール](ja/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [第七十二話　ずっとあったのに今ようやく見える距離](ja/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [第七十三話　それぞれがハズランで見たもの](ja/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [第七十四話　今夜だけはもう少し留まれそうな夜](ja/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [第七十五話　戦争より先に動いた報告](ja/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ### Chinese
 
@@ -442,4 +451,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 72 in Korean, Episode 72 in English, Episode 72 in Japanese, Episode 54 in French, and Episode 54 in Chinese (Simplified).
+Public archive currently published through Episode 75 in Korean, Episode 75 in English, Episode 75 in Japanese, Episode 54 in French, and Episode 54 in Chinese (Simplified).
