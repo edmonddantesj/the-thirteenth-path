@@ -83,3 +83,4 @@ Current public English release:
 - [Episode 73. The Things Each of Them Saw in Hazran](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [Episode 74. The Night That Felt Long Enough to Stay](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Episode 75. The Reports That Moved Before the War](02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [Episode 76. The City Heard It Before Anyone Saw It](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)

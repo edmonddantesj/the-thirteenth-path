@@ -83,3 +83,4 @@
 - [73화. 저마다 하즈란에서 본 것들](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [74화. 오늘 밤만은 조금 더 머물 수 있을 것 같은 밤](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [75화. 전쟁보다 먼저 움직인 보고들](02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [76화. 누구보다 먼저 그걸 들은 건 도시였다](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)

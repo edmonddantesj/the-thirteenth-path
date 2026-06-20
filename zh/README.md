@@ -63,3 +63,4 @@
 - [第五十三章 局，不再是比赛](02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [第五十四章 只有崩落之侧才看得见的路](02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [第五十五章 唯有握着真物的手才撑得住的线](02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [第五十六章 狩猎合拢之前的合流](02_hazran/56_the_merge_before_the_hunt_closed.md)

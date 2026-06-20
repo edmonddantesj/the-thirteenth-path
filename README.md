@@ -162,6 +162,7 @@ Each language directory is organized by arc:
 - [73. 저마다 하즈란에서 본 것들](ko/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [74. 오늘 밤만은 조금 더 머물 수 있을 것 같은 밤](ko/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [75. 전쟁보다 먼저 움직인 보고들](ko/02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [76. 누구보다 먼저 그걸 들은 건 도시였다](ko/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 
 ### English
 
@@ -244,6 +245,7 @@ Each language directory is organized by arc:
 - [73. The Things Each of Them Saw in Hazran](en/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [74. The Night That Felt Long Enough to Stay](en/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [75. The Reports That Moved Before the War](en/02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [76. The City Heard It Before Anyone Saw It](en/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 
 ### Japanese
 
@@ -326,6 +328,7 @@ Each language directory is organized by arc:
 - [第七十三話　それぞれがハズランで見たもの](ja/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [第七十四話　今夜だけはもう少し留まれそうな夜](ja/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五話　戦争より先に動いた報告](ja/02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [第七十六話　誰よりも先にそれを聞いたのは街だった](ja/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 
 ### Chinese
 
@@ -388,6 +391,7 @@ Each language directory is organized by arc:
 - [第五十三章 局，不再是比赛](zh/02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [第五十四章 只有崩落之侧才看得见的路](zh/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [第五十五章 唯有握着真物的手才撑得住的线](zh/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [第五十六章 狩猎合拢之前的合流](zh/02_hazran/56_the_merge_before_the_hunt_closed.md)
 
 ### French
 
@@ -450,7 +454,8 @@ Each language directory is organized by arc:
 - [Chapitre 53 — Le terrain qui cessa d'être un jeu](fr/02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [Chapitre 54 — La route que seuls ceux qui tombaient voyaient](fr/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [Chapitre 55 — La ligne que seuls ceux qui portaient le vrai pouvaient tenir](fr/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [Chapitre 56 — La jonction avant la fin de la chasse](fr/02_hazran/56_the_merge_before_the_hunt_closed.md)
 
 ## Status
 
-Public archive currently published through Episode 75 in Korean, Episode 75 in English, Episode 75 in Japanese, Episode 55 in French, and Episode 55 in Chinese (Simplified).
+Public archive currently published through Episode 76 in Korean, Episode 76 in English, Episode 76 in Japanese, Episode 56 in French, and Episode 56 in Chinese (Simplified).

@@ -63,3 +63,4 @@ Chapitres publics actuels :
 - [Chapitre 53 — Le terrain qui cessa d'être un jeu](02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [Chapitre 54 — La route que seuls ceux qui tombaient voyaient](02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [Chapitre 55 — La ligne que seuls ceux qui portaient le vrai pouvaient tenir](02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [Chapitre 56 — La jonction avant la fin de la chasse](02_hazran/56_the_merge_before_the_hunt_closed.md)
