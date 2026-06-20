@@ -387,6 +387,7 @@ Each language directory is organized by arc:
 - [第五十二章 规则先弯折的瞬间](zh/02_hazran/52_the_moment_the_rule_bent.md)
 - [第五十三章 局，不再是比赛](zh/02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [第五十四章 只有崩落之侧才看得见的路](zh/02_hazran/54_the_route_that_only_the_falling_could_see.md)
+- [第五十五章 唯有握着真物的手才撑得住的线](zh/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 
 ### French
 
@@ -448,7 +449,8 @@ Each language directory is organized by arc:
 - [Chapitre 52 — L'instant où la règle plia](fr/02_hazran/52_the_moment_the_rule_bent.md)
 - [Chapitre 53 — Le terrain qui cessa d'être un jeu](fr/02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [Chapitre 54 — La route que seuls ceux qui tombaient voyaient](fr/02_hazran/54_the_route_that_only_the_falling_could_see.md)
+- [Chapitre 55 — La ligne que seuls ceux qui portaient le vrai pouvaient tenir](fr/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 
 ## Status
 
-Public archive currently published through Episode 75 in Korean, Episode 75 in English, Episode 75 in Japanese, Episode 54 in French, and Episode 54 in Chinese (Simplified).
+Public archive currently published through Episode 75 in Korean, Episode 75 in English, Episode 75 in Japanese, Episode 55 in French, and Episode 55 in Chinese (Simplified).
