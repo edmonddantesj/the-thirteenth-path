@@ -392,6 +392,7 @@ Each language directory is organized by arc:
 - [第五十四章 只有崩落之侧才看得见的路](zh/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [第五十五章 唯有握着真物的手才撑得住的线](zh/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [第五十六章 狩猎合拢之前的合流](zh/02_hazran/56_the_merge_before_the_hunt_closed.md)
+- [第五十七章 带着唯一真物逃跑的方法](zh/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 
 ### French
 
@@ -455,7 +456,8 @@ Each language directory is organized by arc:
 - [Chapitre 54 — La route que seuls ceux qui tombaient voyaient](fr/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [Chapitre 55 — La ligne que seuls ceux qui portaient le vrai pouvaient tenir](fr/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Chapitre 56 — La jonction avant la fin de la chasse](fr/02_hazran/56_the_merge_before_the_hunt_closed.md)
+- [Chapitre 57 — La méthode pour fuir avec une seule vérité](fr/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 
 ## Status
 
-Public archive currently published through Episode 76 in Korean, Episode 76 in English, Episode 76 in Japanese, Episode 56 in French, and Episode 56 in Chinese (Simplified).
+Public archive currently published through Episode 76 in Korean, Episode 76 in English, Episode 76 in Japanese, Episode 57 in French, and Episode 57 in Chinese (Simplified).
