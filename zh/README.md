@@ -65,3 +65,4 @@
 - [第五十五章 唯有握着真物的手才撑得住的线](02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [第五十六章 狩猎合拢之前的合流](02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [第五十七章 带着唯一真物逃跑的方法](02_hazran/57_the_method_of_running_with_one_true_thing.md)
+- [第五十八章 带着证据回去的路](02_hazran/58_the_way_back_with_the_proof.md)

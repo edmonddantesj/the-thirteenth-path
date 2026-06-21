@@ -163,6 +163,7 @@ Each language directory is organized by arc:
 - [74. 오늘 밤만은 조금 더 머물 수 있을 것 같은 밤](ko/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [75. 전쟁보다 먼저 움직인 보고들](ko/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [76. 누구보다 먼저 그걸 들은 건 도시였다](ko/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [77. 자기 자리로 돌아가는 손들](ko/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ### English
 
@@ -246,6 +247,7 @@ Each language directory is organized by arc:
 - [74. The Night That Felt Long Enough to Stay](en/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [75. The Reports That Moved Before the War](en/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [76. The City Heard It Before Anyone Saw It](en/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [77. The Hands That Went Back to Their Places](en/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ### Japanese
 
@@ -329,6 +331,7 @@ Each language directory is organized by arc:
 - [第七十四話　今夜だけはもう少し留まれそうな夜](ja/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五話　戦争より先に動いた報告](ja/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六話　誰よりも先にそれを聞いたのは街だった](ja/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [第七十七話　自分の場所に戻っていく手](ja/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ### Chinese
 
@@ -393,6 +396,7 @@ Each language directory is organized by arc:
 - [第五十五章 唯有握着真物的手才撑得住的线](zh/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [第五十六章 狩猎合拢之前的合流](zh/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [第五十七章 带着唯一真物逃跑的方法](zh/02_hazran/57_the_method_of_running_with_one_true_thing.md)
+- [第五十八章 带着证据回去的路](zh/02_hazran/58_the_way_back_with_the_proof.md)
 
 ### French
 
@@ -457,7 +461,8 @@ Each language directory is organized by arc:
 - [Chapitre 55 — La ligne que seuls ceux qui portaient le vrai pouvaient tenir](fr/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Chapitre 56 — La jonction avant la fin de la chasse](fr/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [Chapitre 57 — La méthode pour fuir avec une seule vérité](fr/02_hazran/57_the_method_of_running_with_one_true_thing.md)
+- [Chapitre 58 — Le chemin du retour avec la preuve](fr/02_hazran/58_the_way_back_with_the_proof.md)
 
 ## Status
 
-Public archive currently published through Episode 76 in Korean, Episode 76 in English, Episode 76 in Japanese, Episode 57 in French, and Episode 57 in Chinese (Simplified).
+Public archive currently published through Episode 77 in Korean, Episode 77 in English, Episode 77 in Japanese, Episode 58 in French, and Episode 58 in Chinese (Simplified).

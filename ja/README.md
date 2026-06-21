@@ -84,3 +84,4 @@
 - [第七十四話　今夜だけはもう少し留まれそうな夜](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五話　戦争より先に動いた報告](02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六話　誰よりも先にそれを聞いたのは街だった](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [第七十七話　自分の場所に戻っていく手](02_hazran/77_the_hands_that_went_back_to_their_places.md)
