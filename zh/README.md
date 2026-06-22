@@ -67,3 +67,4 @@
 - [第五十七章 带着唯一真物逃跑的方法](02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [第五十八章 带着证据回去的路](02_hazran/58_the_way_back_with_the_proof.md)
 - [第五十九章 活着回来的手](02_hazran/59_the_hands_that_came_back_alive.md)
+- [第六十章 重新带到局前的值](02_hazran/60_the_price_paid_back_to_the_stage.md)

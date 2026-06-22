@@ -85,3 +85,4 @@ Current public English release:
 - [Episode 75. The Reports That Moved Before the War](02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Episode 76. The City Heard It Before Anyone Saw It](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Episode 77. The Hands That Went Back to Their Places](02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [Episode 78. The First Line That Moved Without Breath](02_hazran/78_the_first_line_that_moved_without_breath.md)

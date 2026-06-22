@@ -164,6 +164,7 @@ Each language directory is organized by arc:
 - [75. 전쟁보다 먼저 움직인 보고들](ko/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [76. 누구보다 먼저 그걸 들은 건 도시였다](ko/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [77. 자기 자리로 돌아가는 손들](ko/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [78. 숨 없이 움직이는 첫 줄](ko/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ### English
 
@@ -248,6 +249,7 @@ Each language directory is organized by arc:
 - [75. The Reports That Moved Before the War](en/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [76. The City Heard It Before Anyone Saw It](en/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [77. The Hands That Went Back to Their Places](en/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [78. The First Line That Moved Without Breath](en/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ### Japanese
 
@@ -332,6 +334,7 @@ Each language directory is organized by arc:
 - [第七十五話　戦争より先に動いた報告](ja/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六話　誰よりも先にそれを聞いたのは街だった](ja/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七話　自分の場所に戻っていく手](ja/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [第七十八話　息なく動く最初の列](ja/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ### Chinese
 
@@ -398,6 +401,7 @@ Each language directory is organized by arc:
 - [第五十七章 带着唯一真物逃跑的方法](zh/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [第五十八章 带着证据回去的路](zh/02_hazran/58_the_way_back_with_the_proof.md)
 - [第五十九章 活着回来的手](zh/02_hazran/59_the_hands_that_came_back_alive.md)
+- [第六十章 重新带到局前的值](zh/02_hazran/60_the_price_paid_back_to_the_stage.md)
 
 ### French
 
@@ -464,7 +468,8 @@ Each language directory is organized by arc:
 - [Chapitre 57 — La méthode pour fuir avec une seule vérité](fr/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [Chapitre 58 — Le chemin du retour avec la preuve](fr/02_hazran/58_the_way_back_with_the_proof.md)
 - [Chapitre 59 — Les mains revenues vivantes](fr/02_hazran/59_the_hands_that_came_back_alive.md)
+- [Chapitre 60 — La valeur rapportée devant le juge](fr/02_hazran/60_the_price_paid_back_to_the_stage.md)
 
 ## Status
 
-Public archive currently published through Episode 77 in Korean, Episode 77 in English, Episode 77 in Japanese, Episode 59 in French, and Episode 59 in Chinese (Simplified).
+Public archive currently published through Episode 78 in Korean, Episode 78 in English, Episode 78 in Japanese, Episode 60 in French, and Episode 60 in Chinese (Simplified).
