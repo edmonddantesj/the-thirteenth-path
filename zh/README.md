@@ -66,3 +66,4 @@
 - [第五十六章 狩猎合拢之前的合流](02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [第五十七章 带着唯一真物逃跑的方法](02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [第五十八章 带着证据回去的路](02_hazran/58_the_way_back_with_the_proof.md)
+- [第五十九章 活着回来的手](02_hazran/59_the_hands_that_came_back_alive.md)

@@ -397,6 +397,7 @@ Each language directory is organized by arc:
 - [第五十六章 狩猎合拢之前的合流](zh/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [第五十七章 带着唯一真物逃跑的方法](zh/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [第五十八章 带着证据回去的路](zh/02_hazran/58_the_way_back_with_the_proof.md)
+- [第五十九章 活着回来的手](zh/02_hazran/59_the_hands_that_came_back_alive.md)
 
 ### French
 
@@ -462,7 +463,8 @@ Each language directory is organized by arc:
 - [Chapitre 56 — La jonction avant la fin de la chasse](fr/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [Chapitre 57 — La méthode pour fuir avec une seule vérité](fr/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [Chapitre 58 — Le chemin du retour avec la preuve](fr/02_hazran/58_the_way_back_with_the_proof.md)
+- [Chapitre 59 — Les mains revenues vivantes](fr/02_hazran/59_the_hands_that_came_back_alive.md)
 
 ## Status
 
-Public archive currently published through Episode 77 in Korean, Episode 77 in English, Episode 77 in Japanese, Episode 58 in French, and Episode 58 in Chinese (Simplified).
+Public archive currently published through Episode 77 in Korean, Episode 77 in English, Episode 77 in Japanese, Episode 59 in French, and Episode 59 in Chinese (Simplified).
