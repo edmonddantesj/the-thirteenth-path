@@ -69,3 +69,4 @@ Chapitres publics actuels :
 - [Chapitre 59 — Les mains revenues vivantes](02_hazran/59_the_hands_that_came_back_alive.md)
 - [Chapitre 60 — La valeur rapportée devant le juge](02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](02_hazran/61_the_word_she_gave_after_watching.md)
+- [Chapitre 62 — L'intérieur qu'elle finit par montrer](02_hazran/62_the_inside_she_finally_showed.md)

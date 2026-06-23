@@ -165,6 +165,7 @@ Each language directory is organized by arc:
 - [76. 누구보다 먼저 그걸 들은 건 도시였다](ko/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [77. 자기 자리로 돌아가는 손들](ko/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78. 숨 없이 움직이는 첫 줄](ko/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [79. 잘라도 끊기지 않는 파도](ko/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ### English
 
@@ -250,6 +251,7 @@ Each language directory is organized by arc:
 - [76. The City Heard It Before Anyone Saw It](en/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [77. The Hands That Went Back to Their Places](en/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78. The First Line That Moved Without Breath](en/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [79. The Wave That Did Not Break When Cut](en/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ### Japanese
 
@@ -335,6 +337,7 @@ Each language directory is organized by arc:
 - [第七十六話　誰よりも先にそれを聞いたのは街だった](ja/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七話　自分の場所に戻っていく手](ja/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八話　息なく動く最初の列](ja/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [第七十九話　切っても途切れない波](ja/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ### Chinese
 
@@ -403,6 +406,7 @@ Each language directory is organized by arc:
 - [第五十九章 活着回来的手](zh/02_hazran/59_the_hands_that_came_back_alive.md)
 - [第六十章 重新带到局前的值](zh/02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [第六十一章 看到最后才给出的那句话](zh/02_hazran/61_the_word_she_gave_after_watching.md)
+- [第六十二章 她终于露出的内里](zh/02_hazran/62_the_inside_she_finally_showed.md)
 
 ### French
 
@@ -471,7 +475,8 @@ Each language directory is organized by arc:
 - [Chapitre 59 — Les mains revenues vivantes](fr/02_hazran/59_the_hands_that_came_back_alive.md)
 - [Chapitre 60 — La valeur rapportée devant le juge](fr/02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](fr/02_hazran/61_the_word_she_gave_after_watching.md)
+- [Chapitre 62 — L'intérieur qu'elle finit par montrer](fr/02_hazran/62_the_inside_she_finally_showed.md)
 
 ## Status
 
-Public archive currently published through Episode 78 in Korean, Episode 78 in English, Episode 78 in Japanese, Episode 61 in French, and Episode 61 in Chinese (Simplified).
+Public archive currently published through Episode 79 in Korean, Episode 79 in English, Episode 79 in Japanese, Episode 62 in French, and Episode 62 in Chinese (Simplified).

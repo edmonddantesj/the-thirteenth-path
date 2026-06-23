@@ -69,3 +69,4 @@
 - [第五十九章 活着回来的手](02_hazran/59_the_hands_that_came_back_alive.md)
 - [第六十章 重新带到局前的值](02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [第六十一章 看到最后才给出的那句话](02_hazran/61_the_word_she_gave_after_watching.md)
+- [第六十二章 她终于露出的内里](02_hazran/62_the_inside_she_finally_showed.md)

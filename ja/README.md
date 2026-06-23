@@ -86,3 +86,4 @@
 - [第七十六話　誰よりも先にそれを聞いたのは街だった](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七話　自分の場所に戻っていく手](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八話　息なく動く最初の列](02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [第七十九話　切っても途切れない波](02_hazran/79_the_wave_that_did_not_break_when_cut.md)

@@ -86,3 +86,4 @@
 - [76화. 누구보다 먼저 그걸 들은 건 도시였다](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [77화. 자기 자리로 돌아가는 손들](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78화. 숨 없이 움직이는 첫 줄](02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [79화. 잘라도 끊기지 않는 파도](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
