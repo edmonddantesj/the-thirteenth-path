@@ -68,3 +68,4 @@ Chapitres publics actuels :
 - [Chapitre 58 — Le chemin du retour avec la preuve](02_hazran/58_the_way_back_with_the_proof.md)
 - [Chapitre 59 — Les mains revenues vivantes](02_hazran/59_the_hands_that_came_back_alive.md)
 - [Chapitre 60 — La valeur rapportée devant le juge](02_hazran/60_the_price_paid_back_to_the_stage.md)
+- [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](02_hazran/61_the_word_she_gave_after_watching.md)

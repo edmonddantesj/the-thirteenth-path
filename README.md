@@ -402,6 +402,7 @@ Each language directory is organized by arc:
 - [第五十八章 带着证据回去的路](zh/02_hazran/58_the_way_back_with_the_proof.md)
 - [第五十九章 活着回来的手](zh/02_hazran/59_the_hands_that_came_back_alive.md)
 - [第六十章 重新带到局前的值](zh/02_hazran/60_the_price_paid_back_to_the_stage.md)
+- [第六十一章 看到最后才给出的那句话](zh/02_hazran/61_the_word_she_gave_after_watching.md)
 
 ### French
 
@@ -469,7 +470,8 @@ Each language directory is organized by arc:
 - [Chapitre 58 — Le chemin du retour avec la preuve](fr/02_hazran/58_the_way_back_with_the_proof.md)
 - [Chapitre 59 — Les mains revenues vivantes](fr/02_hazran/59_the_hands_that_came_back_alive.md)
 - [Chapitre 60 — La valeur rapportée devant le juge](fr/02_hazran/60_the_price_paid_back_to_the_stage.md)
+- [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](fr/02_hazran/61_the_word_she_gave_after_watching.md)
 
 ## Status
 
-Public archive currently published through Episode 78 in Korean, Episode 78 in English, Episode 78 in Japanese, Episode 60 in French, and Episode 60 in Chinese (Simplified).
+Public archive currently published through Episode 78 in Korean, Episode 78 in English, Episode 78 in Japanese, Episode 61 in French, and Episode 61 in Chinese (Simplified).
