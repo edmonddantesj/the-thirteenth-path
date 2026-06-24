@@ -166,6 +166,7 @@ Each language directory is organized by arc:
 - [77. 자기 자리로 돌아가는 손들](ko/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78. 숨 없이 움직이는 첫 줄](ko/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [79. 잘라도 끊기지 않는 파도](ko/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [80. 나머지를 버티게 하려고 버린 땅](ko/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ### English
 
@@ -252,6 +253,7 @@ Each language directory is organized by arc:
 - [77. The Hands That Went Back to Their Places](en/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78. The First Line That Moved Without Breath](en/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [79. The Wave That Did Not Break When Cut](en/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [80. The Ground They Left So the Rest Could Hold](en/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ### Japanese
 
@@ -338,6 +340,7 @@ Each language directory is organized by arc:
 - [第七十七話　自分の場所に戻っていく手](ja/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八話　息なく動く最初の列](ja/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [第七十九話　切っても途切れない波](ja/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [第八十話　残りを持ちこたえさせるために捨てた地面](ja/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ### Chinese
 
@@ -408,6 +411,7 @@ Each language directory is organized by arc:
 - [第六十一章 看到最后才给出的那句话](zh/02_hazran/61_the_word_she_gave_after_watching.md)
 - [第六十二章 她终于露出的内里](zh/02_hazran/62_the_inside_she_finally_showed.md)
 - [第六十三章 她没有为所有人打开的门槛](zh/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
+- [第六十四章 扶住将死形态的方法](zh/02_hazran/64_the_way_she_held_the_dying_shape.md)
 
 ### French
 
@@ -478,7 +482,8 @@ Each language directory is organized by arc:
 - [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](fr/02_hazran/61_the_word_she_gave_after_watching.md)
 - [Chapitre 62 — L'intérieur qu'elle finit par montrer](fr/02_hazran/62_the_inside_she_finally_showed.md)
 - [Chapitre 63 — Le seuil qu'elle n'ouvrit pas à tous](fr/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
+- [Chapitre 64 — La manière de retenir une forme mourante](fr/02_hazran/64_the_way_she_held_the_dying_shape.md)
 
 ## Status
 
-Public archive currently published through Episode 79 in Korean, Episode 79 in English, Episode 79 in Japanese, Episode 63 in French, and Episode 63 in Chinese (Simplified).
+Public archive currently published through Episode 80 in Korean, Episode 80 in English, Episode 80 in Japanese, Episode 64 in French, and Episode 64 in Chinese (Simplified).

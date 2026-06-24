@@ -87,3 +87,4 @@ Current public English release:
 - [Episode 77. The Hands That Went Back to Their Places](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Episode 78. The First Line That Moved Without Breath](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Episode 79. The Wave That Did Not Break When Cut](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [Episode 80. The Ground They Left So the Rest Could Hold](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)

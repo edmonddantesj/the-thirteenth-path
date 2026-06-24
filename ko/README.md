@@ -87,3 +87,4 @@
 - [77화. 자기 자리로 돌아가는 손들](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [78화. 숨 없이 움직이는 첫 줄](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [79화. 잘라도 끊기지 않는 파도](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [80화. 나머지를 버티게 하려고 버린 땅](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
