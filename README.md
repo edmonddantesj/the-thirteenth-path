@@ -407,6 +407,7 @@ Each language directory is organized by arc:
 - [第六十章 重新带到局前的值](zh/02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [第六十一章 看到最后才给出的那句话](zh/02_hazran/61_the_word_she_gave_after_watching.md)
 - [第六十二章 她终于露出的内里](zh/02_hazran/62_the_inside_she_finally_showed.md)
+- [第六十三章 她没有为所有人打开的门槛](zh/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ### French
 
@@ -476,7 +477,8 @@ Each language directory is organized by arc:
 - [Chapitre 60 — La valeur rapportée devant le juge](fr/02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](fr/02_hazran/61_the_word_she_gave_after_watching.md)
 - [Chapitre 62 — L'intérieur qu'elle finit par montrer](fr/02_hazran/62_the_inside_she_finally_showed.md)
+- [Chapitre 63 — Le seuil qu'elle n'ouvrit pas à tous](fr/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ## Status
 
-Public archive currently published through Episode 79 in Korean, Episode 79 in English, Episode 79 in Japanese, Episode 62 in French, and Episode 62 in Chinese (Simplified).
+Public archive currently published through Episode 79 in Korean, Episode 79 in English, Episode 79 in Japanese, Episode 63 in French, and Episode 63 in Chinese (Simplified).

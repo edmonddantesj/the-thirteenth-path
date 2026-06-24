@@ -70,3 +70,4 @@ Chapitres publics actuels :
 - [Chapitre 60 — La valeur rapportée devant le juge](02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Chapitre 61 — Le mot qu'elle donna après avoir tout vu](02_hazran/61_the_word_she_gave_after_watching.md)
 - [Chapitre 62 — L'intérieur qu'elle finit par montrer](02_hazran/62_the_inside_she_finally_showed.md)
+- [Chapitre 63 — Le seuil qu'elle n'ouvrit pas à tous](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
