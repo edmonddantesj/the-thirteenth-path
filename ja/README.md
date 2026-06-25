@@ -88,3 +88,4 @@
 - [第七十八話　息なく動く最初の列](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [第七十九話　切っても途切れない波](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [第八十話　残りを持ちこたえさせるために捨てた地面](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
+- [第八十一話　市場の中で始まった戦線](02_hazran/81_the_line_that_began_inside_the_market.md)

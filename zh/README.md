@@ -73,3 +73,4 @@
 - [第六十三章 她没有为所有人打开的门槛](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四章 扶住将死形态的方法](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五章 路没有冷掉的证据](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [第六十六章 能撑住一小簇火的形态](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
