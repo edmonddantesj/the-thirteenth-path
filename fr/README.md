@@ -72,3 +72,4 @@ Chapitres publics actuels :
 - [Chapitre 62 — L'intérieur qu'elle finit par montrer](02_hazran/62_the_inside_she_finally_showed.md)
 - [Chapitre 63 — Le seuil qu'elle n'ouvrit pas à tous](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [Chapitre 64 — La manière de retenir une forme mourante](02_hazran/64_the_way_she_held_the_dying_shape.md)
+- [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)

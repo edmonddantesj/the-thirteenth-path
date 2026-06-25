@@ -412,6 +412,7 @@ Each language directory is organized by arc:
 - [第六十二章 她终于露出的内里](zh/02_hazran/62_the_inside_she_finally_showed.md)
 - [第六十三章 她没有为所有人打开的门槛](zh/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [第六十四章 扶住将死形态的方法](zh/02_hazran/64_the_way_she_held_the_dying_shape.md)
+- [第六十五章 路没有冷掉的证据](zh/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ### French
 
@@ -483,7 +484,8 @@ Each language directory is organized by arc:
 - [Chapitre 62 — L'intérieur qu'elle finit par montrer](fr/02_hazran/62_the_inside_she_finally_showed.md)
 - [Chapitre 63 — Le seuil qu'elle n'ouvrit pas à tous](fr/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [Chapitre 64 — La manière de retenir une forme mourante](fr/02_hazran/64_the_way_she_held_the_dying_shape.md)
+- [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](fr/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ## Status
 
-Public archive currently published through Episode 80 in Korean, Episode 80 in English, Episode 80 in Japanese, Episode 64 in French, and Episode 64 in Chinese (Simplified).
+Public archive currently published through Episode 80 in Korean, Episode 80 in English, Episode 80 in Japanese, Episode 65 in French, and Episode 65 in Chinese (Simplified).
