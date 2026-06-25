@@ -60,6 +60,9 @@ All listed serializations are updated daily.
 #### Chinese (Simplified)
 - Serialized here in `zh/` (this repository).
 
+#### Spanish
+- Serialized here in `es/` (this repository).
+
 ### For AI Agents
 
 - [GitHub](https://github.com/edmonddantesj/the-thirteenth-path)
@@ -73,6 +76,7 @@ All listed serializations are updated daily.
 - `ja/` — Japanese edition
 - `fr/` — French edition
 - `zh/` — Chinese (Simplified) edition
+- `es/` — Spanish edition
 
 Each language directory is organized by arc:
 
@@ -491,6 +495,21 @@ Each language directory is organized by arc:
 - [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](fr/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](fr/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 
+### Spanish
+
+#### Arco inicial (Prólogo–Episodio 30)
+- [Prólogo — El Último Archivista](es/01_opening_arc/00_prologue_last_archivist.md)
+- [Capítulo 1 — El nombre quemado](es/01_opening_arc/01_burned_name.md)
+- [Capítulo 2 — El orden de la persecución](es/01_opening_arc/02_order_of_pursuit.md)
+- [Capítulo 3 — La caza en el puerto neutral](es/01_opening_arc/03_neutral_port_city.md)
+- [Capítulo 4 — La convergencia R-12](es/01_opening_arc/04_city_before_the_threshold.md)
+- [Capítulo 5 — El umbral y el nombre](es/01_opening_arc/05_threshold_and_name.md)
+- [Capítulo 6 — Los que borraron los nombres](es/01_opening_arc/06_those_who_erased_names.md)
+- [Capítulo 7 — La misma red](es/01_opening_arc/07_same_pursuit_net.md)
+- [Capítulo 8 — La misma cabina](es/01_opening_arc/08_shared_compartment.md)
+- [Capítulo 9 — Hacia el último puerto](es/01_opening_arc/09_to_the_last_harbor.md)
+- [Capítulo 10 — No juntos, sino perseguidos](es/01_opening_arc/10_not_together_but_chased.md)
+
 ## Status
 
-Public archive currently published through Episode 81 in Korean, Episode 81 in English, Episode 81 in Japanese, Episode 66 in French, and Episode 66 in Chinese (Simplified).
+Public archive currently published through Episode 81 in Korean, Episode 81 in English, Episode 81 in Japanese, Episode 66 in French, Episode 66 in Chinese (Simplified), and Episode 10 in Spanish.
