@@ -14,3 +14,4 @@ Capítulos públicos actuales:
 - [Capítulo 8 — La misma cabina](01_opening_arc/08_shared_compartment.md)
 - [Capítulo 9 — Hacia el último puerto](01_opening_arc/09_to_the_last_harbor.md)
 - [Capítulo 10 — No juntos, sino perseguidos](01_opening_arc/10_not_together_but_chased.md)
+- [Capítulo 11 — El orden que queda](01_opening_arc/11_the_remaining_order.md)

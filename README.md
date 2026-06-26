@@ -421,6 +421,7 @@ Each language directory is organized by arc:
 - [第六十四章 扶住将死形态的方法](zh/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [第六十五章 路没有冷掉的证据](zh/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [第六十六章 能撑住一小簇火的形态](zh/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [第六十七章 第一次敢让它不冷掉的位置](zh/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 
 ### French
 
@@ -494,6 +495,7 @@ Each language directory is organized by arc:
 - [Chapitre 64 — La manière de retenir une forme mourante](fr/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](fr/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](fr/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](fr/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 
 ### Spanish
 
@@ -509,7 +511,8 @@ Each language directory is organized by arc:
 - [Capítulo 8 — La misma cabina](es/01_opening_arc/08_shared_compartment.md)
 - [Capítulo 9 — Hacia el último puerto](es/01_opening_arc/09_to_the_last_harbor.md)
 - [Capítulo 10 — No juntos, sino perseguidos](es/01_opening_arc/10_not_together_but_chased.md)
+- [Capítulo 11 — El orden que queda](es/01_opening_arc/11_the_remaining_order.md)
 
 ## Status
 
-Public archive currently published through Episode 81 in Korean, Episode 81 in English, Episode 81 in Japanese, Episode 66 in French, Episode 66 in Chinese (Simplified), and Episode 10 in Spanish.
+Public archive currently published through Episode 81 in Korean, Episode 81 in English, Episode 81 in Japanese, Episode 67 in French, Episode 67 in Chinese (Simplified), and Episode 11 in Spanish.

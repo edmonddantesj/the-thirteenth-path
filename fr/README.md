@@ -74,3 +74,4 @@ Chapitres publics actuels :
 - [Chapitre 64 — La manière de retenir une forme mourante](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
