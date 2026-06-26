@@ -172,6 +172,7 @@ Each language directory is organized by arc:
 - [79. 잘라도 끊기지 않는 파도](ko/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [80. 나머지를 버티게 하려고 버린 땅](ko/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [81. 시장 안에서 시작된 전선](ko/02_hazran/81_the_line_that_began_inside_the_market.md)
+- [82. 저걸 부수는 법을 아는 사람들](ko/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 
 ### English
 
@@ -260,6 +261,7 @@ Each language directory is organized by arc:
 - [79. The Wave That Did Not Break When Cut](en/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [80. The Ground They Left So the Rest Could Hold](en/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [81. The Line That Began Inside the Market](en/02_hazran/81_the_line_that_began_inside_the_market.md)
+- [82. The Ones Who Knew How to Break Them](en/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 
 ### Japanese
 
@@ -348,6 +350,7 @@ Each language directory is organized by arc:
 - [第七十九話　切っても途切れない波](ja/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [第八十話　残りを持ちこたえさせるために捨てた地面](ja/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一話　市場の中で始まった戦線](ja/02_hazran/81_the_line_that_began_inside_the_market.md)
+- [第八十二話　あれの壊し方を知っている人たち](ja/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 
 ### Chinese
 
@@ -422,6 +425,7 @@ Each language directory is organized by arc:
 - [第六十五章 路没有冷掉的证据](zh/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [第六十六章 能撑住一小簇火的形态](zh/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七章 第一次敢让它不冷掉的位置](zh/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [第六十八章 弯了却没有折断的秩序](zh/02_hazran/68_the_order_that_bent_without_breaking.md)
 
 ### French
 
@@ -496,6 +500,7 @@ Each language directory is organized by arc:
 - [Chapitre 65 — La preuve que le chemin n'avait pas refroidi](fr/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](fr/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](fr/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [Chapitre 68 — L'ordre qui plia sans rompre](fr/02_hazran/68_the_order_that_bent_without_breaking.md)
 
 ### Spanish
 
@@ -512,7 +517,8 @@ Each language directory is organized by arc:
 - [Capítulo 9 — Hacia el último puerto](es/01_opening_arc/09_to_the_last_harbor.md)
 - [Capítulo 10 — No juntos, sino perseguidos](es/01_opening_arc/10_not_together_but_chased.md)
 - [Capítulo 11 — El orden que queda](es/01_opening_arc/11_the_remaining_order.md)
+- [Capítulo 12 — La coordenada del primer fragmento](es/01_opening_arc/12_first_coordinate.md)
 
 ## Status
 
-Public archive currently published through Episode 81 in Korean, Episode 81 in English, Episode 81 in Japanese, Episode 67 in French, Episode 67 in Chinese (Simplified), and Episode 11 in Spanish.
+Public archive currently published through Episode 82 in Korean, Episode 82 in English, Episode 82 in Japanese, Episode 68 in French, Episode 68 in Chinese (Simplified), and Episode 12 in Spanish.

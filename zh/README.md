@@ -75,3 +75,4 @@
 - [第六十五章 路没有冷掉的证据](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [第六十六章 能撑住一小簇火的形态](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七章 第一次敢让它不冷掉的位置](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [第六十八章 弯了却没有折断的秩序](02_hazran/68_the_order_that_bent_without_breaking.md)

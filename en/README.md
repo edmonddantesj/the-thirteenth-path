@@ -89,3 +89,4 @@ Current public English release:
 - [Episode 79. The Wave That Did Not Break When Cut](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [Episode 80. The Ground They Left So the Rest Could Hold](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [Episode 81. The Line That Began Inside the Market](02_hazran/81_the_line_that_began_inside_the_market.md)
+- [Episode 82. The Ones Who Knew How to Break Them](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
