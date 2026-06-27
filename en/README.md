@@ -90,3 +90,4 @@ Current public English release:
 - [Episode 80. The Ground They Left So the Rest Could Hold](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [Episode 81. The Line That Began Inside the Market](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Episode 82. The Ones Who Knew How to Break Them](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [Episode 83. The Method Stopped Being Enough](02_hazran/83_the_method_stopped_being_enough.md)

@@ -90,3 +90,4 @@
 - [第八十話　残りを持ちこたえさせるために捨てた地面](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一話　市場の中で始まった戦線](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二話　あれの壊し方を知っている人たち](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [第八十三話　方法だけでは堪えきれない瞬間](02_hazran/83_the_method_stopped_being_enough.md)

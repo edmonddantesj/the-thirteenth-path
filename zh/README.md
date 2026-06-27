@@ -77,3 +77,4 @@
 - [第六十七章 第一次敢让它不冷掉的位置](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八章 弯了却没有折断的秩序](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九章 离开前停留一次的空气](02_hazran/69_the_air_of_staying_before_leaving.md)
+- [第七十章 还得继续救活的船体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)

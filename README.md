@@ -173,6 +173,7 @@ Each language directory is organized by arc:
 - [80. 나머지를 버티게 하려고 버린 땅](ko/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [81. 시장 안에서 시작된 전선](ko/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [82. 저걸 부수는 법을 아는 사람들](ko/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [83. 방법만으로는 버티지 못하는 순간](ko/02_hazran/83_the_method_stopped_being_enough.md)
 
 ### English
 
@@ -262,6 +263,7 @@ Each language directory is organized by arc:
 - [80. The Ground They Left So the Rest Could Hold](en/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [81. The Line That Began Inside the Market](en/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [82. The Ones Who Knew How to Break Them](en/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [83. The Method Stopped Being Enough](en/02_hazran/83_the_method_stopped_being_enough.md)
 
 ### Japanese
 
@@ -351,6 +353,7 @@ Each language directory is organized by arc:
 - [第八十話　残りを持ちこたえさせるために捨てた地面](ja/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一話　市場の中で始まった戦線](ja/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二話　あれの壊し方を知っている人たち](ja/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [第八十三話　方法だけでは堪えきれない瞬間](ja/02_hazran/83_the_method_stopped_being_enough.md)
 
 ### Chinese
 
@@ -427,6 +430,7 @@ Each language directory is organized by arc:
 - [第六十七章 第一次敢让它不冷掉的位置](zh/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八章 弯了却没有折断的秩序](zh/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九章 离开前停留一次的空气](zh/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [第七十章 还得继续救活的船体](zh/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ### French
 
@@ -503,6 +507,7 @@ Each language directory is organized by arc:
 - [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](fr/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Chapitre 68 — L'ordre qui plia sans rompre](fr/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [Chapitre 69 — L'air de rester avant de partir](fr/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [Chapitre 70 — Le premier jour où ils n'eurent plus à courir](fr/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ### Spanish
 
@@ -521,7 +526,8 @@ Each language directory is organized by arc:
 - [Capítulo 11 — El orden que queda](es/01_opening_arc/11_the_remaining_order.md)
 - [Capítulo 12 — La coordenada del primer fragmento](es/01_opening_arc/12_first_coordinate.md)
 - [Capítulo 13 — La línea de salida](es/01_opening_arc/13_departure_line.md)
+- [Capítulo 14 — La salida](es/01_opening_arc/14_the_way_out.md)
 
 ## Status
 
-Public archive currently published through Episode 82 in Korean, Episode 82 in English, Episode 82 in Japanese, Episode 69 in French, Episode 69 in Chinese (Simplified), and Episode 13 in Spanish.
+Public archive currently published through Episode 83 in Korean, Episode 83 in English, Episode 83 in Japanese, Episode 70 in French, Episode 70 in Chinese (Simplified), and Episode 14 in Spanish.
