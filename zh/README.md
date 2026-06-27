@@ -76,3 +76,4 @@
 - [第六十六章 能撑住一小簇火的形态](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七章 第一次敢让它不冷掉的位置](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八章 弯了却没有折断的秩序](02_hazran/68_the_order_that_bent_without_breaking.md)
+- [第六十九章 离开前停留一次的空气](02_hazran/69_the_air_of_staying_before_leaving.md)

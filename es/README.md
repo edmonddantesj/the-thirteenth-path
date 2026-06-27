@@ -16,3 +16,4 @@ Capítulos públicos actuales:
 - [Capítulo 10 — No juntos, sino perseguidos](01_opening_arc/10_not_together_but_chased.md)
 - [Capítulo 11 — El orden que queda](01_opening_arc/11_the_remaining_order.md)
 - [Capítulo 12 — La coordenada del primer fragmento](01_opening_arc/12_first_coordinate.md)
+- [Capítulo 13 — La línea de salida](01_opening_arc/13_departure_line.md)

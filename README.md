@@ -426,6 +426,7 @@ Each language directory is organized by arc:
 - [第六十六章 能撑住一小簇火的形态](zh/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [第六十七章 第一次敢让它不冷掉的位置](zh/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [第六十八章 弯了却没有折断的秩序](zh/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [第六十九章 离开前停留一次的空气](zh/02_hazran/69_the_air_of_staying_before_leaving.md)
 
 ### French
 
@@ -501,6 +502,7 @@ Each language directory is organized by arc:
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](fr/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](fr/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Chapitre 68 — L'ordre qui plia sans rompre](fr/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [Chapitre 69 — L'air de rester avant de partir](fr/02_hazran/69_the_air_of_staying_before_leaving.md)
 
 ### Spanish
 
@@ -518,7 +520,8 @@ Each language directory is organized by arc:
 - [Capítulo 10 — No juntos, sino perseguidos](es/01_opening_arc/10_not_together_but_chased.md)
 - [Capítulo 11 — El orden que queda](es/01_opening_arc/11_the_remaining_order.md)
 - [Capítulo 12 — La coordenada del primer fragmento](es/01_opening_arc/12_first_coordinate.md)
+- [Capítulo 13 — La línea de salida](es/01_opening_arc/13_departure_line.md)
 
 ## Status
 
-Public archive currently published through Episode 82 in Korean, Episode 82 in English, Episode 82 in Japanese, Episode 68 in French, Episode 68 in Chinese (Simplified), and Episode 12 in Spanish.
+Public archive currently published through Episode 82 in Korean, Episode 82 in English, Episode 82 in Japanese, Episode 69 in French, Episode 69 in Chinese (Simplified), and Episode 13 in Spanish.

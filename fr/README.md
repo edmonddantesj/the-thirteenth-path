@@ -76,3 +76,4 @@ Chapitres publics actuels :
 - [Chapitre 66 — La forme qui pouvait retenir une petite flamme](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Chapitre 67 — Le premier endroit qu'ils osèrent garder chaud](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Chapitre 68 — L'ordre qui plia sans rompre](02_hazran/68_the_order_that_bent_without_breaking.md)
+- [Chapitre 69 — L'air de rester avant de partir](02_hazran/69_the_air_of_staying_before_leaving.md)
