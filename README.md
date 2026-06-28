@@ -77,6 +77,7 @@ All listed serializations are updated daily.
 - `fr/` — French edition
 - `zh/` — Chinese (Simplified) edition
 - `es/` — Spanish edition
+- `docs/reception/` — curated public reader-response log and homepage integration guidance
 
 Each language directory is organized by arc:
 
