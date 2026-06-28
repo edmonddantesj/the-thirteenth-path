@@ -431,6 +431,7 @@ Each language directory is organized by arc:
 - [第六十八章 弯了却没有折断的秩序](zh/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九章 离开前停留一次的空气](zh/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十章 还得继续救活的船体](zh/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [第七十一章 热气散去后才开张的集市](zh/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 
 ### French
 
@@ -508,6 +509,7 @@ Each language directory is organized by arc:
 - [Chapitre 68 — L'ordre qui plia sans rompre](fr/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [Chapitre 69 — L'air de rester avant de partir](fr/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Chapitre 70 — Le premier jour où ils n'eurent plus à courir](fr/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur](fr/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 
 ### Spanish
 
@@ -527,7 +529,8 @@ Each language directory is organized by arc:
 - [Capítulo 12 — La coordenada del primer fragmento](es/01_opening_arc/12_first_coordinate.md)
 - [Capítulo 13 — La línea de salida](es/01_opening_arc/13_departure_line.md)
 - [Capítulo 14 — La salida](es/01_opening_arc/14_the_way_out.md)
+- [Capítulo 15 — El primer transbordo](es/01_opening_arc/15_first_transfer.md)
 
 ## Status
 
-Public archive currently published through Episode 83 in Korean, Episode 83 in English, Episode 83 in Japanese, Episode 70 in French, Episode 70 in Chinese (Simplified), and Episode 14 in Spanish.
+Public archive currently published through Episode 83 in Korean, Episode 83 in English, Episode 83 in Japanese, Episode 71 in French, Episode 71 in Chinese (Simplified), and Episode 15 in Spanish.

@@ -78,3 +78,4 @@
 - [第六十八章 弯了却没有折断的秩序](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [第六十九章 离开前停留一次的空气](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十章 还得继续救活的船体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [第七十一章 热气散去后才开张的集市](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
