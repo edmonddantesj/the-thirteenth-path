@@ -79,3 +79,4 @@ Chapitres publics actuels :
 - [Chapitre 69 — L'air de rester avant de partir](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Chapitre 70 — Le premier jour où ils n'eurent plus à courir](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [Chapitre 72 — La distance qui avait toujours été là](02_hazran/72_the_distance_that_had_always_been_there.md)

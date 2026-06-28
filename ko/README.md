@@ -91,3 +91,4 @@
 - [81화. 시장 안에서 시작된 전선](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [82화. 저걸 부수는 법을 아는 사람들](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [83화. 방법만으로는 버티지 못하는 순간](02_hazran/83_the_method_stopped_being_enough.md)
+- [84화. 시장을 둘로 가른 명령](02_hazran/84_the_order_that_cut_the_market_in_two.md)

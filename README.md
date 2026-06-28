@@ -174,6 +174,7 @@ Each language directory is organized by arc:
 - [81. 시장 안에서 시작된 전선](ko/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [82. 저걸 부수는 법을 아는 사람들](ko/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [83. 방법만으로는 버티지 못하는 순간](ko/02_hazran/83_the_method_stopped_being_enough.md)
+- [84. 시장을 둘로 가른 명령](ko/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ### English
 
@@ -264,6 +265,7 @@ Each language directory is organized by arc:
 - [81. The Line That Began Inside the Market](en/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [82. The Ones Who Knew How to Break Them](en/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [83. The Method Stopped Being Enough](en/02_hazran/83_the_method_stopped_being_enough.md)
+- [84. The Order That Cut the Market in Two](en/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ### Japanese
 
@@ -354,6 +356,7 @@ Each language directory is organized by arc:
 - [第八十一話　市場の中で始まった戦線](ja/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二話　あれの壊し方を知っている人たち](ja/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三話　方法だけでは堪えきれない瞬間](ja/02_hazran/83_the_method_stopped_being_enough.md)
+- [第八十四話　市場を二つに裂いた命令](ja/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ### Chinese
 
@@ -432,6 +435,7 @@ Each language directory is organized by arc:
 - [第六十九章 离开前停留一次的空气](zh/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十章 还得继续救活的船体](zh/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一章 热气散去后才开张的集市](zh/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [第七十二章 一直都在、此刻才看见的距离](zh/02_hazran/72_the_distance_that_had_always_been_there.md)
 
 ### French
 
@@ -510,6 +514,7 @@ Each language directory is organized by arc:
 - [Chapitre 69 — L'air de rester avant de partir](fr/02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Chapitre 70 — Le premier jour où ils n'eurent plus à courir](fr/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur](fr/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [Chapitre 72 — La distance qui avait toujours été là](fr/02_hazran/72_the_distance_that_had_always_been_there.md)
 
 ### Spanish
 
@@ -530,7 +535,8 @@ Each language directory is organized by arc:
 - [Capítulo 13 — La línea de salida](es/01_opening_arc/13_departure_line.md)
 - [Capítulo 14 — La salida](es/01_opening_arc/14_the_way_out.md)
 - [Capítulo 15 — El primer transbordo](es/01_opening_arc/15_first_transfer.md)
+- [Capítulo 16 — En la misma ruta](es/01_opening_arc/16_on_the_same_route.md)
 
 ## Status
 
-Public archive currently published through Episode 83 in Korean, Episode 83 in English, Episode 83 in Japanese, Episode 71 in French, Episode 71 in Chinese (Simplified), and Episode 15 in Spanish.
+Public archive currently published through Episode 84 in Korean, Episode 84 in English, Episode 84 in Japanese, Episode 72 in French, Episode 72 in Chinese (Simplified), and Episode 16 in Spanish.

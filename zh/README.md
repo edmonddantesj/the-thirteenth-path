@@ -79,3 +79,4 @@
 - [第六十九章 离开前停留一次的空气](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [第七十章 还得继续救活的船体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一章 热气散去后才开张的集市](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [第七十二章 一直都在、此刻才看见的距离](02_hazran/72_the_distance_that_had_always_been_there.md)

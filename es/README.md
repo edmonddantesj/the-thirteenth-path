@@ -19,3 +19,4 @@ Capítulos públicos actuales:
 - [Capítulo 13 — La línea de salida](01_opening_arc/13_departure_line.md)
 - [Capítulo 14 — La salida](01_opening_arc/14_the_way_out.md)
 - [Capítulo 15 — El primer transbordo](01_opening_arc/15_first_transfer.md)
+- [Capítulo 16 — En la misma ruta](01_opening_arc/16_on_the_same_route.md)

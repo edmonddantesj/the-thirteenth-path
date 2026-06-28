@@ -91,3 +91,4 @@ Current public English release:
 - [Episode 81. The Line That Began Inside the Market](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Episode 82. The Ones Who Knew How to Break Them](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Episode 83. The Method Stopped Being Enough](02_hazran/83_the_method_stopped_being_enough.md)
+- [Episode 84. The Order That Cut the Market in Two](02_hazran/84_the_order_that_cut_the_market_in_two.md)
