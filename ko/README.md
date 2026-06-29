@@ -40,6 +40,7 @@
 ## 2부 — 하즈란 (31~68화)
 - [31화. 놓아주지 않는 선](02_hazran/31_the_line_that_would_not_let_go.md)
 - [32화. 그들을 삼킨 열](02_hazran/32_the_heat_that_took_them_in.md)
+- [보너스 단편. 숨은 시온 찾기](02_hazran/32b_hidden_sion.md)
 - [33화. 걸어 들어가는 값](02_hazran/33_the_price_of_walking_in.md)
 - [34화. 사람들이 삼키는 이름](02_hazran/34_the_name_people_swallowed.md)
 - [35화. 그들을 세는 손](02_hazran/35_the_hand_that_counted_them.md)
