@@ -92,3 +92,4 @@
 - [第八十二話　あれの壊し方を知っている人たち](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三話　方法だけでは堪えきれない瞬間](02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四話　市場を二つに裂いた命令](02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [第八十五話　心臓線が閉じた瞬間](02_hazran/85_the_moment_the_heartline_closed.md)

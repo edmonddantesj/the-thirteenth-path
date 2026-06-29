@@ -176,6 +176,7 @@ Each language directory is organized by arc:
 - [82. 저걸 부수는 법을 아는 사람들](ko/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [83. 방법만으로는 버티지 못하는 순간](ko/02_hazran/83_the_method_stopped_being_enough.md)
 - [84. 시장을 둘로 가른 명령](ko/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [85. 심장줄이 닫히던 순간](ko/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ### English
 
@@ -267,6 +268,7 @@ Each language directory is organized by arc:
 - [82. The Ones Who Knew How to Break Them](en/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [83. The Method Stopped Being Enough](en/02_hazran/83_the_method_stopped_being_enough.md)
 - [84. The Order That Cut the Market in Two](en/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [85. The Moment the Heartline Closed](en/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ### Japanese
 
@@ -358,6 +360,7 @@ Each language directory is organized by arc:
 - [第八十二話　あれの壊し方を知っている人たち](ja/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三話　方法だけでは堪えきれない瞬間](ja/02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四話　市場を二つに裂いた命令](ja/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [第八十五話　心臓線が閉じた瞬間](ja/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ### Chinese
 
@@ -438,6 +441,7 @@ Each language directory is organized by arc:
 - [第七十一章 热气散去后才开张的集市](zh/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [第七十二章 一直都在、此刻才看见的距离](zh/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [第七十三章 各自在哈兹兰看见的东西](zh/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [第七十四章 似乎可以多留一会儿的夜](zh/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 
 ### French
 
@@ -518,6 +522,7 @@ Each language directory is organized by arc:
 - [Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur](fr/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [Chapitre 72 — La distance qui avait toujours été là](fr/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [Chapitre 73 — Ce que chacun vit à Hazran](fr/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](fr/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 
 ### Spanish
 
@@ -540,7 +545,8 @@ Each language directory is organized by arc:
 - [Capítulo 15 — El primer transbordo](es/01_opening_arc/15_first_transfer.md)
 - [Capítulo 16 — En la misma ruta](es/01_opening_arc/16_on_the_same_route.md)
 - [Capítulo 17 — El rostro en el punto de transbordo](es/01_opening_arc/17_face_at_the_transfer_point.md)
+- [Capítulo 18 — El barco de Han Jiwoo](es/01_opening_arc/18_han_jiwoos_ship.md)
 
 ## Status
 
-Public archive currently published through Episode 84 in Korean, Episode 84 in English, Episode 84 in Japanese, Episode 73 in French, Episode 73 in Chinese (Simplified), and Episode 17 in Spanish.
+Public archive currently published through Episode 85 in Korean, Episode 85 in English, Episode 85 in Japanese, Episode 74 in French, Episode 74 in Chinese (Simplified), and Episode 18 in Spanish.
