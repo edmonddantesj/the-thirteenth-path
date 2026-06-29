@@ -80,3 +80,4 @@
 - [第七十章 还得继续救活的船体](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一章 热气散去后才开张的集市](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [第七十二章 一直都在、此刻才看见的距离](02_hazran/72_the_distance_that_had_always_been_there.md)
+- [第七十三章 各自在哈兹兰看见的东西](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)

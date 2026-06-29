@@ -437,6 +437,7 @@ Each language directory is organized by arc:
 - [第七十章 还得继续救活的船体](zh/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [第七十一章 热气散去后才开张的集市](zh/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [第七十二章 一直都在、此刻才看见的距离](zh/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [第七十三章 各自在哈兹兰看见的东西](zh/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 
 ### French
 
@@ -516,6 +517,7 @@ Each language directory is organized by arc:
 - [Chapitre 70 — Le premier jour où ils n'eurent plus à courir](fr/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur](fr/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [Chapitre 72 — La distance qui avait toujours été là](fr/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [Chapitre 73 — Ce que chacun vit à Hazran](fr/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 
 ### Spanish
 
@@ -537,7 +539,8 @@ Each language directory is organized by arc:
 - [Capítulo 14 — La salida](es/01_opening_arc/14_the_way_out.md)
 - [Capítulo 15 — El primer transbordo](es/01_opening_arc/15_first_transfer.md)
 - [Capítulo 16 — En la misma ruta](es/01_opening_arc/16_on_the_same_route.md)
+- [Capítulo 17 — El rostro en el punto de transbordo](es/01_opening_arc/17_face_at_the_transfer_point.md)
 
 ## Status
 
-Public archive currently published through Episode 84 in Korean, Episode 84 in English, Episode 84 in Japanese, Episode 72 in French, Episode 72 in Chinese (Simplified), and Episode 16 in Spanish.
+Public archive currently published through Episode 84 in Korean, Episode 84 in English, Episode 84 in Japanese, Episode 73 in French, Episode 73 in Chinese (Simplified), and Episode 17 in Spanish.
