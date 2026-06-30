@@ -177,6 +177,7 @@ Each language directory is organized by arc:
 - [83. 방법만으로는 버티지 못하는 순간](ko/02_hazran/83_the_method_stopped_being_enough.md)
 - [84. 시장을 둘로 가른 명령](ko/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85. 심장줄이 닫히던 순간](ko/02_hazran/85_the_moment_the_heartline_closed.md)
+- [86. 끊어진 심장줄 너머의 방어](ko/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ### English
 
@@ -269,6 +270,7 @@ Each language directory is organized by arc:
 - [83. The Method Stopped Being Enough](en/02_hazran/83_the_method_stopped_being_enough.md)
 - [84. The Order That Cut the Market in Two](en/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85. The Moment the Heartline Closed](en/02_hazran/85_the_moment_the_heartline_closed.md)
+- [86. The Defense Beyond the Broken Heartline](en/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ### Japanese
 
@@ -361,6 +363,7 @@ Each language directory is organized by arc:
 - [第八十三話　方法だけでは堪えきれない瞬間](ja/02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四話　市場を二つに裂いた命令](ja/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五話　心臓線が閉じた瞬間](ja/02_hazran/85_the_moment_the_heartline_closed.md)
+- [第八十六話　断たれた心臓線の向こうの防衛](ja/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ### Chinese
 
@@ -443,6 +446,7 @@ Each language directory is organized by arc:
 - [第七十三章 各自在哈兹兰看见的东西](zh/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [第七十四章 似乎可以多留一会儿的夜](zh/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五章 比战争更早动起来的那些报告](zh/02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [第七十六章 最先听见它的，是这座城](zh/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 
 ### French
 
@@ -525,6 +529,7 @@ Each language directory is organized by arc:
 - [Chapitre 73 — Ce que chacun vit à Hazran](fr/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](fr/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Chapitre 75 — Les rapports qui bougèrent avant la guerre](fr/02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [Chapitre 76 — La ville l'entendit avant tous](fr/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 
 ### Spanish
 
@@ -549,7 +554,8 @@ Each language directory is organized by arc:
 - [Capítulo 17 — El rostro en el punto de transbordo](es/01_opening_arc/17_face_at_the_transfer_point.md)
 - [Capítulo 18 — El barco de Han Jiwoo](es/01_opening_arc/18_han_jiwoos_ship.md)
 - [Capítulo 19 — La baliza muerta](es/01_opening_arc/19_dead_marker.md)
+- [Capítulo 20 — El umbral de lo que queda](es/01_opening_arc/20_threshold_of_what_remains.md)
 
 ## Status
 
-Public archive currently published through Episode 85 in Korean, Episode 85 in English, Episode 85 in Japanese, Episode 75 in French, Episode 75 in Chinese (Simplified), and Episode 19 in Spanish.
+Public archive currently published through Episode 86 in Korean, Episode 86 in English, Episode 86 in Japanese, Episode 76 in French, Episode 76 in Chinese (Simplified), and Episode 20 in Spanish.

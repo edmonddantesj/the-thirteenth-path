@@ -23,3 +23,4 @@ Capítulos públicos actuales:
 - [Capítulo 17 — El rostro en el punto de transbordo](01_opening_arc/17_face_at_the_transfer_point.md)
 - [Capítulo 18 — El barco de Han Jiwoo](01_opening_arc/18_han_jiwoos_ship.md)
 - [Capítulo 19 — La baliza muerta](01_opening_arc/19_dead_marker.md)
+- [Capítulo 20 — El umbral de lo que queda](01_opening_arc/20_threshold_of_what_remains.md)

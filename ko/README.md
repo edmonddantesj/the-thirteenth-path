@@ -94,3 +94,4 @@
 - [83화. 방법만으로는 버티지 못하는 순간](02_hazran/83_the_method_stopped_being_enough.md)
 - [84화. 시장을 둘로 가른 명령](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85화. 심장줄이 닫히던 순간](02_hazran/85_the_moment_the_heartline_closed.md)
+- [86화. 끊어진 심장줄 너머의 방어](02_hazran/86_the_defense_beyond_the_broken_heartline.md)

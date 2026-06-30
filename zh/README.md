@@ -83,3 +83,4 @@
 - [第七十三章 各自在哈兹兰看见的东西](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [第七十四章 似乎可以多留一会儿的夜](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五章 比战争更早动起来的那些报告](02_hazran/75_the_reports_that_moved_before_the_war.md)
+- [第七十六章 最先听见它的，是这座城](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
