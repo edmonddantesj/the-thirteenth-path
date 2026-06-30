@@ -22,3 +22,4 @@ Capítulos públicos actuales:
 - [Capítulo 16 — En la misma ruta](01_opening_arc/16_on_the_same_route.md)
 - [Capítulo 17 — El rostro en el punto de transbordo](01_opening_arc/17_face_at_the_transfer_point.md)
 - [Capítulo 18 — El barco de Han Jiwoo](01_opening_arc/18_han_jiwoos_ship.md)
+- [Capítulo 19 — La baliza muerta](01_opening_arc/19_dead_marker.md)

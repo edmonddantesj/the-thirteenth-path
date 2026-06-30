@@ -442,6 +442,7 @@ Each language directory is organized by arc:
 - [第七十二章 一直都在、此刻才看见的距离](zh/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [第七十三章 各自在哈兹兰看见的东西](zh/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [第七十四章 似乎可以多留一会儿的夜](zh/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [第七十五章 比战争更早动起来的那些报告](zh/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ### French
 
@@ -523,6 +524,7 @@ Each language directory is organized by arc:
 - [Chapitre 72 — La distance qui avait toujours été là](fr/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [Chapitre 73 — Ce que chacun vit à Hazran](fr/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](fr/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [Chapitre 75 — Les rapports qui bougèrent avant la guerre](fr/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ### Spanish
 
@@ -546,7 +548,8 @@ Each language directory is organized by arc:
 - [Capítulo 16 — En la misma ruta](es/01_opening_arc/16_on_the_same_route.md)
 - [Capítulo 17 — El rostro en el punto de transbordo](es/01_opening_arc/17_face_at_the_transfer_point.md)
 - [Capítulo 18 — El barco de Han Jiwoo](es/01_opening_arc/18_han_jiwoos_ship.md)
+- [Capítulo 19 — La baliza muerta](es/01_opening_arc/19_dead_marker.md)
 
 ## Status
 
-Public archive currently published through Episode 85 in Korean, Episode 85 in English, Episode 85 in Japanese, Episode 74 in French, Episode 74 in Chinese (Simplified), and Episode 18 in Spanish.
+Public archive currently published through Episode 85 in Korean, Episode 85 in English, Episode 85 in Japanese, Episode 75 in French, Episode 75 in Chinese (Simplified), and Episode 19 in Spanish.

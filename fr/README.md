@@ -82,3 +82,4 @@ Chapitres publics actuels :
 - [Chapitre 72 — La distance qui avait toujours été là](02_hazran/72_the_distance_that_had_always_been_there.md)
 - [Chapitre 73 — Ce que chacun vit à Hazran](02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [Chapitre 75 — Les rapports qui bougèrent avant la guerre](02_hazran/75_the_reports_that_moved_before_the_war.md)
