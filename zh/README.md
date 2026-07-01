@@ -85,3 +85,4 @@
 - [第七十五章 比战争更早动起来的那些报告](02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六章 最先听见它的，是这座城](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七章 各自归位的手](02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [第七十八章 无呼吸而动的第一排](02_hazran/78_the_first_line_that_moved_without_breath.md)

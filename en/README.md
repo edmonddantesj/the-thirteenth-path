@@ -94,3 +94,4 @@ Current public English release:
 - [Episode 84. The Order That Cut the Market in Two](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Episode 85. The Moment the Heartline Closed](02_hazran/85_the_moment_the_heartline_closed.md)
 - [Episode 86. The Defense Beyond the Broken Heartline](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [Episode 87. The Fight Was No Longer to Hold](02_hazran/87_the_fight_was_no_longer_to_hold.md)

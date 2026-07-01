@@ -25,3 +25,4 @@ Capítulos públicos actuales:
 - [Capítulo 19 — La baliza muerta](01_opening_arc/19_dead_marker.md)
 - [Capítulo 20 — El umbral de lo que queda](01_opening_arc/20_threshold_of_what_remains.md)
 - [Capítulo 21 — El primer juicio](01_opening_arc/21_first_judgment.md)
+- [Capítulo 22 — El grano que quedó atrás](01_opening_arc/22_grain_left_behind.md)

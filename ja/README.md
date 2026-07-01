@@ -94,3 +94,4 @@
 - [第八十四話　市場を二つに裂いた命令](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五話　心臓線が閉じた瞬間](02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六話　断たれた心臓線の向こうの防衛](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [第八十七話　もう堪えるための戦いではなかった](02_hazran/87_the_fight_was_no_longer_to_hold.md)

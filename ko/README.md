@@ -95,3 +95,4 @@
 - [84화. 시장을 둘로 가른 명령](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85화. 심장줄이 닫히던 순간](02_hazran/85_the_moment_the_heartline_closed.md)
 - [86화. 끊어진 심장줄 너머의 방어](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [87화. 더는 버티기 위한 싸움이 아니었다](02_hazran/87_the_fight_was_no_longer_to_hold.md)

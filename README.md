@@ -178,6 +178,7 @@ Each language directory is organized by arc:
 - [84. 시장을 둘로 가른 명령](ko/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85. 심장줄이 닫히던 순간](ko/02_hazran/85_the_moment_the_heartline_closed.md)
 - [86. 끊어진 심장줄 너머의 방어](ko/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [87. 더는 버티기 위한 싸움이 아니었다](ko/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ### English
 
@@ -271,6 +272,7 @@ Each language directory is organized by arc:
 - [84. The Order That Cut the Market in Two](en/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [85. The Moment the Heartline Closed](en/02_hazran/85_the_moment_the_heartline_closed.md)
 - [86. The Defense Beyond the Broken Heartline](en/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [87. The Fight Was No Longer to Hold](en/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ### Japanese
 
@@ -364,6 +366,7 @@ Each language directory is organized by arc:
 - [第八十四話　市場を二つに裂いた命令](ja/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五話　心臓線が閉じた瞬間](ja/02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六話　断たれた心臓線の向こうの防衛](ja/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [第八十七話　もう堪えるための戦いではなかった](ja/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ### Chinese
 
@@ -448,6 +451,7 @@ Each language directory is organized by arc:
 - [第七十五章 比战争更早动起来的那些报告](zh/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六章 最先听见它的，是这座城](zh/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七章 各自归位的手](zh/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [第七十八章 无呼吸而动的第一排](zh/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ### French
 
@@ -532,6 +536,7 @@ Each language directory is organized by arc:
 - [Chapitre 75 — Les rapports qui bougèrent avant la guerre](fr/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Chapitre 76 — La ville l'entendit avant tous](fr/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Chapitre 77 — Les mains qui revinrent à leur place](fr/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [Chapitre 78 — La première ligne qui avança sans souffle](fr/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ### Spanish
 
@@ -558,7 +563,8 @@ Each language directory is organized by arc:
 - [Capítulo 19 — La baliza muerta](es/01_opening_arc/19_dead_marker.md)
 - [Capítulo 20 — El umbral de lo que queda](es/01_opening_arc/20_threshold_of_what_remains.md)
 - [Capítulo 21 — El primer juicio](es/01_opening_arc/21_first_judgment.md)
+- [Capítulo 22 — El grano que quedó atrás](es/01_opening_arc/22_grain_left_behind.md)
 
 ## Status
 
-Public archive currently published through Episode 86 in Korean, Episode 86 in English, Episode 86 in Japanese, Episode 77 in French, Episode 77 in Chinese (Simplified), and Episode 21 in Spanish.
+Public archive currently published through Episode 87 in Korean, Episode 87 in English, Episode 87 in Japanese, Episode 78 in French, Episode 78 in Chinese (Simplified), and Episode 22 in Spanish.
