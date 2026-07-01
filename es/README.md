@@ -24,3 +24,4 @@ Capítulos públicos actuales:
 - [Capítulo 18 — El barco de Han Jiwoo](01_opening_arc/18_han_jiwoos_ship.md)
 - [Capítulo 19 — La baliza muerta](01_opening_arc/19_dead_marker.md)
 - [Capítulo 20 — El umbral de lo que queda](01_opening_arc/20_threshold_of_what_remains.md)
+- [Capítulo 21 — El primer juicio](01_opening_arc/21_first_judgment.md)

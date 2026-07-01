@@ -447,6 +447,7 @@ Each language directory is organized by arc:
 - [第七十四章 似乎可以多留一会儿的夜](zh/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [第七十五章 比战争更早动起来的那些报告](zh/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [第七十六章 最先听见它的，是这座城](zh/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [第七十七章 各自归位的手](zh/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ### French
 
@@ -530,6 +531,7 @@ Each language directory is organized by arc:
 - [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](fr/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Chapitre 75 — Les rapports qui bougèrent avant la guerre](fr/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Chapitre 76 — La ville l'entendit avant tous](fr/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [Chapitre 77 — Les mains qui revinrent à leur place](fr/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ### Spanish
 
@@ -555,7 +557,8 @@ Each language directory is organized by arc:
 - [Capítulo 18 — El barco de Han Jiwoo](es/01_opening_arc/18_han_jiwoos_ship.md)
 - [Capítulo 19 — La baliza muerta](es/01_opening_arc/19_dead_marker.md)
 - [Capítulo 20 — El umbral de lo que queda](es/01_opening_arc/20_threshold_of_what_remains.md)
+- [Capítulo 21 — El primer juicio](es/01_opening_arc/21_first_judgment.md)
 
 ## Status
 
-Public archive currently published through Episode 86 in Korean, Episode 86 in English, Episode 86 in Japanese, Episode 76 in French, Episode 76 in Chinese (Simplified), and Episode 20 in Spanish.
+Public archive currently published through Episode 86 in Korean, Episode 86 in English, Episode 86 in Japanese, Episode 77 in French, Episode 77 in Chinese (Simplified), and Episode 21 in Spanish.

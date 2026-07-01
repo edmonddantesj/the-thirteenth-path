@@ -84,3 +84,4 @@ Chapitres publics actuels :
 - [Chapitre 74 — La nuit où l'on pouvait rester un peu plus](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Chapitre 75 — Les rapports qui bougèrent avant la guerre](02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Chapitre 76 — La ville l'entendit avant tous](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [Chapitre 77 — Les mains qui revinrent à leur place](02_hazran/77_the_hands_that_went_back_to_their_places.md)
