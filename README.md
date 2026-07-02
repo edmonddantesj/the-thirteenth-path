@@ -452,6 +452,7 @@ Each language directory is organized by arc:
 - [第七十六章 最先听见它的，是这座城](zh/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [第七十七章 各自归位的手](zh/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八章 无呼吸而动的第一排](zh/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [第七十九章 斩而不断的浪](zh/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ### French
 
@@ -537,6 +538,7 @@ Each language directory is organized by arc:
 - [Chapitre 76 — La ville l'entendit avant tous](fr/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Chapitre 77 — Les mains qui revinrent à leur place](fr/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Chapitre 78 — La première ligne qui avança sans souffle](fr/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [Chapitre 79 — La vague qui ne se rompit pas quand on la coupa](fr/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ### Spanish
 
@@ -564,7 +566,8 @@ Each language directory is organized by arc:
 - [Capítulo 20 — El umbral de lo que queda](es/01_opening_arc/20_threshold_of_what_remains.md)
 - [Capítulo 21 — El primer juicio](es/01_opening_arc/21_first_judgment.md)
 - [Capítulo 22 — El grano que quedó atrás](es/01_opening_arc/22_grain_left_behind.md)
+- [Capítulo 23 — La mano que pasó primero](es/01_opening_arc/23_the_hand_that_passed_first.md)
 
 ## Status
 
-Public archive currently published through Episode 87 in Korean, Episode 87 in English, Episode 87 in Japanese, Episode 78 in French, Episode 78 in Chinese (Simplified), and Episode 22 in Spanish.
+Public archive currently published through Episode 87 in Korean, Episode 87 in English, Episode 87 in Japanese, Episode 79 in French, Episode 79 in Chinese (Simplified), and Episode 23 in Spanish.

@@ -26,3 +26,4 @@ Capítulos públicos actuales:
 - [Capítulo 20 — El umbral de lo que queda](01_opening_arc/20_threshold_of_what_remains.md)
 - [Capítulo 21 — El primer juicio](01_opening_arc/21_first_judgment.md)
 - [Capítulo 22 — El grano que quedó atrás](01_opening_arc/22_grain_left_behind.md)
+- [Capítulo 23 — La mano que pasó primero](01_opening_arc/23_the_hand_that_passed_first.md)

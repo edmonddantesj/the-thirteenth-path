@@ -86,3 +86,4 @@ Chapitres publics actuels :
 - [Chapitre 76 — La ville l'entendit avant tous](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Chapitre 77 — Les mains qui revinrent à leur place](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Chapitre 78 — La première ligne qui avança sans souffle](02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [Chapitre 79 — La vague qui ne se rompit pas quand on la coupa](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
