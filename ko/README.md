@@ -96,3 +96,4 @@
 - [85화. 심장줄이 닫히던 순간](02_hazran/85_the_moment_the_heartline_closed.md)
 - [86화. 끊어진 심장줄 너머의 방어](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [87화. 더는 버티기 위한 싸움이 아니었다](02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [88화. 처음으로 바깥으로 보내진 사람들](02_hazran/88_the_first_people_who_were_sent_out.md)

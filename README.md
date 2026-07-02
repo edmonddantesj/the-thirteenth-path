@@ -179,6 +179,7 @@ Each language directory is organized by arc:
 - [85. 심장줄이 닫히던 순간](ko/02_hazran/85_the_moment_the_heartline_closed.md)
 - [86. 끊어진 심장줄 너머의 방어](ko/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [87. 더는 버티기 위한 싸움이 아니었다](ko/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [88. 처음으로 바깥으로 보내진 사람들](ko/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ### English
 
@@ -273,6 +274,7 @@ Each language directory is organized by arc:
 - [85. The Moment the Heartline Closed](en/02_hazran/85_the_moment_the_heartline_closed.md)
 - [86. The Defense Beyond the Broken Heartline](en/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [87. The Fight Was No Longer to Hold](en/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [88. The First People Who Were Sent Out](en/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ### Japanese
 
@@ -367,6 +369,7 @@ Each language directory is organized by arc:
 - [第八十五話　心臓線が閉じた瞬間](ja/02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六話　断たれた心臓線の向こうの防衛](ja/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [第八十七話　もう堪えるための戦いではなかった](ja/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [第八十八話　初めて外に送り出された人たち](ja/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ### Chinese
 
@@ -453,6 +456,7 @@ Each language directory is organized by arc:
 - [第七十七章 各自归位的手](zh/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八章 无呼吸而动的第一排](zh/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [第七十九章 斩而不断的浪](zh/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [第八十章 为让其余撑住而舍弃的地](zh/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ### French
 
@@ -539,6 +543,7 @@ Each language directory is organized by arc:
 - [Chapitre 77 — Les mains qui revinrent à leur place](fr/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Chapitre 78 — La première ligne qui avança sans souffle](fr/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Chapitre 79 — La vague qui ne se rompit pas quand on la coupa](fr/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [Chapitre 80 — Le sol abandonné pour que le reste tienne](fr/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ### Spanish
 
@@ -567,7 +572,8 @@ Each language directory is organized by arc:
 - [Capítulo 21 — El primer juicio](es/01_opening_arc/21_first_judgment.md)
 - [Capítulo 22 — El grano que quedó atrás](es/01_opening_arc/22_grain_left_behind.md)
 - [Capítulo 23 — La mano que pasó primero](es/01_opening_arc/23_the_hand_that_passed_first.md)
+- [Capítulo 24 — La mano por delante de la sombra](es/01_opening_arc/24_the_hand_ahead_of_the_shadow.md)
 
 ## Status
 
-Public archive currently published through Episode 87 in Korean, Episode 87 in English, Episode 87 in Japanese, Episode 79 in French, Episode 79 in Chinese (Simplified), and Episode 23 in Spanish.
+Public archive currently published through Episode 88 in Korean, Episode 88 in English, Episode 88 in Japanese, Episode 80 in French, Episode 80 in Chinese (Simplified), and Episode 24 in Spanish.

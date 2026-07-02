@@ -95,3 +95,4 @@ Current public English release:
 - [Episode 85. The Moment the Heartline Closed](02_hazran/85_the_moment_the_heartline_closed.md)
 - [Episode 86. The Defense Beyond the Broken Heartline](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Episode 87. The Fight Was No Longer to Hold](02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [Episode 88. The First People Who Were Sent Out](02_hazran/88_the_first_people_who_were_sent_out.md)

@@ -87,3 +87,4 @@
 - [第七十七章 各自归位的手](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [第七十八章 无呼吸而动的第一排](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [第七十九章 斩而不断的浪](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [第八十章 为让其余撑住而舍弃的地](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
