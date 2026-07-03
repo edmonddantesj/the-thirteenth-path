@@ -180,6 +180,7 @@ Each language directory is organized by arc:
 - [86. 끊어진 심장줄 너머의 방어](ko/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [87. 더는 버티기 위한 싸움이 아니었다](ko/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [88. 처음으로 바깥으로 보내진 사람들](ko/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [89. 마지막으로 살아 있는 공간은 선체 곁에 모였다](ko/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ### English
 
@@ -275,6 +276,7 @@ Each language directory is organized by arc:
 - [86. The Defense Beyond the Broken Heartline](en/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [87. The Fight Was No Longer to Hold](en/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [88. The First People Who Were Sent Out](en/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [89. The Last Live Space Gathered Around the Hull](en/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ### Japanese
 
@@ -370,6 +372,7 @@ Each language directory is organized by arc:
 - [第八十六話　断たれた心臓線の向こうの防衛](ja/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [第八十七話　もう堪えるための戦いではなかった](ja/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [第八十八話　初めて外に送り出された人たち](ja/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [第八十九話　最後の生きた空間は船体のそばに集まった](ja/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ### Chinese
 
@@ -458,6 +461,7 @@ Each language directory is organized by arc:
 - [第七十九章 斩而不断的浪](zh/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [第八十章 为让其余撑住而舍弃的地](zh/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一章 在市场里拉开的战线](zh/02_hazran/81_the_line_that_began_inside_the_market.md)
+- [第八十二章 懂得怎么击破它们的人](zh/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 
 ### French
 
@@ -546,6 +550,7 @@ Each language directory is organized by arc:
 - [Chapitre 79 — La vague qui ne se rompit pas quand on la coupa](fr/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [Chapitre 80 — Le sol abandonné pour que le reste tienne](fr/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [Chapitre 81 — La ligne qui commença à l'intérieur du marché](fr/02_hazran/81_the_line_that_began_inside_the_market.md)
+- [Chapitre 82 — Ceux qui savaient comment les briser](fr/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 
 ### Spanish
 
@@ -576,7 +581,8 @@ Each language directory is organized by arc:
 - [Capítulo 23 — La mano que pasó primero](es/01_opening_arc/23_the_hand_that_passed_first.md)
 - [Capítulo 24 — La mano por delante de la sombra](es/01_opening_arc/24_the_hand_ahead_of_the_shadow.md)
 - [Capítulo 25 — El rostro más allá de la esquina](es/01_opening_arc/25_the_face_beyond_the_corner.md)
+- [Capítulo 26 — El que leyó primero](es/01_opening_arc/26_the_one_who_read_first.md)
 
 ## Status
 
-Public archive currently published through Episode 88 in Korean, Episode 88 in English, Episode 88 in Japanese, Episode 81 in French, Episode 81 in Chinese (Simplified), and Episode 25 in Spanish.
+Public archive currently published through Episode 89 in Korean, Episode 89 in English, Episode 89 in Japanese, Episode 82 in French, Episode 82 in Chinese (Simplified), and Episode 26 in Spanish.

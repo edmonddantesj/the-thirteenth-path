@@ -29,3 +29,4 @@ Capítulos públicos actuales:
 - [Capítulo 23 — La mano que pasó primero](01_opening_arc/23_the_hand_that_passed_first.md)
 - [Capítulo 24 — La mano por delante de la sombra](01_opening_arc/24_the_hand_ahead_of_the_shadow.md)
 - [Capítulo 25 — El rostro más allá de la esquina](01_opening_arc/25_the_face_beyond_the_corner.md)
+- [Capítulo 26 — El que leyó primero](01_opening_arc/26_the_one_who_read_first.md)

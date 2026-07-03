@@ -96,3 +96,4 @@ Current public English release:
 - [Episode 86. The Defense Beyond the Broken Heartline](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Episode 87. The Fight Was No Longer to Hold](02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Episode 88. The First People Who Were Sent Out](02_hazran/88_the_first_people_who_were_sent_out.md)
+- [Episode 89. The Last Live Space Gathered Around the Hull](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)

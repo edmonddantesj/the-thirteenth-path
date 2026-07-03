@@ -89,3 +89,4 @@
 - [第七十九章 斩而不断的浪](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [第八十章 为让其余撑住而舍弃的地](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一章 在市场里拉开的战线](02_hazran/81_the_line_that_began_inside_the_market.md)
+- [第八十二章 懂得怎么击破它们的人](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
