@@ -457,6 +457,7 @@ Each language directory is organized by arc:
 - [第七十八章 无呼吸而动的第一排](zh/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [第七十九章 斩而不断的浪](zh/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [第八十章 为让其余撑住而舍弃的地](zh/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
+- [第八十一章 在市场里拉开的战线](zh/02_hazran/81_the_line_that_began_inside_the_market.md)
 
 ### French
 
@@ -544,6 +545,7 @@ Each language directory is organized by arc:
 - [Chapitre 78 — La première ligne qui avança sans souffle](fr/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Chapitre 79 — La vague qui ne se rompit pas quand on la coupa](fr/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [Chapitre 80 — Le sol abandonné pour que le reste tienne](fr/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
+- [Chapitre 81 — La ligne qui commença à l'intérieur du marché](fr/02_hazran/81_the_line_that_began_inside_the_market.md)
 
 ### Spanish
 
@@ -573,7 +575,8 @@ Each language directory is organized by arc:
 - [Capítulo 22 — El grano que quedó atrás](es/01_opening_arc/22_grain_left_behind.md)
 - [Capítulo 23 — La mano que pasó primero](es/01_opening_arc/23_the_hand_that_passed_first.md)
 - [Capítulo 24 — La mano por delante de la sombra](es/01_opening_arc/24_the_hand_ahead_of_the_shadow.md)
+- [Capítulo 25 — El rostro más allá de la esquina](es/01_opening_arc/25_the_face_beyond_the_corner.md)
 
 ## Status
 
-Public archive currently published through Episode 88 in Korean, Episode 88 in English, Episode 88 in Japanese, Episode 80 in French, Episode 80 in Chinese (Simplified), and Episode 24 in Spanish.
+Public archive currently published through Episode 88 in Korean, Episode 88 in English, Episode 88 in Japanese, Episode 81 in French, Episode 81 in Chinese (Simplified), and Episode 25 in Spanish.
