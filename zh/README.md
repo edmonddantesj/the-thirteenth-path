@@ -90,3 +90,4 @@
 - [第八十章 为让其余撑住而舍弃的地](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一章 在市场里拉开的战线](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二章 懂得怎么击破它们的人](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [第八十三章 光靠方法撑不住的瞬间](02_hazran/83_the_method_stopped_being_enough.md)

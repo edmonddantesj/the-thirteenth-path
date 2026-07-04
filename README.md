@@ -462,6 +462,7 @@ Each language directory is organized by arc:
 - [第八十章 为让其余撑住而舍弃的地](zh/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [第八十一章 在市场里拉开的战线](zh/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二章 懂得怎么击破它们的人](zh/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [第八十三章 光靠方法撑不住的瞬间](zh/02_hazran/83_the_method_stopped_being_enough.md)
 
 ### French
 
@@ -551,6 +552,7 @@ Each language directory is organized by arc:
 - [Chapitre 80 — Le sol abandonné pour que le reste tienne](fr/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [Chapitre 81 — La ligne qui commença à l'intérieur du marché](fr/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Chapitre 82 — Ceux qui savaient comment les briser](fr/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [Chapitre 83 — La méthode cessa de suffire](fr/02_hazran/83_the_method_stopped_being_enough.md)
 
 ### Spanish
 
@@ -582,7 +584,8 @@ Each language directory is organized by arc:
 - [Capítulo 24 — La mano por delante de la sombra](es/01_opening_arc/24_the_hand_ahead_of_the_shadow.md)
 - [Capítulo 25 — El rostro más allá de la esquina](es/01_opening_arc/25_the_face_beyond_the_corner.md)
 - [Capítulo 26 — El que leyó primero](es/01_opening_arc/26_the_one_who_read_first.md)
+- [Capítulo 27 — El orden que aún no ha muerto](es/01_opening_arc/27_the_order_not_yet_dead.md)
 
 ## Status
 
-Public archive currently published through Episode 89 in Korean, Episode 89 in English, Episode 89 in Japanese, Episode 82 in French, Episode 82 in Chinese (Simplified), and Episode 26 in Spanish.
+Public archive currently published through Episode 89 in Korean, Episode 89 in English, Episode 89 in Japanese, Episode 83 in French, Episode 83 in Chinese (Simplified), and Episode 27 in Spanish.
