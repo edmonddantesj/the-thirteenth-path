@@ -31,3 +31,4 @@ Capítulos públicos actuales:
 - [Capítulo 25 — El rostro más allá de la esquina](01_opening_arc/25_the_face_beyond_the_corner.md)
 - [Capítulo 26 — El que leyó primero](01_opening_arc/26_the_one_who_read_first.md)
 - [Capítulo 27 — El orden que aún no ha muerto](01_opening_arc/27_the_order_not_yet_dead.md)
+- [Capítulo 28 — Lo que se abre sin nombre](01_opening_arc/28_what_opens_without_a_name.md)

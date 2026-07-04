@@ -91,3 +91,4 @@ Chapitres publics actuels :
 - [Chapitre 81 — La ligne qui commença à l'intérieur du marché](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Chapitre 82 — Ceux qui savaient comment les briser](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Chapitre 83 — La méthode cessa de suffire](02_hazran/83_the_method_stopped_being_enough.md)
+- [Chapitre 84 — L'ordre qui coupa le marché en deux](02_hazran/84_the_order_that_cut_the_market_in_two.md)

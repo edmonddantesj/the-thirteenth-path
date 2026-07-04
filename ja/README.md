@@ -97,3 +97,4 @@
 - [第八十七話　もう堪えるための戦いではなかった](02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [第八十八話　初めて外に送り出された人たち](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [第八十九話　最後の生きた空間は船体のそばに集まった](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [第九十話　危険が船体に届いた瞬間](02_hazran/90_the_moment_danger_reached_the_hull.md)

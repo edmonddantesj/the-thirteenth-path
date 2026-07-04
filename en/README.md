@@ -97,3 +97,4 @@ Current public English release:
 - [Episode 87. The Fight Was No Longer to Hold](02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Episode 88. The First People Who Were Sent Out](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Episode 89. The Last Live Space Gathered Around the Hull](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [Episode 90. The Moment Danger Reached the Hull](02_hazran/90_the_moment_danger_reached_the_hull.md)

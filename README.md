@@ -181,6 +181,7 @@ Each language directory is organized by arc:
 - [87. 더는 버티기 위한 싸움이 아니었다](ko/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [88. 처음으로 바깥으로 보내진 사람들](ko/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [89. 마지막으로 살아 있는 공간은 선체 곁에 모였다](ko/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [90. 위험이 선체까지 닿은 순간](ko/02_hazran/90_the_moment_danger_reached_the_hull.md)
 
 ### English
 
@@ -277,6 +278,7 @@ Each language directory is organized by arc:
 - [87. The Fight Was No Longer to Hold](en/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [88. The First People Who Were Sent Out](en/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [89. The Last Live Space Gathered Around the Hull](en/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [90. The Moment Danger Reached the Hull](en/02_hazran/90_the_moment_danger_reached_the_hull.md)
 
 ### Japanese
 
@@ -373,6 +375,7 @@ Each language directory is organized by arc:
 - [第八十七話　もう堪えるための戦いではなかった](ja/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [第八十八話　初めて外に送り出された人たち](ja/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [第八十九話　最後の生きた空間は船体のそばに集まった](ja/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [第九十話　危険が船体に届いた瞬間](ja/02_hazran/90_the_moment_danger_reached_the_hull.md)
 
 ### Chinese
 
@@ -463,6 +466,7 @@ Each language directory is organized by arc:
 - [第八十一章 在市场里拉开的战线](zh/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [第八十二章 懂得怎么击破它们的人](zh/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三章 光靠方法撑不住的瞬间](zh/02_hazran/83_the_method_stopped_being_enough.md)
+- [第八十四章 把市场劈成两半的命令](zh/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ### French
 
@@ -553,6 +557,7 @@ Each language directory is organized by arc:
 - [Chapitre 81 — La ligne qui commença à l'intérieur du marché](fr/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Chapitre 82 — Ceux qui savaient comment les briser](fr/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Chapitre 83 — La méthode cessa de suffire](fr/02_hazran/83_the_method_stopped_being_enough.md)
+- [Chapitre 84 — L'ordre qui coupa le marché en deux](fr/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ### Spanish
 
@@ -585,7 +590,8 @@ Each language directory is organized by arc:
 - [Capítulo 25 — El rostro más allá de la esquina](es/01_opening_arc/25_the_face_beyond_the_corner.md)
 - [Capítulo 26 — El que leyó primero](es/01_opening_arc/26_the_one_who_read_first.md)
 - [Capítulo 27 — El orden que aún no ha muerto](es/01_opening_arc/27_the_order_not_yet_dead.md)
+- [Capítulo 28 — Lo que se abre sin nombre](es/01_opening_arc/28_what_opens_without_a_name.md)
 
 ## Status
 
-Public archive currently published through Episode 89 in Korean, Episode 89 in English, Episode 89 in Japanese, Episode 83 in French, Episode 83 in Chinese (Simplified), and Episode 27 in Spanish.
+Public archive currently published through Episode 90 in Korean, Episode 90 in English, Episode 90 in Japanese, Episode 84 in French, Episode 84 in Chinese (Simplified), and Episode 28 in Spanish.
