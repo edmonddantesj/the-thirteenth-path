@@ -92,3 +92,4 @@
 - [第八十二章 懂得怎么击破它们的人](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三章 光靠方法撑不住的瞬间](02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四章 把市场劈成两半的命令](02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [第八十五章 心脏线闭合的瞬间](02_hazran/85_the_moment_the_heartline_closed.md)

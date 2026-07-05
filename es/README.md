@@ -32,3 +32,4 @@ Capítulos públicos actuales:
 - [Capítulo 26 — El que leyó primero](01_opening_arc/26_the_one_who_read_first.md)
 - [Capítulo 27 — El orden que aún no ha muerto](01_opening_arc/27_the_order_not_yet_dead.md)
 - [Capítulo 28 — Lo que se abre sin nombre](01_opening_arc/28_what_opens_without_a_name.md)
+- [Capítulo 29 — La prueba que quedó viva](01_opening_arc/29_the_proof_left_alive.md)

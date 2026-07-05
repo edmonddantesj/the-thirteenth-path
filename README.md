@@ -467,6 +467,7 @@ Each language directory is organized by arc:
 - [第八十二章 懂得怎么击破它们的人](zh/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [第八十三章 光靠方法撑不住的瞬间](zh/02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四章 把市场劈成两半的命令](zh/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [第八十五章 心脏线闭合的瞬间](zh/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ### French
 
@@ -558,6 +559,7 @@ Each language directory is organized by arc:
 - [Chapitre 82 — Ceux qui savaient comment les briser](fr/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Chapitre 83 — La méthode cessa de suffire](fr/02_hazran/83_the_method_stopped_being_enough.md)
 - [Chapitre 84 — L'ordre qui coupa le marché en deux](fr/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [Chapitre 85 — Le moment où la ligne vitale se ferma](fr/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ### Spanish
 
@@ -591,7 +593,8 @@ Each language directory is organized by arc:
 - [Capítulo 26 — El que leyó primero](es/01_opening_arc/26_the_one_who_read_first.md)
 - [Capítulo 27 — El orden que aún no ha muerto](es/01_opening_arc/27_the_order_not_yet_dead.md)
 - [Capítulo 28 — Lo que se abre sin nombre](es/01_opening_arc/28_what_opens_without_a_name.md)
+- [Capítulo 29 — La prueba que quedó viva](es/01_opening_arc/29_the_proof_left_alive.md)
 
 ## Status
 
-Public archive currently published through Episode 90 in Korean, Episode 90 in English, Episode 90 in Japanese, Episode 84 in French, Episode 84 in Chinese (Simplified), and Episode 28 in Spanish.
+Public archive currently published through Episode 90 in Korean, Episode 90 in English, Episode 90 in Japanese, Episode 85 in French, Episode 85 in Chinese (Simplified), and Episode 29 in Spanish.
