@@ -182,6 +182,7 @@ Each language directory is organized by arc:
 - [88. 처음으로 바깥으로 보내진 사람들](ko/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [89. 마지막으로 살아 있는 공간은 선체 곁에 모였다](ko/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [90. 위험이 선체까지 닿은 순간](ko/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [91. 포화 속에서 시작된 첫 이탈](ko/02_hazran/91_the_first_departure_under_fire.md)
 
 ### English
 
@@ -279,6 +280,7 @@ Each language directory is organized by arc:
 - [88. The First People Who Were Sent Out](en/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [89. The Last Live Space Gathered Around the Hull](en/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [90. The Moment Danger Reached the Hull](en/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [91. The First Departure Under Fire](en/02_hazran/91_the_first_departure_under_fire.md)
 
 ### Japanese
 
@@ -376,6 +378,7 @@ Each language directory is organized by arc:
 - [第八十八話　初めて外に送り出された人たち](ja/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [第八十九話　最後の生きた空間は船体のそばに集まった](ja/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十話　危険が船体に届いた瞬間](ja/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [第九十一話　砲火の中で始まった最初の離脱](ja/02_hazran/91_the_first_departure_under_fire.md)
 
 ### Chinese
 
@@ -468,6 +471,7 @@ Each language directory is organized by arc:
 - [第八十三章 光靠方法撑不住的瞬间](zh/02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四章 把市场劈成两半的命令](zh/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五章 心脏线闭合的瞬间](zh/02_hazran/85_the_moment_the_heartline_closed.md)
+- [第八十六章 断裂的心脏线之外的防御](zh/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ### French
 
@@ -560,6 +564,7 @@ Each language directory is organized by arc:
 - [Chapitre 83 — La méthode cessa de suffire](fr/02_hazran/83_the_method_stopped_being_enough.md)
 - [Chapitre 84 — L'ordre qui coupa le marché en deux](fr/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Chapitre 85 — Le moment où la ligne vitale se ferma](fr/02_hazran/85_the_moment_the_heartline_closed.md)
+- [Chapitre 86 — La défense au-delà de la ligne vitale brisée](fr/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ### Spanish
 
@@ -594,7 +599,8 @@ Each language directory is organized by arc:
 - [Capítulo 27 — El orden que aún no ha muerto](es/01_opening_arc/27_the_order_not_yet_dead.md)
 - [Capítulo 28 — Lo que se abre sin nombre](es/01_opening_arc/28_what_opens_without_a_name.md)
 - [Capítulo 29 — La prueba que quedó viva](es/01_opening_arc/29_the_proof_left_alive.md)
+- [Capítulo 30 — El lugar que no es de nadie](es/01_opening_arc/30_the_place_not_owned.md)
 
 ## Status
 
-Public archive currently published through Episode 90 in Korean, Episode 90 in English, Episode 90 in Japanese, Episode 85 in French, Episode 85 in Chinese (Simplified), and Episode 29 in Spanish.
+Public archive currently published through Episode 91 in Korean, Episode 91 in English, Episode 91 in Japanese, Episode 86 in French, Episode 86 in Chinese (Simplified), and Episode 30 in Spanish.

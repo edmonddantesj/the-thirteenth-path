@@ -98,3 +98,4 @@ Current public English release:
 - [Episode 88. The First People Who Were Sent Out](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Episode 89. The Last Live Space Gathered Around the Hull](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Episode 90. The Moment Danger Reached the Hull](02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [Episode 91. The First Departure Under Fire](02_hazran/91_the_first_departure_under_fire.md)

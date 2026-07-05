@@ -93,3 +93,4 @@ Chapitres publics actuels :
 - [Chapitre 83 — La méthode cessa de suffire](02_hazran/83_the_method_stopped_being_enough.md)
 - [Chapitre 84 — L'ordre qui coupa le marché en deux](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Chapitre 85 — Le moment où la ligne vitale se ferma](02_hazran/85_the_moment_the_heartline_closed.md)
+- [Chapitre 86 — La défense au-delà de la ligne vitale brisée](02_hazran/86_the_defense_beyond_the_broken_heartline.md)

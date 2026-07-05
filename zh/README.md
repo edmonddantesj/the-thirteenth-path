@@ -93,3 +93,4 @@
 - [第八十三章 光靠方法撑不住的瞬间](02_hazran/83_the_method_stopped_being_enough.md)
 - [第八十四章 把市场劈成两半的命令](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五章 心脏线闭合的瞬间](02_hazran/85_the_moment_the_heartline_closed.md)
+- [第八十六章 断裂的心脏线之外的防御](02_hazran/86_the_defense_beyond_the_broken_heartline.md)

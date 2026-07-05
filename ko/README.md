@@ -99,3 +99,4 @@
 - [88화. 처음으로 바깥으로 보내진 사람들](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [89화. 마지막으로 살아 있는 공간은 선체 곁에 모였다](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [90화. 위험이 선체까지 닿은 순간](02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [91화. 포화 속에서 시작된 첫 이탈](02_hazran/91_the_first_departure_under_fire.md)
