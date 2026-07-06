@@ -95,3 +95,4 @@
 - [第八十五章 心脏线闭合的瞬间](02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六章 断裂的心脏线之外的防御](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [第八十七章 不再是为了撑住的仗](02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [第八十八章 第一批被送出去的人](02_hazran/88_the_first_people_who_were_sent_out.md)

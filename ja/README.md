@@ -99,3 +99,4 @@
 - [第八十九話　最後の生きた空間は船体のそばに集まった](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十話　危険が船体に届いた瞬間](02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [第九十一話　砲火の中で始まった最初の離脱](02_hazran/91_the_first_departure_under_fire.md)
+- [第九十二話　残った者の肩に残された重さ](02_hazran/92_the_weight_left_on_those_who_stayed.md)

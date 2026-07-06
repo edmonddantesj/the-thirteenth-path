@@ -183,6 +183,7 @@ Each language directory is organized by arc:
 - [89. 마지막으로 살아 있는 공간은 선체 곁에 모였다](ko/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [90. 위험이 선체까지 닿은 순간](ko/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [91. 포화 속에서 시작된 첫 이탈](ko/02_hazran/91_the_first_departure_under_fire.md)
+- [92. 남은 사람들 어깨 위에 남겨진 무게](ko/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ### English
 
@@ -281,6 +282,7 @@ Each language directory is organized by arc:
 - [89. The Last Live Space Gathered Around the Hull](en/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [90. The Moment Danger Reached the Hull](en/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [91. The First Departure Under Fire](en/02_hazran/91_the_first_departure_under_fire.md)
+- [92. The Weight Left on Those Who Stayed](en/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ### Japanese
 
@@ -379,6 +381,7 @@ Each language directory is organized by arc:
 - [第八十九話　最後の生きた空間は船体のそばに集まった](ja/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十話　危険が船体に届いた瞬間](ja/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [第九十一話　砲火の中で始まった最初の離脱](ja/02_hazran/91_the_first_departure_under_fire.md)
+- [第九十二話　残った者の肩に残された重さ](ja/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ### Chinese
 
@@ -473,6 +476,7 @@ Each language directory is organized by arc:
 - [第八十五章 心脏线闭合的瞬间](zh/02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六章 断裂的心脏线之外的防御](zh/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [第八十七章 不再是为了撑住的仗](zh/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [第八十八章 第一批被送出去的人](zh/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ### French
 
@@ -567,6 +571,7 @@ Each language directory is organized by arc:
 - [Chapitre 85 — Le moment où la ligne vitale se ferma](fr/02_hazran/85_the_moment_the_heartline_closed.md)
 - [Chapitre 86 — La défense au-delà de la ligne vitale brisée](fr/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Chapitre 87 — Le combat ne consistait plus à tenir](fr/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [Chapitre 88 — Les premiers qui furent envoyés dehors](fr/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ### Spanish
 
@@ -603,7 +608,8 @@ Each language directory is organized by arc:
 - [Capítulo 29 — La prueba que quedó viva](es/01_opening_arc/29_the_proof_left_alive.md)
 - [Capítulo 30 — El lugar que no es de nadie](es/01_opening_arc/30_the_place_not_owned.md)
 - [Capítulo 31 — La línea que no los soltaba](es/02_hazran/31_the_line_that_would_not_let_go.md)
+- [Capítulo 32 — El calor que los tragó](es/02_hazran/32_the_heat_that_took_them_in.md)
 
 ## Status
 
-Public archive currently published through Episode 91 in Korean, Episode 91 in English, Episode 91 in Japanese, Episode 87 in French, Episode 87 in Chinese (Simplified), and Episode 31 in Spanish.
+Public archive currently published through Episode 92 in Korean, Episode 92 in English, Episode 92 in Japanese, Episode 88 in French, Episode 88 in Chinese (Simplified), and Episode 32 in Spanish.

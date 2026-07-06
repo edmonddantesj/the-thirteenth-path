@@ -95,3 +95,4 @@ Chapitres publics actuels :
 - [Chapitre 85 — Le moment où la ligne vitale se ferma](02_hazran/85_the_moment_the_heartline_closed.md)
 - [Chapitre 86 — La défense au-delà de la ligne vitale brisée](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Chapitre 87 — Le combat ne consistait plus à tenir](02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [Chapitre 88 — Les premiers qui furent envoyés dehors](02_hazran/88_the_first_people_who_were_sent_out.md)
