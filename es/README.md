@@ -34,3 +34,4 @@ Capítulos públicos actuales:
 - [Capítulo 28 — Lo que se abre sin nombre](01_opening_arc/28_what_opens_without_a_name.md)
 - [Capítulo 29 — La prueba que quedó viva](01_opening_arc/29_the_proof_left_alive.md)
 - [Capítulo 30 — El lugar que no es de nadie](01_opening_arc/30_the_place_not_owned.md)
+- [Capítulo 31 — La línea que no los soltaba](02_hazran/31_the_line_that_would_not_let_go.md)

@@ -472,6 +472,7 @@ Each language directory is organized by arc:
 - [第八十四章 把市场劈成两半的命令](zh/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [第八十五章 心脏线闭合的瞬间](zh/02_hazran/85_the_moment_the_heartline_closed.md)
 - [第八十六章 断裂的心脏线之外的防御](zh/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [第八十七章 不再是为了撑住的仗](zh/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ### French
 
@@ -565,6 +566,7 @@ Each language directory is organized by arc:
 - [Chapitre 84 — L'ordre qui coupa le marché en deux](fr/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Chapitre 85 — Le moment où la ligne vitale se ferma](fr/02_hazran/85_the_moment_the_heartline_closed.md)
 - [Chapitre 86 — La défense au-delà de la ligne vitale brisée](fr/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [Chapitre 87 — Le combat ne consistait plus à tenir](fr/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ### Spanish
 
@@ -600,7 +602,8 @@ Each language directory is organized by arc:
 - [Capítulo 28 — Lo que se abre sin nombre](es/01_opening_arc/28_what_opens_without_a_name.md)
 - [Capítulo 29 — La prueba que quedó viva](es/01_opening_arc/29_the_proof_left_alive.md)
 - [Capítulo 30 — El lugar que no es de nadie](es/01_opening_arc/30_the_place_not_owned.md)
+- [Capítulo 31 — La línea que no los soltaba](es/02_hazran/31_the_line_that_would_not_let_go.md)
 
 ## Status
 
-Public archive currently published through Episode 91 in Korean, Episode 91 in English, Episode 91 in Japanese, Episode 86 in French, Episode 86 in Chinese (Simplified), and Episode 30 in Spanish.
+Public archive currently published through Episode 91 in Korean, Episode 91 in English, Episode 91 in Japanese, Episode 87 in French, Episode 87 in Chinese (Simplified), and Episode 31 in Spanish.
