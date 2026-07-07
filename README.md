@@ -477,6 +477,7 @@ Each language directory is organized by arc:
 - [第八十六章 断裂的心脏线之外的防御](zh/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [第八十七章 不再是为了撑住的仗](zh/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [第八十八章 第一批被送出去的人](zh/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [第八十九章 最后活着的空间，聚到了船体旁](zh/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ### French
 
@@ -572,6 +573,7 @@ Each language directory is organized by arc:
 - [Chapitre 86 — La défense au-delà de la ligne vitale brisée](fr/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Chapitre 87 — Le combat ne consistait plus à tenir](fr/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Chapitre 88 — Les premiers qui furent envoyés dehors](fr/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [Chapitre 89 — Le dernier espace vivant se rassembla autour de la coque](fr/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ### Spanish
 
@@ -609,7 +611,8 @@ Each language directory is organized by arc:
 - [Capítulo 30 — El lugar que no es de nadie](es/01_opening_arc/30_the_place_not_owned.md)
 - [Capítulo 31 — La línea que no los soltaba](es/02_hazran/31_the_line_that_would_not_let_go.md)
 - [Capítulo 32 — El calor que los tragó](es/02_hazran/32_the_heat_that_took_them_in.md)
+- [Capítulo 33 — El precio para entrar](es/02_hazran/33_the_price_of_walking_in.md)
 
 ## Status
 
-Public archive currently published through Episode 92 in Korean, Episode 92 in English, Episode 92 in Japanese, Episode 88 in French, Episode 88 in Chinese (Simplified), and Episode 32 in Spanish.
+Public archive currently published through Episode 92 in Korean, Episode 92 in English, Episode 92 in Japanese, Episode 89 in French, Episode 89 in Chinese (Simplified), and Episode 33 in Spanish.
