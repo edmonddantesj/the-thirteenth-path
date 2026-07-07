@@ -100,3 +100,4 @@ Current public English release:
 - [Episode 90. The Moment Danger Reached the Hull](02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Episode 91. The First Departure Under Fire](02_hazran/91_the_first_departure_under_fire.md)
 - [Episode 92. The Weight Left on Those Who Stayed](02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [Episode 93. The Heavier One That Arrived Next](02_hazran/93_the_heavier_one_that_arrived_next.md)

@@ -37,3 +37,4 @@ Capítulos públicos actuales:
 - [Capítulo 31 — La línea que no los soltaba](02_hazran/31_the_line_that_would_not_let_go.md)
 - [Capítulo 32 — El calor que los tragó](02_hazran/32_the_heat_that_took_them_in.md)
 - [Capítulo 33 — El precio para entrar](02_hazran/33_the_price_of_walking_in.md)
+- [Capítulo 34 — El nombre que la gente tragaba](02_hazran/34_the_name_people_swallowed.md)
