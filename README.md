@@ -185,6 +185,7 @@ Each language directory is organized by arc:
 - [91. 포화 속에서 시작된 첫 이탈](ko/02_hazran/91_the_first_departure_under_fire.md)
 - [92. 남은 사람들 어깨 위에 남겨진 무게](ko/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [93. 다음으로 도착한 더 무거운 것](ko/02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [94. 부러지기 전에 먼저 휘는 선](ko/02_hazran/94_the_line_bent_before_it_broke.md)
 
 ### English
 
@@ -285,6 +286,7 @@ Each language directory is organized by arc:
 - [91. The First Departure Under Fire](en/02_hazran/91_the_first_departure_under_fire.md)
 - [92. The Weight Left on Those Who Stayed](en/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [93. The Heavier One That Arrived Next](en/02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [94. The Line Bent Before It Broke](en/02_hazran/94_the_line_bent_before_it_broke.md)
 
 ### Japanese
 
@@ -385,6 +387,7 @@ Each language directory is organized by arc:
 - [第九十一話　砲火の中で始まった最初の離脱](ja/02_hazran/91_the_first_departure_under_fire.md)
 - [第九十二話　残った者の肩に残された重さ](ja/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [第九十三話　次に届いたもっと重いもの](ja/02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [第九十四話　折れる前にまず撓む線](ja/02_hazran/94_the_line_bent_before_it_broke.md)
 
 ### Chinese
 
@@ -483,6 +486,7 @@ Each language directory is organized by arc:
 - [第八十九章 最后活着的空间，聚到了船体旁](zh/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十章 危险触到船体的瞬间](zh/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [第九十一章 炮火中开始的第一次撤离](zh/02_hazran/91_the_first_departure_under_fire.md)
+- [第九十二章 压在留下者肩上的重量](zh/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ### French
 
@@ -581,6 +585,7 @@ Each language directory is organized by arc:
 - [Chapitre 89 — Le dernier espace vivant se rassembla autour de la coque](fr/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Chapitre 90 — Le moment où le danger atteignit la coque](fr/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Chapitre 91 — Le premier départ sous le feu](fr/02_hazran/91_the_first_departure_under_fire.md)
+- [Chapitre 92 — Le poids laissé à ceux qui restèrent](fr/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ### Spanish
 
@@ -621,7 +626,8 @@ Each language directory is organized by arc:
 - [Capítulo 33 — El precio para entrar](es/02_hazran/33_the_price_of_walking_in.md)
 - [Capítulo 34 — El nombre que la gente tragaba](es/02_hazran/34_the_name_people_swallowed.md)
 - [Capítulo 35 — La mano que los contaba](es/02_hazran/35_the_hand_that_counted_them.md)
+- [Capítulo 36 — El precio tras la captura](es/02_hazran/36_the_price_after_the_grab.md)
 
 ## Status
 
-Public archive currently published through Episode 93 in Korean, Episode 93 in English, Episode 93 in Japanese, Episode 91 in French, Episode 91 in Chinese (Simplified), and Episode 35 in Spanish.
+Public archive currently published through Episode 94 in Korean, Episode 94 in English, Episode 94 in Japanese, Episode 92 in French, Episode 92 in Chinese (Simplified), and Episode 36 in Spanish.

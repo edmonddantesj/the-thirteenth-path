@@ -99,3 +99,4 @@
 - [第八十九章 最后活着的空间，聚到了船体旁](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十章 危险触到船体的瞬间](02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [第九十一章 炮火中开始的第一次撤离](02_hazran/91_the_first_departure_under_fire.md)
+- [第九十二章 压在留下者肩上的重量](02_hazran/92_the_weight_left_on_those_who_stayed.md)

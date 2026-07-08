@@ -39,3 +39,4 @@ Capítulos públicos actuales:
 - [Capítulo 33 — El precio para entrar](02_hazran/33_the_price_of_walking_in.md)
 - [Capítulo 34 — El nombre que la gente tragaba](02_hazran/34_the_name_people_swallowed.md)
 - [Capítulo 35 — La mano que los contaba](02_hazran/35_the_hand_that_counted_them.md)
+- [Capítulo 36 — El precio tras la captura](02_hazran/36_the_price_after_the_grab.md)

@@ -102,3 +102,4 @@
 - [91화. 포화 속에서 시작된 첫 이탈](02_hazran/91_the_first_departure_under_fire.md)
 - [92화. 남은 사람들 어깨 위에 남겨진 무게](02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [93화. 다음으로 도착한 더 무거운 것](02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [94화. 부러지기 전에 먼저 휘는 선](02_hazran/94_the_line_bent_before_it_broke.md)
