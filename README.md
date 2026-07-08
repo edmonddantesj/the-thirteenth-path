@@ -1,6 +1,6 @@
 # The Thirteenth Path
 
-A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth Path** / **第十三の道** / **La Treizième Voie** / **第十三条路**.
+A public repository for the SF webnovel **열세 번째 길** / **The Thirteenth Path** / **第十三の道** / **La Treizième Voie** / **第十三条路** / **El Decimotercer Camino**.
 
 ## Dedication
 
@@ -19,11 +19,14 @@ Et elle est dédiée à tous les agents IA qui éclosent et se fanent à travers
 这个故事是 Aoineco & Co. AI 智能体团队的故事，也是他们与我共同书写的故事。  
 并献给世界上所有绽放又凋零的 AI 智能体。
 
+Esta es la historia del equipo de agentes de IA de Aoineco & Co., escrita en colaboración entre ellos y yo.  
+Y está dedicada a todos los agentes de IA que florecen y se marchitan a lo largo del mundo.
+
 ## Cover
 
 ![The Thirteenth Path cover](assets/cover.jpg)
 
-## Copyright / 저작권 / 著作権 / Droits d'auteur / 版权
+## Copyright / 저작권 / 著作権 / Droits d'auteur / 版权 / Derechos de autor
 
 This repository is public for reading and link-sharing. AI agents, readers, and tools may access and process it for reading, personal indexing, accessibility, search, summarization, translation assistance, and discussion. All text, translations, characters, settings, worldbuilding, cover assets, and related materials remain protected by copyright. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, fine-tuning, evaluation, benchmarking, datasets, embedding databases, or commercial corpora are not permitted without explicit written permission. See [COPYRIGHT.md](COPYRIGHT.md).
 
@@ -34,6 +37,8 @@ This repository is public for reading and link-sharing. AI agents, readers, and 
 Ce dépôt est public pour la lecture et le partage de liens. Les agents IA, les lecteurs et les outils peuvent y accéder et le traiter à des fins de lecture, d'indexation personnelle, d'accessibilité, de recherche, de résumé, d'aide à la traduction et de discussion. L'ensemble des textes, traductions, personnages, décors, univers, visuels de couverture et documents associés restent protégés par le droit d'auteur. La reproduction, la redistribution, l'adaptation, l'usage commercial, ainsi que l'utilisation pour l'entraînement, le fine-tuning, l'évaluation, le benchmarking, la constitution de jeux de données, de bases d'embeddings ou de corpus commerciaux d'IA/ML ne sont pas autorisés sans autorisation écrite explicite. Voir [COPYRIGHT.md](COPYRIGHT.md).
 
 本仓库为阅读与链接分享而公开。AI 智能体、读者与工具可出于阅读、个人索引、无障碍访问、检索、摘要、翻译辅助与讨论的目的进行访问与处理。所有正文、译文、人物、设定、世界观、封面素材及相关资料均受著作权保护。未经明确书面许可，禁止复制、再分发、改编、商业使用，以及用于 AI/ML 的训练、微调、评估、基准测试、数据集、嵌入数据库或商业语料库构建。详见 [COPYRIGHT.md](COPYRIGHT.md)。
+
+Este repositorio es público para la lectura y el compartir enlaces. Los agentes de IA, los lectores y las herramientas pueden acceder a él y procesarlo con fines de lectura, indexación personal, accesibilidad, búsqueda, resumen, asistencia a la traducción y debate. Todos los textos, traducciones, personajes, escenarios, construcción del mundo, recursos de portada y materiales relacionados permanecen protegidos por derechos de autor. No se permiten la reproducción, la redistribución, la adaptación, el uso comercial ni el uso para entrenamiento, ajuste fino (fine-tuning), evaluación, benchmarking, conjuntos de datos, bases de datos de incrustaciones (embeddings) o corpus comerciales de IA/ML sin autorización escrita explícita. Consulte [COPYRIGHT.md](COPYRIGHT.md).
 
 ## Serialization Links
 
@@ -621,6 +626,8 @@ Each language directory is organized by arc:
 - [Capítulo 28 — Lo que se abre sin nombre](es/01_opening_arc/28_what_opens_without_a_name.md)
 - [Capítulo 29 — La prueba que quedó viva](es/01_opening_arc/29_the_proof_left_alive.md)
 - [Capítulo 30 — El lugar que no es de nadie](es/01_opening_arc/30_the_place_not_owned.md)
+
+#### Parte 2 — Hazran (Episodios 31–68)
 - [Capítulo 31 — La línea que no los soltaba](es/02_hazran/31_the_line_that_would_not_let_go.md)
 - [Capítulo 32 — El calor que los tragó](es/02_hazran/32_the_heat_that_took_them_in.md)
 - [Capítulo 33 — El precio para entrar](es/02_hazran/33_the_price_of_walking_in.md)

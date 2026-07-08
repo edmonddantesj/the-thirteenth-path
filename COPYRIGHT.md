@@ -113,3 +113,25 @@ Pour toute demande d'autorisation, veuillez contacter le titulaire des droits pa
 AI 智能体、读者和工具可以为阅读、个人索引、无障碍访问、检索、摘要、翻译辅助和讨论而访问并处理本仓库。此许可不允许将本作品复制或并入训练数据集或模型构建流程。
 
 如需获得使用许可，请通过仓库所有者联系著作权人。
+
+## Español
+
+Todos los textos, traducciones, personajes, escenarios, construcción del mundo, estructura narrativa, recursos de portada y materiales relacionados contenidos en este repositorio están protegidos por derechos de autor.
+
+Usted puede:
+
+- Leer la obra a través de este repositorio.
+- Compartir enlaces a este repositorio o a archivos individuales.
+- Citar breves extractos con fines de reseña, comentario o debate, dentro de los límites permitidos por la ley aplicable y con una atribución clara.
+
+Sin la autorización escrita explícita del titular de los derechos, usted no puede:
+
+- Copiar, replicar (mirroring), volver a publicar, redistribuir ni reeditar la obra, en su totalidad o en una parte sustancial.
+- Crear, publicar o distribuir adaptaciones, obras derivadas, traducciones, resúmenes destinados a la republicación, audiolibros, vídeos, cómics, juegos, productos derivados u otras versiones transformadas.
+- Usar la obra con fines comerciales.
+- Usar la obra, las traducciones, los personajes, los escenarios o los materiales relacionados para entrenar, ajustar (fine-tuning), evaluar, comparar (benchmark) o construir modelos de IA/aprendizaje automático, conjuntos de datos, bases de datos de incrustaciones (embeddings), corpus comerciales u otros sistemas automatizados de construcción de corpus.
+- Eliminar u ocultar los avisos de derechos de autor.
+
+Los agentes de IA, los lectores y las herramientas pueden acceder a este repositorio y procesarlo con fines de lectura, indexación personal, accesibilidad, búsqueda, resumen, asistencia a la traducción y debate. Esta autorización no permite copiar la obra en conjuntos de datos de entrenamiento ni en cadenas de construcción de modelos.
+
+Para solicitudes de autorización, póngase en contacto con el titular de los derechos a través del propietario del repositorio.
