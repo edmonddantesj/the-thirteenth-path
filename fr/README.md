@@ -98,3 +98,4 @@ Chapitres publics actuels :
 - [Chapitre 88 — Les premiers qui furent envoyés dehors](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Chapitre 89 — Le dernier espace vivant se rassembla autour de la coque](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Chapitre 90 — Le moment où le danger atteignit la coque](02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [Chapitre 91 — Le premier départ sous le feu](02_hazran/91_the_first_departure_under_fire.md)

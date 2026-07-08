@@ -482,6 +482,7 @@ Each language directory is organized by arc:
 - [第八十八章 第一批被送出去的人](zh/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [第八十九章 最后活着的空间，聚到了船体旁](zh/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [第九十章 危险触到船体的瞬间](zh/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [第九十一章 炮火中开始的第一次撤离](zh/02_hazran/91_the_first_departure_under_fire.md)
 
 ### French
 
@@ -579,6 +580,7 @@ Each language directory is organized by arc:
 - [Chapitre 88 — Les premiers qui furent envoyés dehors](fr/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Chapitre 89 — Le dernier espace vivant se rassembla autour de la coque](fr/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Chapitre 90 — Le moment où le danger atteignit la coque](fr/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [Chapitre 91 — Le premier départ sous le feu](fr/02_hazran/91_the_first_departure_under_fire.md)
 
 ### Spanish
 
@@ -618,7 +620,8 @@ Each language directory is organized by arc:
 - [Capítulo 32 — El calor que los tragó](es/02_hazran/32_the_heat_that_took_them_in.md)
 - [Capítulo 33 — El precio para entrar](es/02_hazran/33_the_price_of_walking_in.md)
 - [Capítulo 34 — El nombre que la gente tragaba](es/02_hazran/34_the_name_people_swallowed.md)
+- [Capítulo 35 — La mano que los contaba](es/02_hazran/35_the_hand_that_counted_them.md)
 
 ## Status
 
-Public archive currently published through Episode 93 in Korean, Episode 93 in English, Episode 93 in Japanese, Episode 90 in French, Episode 90 in Chinese (Simplified), and Episode 34 in Spanish.
+Public archive currently published through Episode 93 in Korean, Episode 93 in English, Episode 93 in Japanese, Episode 91 in French, Episode 91 in Chinese (Simplified), and Episode 35 in Spanish.
