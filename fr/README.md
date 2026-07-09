@@ -100,3 +100,4 @@ Chapitres publics actuels :
 - [Chapitre 90 — Le moment où le danger atteignit la coque](02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Chapitre 91 — Le premier départ sous le feu](02_hazran/91_the_first_departure_under_fire.md)
 - [Chapitre 92 — Le poids laissé à ceux qui restèrent](02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [Chapitre 93 — Le plus lourd arriva ensuite](02_hazran/93_the_heavier_one_that_arrived_next.md)

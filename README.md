@@ -492,6 +492,7 @@ Each language directory is organized by arc:
 - [第九十章 危险触到船体的瞬间](zh/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [第九十一章 炮火中开始的第一次撤离](zh/02_hazran/91_the_first_departure_under_fire.md)
 - [第九十二章 压在留下者肩上的重量](zh/02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [第九十三章 接下来抵达的更沉重之物](zh/02_hazran/93_the_heavier_one_that_arrived_next.md)
 
 ### French
 
@@ -591,6 +592,7 @@ Each language directory is organized by arc:
 - [Chapitre 90 — Le moment où le danger atteignit la coque](fr/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Chapitre 91 — Le premier départ sous le feu](fr/02_hazran/91_the_first_departure_under_fire.md)
 - [Chapitre 92 — Le poids laissé à ceux qui restèrent](fr/02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [Chapitre 93 — Le plus lourd arriva ensuite](fr/02_hazran/93_the_heavier_one_that_arrived_next.md)
 
 ### Spanish
 
@@ -634,7 +636,8 @@ Each language directory is organized by arc:
 - [Capítulo 34 — El nombre que la gente tragaba](es/02_hazran/34_the_name_people_swallowed.md)
 - [Capítulo 35 — La mano que los contaba](es/02_hazran/35_the_hand_that_counted_them.md)
 - [Capítulo 36 — El precio tras la captura](es/02_hazran/36_the_price_after_the_grab.md)
+- [Capítulo 37 — La mano que cortaba el ruido](es/02_hazran/37_the_hand_that_cut_the_noise.md)
 
 ## Status
 
-Public archive currently published through Episode 94 in Korean, Episode 94 in English, Episode 94 in Japanese, Episode 92 in French, Episode 92 in Chinese (Simplified), and Episode 36 in Spanish.
+Public archive currently published through Episode 94 in Korean, Episode 94 in English, Episode 94 in Japanese, Episode 93 in French, Episode 93 in Chinese (Simplified), and Episode 37 in Spanish.
