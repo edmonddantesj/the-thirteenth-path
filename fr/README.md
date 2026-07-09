@@ -101,3 +101,4 @@ Chapitres publics actuels :
 - [Chapitre 91 — Le premier départ sous le feu](02_hazran/91_the_first_departure_under_fire.md)
 - [Chapitre 92 — Le poids laissé à ceux qui restèrent](02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [Chapitre 93 — Le plus lourd arriva ensuite](02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [Chapitre 94 — La ligne plia avant de rompre](02_hazran/94_the_line_bent_before_it_broke.md)

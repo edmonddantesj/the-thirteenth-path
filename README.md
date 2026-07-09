@@ -191,6 +191,7 @@ Each language directory is organized by arc:
 - [92. 남은 사람들 어깨 위에 남겨진 무게](ko/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [93. 다음으로 도착한 더 무거운 것](ko/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [94. 부러지기 전에 먼저 휘는 선](ko/02_hazran/94_the_line_bent_before_it_broke.md)
+- [95. 선은 버텼지만 피는 남았다](ko/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ### English
 
@@ -292,6 +293,7 @@ Each language directory is organized by arc:
 - [92. The Weight Left on Those Who Stayed](en/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [93. The Heavier One That Arrived Next](en/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [94. The Line Bent Before It Broke](en/02_hazran/94_the_line_bent_before_it_broke.md)
+- [95. The Line Held, but the Blood Remained](en/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ### Japanese
 
@@ -393,6 +395,7 @@ Each language directory is organized by arc:
 - [第九十二話　残った者の肩に残された重さ](ja/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [第九十三話　次に届いたもっと重いもの](ja/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [第九十四話　折れる前にまず撓む線](ja/02_hazran/94_the_line_bent_before_it_broke.md)
+- [第九十五話　線は堪えたが血は残った](ja/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ### Chinese
 
@@ -493,6 +496,7 @@ Each language directory is organized by arc:
 - [第九十一章 炮火中开始的第一次撤离](zh/02_hazran/91_the_first_departure_under_fire.md)
 - [第九十二章 压在留下者肩上的重量](zh/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [第九十三章 接下来抵达的更沉重之物](zh/02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [第九十四章 在折断之前先弯曲的线](zh/02_hazran/94_the_line_bent_before_it_broke.md)
 
 ### French
 
@@ -593,6 +597,7 @@ Each language directory is organized by arc:
 - [Chapitre 91 — Le premier départ sous le feu](fr/02_hazran/91_the_first_departure_under_fire.md)
 - [Chapitre 92 — Le poids laissé à ceux qui restèrent](fr/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [Chapitre 93 — Le plus lourd arriva ensuite](fr/02_hazran/93_the_heavier_one_that_arrived_next.md)
+- [Chapitre 94 — La ligne plia avant de rompre](fr/02_hazran/94_the_line_bent_before_it_broke.md)
 
 ### Spanish
 
@@ -637,7 +642,8 @@ Each language directory is organized by arc:
 - [Capítulo 35 — La mano que los contaba](es/02_hazran/35_the_hand_that_counted_them.md)
 - [Capítulo 36 — El precio tras la captura](es/02_hazran/36_the_price_after_the_grab.md)
 - [Capítulo 37 — La mano que cortaba el ruido](es/02_hazran/37_the_hand_that_cut_the_noise.md)
+- [Capítulo 38 — El lugar donde se pesaban los valores](es/02_hazran/38_the_place_where_values_were_weighed.md)
 
 ## Status
 
-Public archive currently published through Episode 94 in Korean, Episode 94 in English, Episode 94 in Japanese, Episode 93 in French, Episode 93 in Chinese (Simplified), and Episode 37 in Spanish.
+Public archive currently published through Episode 95 in Korean, Episode 95 in English, Episode 95 in Japanese, Episode 94 in French, Episode 94 in Chinese (Simplified), and Episode 38 in Spanish.

@@ -102,3 +102,4 @@
 - [第九十二話　残った者の肩に残された重さ](02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [第九十三話　次に届いたもっと重いもの](02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [第九十四話　折れる前にまず撓む線](02_hazran/94_the_line_bent_before_it_broke.md)
+- [第九十五話　線は堪えたが血は残った](02_hazran/95_the_line_held_but_the_blood_remained.md)
