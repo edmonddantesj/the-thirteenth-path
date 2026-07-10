@@ -497,6 +497,7 @@ Each language directory is organized by arc:
 - [第九十二章 压在留下者肩上的重量](zh/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [第九十三章 接下来抵达的更沉重之物](zh/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [第九十四章 在折断之前先弯曲的线](zh/02_hazran/94_the_line_bent_before_it_broke.md)
+- [第九十五章 防线撑住了，但血留了下来](zh/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ### French
 
@@ -598,6 +599,7 @@ Each language directory is organized by arc:
 - [Chapitre 92 — Le poids laissé à ceux qui restèrent](fr/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [Chapitre 93 — Le plus lourd arriva ensuite](fr/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [Chapitre 94 — La ligne plia avant de rompre](fr/02_hazran/94_the_line_bent_before_it_broke.md)
+- [Chapitre 95 — La ligne tint, mais le sang resta](fr/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ### Spanish
 
@@ -643,7 +645,8 @@ Each language directory is organized by arc:
 - [Capítulo 36 — El precio tras la captura](es/02_hazran/36_the_price_after_the_grab.md)
 - [Capítulo 37 — La mano que cortaba el ruido](es/02_hazran/37_the_hand_that_cut_the_noise.md)
 - [Capítulo 38 — El lugar donde se pesaban los valores](es/02_hazran/38_the_place_where_values_were_weighed.md)
+- [Capítulo 39 — El aliento que ella ocultaba](es/02_hazran/39_the_breath_she_did_not_show.md)
 
 ## Status
 
-Public archive currently published through Episode 95 in Korean, Episode 95 in English, Episode 95 in Japanese, Episode 94 in French, Episode 94 in Chinese (Simplified), and Episode 38 in Spanish.
+Public archive currently published through Episode 95 in Korean, Episode 95 in English, Episode 95 in Japanese, Episode 95 in French, Episode 95 in Chinese (Simplified), and Episode 39 in Spanish.

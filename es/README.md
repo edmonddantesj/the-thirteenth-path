@@ -42,3 +42,4 @@ Capítulos públicos actuales:
 - [Capítulo 36 — El precio tras la captura](02_hazran/36_the_price_after_the_grab.md)
 - [Capítulo 37 — La mano que cortaba el ruido](02_hazran/37_the_hand_that_cut_the_noise.md)
 - [Capítulo 38 — El lugar donde se pesaban los valores](02_hazran/38_the_place_where_values_were_weighed.md)
+- [Capítulo 39 — El aliento que ella ocultaba](02_hazran/39_the_breath_she_did_not_show.md)
