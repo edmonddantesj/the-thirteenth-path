@@ -43,3 +43,4 @@ Capítulos públicos actuales:
 - [Capítulo 37 — La mano que cortaba el ruido](02_hazran/37_the_hand_that_cut_the_noise.md)
 - [Capítulo 38 — El lugar donde se pesaban los valores](02_hazran/38_the_place_where_values_were_weighed.md)
 - [Capítulo 39 — El aliento que ella ocultaba](02_hazran/39_the_breath_she_did_not_show.md)
+- [Capítulo 40 — La niña que no apartó la mirada](02_hazran/40_the_one_who_did_not_look_away.md)

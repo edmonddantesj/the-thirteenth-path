@@ -103,3 +103,4 @@ Chapitres publics actuels :
 - [Chapitre 93 — Le plus lourd arriva ensuite](02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [Chapitre 94 — La ligne plia avant de rompre](02_hazran/94_the_line_bent_before_it_broke.md)
 - [Chapitre 95 — La ligne tint, mais le sang resta](02_hazran/95_the_line_held_but_the_blood_remained.md)
+- [Chapitre 96 — Le temps acheté par le sang s'amincit](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
