@@ -104,3 +104,4 @@ Current public English release:
 - [Episode 94. The Line Bent Before It Broke](02_hazran/94_the_line_bent_before_it_broke.md)
 - [Episode 95. The Line Held, but the Blood Remained](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [Episode 96. The Time Bought with Blood Grew Thinner](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [Episode 97. The Hands Were Counted Differently Now](02_hazran/97_the_hands_were_counted_differently_now.md)

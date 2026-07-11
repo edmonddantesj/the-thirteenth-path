@@ -193,6 +193,7 @@ Each language directory is organized by arc:
 - [94. 부러지기 전에 먼저 휘는 선](ko/02_hazran/94_the_line_bent_before_it_broke.md)
 - [95. 선은 버텼지만 피는 남았다](ko/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [96. 피로 산 시간은 점점 얇아졌다](ko/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [97. 손은 이제 다른 방식으로 세어졌다](ko/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ### English
 
@@ -296,6 +297,7 @@ Each language directory is organized by arc:
 - [94. The Line Bent Before It Broke](en/02_hazran/94_the_line_bent_before_it_broke.md)
 - [95. The Line Held, but the Blood Remained](en/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [96. The Time Bought with Blood Grew Thinner](en/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [97. The Hands Were Counted Differently Now](en/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ### Japanese
 
@@ -399,6 +401,7 @@ Each language directory is organized by arc:
 - [第九十四話　折れる前にまず撓む線](ja/02_hazran/94_the_line_bent_before_it_broke.md)
 - [第九十五話　線は堪えたが血は残った](ja/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [第九十六話　血で買った時間はどんどん薄くなった](ja/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [第九十七話　手はもう別の数え方で数えられた](ja/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ### Chinese
 
@@ -502,6 +505,7 @@ Each language directory is organized by arc:
 - [第九十四章 在折断之前先弯曲的线](zh/02_hazran/94_the_line_bent_before_it_broke.md)
 - [第九十五章 防线撑住了，但血留了下来](zh/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [第九十六章 用血换来的时间越来越薄](zh/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [第九十七章 如今，手以另一种方式被清点](zh/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ### French
 
@@ -605,6 +609,7 @@ Each language directory is organized by arc:
 - [Chapitre 94 — La ligne plia avant de rompre](fr/02_hazran/94_the_line_bent_before_it_broke.md)
 - [Chapitre 95 — La ligne tint, mais le sang resta](fr/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [Chapitre 96 — Le temps acheté par le sang s'amincit](fr/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [Chapitre 97 — Les mains se comptaient autrement désormais](fr/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ### Spanish
 
@@ -653,7 +658,8 @@ Each language directory is organized by arc:
 - [Capítulo 39 — El aliento que ella ocultaba](es/02_hazran/39_the_breath_she_did_not_show.md)
 - [Capítulo 40 — La niña que no apartó la mirada](es/02_hazran/40_the_one_who_did_not_look_away.md)
 - [Capítulo 41 — Lo que se hacía pasar por una puerta](es/02_hazran/41_the_thing_pretending_to_be_a_door.md)
+- [Capítulo 42 — La manera en que los valores se separaban](es/02_hazran/42_the_way_the_values_split.md)
 
 ## Status
 
-Public archive currently published through Episode 96 in Korean, Episode 96 in English, Episode 96 in Japanese, Episode 96 in French, Episode 96 in Chinese (Simplified), and Episode 41 in Spanish.
+Public archive currently published through Episode 97 in Korean, Episode 97 in English, Episode 97 in Japanese, Episode 97 in French, Episode 97 in Chinese (Simplified), and Episode 42 in Spanish.

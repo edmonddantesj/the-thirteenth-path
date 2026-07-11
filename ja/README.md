@@ -104,3 +104,4 @@
 - [第九十四話　折れる前にまず撓む線](02_hazran/94_the_line_bent_before_it_broke.md)
 - [第九十五話　線は堪えたが血は残った](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [第九十六話　血で買った時間はどんどん薄くなった](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [第九十七話　手はもう別の数え方で数えられた](02_hazran/97_the_hands_were_counted_differently_now.md)

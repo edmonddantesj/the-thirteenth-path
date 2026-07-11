@@ -104,3 +104,4 @@
 - [第九十四章 在折断之前先弯曲的线](02_hazran/94_the_line_bent_before_it_broke.md)
 - [第九十五章 防线撑住了，但血留了下来](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [第九十六章 用血换来的时间越来越薄](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [第九十七章 如今，手以另一种方式被清点](02_hazran/97_the_hands_were_counted_differently_now.md)

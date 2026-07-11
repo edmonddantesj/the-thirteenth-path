@@ -45,3 +45,4 @@ Capítulos públicos actuales:
 - [Capítulo 39 — El aliento que ella ocultaba](02_hazran/39_the_breath_she_did_not_show.md)
 - [Capítulo 40 — La niña que no apartó la mirada](02_hazran/40_the_one_who_did_not_look_away.md)
 - [Capítulo 41 — Lo que se hacía pasar por una puerta](02_hazran/41_the_thing_pretending_to_be_a_door.md)
+- [Capítulo 42 — La manera en que los valores se separaban](02_hazran/42_the_way_the_values_split.md)

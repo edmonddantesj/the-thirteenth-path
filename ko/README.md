@@ -105,3 +105,4 @@
 - [94화. 부러지기 전에 먼저 휘는 선](02_hazran/94_the_line_bent_before_it_broke.md)
 - [95화. 선은 버텼지만 피는 남았다](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [96화. 피로 산 시간은 점점 얇아졌다](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [97화. 손은 이제 다른 방식으로 세어졌다](02_hazran/97_the_hands_were_counted_differently_now.md)
