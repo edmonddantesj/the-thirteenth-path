@@ -652,7 +652,8 @@ Each language directory is organized by arc:
 - [Capítulo 38 — El lugar donde se pesaban los valores](es/02_hazran/38_the_place_where_values_were_weighed.md)
 - [Capítulo 39 — El aliento que ella ocultaba](es/02_hazran/39_the_breath_she_did_not_show.md)
 - [Capítulo 40 — La niña que no apartó la mirada](es/02_hazran/40_the_one_who_did_not_look_away.md)
+- [Capítulo 41 — Lo que se hacía pasar por una puerta](es/02_hazran/41_the_thing_pretending_to_be_a_door.md)
 
 ## Status
 
-Public archive currently published through Episode 96 in Korean, Episode 96 in English, Episode 96 in Japanese, Episode 96 in French, Episode 96 in Chinese (Simplified), and Episode 40 in Spanish.
+Public archive currently published through Episode 96 in Korean, Episode 96 in English, Episode 96 in Japanese, Episode 96 in French, Episode 96 in Chinese (Simplified), and Episode 41 in Spanish.
