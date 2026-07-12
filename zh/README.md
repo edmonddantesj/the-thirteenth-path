@@ -105,3 +105,4 @@
 - [第九十五章 防线撑住了，但血留了下来](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [第九十六章 用血换来的时间越来越薄](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [第九十七章 如今，手以另一种方式被清点](02_hazran/97_the_hands_were_counted_differently_now.md)
+- [第九十八章 被需要的速度，先开始压垮了人](02_hazran/98_the_speed_they_needed_began_to_break_them.md)

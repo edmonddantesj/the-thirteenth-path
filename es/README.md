@@ -47,3 +47,4 @@ Capítulos públicos actuales:
 - [Capítulo 41 — Lo que se hacía pasar por una puerta](02_hazran/41_the_thing_pretending_to_be_a_door.md)
 - [Capítulo 42 — La manera en que los valores se separaban](02_hazran/42_the_way_the_values_split.md)
 - [Capítulo 43 — La escena donde la mentira no se sostenía](02_hazran/43_the_stage_where_they_could_not_lie.md)
+- [Capítulo 44 — El hombre que no levantaba la voz](02_hazran/44_the_man_who_did_not_raise_his_voice.md)
