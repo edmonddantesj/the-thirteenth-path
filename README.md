@@ -659,7 +659,8 @@ Each language directory is organized by arc:
 - [Capítulo 40 — La niña que no apartó la mirada](es/02_hazran/40_the_one_who_did_not_look_away.md)
 - [Capítulo 41 — Lo que se hacía pasar por una puerta](es/02_hazran/41_the_thing_pretending_to_be_a_door.md)
 - [Capítulo 42 — La manera en que los valores se separaban](es/02_hazran/42_the_way_the_values_split.md)
+- [Capítulo 43 — La escena donde la mentira no se sostenía](es/02_hazran/43_the_stage_where_they_could_not_lie.md)
 
 ## Status
 
-Public archive currently published through Episode 97 in Korean, Episode 97 in English, Episode 97 in Japanese, Episode 97 in French, Episode 97 in Chinese (Simplified), and Episode 42 in Spanish.
+Public archive currently published through Episode 97 in Korean, Episode 97 in English, Episode 97 in Japanese, Episode 97 in French, Episode 97 in Chinese (Simplified), and Episode 43 in Spanish.
