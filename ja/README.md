@@ -106,3 +106,4 @@
 - [第九十六話　血で買った時間はどんどん薄くなった](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [第九十七話　手はもう別の数え方で数えられた](02_hazran/97_the_hands_were_counted_differently_now.md)
 - [第九十八話　必要になった速度が人を先に壊し始めた](02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [第九十九話　何かがついに折れる直前の瞬間](02_hazran/99_the_moment_before_something_finally_breaks.md)

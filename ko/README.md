@@ -107,3 +107,4 @@
 - [96화. 피로 산 시간은 점점 얇아졌다](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [97화. 손은 이제 다른 방식으로 세어졌다](02_hazran/97_the_hands_were_counted_differently_now.md)
 - [98화. 필요해진 속도가 사람들을 먼저 부수기 시작했다](02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [99화. 마침내 무언가가 부러지기 직전의 순간](02_hazran/99_the_moment_before_something_finally_breaks.md)

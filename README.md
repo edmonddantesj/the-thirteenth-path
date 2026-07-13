@@ -195,6 +195,7 @@ Each language directory is organized by arc:
 - [96. 피로 산 시간은 점점 얇아졌다](ko/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [97. 손은 이제 다른 방식으로 세어졌다](ko/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [98. 필요해진 속도가 사람들을 먼저 부수기 시작했다](ko/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [99. 마침내 무언가가 부러지기 직전의 순간](ko/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ### English
 
@@ -300,6 +301,7 @@ Each language directory is organized by arc:
 - [96. The Time Bought with Blood Grew Thinner](en/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [97. The Hands Were Counted Differently Now](en/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [98. The Speed They Needed Began to Break Them](en/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [99. The Moment Before Something Finally Breaks](en/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ### Japanese
 
@@ -405,6 +407,7 @@ Each language directory is organized by arc:
 - [第九十六話　血で買った時間はどんどん薄くなった](ja/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [第九十七話　手はもう別の数え方で数えられた](ja/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [第九十八話　必要になった速度が人を先に壊し始めた](ja/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [第九十九話　何かがついに折れる直前の瞬間](ja/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ### Chinese
 
@@ -510,6 +513,7 @@ Each language directory is organized by arc:
 - [第九十六章 用血换来的时间越来越薄](zh/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [第九十七章 如今，手以另一种方式被清点](zh/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [第九十八章 被需要的速度，先开始压垮了人](zh/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [第九十九章 某物终于折断前的一瞬](zh/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ### French
 
@@ -615,6 +619,7 @@ Each language directory is organized by arc:
 - [Chapitre 96 — Le temps acheté par le sang s'amincit](fr/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [Chapitre 97 — Les mains se comptaient autrement désormais](fr/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [Chapitre 98 — La vitesse dont ils avaient besoin commença à les briser](fr/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [Chapitre 99 — L'instant avant que quelque chose ne rompe enfin](fr/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ### Spanish
 
@@ -667,7 +672,8 @@ Each language directory is organized by arc:
 - [Capítulo 43 — La escena donde la mentira no se sostenía](es/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [Capítulo 44 — El hombre que no levantaba la voz](es/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [Capítulo 45 — La regla que exigía una prueba](es/02_hazran/45_the_rule_that_asked_for_proof.md)
+- [Capítulo 46 — El lugar donde se pesaban las manos](es/02_hazran/46_the_place_where_hands_were_weighed.md)
 
 ## Status
 
-Public archive currently published through Episode 98 in Korean, Episode 98 in English, Episode 98 in Japanese, Episode 98 in French, Episode 98 in Chinese (Simplified), and Episode 45 in Spanish.
+Public archive currently published through Episode 99 in Korean, Episode 99 in English, Episode 99 in Japanese, Episode 99 in French, Episode 99 in Chinese (Simplified), and Episode 46 in Spanish.

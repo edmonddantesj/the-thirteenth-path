@@ -106,3 +106,4 @@ Chapitres publics actuels :
 - [Chapitre 96 — Le temps acheté par le sang s'amincit](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [Chapitre 97 — Les mains se comptaient autrement désormais](02_hazran/97_the_hands_were_counted_differently_now.md)
 - [Chapitre 98 — La vitesse dont ils avaient besoin commença à les briser](02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [Chapitre 99 — L'instant avant que quelque chose ne rompe enfin](02_hazran/99_the_moment_before_something_finally_breaks.md)
