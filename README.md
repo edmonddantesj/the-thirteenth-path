@@ -666,7 +666,8 @@ Each language directory is organized by arc:
 - [Capítulo 42 — La manera en que los valores se separaban](es/02_hazran/42_the_way_the_values_split.md)
 - [Capítulo 43 — La escena donde la mentira no se sostenía](es/02_hazran/43_the_stage_where_they_could_not_lie.md)
 - [Capítulo 44 — El hombre que no levantaba la voz](es/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
+- [Capítulo 45 — La regla que exigía una prueba](es/02_hazran/45_the_rule_that_asked_for_proof.md)
 
 ## Status
 
-Public archive currently published through Episode 98 in Korean, Episode 98 in English, Episode 98 in Japanese, Episode 98 in French, Episode 98 in Chinese (Simplified), and Episode 44 in Spanish.
+Public archive currently published through Episode 98 in Korean, Episode 98 in English, Episode 98 in Japanese, Episode 98 in French, Episode 98 in Chinese (Simplified), and Episode 45 in Spanish.
