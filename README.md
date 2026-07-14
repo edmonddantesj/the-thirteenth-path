@@ -673,7 +673,8 @@ Each language directory is organized by arc:
 - [Capítulo 44 — El hombre que no levantaba la voz](es/02_hazran/44_the_man_who_did_not_raise_his_voice.md)
 - [Capítulo 45 — La regla que exigía una prueba](es/02_hazran/45_the_rule_that_asked_for_proof.md)
 - [Capítulo 46 — El lugar donde se pesaban las manos](es/02_hazran/46_the_place_where_hands_were_weighed.md)
+- [Capítulo 47 — El nombre llamado primero](es/02_hazran/47_the_name_called_first.md)
 
 ## Status
 
-Public archive currently published through Episode 99 in Korean, Episode 99 in English, Episode 99 in Japanese, Episode 99 in French, Episode 99 in Chinese (Simplified), and Episode 46 in Spanish.
+Public archive currently published through Episode 99 in Korean, Episode 99 in English, Episode 99 in Japanese, Episode 99 in French, Episode 99 in Chinese (Simplified), and Episode 47 in Spanish.
