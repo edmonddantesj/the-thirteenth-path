@@ -107,3 +107,4 @@ Current public English release:
 - [Episode 97. The Hands Were Counted Differently Now](02_hazran/97_the_hands_were_counted_differently_now.md)
 - [Episode 98. The Speed They Needed Began to Break Them](02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [Episode 99. The Moment Before Something Finally Breaks](02_hazran/99_the_moment_before_something_finally_breaks.md)
+- [Episode 100. What Finally Broke](02_hazran/100_what_finally_broke.md)

@@ -107,3 +107,4 @@
 - [第九十七章 如今，手以另一种方式被清点](02_hazran/97_the_hands_were_counted_differently_now.md)
 - [第九十八章 被需要的速度，先开始压垮了人](02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [第九十九章 某物终于折断前的一瞬](02_hazran/99_the_moment_before_something_finally_breaks.md)
+- [第一百章 终于折断的东西](02_hazran/100_what_finally_broke.md)

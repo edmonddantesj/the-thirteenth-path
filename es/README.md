@@ -51,3 +51,4 @@ Capítulos públicos actuales:
 - [Capítulo 45 — La regla que exigía una prueba](02_hazran/45_the_rule_that_asked_for_proof.md)
 - [Capítulo 46 — El lugar donde se pesaban las manos](02_hazran/46_the_place_where_hands_were_weighed.md)
 - [Capítulo 47 — El nombre llamado primero](02_hazran/47_the_name_called_first.md)
+- [Capítulo 48 — La carrera donde se gritaban los valores](02_hazran/48_the_run_where_values_were_shouted.md)
