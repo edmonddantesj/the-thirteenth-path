@@ -680,7 +680,8 @@ Each language directory is organized by arc:
 - [Capítulo 46 — El lugar donde se pesaban las manos](es/02_hazran/46_the_place_where_hands_were_weighed.md)
 - [Capítulo 47 — El nombre llamado primero](es/02_hazran/47_the_name_called_first.md)
 - [Capítulo 48 — La carrera donde se gritaban los valores](es/02_hazran/48_the_run_where_values_were_shouted.md)
+- [Capítulo 49 — La pista roja donde tantos se quebraron](es/02_hazran/49_the_red_glide_where_the_many_broke.md)
 
 ## Status
 
-Public archive currently published through Episode 100 in Korean, Episode 100 in English, Episode 100 in Japanese, Episode 100 in French, Episode 100 in Chinese (Simplified), and Episode 48 in Spanish.
+Public archive currently published through Episode 100 in Korean, Episode 100 in English, Episode 100 in Japanese, Episode 100 in French, Episode 100 in Chinese (Simplified), and Episode 49 in Spanish.
