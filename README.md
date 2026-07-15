@@ -197,6 +197,7 @@ Each language directory is organized by arc:
 - [98. 필요해진 속도가 사람들을 먼저 부수기 시작했다](ko/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [99. 마침내 무언가가 부러지기 직전의 순간](ko/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [100. 마침내 부러진 것](ko/02_hazran/100_what_finally_broke.md)
+- [101. 마지막 착각이 부러진 뒤에 남은 것](ko/02_hazran/101_after_the_last_illusion_broke.md)
 
 ### English
 
@@ -304,6 +305,7 @@ Each language directory is organized by arc:
 - [98. The Speed They Needed Began to Break Them](en/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [99. The Moment Before Something Finally Breaks](en/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [100. What Finally Broke](en/02_hazran/100_what_finally_broke.md)
+- [101. After the Last Illusion Broke](en/02_hazran/101_after_the_last_illusion_broke.md)
 
 ### Japanese
 
@@ -411,6 +413,7 @@ Each language directory is organized by arc:
 - [第九十八話　必要になった速度が人を先に壊し始めた](ja/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [第九十九話　何かがついに折れる直前の瞬間](ja/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [第百話　ついに折れたもの](ja/02_hazran/100_what_finally_broke.md)
+- [第百一話　錯覚が折れた後に残ったもの](ja/02_hazran/101_after_the_last_illusion_broke.md)
 
 ### Chinese
 
@@ -518,6 +521,7 @@ Each language directory is organized by arc:
 - [第九十八章 被需要的速度，先开始压垮了人](zh/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [第九十九章 某物终于折断前的一瞬](zh/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [第一百章 终于折断的东西](zh/02_hazran/100_what_finally_broke.md)
+- [第一百零一章 最后的错觉折断之后留下的东西](zh/02_hazran/101_after_the_last_illusion_broke.md)
 
 ### French
 
@@ -625,6 +629,7 @@ Each language directory is organized by arc:
 - [Chapitre 98 — La vitesse dont ils avaient besoin commença à les briser](fr/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [Chapitre 99 — L'instant avant que quelque chose ne rompe enfin](fr/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Chapitre 100 — Ce qui rompit enfin](fr/02_hazran/100_what_finally_broke.md)
+- [Chapitre 101 — Après que la dernière illusion se fut brisée](fr/02_hazran/101_after_the_last_illusion_broke.md)
 
 ### Spanish
 
@@ -681,7 +686,8 @@ Each language directory is organized by arc:
 - [Capítulo 47 — El nombre llamado primero](es/02_hazran/47_the_name_called_first.md)
 - [Capítulo 48 — La carrera donde se gritaban los valores](es/02_hazran/48_the_run_where_values_were_shouted.md)
 - [Capítulo 49 — La pista roja donde tantos se quebraron](es/02_hazran/49_the_red_glide_where_the_many_broke.md)
+- [Capítulo 50 — Los caminos que parecían abiertos](es/02_hazran/50_the_paths_that_looked_open.md)
 
 ## Status
 
-Public archive currently published through Episode 100 in Korean, Episode 100 in English, Episode 100 in Japanese, Episode 100 in French, Episode 100 in Chinese (Simplified), and Episode 49 in Spanish.
+Public archive currently published through Episode 101 in Korean, Episode 101 in English, Episode 101 in Japanese, Episode 101 in French, Episode 101 in Chinese (Simplified), and Episode 50 in Spanish.
