@@ -687,7 +687,8 @@ Each language directory is organized by arc:
 - [Capítulo 48 — La carrera donde se gritaban los valores](es/02_hazran/48_the_run_where_values_were_shouted.md)
 - [Capítulo 49 — La pista roja donde tantos se quebraron](es/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Capítulo 50 — Los caminos que parecían abiertos](es/02_hazran/50_the_paths_that_looked_open.md)
+- [Capítulo 51 — Las llamas que fingían vivir](es/02_hazran/51_the_flames_that_pretended_to_live.md)
 
 ## Status
 
-Public archive currently published through Episode 101 in Korean, Episode 101 in English, Episode 101 in Japanese, Episode 101 in French, Episode 101 in Chinese (Simplified), and Episode 50 in Spanish.
+Public archive currently published through Episode 101 in Korean, Episode 101 in English, Episode 101 in Japanese, Episode 101 in French, Episode 101 in Chinese (Simplified), and Episode 51 in Spanish.

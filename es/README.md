@@ -54,3 +54,4 @@ Capítulos públicos actuales:
 - [Capítulo 48 — La carrera donde se gritaban los valores](02_hazran/48_the_run_where_values_were_shouted.md)
 - [Capítulo 49 — La pista roja donde tantos se quebraron](02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Capítulo 50 — Los caminos que parecían abiertos](02_hazran/50_the_paths_that_looked_open.md)
+- [Capítulo 51 — Las llamas que fingían vivir](02_hazran/51_the_flames_that_pretended_to_live.md)
