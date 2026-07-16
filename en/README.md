@@ -109,3 +109,4 @@ Current public English release:
 - [Episode 99. The Moment Before Something Finally Breaks](02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Episode 100. What Finally Broke](02_hazran/100_what_finally_broke.md)
 - [Episode 101. After the Last Illusion Broke](02_hazran/101_after_the_last_illusion_broke.md)
+- [Episode 102. The Fewer Hands Became More Expensive](02_hazran/102_the_fewer_hands_became_more_expensive.md)

@@ -198,6 +198,7 @@ Each language directory is organized by arc:
 - [99. 마침내 무언가가 부러지기 직전의 순간](ko/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [100. 마침내 부러진 것](ko/02_hazran/100_what_finally_broke.md)
 - [101. 마지막 착각이 부러진 뒤에 남은 것](ko/02_hazran/101_after_the_last_illusion_broke.md)
+- [102. 줄어드는 손 하나하나가 더 비싸졌다](ko/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ### English
 
@@ -306,6 +307,7 @@ Each language directory is organized by arc:
 - [99. The Moment Before Something Finally Breaks](en/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [100. What Finally Broke](en/02_hazran/100_what_finally_broke.md)
 - [101. After the Last Illusion Broke](en/02_hazran/101_after_the_last_illusion_broke.md)
+- [102. The Fewer Hands Became More Expensive](en/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ### Japanese
 
@@ -414,6 +416,7 @@ Each language directory is organized by arc:
 - [第九十九話　何かがついに折れる直前の瞬間](ja/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [第百話　ついに折れたもの](ja/02_hazran/100_what_finally_broke.md)
 - [第百一話　錯覚が折れた後に残ったもの](ja/02_hazran/101_after_the_last_illusion_broke.md)
+- [第百二話　減る手の一つ一つが高くなった](ja/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ### Chinese
 
@@ -522,6 +525,7 @@ Each language directory is organized by arc:
 - [第九十九章 某物终于折断前的一瞬](zh/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [第一百章 终于折断的东西](zh/02_hazran/100_what_finally_broke.md)
 - [第一百零一章 最后的错觉折断之后留下的东西](zh/02_hazran/101_after_the_last_illusion_broke.md)
+- [第一百零二章 越来越少的每一只手都更昂贵了](zh/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ### French
 
@@ -630,6 +634,7 @@ Each language directory is organized by arc:
 - [Chapitre 99 — L'instant avant que quelque chose ne rompe enfin](fr/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Chapitre 100 — Ce qui rompit enfin](fr/02_hazran/100_what_finally_broke.md)
 - [Chapitre 101 — Après que la dernière illusion se fut brisée](fr/02_hazran/101_after_the_last_illusion_broke.md)
+- [Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses](fr/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ### Spanish
 
@@ -688,7 +693,8 @@ Each language directory is organized by arc:
 - [Capítulo 49 — La pista roja donde tantos se quebraron](es/02_hazran/49_the_red_glide_where_the_many_broke.md)
 - [Capítulo 50 — Los caminos que parecían abiertos](es/02_hazran/50_the_paths_that_looked_open.md)
 - [Capítulo 51 — Las llamas que fingían vivir](es/02_hazran/51_the_flames_that_pretended_to_live.md)
+- [Capítulo 52 — El instante en que la regla se plegó](es/02_hazran/52_the_moment_the_rule_bent.md)
 
 ## Status
 
-Public archive currently published through Episode 101 in Korean, Episode 101 in English, Episode 101 in Japanese, Episode 101 in French, Episode 101 in Chinese (Simplified), and Episode 51 in Spanish.
+Public archive currently published through Episode 102 in Korean, Episode 102 in English, Episode 102 in Japanese, Episode 102 in French, Episode 102 in Chinese (Simplified), and Episode 52 in Spanish.
