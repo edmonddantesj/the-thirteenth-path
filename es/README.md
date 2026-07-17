@@ -57,3 +57,4 @@ Capítulos públicos actuales:
 - [Capítulo 51 — Las llamas que fingían vivir](02_hazran/51_the_flames_that_pretended_to_live.md)
 - [Capítulo 52 — El instante en que la regla se plegó](02_hazran/52_the_moment_the_rule_bent.md)
 - [Capítulo 53 — El terreno que dejó de ser un juego](02_hazran/53_the_field_that_stopped_being_a_game.md)
+- [Capítulo 54 — La ruta que solo veían los que caían](02_hazran/54_the_route_that_only_the_falling_could_see.md)

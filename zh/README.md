@@ -110,3 +110,4 @@
 - [第一百章 终于折断的东西](02_hazran/100_what_finally_broke.md)
 - [第一百零一章 最后的错觉折断之后留下的东西](02_hazran/101_after_the_last_illusion_broke.md)
 - [第一百零二章 越来越少的每一只手都更昂贵了](02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [第一百零三章 每一次微小的重启都要付出更大的代价](02_hazran/103_each_small_restart_cost_more.md)

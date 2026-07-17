@@ -199,6 +199,7 @@ Each language directory is organized by arc:
 - [100. 마침내 부러진 것](ko/02_hazran/100_what_finally_broke.md)
 - [101. 마지막 착각이 부러진 뒤에 남은 것](ko/02_hazran/101_after_the_last_illusion_broke.md)
 - [102. 줄어드는 손 하나하나가 더 비싸졌다](ko/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [103. 작은 재개 하나에도 더 큰 값이 들었다](ko/02_hazran/103_each_small_restart_cost_more.md)
 
 ### English
 
@@ -308,6 +309,7 @@ Each language directory is organized by arc:
 - [100. What Finally Broke](en/02_hazran/100_what_finally_broke.md)
 - [101. After the Last Illusion Broke](en/02_hazran/101_after_the_last_illusion_broke.md)
 - [102. The Fewer Hands Became More Expensive](en/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [103. Each Small Restart Cost More](en/02_hazran/103_each_small_restart_cost_more.md)
 
 ### Japanese
 
@@ -417,6 +419,7 @@ Each language directory is organized by arc:
 - [第百話　ついに折れたもの](ja/02_hazran/100_what_finally_broke.md)
 - [第百一話　錯覚が折れた後に残ったもの](ja/02_hazran/101_after_the_last_illusion_broke.md)
 - [第百二話　減る手の一つ一つが高くなった](ja/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [第百三話　小さな再開がもっと高くついた](ja/02_hazran/103_each_small_restart_cost_more.md)
 
 ### Chinese
 
@@ -526,6 +529,7 @@ Each language directory is organized by arc:
 - [第一百章 终于折断的东西](zh/02_hazran/100_what_finally_broke.md)
 - [第一百零一章 最后的错觉折断之后留下的东西](zh/02_hazran/101_after_the_last_illusion_broke.md)
 - [第一百零二章 越来越少的每一只手都更昂贵了](zh/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [第一百零三章 每一次微小的重启都要付出更大的代价](zh/02_hazran/103_each_small_restart_cost_more.md)
 
 ### French
 
@@ -635,6 +639,7 @@ Each language directory is organized by arc:
 - [Chapitre 100 — Ce qui rompit enfin](fr/02_hazran/100_what_finally_broke.md)
 - [Chapitre 101 — Après que la dernière illusion se fut brisée](fr/02_hazran/101_after_the_last_illusion_broke.md)
 - [Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses](fr/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [Chapitre 103 — Chaque petit recommencement coûtait plus cher](fr/02_hazran/103_each_small_restart_cost_more.md)
 
 ### Spanish
 
@@ -695,7 +700,8 @@ Each language directory is organized by arc:
 - [Capítulo 51 — Las llamas que fingían vivir](es/02_hazran/51_the_flames_that_pretended_to_live.md)
 - [Capítulo 52 — El instante en que la regla se plegó](es/02_hazran/52_the_moment_the_rule_bent.md)
 - [Capítulo 53 — El terreno que dejó de ser un juego](es/02_hazran/53_the_field_that_stopped_being_a_game.md)
+- [Capítulo 54 — La ruta que solo veían los que caían](es/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 
 ## Status
 
-Public archive currently published through Episode 102 in Korean, Episode 102 in English, Episode 102 in Japanese, Episode 102 in French, Episode 102 in Chinese (Simplified), and Episode 53 in Spanish.
+Public archive currently published through Episode 103 in Korean, Episode 103 in English, Episode 103 in Japanese, Episode 103 in French, Episode 103 in Chinese (Simplified), and Episode 54 in Spanish.
