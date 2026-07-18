@@ -200,6 +200,7 @@ Each language directory is organized by arc:
 - [101. 마지막 착각이 부러진 뒤에 남은 것](ko/02_hazran/101_after_the_last_illusion_broke.md)
 - [102. 줄어드는 손 하나하나가 더 비싸졌다](ko/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103. 작은 재개 하나에도 더 큰 값이 들었다](ko/02_hazran/103_each_small_restart_cost_more.md)
+- [104. 그 통로가 아직 살아 있는 건 값을 치르고 있기 때문이었다](ko/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ### English
 
@@ -310,6 +311,7 @@ Each language directory is organized by arc:
 - [101. After the Last Illusion Broke](en/02_hazran/101_after_the_last_illusion_broke.md)
 - [102. The Fewer Hands Became More Expensive](en/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103. Each Small Restart Cost More](en/02_hazran/103_each_small_restart_cost_more.md)
+- [104. The Corridor Lived Only Because They Paid for It](en/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ### Japanese
 
@@ -420,6 +422,7 @@ Each language directory is organized by arc:
 - [第百一話　錯覚が折れた後に残ったもの](ja/02_hazran/101_after_the_last_illusion_broke.md)
 - [第百二話　減る手の一つ一つが高くなった](ja/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第百三話　小さな再開がもっと高くついた](ja/02_hazran/103_each_small_restart_cost_more.md)
+- [第百四話　値を払い続けた通路](ja/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ### Chinese
 
@@ -530,6 +533,7 @@ Each language directory is organized by arc:
 - [第一百零一章 最后的错觉折断之后留下的东西](zh/02_hazran/101_after_the_last_illusion_broke.md)
 - [第一百零二章 越来越少的每一只手都更昂贵了](zh/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第一百零三章 每一次微小的重启都要付出更大的代价](zh/02_hazran/103_each_small_restart_cost_more.md)
+- [第一百零四章 那条通道还活着，只因为他们在付代价](zh/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ### French
 
@@ -640,6 +644,7 @@ Each language directory is organized by arc:
 - [Chapitre 101 — Après que la dernière illusion se fut brisée](fr/02_hazran/101_after_the_last_illusion_broke.md)
 - [Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses](fr/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Chapitre 103 — Chaque petit recommencement coûtait plus cher](fr/02_hazran/103_each_small_restart_cost_more.md)
+- [Chapitre 104 — Le couloir ne vivait que parce qu'ils en payaient le prix](fr/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ### Spanish
 
@@ -702,7 +707,8 @@ Each language directory is organized by arc:
 - [Capítulo 53 — El terreno que dejó de ser un juego](es/02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [Capítulo 54 — La ruta que solo veían los que caían](es/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían](es/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
+- [Capítulo 56 — La fusión antes de que la caza se cerrara](es/02_hazran/56_the_merge_before_the_hunt_closed.md)
 
 ## Status
 
-Public archive currently published through Episode 103 in Korean, Episode 103 in English, Episode 103 in Japanese, Episode 103 in French, Episode 103 in Chinese (Simplified), and Episode 55 in Spanish.
+Public archive currently published through Episode 104 in Korean, Episode 104 in English, Episode 104 in Japanese, Episode 104 in French, Episode 104 in Chinese (Simplified), and Episode 56 in Spanish.

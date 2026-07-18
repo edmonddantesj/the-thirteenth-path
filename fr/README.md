@@ -111,3 +111,4 @@ Chapitres publics actuels :
 - [Chapitre 101 — Après que la dernière illusion se fut brisée](02_hazran/101_after_the_last_illusion_broke.md)
 - [Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Chapitre 103 — Chaque petit recommencement coûtait plus cher](02_hazran/103_each_small_restart_cost_more.md)
+- [Chapitre 104 — Le couloir ne vivait que parce qu'ils en payaient le prix](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)

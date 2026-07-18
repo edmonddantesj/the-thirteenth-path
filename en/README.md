@@ -111,3 +111,4 @@ Current public English release:
 - [Episode 101. After the Last Illusion Broke](02_hazran/101_after_the_last_illusion_broke.md)
 - [Episode 102. The Fewer Hands Became More Expensive](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Episode 103. Each Small Restart Cost More](02_hazran/103_each_small_restart_cost_more.md)
+- [Episode 104. The Corridor Lived Only Because They Paid for It](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)

@@ -112,3 +112,4 @@
 - [101화. 마지막 착각이 부러진 뒤에 남은 것](02_hazran/101_after_the_last_illusion_broke.md)
 - [102화. 줄어드는 손 하나하나가 더 비싸졌다](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103화. 작은 재개 하나에도 더 큰 값이 들었다](02_hazran/103_each_small_restart_cost_more.md)
+- [104화. 그 통로가 아직 살아 있는 건 값을 치르고 있기 때문이었다](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
