@@ -58,3 +58,4 @@ Capítulos públicos actuales:
 - [Capítulo 52 — El instante en que la regla se plegó](02_hazran/52_the_moment_the_rule_bent.md)
 - [Capítulo 53 — El terreno que dejó de ser un juego](02_hazran/53_the_field_that_stopped_being_a_game.md)
 - [Capítulo 54 — La ruta que solo veían los que caían](02_hazran/54_the_route_that_only_the_falling_could_see.md)
+- [Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían](02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
