@@ -61,3 +61,4 @@ Capítulos públicos actuales:
 - [Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían](02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Capítulo 56 — La fusión antes de que la caza se cerrara](02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [Capítulo 57 — El método para huir con una sola verdad](02_hazran/57_the_method_of_running_with_one_true_thing.md)
+- [Capítulo 58 — El camino de regreso con la prueba](02_hazran/58_the_way_back_with_the_proof.md)

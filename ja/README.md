@@ -112,3 +112,4 @@
 - [第百二話　減る手の一つ一つが高くなった](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第百三話　小さな再開がもっと高くついた](02_hazran/103_each_small_restart_cost_more.md)
 - [第百四話　値を払い続けた通路](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [第百五話　ハルンが通路に払った値](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)

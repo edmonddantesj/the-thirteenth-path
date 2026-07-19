@@ -201,6 +201,7 @@ Each language directory is organized by arc:
 - [102. 줄어드는 손 하나하나가 더 비싸졌다](ko/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103. 작은 재개 하나에도 더 큰 값이 들었다](ko/02_hazran/103_each_small_restart_cost_more.md)
 - [104. 그 통로가 아직 살아 있는 건 값을 치르고 있기 때문이었다](ko/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [105. 하룬이 그 통로를 열어 두기 위해 치른 값](ko/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ### English
 
@@ -312,6 +313,7 @@ Each language directory is organized by arc:
 - [102. The Fewer Hands Became More Expensive](en/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103. Each Small Restart Cost More](en/02_hazran/103_each_small_restart_cost_more.md)
 - [104. The Corridor Lived Only Because They Paid for It](en/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [105. The Price Harun Paid to Keep It Open](en/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ### Japanese
 
@@ -423,6 +425,7 @@ Each language directory is organized by arc:
 - [第百二話　減る手の一つ一つが高くなった](ja/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第百三話　小さな再開がもっと高くついた](ja/02_hazran/103_each_small_restart_cost_more.md)
 - [第百四話　値を払い続けた通路](ja/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [第百五話　ハルンが通路に払った値](ja/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ### Chinese
 
@@ -534,6 +537,7 @@ Each language directory is organized by arc:
 - [第一百零二章 越来越少的每一只手都更昂贵了](zh/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第一百零三章 每一次微小的重启都要付出更大的代价](zh/02_hazran/103_each_small_restart_cost_more.md)
 - [第一百零四章 那条通道还活着，只因为他们在付代价](zh/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [第一百零五章 哈隆为了让那条通道敞着所付的代价](zh/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ### French
 
@@ -645,6 +649,7 @@ Each language directory is organized by arc:
 - [Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses](fr/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Chapitre 103 — Chaque petit recommencement coûtait plus cher](fr/02_hazran/103_each_small_restart_cost_more.md)
 - [Chapitre 104 — Le couloir ne vivait que parce qu'ils en payaient le prix](fr/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [Chapitre 105 — Le prix que Haroun paya pour garder le passage ouvert](fr/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ### Spanish
 
@@ -709,7 +714,8 @@ Each language directory is organized by arc:
 - [Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían](es/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Capítulo 56 — La fusión antes de que la caza se cerrara](es/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [Capítulo 57 — El método para huir con una sola verdad](es/02_hazran/57_the_method_of_running_with_one_true_thing.md)
+- [Capítulo 58 — El camino de regreso con la prueba](es/02_hazran/58_the_way_back_with_the_proof.md)
 
 ## Status
 
-Public archive currently published through Episode 104 in Korean, Episode 104 in English, Episode 104 in Japanese, Episode 104 in French, Episode 104 in Chinese (Simplified), and Episode 57 in Spanish.
+Public archive currently published through Episode 105 in Korean, Episode 105 in English, Episode 105 in Japanese, Episode 105 in French, Episode 105 in Chinese (Simplified), and Episode 58 in Spanish.

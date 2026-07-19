@@ -112,3 +112,4 @@
 - [第一百零二章 越来越少的每一只手都更昂贵了](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [第一百零三章 每一次微小的重启都要付出更大的代价](02_hazran/103_each_small_restart_cost_more.md)
 - [第一百零四章 那条通道还活着，只因为他们在付代价](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [第一百零五章 哈隆为了让那条通道敞着所付的代价](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)

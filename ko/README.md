@@ -113,3 +113,4 @@
 - [102화. 줄어드는 손 하나하나가 더 비싸졌다](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [103화. 작은 재개 하나에도 더 큰 값이 들었다](02_hazran/103_each_small_restart_cost_more.md)
 - [104화. 그 통로가 아직 살아 있는 건 값을 치르고 있기 때문이었다](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [105화. 하룬이 그 통로를 열어 두기 위해 치른 값](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)

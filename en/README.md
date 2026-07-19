@@ -112,3 +112,4 @@ Current public English release:
 - [Episode 102. The Fewer Hands Became More Expensive](02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Episode 103. Each Small Restart Cost More](02_hazran/103_each_small_restart_cost_more.md)
 - [Episode 104. The Corridor Lived Only Because They Paid for It](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [Episode 105. The Price Harun Paid to Keep It Open](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
