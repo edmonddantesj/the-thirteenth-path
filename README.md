@@ -708,7 +708,8 @@ Each language directory is organized by arc:
 - [Capítulo 54 — La ruta que solo veían los que caían](es/02_hazran/54_the_route_that_only_the_falling_could_see.md)
 - [Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían](es/02_hazran/55_the_line_that_only_those_carrying_truth_could_hold.md)
 - [Capítulo 56 — La fusión antes de que la caza se cerrara](es/02_hazran/56_the_merge_before_the_hunt_closed.md)
+- [Capítulo 57 — El método para huir con una sola verdad](es/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 
 ## Status
 
-Public archive currently published through Episode 104 in Korean, Episode 104 in English, Episode 104 in Japanese, Episode 104 in French, Episode 104 in Chinese (Simplified), and Episode 56 in Spanish.
+Public archive currently published through Episode 104 in Korean, Episode 104 in English, Episode 104 in Japanese, Episode 104 in French, Episode 104 in Chinese (Simplified), and Episode 57 in Spanish.
