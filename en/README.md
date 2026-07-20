@@ -113,3 +113,4 @@ Current public English release:
 - [Episode 103. Each Small Restart Cost More](02_hazran/103_each_small_restart_cost_more.md)
 - [Episode 104. The Corridor Lived Only Because They Paid for It](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [Episode 105. The Price Harun Paid to Keep It Open](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
+- [Episode 106. The Moment Zahir Stopped Buying More Time](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)

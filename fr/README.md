@@ -113,3 +113,4 @@ Chapitres publics actuels :
 - [Chapitre 103 — Chaque petit recommencement coûtait plus cher](02_hazran/103_each_small_restart_cost_more.md)
 - [Chapitre 104 — Le couloir ne vivait que parce qu'ils en payaient le prix](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [Chapitre 105 — Le prix que Haroun paya pour garder le passage ouvert](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
+- [Chapitre 106 — L'instant où Zahir cessa d'acheter du temps](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
