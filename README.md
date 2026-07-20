@@ -715,7 +715,8 @@ Each language directory is organized by arc:
 - [Capítulo 56 — La fusión antes de que la caza se cerrara](es/02_hazran/56_the_merge_before_the_hunt_closed.md)
 - [Capítulo 57 — El método para huir con una sola verdad](es/02_hazran/57_the_method_of_running_with_one_true_thing.md)
 - [Capítulo 58 — El camino de regreso con la prueba](es/02_hazran/58_the_way_back_with_the_proof.md)
+- [Capítulo 59 — Las manos que volvieron vivas](es/02_hazran/59_the_hands_that_came_back_alive.md)
 
 ## Status
 
-Public archive currently published through Episode 105 in Korean, Episode 105 in English, Episode 105 in Japanese, Episode 105 in French, Episode 105 in Chinese (Simplified), and Episode 58 in Spanish.
+Public archive currently published through Episode 105 in Korean, Episode 105 in English, Episode 105 in Japanese, Episode 105 in French, Episode 105 in Chinese (Simplified), and Episode 59 in Spanish.
