@@ -115,3 +115,4 @@
 - [104화. 그 통로가 아직 살아 있는 건 값을 치르고 있기 때문이었다](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [105화. 하룬이 그 통로를 열어 두기 위해 치른 값](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [106화. 자히르가 더는 시간을 사지 않기로 한 순간](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
+- [107화. 떠나야 하는 사람들과 닫아야 하는 사람들](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)

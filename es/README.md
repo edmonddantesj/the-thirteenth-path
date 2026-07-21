@@ -65,3 +65,4 @@ Capítulos públicos actuales:
 - [Capítulo 59 — Las manos que volvieron vivas](02_hazran/59_the_hands_that_came_back_alive.md)
 - [Capítulo 60 — La valía devuelta ante el juez](02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Capítulo 61 — La palabra que dio tras mirarlo todo](02_hazran/61_the_word_she_gave_after_watching.md)
+- [Capítulo 62 — El interior que ella terminó por mostrar](02_hazran/62_the_inside_she_finally_showed.md)
