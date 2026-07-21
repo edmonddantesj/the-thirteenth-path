@@ -722,7 +722,8 @@ Each language directory is organized by arc:
 - [Capítulo 58 — El camino de regreso con la prueba](es/02_hazran/58_the_way_back_with_the_proof.md)
 - [Capítulo 59 — Las manos que volvieron vivas](es/02_hazran/59_the_hands_that_came_back_alive.md)
 - [Capítulo 60 — La valía devuelta ante el juez](es/02_hazran/60_the_price_paid_back_to_the_stage.md)
+- [Capítulo 61 — La palabra que dio tras mirarlo todo](es/02_hazran/61_the_word_she_gave_after_watching.md)
 
 ## Status
 
-Public archive currently published through Episode 106 in Korean, Episode 106 in English, Episode 106 in Japanese, Episode 106 in French, Episode 106 in Chinese (Simplified), and Episode 60 in Spanish.
+Public archive currently published through Episode 106 in Korean, Episode 106 in English, Episode 106 in Japanese, Episode 106 in French, Episode 106 in Chinese (Simplified), and Episode 61 in Spanish.
