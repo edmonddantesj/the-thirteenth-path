@@ -204,6 +204,7 @@ Each language directory is organized by arc:
 - [105. 하룬이 그 통로를 열어 두기 위해 치른 값](ko/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [106. 자히르가 더는 시간을 사지 않기로 한 순간](ko/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107. 떠나야 하는 사람들과 닫아야 하는 사람들](ko/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [108. 끝내 떠밀려 올라간 사람들](ko/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ### English
 
@@ -318,6 +319,7 @@ Each language directory is organized by arc:
 - [105. The Price Harun Paid to Keep It Open](en/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [106. The Moment Zahir Stopped Buying More Time](en/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107. The Ones Who Must Leave and the Ones Who Must Close](en/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [108. The Ones Who Were Forced to Board](en/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ### Japanese
 
@@ -432,6 +434,7 @@ Each language directory is organized by arc:
 - [第百五話　ハルンが通路に払った値](ja/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [第百六話　時間を買うのをやめた瞬間](ja/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第百七話　発つ者と閉じる者](ja/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [第百八話　ついに押し上げられた者たち](ja/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ### Chinese
 
@@ -546,6 +549,7 @@ Each language directory is organized by arc:
 - [第一百零五章 哈隆为了让那条通道敞着所付的代价](zh/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [第一百零六章 扎赫不再去买时间的那一刻](zh/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第一百零七章 必须离开的人，与必须关上门的人](zh/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [第一百零八章 终究被推上船的人们](zh/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ### French
 
@@ -660,6 +664,7 @@ Each language directory is organized by arc:
 - [Chapitre 105 — Le prix que Haroun paya pour garder le passage ouvert](fr/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Chapitre 106 — L'instant où Zahir cessa d'acheter du temps](fr/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Chapitre 107 — Ceux qui devaient partir et ceux qui devaient fermer](fr/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [Chapitre 108 — Ceux qu'on força à monter à bord](fr/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ### Spanish
 
@@ -730,7 +735,8 @@ Each language directory is organized by arc:
 - [Capítulo 61 — La palabra que dio tras mirarlo todo](es/02_hazran/61_the_word_she_gave_after_watching.md)
 - [Capítulo 62 — El interior que ella terminó por mostrar](es/02_hazran/62_the_inside_she_finally_showed.md)
 - [Capítulo 63 — El umbral que ella no abrió para todos](es/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
+- [Capítulo 64 — Cómo sostener una forma que muere](es/02_hazran/64_the_way_she_held_the_dying_shape.md)
 
 ## Status
 
-Public archive currently published through Episode 107 in Korean, Episode 107 in English, Episode 107 in Japanese, Episode 107 in French, Episode 107 in Chinese (Simplified), and Episode 63 in Spanish.
+Public archive currently published through Episode 108 in Korean, Episode 108 in English, Episode 108 in Japanese, Episode 108 in French, Episode 108 in Chinese (Simplified), and Episode 64 in Spanish.

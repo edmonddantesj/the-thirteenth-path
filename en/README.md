@@ -115,3 +115,4 @@ Current public English release:
 - [Episode 105. The Price Harun Paid to Keep It Open](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Episode 106. The Moment Zahir Stopped Buying More Time](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Episode 107. The Ones Who Must Leave and the Ones Who Must Close](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [Episode 108. The Ones Who Were Forced to Board](02_hazran/108_the_ones_who_were_forced_to_board.md)

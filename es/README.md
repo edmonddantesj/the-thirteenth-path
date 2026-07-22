@@ -67,3 +67,4 @@ Capítulos públicos actuales:
 - [Capítulo 61 — La palabra que dio tras mirarlo todo](02_hazran/61_the_word_she_gave_after_watching.md)
 - [Capítulo 62 — El interior que ella terminó por mostrar](02_hazran/62_the_inside_she_finally_showed.md)
 - [Capítulo 63 — El umbral que ella no abrió para todos](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
+- [Capítulo 64 — Cómo sostener una forma que muere](02_hazran/64_the_way_she_held_the_dying_shape.md)

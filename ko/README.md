@@ -116,3 +116,4 @@
 - [105화. 하룬이 그 통로를 열어 두기 위해 치른 값](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [106화. 자히르가 더는 시간을 사지 않기로 한 순간](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107화. 떠나야 하는 사람들과 닫아야 하는 사람들](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [108화. 끝내 떠밀려 올라간 사람들](02_hazran/108_the_ones_who_were_forced_to_board.md)

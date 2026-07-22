@@ -115,3 +115,4 @@
 - [第一百零五章 哈隆为了让那条通道敞着所付的代价](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [第一百零六章 扎赫不再去买时间的那一刻](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第一百零七章 必须离开的人，与必须关上门的人](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [第一百零八章 终究被推上船的人们](02_hazran/108_the_ones_who_were_forced_to_board.md)

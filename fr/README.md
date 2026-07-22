@@ -115,3 +115,4 @@ Chapitres publics actuels :
 - [Chapitre 105 — Le prix que Haroun paya pour garder le passage ouvert](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Chapitre 106 — L'instant où Zahir cessa d'acheter du temps](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Chapitre 107 — Ceux qui devaient partir et ceux qui devaient fermer](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [Chapitre 108 — Ceux qu'on força à monter à bord](02_hazran/108_the_ones_who_were_forced_to_board.md)
