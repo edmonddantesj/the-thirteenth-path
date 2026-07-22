@@ -729,7 +729,8 @@ Each language directory is organized by arc:
 - [Capítulo 60 — La valía devuelta ante el juez](es/02_hazran/60_the_price_paid_back_to_the_stage.md)
 - [Capítulo 61 — La palabra que dio tras mirarlo todo](es/02_hazran/61_the_word_she_gave_after_watching.md)
 - [Capítulo 62 — El interior que ella terminó por mostrar](es/02_hazran/62_the_inside_she_finally_showed.md)
+- [Capítulo 63 — El umbral que ella no abrió para todos](es/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 
 ## Status
 
-Public archive currently published through Episode 107 in Korean, Episode 107 in English, Episode 107 in Japanese, Episode 107 in French, Episode 107 in Chinese (Simplified), and Episode 62 in Spanish.
+Public archive currently published through Episode 107 in Korean, Episode 107 in English, Episode 107 in Japanese, Episode 107 in French, Episode 107 in Chinese (Simplified), and Episode 63 in Spanish.
