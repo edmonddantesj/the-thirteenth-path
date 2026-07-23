@@ -117,3 +117,4 @@
 - [106화. 자히르가 더는 시간을 사지 않기로 한 순간](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107화. 떠나야 하는 사람들과 닫아야 하는 사람들](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [108화. 끝내 떠밀려 올라간 사람들](02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [109화. 바깥에 남은 사람들이 하즈란을 닫기 시작했다](02_hazran/109_the_ones_outside_began_to_close_hazran.md)

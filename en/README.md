@@ -116,3 +116,4 @@ Current public English release:
 - [Episode 106. The Moment Zahir Stopped Buying More Time](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Episode 107. The Ones Who Must Leave and the Ones Who Must Close](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Episode 108. The Ones Who Were Forced to Board](02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [Episode 109. The Ones Outside Began to Close Hazran](02_hazran/109_the_ones_outside_began_to_close_hazran.md)

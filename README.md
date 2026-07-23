@@ -205,6 +205,7 @@ Each language directory is organized by arc:
 - [106. 자히르가 더는 시간을 사지 않기로 한 순간](ko/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107. 떠나야 하는 사람들과 닫아야 하는 사람들](ko/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [108. 끝내 떠밀려 올라간 사람들](ko/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [109. 바깥에 남은 사람들이 하즈란을 닫기 시작했다](ko/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ### English
 
@@ -320,6 +321,7 @@ Each language directory is organized by arc:
 - [106. The Moment Zahir Stopped Buying More Time](en/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [107. The Ones Who Must Leave and the Ones Who Must Close](en/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [108. The Ones Who Were Forced to Board](en/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [109. The Ones Outside Began to Close Hazran](en/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ### Japanese
 
@@ -435,6 +437,7 @@ Each language directory is organized by arc:
 - [第百六話　時間を買うのをやめた瞬間](ja/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第百七話　発つ者と閉じる者](ja/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [第百八話　ついに押し上げられた者たち](ja/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [第百九話　外に残った者が閉じ始めた](ja/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ### Chinese
 
@@ -550,6 +553,7 @@ Each language directory is organized by arc:
 - [第一百零六章 扎赫不再去买时间的那一刻](zh/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第一百零七章 必须离开的人，与必须关上门的人](zh/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [第一百零八章 终究被推上船的人们](zh/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [第一百零九章 留在外面的人开始关上哈兹兰](zh/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ### French
 
@@ -665,6 +669,7 @@ Each language directory is organized by arc:
 - [Chapitre 106 — L'instant où Zahir cessa d'acheter du temps](fr/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Chapitre 107 — Ceux qui devaient partir et ceux qui devaient fermer](fr/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Chapitre 108 — Ceux qu'on força à monter à bord](fr/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [Chapitre 109 — Ceux du dehors commencèrent à fermer Hazran](fr/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ### Spanish
 
@@ -737,7 +742,8 @@ Each language directory is organized by arc:
 - [Capítulo 63 — El umbral que ella no abrió para todos](es/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [Capítulo 64 — Cómo sostener una forma que muere](es/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](es/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [Capítulo 66 — La forma que soporta una pequeña llama](es/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 
 ## Status
 
-Public archive currently published through Episode 108 in Korean, Episode 108 in English, Episode 108 in Japanese, Episode 108 in French, Episode 108 in Chinese (Simplified), and Episode 65 in Spanish.
+Public archive currently published through Episode 109 in Korean, Episode 109 in English, Episode 109 in Japanese, Episode 109 in French, Episode 109 in Chinese (Simplified), and Episode 66 in Spanish.

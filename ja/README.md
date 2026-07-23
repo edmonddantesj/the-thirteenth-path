@@ -116,3 +116,4 @@
 - [第百六話　時間を買うのをやめた瞬間](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [第百七話　発つ者と閉じる者](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [第百八話　ついに押し上げられた者たち](02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [第百九話　外に残った者が閉じ始めた](02_hazran/109_the_ones_outside_began_to_close_hazran.md)

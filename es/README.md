@@ -69,3 +69,4 @@ Capítulos públicos actuales:
 - [Capítulo 63 — El umbral que ella no abrió para todos](02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [Capítulo 64 — Cómo sostener una forma que muere](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
+- [Capítulo 66 — La forma que soporta una pequeña llama](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
