@@ -736,7 +736,8 @@ Each language directory is organized by arc:
 - [Capítulo 62 — El interior que ella terminó por mostrar](es/02_hazran/62_the_inside_she_finally_showed.md)
 - [Capítulo 63 — El umbral que ella no abrió para todos](es/02_hazran/63_the_threshold_she_did_not_open_for_everyone.md)
 - [Capítulo 64 — Cómo sostener una forma que muere](es/02_hazran/64_the_way_she_held_the_dying_shape.md)
+- [Capítulo 65 — La prueba de que el camino no se había enfriado](es/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 
 ## Status
 
-Public archive currently published through Episode 108 in Korean, Episode 108 in English, Episode 108 in Japanese, Episode 108 in French, Episode 108 in Chinese (Simplified), and Episode 64 in Spanish.
+Public archive currently published through Episode 108 in Korean, Episode 108 in English, Episode 108 in Japanese, Episode 108 in French, Episode 108 in Chinese (Simplified), and Episode 65 in Spanish.
