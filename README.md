@@ -743,7 +743,8 @@ Each language directory is organized by arc:
 - [Capítulo 64 — Cómo sostener una forma que muere](es/02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](es/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Capítulo 66 — La forma que soporta una pequeña llama](es/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](es/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 
 ## Status
 
-Public archive currently published through Episode 109 in Korean, Episode 109 in English, Episode 109 in Japanese, Episode 109 in French, Episode 109 in Chinese (Simplified), and Episode 66 in Spanish.
+Public archive currently published through Episode 109 in Korean, Episode 109 in English, Episode 109 in Japanese, Episode 109 in French, Episode 109 in Chinese (Simplified), and Episode 67 in Spanish.

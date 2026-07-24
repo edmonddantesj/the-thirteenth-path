@@ -70,3 +70,4 @@ Capítulos públicos actuales:
 - [Capítulo 64 — Cómo sostener una forma que muere](02_hazran/64_the_way_she_held_the_dying_shape.md)
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Capítulo 66 — La forma que soporta una pequeña llama](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
+- [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
