@@ -206,6 +206,7 @@ Each language directory is organized by arc:
 - [107. 떠나야 하는 사람들과 닫아야 하는 사람들](ko/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [108. 끝내 떠밀려 올라간 사람들](ko/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [109. 바깥에 남은 사람들이 하즈란을 닫기 시작했다](ko/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [110. 마지막 선은 뒤집어씌워질 때까지 버텼다](ko/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ### English
 
@@ -322,6 +323,7 @@ Each language directory is organized by arc:
 - [107. The Ones Who Must Leave and the Ones Who Must Close](en/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [108. The Ones Who Were Forced to Board](en/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [109. The Ones Outside Began to Close Hazran](en/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [110. The Last Line Held Until It Was Buried](en/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ### Japanese
 
@@ -438,6 +440,7 @@ Each language directory is organized by arc:
 - [第百七話　発つ者と閉じる者](ja/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [第百八話　ついに押し上げられた者たち](ja/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [第百九話　外に残った者が閉じ始めた](ja/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [第百十話　最後の線は覆われるまで堪えた](ja/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ### Chinese
 
@@ -554,6 +557,7 @@ Each language directory is organized by arc:
 - [第一百零七章 必须离开的人，与必须关上门的人](zh/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [第一百零八章 终究被推上船的人们](zh/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [第一百零九章 留在外面的人开始关上哈兹兰](zh/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [第一百一十章 最后的防线一直撑到被覆盖为止](zh/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ### French
 
@@ -670,6 +674,7 @@ Each language directory is organized by arc:
 - [Chapitre 107 — Ceux qui devaient partir et ceux qui devaient fermer](fr/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Chapitre 108 — Ceux qu'on força à monter à bord](fr/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Chapitre 109 — Ceux du dehors commencèrent à fermer Hazran](fr/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [Chapitre 110 — La dernière ligne tint jusqu'à ce qu'on l'ensevelisse](fr/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ### Spanish
 
@@ -744,7 +749,8 @@ Each language directory is organized by arc:
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](es/02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Capítulo 66 — La forma que soporta una pequeña llama](es/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](es/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [Capítulo 68 — El orden que se dobló sin romperse](es/02_hazran/68_the_order_that_bent_without_breaking.md)
 
 ## Status
 
-Public archive currently published through Episode 109 in Korean, Episode 109 in English, Episode 109 in Japanese, Episode 109 in French, Episode 109 in Chinese (Simplified), and Episode 67 in Spanish.
+Public archive currently published through Episode 110 in Korean, Episode 110 in English, Episode 110 in Japanese, Episode 110 in French, Episode 110 in Chinese (Simplified), and Episode 68 in Spanish.

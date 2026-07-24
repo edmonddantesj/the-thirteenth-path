@@ -71,3 +71,4 @@ Capítulos públicos actuales:
 - [Capítulo 65 — La prueba de que el camino no se había enfriado](02_hazran/65_the_proof_that_the_path_had_not_gone_cold.md)
 - [Capítulo 66 — La forma que soporta una pequeña llama](02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
+- [Capítulo 68 — El orden que se dobló sin romperse](02_hazran/68_the_order_that_bent_without_breaking.md)
