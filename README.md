@@ -750,7 +750,8 @@ Each language directory is organized by arc:
 - [Capítulo 66 — La forma que soporta una pequeña llama](es/02_hazran/66_the_shape_that_could_hold_a_small_flame.md)
 - [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](es/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Capítulo 68 — El orden que se dobló sin romperse](es/02_hazran/68_the_order_that_bent_without_breaking.md)
+- [Capítulo 69 — El aire de quedarse una vez antes de partir](es/02_hazran/69_the_air_of_staying_before_leaving.md)
 
 ## Status
 
-Public archive currently published through Episode 110 in Korean, Episode 110 in English, Episode 110 in Japanese, Episode 110 in French, Episode 110 in Chinese (Simplified), and Episode 68 in Spanish.
+Public archive currently published through Episode 110 in Korean, Episode 110 in English, Episode 110 in Japanese, Episode 110 in French, Episode 110 in Chinese (Simplified), and Episode 69 in Spanish.
