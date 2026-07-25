@@ -118,3 +118,4 @@ Current public English release:
 - [Episode 108. The Ones Who Were Forced to Board](02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Episode 109. The Ones Outside Began to Close Hazran](02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Episode 110. The Last Line Held Until It Was Buried](02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [Episode 111. The Ship Left with Their Burden](02_hazran/111_the_ship_left_with_their_burden.md)

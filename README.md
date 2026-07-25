@@ -207,6 +207,7 @@ Each language directory is organized by arc:
 - [108. 끝내 떠밀려 올라간 사람들](ko/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [109. 바깥에 남은 사람들이 하즈란을 닫기 시작했다](ko/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [110. 마지막 선은 뒤집어씌워질 때까지 버텼다](ko/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [111. 우주선은 그들의 몫까지 싣고 떠났다](ko/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ### English
 
@@ -324,6 +325,7 @@ Each language directory is organized by arc:
 - [108. The Ones Who Were Forced to Board](en/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [109. The Ones Outside Began to Close Hazran](en/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [110. The Last Line Held Until It Was Buried](en/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [111. The Ship Left with Their Burden](en/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ### Japanese
 
@@ -441,6 +443,7 @@ Each language directory is organized by arc:
 - [第百八話　ついに押し上げられた者たち](ja/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [第百九話　外に残った者が閉じ始めた](ja/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [第百十話　最後の線は覆われるまで堪えた](ja/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [第百十一話　重荷まで載せて発った船](ja/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ### Chinese
 
@@ -558,6 +561,7 @@ Each language directory is organized by arc:
 - [第一百零八章 终究被推上船的人们](zh/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [第一百零九章 留在外面的人开始关上哈兹兰](zh/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [第一百一十章 最后的防线一直撑到被覆盖为止](zh/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [第一百一十一章 宇宙飞船连他们那一份也一并载走了](zh/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ### French
 
@@ -675,6 +679,7 @@ Each language directory is organized by arc:
 - [Chapitre 108 — Ceux qu'on força à monter à bord](fr/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Chapitre 109 — Ceux du dehors commencèrent à fermer Hazran](fr/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Chapitre 110 — La dernière ligne tint jusqu'à ce qu'on l'ensevelisse](fr/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [Chapitre 111 — Le vaisseau partit avec leur fardeau](fr/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ### Spanish
 
@@ -751,7 +756,8 @@ Each language directory is organized by arc:
 - [Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara](es/02_hazran/67_the_first_place_they_dared_to_keep_warm.md)
 - [Capítulo 68 — El orden que se dobló sin romperse](es/02_hazran/68_the_order_that_bent_without_breaking.md)
 - [Capítulo 69 — El aire de quedarse una vez antes de partir](es/02_hazran/69_the_air_of_staying_before_leaving.md)
+- [Capítulo 70 — El cuerpo que aún queda por salvar](es/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 
 ## Status
 
-Public archive currently published through Episode 110 in Korean, Episode 110 in English, Episode 110 in Japanese, Episode 110 in French, Episode 110 in Chinese (Simplified), and Episode 69 in Spanish.
+Public archive currently published through Episode 111 in Korean, Episode 111 in English, Episode 111 in Japanese, Episode 111 in French, Episode 111 in Chinese (Simplified), and Episode 70 in Spanish.

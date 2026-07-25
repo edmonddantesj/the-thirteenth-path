@@ -118,3 +118,4 @@
 - [第百八話　ついに押し上げられた者たち](02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [第百九話　外に残った者が閉じ始めた](02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [第百十話　最後の線は覆われるまで堪えた](02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [第百十一話　重荷まで載せて発った船](02_hazran/111_the_ship_left_with_their_burden.md)
