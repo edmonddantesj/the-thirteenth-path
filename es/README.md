@@ -74,3 +74,4 @@ Capítulos públicos actuales:
 - [Capítulo 68 — El orden que se dobló sin romperse](02_hazran/68_the_order_that_bent_without_breaking.md)
 - [Capítulo 69 — El aire de quedarse una vez antes de partir](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Capítulo 70 — El cuerpo que aún queda por salvar](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
+- [Capítulo 71 — El bazar que solo abre cuando se va el calor](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
