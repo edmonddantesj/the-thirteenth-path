@@ -119,3 +119,4 @@ Chapitres publics actuels :
 - [Chapitre 109 — Ceux du dehors commencèrent à fermer Hazran](02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Chapitre 110 — La dernière ligne tint jusqu'à ce qu'on l'ensevelisse](02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [Chapitre 111 — Le vaisseau partit avec leur fardeau](02_hazran/111_the_ship_left_with_their_burden.md)
+- [Chapitre 112 — Les yeux qui observaient où ils iraient ensuite](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)

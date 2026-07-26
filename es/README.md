@@ -75,3 +75,4 @@ Capítulos públicos actuales:
 - [Capítulo 69 — El aire de quedarse una vez antes de partir](02_hazran/69_the_air_of_staying_before_leaving.md)
 - [Capítulo 70 — El cuerpo que aún queda por salvar](02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Capítulo 71 — El bazar que solo abre cuando se va el calor](02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
+- [Capítulo 72 — La distancia que siempre había estado ahí](02_hazran/72_the_distance_that_had_always_been_there.md)
