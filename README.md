@@ -764,7 +764,8 @@ Each language directory is organized by arc:
 - [Capítulo 70 — El cuerpo que aún queda por salvar](es/02_hazran/70_the_first_day_they_did_not_have_to_run.md)
 - [Capítulo 71 — El bazar que solo abre cuando se va el calor](es/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [Capítulo 72 — La distancia que siempre había estado ahí](es/02_hazran/72_the_distance_that_had_always_been_there.md)
+- [Capítulo 73 — Lo que cada uno vio en Hazran](es/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 
 ## Status
 
-Public archive currently published through Episode 112 in Korean, Episode 112 in English, Episode 112 in Japanese, Episode 112 in French, Episode 112 in Chinese (Simplified), and Episode 72 in Spanish.
+Public archive currently published through Episode 112 in Korean, Episode 112 in English, Episode 112 in Japanese, Episode 112 in French, Episode 112 in Chinese (Simplified), and Episode 73 in Spanish.
