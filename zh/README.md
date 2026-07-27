@@ -120,3 +120,4 @@
 - [第一百一十章 最后的防线一直撑到被覆盖为止](02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [第一百一十一章 宇宙飞船连他们那一份也一并载走了](02_hazran/111_the_ship_left_with_their_burden.md)
 - [第一百一十二章 注视着他们下一步去向的眼睛](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [第一百一十三章 哈兹兰关上之后仍然留下的东西](02_hazran/113_what_remained_after_hazran_closed.md)

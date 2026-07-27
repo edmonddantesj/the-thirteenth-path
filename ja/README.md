@@ -120,3 +120,4 @@
 - [第百十話　最後の線は覆われるまで堪えた](02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [第百十一話　重荷まで載せて発った船](02_hazran/111_the_ship_left_with_their_burden.md)
 - [第百十二話　次の行き先を見る眼](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [第百十三話　閉じた後にも残ったもの](02_hazran/113_what_remained_after_hazran_closed.md)

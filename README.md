@@ -209,6 +209,7 @@ Each language directory is organized by arc:
 - [110. 마지막 선은 뒤집어씌워질 때까지 버텼다](ko/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [111. 우주선은 그들의 몫까지 싣고 떠났다](ko/02_hazran/111_the_ship_left_with_their_burden.md)
 - [112. 그들이 다음에 어디로 갈지 지켜보는 눈들](ko/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [113. 하즈란이 닫힌 뒤에도 남은 것](ko/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ### English
 
@@ -328,6 +329,7 @@ Each language directory is organized by arc:
 - [110. The Last Line Held Until It Was Buried](en/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [111. The Ship Left with Their Burden](en/02_hazran/111_the_ship_left_with_their_burden.md)
 - [112. The Eyes That Watched Where They Would Go Next](en/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [113. What Remained After Hazran Closed](en/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ### Japanese
 
@@ -447,6 +449,7 @@ Each language directory is organized by arc:
 - [第百十話　最後の線は覆われるまで堪えた](ja/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [第百十一話　重荷まで載せて発った船](ja/02_hazran/111_the_ship_left_with_their_burden.md)
 - [第百十二話　次の行き先を見る眼](ja/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [第百十三話　閉じた後にも残ったもの](ja/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ### Chinese
 
@@ -566,6 +569,7 @@ Each language directory is organized by arc:
 - [第一百一十章 最后的防线一直撑到被覆盖为止](zh/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [第一百一十一章 宇宙飞船连他们那一份也一并载走了](zh/02_hazran/111_the_ship_left_with_their_burden.md)
 - [第一百一十二章 注视着他们下一步去向的眼睛](zh/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [第一百一十三章 哈兹兰关上之后仍然留下的东西](zh/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ### French
 
@@ -685,6 +689,7 @@ Each language directory is organized by arc:
 - [Chapitre 110 — La dernière ligne tint jusqu'à ce qu'on l'ensevelisse](fr/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [Chapitre 111 — Le vaisseau partit avec leur fardeau](fr/02_hazran/111_the_ship_left_with_their_burden.md)
 - [Chapitre 112 — Les yeux qui observaient où ils iraient ensuite](fr/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [Chapitre 113 — Ce qui resta après la fermeture de Hazran](fr/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ### Spanish
 
@@ -765,7 +770,8 @@ Each language directory is organized by arc:
 - [Capítulo 71 — El bazar que solo abre cuando se va el calor](es/02_hazran/71_the_bazaar_that_only_opened_after_heat.md)
 - [Capítulo 72 — La distancia que siempre había estado ahí](es/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [Capítulo 73 — Lo que cada uno vio en Hazran](es/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
+- [Capítulo 74 — La noche en que parecía posible quedarse un poco más](es/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 
 ## Status
 
-Public archive currently published through Episode 112 in Korean, Episode 112 in English, Episode 112 in Japanese, Episode 112 in French, Episode 112 in Chinese (Simplified), and Episode 73 in Spanish.
+Public archive currently published through Episode 113 in Korean, Episode 113 in English, Episode 113 in Japanese, Episode 113 in French, Episode 113 in Chinese (Simplified), and Episode 74 in Spanish.

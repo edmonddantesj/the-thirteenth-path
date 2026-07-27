@@ -121,3 +121,4 @@
 - [110화. 마지막 선은 뒤집어씌워질 때까지 버텼다](02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [111화. 우주선은 그들의 몫까지 싣고 떠났다](02_hazran/111_the_ship_left_with_their_burden.md)
 - [112화. 그들이 다음에 어디로 갈지 지켜보는 눈들](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [113화. 하즈란이 닫힌 뒤에도 남은 것](02_hazran/113_what_remained_after_hazran_closed.md)
