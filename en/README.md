@@ -121,3 +121,4 @@ Current public English release:
 - [Episode 111. The Ship Left with Their Burden](02_hazran/111_the_ship_left_with_their_burden.md)
 - [Episode 112. The Eyes That Watched Where They Would Go Next](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [Episode 113. What Remained After Hazran Closed](02_hazran/113_what_remained_after_hazran_closed.md)
+- [Episode 114. The First Thing They Did Not Know How to Name](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)

@@ -121,3 +121,4 @@
 - [第百十一話　重荷まで載せて発った船](02_hazran/111_the_ship_left_with_their_burden.md)
 - [第百十二話　次の行き先を見る眼](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [第百十三話　閉じた後にも残ったもの](02_hazran/113_what_remained_after_hazran_closed.md)
+- [第百十四話　名のないものを初めて掴んだ](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
