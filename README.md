@@ -771,7 +771,8 @@ Each language directory is organized by arc:
 - [Capítulo 72 — La distancia que siempre había estado ahí](es/02_hazran/72_the_distance_that_had_always_been_there.md)
 - [Capítulo 73 — Lo que cada uno vio en Hazran](es/02_hazran/73_the_things_each_of_them_saw_in_hazran.md)
 - [Capítulo 74 — La noche en que parecía posible quedarse un poco más](es/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
+- [Capítulo 75 — Los informes que se movieron antes que la guerra](es/02_hazran/75_the_reports_that_moved_before_the_war.md)
 
 ## Status
 
-Public archive currently published through Episode 113 in Korean, Episode 113 in English, Episode 113 in Japanese, Episode 113 in French, Episode 113 in Chinese (Simplified), and Episode 74 in Spanish.
+Public archive currently published through Episode 113 in Korean, Episode 113 in English, Episode 113 in Japanese, Episode 113 in French, Episode 113 in Chinese (Simplified), and Episode 75 in Spanish.
