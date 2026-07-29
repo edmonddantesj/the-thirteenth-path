@@ -123,3 +123,4 @@
 - [112화. 그들이 다음에 어디로 갈지 지켜보는 눈들](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [113화. 하즈란이 닫힌 뒤에도 남은 것](02_hazran/113_what_remained_after_hazran_closed.md)
 - [114화. 그들은 아직 이름 붙일 수 없는 것을 처음 붙들었다](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [115화. 추격이 오기 전에 방향이 먼저 생기기 시작했다](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)

@@ -211,6 +211,7 @@ Each language directory is organized by arc:
 - [112. 그들이 다음에 어디로 갈지 지켜보는 눈들](ko/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [113. 하즈란이 닫힌 뒤에도 남은 것](ko/02_hazran/113_what_remained_after_hazran_closed.md)
 - [114. 그들은 아직 이름 붙일 수 없는 것을 처음 붙들었다](ko/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [115. 추격이 오기 전에 방향이 먼저 생기기 시작했다](ko/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ### English
 
@@ -332,6 +333,7 @@ Each language directory is organized by arc:
 - [112. The Eyes That Watched Where They Would Go Next](en/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [113. What Remained After Hazran Closed](en/02_hazran/113_what_remained_after_hazran_closed.md)
 - [114. The First Thing They Did Not Know How to Name](en/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [115. The Direction That Began Before the Pursuit Came](en/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ### Japanese
 
@@ -453,6 +455,7 @@ Each language directory is organized by arc:
 - [第百十二話　次の行き先を見る眼](ja/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [第百十三話　閉じた後にも残ったもの](ja/02_hazran/113_what_remained_after_hazran_closed.md)
 - [第百十四話　名のないものを初めて掴んだ](ja/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [第百十五話　追撃より先に方向が生まれた](ja/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ### Chinese
 
@@ -574,6 +577,7 @@ Each language directory is organized by arc:
 - [第一百一十二章 注视着他们下一步去向的眼睛](zh/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [第一百一十三章 哈兹兰关上之后仍然留下的东西](zh/02_hazran/113_what_remained_after_hazran_closed.md)
 - [第一百一十四章 他们第一次抓住却还无法命名的东西](zh/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [第一百一十五章 在追击到来之前，方向就先生出来了](zh/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ### French
 
@@ -695,6 +699,7 @@ Each language directory is organized by arc:
 - [Chapitre 112 — Les yeux qui observaient où ils iraient ensuite](fr/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [Chapitre 113 — Ce qui resta après la fermeture de Hazran](fr/02_hazran/113_what_remained_after_hazran_closed.md)
 - [Chapitre 114 — La première chose qu’ils ne surent pas nommer](fr/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [Chapitre 115 — La direction qui commença avant l’arrivée de la poursuite](fr/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ### Spanish
 
@@ -779,7 +784,8 @@ Each language directory is organized by arc:
 - [Capítulo 75 — Los informes que se movieron antes que la guerra](es/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Capítulo 76 — La ciudad lo oyó antes que nadie](es/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Capítulo 77 — Las manos que volvieron a sus puestos](es/02_hazran/77_the_hands_that_went_back_to_their_places.md)
+- [Capítulo 78 — La primera fila que se movía sin aliento](es/02_hazran/78_the_first_line_that_moved_without_breath.md)
 
 ## Status
 
-Public archive currently published through Episode 114 in Korean, Episode 114 in English, Episode 114 in Japanese, Episode 114 in French, Episode 114 in Chinese (Simplified), and Episode 77 in Spanish.
+Public archive currently published through Episode 115 in Korean, Episode 115 in English, Episode 115 in Japanese, Episode 115 in French, Episode 115 in Chinese (Simplified), and Episode 78 in Spanish.
