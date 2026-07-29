@@ -80,3 +80,4 @@ Capítulos públicos actuales:
 - [Capítulo 74 — La noche en que parecía posible quedarse un poco más](02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Capítulo 75 — Los informes que se movieron antes que la guerra](02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Capítulo 76 — La ciudad lo oyó antes que nadie](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [Capítulo 77 — Las manos que volvieron a sus puestos](02_hazran/77_the_hands_that_went_back_to_their_places.md)

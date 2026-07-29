@@ -778,7 +778,8 @@ Each language directory is organized by arc:
 - [Capítulo 74 — La noche en que parecía posible quedarse un poco más](es/02_hazran/74_the_night_that_felt_long_enough_to_stay.md)
 - [Capítulo 75 — Los informes que se movieron antes que la guerra](es/02_hazran/75_the_reports_that_moved_before_the_war.md)
 - [Capítulo 76 — La ciudad lo oyó antes que nadie](es/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
+- [Capítulo 77 — Las manos que volvieron a sus puestos](es/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 
 ## Status
 
-Public archive currently published through Episode 114 in Korean, Episode 114 in English, Episode 114 in Japanese, Episode 114 in French, Episode 114 in Chinese (Simplified), and Episode 76 in Spanish.
+Public archive currently published through Episode 114 in Korean, Episode 114 in English, Episode 114 in Japanese, Episode 114 in French, Episode 114 in Chinese (Simplified), and Episode 77 in Spanish.
