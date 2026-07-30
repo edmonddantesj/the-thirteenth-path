@@ -82,3 +82,4 @@ Capítulos públicos actuales:
 - [Capítulo 76 — La ciudad lo oyó antes que nadie](02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Capítulo 77 — Las manos que volvieron a sus puestos](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Capítulo 78 — La primera fila que se movía sin aliento](02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [Capítulo 79 — La ola que no se rompía aunque la cortaran](02_hazran/79_the_wave_that_did_not_break_when_cut.md)

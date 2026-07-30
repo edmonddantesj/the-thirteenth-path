@@ -785,7 +785,8 @@ Each language directory is organized by arc:
 - [Capítulo 76 — La ciudad lo oyó antes que nadie](es/02_hazran/76_the_city_heard_it_before_anyone_saw_it.md)
 - [Capítulo 77 — Las manos que volvieron a sus puestos](es/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Capítulo 78 — La primera fila que se movía sin aliento](es/02_hazran/78_the_first_line_that_moved_without_breath.md)
+- [Capítulo 79 — La ola que no se rompía aunque la cortaran](es/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 
 ## Status
 
-Public archive currently published through Episode 115 in Korean, Episode 115 in English, Episode 115 in Japanese, Episode 115 in French, Episode 115 in Chinese (Simplified), and Episode 78 in Spanish.
+Public archive currently published through Episode 115 in Korean, Episode 115 in English, Episode 115 in Japanese, Episode 115 in French, Episode 115 in Chinese (Simplified), and Episode 79 in Spanish.
