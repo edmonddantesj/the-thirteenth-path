@@ -83,3 +83,4 @@ Capítulos públicos actuales:
 - [Capítulo 77 — Las manos que volvieron a sus puestos](02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Capítulo 78 — La primera fila que se movía sin aliento](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Capítulo 79 — La ola que no se rompía aunque la cortaran](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [Capítulo 80 — La tierra que abandonaron para que el resto aguantara](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)

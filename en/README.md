@@ -123,3 +123,4 @@ Current public English release:
 - [Episode 113. What Remained After Hazran Closed](02_hazran/113_what_remained_after_hazran_closed.md)
 - [Episode 114. The First Thing They Did Not Know How to Name](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [Episode 115. The Direction That Began Before the Pursuit Came](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [Episode 116. What the Ship Revealed After It Vanished](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)

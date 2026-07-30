@@ -123,3 +123,4 @@
 - [第一百一十三章 哈兹兰关上之后仍然留下的东西](02_hazran/113_what_remained_after_hazran_closed.md)
 - [第一百一十四章 他们第一次抓住却还无法命名的东西](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [第一百一十五章 在追击到来之前，方向就先生出来了](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [第一百一十六章 飞船消失之后才显露的东西](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)

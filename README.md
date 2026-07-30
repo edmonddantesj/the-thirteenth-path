@@ -212,6 +212,7 @@ Each language directory is organized by arc:
 - [113. 하즈란이 닫힌 뒤에도 남은 것](ko/02_hazran/113_what_remained_after_hazran_closed.md)
 - [114. 그들은 아직 이름 붙일 수 없는 것을 처음 붙들었다](ko/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [115. 추격이 오기 전에 방향이 먼저 생기기 시작했다](ko/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [116. 사라진 뒤에야 우주선이 드러낸 것](ko/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 
 ### English
 
@@ -334,6 +335,7 @@ Each language directory is organized by arc:
 - [113. What Remained After Hazran Closed](en/02_hazran/113_what_remained_after_hazran_closed.md)
 - [114. The First Thing They Did Not Know How to Name](en/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [115. The Direction That Began Before the Pursuit Came](en/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [116. What the Ship Revealed After It Vanished](en/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 
 ### Japanese
 
@@ -456,6 +458,7 @@ Each language directory is organized by arc:
 - [第百十三話　閉じた後にも残ったもの](ja/02_hazran/113_what_remained_after_hazran_closed.md)
 - [第百十四話　名のないものを初めて掴んだ](ja/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [第百十五話　追撃より先に方向が生まれた](ja/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [第百十六話　消えた後に船が明かしたもの](ja/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 
 ### Chinese
 
@@ -578,6 +581,7 @@ Each language directory is organized by arc:
 - [第一百一十三章 哈兹兰关上之后仍然留下的东西](zh/02_hazran/113_what_remained_after_hazran_closed.md)
 - [第一百一十四章 他们第一次抓住却还无法命名的东西](zh/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [第一百一十五章 在追击到来之前，方向就先生出来了](zh/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [第一百一十六章 飞船消失之后才显露的东西](zh/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 
 ### French
 
@@ -700,6 +704,7 @@ Each language directory is organized by arc:
 - [Chapitre 113 — Ce qui resta après la fermeture de Hazran](fr/02_hazran/113_what_remained_after_hazran_closed.md)
 - [Chapitre 114 — La première chose qu’ils ne surent pas nommer](fr/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [Chapitre 115 — La direction qui commença avant l’arrivée de la poursuite](fr/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [Chapitre 116 — Ce que le vaisseau révéla après avoir disparu](fr/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 
 ### Spanish
 
@@ -786,7 +791,8 @@ Each language directory is organized by arc:
 - [Capítulo 77 — Las manos que volvieron a sus puestos](es/02_hazran/77_the_hands_that_went_back_to_their_places.md)
 - [Capítulo 78 — La primera fila que se movía sin aliento](es/02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Capítulo 79 — La ola que no se rompía aunque la cortaran](es/02_hazran/79_the_wave_that_did_not_break_when_cut.md)
+- [Capítulo 80 — La tierra que abandonaron para que el resto aguantara](es/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 
 ## Status
 
-Public archive currently published through Episode 115 in Korean, Episode 115 in English, Episode 115 in Japanese, Episode 115 in French, Episode 115 in Chinese (Simplified), and Episode 79 in Spanish.
+Public archive currently published through Episode 116 in Korean, Episode 116 in English, Episode 116 in Japanese, Episode 116 in French, Episode 116 in Chinese (Simplified), and Episode 80 in Spanish.

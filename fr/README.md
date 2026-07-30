@@ -123,3 +123,4 @@ Chapitres publics actuels :
 - [Chapitre 113 — Ce qui resta après la fermeture de Hazran](02_hazran/113_what_remained_after_hazran_closed.md)
 - [Chapitre 114 — La première chose qu’ils ne surent pas nommer](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [Chapitre 115 — La direction qui commença avant l’arrivée de la poursuite](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
+- [Chapitre 116 — Ce que le vaisseau révéla après avoir disparu](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
