@@ -84,3 +84,4 @@ Capítulos públicos actuales:
 - [Capítulo 78 — La primera fila que se movía sin aliento](02_hazran/78_the_first_line_that_moved_without_breath.md)
 - [Capítulo 79 — La ola que no se rompía aunque la cortaran](02_hazran/79_the_wave_that_did_not_break_when_cut.md)
 - [Capítulo 80 — La tierra que abandonaron para que el resto aguantara](02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
+- [Capítulo 81 — El frente que empezó dentro del mercado](02_hazran/81_the_line_that_began_inside_the_market.md)
