@@ -799,7 +799,8 @@ Each language directory is organized by arc:
 - [Capítulo 80 — La tierra que abandonaron para que el resto aguantara](es/02_hazran/80_the_ground_they_left_so_the_rest_could_hold.md)
 - [Capítulo 81 — El frente que empezó dentro del mercado](es/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Capítulo 82 — Los que sabían cómo romperlos](es/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
+- [Capítulo 83 — El momento en que el método dejó de bastar](es/02_hazran/83_the_method_stopped_being_enough.md)
 
 ## Status
 
-Public archive currently published through Episode 117 in Korean, Episode 117 in English, Episode 117 in Japanese, Episode 117 in French, Episode 117 in Chinese (Simplified), and Episode 82 in Spanish.
+Public archive currently published through Episode 117 in Korean, Episode 117 in English, Episode 117 in Japanese, Episode 117 in French, Episode 117 in Chinese (Simplified), and Episode 83 in Spanish.
