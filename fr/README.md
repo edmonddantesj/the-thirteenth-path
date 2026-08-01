@@ -125,3 +125,4 @@ Chapitres publics actuels :
 - [Chapitre 115 — La direction qui commença avant l’arrivée de la poursuite](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [Chapitre 116 — Ce que le vaisseau révéla après avoir disparu](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Chapitre 117 — Le premier air](02_hazran/117_first_air.md)
+- [Chapitre 118 — Un monde trop ordonné](02_hazran/118_too_ordered_world.md)

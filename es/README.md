@@ -87,3 +87,4 @@ Capítulos públicos actuales:
 - [Capítulo 81 — El frente que empezó dentro del mercado](02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Capítulo 82 — Los que sabían cómo romperlos](02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Capítulo 83 — El momento en que el método dejó de bastar](02_hazran/83_the_method_stopped_being_enough.md)
+- [Capítulo 84 — La orden que partió el mercado en dos](02_hazran/84_the_order_that_cut_the_market_in_two.md)

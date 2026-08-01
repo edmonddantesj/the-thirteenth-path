@@ -125,3 +125,4 @@
 - [第百十五話　追撃より先に方向が生まれた](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [第百十六話　消えた後に船が明かしたもの](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [第百十七話　まだ届かない空気](02_hazran/117_first_air.md)
+- [第百十八話　整いすぎた不穏](02_hazran/118_too_ordered_world.md)

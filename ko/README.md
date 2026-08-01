@@ -126,3 +126,4 @@
 - [115화. 추격이 오기 전에 방향이 먼저 생기기 시작했다](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [116화. 사라진 뒤에야 우주선이 드러낸 것](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117화. 닿지 않은 공기](02_hazran/117_first_air.md)
+- [118화. 정돈된 불길함](02_hazran/118_too_ordered_world.md)

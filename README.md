@@ -214,6 +214,7 @@ Each language directory is organized by arc:
 - [115. 추격이 오기 전에 방향이 먼저 생기기 시작했다](ko/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [116. 사라진 뒤에야 우주선이 드러낸 것](ko/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117. 닿지 않은 공기](ko/02_hazran/117_first_air.md)
+- [118. 정돈된 불길함](ko/02_hazran/118_too_ordered_world.md)
 
 ### English
 
@@ -338,6 +339,7 @@ Each language directory is organized by arc:
 - [115. The Direction That Began Before the Pursuit Came](en/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [116. What the Ship Revealed After It Vanished](en/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117. First Air](en/02_hazran/117_first_air.md)
+- [118. Too Ordered World](en/02_hazran/118_too_ordered_world.md)
 
 ### Japanese
 
@@ -462,6 +464,7 @@ Each language directory is organized by arc:
 - [第百十五話　追撃より先に方向が生まれた](ja/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [第百十六話　消えた後に船が明かしたもの](ja/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [第百十七話　まだ届かない空気](ja/02_hazran/117_first_air.md)
+- [第百十八話　整いすぎた不穏](ja/02_hazran/118_too_ordered_world.md)
 
 ### Chinese
 
@@ -586,6 +589,7 @@ Each language directory is organized by arc:
 - [第一百一十五章 在追击到来之前，方向就先生出来了](zh/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [第一百一十六章 飞船消失之后才显露的东西](zh/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [第一百一十七章 尚未触及的空气](zh/02_hazran/117_first_air.md)
+- [第一百一十八章 井然有序的不祥](zh/02_hazran/118_too_ordered_world.md)
 
 ### French
 
@@ -710,6 +714,7 @@ Each language directory is organized by arc:
 - [Chapitre 115 — La direction qui commença avant l’arrivée de la poursuite](fr/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [Chapitre 116 — Ce que le vaisseau révéla après avoir disparu](fr/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Chapitre 117 — Le premier air](fr/02_hazran/117_first_air.md)
+- [Chapitre 118 — Un monde trop ordonné](fr/02_hazran/118_too_ordered_world.md)
 
 ### Spanish
 
@@ -800,7 +805,8 @@ Each language directory is organized by arc:
 - [Capítulo 81 — El frente que empezó dentro del mercado](es/02_hazran/81_the_line_that_began_inside_the_market.md)
 - [Capítulo 82 — Los que sabían cómo romperlos](es/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Capítulo 83 — El momento en que el método dejó de bastar](es/02_hazran/83_the_method_stopped_being_enough.md)
+- [Capítulo 84 — La orden que partió el mercado en dos](es/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 
 ## Status
 
-Public archive currently published through Episode 117 in Korean, Episode 117 in English, Episode 117 in Japanese, Episode 117 in French, Episode 117 in Chinese (Simplified), and Episode 83 in Spanish.
+Public archive currently published through Episode 118 in Korean, Episode 118 in English, Episode 118 in Japanese, Episode 118 in French, Episode 118 in Chinese (Simplified), and Episode 84 in Spanish.
