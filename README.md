@@ -215,6 +215,7 @@ Each language directory is organized by arc:
 - [116. 사라진 뒤에야 우주선이 드러낸 것](ko/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117. 닿지 않은 공기](ko/02_hazran/117_first_air.md)
 - [118. 정돈된 불길함](ko/02_hazran/118_too_ordered_world.md)
+- [119. 읽고 들인 세계](ko/02_hazran/119_read_then_let_in.md)
 
 ### English
 
@@ -340,6 +341,7 @@ Each language directory is organized by arc:
 - [116. What the Ship Revealed After It Vanished](en/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117. First Air](en/02_hazran/117_first_air.md)
 - [118. Too Ordered World](en/02_hazran/118_too_ordered_world.md)
+- [119. Read, Then Let In](en/02_hazran/119_read_then_let_in.md)
 
 ### Japanese
 
@@ -465,6 +467,7 @@ Each language directory is organized by arc:
 - [第百十六話　消えた後に船が明かしたもの](ja/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [第百十七話　まだ届かない空気](ja/02_hazran/117_first_air.md)
 - [第百十八話　整いすぎた不穏](ja/02_hazran/118_too_ordered_world.md)
+- [第百十九話　読んでから通した世界](ja/02_hazran/119_read_then_let_in.md)
 
 ### Chinese
 
@@ -590,6 +593,7 @@ Each language directory is organized by arc:
 - [第一百一十六章 飞船消失之后才显露的东西](zh/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [第一百一十七章 尚未触及的空气](zh/02_hazran/117_first_air.md)
 - [第一百一十八章 井然有序的不祥](zh/02_hazran/118_too_ordered_world.md)
+- [第一百一十九章 被读取后纳入的世界](zh/02_hazran/119_read_then_let_in.md)
 
 ### French
 
@@ -715,6 +719,7 @@ Each language directory is organized by arc:
 - [Chapitre 116 — Ce que le vaisseau révéla après avoir disparu](fr/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Chapitre 117 — Le premier air](fr/02_hazran/117_first_air.md)
 - [Chapitre 118 — Un monde trop ordonné](fr/02_hazran/118_too_ordered_world.md)
+- [Chapitre 119 — Lire, puis laisser entrer](fr/02_hazran/119_read_then_let_in.md)
 
 ### Spanish
 
@@ -807,7 +812,8 @@ Each language directory is organized by arc:
 - [Capítulo 83 — El momento en que el método dejó de bastar](es/02_hazran/83_the_method_stopped_being_enough.md)
 - [Capítulo 84 — La orden que partió el mercado en dos](es/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Capítulo 85 — El instante en que se cerró la línea del corazón](es/02_hazran/85_the_moment_the_heartline_closed.md)
+- [Capítulo 86 — La defensa más allá de la línea del corazón rota](es/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 
 ## Status
 
-Public archive currently published through Episode 118 in Korean, Episode 118 in English, Episode 118 in Japanese, Episode 118 in French, Episode 118 in Chinese (Simplified), and Episode 85 in Spanish.
+Public archive currently published through Episode 119 in Korean, Episode 119 in English, Episode 119 in Japanese, Episode 119 in French, Episode 119 in Chinese (Simplified), and Episode 86 in Spanish.

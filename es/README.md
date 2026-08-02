@@ -89,3 +89,4 @@ Capítulos públicos actuales:
 - [Capítulo 83 — El momento en que el método dejó de bastar](02_hazran/83_the_method_stopped_being_enough.md)
 - [Capítulo 84 — La orden que partió el mercado en dos](02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Capítulo 85 — El instante en que se cerró la línea del corazón](02_hazran/85_the_moment_the_heartline_closed.md)
+- [Capítulo 86 — La defensa más allá de la línea del corazón rota](02_hazran/86_the_defense_beyond_the_broken_heartline.md)

@@ -127,3 +127,4 @@
 - [116화. 사라진 뒤에야 우주선이 드러낸 것](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [117화. 닿지 않은 공기](02_hazran/117_first_air.md)
 - [118화. 정돈된 불길함](02_hazran/118_too_ordered_world.md)
+- [119화. 읽고 들인 세계](02_hazran/119_read_then_let_in.md)
