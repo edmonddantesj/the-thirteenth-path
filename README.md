@@ -806,7 +806,8 @@ Each language directory is organized by arc:
 - [Capítulo 82 — Los que sabían cómo romperlos](es/02_hazran/82_the_ones_who_knew_how_to_break_them.md)
 - [Capítulo 83 — El momento en que el método dejó de bastar](es/02_hazran/83_the_method_stopped_being_enough.md)
 - [Capítulo 84 — La orden que partió el mercado en dos](es/02_hazran/84_the_order_that_cut_the_market_in_two.md)
+- [Capítulo 85 — El instante en que se cerró la línea del corazón](es/02_hazran/85_the_moment_the_heartline_closed.md)
 
 ## Status
 
-Public archive currently published through Episode 118 in Korean, Episode 118 in English, Episode 118 in Japanese, Episode 118 in French, Episode 118 in Chinese (Simplified), and Episode 84 in Spanish.
+Public archive currently published through Episode 118 in Korean, Episode 118 in English, Episode 118 in Japanese, Episode 118 in French, Episode 118 in Chinese (Simplified), and Episode 85 in Spanish.
