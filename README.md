@@ -813,7 +813,8 @@ Each language directory is organized by arc:
 - [Capítulo 84 — La orden que partió el mercado en dos](es/02_hazran/84_the_order_that_cut_the_market_in_two.md)
 - [Capítulo 85 — El instante en que se cerró la línea del corazón](es/02_hazran/85_the_moment_the_heartline_closed.md)
 - [Capítulo 86 — La defensa más allá de la línea del corazón rota](es/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
+- [Capítulo 87 — La lucha que ya no era para resistir](es/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 
 ## Status
 
-Public archive currently published through Episode 119 in Korean, Episode 119 in English, Episode 119 in Japanese, Episode 119 in French, Episode 119 in Chinese (Simplified), and Episode 86 in Spanish.
+Public archive currently published through Episode 119 in Korean, Episode 119 in English, Episode 119 in Japanese, Episode 119 in French, Episode 119 in Chinese (Simplified), and Episode 87 in Spanish.
