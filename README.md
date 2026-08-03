@@ -216,6 +216,7 @@ Each language directory is organized by arc:
 - [117. 닿지 않은 공기](ko/02_hazran/117_first_air.md)
 - [118. 정돈된 불길함](ko/02_hazran/118_too_ordered_world.md)
 - [119. 읽고 들인 세계](ko/02_hazran/119_read_then_let_in.md)
+- [120. 세라키온의 예의](ko/02_hazran/120_first_hosts.md)
 
 ### English
 
@@ -342,6 +343,7 @@ Each language directory is organized by arc:
 - [117. First Air](en/02_hazran/117_first_air.md)
 - [118. Too Ordered World](en/02_hazran/118_too_ordered_world.md)
 - [119. Read, Then Let In](en/02_hazran/119_read_then_let_in.md)
+- [120. First Hosts](en/02_hazran/120_first_hosts.md)
 
 ### Japanese
 
@@ -468,6 +470,7 @@ Each language directory is organized by arc:
 - [第百十七話　まだ届かない空気](ja/02_hazran/117_first_air.md)
 - [第百十八話　整いすぎた不穏](ja/02_hazran/118_too_ordered_world.md)
 - [第百十九話　読んでから通した世界](ja/02_hazran/119_read_then_let_in.md)
+- [第百二十話　セラキオンの礼儀](ja/02_hazran/120_first_hosts.md)
 
 ### Chinese
 
@@ -594,6 +597,7 @@ Each language directory is organized by arc:
 - [第一百一十七章 尚未触及的空气](zh/02_hazran/117_first_air.md)
 - [第一百一十八章 井然有序的不祥](zh/02_hazran/118_too_ordered_world.md)
 - [第一百一十九章 被读取后纳入的世界](zh/02_hazran/119_read_then_let_in.md)
+- [第一百二十章 瑟拉基昂的礼节](zh/02_hazran/120_first_hosts.md)
 
 ### French
 
@@ -720,6 +724,7 @@ Each language directory is organized by arc:
 - [Chapitre 117 — Le premier air](fr/02_hazran/117_first_air.md)
 - [Chapitre 118 — Un monde trop ordonné](fr/02_hazran/118_too_ordered_world.md)
 - [Chapitre 119 — Lire, puis laisser entrer](fr/02_hazran/119_read_then_let_in.md)
+- [Chapitre 120 — Les premiers hôtes](fr/02_hazran/120_first_hosts.md)
 
 ### Spanish
 
@@ -814,7 +819,8 @@ Each language directory is organized by arc:
 - [Capítulo 85 — El instante en que se cerró la línea del corazón](es/02_hazran/85_the_moment_the_heartline_closed.md)
 - [Capítulo 86 — La defensa más allá de la línea del corazón rota](es/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Capítulo 87 — La lucha que ya no era para resistir](es/02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [Capítulo 88 — Las primeras personas enviadas afuera](es/02_hazran/88_the_first_people_who_were_sent_out.md)
 
 ## Status
 
-Public archive currently published through Episode 119 in Korean, Episode 119 in English, Episode 119 in Japanese, Episode 119 in French, Episode 119 in Chinese (Simplified), and Episode 87 in Spanish.
+Public archive currently published through Episode 120 in Korean, Episode 120 in English, Episode 120 in Japanese, Episode 120 in French, Episode 120 in Chinese (Simplified), and Episode 88 in Spanish.

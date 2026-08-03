@@ -91,3 +91,4 @@ Capítulos públicos actuales:
 - [Capítulo 85 — El instante en que se cerró la línea del corazón](02_hazran/85_the_moment_the_heartline_closed.md)
 - [Capítulo 86 — La defensa más allá de la línea del corazón rota](02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Capítulo 87 — La lucha que ya no era para resistir](02_hazran/87_the_fight_was_no_longer_to_hold.md)
+- [Capítulo 88 — Las primeras personas enviadas afuera](02_hazran/88_the_first_people_who_were_sent_out.md)
