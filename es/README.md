@@ -93,3 +93,4 @@ Capítulos públicos actuales:
 - [Capítulo 87 — La lucha que ya no era para resistir](02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Capítulo 88 — Las primeras personas enviadas afuera](02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Capítulo 89 — El último espacio vivo se reunió junto al casco](02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [Capítulo 90 — El instante en que el peligro alcanzó el casco](02_hazran/90_the_moment_danger_reached_the_hull.md)

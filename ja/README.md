@@ -128,3 +128,4 @@
 - [第百十八話　整いすぎた不穏](02_hazran/118_too_ordered_world.md)
 - [第百十九話　読んでから通した世界](02_hazran/119_read_then_let_in.md)
 - [第百二十話　セラキオンの礼儀](02_hazran/120_first_hosts.md)
+- [第百二十一話　無事に見える人たち](02_hazran/121_happy_but_wrong.md)

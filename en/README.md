@@ -128,3 +128,4 @@ Current public English release:
 - [Episode 118. Too Ordered World](02_hazran/118_too_ordered_world.md)
 - [Episode 119. Read, Then Let In](02_hazran/119_read_then_let_in.md)
 - [Episode 120. First Hosts](02_hazran/120_first_hosts.md)
+- [Episode 121. Happy but Wrong](02_hazran/121_happy_but_wrong.md)

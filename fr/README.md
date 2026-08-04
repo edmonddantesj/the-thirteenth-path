@@ -128,3 +128,4 @@ Chapitres publics actuels :
 - [Chapitre 118 — Un monde trop ordonné](02_hazran/118_too_ordered_world.md)
 - [Chapitre 119 — Lire, puis laisser entrer](02_hazran/119_read_then_let_in.md)
 - [Chapitre 120 — Les premiers hôtes](02_hazran/120_first_hosts.md)
+- [Chapitre 121 — Heureux, mais faux](02_hazran/121_happy_but_wrong.md)

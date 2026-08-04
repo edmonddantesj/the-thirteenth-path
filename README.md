@@ -217,6 +217,7 @@ Each language directory is organized by arc:
 - [118. 정돈된 불길함](ko/02_hazran/118_too_ordered_world.md)
 - [119. 읽고 들인 세계](ko/02_hazran/119_read_then_let_in.md)
 - [120. 세라키온의 예의](ko/02_hazran/120_first_hosts.md)
+- [121. 멀쩡해 보이는 사람들](ko/02_hazran/121_happy_but_wrong.md)
 
 ### English
 
@@ -344,6 +345,7 @@ Each language directory is organized by arc:
 - [118. Too Ordered World](en/02_hazran/118_too_ordered_world.md)
 - [119. Read, Then Let In](en/02_hazran/119_read_then_let_in.md)
 - [120. First Hosts](en/02_hazran/120_first_hosts.md)
+- [121. Happy but Wrong](en/02_hazran/121_happy_but_wrong.md)
 
 ### Japanese
 
@@ -471,6 +473,7 @@ Each language directory is organized by arc:
 - [第百十八話　整いすぎた不穏](ja/02_hazran/118_too_ordered_world.md)
 - [第百十九話　読んでから通した世界](ja/02_hazran/119_read_then_let_in.md)
 - [第百二十話　セラキオンの礼儀](ja/02_hazran/120_first_hosts.md)
+- [第百二十一話　無事に見える人たち](ja/02_hazran/121_happy_but_wrong.md)
 
 ### Chinese
 
@@ -598,6 +601,7 @@ Each language directory is organized by arc:
 - [第一百一十八章 井然有序的不祥](zh/02_hazran/118_too_ordered_world.md)
 - [第一百一十九章 被读取后纳入的世界](zh/02_hazran/119_read_then_let_in.md)
 - [第一百二十章 瑟拉基昂的礼节](zh/02_hazran/120_first_hosts.md)
+- [第一百二十一章 看上去毫无异样的人们](zh/02_hazran/121_happy_but_wrong.md)
 
 ### French
 
@@ -725,6 +729,7 @@ Each language directory is organized by arc:
 - [Chapitre 118 — Un monde trop ordonné](fr/02_hazran/118_too_ordered_world.md)
 - [Chapitre 119 — Lire, puis laisser entrer](fr/02_hazran/119_read_then_let_in.md)
 - [Chapitre 120 — Les premiers hôtes](fr/02_hazran/120_first_hosts.md)
+- [Chapitre 121 — Heureux, mais faux](fr/02_hazran/121_happy_but_wrong.md)
 
 ### Spanish
 
@@ -821,7 +826,8 @@ Each language directory is organized by arc:
 - [Capítulo 87 — La lucha que ya no era para resistir](es/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Capítulo 88 — Las primeras personas enviadas afuera](es/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Capítulo 89 — El último espacio vivo se reunió junto al casco](es/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
+- [Capítulo 90 — El instante en que el peligro alcanzó el casco](es/02_hazran/90_the_moment_danger_reached_the_hull.md)
 
 ## Status
 
-Public archive currently published through Episode 120 in Korean, Episode 120 in English, Episode 120 in Japanese, Episode 120 in French, Episode 120 in Chinese (Simplified), and Episode 89 in Spanish.
+Public archive currently published through Episode 121 in Korean, Episode 121 in English, Episode 121 in Japanese, Episode 121 in French, Episode 121 in Chinese (Simplified), and Episode 90 in Spanish.
