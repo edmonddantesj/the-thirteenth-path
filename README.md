@@ -820,7 +820,8 @@ Each language directory is organized by arc:
 - [Capítulo 86 — La defensa más allá de la línea del corazón rota](es/02_hazran/86_the_defense_beyond_the_broken_heartline.md)
 - [Capítulo 87 — La lucha que ya no era para resistir](es/02_hazran/87_the_fight_was_no_longer_to_hold.md)
 - [Capítulo 88 — Las primeras personas enviadas afuera](es/02_hazran/88_the_first_people_who_were_sent_out.md)
+- [Capítulo 89 — El último espacio vivo se reunió junto al casco](es/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 
 ## Status
 
-Public archive currently published through Episode 120 in Korean, Episode 120 in English, Episode 120 in Japanese, Episode 120 in French, Episode 120 in Chinese (Simplified), and Episode 88 in Spanish.
+Public archive currently published through Episode 120 in Korean, Episode 120 in English, Episode 120 in Japanese, Episode 120 in French, Episode 120 in Chinese (Simplified), and Episode 89 in Spanish.
