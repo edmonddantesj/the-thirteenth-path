@@ -827,7 +827,8 @@ Each language directory is organized by arc:
 - [Capítulo 88 — Las primeras personas enviadas afuera](es/02_hazran/88_the_first_people_who_were_sent_out.md)
 - [Capítulo 89 — El último espacio vivo se reunió junto al casco](es/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Capítulo 90 — El instante en que el peligro alcanzó el casco](es/02_hazran/90_the_moment_danger_reached_the_hull.md)
+- [Capítulo 91 — La primera salida iniciada bajo el fuego](es/02_hazran/91_the_first_departure_under_fire.md)
 
 ## Status
 
-Public archive currently published through Episode 121 in Korean, Episode 121 in English, Episode 121 in Japanese, Episode 121 in French, Episode 121 in Chinese (Simplified), and Episode 90 in Spanish.
+Public archive currently published through Episode 121 in Korean, Episode 121 in English, Episode 121 in Japanese, Episode 121 in French, Episode 121 in Chinese (Simplified), and Episode 91 in Spanish.
