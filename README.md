@@ -218,6 +218,7 @@ Each language directory is organized by arc:
 - [119. 읽고 들인 세계](ko/02_hazran/119_read_then_let_in.md)
 - [120. 세라키온의 예의](ko/02_hazran/120_first_hosts.md)
 - [121. 멀쩡해 보이는 사람들](ko/02_hazran/121_happy_but_wrong.md)
+- [122. 말 전에 손부터](ko/02_hazran/122_hands_before_words.md)
 
 ### English
 
@@ -346,6 +347,7 @@ Each language directory is organized by arc:
 - [119. Read, Then Let In](en/02_hazran/119_read_then_let_in.md)
 - [120. First Hosts](en/02_hazran/120_first_hosts.md)
 - [121. Happy but Wrong](en/02_hazran/121_happy_but_wrong.md)
+- [122. Hands Before Words](en/02_hazran/122_hands_before_words.md)
 
 ### Japanese
 
@@ -474,6 +476,7 @@ Each language directory is organized by arc:
 - [第百十九話　読んでから通した世界](ja/02_hazran/119_read_then_let_in.md)
 - [第百二十話　セラキオンの礼儀](ja/02_hazran/120_first_hosts.md)
 - [第百二十一話　無事に見える人たち](ja/02_hazran/121_happy_but_wrong.md)
+- [第百二十二話　言葉より先に手を](ja/02_hazran/122_hands_before_words.md)
 
 ### Chinese
 
@@ -602,6 +605,7 @@ Each language directory is organized by arc:
 - [第一百一十九章 被读取后纳入的世界](zh/02_hazran/119_read_then_let_in.md)
 - [第一百二十章 瑟拉基昂的礼节](zh/02_hazran/120_first_hosts.md)
 - [第一百二十一章 看上去毫无异样的人们](zh/02_hazran/121_happy_but_wrong.md)
+- [第一百二十二章 话之前，先是手](zh/02_hazran/122_hands_before_words.md)
 
 ### French
 
@@ -730,6 +734,7 @@ Each language directory is organized by arc:
 - [Chapitre 119 — Lire, puis laisser entrer](fr/02_hazran/119_read_then_let_in.md)
 - [Chapitre 120 — Les premiers hôtes](fr/02_hazran/120_first_hosts.md)
 - [Chapitre 121 — Heureux, mais faux](fr/02_hazran/121_happy_but_wrong.md)
+- [Chapitre 122 — Les mains avant les mots](fr/02_hazran/122_hands_before_words.md)
 
 ### Spanish
 
@@ -828,7 +833,8 @@ Each language directory is organized by arc:
 - [Capítulo 89 — El último espacio vivo se reunió junto al casco](es/02_hazran/89_the_last_live_space_gathered_around_the_hull.md)
 - [Capítulo 90 — El instante en que el peligro alcanzó el casco](es/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Capítulo 91 — La primera salida iniciada bajo el fuego](es/02_hazran/91_the_first_departure_under_fire.md)
+- [Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron](es/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 
 ## Status
 
-Public archive currently published through Episode 121 in Korean, Episode 121 in English, Episode 121 in Japanese, Episode 121 in French, Episode 121 in Chinese (Simplified), and Episode 91 in Spanish.
+Public archive currently published through Episode 122 in Korean, Episode 122 in English, Episode 122 in Japanese, Episode 122 in French, Episode 122 in Chinese (Simplified), and Episode 92 in Spanish.

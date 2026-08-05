@@ -129,3 +129,4 @@ Current public English release:
 - [Episode 119. Read, Then Let In](02_hazran/119_read_then_let_in.md)
 - [Episode 120. First Hosts](02_hazran/120_first_hosts.md)
 - [Episode 121. Happy but Wrong](02_hazran/121_happy_but_wrong.md)
+- [Episode 122. Hands Before Words](02_hazran/122_hands_before_words.md)

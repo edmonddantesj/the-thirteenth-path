@@ -130,3 +130,4 @@
 - [119화. 읽고 들인 세계](02_hazran/119_read_then_let_in.md)
 - [120화. 세라키온의 예의](02_hazran/120_first_hosts.md)
 - [121화. 멀쩡해 보이는 사람들](02_hazran/121_happy_but_wrong.md)
+- [122화. 말 전에 손부터](02_hazran/122_hands_before_words.md)
