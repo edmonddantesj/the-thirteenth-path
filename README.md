@@ -834,7 +834,8 @@ Each language directory is organized by arc:
 - [Capítulo 90 — El instante en que el peligro alcanzó el casco](es/02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Capítulo 91 — La primera salida iniciada bajo el fuego](es/02_hazran/91_the_first_departure_under_fire.md)
 - [Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron](es/02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [Capítulo 93 — Lo más pesado que llegó después](es/02_hazran/93_the_heavier_one_that_arrived_next.md)
 
 ## Status
 
-Public archive currently published through Episode 122 in Korean, Episode 122 in English, Episode 122 in Japanese, Episode 122 in French, Episode 122 in Chinese (Simplified), and Episode 92 in Spanish.
+Public archive currently published through Episode 122 in Korean, Episode 122 in English, Episode 122 in Japanese, Episode 122 in French, Episode 122 in Chinese (Simplified), and Episode 93 in Spanish.

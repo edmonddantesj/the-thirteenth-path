@@ -96,3 +96,4 @@ Capítulos públicos actuales:
 - [Capítulo 90 — El instante en que el peligro alcanzó el casco](02_hazran/90_the_moment_danger_reached_the_hull.md)
 - [Capítulo 91 — La primera salida iniciada bajo el fuego](02_hazran/91_the_first_departure_under_fire.md)
 - [Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron](02_hazran/92_the_weight_left_on_those_who_stayed.md)
+- [Capítulo 93 — Lo más pesado que llegó después](02_hazran/93_the_heavier_one_that_arrived_next.md)
