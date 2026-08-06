@@ -130,3 +130,4 @@
 - [第一百二十章 瑟拉基昂的礼节](02_hazran/120_first_hosts.md)
 - [第一百二十一章 看上去毫无异样的人们](02_hazran/121_happy_but_wrong.md)
 - [第一百二十二章 话之前，先是手](02_hazran/122_hands_before_words.md)
+- [第一百二十三章 想把一切定下来的世界](02_hazran/123_defining_them.md)

@@ -130,3 +130,4 @@ Current public English release:
 - [Episode 120. First Hosts](02_hazran/120_first_hosts.md)
 - [Episode 121. Happy but Wrong](02_hazran/121_happy_but_wrong.md)
 - [Episode 122. Hands Before Words](02_hazran/122_hands_before_words.md)
+- [Episode 123. Defining Them](02_hazran/123_defining_them.md)

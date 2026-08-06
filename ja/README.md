@@ -130,3 +130,4 @@
 - [第百二十話　セラキオンの礼儀](02_hazran/120_first_hosts.md)
 - [第百二十一話　無事に見える人たち](02_hazran/121_happy_but_wrong.md)
 - [第百二十二話　言葉より先に手を](02_hazran/122_hands_before_words.md)
+- [第百二十三話　決めてしまおうとする世界](02_hazran/123_defining_them.md)
