@@ -131,3 +131,4 @@ Current public English release:
 - [Episode 121. Happy but Wrong](02_hazran/121_happy_but_wrong.md)
 - [Episode 122. Hands Before Words](02_hazran/122_hands_before_words.md)
 - [Episode 123. Defining Them](02_hazran/123_defining_them.md)
+- [Episode 124. Kindness as Sorting](02_hazran/124_kindness_as_sorting.md)

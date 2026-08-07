@@ -220,6 +220,7 @@ Each language directory is organized by arc:
 - [121. 멀쩡해 보이는 사람들](ko/02_hazran/121_happy_but_wrong.md)
 - [122. 말 전에 손부터](ko/02_hazran/122_hands_before_words.md)
 - [123. 정해 두려는 세계](ko/02_hazran/123_defining_them.md)
+- [124. 분류가 된 친절](ko/02_hazran/124_kindness_as_sorting.md)
 
 ### English
 
@@ -350,6 +351,7 @@ Each language directory is organized by arc:
 - [121. Happy but Wrong](en/02_hazran/121_happy_but_wrong.md)
 - [122. Hands Before Words](en/02_hazran/122_hands_before_words.md)
 - [123. Defining Them](en/02_hazran/123_defining_them.md)
+- [124. Kindness as Sorting](en/02_hazran/124_kindness_as_sorting.md)
 
 ### Japanese
 
@@ -480,6 +482,7 @@ Each language directory is organized by arc:
 - [第百二十一話　無事に見える人たち](ja/02_hazran/121_happy_but_wrong.md)
 - [第百二十二話　言葉より先に手を](ja/02_hazran/122_hands_before_words.md)
 - [第百二十三話　決めてしまおうとする世界](ja/02_hazran/123_defining_them.md)
+- [第百二十四話　分類になった親切](ja/02_hazran/124_kindness_as_sorting.md)
 
 ### Chinese
 
@@ -610,6 +613,7 @@ Each language directory is organized by arc:
 - [第一百二十一章 看上去毫无异样的人们](zh/02_hazran/121_happy_but_wrong.md)
 - [第一百二十二章 话之前，先是手](zh/02_hazran/122_hands_before_words.md)
 - [第一百二十三章 想把一切定下来的世界](zh/02_hazran/123_defining_them.md)
+- [第一百二十四章 成了分类的善意](zh/02_hazran/124_kindness_as_sorting.md)
 
 ### French
 
@@ -740,6 +744,7 @@ Each language directory is organized by arc:
 - [Chapitre 121 — Heureux, mais faux](fr/02_hazran/121_happy_but_wrong.md)
 - [Chapitre 122 — Les mains avant les mots](fr/02_hazran/122_hands_before_words.md)
 - [Chapitre 123 — Les définir](fr/02_hazran/123_defining_them.md)
+- [Chapitre 124 — La bienveillance comme classement](fr/02_hazran/124_kindness_as_sorting.md)
 
 ### Spanish
 
@@ -842,7 +847,8 @@ Each language directory is organized by arc:
 - [Capítulo 93 — Lo más pesado que llegó después](es/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [Capítulo 94 — La línea que se dobló antes de romperse](es/02_hazran/94_the_line_bent_before_it_broke.md)
 - [Capítulo 95 — La línea aguantó pero la sangre quedó](es/02_hazran/95_the_line_held_but_the_blood_remained.md)
+- [Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino](es/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 
 ## Status
 
-Public archive currently published through Episode 123 in Korean, Episode 123 in English, Episode 123 in Japanese, Episode 123 in French, Episode 123 in Chinese (Simplified), and Episode 95 in Spanish.
+Public archive currently published through Episode 124 in Korean, Episode 124 in English, Episode 124 in Japanese, Episode 124 in French, Episode 124 in Chinese (Simplified), and Episode 96 in Spanish.
