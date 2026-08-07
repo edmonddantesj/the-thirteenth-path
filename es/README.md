@@ -98,3 +98,4 @@ Capítulos públicos actuales:
 - [Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron](02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [Capítulo 93 — Lo más pesado que llegó después](02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [Capítulo 94 — La línea que se dobló antes de romperse](02_hazran/94_the_line_bent_before_it_broke.md)
+- [Capítulo 95 — La línea aguantó pero la sangre quedó](02_hazran/95_the_line_held_but_the_blood_remained.md)

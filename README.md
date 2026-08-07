@@ -841,7 +841,8 @@ Each language directory is organized by arc:
 - [Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron](es/02_hazran/92_the_weight_left_on_those_who_stayed.md)
 - [Capítulo 93 — Lo más pesado que llegó después](es/02_hazran/93_the_heavier_one_that_arrived_next.md)
 - [Capítulo 94 — La línea que se dobló antes de romperse](es/02_hazran/94_the_line_bent_before_it_broke.md)
+- [Capítulo 95 — La línea aguantó pero la sangre quedó](es/02_hazran/95_the_line_held_but_the_blood_remained.md)
 
 ## Status
 
-Public archive currently published through Episode 123 in Korean, Episode 123 in English, Episode 123 in Japanese, Episode 123 in French, Episode 123 in Chinese (Simplified), and Episode 94 in Spanish.
+Public archive currently published through Episode 123 in Korean, Episode 123 in English, Episode 123 in Japanese, Episode 123 in French, Episode 123 in Chinese (Simplified), and Episode 95 in Spanish.
