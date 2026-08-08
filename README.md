@@ -848,7 +848,8 @@ Each language directory is organized by arc:
 - [Capítulo 94 — La línea que se dobló antes de romperse](es/02_hazran/94_the_line_bent_before_it_broke.md)
 - [Capítulo 95 — La línea aguantó pero la sangre quedó](es/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino](es/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [Capítulo 97 — Las manos se contaban ahora de otra manera](es/02_hazran/97_the_hands_were_counted_differently_now.md)
 
 ## Status
 
-Public archive currently published through Episode 124 in Korean, Episode 124 in English, Episode 124 in Japanese, Episode 124 in French, Episode 124 in Chinese (Simplified), and Episode 96 in Spanish.
+Public archive currently published through Episode 124 in Korean, Episode 124 in English, Episode 124 in Japanese, Episode 124 in French, Episode 124 in Chinese (Simplified), and Episode 97 in Spanish.

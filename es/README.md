@@ -100,3 +100,4 @@ Capítulos públicos actuales:
 - [Capítulo 94 — La línea que se dobló antes de romperse](02_hazran/94_the_line_bent_before_it_broke.md)
 - [Capítulo 95 — La línea aguantó pero la sangre quedó](02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino](02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
+- [Capítulo 97 — Las manos se contaban ahora de otra manera](02_hazran/97_the_hands_were_counted_differently_now.md)
