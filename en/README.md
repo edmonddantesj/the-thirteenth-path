@@ -132,3 +132,4 @@ Current public English release:
 - [Episode 122. Hands Before Words](02_hazran/122_hands_before_words.md)
 - [Episode 123. Defining Them](02_hazran/123_defining_them.md)
 - [Episode 124. Kindness as Sorting](02_hazran/124_kindness_as_sorting.md)
+- [Episode 125. Stolen Voice](02_hazran/125_stolen_voice.md)

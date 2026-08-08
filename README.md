@@ -221,6 +221,7 @@ Each language directory is organized by arc:
 - [122. 말 전에 손부터](ko/02_hazran/122_hands_before_words.md)
 - [123. 정해 두려는 세계](ko/02_hazran/123_defining_them.md)
 - [124. 분류가 된 친절](ko/02_hazran/124_kindness_as_sorting.md)
+- [125. 훔친 목소리의 도움](ko/02_hazran/125_stolen_voice.md)
 
 ### English
 
@@ -352,6 +353,7 @@ Each language directory is organized by arc:
 - [122. Hands Before Words](en/02_hazran/122_hands_before_words.md)
 - [123. Defining Them](en/02_hazran/123_defining_them.md)
 - [124. Kindness as Sorting](en/02_hazran/124_kindness_as_sorting.md)
+- [125. Stolen Voice](en/02_hazran/125_stolen_voice.md)
 
 ### Japanese
 
@@ -483,6 +485,7 @@ Each language directory is organized by arc:
 - [第百二十二話　言葉より先に手を](ja/02_hazran/122_hands_before_words.md)
 - [第百二十三話　決めてしまおうとする世界](ja/02_hazran/123_defining_them.md)
 - [第百二十四話　分類になった親切](ja/02_hazran/124_kindness_as_sorting.md)
+- [第百二十五話　盗んだ声の助け](ja/02_hazran/125_stolen_voice.md)
 
 ### Chinese
 
@@ -614,6 +617,7 @@ Each language directory is organized by arc:
 - [第一百二十二章 话之前，先是手](zh/02_hazran/122_hands_before_words.md)
 - [第一百二十三章 想把一切定下来的世界](zh/02_hazran/123_defining_them.md)
 - [第一百二十四章 成了分类的善意](zh/02_hazran/124_kindness_as_sorting.md)
+- [第一百二十五章 偷来的嗓音](zh/02_hazran/125_stolen_voice.md)
 
 ### French
 
@@ -745,6 +749,7 @@ Each language directory is organized by arc:
 - [Chapitre 122 — Les mains avant les mots](fr/02_hazran/122_hands_before_words.md)
 - [Chapitre 123 — Les définir](fr/02_hazran/123_defining_them.md)
 - [Chapitre 124 — La bienveillance comme classement](fr/02_hazran/124_kindness_as_sorting.md)
+- [Chapitre 125 — La voix volée](fr/02_hazran/125_stolen_voice.md)
 
 ### Spanish
 
@@ -849,7 +854,8 @@ Each language directory is organized by arc:
 - [Capítulo 95 — La línea aguantó pero la sangre quedó](es/02_hazran/95_the_line_held_but_the_blood_remained.md)
 - [Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino](es/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [Capítulo 97 — Las manos se contaban ahora de otra manera](es/02_hazran/97_the_hands_were_counted_differently_now.md)
+- [Capítulo 98 — La velocidad que hizo falta empezó a quebrarlos primero](es/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 
 ## Status
 
-Public archive currently published through Episode 124 in Korean, Episode 124 in English, Episode 124 in Japanese, Episode 124 in French, Episode 124 in Chinese (Simplified), and Episode 97 in Spanish.
+Public archive currently published through Episode 125 in Korean, Episode 125 in English, Episode 125 in Japanese, Episode 125 in French, Episode 125 in Chinese (Simplified), and Episode 98 in Spanish.

@@ -132,3 +132,4 @@ Chapitres publics actuels :
 - [Chapitre 122 — Les mains avant les mots](02_hazran/122_hands_before_words.md)
 - [Chapitre 123 — Les définir](02_hazran/123_defining_them.md)
 - [Chapitre 124 — La bienveillance comme classement](02_hazran/124_kindness_as_sorting.md)
+- [Chapitre 125 — La voix volée](02_hazran/125_stolen_voice.md)

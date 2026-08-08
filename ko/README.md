@@ -133,3 +133,4 @@
 - [122화. 말 전에 손부터](02_hazran/122_hands_before_words.md)
 - [123화. 정해 두려는 세계](02_hazran/123_defining_them.md)
 - [124화. 분류가 된 친절](02_hazran/124_kindness_as_sorting.md)
+- [125화. 훔친 목소리의 도움](02_hazran/125_stolen_voice.md)

@@ -132,3 +132,4 @@
 - [第百二十二話　言葉より先に手を](02_hazran/122_hands_before_words.md)
 - [第百二十三話　決めてしまおうとする世界](02_hazran/123_defining_them.md)
 - [第百二十四話　分類になった親切](02_hazran/124_kindness_as_sorting.md)
+- [第百二十五話　盗んだ声の助け](02_hazran/125_stolen_voice.md)
