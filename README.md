@@ -855,7 +855,8 @@ Each language directory is organized by arc:
 - [Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino](es/02_hazran/96_the_time_bought_with_blood_grew_thinner.md)
 - [Capítulo 97 — Las manos se contaban ahora de otra manera](es/02_hazran/97_the_hands_were_counted_differently_now.md)
 - [Capítulo 98 — La velocidad que hizo falta empezó a quebrarlos primero](es/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
+- [Capítulo 99 — El instante justo antes de que algo finalmente se rompa](es/02_hazran/99_the_moment_before_something_finally_breaks.md)
 
 ## Status
 
-Public archive currently published through Episode 125 in Korean, Episode 125 in English, Episode 125 in Japanese, Episode 125 in French, Episode 125 in Chinese (Simplified), and Episode 98 in Spanish.
+Public archive currently published through Episode 125 in Korean, Episode 125 in English, Episode 125 in Japanese, Episode 125 in French, Episode 125 in Chinese (Simplified), and Episode 99 in Spanish.
