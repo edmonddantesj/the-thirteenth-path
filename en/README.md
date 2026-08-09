@@ -133,3 +133,4 @@ Current public English release:
 - [Episode 123. Defining Them](02_hazran/123_defining_them.md)
 - [Episode 124. Kindness as Sorting](02_hazran/124_kindness_as_sorting.md)
 - [Episode 125. Stolen Voice](02_hazran/125_stolen_voice.md)
+- [Episode 126. First Breath](02_hazran/126_first_breath.md)

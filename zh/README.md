@@ -133,3 +133,4 @@
 - [第一百二十三章 想把一切定下来的世界](02_hazran/123_defining_them.md)
 - [第一百二十四章 成了分类的善意](02_hazran/124_kindness_as_sorting.md)
 - [第一百二十五章 偷来的嗓音](02_hazran/125_stolen_voice.md)
+- [第一百二十六章 能喘口气的地方](02_hazran/126_first_breath.md)

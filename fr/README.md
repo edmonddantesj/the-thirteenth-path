@@ -133,3 +133,4 @@ Chapitres publics actuels :
 - [Chapitre 123 — Les définir](02_hazran/123_defining_them.md)
 - [Chapitre 124 — La bienveillance comme classement](02_hazran/124_kindness_as_sorting.md)
 - [Chapitre 125 — La voix volée](02_hazran/125_stolen_voice.md)
+- [Chapitre 126 — Le premier souffle](02_hazran/126_first_breath.md)
