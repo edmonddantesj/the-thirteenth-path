@@ -105,3 +105,4 @@ Capítulos públicos actuales:
 - [Capítulo 99 — El instante justo antes de que algo finalmente se rompa](02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Capítulo 100 — Lo que finalmente se rompió](02_hazran/100_what_finally_broke.md)
 - [Capítulo 101 — Lo que quedó después de que se rompiera la última ilusión](02_hazran/101_after_the_last_illusion_broke.md)
+- [Capítulo 102 — Cada mano que iba quedando se volvía más cara](02_hazran/102_the_fewer_hands_became_more_expensive.md)

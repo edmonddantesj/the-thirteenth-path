@@ -223,6 +223,7 @@ Each language directory is organized by arc:
 - [124. 분류가 된 친절](ko/02_hazran/124_kindness_as_sorting.md)
 - [125. 훔친 목소리의 도움](ko/02_hazran/125_stolen_voice.md)
 - [126. 숨 쉴 수 있는 곳](ko/02_hazran/126_first_breath.md)
+- [127. 구해도 믿지 않는다](ko/02_hazran/127_rescue_not_trust.md)
 
 ### English
 
@@ -356,6 +357,7 @@ Each language directory is organized by arc:
 - [124. Kindness as Sorting](en/02_hazran/124_kindness_as_sorting.md)
 - [125. Stolen Voice](en/02_hazran/125_stolen_voice.md)
 - [126. First Breath](en/02_hazran/126_first_breath.md)
+- [127. Rescue, Not Trust](en/02_hazran/127_rescue_not_trust.md)
 
 ### Japanese
 
@@ -489,6 +491,7 @@ Each language directory is organized by arc:
 - [第百二十四話　分類になった親切](ja/02_hazran/124_kindness_as_sorting.md)
 - [第百二十五話　盗んだ声の助け](ja/02_hazran/125_stolen_voice.md)
 - [第百二十六話　息のできる場所](ja/02_hazran/126_first_breath.md)
+- [第百二十七話　救っても信じはしない](ja/02_hazran/127_rescue_not_trust.md)
 
 ### Chinese
 
@@ -622,6 +625,7 @@ Each language directory is organized by arc:
 - [第一百二十四章 成了分类的善意](zh/02_hazran/124_kindness_as_sorting.md)
 - [第一百二十五章 偷来的嗓音](zh/02_hazran/125_stolen_voice.md)
 - [第一百二十六章 能喘口气的地方](zh/02_hazran/126_first_breath.md)
+- [第一百二十七章 救，却不信](zh/02_hazran/127_rescue_not_trust.md)
 
 ### French
 
@@ -755,6 +759,7 @@ Each language directory is organized by arc:
 - [Chapitre 124 — La bienveillance comme classement](fr/02_hazran/124_kindness_as_sorting.md)
 - [Chapitre 125 — La voix volée](fr/02_hazran/125_stolen_voice.md)
 - [Chapitre 126 — Le premier souffle](fr/02_hazran/126_first_breath.md)
+- [Chapitre 127 — Sauvetage, pas confiance](fr/02_hazran/127_rescue_not_trust.md)
 
 ### Spanish
 
@@ -863,7 +868,8 @@ Each language directory is organized by arc:
 - [Capítulo 99 — El instante justo antes de que algo finalmente se rompa](es/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Capítulo 100 — Lo que finalmente se rompió](es/02_hazran/100_what_finally_broke.md)
 - [Capítulo 101 — Lo que quedó después de que se rompiera la última ilusión](es/02_hazran/101_after_the_last_illusion_broke.md)
+- [Capítulo 102 — Cada mano que iba quedando se volvía más cara](es/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 
 ## Status
 
-Public archive currently published through Episode 126 in Korean, Episode 126 in English, Episode 126 in Japanese, Episode 126 in French, Episode 126 in Chinese (Simplified), and Episode 101 in Spanish.
+Public archive currently published through Episode 127 in Korean, Episode 127 in English, Episode 127 in Japanese, Episode 127 in French, Episode 127 in Chinese (Simplified), and Episode 102 in Spanish.
