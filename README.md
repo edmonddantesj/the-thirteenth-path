@@ -862,7 +862,8 @@ Each language directory is organized by arc:
 - [Capítulo 98 — La velocidad que hizo falta empezó a quebrarlos primero](es/02_hazran/98_the_speed_they_needed_began_to_break_them.md)
 - [Capítulo 99 — El instante justo antes de que algo finalmente se rompa](es/02_hazran/99_the_moment_before_something_finally_breaks.md)
 - [Capítulo 100 — Lo que finalmente se rompió](es/02_hazran/100_what_finally_broke.md)
+- [Capítulo 101 — Lo que quedó después de que se rompiera la última ilusión](es/02_hazran/101_after_the_last_illusion_broke.md)
 
 ## Status
 
-Public archive currently published through Episode 126 in Korean, Episode 126 in English, Episode 126 in Japanese, Episode 126 in French, Episode 126 in Chinese (Simplified), and Episode 100 in Spanish.
+Public archive currently published through Episode 126 in Korean, Episode 126 in English, Episode 126 in Japanese, Episode 126 in French, Episode 126 in Chinese (Simplified), and Episode 101 in Spanish.
