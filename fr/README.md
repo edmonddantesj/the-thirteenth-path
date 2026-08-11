@@ -135,3 +135,4 @@ Chapitres publics actuels :
 - [Chapitre 125 — La voix volée](02_hazran/125_stolen_voice.md)
 - [Chapitre 126 — Le premier souffle](02_hazran/126_first_breath.md)
 - [Chapitre 127 — Sauvetage, pas confiance](02_hazran/127_rescue_not_trust.md)
+- [Chapitre 128 — Les gardiens de la mémoire](02_hazran/128_keepers_of_memory.md)

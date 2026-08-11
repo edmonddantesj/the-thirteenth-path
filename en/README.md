@@ -135,3 +135,4 @@ Current public English release:
 - [Episode 125. Stolen Voice](02_hazran/125_stolen_voice.md)
 - [Episode 126. First Breath](02_hazran/126_first_breath.md)
 - [Episode 127. Rescue, Not Trust](02_hazran/127_rescue_not_trust.md)
+- [Episode 128. Keepers of Memory](02_hazran/128_keepers_of_memory.md)

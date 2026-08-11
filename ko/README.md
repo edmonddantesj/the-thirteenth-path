@@ -136,3 +136,4 @@
 - [125화. 훔친 목소리의 도움](02_hazran/125_stolen_voice.md)
 - [126화. 숨 쉴 수 있는 곳](02_hazran/126_first_breath.md)
 - [127화. 구해도 믿지 않는다](02_hazran/127_rescue_not_trust.md)
+- [128화. 기억을 지키는 자들](02_hazran/128_keepers_of_memory.md)

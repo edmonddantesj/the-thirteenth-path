@@ -224,6 +224,7 @@ Each language directory is organized by arc:
 - [125. 훔친 목소리의 도움](ko/02_hazran/125_stolen_voice.md)
 - [126. 숨 쉴 수 있는 곳](ko/02_hazran/126_first_breath.md)
 - [127. 구해도 믿지 않는다](ko/02_hazran/127_rescue_not_trust.md)
+- [128. 기억을 지키는 자들](ko/02_hazran/128_keepers_of_memory.md)
 
 ### English
 
@@ -358,6 +359,7 @@ Each language directory is organized by arc:
 - [125. Stolen Voice](en/02_hazran/125_stolen_voice.md)
 - [126. First Breath](en/02_hazran/126_first_breath.md)
 - [127. Rescue, Not Trust](en/02_hazran/127_rescue_not_trust.md)
+- [128. Keepers of Memory](en/02_hazran/128_keepers_of_memory.md)
 
 ### Japanese
 
@@ -492,6 +494,7 @@ Each language directory is organized by arc:
 - [第百二十五話　盗んだ声の助け](ja/02_hazran/125_stolen_voice.md)
 - [第百二十六話　息のできる場所](ja/02_hazran/126_first_breath.md)
 - [第百二十七話　救っても信じはしない](ja/02_hazran/127_rescue_not_trust.md)
+- [第百二十八話　記憶を守る者たち](ja/02_hazran/128_keepers_of_memory.md)
 
 ### Chinese
 
@@ -626,6 +629,7 @@ Each language directory is organized by arc:
 - [第一百二十五章 偷来的嗓音](zh/02_hazran/125_stolen_voice.md)
 - [第一百二十六章 能喘口气的地方](zh/02_hazran/126_first_breath.md)
 - [第一百二十七章 救，却不信](zh/02_hazran/127_rescue_not_trust.md)
+- [第一百二十八章 守着记忆的人们](zh/02_hazran/128_keepers_of_memory.md)
 
 ### French
 
@@ -760,6 +764,7 @@ Each language directory is organized by arc:
 - [Chapitre 125 — La voix volée](fr/02_hazran/125_stolen_voice.md)
 - [Chapitre 126 — Le premier souffle](fr/02_hazran/126_first_breath.md)
 - [Chapitre 127 — Sauvetage, pas confiance](fr/02_hazran/127_rescue_not_trust.md)
+- [Chapitre 128 — Les gardiens de la mémoire](fr/02_hazran/128_keepers_of_memory.md)
 
 ### Spanish
 
@@ -870,7 +875,8 @@ Each language directory is organized by arc:
 - [Capítulo 101 — Lo que quedó después de que se rompiera la última ilusión](es/02_hazran/101_after_the_last_illusion_broke.md)
 - [Capítulo 102 — Cada mano que iba quedando se volvía más cara](es/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Capítulo 103 — Cada pequeño reinicio costaba más](es/02_hazran/103_each_small_restart_cost_more.md)
+- [Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio](es/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 
 ## Status
 
-Public archive currently published through Episode 127 in Korean, Episode 127 in English, Episode 127 in Japanese, Episode 127 in French, Episode 127 in Chinese (Simplified), and Episode 103 in Spanish.
+Public archive currently published through Episode 128 in Korean, Episode 128 in English, Episode 128 in Japanese, Episode 128 in French, Episode 128 in Chinese (Simplified), and Episode 104 in Spanish.

@@ -135,3 +135,4 @@
 - [第百二十五話　盗んだ声の助け](02_hazran/125_stolen_voice.md)
 - [第百二十六話　息のできる場所](02_hazran/126_first_breath.md)
 - [第百二十七話　救っても信じはしない](02_hazran/127_rescue_not_trust.md)
+- [第百二十八話　記憶を守る者たち](02_hazran/128_keepers_of_memory.md)
