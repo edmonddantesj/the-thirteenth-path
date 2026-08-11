@@ -869,7 +869,8 @@ Each language directory is organized by arc:
 - [Capítulo 100 — Lo que finalmente se rompió](es/02_hazran/100_what_finally_broke.md)
 - [Capítulo 101 — Lo que quedó después de que se rompiera la última ilusión](es/02_hazran/101_after_the_last_illusion_broke.md)
 - [Capítulo 102 — Cada mano que iba quedando se volvía más cara](es/02_hazran/102_the_fewer_hands_became_more_expensive.md)
+- [Capítulo 103 — Cada pequeño reinicio costaba más](es/02_hazran/103_each_small_restart_cost_more.md)
 
 ## Status
 
-Public archive currently published through Episode 127 in Korean, Episode 127 in English, Episode 127 in Japanese, Episode 127 in French, Episode 127 in Chinese (Simplified), and Episode 102 in Spanish.
+Public archive currently published through Episode 127 in Korean, Episode 127 in English, Episode 127 in Japanese, Episode 127 in French, Episode 127 in Chinese (Simplified), and Episode 103 in Spanish.
