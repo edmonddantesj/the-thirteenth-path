@@ -876,7 +876,8 @@ Each language directory is organized by arc:
 - [Capítulo 102 — Cada mano que iba quedando se volvía más cara](es/02_hazran/102_the_fewer_hands_became_more_expensive.md)
 - [Capítulo 103 — Cada pequeño reinicio costaba más](es/02_hazran/103_each_small_restart_cost_more.md)
 - [Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio](es/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
+- [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](es/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 
 ## Status
 
-Public archive currently published through Episode 128 in Korean, Episode 128 in English, Episode 128 in Japanese, Episode 128 in French, Episode 128 in Chinese (Simplified), and Episode 104 in Spanish.
+Public archive currently published through Episode 128 in Korean, Episode 128 in English, Episode 128 in Japanese, Episode 128 in French, Episode 128 in Chinese (Simplified), and Episode 105 in Spanish.
