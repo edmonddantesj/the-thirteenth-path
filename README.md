@@ -225,6 +225,7 @@ Each language directory is organized by arc:
 - [126. 숨 쉴 수 있는 곳](ko/02_hazran/126_first_breath.md)
 - [127. 구해도 믿지 않는다](ko/02_hazran/127_rescue_not_trust.md)
 - [128. 기억을 지키는 자들](ko/02_hazran/128_keepers_of_memory.md)
+- [129. 없어진 수를 세다](ko/02_hazran/129_counting_the_missing.md)
 
 ### English
 
@@ -360,6 +361,7 @@ Each language directory is organized by arc:
 - [126. First Breath](en/02_hazran/126_first_breath.md)
 - [127. Rescue, Not Trust](en/02_hazran/127_rescue_not_trust.md)
 - [128. Keepers of Memory](en/02_hazran/128_keepers_of_memory.md)
+- [129. Counting the Missing](en/02_hazran/129_counting_the_missing.md)
 
 ### Japanese
 
@@ -495,6 +497,7 @@ Each language directory is organized by arc:
 - [第百二十六話　息のできる場所](ja/02_hazran/126_first_breath.md)
 - [第百二十七話　救っても信じはしない](ja/02_hazran/127_rescue_not_trust.md)
 - [第百二十八話　記憶を守る者たち](ja/02_hazran/128_keepers_of_memory.md)
+- [第百二十九話　失われた数を数える](ja/02_hazran/129_counting_the_missing.md)
 
 ### Chinese
 
@@ -630,6 +633,7 @@ Each language directory is organized by arc:
 - [第一百二十六章 能喘口气的地方](zh/02_hazran/126_first_breath.md)
 - [第一百二十七章 救，却不信](zh/02_hazran/127_rescue_not_trust.md)
 - [第一百二十八章 守着记忆的人们](zh/02_hazran/128_keepers_of_memory.md)
+- [第一百二十九章 清点失去的数目](zh/02_hazran/129_counting_the_missing.md)
 
 ### French
 
@@ -765,6 +769,7 @@ Each language directory is organized by arc:
 - [Chapitre 126 — Le premier souffle](fr/02_hazran/126_first_breath.md)
 - [Chapitre 127 — Sauvetage, pas confiance](fr/02_hazran/127_rescue_not_trust.md)
 - [Chapitre 128 — Les gardiens de la mémoire](fr/02_hazran/128_keepers_of_memory.md)
+- [Chapitre 129 — Compter les disparus](fr/02_hazran/129_counting_the_missing.md)
 
 ### Spanish
 
@@ -877,7 +882,8 @@ Each language directory is organized by arc:
 - [Capítulo 103 — Cada pequeño reinicio costaba más](es/02_hazran/103_each_small_restart_cost_more.md)
 - [Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio](es/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](es/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
+- [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](es/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 
 ## Status
 
-Public archive currently published through Episode 128 in Korean, Episode 128 in English, Episode 128 in Japanese, Episode 128 in French, Episode 128 in Chinese (Simplified), and Episode 105 in Spanish.
+Public archive currently published through Episode 129 in Korean, Episode 129 in English, Episode 129 in Japanese, Episode 129 in French, Episode 129 in Chinese (Simplified), and Episode 106 in Spanish.

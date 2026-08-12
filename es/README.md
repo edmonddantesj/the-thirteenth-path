@@ -109,3 +109,4 @@ Capítulos públicos actuales:
 - [Capítulo 103 — Cada pequeño reinicio costaba más](02_hazran/103_each_small_restart_cost_more.md)
 - [Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio](02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
+- [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)

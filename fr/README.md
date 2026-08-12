@@ -136,3 +136,4 @@ Chapitres publics actuels :
 - [Chapitre 126 — Le premier souffle](02_hazran/126_first_breath.md)
 - [Chapitre 127 — Sauvetage, pas confiance](02_hazran/127_rescue_not_trust.md)
 - [Chapitre 128 — Les gardiens de la mémoire](02_hazran/128_keepers_of_memory.md)
+- [Chapitre 129 — Compter les disparus](02_hazran/129_counting_the_missing.md)
