@@ -111,3 +111,4 @@ Capítulos públicos actuales:
 - [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Capítulo 107 — Los que deben irse y los que deben cerrar](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [Capítulo 108 — Los que al final fueron empujados a embarcar](02_hazran/108_the_ones_who_were_forced_to_board.md)

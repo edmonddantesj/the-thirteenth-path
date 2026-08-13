@@ -226,6 +226,7 @@ Each language directory is organized by arc:
 - [127. 구해도 믿지 않는다](ko/02_hazran/127_rescue_not_trust.md)
 - [128. 기억을 지키는 자들](ko/02_hazran/128_keepers_of_memory.md)
 - [129. 없어진 수를 세다](ko/02_hazran/129_counting_the_missing.md)
+- [130. 살려 둘 것](ko/02_hazran/130_what_to_keep_alive.md)
 
 ### English
 
@@ -362,6 +363,7 @@ Each language directory is organized by arc:
 - [127. Rescue, Not Trust](en/02_hazran/127_rescue_not_trust.md)
 - [128. Keepers of Memory](en/02_hazran/128_keepers_of_memory.md)
 - [129. Counting the Missing](en/02_hazran/129_counting_the_missing.md)
+- [130. What to Keep Alive](en/02_hazran/130_what_to_keep_alive.md)
 
 ### Japanese
 
@@ -498,6 +500,7 @@ Each language directory is organized by arc:
 - [第百二十七話　救っても信じはしない](ja/02_hazran/127_rescue_not_trust.md)
 - [第百二十八話　記憶を守る者たち](ja/02_hazran/128_keepers_of_memory.md)
 - [第百二十九話　失われた数を数える](ja/02_hazran/129_counting_the_missing.md)
+- [第百三十話　生かしておくもの](ja/02_hazran/130_what_to_keep_alive.md)
 
 ### Chinese
 
@@ -634,6 +637,7 @@ Each language directory is organized by arc:
 - [第一百二十七章 救，却不信](zh/02_hazran/127_rescue_not_trust.md)
 - [第一百二十八章 守着记忆的人们](zh/02_hazran/128_keepers_of_memory.md)
 - [第一百二十九章 清点失去的数目](zh/02_hazran/129_counting_the_missing.md)
+- [第一百三十章 该让什么活下来](zh/02_hazran/130_what_to_keep_alive.md)
 
 ### French
 
@@ -770,6 +774,7 @@ Each language directory is organized by arc:
 - [Chapitre 127 — Sauvetage, pas confiance](fr/02_hazran/127_rescue_not_trust.md)
 - [Chapitre 128 — Les gardiens de la mémoire](fr/02_hazran/128_keepers_of_memory.md)
 - [Chapitre 129 — Compter les disparus](fr/02_hazran/129_counting_the_missing.md)
+- [Chapitre 130 — Ce qu’il fallait garder en vie](fr/02_hazran/130_what_to_keep_alive.md)
 
 ### Spanish
 
@@ -884,7 +889,8 @@ Each language directory is organized by arc:
 - [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](es/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](es/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Capítulo 107 — Los que deben irse y los que deben cerrar](es/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
+- [Capítulo 108 — Los que al final fueron empujados a embarcar](es/02_hazran/108_the_ones_who_were_forced_to_board.md)
 
 ## Status
 
-Public archive currently published through Episode 129 in Korean, Episode 129 in English, Episode 129 in Japanese, Episode 129 in French, Episode 129 in Chinese (Simplified), and Episode 107 in Spanish.
+Public archive currently published through Episode 130 in Korean, Episode 130 in English, Episode 130 in Japanese, Episode 130 in French, Episode 130 in Chinese (Simplified), and Episode 108 in Spanish.
