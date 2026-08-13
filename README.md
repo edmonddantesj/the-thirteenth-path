@@ -883,7 +883,8 @@ Each language directory is organized by arc:
 - [Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio](es/02_hazran/104_the_corridor_lived_only_because_they_paid_for_it.md)
 - [Capítulo 105 — El precio que pagó Harún por mantenerlo abierto](es/02_hazran/105_the_price_harun_paid_to_keep_it_open.md)
 - [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](es/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
+- [Capítulo 107 — Los que deben irse y los que deben cerrar](es/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 
 ## Status
 
-Public archive currently published through Episode 129 in Korean, Episode 129 in English, Episode 129 in Japanese, Episode 129 in French, Episode 129 in Chinese (Simplified), and Episode 106 in Spanish.
+Public archive currently published through Episode 129 in Korean, Episode 129 in English, Episode 129 in Japanese, Episode 129 in French, Episode 129 in Chinese (Simplified), and Episode 107 in Spanish.
