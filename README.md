@@ -890,7 +890,8 @@ Each language directory is organized by arc:
 - [Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo](es/02_hazran/106_the_moment_zahir_stopped_buying_more_time.md)
 - [Capítulo 107 — Los que deben irse y los que deben cerrar](es/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Capítulo 108 — Los que al final fueron empujados a embarcar](es/02_hazran/108_the_ones_who_were_forced_to_board.md)
+- [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](es/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 
 ## Status
 
-Public archive currently published through Episode 130 in Korean, Episode 130 in English, Episode 130 in Japanese, Episode 130 in French, Episode 130 in Chinese (Simplified), and Episode 108 in Spanish.
+Public archive currently published through Episode 130 in Korean, Episode 130 in English, Episode 130 in Japanese, Episode 130 in French, Episode 130 in Chinese (Simplified), and Episode 109 in Spanish.
