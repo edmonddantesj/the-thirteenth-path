@@ -138,3 +138,4 @@
 - [第百二十八話　記憶を守る者たち](02_hazran/128_keepers_of_memory.md)
 - [第百二十九話　失われた数を数える](02_hazran/129_counting_the_missing.md)
 - [第百三十話　生かしておくもの](02_hazran/130_what_to_keep_alive.md)
+- [第百三十一話　失わなかったもの](02_hazran/131_what_they_kept.md)

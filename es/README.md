@@ -113,3 +113,4 @@ Capítulos públicos actuales:
 - [Capítulo 107 — Los que deben irse y los que deben cerrar](02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Capítulo 108 — Los que al final fueron empujados a embarcar](02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [Capítulo 110 — La última línea aguantó hasta quedar sepultada](02_hazran/110_the_last_line_held_until_it_was_buried.md)

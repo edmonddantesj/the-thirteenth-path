@@ -138,3 +138,4 @@ Current public English release:
 - [Episode 128. Keepers of Memory](02_hazran/128_keepers_of_memory.md)
 - [Episode 129. Counting the Missing](02_hazran/129_counting_the_missing.md)
 - [Episode 130. What to Keep Alive](02_hazran/130_what_to_keep_alive.md)
+- [Episode 131. What They Kept](02_hazran/131_what_they_kept.md)

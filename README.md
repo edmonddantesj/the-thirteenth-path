@@ -227,6 +227,7 @@ Each language directory is organized by arc:
 - [128. 기억을 지키는 자들](ko/02_hazran/128_keepers_of_memory.md)
 - [129. 없어진 수를 세다](ko/02_hazran/129_counting_the_missing.md)
 - [130. 살려 둘 것](ko/02_hazran/130_what_to_keep_alive.md)
+- [131. 잃지 않은 것](ko/02_hazran/131_what_they_kept.md)
 
 ### English
 
@@ -364,6 +365,7 @@ Each language directory is organized by arc:
 - [128. Keepers of Memory](en/02_hazran/128_keepers_of_memory.md)
 - [129. Counting the Missing](en/02_hazran/129_counting_the_missing.md)
 - [130. What to Keep Alive](en/02_hazran/130_what_to_keep_alive.md)
+- [131. What They Kept](en/02_hazran/131_what_they_kept.md)
 
 ### Japanese
 
@@ -501,6 +503,7 @@ Each language directory is organized by arc:
 - [第百二十八話　記憶を守る者たち](ja/02_hazran/128_keepers_of_memory.md)
 - [第百二十九話　失われた数を数える](ja/02_hazran/129_counting_the_missing.md)
 - [第百三十話　生かしておくもの](ja/02_hazran/130_what_to_keep_alive.md)
+- [第百三十一話　失わなかったもの](ja/02_hazran/131_what_they_kept.md)
 
 ### Chinese
 
@@ -638,6 +641,7 @@ Each language directory is organized by arc:
 - [第一百二十八章 守着记忆的人们](zh/02_hazran/128_keepers_of_memory.md)
 - [第一百二十九章 清点失去的数目](zh/02_hazran/129_counting_the_missing.md)
 - [第一百三十章 该让什么活下来](zh/02_hazran/130_what_to_keep_alive.md)
+- [第一百三十一章 没有失去的东西](zh/02_hazran/131_what_they_kept.md)
 
 ### French
 
@@ -775,6 +779,7 @@ Each language directory is organized by arc:
 - [Chapitre 128 — Les gardiens de la mémoire](fr/02_hazran/128_keepers_of_memory.md)
 - [Chapitre 129 — Compter les disparus](fr/02_hazran/129_counting_the_missing.md)
 - [Chapitre 130 — Ce qu’il fallait garder en vie](fr/02_hazran/130_what_to_keep_alive.md)
+- [Chapitre 131 — Ce qu'ils gardèrent](fr/02_hazran/131_what_they_kept.md)
 
 ### Spanish
 
@@ -891,7 +896,8 @@ Each language directory is organized by arc:
 - [Capítulo 107 — Los que deben irse y los que deben cerrar](es/02_hazran/107_the_ones_who_must_leave_and_the_ones_who_must_close.md)
 - [Capítulo 108 — Los que al final fueron empujados a embarcar](es/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](es/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
+- [Capítulo 110 — La última línea aguantó hasta quedar sepultada](es/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 
 ## Status
 
-Public archive currently published through Episode 130 in Korean, Episode 130 in English, Episode 130 in Japanese, Episode 130 in French, Episode 130 in Chinese (Simplified), and Episode 109 in Spanish.
+Public archive currently published through Episode 131 in Korean, Episode 131 in English, Episode 131 in Japanese, Episode 131 in French, Episode 131 in Chinese (Simplified), and Episode 110 in Spanish.

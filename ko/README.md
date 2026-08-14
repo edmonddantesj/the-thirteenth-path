@@ -139,3 +139,4 @@
 - [128화. 기억을 지키는 자들](02_hazran/128_keepers_of_memory.md)
 - [129화. 없어진 수를 세다](02_hazran/129_counting_the_missing.md)
 - [130화. 살려 둘 것](02_hazran/130_what_to_keep_alive.md)
+- [131화. 잃지 않은 것](02_hazran/131_what_they_kept.md)
