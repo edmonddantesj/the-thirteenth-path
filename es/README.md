@@ -115,3 +115,4 @@ Capítulos públicos actuales:
 - [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Capítulo 110 — La última línea aguantó hasta quedar sepultada](02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [Capítulo 111 — La nave partió cargando también lo que era de ellos](02_hazran/111_the_ship_left_with_their_burden.md)
+- [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)

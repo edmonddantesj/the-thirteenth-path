@@ -228,6 +228,7 @@ Each language directory is organized by arc:
 - [129. 없어진 수를 세다](ko/02_hazran/129_counting_the_missing.md)
 - [130. 살려 둘 것](ko/02_hazran/130_what_to_keep_alive.md)
 - [131. 잃지 않은 것](ko/02_hazran/131_what_they_kept.md)
+- [132. 말이 몫이 되다](ko/02_hazran/132_words_become_tasks.md)
 
 ### English
 
@@ -366,6 +367,7 @@ Each language directory is organized by arc:
 - [129. Counting the Missing](en/02_hazran/129_counting_the_missing.md)
 - [130. What to Keep Alive](en/02_hazran/130_what_to_keep_alive.md)
 - [131. What They Kept](en/02_hazran/131_what_they_kept.md)
+- [132. Words Become Tasks](en/02_hazran/132_words_become_tasks.md)
 
 ### Japanese
 
@@ -504,6 +506,7 @@ Each language directory is organized by arc:
 - [第百二十九話　失われた数を数える](ja/02_hazran/129_counting_the_missing.md)
 - [第百三十話　生かしておくもの](ja/02_hazran/130_what_to_keep_alive.md)
 - [第百三十一話　失わなかったもの](ja/02_hazran/131_what_they_kept.md)
+- [第百三十二話　言葉が持ち分になる](ja/02_hazran/132_words_become_tasks.md)
 
 ### Chinese
 
@@ -642,6 +645,7 @@ Each language directory is organized by arc:
 - [第一百二十九章 清点失去的数目](zh/02_hazran/129_counting_the_missing.md)
 - [第一百三十章 该让什么活下来](zh/02_hazran/130_what_to_keep_alive.md)
 - [第一百三十一章 没有失去的东西](zh/02_hazran/131_what_they_kept.md)
+- [第一百三十二章 言语变成担子](zh/02_hazran/132_words_become_tasks.md)
 
 ### French
 
@@ -780,6 +784,7 @@ Each language directory is organized by arc:
 - [Chapitre 129 — Compter les disparus](fr/02_hazran/129_counting_the_missing.md)
 - [Chapitre 130 — Ce qu’il fallait garder en vie](fr/02_hazran/130_what_to_keep_alive.md)
 - [Chapitre 131 — Ce qu'ils gardèrent](fr/02_hazran/131_what_they_kept.md)
+- [Chapitre 132 — Les mots deviennent des tâches](fr/02_hazran/132_words_become_tasks.md)
 
 ### Spanish
 
@@ -898,7 +903,8 @@ Each language directory is organized by arc:
 - [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](es/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Capítulo 110 — La última línea aguantó hasta quedar sepultada](es/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [Capítulo 111 — La nave partió cargando también lo que era de ellos](es/02_hazran/111_the_ship_left_with_their_burden.md)
+- [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](es/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 
 ## Status
 
-Public archive currently published through Episode 131 in Korean, Episode 131 in English, Episode 131 in Japanese, Episode 131 in French, Episode 131 in Chinese (Simplified), and Episode 111 in Spanish.
+Public archive currently published through Episode 132 in Korean, Episode 132 in English, Episode 132 in Japanese, Episode 132 in French, Episode 132 in Chinese (Simplified), and Episode 112 in Spanish.

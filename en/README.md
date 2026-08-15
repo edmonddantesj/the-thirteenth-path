@@ -139,3 +139,4 @@ Current public English release:
 - [Episode 129. Counting the Missing](02_hazran/129_counting_the_missing.md)
 - [Episode 130. What to Keep Alive](02_hazran/130_what_to_keep_alive.md)
 - [Episode 131. What They Kept](02_hazran/131_what_they_kept.md)
+- [Episode 132. Words Become Tasks](02_hazran/132_words_become_tasks.md)
