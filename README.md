@@ -897,7 +897,8 @@ Each language directory is organized by arc:
 - [Capítulo 108 — Los que al final fueron empujados a embarcar](es/02_hazran/108_the_ones_who_were_forced_to_board.md)
 - [Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran](es/02_hazran/109_the_ones_outside_began_to_close_hazran.md)
 - [Capítulo 110 — La última línea aguantó hasta quedar sepultada](es/02_hazran/110_the_last_line_held_until_it_was_buried.md)
+- [Capítulo 111 — La nave partió cargando también lo que era de ellos](es/02_hazran/111_the_ship_left_with_their_burden.md)
 
 ## Status
 
-Public archive currently published through Episode 131 in Korean, Episode 131 in English, Episode 131 in Japanese, Episode 131 in French, Episode 131 in Chinese (Simplified), and Episode 110 in Spanish.
+Public archive currently published through Episode 131 in Korean, Episode 131 in English, Episode 131 in Japanese, Episode 131 in French, Episode 131 in Chinese (Simplified), and Episode 111 in Spanish.
