@@ -140,3 +140,4 @@ Chapitres publics actuels :
 - [Chapitre 130 — Ce qu’il fallait garder en vie](02_hazran/130_what_to_keep_alive.md)
 - [Chapitre 131 — Ce qu'ils gardèrent](02_hazran/131_what_they_kept.md)
 - [Chapitre 132 — Les mots deviennent des tâches](02_hazran/132_words_become_tasks.md)
+- [Chapitre 133 — Parler avant de se briser](02_hazran/133_speak_before_breaking.md)

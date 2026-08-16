@@ -117,3 +117,4 @@ Capítulos públicos actuales:
 - [Capítulo 111 — La nave partió cargando también lo que era de ellos](02_hazran/111_the_ship_left_with_their_burden.md)
 - [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [Capítulo 113 — Lo que quedó después de que Hazran se cerrara](02_hazran/113_what_remained_after_hazran_closed.md)
+- [Capítulo 114 — Lo primero que no supieron cómo nombrar](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)

@@ -229,6 +229,7 @@ Each language directory is organized by arc:
 - [130. 살려 둘 것](ko/02_hazran/130_what_to_keep_alive.md)
 - [131. 잃지 않은 것](ko/02_hazran/131_what_they_kept.md)
 - [132. 말이 몫이 되다](ko/02_hazran/132_words_become_tasks.md)
+- [133. 무너지기 전에](ko/02_hazran/133_speak_before_breaking.md)
 
 ### English
 
@@ -368,6 +369,7 @@ Each language directory is organized by arc:
 - [130. What to Keep Alive](en/02_hazran/130_what_to_keep_alive.md)
 - [131. What They Kept](en/02_hazran/131_what_they_kept.md)
 - [132. Words Become Tasks](en/02_hazran/132_words_become_tasks.md)
+- [133. Speak Before Breaking](en/02_hazran/133_speak_before_breaking.md)
 
 ### Japanese
 
@@ -507,6 +509,7 @@ Each language directory is organized by arc:
 - [第百三十話　生かしておくもの](ja/02_hazran/130_what_to_keep_alive.md)
 - [第百三十一話　失わなかったもの](ja/02_hazran/131_what_they_kept.md)
 - [第百三十二話　言葉が持ち分になる](ja/02_hazran/132_words_become_tasks.md)
+- [第百三十三話　崩れる前に](ja/02_hazran/133_speak_before_breaking.md)
 
 ### Chinese
 
@@ -646,6 +649,7 @@ Each language directory is organized by arc:
 - [第一百三十章 该让什么活下来](zh/02_hazran/130_what_to_keep_alive.md)
 - [第一百三十一章 没有失去的东西](zh/02_hazran/131_what_they_kept.md)
 - [第一百三十二章 言语变成担子](zh/02_hazran/132_words_become_tasks.md)
+- [第一百三十三章 在崩溃之前](zh/02_hazran/133_speak_before_breaking.md)
 
 ### French
 
@@ -785,6 +789,7 @@ Each language directory is organized by arc:
 - [Chapitre 130 — Ce qu’il fallait garder en vie](fr/02_hazran/130_what_to_keep_alive.md)
 - [Chapitre 131 — Ce qu'ils gardèrent](fr/02_hazran/131_what_they_kept.md)
 - [Chapitre 132 — Les mots deviennent des tâches](fr/02_hazran/132_words_become_tasks.md)
+- [Chapitre 133 — Parler avant de se briser](fr/02_hazran/133_speak_before_breaking.md)
 
 ### Spanish
 
@@ -905,7 +910,8 @@ Each language directory is organized by arc:
 - [Capítulo 111 — La nave partió cargando también lo que era de ellos](es/02_hazran/111_the_ship_left_with_their_burden.md)
 - [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](es/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [Capítulo 113 — Lo que quedó después de que Hazran se cerrara](es/02_hazran/113_what_remained_after_hazran_closed.md)
+- [Capítulo 114 — Lo primero que no supieron cómo nombrar](es/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 
 ## Status
 
-Public archive currently published through Episode 132 in Korean, Episode 132 in English, Episode 132 in Japanese, Episode 132 in French, Episode 132 in Chinese (Simplified), and Episode 113 in Spanish.
+Public archive currently published through Episode 133 in Korean, Episode 133 in English, Episode 133 in Japanese, Episode 133 in French, Episode 133 in Chinese (Simplified), and Episode 114 in Spanish.
