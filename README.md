@@ -904,7 +904,8 @@ Each language directory is organized by arc:
 - [Capítulo 110 — La última línea aguantó hasta quedar sepultada](es/02_hazran/110_the_last_line_held_until_it_was_buried.md)
 - [Capítulo 111 — La nave partió cargando también lo que era de ellos](es/02_hazran/111_the_ship_left_with_their_burden.md)
 - [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](es/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
+- [Capítulo 113 — Lo que quedó después de que Hazran se cerrara](es/02_hazran/113_what_remained_after_hazran_closed.md)
 
 ## Status
 
-Public archive currently published through Episode 132 in Korean, Episode 132 in English, Episode 132 in Japanese, Episode 132 in French, Episode 132 in Chinese (Simplified), and Episode 112 in Spanish.
+Public archive currently published through Episode 132 in Korean, Episode 132 in English, Episode 132 in Japanese, Episode 132 in French, Episode 132 in Chinese (Simplified), and Episode 113 in Spanish.
