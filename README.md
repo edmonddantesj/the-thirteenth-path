@@ -911,7 +911,8 @@ Each language directory is organized by arc:
 - [Capítulo 112 — Los ojos que vigilaban hacia dónde irían después](es/02_hazran/112_the_eyes_that_watched_where_they_would_go_next.md)
 - [Capítulo 113 — Lo que quedó después de que Hazran se cerrara](es/02_hazran/113_what_remained_after_hazran_closed.md)
 - [Capítulo 114 — Lo primero que no supieron cómo nombrar](es/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
+- [Capítulo 115 — La dirección que empezó antes de que llegara la persecución](es/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 
 ## Status
 
-Public archive currently published through Episode 133 in Korean, Episode 133 in English, Episode 133 in Japanese, Episode 133 in French, Episode 133 in Chinese (Simplified), and Episode 114 in Spanish.
+Public archive currently published through Episode 133 in Korean, Episode 133 in English, Episode 133 in Japanese, Episode 133 in French, Episode 133 in Chinese (Simplified), and Episode 115 in Spanish.
