@@ -141,3 +141,4 @@
 - [第百三十一話　失わなかったもの](02_hazran/131_what_they_kept.md)
 - [第百三十二話　言葉が持ち分になる](02_hazran/132_words_become_tasks.md)
 - [第百三十三話　崩れる前に](02_hazran/133_speak_before_breaking.md)
+- [第百三十四話　言ったからこそ](02_hazran/134_because_he_spoke.md)

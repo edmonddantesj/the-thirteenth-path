@@ -142,3 +142,4 @@
 - [131화. 잃지 않은 것](02_hazran/131_what_they_kept.md)
 - [132화. 말이 몫이 되다](02_hazran/132_words_become_tasks.md)
 - [133화. 무너지기 전에](02_hazran/133_speak_before_breaking.md)
+- [134화. 말했기 때문에](02_hazran/134_because_he_spoke.md)

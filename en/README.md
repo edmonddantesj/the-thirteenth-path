@@ -141,3 +141,4 @@ Current public English release:
 - [Episode 131. What They Kept](02_hazran/131_what_they_kept.md)
 - [Episode 132. Words Become Tasks](02_hazran/132_words_become_tasks.md)
 - [Episode 133. Speak Before Breaking](02_hazran/133_speak_before_breaking.md)
+- [Episode 134. Because He Spoke](02_hazran/134_because_he_spoke.md)
