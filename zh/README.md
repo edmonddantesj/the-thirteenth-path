@@ -142,3 +142,4 @@
 - [第一百三十二章 言语变成担子](02_hazran/132_words_become_tasks.md)
 - [第一百三十三章 在崩溃之前](02_hazran/133_speak_before_breaking.md)
 - [第一百三十四章 因为说出了口](02_hazran/134_because_he_spoke.md)
+- [第一百三十五章 装死的路](02_hazran/135_pretending_dead.md)

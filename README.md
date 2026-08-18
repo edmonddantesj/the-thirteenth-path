@@ -231,6 +231,7 @@ Each language directory is organized by arc:
 - [132. 말이 몫이 되다](ko/02_hazran/132_words_become_tasks.md)
 - [133. 무너지기 전에](ko/02_hazran/133_speak_before_breaking.md)
 - [134. 말했기 때문에](ko/02_hazran/134_because_he_spoke.md)
+- [135. 죽은 척한 길](ko/02_hazran/135_pretending_dead.md)
 
 ### English
 
@@ -372,6 +373,7 @@ Each language directory is organized by arc:
 - [132. Words Become Tasks](en/02_hazran/132_words_become_tasks.md)
 - [133. Speak Before Breaking](en/02_hazran/133_speak_before_breaking.md)
 - [134. Because He Spoke](en/02_hazran/134_because_he_spoke.md)
+- [135. Pretending Dead](en/02_hazran/135_pretending_dead.md)
 
 ### Japanese
 
@@ -513,6 +515,7 @@ Each language directory is organized by arc:
 - [第百三十二話　言葉が持ち分になる](ja/02_hazran/132_words_become_tasks.md)
 - [第百三十三話　崩れる前に](ja/02_hazran/133_speak_before_breaking.md)
 - [第百三十四話　言ったからこそ](ja/02_hazran/134_because_he_spoke.md)
+- [第百三十五話　死んだ振りをしていた道](ja/02_hazran/135_pretending_dead.md)
 
 ### Chinese
 
@@ -654,6 +657,7 @@ Each language directory is organized by arc:
 - [第一百三十二章 言语变成担子](zh/02_hazran/132_words_become_tasks.md)
 - [第一百三十三章 在崩溃之前](zh/02_hazran/133_speak_before_breaking.md)
 - [第一百三十四章 因为说出了口](zh/02_hazran/134_because_he_spoke.md)
+- [第一百三十五章 装死的路](zh/02_hazran/135_pretending_dead.md)
 
 ### French
 
@@ -795,6 +799,7 @@ Each language directory is organized by arc:
 - [Chapitre 132 — Les mots deviennent des tâches](fr/02_hazran/132_words_become_tasks.md)
 - [Chapitre 133 — Parler avant de se briser](fr/02_hazran/133_speak_before_breaking.md)
 - [Chapitre 134 — Parce qu’il avait parlé](fr/02_hazran/134_because_he_spoke.md)
+- [Chapitre 135 — Faire semblant d'être mort](fr/02_hazran/135_pretending_dead.md)
 
 ### Spanish
 
@@ -919,7 +924,8 @@ Each language directory is organized by arc:
 - [Capítulo 115 — La dirección que empezó antes de que llegara la persecución](es/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [Capítulo 116 — Lo que la nave reveló solo después de desaparecer](es/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Capítulo 117 — El aire que aún no llegaba](es/02_hazran/117_first_air.md)
+- [Capítulo 118 — El presagio de lo demasiado ordenado](es/02_hazran/118_too_ordered_world.md)
 
 ## Status
 
-Public archive currently published through Episode 134 in Korean, Episode 134 in English, Episode 134 in Japanese, Episode 134 in French, Episode 134 in Chinese (Simplified), and Episode 117 in Spanish.
+Public archive currently published through Episode 135 in Korean, Episode 135 in English, Episode 135 in Japanese, Episode 135 in French, Episode 135 in Chinese (Simplified), and Episode 118 in Spanish.

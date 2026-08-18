@@ -143,3 +143,4 @@
 - [132화. 말이 몫이 되다](02_hazran/132_words_become_tasks.md)
 - [133화. 무너지기 전에](02_hazran/133_speak_before_breaking.md)
 - [134화. 말했기 때문에](02_hazran/134_because_he_spoke.md)
+- [135화. 죽은 척한 길](02_hazran/135_pretending_dead.md)
