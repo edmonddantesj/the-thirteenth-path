@@ -918,7 +918,8 @@ Each language directory is organized by arc:
 - [Capítulo 114 — Lo primero que no supieron cómo nombrar](es/02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [Capítulo 115 — La dirección que empezó antes de que llegara la persecución](es/02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [Capítulo 116 — Lo que la nave reveló solo después de desaparecer](es/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
+- [Capítulo 117 — El aire que aún no llegaba](es/02_hazran/117_first_air.md)
 
 ## Status
 
-Public archive currently published through Episode 134 in Korean, Episode 134 in English, Episode 134 in Japanese, Episode 134 in French, Episode 134 in Chinese (Simplified), and Episode 116 in Spanish.
+Public archive currently published through Episode 134 in Korean, Episode 134 in English, Episode 134 in Japanese, Episode 134 in French, Episode 134 in Chinese (Simplified), and Episode 117 in Spanish.

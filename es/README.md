@@ -120,3 +120,4 @@ Capítulos públicos actuales:
 - [Capítulo 114 — Lo primero que no supieron cómo nombrar](02_hazran/114_the_first_thing_they_did_not_know_how_to_name.md)
 - [Capítulo 115 — La dirección que empezó antes de que llegara la persecución](02_hazran/115_the_direction_that_began_before_the_pursuit_came.md)
 - [Capítulo 116 — Lo que la nave reveló solo después de desaparecer](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
+- [Capítulo 117 — El aire que aún no llegaba](02_hazran/117_first_air.md)
