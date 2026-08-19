@@ -123,3 +123,4 @@ Capítulos públicos actuales:
 - [Capítulo 117 — El aire que aún no llegaba](02_hazran/117_first_air.md)
 - [Capítulo 118 — El presagio de lo demasiado ordenado](02_hazran/118_too_ordered_world.md)
 - [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](02_hazran/119_read_then_let_in.md)
+- [Capítulo 120 — La cortesía de Serakion](02_hazran/120_first_hosts.md)

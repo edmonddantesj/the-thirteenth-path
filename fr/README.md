@@ -143,3 +143,4 @@ Chapitres publics actuels :
 - [Chapitre 133 — Parler avant de se briser](02_hazran/133_speak_before_breaking.md)
 - [Chapitre 134 — Parce qu’il avait parlé](02_hazran/134_because_he_spoke.md)
 - [Chapitre 135 — Faire semblant d'être mort](02_hazran/135_pretending_dead.md)
+- [Chapitre 136 — Le chemin caché respire](02_hazran/136_hidden_path_breathes.md)

@@ -232,6 +232,7 @@ Each language directory is organized by arc:
 - [133. 무너지기 전에](ko/02_hazran/133_speak_before_breaking.md)
 - [134. 말했기 때문에](ko/02_hazran/134_because_he_spoke.md)
 - [135. 죽은 척한 길](ko/02_hazran/135_pretending_dead.md)
+- [136. 숨은 길의 숨](ko/02_hazran/136_hidden_path_breathes.md)
 
 ### English
 
@@ -374,6 +375,7 @@ Each language directory is organized by arc:
 - [133. Speak Before Breaking](en/02_hazran/133_speak_before_breaking.md)
 - [134. Because He Spoke](en/02_hazran/134_because_he_spoke.md)
 - [135. Pretending Dead](en/02_hazran/135_pretending_dead.md)
+- [136. Hidden Path Breathes](en/02_hazran/136_hidden_path_breathes.md)
 
 ### Japanese
 
@@ -516,6 +518,7 @@ Each language directory is organized by arc:
 - [第百三十三話　崩れる前に](ja/02_hazran/133_speak_before_breaking.md)
 - [第百三十四話　言ったからこそ](ja/02_hazran/134_because_he_spoke.md)
 - [第百三十五話　死んだ振りをしていた道](ja/02_hazran/135_pretending_dead.md)
+- [第百三十六話　隠れた道の息](ja/02_hazran/136_hidden_path_breathes.md)
 
 ### Chinese
 
@@ -658,6 +661,7 @@ Each language directory is organized by arc:
 - [第一百三十三章 在崩溃之前](zh/02_hazran/133_speak_before_breaking.md)
 - [第一百三十四章 因为说出了口](zh/02_hazran/134_because_he_spoke.md)
 - [第一百三十五章 装死的路](zh/02_hazran/135_pretending_dead.md)
+- [第一百三十六章 暗路的呼吸](zh/02_hazran/136_hidden_path_breathes.md)
 
 ### French
 
@@ -800,6 +804,7 @@ Each language directory is organized by arc:
 - [Chapitre 133 — Parler avant de se briser](fr/02_hazran/133_speak_before_breaking.md)
 - [Chapitre 134 — Parce qu’il avait parlé](fr/02_hazran/134_because_he_spoke.md)
 - [Chapitre 135 — Faire semblant d'être mort](fr/02_hazran/135_pretending_dead.md)
+- [Chapitre 136 — Le chemin caché respire](fr/02_hazran/136_hidden_path_breathes.md)
 
 ### Spanish
 
@@ -926,7 +931,8 @@ Each language directory is organized by arc:
 - [Capítulo 117 — El aire que aún no llegaba](es/02_hazran/117_first_air.md)
 - [Capítulo 118 — El presagio de lo demasiado ordenado](es/02_hazran/118_too_ordered_world.md)
 - [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](es/02_hazran/119_read_then_let_in.md)
+- [Capítulo 120 — La cortesía de Serakion](es/02_hazran/120_first_hosts.md)
 
 ## Status
 
-Public archive currently published through Episode 135 in Korean, Episode 135 in English, Episode 135 in Japanese, Episode 135 in French, Episode 135 in Chinese (Simplified), and Episode 119 in Spanish.
+Public archive currently published through Episode 136 in Korean, Episode 136 in English, Episode 136 in Japanese, Episode 136 in French, Episode 136 in Chinese (Simplified), and Episode 120 in Spanish.

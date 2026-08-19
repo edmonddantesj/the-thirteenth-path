@@ -143,3 +143,4 @@
 - [第百三十三話　崩れる前に](02_hazran/133_speak_before_breaking.md)
 - [第百三十四話　言ったからこそ](02_hazran/134_because_he_spoke.md)
 - [第百三十五話　死んだ振りをしていた道](02_hazran/135_pretending_dead.md)
+- [第百三十六話　隠れた道の息](02_hazran/136_hidden_path_breathes.md)
