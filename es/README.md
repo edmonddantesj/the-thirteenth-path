@@ -122,3 +122,4 @@ Capítulos públicos actuales:
 - [Capítulo 116 — Lo que la nave reveló solo después de desaparecer](02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Capítulo 117 — El aire que aún no llegaba](02_hazran/117_first_air.md)
 - [Capítulo 118 — El presagio de lo demasiado ordenado](02_hazran/118_too_ordered_world.md)
+- [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](02_hazran/119_read_then_let_in.md)

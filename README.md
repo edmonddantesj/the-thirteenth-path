@@ -925,7 +925,8 @@ Each language directory is organized by arc:
 - [Capítulo 116 — Lo que la nave reveló solo después de desaparecer](es/02_hazran/116_what_the_ship_revealed_after_it_vanished.md)
 - [Capítulo 117 — El aire que aún no llegaba](es/02_hazran/117_first_air.md)
 - [Capítulo 118 — El presagio de lo demasiado ordenado](es/02_hazran/118_too_ordered_world.md)
+- [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](es/02_hazran/119_read_then_let_in.md)
 
 ## Status
 
-Public archive currently published through Episode 135 in Korean, Episode 135 in English, Episode 135 in Japanese, Episode 135 in French, Episode 135 in Chinese (Simplified), and Episode 118 in Spanish.
+Public archive currently published through Episode 135 in Korean, Episode 135 in English, Episode 135 in Japanese, Episode 135 in French, Episode 135 in Chinese (Simplified), and Episode 119 in Spanish.
