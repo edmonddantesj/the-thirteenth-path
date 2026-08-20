@@ -124,3 +124,4 @@ Capítulos públicos actuales:
 - [Capítulo 118 — El presagio de lo demasiado ordenado](02_hazran/118_too_ordered_world.md)
 - [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](02_hazran/119_read_then_let_in.md)
 - [Capítulo 120 — La cortesía de Serakion](02_hazran/120_first_hosts.md)
+- [Capítulo 121 — La gente que parecía estar perfectamente bien](02_hazran/121_happy_but_wrong.md)

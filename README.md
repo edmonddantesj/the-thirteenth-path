@@ -932,7 +932,8 @@ Each language directory is organized by arc:
 - [Capítulo 118 — El presagio de lo demasiado ordenado](es/02_hazran/118_too_ordered_world.md)
 - [Capítulo 119 — El mundo que primero leyó y luego dejó entrar](es/02_hazran/119_read_then_let_in.md)
 - [Capítulo 120 — La cortesía de Serakion](es/02_hazran/120_first_hosts.md)
+- [Capítulo 121 — La gente que parecía estar perfectamente bien](es/02_hazran/121_happy_but_wrong.md)
 
 ## Status
 
-Public archive currently published through Episode 136 in Korean, Episode 136 in English, Episode 136 in Japanese, Episode 136 in French, Episode 136 in Chinese (Simplified), and Episode 120 in Spanish.
+Public archive currently published through Episode 136 in Korean, Episode 136 in English, Episode 136 in Japanese, Episode 136 in French, Episode 136 in Chinese (Simplified), and Episode 121 in Spanish.
