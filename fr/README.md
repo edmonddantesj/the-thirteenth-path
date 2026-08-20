@@ -144,3 +144,4 @@ Chapitres publics actuels :
 - [Chapitre 134 — Parce qu’il avait parlé](02_hazran/134_because_he_spoke.md)
 - [Chapitre 135 — Faire semblant d'être mort](02_hazran/135_pretending_dead.md)
 - [Chapitre 136 — Le chemin caché respire](02_hazran/136_hidden_path_breathes.md)
+- [Chapitre 137 — L'odeur du dehors](02_hazran/137_smell_of_outside.md)

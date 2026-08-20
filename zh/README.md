@@ -144,3 +144,4 @@
 - [第一百三十四章 因为说出了口](02_hazran/134_because_he_spoke.md)
 - [第一百三十五章 装死的路](02_hazran/135_pretending_dead.md)
 - [第一百三十六章 暗路的呼吸](02_hazran/136_hidden_path_breathes.md)
+- [第一百三十七章 外面的气味](02_hazran/137_smell_of_outside.md)

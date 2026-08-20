@@ -145,3 +145,4 @@
 - [134화. 말했기 때문에](02_hazran/134_because_he_spoke.md)
 - [135화. 죽은 척한 길](02_hazran/135_pretending_dead.md)
 - [136화. 숨은 길의 숨](02_hazran/136_hidden_path_breathes.md)
+- [137화. 바깥 냄새](02_hazran/137_smell_of_outside.md)
