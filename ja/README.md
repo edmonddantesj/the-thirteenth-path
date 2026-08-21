@@ -145,3 +145,4 @@
 - [第百三十五話　死んだ振りをしていた道](02_hazran/135_pretending_dead.md)
 - [第百三十六話　隠れた道の息](02_hazran/136_hidden_path_breathes.md)
 - [第百三十七話　外の匂い](02_hazran/137_smell_of_outside.md)
+- [第百三十八話　残った手と戻った手](02_hazran/138_stayed_and_returned.md)

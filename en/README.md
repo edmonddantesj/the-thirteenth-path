@@ -145,3 +145,4 @@ Current public English release:
 - [Episode 135. Pretending Dead](02_hazran/135_pretending_dead.md)
 - [Episode 136. Hidden Path Breathes](02_hazran/136_hidden_path_breathes.md)
 - [Episode 137. Smell of Outside](02_hazran/137_smell_of_outside.md)
+- [Episode 138. Stayed and Returned](02_hazran/138_stayed_and_returned.md)

@@ -234,6 +234,7 @@ Each language directory is organized by arc:
 - [135. 죽은 척한 길](ko/02_hazran/135_pretending_dead.md)
 - [136. 숨은 길의 숨](ko/02_hazran/136_hidden_path_breathes.md)
 - [137. 바깥 냄새](ko/02_hazran/137_smell_of_outside.md)
+- [138. 남은 손과 돌아온 손](ko/02_hazran/138_stayed_and_returned.md)
 
 ### English
 
@@ -378,6 +379,7 @@ Each language directory is organized by arc:
 - [135. Pretending Dead](en/02_hazran/135_pretending_dead.md)
 - [136. Hidden Path Breathes](en/02_hazran/136_hidden_path_breathes.md)
 - [137. Smell of Outside](en/02_hazran/137_smell_of_outside.md)
+- [138. Stayed and Returned](en/02_hazran/138_stayed_and_returned.md)
 
 ### Japanese
 
@@ -522,6 +524,7 @@ Each language directory is organized by arc:
 - [第百三十五話　死んだ振りをしていた道](ja/02_hazran/135_pretending_dead.md)
 - [第百三十六話　隠れた道の息](ja/02_hazran/136_hidden_path_breathes.md)
 - [第百三十七話　外の匂い](ja/02_hazran/137_smell_of_outside.md)
+- [第百三十八話　残った手と戻った手](ja/02_hazran/138_stayed_and_returned.md)
 
 ### Chinese
 
@@ -666,6 +669,7 @@ Each language directory is organized by arc:
 - [第一百三十五章 装死的路](zh/02_hazran/135_pretending_dead.md)
 - [第一百三十六章 暗路的呼吸](zh/02_hazran/136_hidden_path_breathes.md)
 - [第一百三十七章 外面的气味](zh/02_hazran/137_smell_of_outside.md)
+- [第一百三十八章 留守的手与归来的手](zh/02_hazran/138_stayed_and_returned.md)
 
 ### French
 
@@ -810,6 +814,7 @@ Each language directory is organized by arc:
 - [Chapitre 135 — Faire semblant d'être mort](fr/02_hazran/135_pretending_dead.md)
 - [Chapitre 136 — Le chemin caché respire](fr/02_hazran/136_hidden_path_breathes.md)
 - [Chapitre 137 — L'odeur du dehors](fr/02_hazran/137_smell_of_outside.md)
+- [Chapitre 138 — Celui qui resta et revint](fr/02_hazran/138_stayed_and_returned.md)
 
 ### Spanish
 
@@ -940,7 +945,8 @@ Each language directory is organized by arc:
 - [Capítulo 121 — La gente que parecía estar perfectamente bien](es/02_hazran/121_happy_but_wrong.md)
 - [Capítulo 122 — Las manos antes que las palabras](es/02_hazran/122_hands_before_words.md)
 - [Capítulo 123 — El mundo que quería dejarlo todo definido](es/02_hazran/123_defining_them.md)
+- [Capítulo 124 — La amabilidad convertida en clasificación](es/02_hazran/124_kindness_as_sorting.md)
 
 ## Status
 
-Public archive currently published through Episode 137 in Korean, Episode 137 in English, Episode 137 in Japanese, Episode 137 in French, Episode 137 in Chinese (Simplified), and Episode 123 in Spanish.
+Public archive currently published through Episode 138 in Korean, Episode 138 in English, Episode 138 in Japanese, Episode 138 in French, Episode 138 in Chinese (Simplified), and Episode 124 in Spanish.
