@@ -126,3 +126,4 @@ Capítulos públicos actuales:
 - [Capítulo 120 — La cortesía de Serakion](02_hazran/120_first_hosts.md)
 - [Capítulo 121 — La gente que parecía estar perfectamente bien](02_hazran/121_happy_but_wrong.md)
 - [Capítulo 122 — Las manos antes que las palabras](02_hazran/122_hands_before_words.md)
+- [Capítulo 123 — El mundo que quería dejarlo todo definido](02_hazran/123_defining_them.md)

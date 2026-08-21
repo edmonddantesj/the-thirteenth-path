@@ -939,7 +939,8 @@ Each language directory is organized by arc:
 - [Capítulo 120 — La cortesía de Serakion](es/02_hazran/120_first_hosts.md)
 - [Capítulo 121 — La gente que parecía estar perfectamente bien](es/02_hazran/121_happy_but_wrong.md)
 - [Capítulo 122 — Las manos antes que las palabras](es/02_hazran/122_hands_before_words.md)
+- [Capítulo 123 — El mundo que quería dejarlo todo definido](es/02_hazran/123_defining_them.md)
 
 ## Status
 
-Public archive currently published through Episode 137 in Korean, Episode 137 in English, Episode 137 in Japanese, Episode 137 in French, Episode 137 in Chinese (Simplified), and Episode 122 in Spanish.
+Public archive currently published through Episode 137 in Korean, Episode 137 in English, Episode 137 in Japanese, Episode 137 in French, Episode 137 in Chinese (Simplified), and Episode 123 in Spanish.
