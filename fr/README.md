@@ -146,3 +146,4 @@ Chapitres publics actuels :
 - [Chapitre 136 — Le chemin caché respire](02_hazran/136_hidden_path_breathes.md)
 - [Chapitre 137 — L'odeur du dehors](02_hazran/137_smell_of_outside.md)
 - [Chapitre 138 — Celui qui resta et revint](02_hazran/138_stayed_and_returned.md)
+- [Chapitre 139 — Pas seulement un survivant](02_hazran/139_not_just_a_survivor.md)

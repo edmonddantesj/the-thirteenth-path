@@ -146,3 +146,4 @@ Current public English release:
 - [Episode 136. Hidden Path Breathes](02_hazran/136_hidden_path_breathes.md)
 - [Episode 137. Smell of Outside](02_hazran/137_smell_of_outside.md)
 - [Episode 138. Stayed and Returned](02_hazran/138_stayed_and_returned.md)
+- [Episode 139. Not Just a Survivor](02_hazran/139_not_just_a_survivor.md)

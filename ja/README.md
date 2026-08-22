@@ -146,3 +146,4 @@
 - [第百三十六話　隠れた道の息](02_hazran/136_hidden_path_breathes.md)
 - [第百三十七話　外の匂い](02_hazran/137_smell_of_outside.md)
 - [第百三十八話　残った手と戻った手](02_hazran/138_stayed_and_returned.md)
+- [第百三十九話　一人の人間だけではなく](02_hazran/139_not_just_a_survivor.md)
