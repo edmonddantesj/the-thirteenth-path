@@ -946,7 +946,8 @@ Each language directory is organized by arc:
 - [Capítulo 122 — Las manos antes que las palabras](es/02_hazran/122_hands_before_words.md)
 - [Capítulo 123 — El mundo que quería dejarlo todo definido](es/02_hazran/123_defining_them.md)
 - [Capítulo 124 — La amabilidad convertida en clasificación](es/02_hazran/124_kindness_as_sorting.md)
+- [Capítulo 125 — La voz robada](es/02_hazran/125_stolen_voice.md)
 
 ## Status
 
-Public archive currently published through Episode 138 in Korean, Episode 138 in English, Episode 138 in Japanese, Episode 138 in French, Episode 138 in Chinese (Simplified), and Episode 124 in Spanish.
+Public archive currently published through Episode 138 in Korean, Episode 138 in English, Episode 138 in Japanese, Episode 138 in French, Episode 138 in Chinese (Simplified), and Episode 125 in Spanish.

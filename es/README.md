@@ -128,3 +128,4 @@ Capítulos públicos actuales:
 - [Capítulo 122 — Las manos antes que las palabras](02_hazran/122_hands_before_words.md)
 - [Capítulo 123 — El mundo que quería dejarlo todo definido](02_hazran/123_defining_them.md)
 - [Capítulo 124 — La amabilidad convertida en clasificación](02_hazran/124_kindness_as_sorting.md)
+- [Capítulo 125 — La voz robada](02_hazran/125_stolen_voice.md)
