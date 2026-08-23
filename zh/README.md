@@ -147,3 +147,4 @@
 - [第一百三十七章 外面的气味](02_hazran/137_smell_of_outside.md)
 - [第一百三十八章 留守的手与归来的手](02_hazran/138_stayed_and_returned.md)
 - [第一百三十九章 带回来的不止一个人](02_hazran/139_not_just_a_survivor.md)
+- [第一百四十章 表面之下的战争](02_hazran/140_war_beneath.md)

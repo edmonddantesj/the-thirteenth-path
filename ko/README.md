@@ -148,3 +148,4 @@
 - [137화. 바깥 냄새](02_hazran/137_smell_of_outside.md)
 - [138화. 남은 손과 돌아온 손](02_hazran/138_stayed_and_returned.md)
 - [139화. 사람 하나만이 아닌](02_hazran/139_not_just_a_survivor.md)
+- [140화. 표면 아래의 전쟁](02_hazran/140_war_beneath.md)

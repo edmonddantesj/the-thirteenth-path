@@ -236,6 +236,7 @@ Each language directory is organized by arc:
 - [137. 바깥 냄새](ko/02_hazran/137_smell_of_outside.md)
 - [138. 남은 손과 돌아온 손](ko/02_hazran/138_stayed_and_returned.md)
 - [139. 사람 하나만이 아닌](ko/02_hazran/139_not_just_a_survivor.md)
+- [140. 표면 아래의 전쟁](ko/02_hazran/140_war_beneath.md)
 
 ### English
 
@@ -382,6 +383,7 @@ Each language directory is organized by arc:
 - [137. Smell of Outside](en/02_hazran/137_smell_of_outside.md)
 - [138. Stayed and Returned](en/02_hazran/138_stayed_and_returned.md)
 - [139. Not Just a Survivor](en/02_hazran/139_not_just_a_survivor.md)
+- [140. War Beneath](en/02_hazran/140_war_beneath.md)
 
 ### Japanese
 
@@ -528,6 +530,7 @@ Each language directory is organized by arc:
 - [第百三十七話　外の匂い](ja/02_hazran/137_smell_of_outside.md)
 - [第百三十八話　残った手と戻った手](ja/02_hazran/138_stayed_and_returned.md)
 - [第百三十九話　一人の人間だけではなく](ja/02_hazran/139_not_just_a_survivor.md)
+- [第百四十話　表面の下の戦争](ja/02_hazran/140_war_beneath.md)
 
 ### Chinese
 
@@ -674,6 +677,7 @@ Each language directory is organized by arc:
 - [第一百三十七章 外面的气味](zh/02_hazran/137_smell_of_outside.md)
 - [第一百三十八章 留守的手与归来的手](zh/02_hazran/138_stayed_and_returned.md)
 - [第一百三十九章 带回来的不止一个人](zh/02_hazran/139_not_just_a_survivor.md)
+- [第一百四十章 表面之下的战争](zh/02_hazran/140_war_beneath.md)
 
 ### French
 
@@ -820,6 +824,7 @@ Each language directory is organized by arc:
 - [Chapitre 137 — L'odeur du dehors](fr/02_hazran/137_smell_of_outside.md)
 - [Chapitre 138 — Celui qui resta et revint](fr/02_hazran/138_stayed_and_returned.md)
 - [Chapitre 139 — Pas seulement un survivant](fr/02_hazran/139_not_just_a_survivor.md)
+- [Chapitre 140 — La guerre en dessous](fr/02_hazran/140_war_beneath.md)
 
 ### Spanish
 
@@ -954,7 +959,8 @@ Each language directory is organized by arc:
 - [Capítulo 125 — La voz robada](es/02_hazran/125_stolen_voice.md)
 - [Capítulo 126 — Un lugar donde se puede respirar](es/02_hazran/126_first_breath.md)
 - [Capítulo 127 — Salvar no es confiar](es/02_hazran/127_rescue_not_trust.md)
+- [Capítulo 128 — Los que guardan la memoria](es/02_hazran/128_keepers_of_memory.md)
 
 ## Status
 
-Public archive currently published through Episode 139 in Korean, Episode 139 in English, Episode 139 in Japanese, Episode 139 in French, Episode 139 in Chinese (Simplified), and Episode 127 in Spanish.
+Public archive currently published through Episode 140 in Korean, Episode 140 in English, Episode 140 in Japanese, Episode 140 in French, Episode 140 in Chinese (Simplified), and Episode 128 in Spanish.
