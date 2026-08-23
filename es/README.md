@@ -130,3 +130,4 @@ Capítulos públicos actuales:
 - [Capítulo 124 — La amabilidad convertida en clasificación](02_hazran/124_kindness_as_sorting.md)
 - [Capítulo 125 — La voz robada](02_hazran/125_stolen_voice.md)
 - [Capítulo 126 — Un lugar donde se puede respirar](02_hazran/126_first_breath.md)
+- [Capítulo 127 — Salvar no es confiar](02_hazran/127_rescue_not_trust.md)

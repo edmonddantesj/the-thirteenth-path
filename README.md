@@ -953,7 +953,8 @@ Each language directory is organized by arc:
 - [Capítulo 124 — La amabilidad convertida en clasificación](es/02_hazran/124_kindness_as_sorting.md)
 - [Capítulo 125 — La voz robada](es/02_hazran/125_stolen_voice.md)
 - [Capítulo 126 — Un lugar donde se puede respirar](es/02_hazran/126_first_breath.md)
+- [Capítulo 127 — Salvar no es confiar](es/02_hazran/127_rescue_not_trust.md)
 
 ## Status
 
-Public archive currently published through Episode 139 in Korean, Episode 139 in English, Episode 139 in Japanese, Episode 139 in French, Episode 139 in Chinese (Simplified), and Episode 126 in Spanish.
+Public archive currently published through Episode 139 in Korean, Episode 139 in English, Episode 139 in Japanese, Episode 139 in French, Episode 139 in Chinese (Simplified), and Episode 127 in Spanish.
