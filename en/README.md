@@ -148,3 +148,4 @@ Current public English release:
 - [Episode 138. Stayed and Returned](02_hazran/138_stayed_and_returned.md)
 - [Episode 139. Not Just a Survivor](02_hazran/139_not_just_a_survivor.md)
 - [Episode 140. War Beneath](02_hazran/140_war_beneath.md)
+- [Episode 141. Before Anyone Ready](02_hazran/141_before_anyone_ready.md)

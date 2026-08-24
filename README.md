@@ -237,6 +237,7 @@ Each language directory is organized by arc:
 - [138. 남은 손과 돌아온 손](ko/02_hazran/138_stayed_and_returned.md)
 - [139. 사람 하나만이 아닌](ko/02_hazran/139_not_just_a_survivor.md)
 - [140. 표면 아래의 전쟁](ko/02_hazran/140_war_beneath.md)
+- [141. 준비 전에 시작](ko/02_hazran/141_before_anyone_ready.md)
 
 ### English
 
@@ -384,6 +385,7 @@ Each language directory is organized by arc:
 - [138. Stayed and Returned](en/02_hazran/138_stayed_and_returned.md)
 - [139. Not Just a Survivor](en/02_hazran/139_not_just_a_survivor.md)
 - [140. War Beneath](en/02_hazran/140_war_beneath.md)
+- [141. Before Anyone Ready](en/02_hazran/141_before_anyone_ready.md)
 
 ### Japanese
 
@@ -531,6 +533,7 @@ Each language directory is organized by arc:
 - [第百三十八話　残った手と戻った手](ja/02_hazran/138_stayed_and_returned.md)
 - [第百三十九話　一人の人間だけではなく](ja/02_hazran/139_not_just_a_survivor.md)
 - [第百四十話　表面の下の戦争](ja/02_hazran/140_war_beneath.md)
+- [第百四十一話　誰も備える前に](ja/02_hazran/141_before_anyone_ready.md)
 
 ### Chinese
 
@@ -678,6 +681,7 @@ Each language directory is organized by arc:
 - [第一百三十八章 留守的手与归来的手](zh/02_hazran/138_stayed_and_returned.md)
 - [第一百三十九章 带回来的不止一个人](zh/02_hazran/139_not_just_a_survivor.md)
 - [第一百四十章 表面之下的战争](zh/02_hazran/140_war_beneath.md)
+- [第一百四十一章 在准备好之前](zh/02_hazran/141_before_anyone_ready.md)
 
 ### French
 
@@ -825,6 +829,7 @@ Each language directory is organized by arc:
 - [Chapitre 138 — Celui qui resta et revint](fr/02_hazran/138_stayed_and_returned.md)
 - [Chapitre 139 — Pas seulement un survivant](fr/02_hazran/139_not_just_a_survivor.md)
 - [Chapitre 140 — La guerre en dessous](fr/02_hazran/140_war_beneath.md)
+- [Chapitre 141 — Avant que quiconque ne soit prêt](fr/02_hazran/141_before_anyone_ready.md)
 
 ### Spanish
 
@@ -961,7 +966,8 @@ Each language directory is organized by arc:
 - [Capítulo 127 — Salvar no es confiar](es/02_hazran/127_rescue_not_trust.md)
 - [Capítulo 128 — Los que guardan la memoria](es/02_hazran/128_keepers_of_memory.md)
 - [Capítulo 129 — Contar lo que falta](es/02_hazran/129_counting_the_missing.md)
+- [Capítulo 130 — Qué mantener con vida](es/02_hazran/130_what_to_keep_alive.md)
 
 ## Status
 
-Public archive currently published through Episode 140 in Korean, Episode 140 in English, Episode 140 in Japanese, Episode 140 in French, Episode 140 in Chinese (Simplified), and Episode 129 in Spanish.
+Public archive currently published through Episode 141 in Korean, Episode 141 in English, Episode 141 in Japanese, Episode 141 in French, Episode 141 in Chinese (Simplified), and Episode 130 in Spanish.

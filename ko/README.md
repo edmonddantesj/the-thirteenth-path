@@ -149,3 +149,4 @@
 - [138화. 남은 손과 돌아온 손](02_hazran/138_stayed_and_returned.md)
 - [139화. 사람 하나만이 아닌](02_hazran/139_not_just_a_survivor.md)
 - [140화. 표면 아래의 전쟁](02_hazran/140_war_beneath.md)
+- [141화. 준비 전에 시작](02_hazran/141_before_anyone_ready.md)
