@@ -132,3 +132,4 @@ Capítulos públicos actuales:
 - [Capítulo 126 — Un lugar donde se puede respirar](02_hazran/126_first_breath.md)
 - [Capítulo 127 — Salvar no es confiar](02_hazran/127_rescue_not_trust.md)
 - [Capítulo 128 — Los que guardan la memoria](02_hazran/128_keepers_of_memory.md)
+- [Capítulo 129 — Contar lo que falta](02_hazran/129_counting_the_missing.md)

@@ -960,7 +960,8 @@ Each language directory is organized by arc:
 - [Capítulo 126 — Un lugar donde se puede respirar](es/02_hazran/126_first_breath.md)
 - [Capítulo 127 — Salvar no es confiar](es/02_hazran/127_rescue_not_trust.md)
 - [Capítulo 128 — Los que guardan la memoria](es/02_hazran/128_keepers_of_memory.md)
+- [Capítulo 129 — Contar lo que falta](es/02_hazran/129_counting_the_missing.md)
 
 ## Status
 
-Public archive currently published through Episode 140 in Korean, Episode 140 in English, Episode 140 in Japanese, Episode 140 in French, Episode 140 in Chinese (Simplified), and Episode 128 in Spanish.
+Public archive currently published through Episode 140 in Korean, Episode 140 in English, Episode 140 in Japanese, Episode 140 in French, Episode 140 in Chinese (Simplified), and Episode 129 in Spanish.
