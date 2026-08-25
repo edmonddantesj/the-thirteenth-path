@@ -149,3 +149,4 @@
 - [第百三十九話　一人の人間だけではなく](02_hazran/139_not_just_a_survivor.md)
 - [第百四十話　表面の下の戦争](02_hazran/140_war_beneath.md)
 - [第百四十一話　誰も備える前に](02_hazran/141_before_anyone_ready.md)
+- [第百四十二話　別の理由で選ばれた者たち](02_hazran/142_chosen_differently.md)

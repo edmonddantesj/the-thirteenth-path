@@ -238,6 +238,7 @@ Each language directory is organized by arc:
 - [139. 사람 하나만이 아닌](ko/02_hazran/139_not_just_a_survivor.md)
 - [140. 표면 아래의 전쟁](ko/02_hazran/140_war_beneath.md)
 - [141. 준비 전에 시작](ko/02_hazran/141_before_anyone_ready.md)
+- [142. 다른 이유로 뽑힌](ko/02_hazran/142_chosen_differently.md)
 
 ### English
 
@@ -386,6 +387,7 @@ Each language directory is organized by arc:
 - [139. Not Just a Survivor](en/02_hazran/139_not_just_a_survivor.md)
 - [140. War Beneath](en/02_hazran/140_war_beneath.md)
 - [141. Before Anyone Ready](en/02_hazran/141_before_anyone_ready.md)
+- [142. Chosen Differently](en/02_hazran/142_chosen_differently.md)
 
 ### Japanese
 
@@ -534,6 +536,7 @@ Each language directory is organized by arc:
 - [第百三十九話　一人の人間だけではなく](ja/02_hazran/139_not_just_a_survivor.md)
 - [第百四十話　表面の下の戦争](ja/02_hazran/140_war_beneath.md)
 - [第百四十一話　誰も備える前に](ja/02_hazran/141_before_anyone_ready.md)
+- [第百四十二話　別の理由で選ばれた者たち](ja/02_hazran/142_chosen_differently.md)
 
 ### Chinese
 
@@ -682,6 +685,7 @@ Each language directory is organized by arc:
 - [第一百三十九章 带回来的不止一个人](zh/02_hazran/139_not_just_a_survivor.md)
 - [第一百四十章 表面之下的战争](zh/02_hazran/140_war_beneath.md)
 - [第一百四十一章 在准备好之前](zh/02_hazran/141_before_anyone_ready.md)
+- [第一百四十二章 各因不同的理由入选](zh/02_hazran/142_chosen_differently.md)
 
 ### French
 
@@ -830,6 +834,7 @@ Each language directory is organized by arc:
 - [Chapitre 139 — Pas seulement un survivant](fr/02_hazran/139_not_just_a_survivor.md)
 - [Chapitre 140 — La guerre en dessous](fr/02_hazran/140_war_beneath.md)
 - [Chapitre 141 — Avant que quiconque ne soit prêt](fr/02_hazran/141_before_anyone_ready.md)
+- [Chapitre 142 — Choisis autrement](fr/02_hazran/142_chosen_differently.md)
 
 ### Spanish
 
@@ -968,7 +973,8 @@ Each language directory is organized by arc:
 - [Capítulo 129 — Contar lo que falta](es/02_hazran/129_counting_the_missing.md)
 - [Capítulo 130 — Qué mantener con vida](es/02_hazran/130_what_to_keep_alive.md)
 - [Capítulo 131 — Lo que no perdieron](es/02_hazran/131_what_they_kept.md)
+- [Capítulo 132 — Las palabras se vuelven tarea](es/02_hazran/132_words_become_tasks.md)
 
 ## Status
 
-Public archive currently published through Episode 141 in Korean, Episode 141 in English, Episode 141 in Japanese, Episode 141 in French, Episode 141 in Chinese (Simplified), and Episode 131 in Spanish.
+Public archive currently published through Episode 142 in Korean, Episode 142 in English, Episode 142 in Japanese, Episode 142 in French, Episode 142 in Chinese (Simplified), and Episode 132 in Spanish.

@@ -149,3 +149,4 @@
 - [第一百三十九章 带回来的不止一个人](02_hazran/139_not_just_a_survivor.md)
 - [第一百四十章 表面之下的战争](02_hazran/140_war_beneath.md)
 - [第一百四十一章 在准备好之前](02_hazran/141_before_anyone_ready.md)
+- [第一百四十二章 各因不同的理由入选](02_hazran/142_chosen_differently.md)

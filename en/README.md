@@ -149,3 +149,4 @@ Current public English release:
 - [Episode 139. Not Just a Survivor](02_hazran/139_not_just_a_survivor.md)
 - [Episode 140. War Beneath](02_hazran/140_war_beneath.md)
 - [Episode 141. Before Anyone Ready](02_hazran/141_before_anyone_ready.md)
+- [Episode 142. Chosen Differently](02_hazran/142_chosen_differently.md)

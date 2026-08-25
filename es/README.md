@@ -135,3 +135,4 @@ Capítulos públicos actuales:
 - [Capítulo 129 — Contar lo que falta](02_hazran/129_counting_the_missing.md)
 - [Capítulo 130 — Qué mantener con vida](02_hazran/130_what_to_keep_alive.md)
 - [Capítulo 131 — Lo que no perdieron](02_hazran/131_what_they_kept.md)
+- [Capítulo 132 — Las palabras se vuelven tarea](02_hazran/132_words_become_tasks.md)
