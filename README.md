@@ -967,7 +967,8 @@ Each language directory is organized by arc:
 - [Capítulo 128 — Los que guardan la memoria](es/02_hazran/128_keepers_of_memory.md)
 - [Capítulo 129 — Contar lo que falta](es/02_hazran/129_counting_the_missing.md)
 - [Capítulo 130 — Qué mantener con vida](es/02_hazran/130_what_to_keep_alive.md)
+- [Capítulo 131 — Lo que no perdieron](es/02_hazran/131_what_they_kept.md)
 
 ## Status
 
-Public archive currently published through Episode 141 in Korean, Episode 141 in English, Episode 141 in Japanese, Episode 141 in French, Episode 141 in Chinese (Simplified), and Episode 130 in Spanish.
+Public archive currently published through Episode 141 in Korean, Episode 141 in English, Episode 141 in Japanese, Episode 141 in French, Episode 141 in Chinese (Simplified), and Episode 131 in Spanish.
