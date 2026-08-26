@@ -974,7 +974,8 @@ Each language directory is organized by arc:
 - [Capítulo 130 — Qué mantener con vida](es/02_hazran/130_what_to_keep_alive.md)
 - [Capítulo 131 — Lo que no perdieron](es/02_hazran/131_what_they_kept.md)
 - [Capítulo 132 — Las palabras se vuelven tarea](es/02_hazran/132_words_become_tasks.md)
+- [Capítulo 133 — Hablar antes de quebrarse](es/02_hazran/133_speak_before_breaking.md)
 
 ## Status
 
-Public archive currently published through Episode 142 in Korean, Episode 142 in English, Episode 142 in Japanese, Episode 142 in French, Episode 142 in Chinese (Simplified), and Episode 132 in Spanish.
+Public archive currently published through Episode 142 in Korean, Episode 142 in English, Episode 142 in Japanese, Episode 142 in French, Episode 142 in Chinese (Simplified), and Episode 133 in Spanish.

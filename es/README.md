@@ -136,3 +136,4 @@ Capítulos públicos actuales:
 - [Capítulo 130 — Qué mantener con vida](02_hazran/130_what_to_keep_alive.md)
 - [Capítulo 131 — Lo que no perdieron](02_hazran/131_what_they_kept.md)
 - [Capítulo 132 — Las palabras se vuelven tarea](02_hazran/132_words_become_tasks.md)
+- [Capítulo 133 — Hablar antes de quebrarse](02_hazran/133_speak_before_breaking.md)
