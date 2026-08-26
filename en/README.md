@@ -150,3 +150,4 @@ Current public English release:
 - [Episode 140. War Beneath](02_hazran/140_war_beneath.md)
 - [Episode 141. Before Anyone Ready](02_hazran/141_before_anyone_ready.md)
 - [Episode 142. Chosen Differently](02_hazran/142_chosen_differently.md)
+- [Episode 143. How Serakion Lives](02_hazran/143_how_serakion_lives.md)

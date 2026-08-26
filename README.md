@@ -239,6 +239,7 @@ Each language directory is organized by arc:
 - [140. 표면 아래의 전쟁](ko/02_hazran/140_war_beneath.md)
 - [141. 준비 전에 시작](ko/02_hazran/141_before_anyone_ready.md)
 - [142. 다른 이유로 뽑힌](ko/02_hazran/142_chosen_differently.md)
+- [143. 세라키온이 사는 법](ko/02_hazran/143_how_serakion_lives.md)
 
 ### English
 
@@ -388,6 +389,7 @@ Each language directory is organized by arc:
 - [140. War Beneath](en/02_hazran/140_war_beneath.md)
 - [141. Before Anyone Ready](en/02_hazran/141_before_anyone_ready.md)
 - [142. Chosen Differently](en/02_hazran/142_chosen_differently.md)
+- [143. How Serakion Lives](en/02_hazran/143_how_serakion_lives.md)
 
 ### Japanese
 
@@ -537,6 +539,7 @@ Each language directory is organized by arc:
 - [第百四十話　表面の下の戦争](ja/02_hazran/140_war_beneath.md)
 - [第百四十一話　誰も備える前に](ja/02_hazran/141_before_anyone_ready.md)
 - [第百四十二話　別の理由で選ばれた者たち](ja/02_hazran/142_chosen_differently.md)
+- [第百四十三話　セラキオンの暮らし方](ja/02_hazran/143_how_serakion_lives.md)
 
 ### Chinese
 
@@ -686,6 +689,7 @@ Each language directory is organized by arc:
 - [第一百四十章 表面之下的战争](zh/02_hazran/140_war_beneath.md)
 - [第一百四十一章 在准备好之前](zh/02_hazran/141_before_anyone_ready.md)
 - [第一百四十二章 各因不同的理由入选](zh/02_hazran/142_chosen_differently.md)
+- [第一百四十三章 瑟拉基昂的活法](zh/02_hazran/143_how_serakion_lives.md)
 
 ### French
 
@@ -835,6 +839,7 @@ Each language directory is organized by arc:
 - [Chapitre 140 — La guerre en dessous](fr/02_hazran/140_war_beneath.md)
 - [Chapitre 141 — Avant que quiconque ne soit prêt](fr/02_hazran/141_before_anyone_ready.md)
 - [Chapitre 142 — Choisis autrement](fr/02_hazran/142_chosen_differently.md)
+- [Chapitre 143 — Comment vit Serakion](fr/02_hazran/143_how_serakion_lives.md)
 
 ### Spanish
 
@@ -975,7 +980,8 @@ Each language directory is organized by arc:
 - [Capítulo 131 — Lo que no perdieron](es/02_hazran/131_what_they_kept.md)
 - [Capítulo 132 — Las palabras se vuelven tarea](es/02_hazran/132_words_become_tasks.md)
 - [Capítulo 133 — Hablar antes de quebrarse](es/02_hazran/133_speak_before_breaking.md)
+- [Capítulo 134 — Porque habló](es/02_hazran/134_because_he_spoke.md)
 
 ## Status
 
-Public archive currently published through Episode 142 in Korean, Episode 142 in English, Episode 142 in Japanese, Episode 142 in French, Episode 142 in Chinese (Simplified), and Episode 133 in Spanish.
+Public archive currently published through Episode 143 in Korean, Episode 143 in English, Episode 143 in Japanese, Episode 143 in French, Episode 143 in Chinese (Simplified), and Episode 134 in Spanish.

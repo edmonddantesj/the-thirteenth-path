@@ -151,3 +151,4 @@
 - [140화. 표면 아래의 전쟁](02_hazran/140_war_beneath.md)
 - [141화. 준비 전에 시작](02_hazran/141_before_anyone_ready.md)
 - [142화. 다른 이유로 뽑힌](02_hazran/142_chosen_differently.md)
+- [143화. 세라키온이 사는 법](02_hazran/143_how_serakion_lives.md)

@@ -150,3 +150,4 @@
 - [第百四十話　表面の下の戦争](02_hazran/140_war_beneath.md)
 - [第百四十一話　誰も備える前に](02_hazran/141_before_anyone_ready.md)
 - [第百四十二話　別の理由で選ばれた者たち](02_hazran/142_chosen_differently.md)
+- [第百四十三話　セラキオンの暮らし方](02_hazran/143_how_serakion_lives.md)

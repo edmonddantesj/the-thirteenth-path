@@ -150,3 +150,4 @@
 - [第一百四十章 表面之下的战争](02_hazran/140_war_beneath.md)
 - [第一百四十一章 在准备好之前](02_hazran/141_before_anyone_ready.md)
 - [第一百四十二章 各因不同的理由入选](02_hazran/142_chosen_differently.md)
+- [第一百四十三章 瑟拉基昂的活法](02_hazran/143_how_serakion_lives.md)

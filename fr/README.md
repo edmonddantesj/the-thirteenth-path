@@ -150,3 +150,4 @@ Chapitres publics actuels :
 - [Chapitre 140 — La guerre en dessous](02_hazran/140_war_beneath.md)
 - [Chapitre 141 — Avant que quiconque ne soit prêt](02_hazran/141_before_anyone_ready.md)
 - [Chapitre 142 — Choisis autrement](02_hazran/142_chosen_differently.md)
+- [Chapitre 143 — Comment vit Serakion](02_hazran/143_how_serakion_lives.md)
