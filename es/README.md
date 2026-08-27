@@ -138,3 +138,4 @@ Capítulos públicos actuales:
 - [Capítulo 132 — Las palabras se vuelven tarea](02_hazran/132_words_become_tasks.md)
 - [Capítulo 133 — Hablar antes de quebrarse](02_hazran/133_speak_before_breaking.md)
 - [Capítulo 134 — Porque habló](02_hazran/134_because_he_spoke.md)
+- [Capítulo 135 — El camino que fingió estar muerto](02_hazran/135_pretending_dead.md)

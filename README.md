@@ -981,7 +981,8 @@ Each language directory is organized by arc:
 - [Capítulo 132 — Las palabras se vuelven tarea](es/02_hazran/132_words_become_tasks.md)
 - [Capítulo 133 — Hablar antes de quebrarse](es/02_hazran/133_speak_before_breaking.md)
 - [Capítulo 134 — Porque habló](es/02_hazran/134_because_he_spoke.md)
+- [Capítulo 135 — El camino que fingió estar muerto](es/02_hazran/135_pretending_dead.md)
 
 ## Status
 
-Public archive currently published through Episode 143 in Korean, Episode 143 in English, Episode 143 in Japanese, Episode 143 in French, Episode 143 in Chinese (Simplified), and Episode 134 in Spanish.
+Public archive currently published through Episode 143 in Korean, Episode 143 in English, Episode 143 in Japanese, Episode 143 in French, Episode 143 in Chinese (Simplified), and Episode 135 in Spanish.
