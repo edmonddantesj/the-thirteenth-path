@@ -240,6 +240,7 @@ Each language directory is organized by arc:
 - [141. 준비 전에 시작](ko/02_hazran/141_before_anyone_ready.md)
 - [142. 다른 이유로 뽑힌](ko/02_hazran/142_chosen_differently.md)
 - [143. 세라키온이 사는 법](ko/02_hazran/143_how_serakion_lives.md)
+- [144. 정중한 질서](ko/02_hazran/144_polite_order.md)
 
 ### English
 
@@ -390,6 +391,7 @@ Each language directory is organized by arc:
 - [141. Before Anyone Ready](en/02_hazran/141_before_anyone_ready.md)
 - [142. Chosen Differently](en/02_hazran/142_chosen_differently.md)
 - [143. How Serakion Lives](en/02_hazran/143_how_serakion_lives.md)
+- [144. Polite Order](en/02_hazran/144_polite_order.md)
 
 ### Japanese
 
@@ -540,6 +542,7 @@ Each language directory is organized by arc:
 - [第百四十一話　誰も備える前に](ja/02_hazran/141_before_anyone_ready.md)
 - [第百四十二話　別の理由で選ばれた者たち](ja/02_hazran/142_chosen_differently.md)
 - [第百四十三話　セラキオンの暮らし方](ja/02_hazran/143_how_serakion_lives.md)
+- [第百四十四話　丁重な秩序](ja/02_hazran/144_polite_order.md)
 
 ### Chinese
 
@@ -690,6 +693,7 @@ Each language directory is organized by arc:
 - [第一百四十一章 在准备好之前](zh/02_hazran/141_before_anyone_ready.md)
 - [第一百四十二章 各因不同的理由入选](zh/02_hazran/142_chosen_differently.md)
 - [第一百四十三章 瑟拉基昂的活法](zh/02_hazran/143_how_serakion_lives.md)
+- [第一百四十四章 彬彬有礼的秩序](zh/02_hazran/144_polite_order.md)
 
 ### French
 
@@ -840,6 +844,7 @@ Each language directory is organized by arc:
 - [Chapitre 141 — Avant que quiconque ne soit prêt](fr/02_hazran/141_before_anyone_ready.md)
 - [Chapitre 142 — Choisis autrement](fr/02_hazran/142_chosen_differently.md)
 - [Chapitre 143 — Comment vit Serakion](fr/02_hazran/143_how_serakion_lives.md)
+- [Chapitre 144 — L'ordre poli](fr/02_hazran/144_polite_order.md)
 
 ### Spanish
 
@@ -982,7 +987,8 @@ Each language directory is organized by arc:
 - [Capítulo 133 — Hablar antes de quebrarse](es/02_hazran/133_speak_before_breaking.md)
 - [Capítulo 134 — Porque habló](es/02_hazran/134_because_he_spoke.md)
 - [Capítulo 135 — El camino que fingió estar muerto](es/02_hazran/135_pretending_dead.md)
+- [Capítulo 136 — El aliento del camino oculto](es/02_hazran/136_hidden_path_breathes.md)
 
 ## Status
 
-Public archive currently published through Episode 143 in Korean, Episode 143 in English, Episode 143 in Japanese, Episode 143 in French, Episode 143 in Chinese (Simplified), and Episode 135 in Spanish.
+Public archive currently published through Episode 144 in Korean, Episode 144 in English, Episode 144 in Japanese, Episode 144 in French, Episode 144 in Chinese (Simplified), and Episode 136 in Spanish.
