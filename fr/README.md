@@ -152,3 +152,4 @@ Chapitres publics actuels :
 - [Chapitre 142 — Choisis autrement](02_hazran/142_chosen_differently.md)
 - [Chapitre 143 — Comment vit Serakion](02_hazran/143_how_serakion_lives.md)
 - [Chapitre 144 — L'ordre poli](02_hazran/144_polite_order.md)
+- [Chapitre 145 — Tenir et ouvrir](02_hazran/145_hold_and_open.md)

@@ -152,3 +152,4 @@
 - [第百四十二話　別の理由で選ばれた者たち](02_hazran/142_chosen_differently.md)
 - [第百四十三話　セラキオンの暮らし方](02_hazran/143_how_serakion_lives.md)
 - [第百四十四話　丁重な秩序](02_hazran/144_polite_order.md)
+- [第百四十五話　塞ぎ方と開け方](02_hazran/145_hold_and_open.md)

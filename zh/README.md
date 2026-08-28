@@ -152,3 +152,4 @@
 - [第一百四十二章 各因不同的理由入选](02_hazran/142_chosen_differently.md)
 - [第一百四十三章 瑟拉基昂的活法](02_hazran/143_how_serakion_lives.md)
 - [第一百四十四章 彬彬有礼的秩序](02_hazran/144_polite_order.md)
+- [第一百四十五章 堵与开之法](02_hazran/145_hold_and_open.md)

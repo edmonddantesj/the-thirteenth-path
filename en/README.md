@@ -152,3 +152,4 @@ Current public English release:
 - [Episode 142. Chosen Differently](02_hazran/142_chosen_differently.md)
 - [Episode 143. How Serakion Lives](02_hazran/143_how_serakion_lives.md)
 - [Episode 144. Polite Order](02_hazran/144_polite_order.md)
+- [Episode 145. Hold and Open](02_hazran/145_hold_and_open.md)

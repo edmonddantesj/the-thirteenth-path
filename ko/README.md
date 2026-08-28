@@ -153,3 +153,4 @@
 - [142화. 다른 이유로 뽑힌](02_hazran/142_chosen_differently.md)
 - [143화. 세라키온이 사는 법](02_hazran/143_how_serakion_lives.md)
 - [144화. 정중한 질서](02_hazran/144_polite_order.md)
+- [145화. 막고 여는 법](02_hazran/145_hold_and_open.md)
