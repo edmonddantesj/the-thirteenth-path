@@ -988,7 +988,8 @@ Each language directory is organized by arc:
 - [Capítulo 134 — Porque habló](es/02_hazran/134_because_he_spoke.md)
 - [Capítulo 135 — El camino que fingió estar muerto](es/02_hazran/135_pretending_dead.md)
 - [Capítulo 136 — El aliento del camino oculto](es/02_hazran/136_hidden_path_breathes.md)
+- [Capítulo 137 — El olor de fuera](es/02_hazran/137_smell_of_outside.md)
 
 ## Status
 
-Public archive currently published through Episode 144 in Korean, Episode 144 in English, Episode 144 in Japanese, Episode 144 in French, Episode 144 in Chinese (Simplified), and Episode 136 in Spanish.
+Public archive currently published through Episode 144 in Korean, Episode 144 in English, Episode 144 in Japanese, Episode 144 in French, Episode 144 in Chinese (Simplified), and Episode 137 in Spanish.

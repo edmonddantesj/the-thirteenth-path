@@ -140,3 +140,4 @@ Capítulos públicos actuales:
 - [Capítulo 134 — Porque habló](02_hazran/134_because_he_spoke.md)
 - [Capítulo 135 — El camino que fingió estar muerto](02_hazran/135_pretending_dead.md)
 - [Capítulo 136 — El aliento del camino oculto](02_hazran/136_hidden_path_breathes.md)
+- [Capítulo 137 — El olor de fuera](02_hazran/137_smell_of_outside.md)
