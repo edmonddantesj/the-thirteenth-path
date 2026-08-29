@@ -142,3 +142,4 @@ Capítulos públicos actuales:
 - [Capítulo 136 — El aliento del camino oculto](02_hazran/136_hidden_path_breathes.md)
 - [Capítulo 137 — El olor de fuera](02_hazran/137_smell_of_outside.md)
 - [Capítulo 138 — Las manos que se quedaron y las que volvieron](02_hazran/138_stayed_and_returned.md)
+- [Capítulo 139 — No solo a una persona](02_hazran/139_not_just_a_survivor.md)

@@ -995,7 +995,8 @@ Each language directory is organized by arc:
 - [Capítulo 136 — El aliento del camino oculto](es/02_hazran/136_hidden_path_breathes.md)
 - [Capítulo 137 — El olor de fuera](es/02_hazran/137_smell_of_outside.md)
 - [Capítulo 138 — Las manos que se quedaron y las que volvieron](es/02_hazran/138_stayed_and_returned.md)
+- [Capítulo 139 — No solo a una persona](es/02_hazran/139_not_just_a_survivor.md)
 
 ## Status
 
-Public archive currently published through Episode 145 in Korean, Episode 145 in English, Episode 145 in Japanese, Episode 145 in French, Episode 145 in Chinese (Simplified), and Episode 138 in Spanish.
+Public archive currently published through Episode 145 in Korean, Episode 145 in English, Episode 145 in Japanese, Episode 145 in French, Episode 145 in Chinese (Simplified), and Episode 139 in Spanish.
