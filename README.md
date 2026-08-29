@@ -242,6 +242,7 @@ Each language directory is organized by arc:
 - [143. 세라키온이 사는 법](ko/02_hazran/143_how_serakion_lives.md)
 - [144. 정중한 질서](ko/02_hazran/144_polite_order.md)
 - [145. 막고 여는 법](ko/02_hazran/145_hold_and_open.md)
+- [146. 다듬어지는 자리](ko/02_hazran/146_shaped_to_rise.md)
 
 ### English
 
@@ -394,6 +395,7 @@ Each language directory is organized by arc:
 - [143. How Serakion Lives](en/02_hazran/143_how_serakion_lives.md)
 - [144. Polite Order](en/02_hazran/144_polite_order.md)
 - [145. Hold and Open](en/02_hazran/145_hold_and_open.md)
+- [146. Shaped to Rise](en/02_hazran/146_shaped_to_rise.md)
 
 ### Japanese
 
@@ -546,6 +548,7 @@ Each language directory is organized by arc:
 - [第百四十三話　セラキオンの暮らし方](ja/02_hazran/143_how_serakion_lives.md)
 - [第百四十四話　丁重な秩序](ja/02_hazran/144_polite_order.md)
 - [第百四十五話　塞ぎ方と開け方](ja/02_hazran/145_hold_and_open.md)
+- [第百四十六話　整えられる場所](ja/02_hazran/146_shaped_to_rise.md)
 
 ### Chinese
 
@@ -698,6 +701,7 @@ Each language directory is organized by arc:
 - [第一百四十三章 瑟拉基昂的活法](zh/02_hazran/143_how_serakion_lives.md)
 - [第一百四十四章 彬彬有礼的秩序](zh/02_hazran/144_polite_order.md)
 - [第一百四十五章 堵与开之法](zh/02_hazran/145_hold_and_open.md)
+- [第一百四十六章 被打磨的位置](zh/02_hazran/146_shaped_to_rise.md)
 
 ### French
 
@@ -850,6 +854,7 @@ Each language directory is organized by arc:
 - [Chapitre 143 — Comment vit Serakion](fr/02_hazran/143_how_serakion_lives.md)
 - [Chapitre 144 — L'ordre poli](fr/02_hazran/144_polite_order.md)
 - [Chapitre 145 — Tenir et ouvrir](fr/02_hazran/145_hold_and_open.md)
+- [Chapitre 146 — Façonnés pour monter](fr/02_hazran/146_shaped_to_rise.md)
 
 ### Spanish
 
@@ -996,7 +1001,8 @@ Each language directory is organized by arc:
 - [Capítulo 137 — El olor de fuera](es/02_hazran/137_smell_of_outside.md)
 - [Capítulo 138 — Las manos que se quedaron y las que volvieron](es/02_hazran/138_stayed_and_returned.md)
 - [Capítulo 139 — No solo a una persona](es/02_hazran/139_not_just_a_survivor.md)
+- [Capítulo 140 — La guerra bajo la superficie](es/02_hazran/140_war_beneath.md)
 
 ## Status
 
-Public archive currently published through Episode 145 in Korean, Episode 145 in English, Episode 145 in Japanese, Episode 145 in French, Episode 145 in Chinese (Simplified), and Episode 139 in Spanish.
+Public archive currently published through Episode 146 in Korean, Episode 146 in English, Episode 146 in Japanese, Episode 146 in French, Episode 146 in Chinese (Simplified), and Episode 140 in Spanish.

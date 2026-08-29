@@ -154,3 +154,4 @@
 - [143화. 세라키온이 사는 법](02_hazran/143_how_serakion_lives.md)
 - [144화. 정중한 질서](02_hazran/144_polite_order.md)
 - [145화. 막고 여는 법](02_hazran/145_hold_and_open.md)
+- [146화. 다듬어지는 자리](02_hazran/146_shaped_to_rise.md)

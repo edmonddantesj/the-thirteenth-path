@@ -153,3 +153,4 @@ Chapitres publics actuels :
 - [Chapitre 143 — Comment vit Serakion](02_hazran/143_how_serakion_lives.md)
 - [Chapitre 144 — L'ordre poli](02_hazran/144_polite_order.md)
 - [Chapitre 145 — Tenir et ouvrir](02_hazran/145_hold_and_open.md)
+- [Chapitre 146 — Façonnés pour monter](02_hazran/146_shaped_to_rise.md)

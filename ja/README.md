@@ -153,3 +153,4 @@
 - [第百四十三話　セラキオンの暮らし方](02_hazran/143_how_serakion_lives.md)
 - [第百四十四話　丁重な秩序](02_hazran/144_polite_order.md)
 - [第百四十五話　塞ぎ方と開け方](02_hazran/145_hold_and_open.md)
+- [第百四十六話　整えられる場所](02_hazran/146_shaped_to_rise.md)

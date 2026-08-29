@@ -143,3 +143,4 @@ Capítulos públicos actuales:
 - [Capítulo 137 — El olor de fuera](02_hazran/137_smell_of_outside.md)
 - [Capítulo 138 — Las manos que se quedaron y las que volvieron](02_hazran/138_stayed_and_returned.md)
 - [Capítulo 139 — No solo a una persona](02_hazran/139_not_just_a_survivor.md)
+- [Capítulo 140 — La guerra bajo la superficie](02_hazran/140_war_beneath.md)
