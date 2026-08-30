@@ -1002,7 +1002,8 @@ Each language directory is organized by arc:
 - [Capítulo 138 — Las manos que se quedaron y las que volvieron](es/02_hazran/138_stayed_and_returned.md)
 - [Capítulo 139 — No solo a una persona](es/02_hazran/139_not_just_a_survivor.md)
 - [Capítulo 140 — La guerra bajo la superficie](es/02_hazran/140_war_beneath.md)
+- [Capítulo 141 — Empezar antes de estar listos](es/02_hazran/141_before_anyone_ready.md)
 
 ## Status
 
-Public archive currently published through Episode 146 in Korean, Episode 146 in English, Episode 146 in Japanese, Episode 146 in French, Episode 146 in Chinese (Simplified), and Episode 140 in Spanish.
+Public archive currently published through Episode 146 in Korean, Episode 146 in English, Episode 146 in Japanese, Episode 146 in French, Episode 146 in Chinese (Simplified), and Episode 141 in Spanish.
