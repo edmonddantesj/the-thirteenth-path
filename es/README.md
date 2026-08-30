@@ -145,3 +145,4 @@ Capítulos públicos actuales:
 - [Capítulo 139 — No solo a una persona](02_hazran/139_not_just_a_survivor.md)
 - [Capítulo 140 — La guerra bajo la superficie](02_hazran/140_war_beneath.md)
 - [Capítulo 141 — Empezar antes de estar listos](02_hazran/141_before_anyone_ready.md)
+- [Capítulo 142 — Elegidos por razones distintas](02_hazran/142_chosen_differently.md)

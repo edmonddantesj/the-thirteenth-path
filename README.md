@@ -243,6 +243,7 @@ Each language directory is organized by arc:
 - [144. 정중한 질서](ko/02_hazran/144_polite_order.md)
 - [145. 막고 여는 법](ko/02_hazran/145_hold_and_open.md)
 - [146. 다듬어지는 자리](ko/02_hazran/146_shaped_to_rise.md)
+- [147. 구분된 세계](ko/02_hazran/147_sorted_world.md)
 
 ### English
 
@@ -396,6 +397,7 @@ Each language directory is organized by arc:
 - [144. Polite Order](en/02_hazran/144_polite_order.md)
 - [145. Hold and Open](en/02_hazran/145_hold_and_open.md)
 - [146. Shaped to Rise](en/02_hazran/146_shaped_to_rise.md)
+- [147. Sorted World](en/02_hazran/147_sorted_world.md)
 
 ### Japanese
 
@@ -549,6 +551,7 @@ Each language directory is organized by arc:
 - [第百四十四話　丁重な秩序](ja/02_hazran/144_polite_order.md)
 - [第百四十五話　塞ぎ方と開け方](ja/02_hazran/145_hold_and_open.md)
 - [第百四十六話　整えられる場所](ja/02_hazran/146_shaped_to_rise.md)
+- [第百四十七話　区分された世界](ja/02_hazran/147_sorted_world.md)
 
 ### Chinese
 
@@ -702,6 +705,7 @@ Each language directory is organized by arc:
 - [第一百四十四章 彬彬有礼的秩序](zh/02_hazran/144_polite_order.md)
 - [第一百四十五章 堵与开之法](zh/02_hazran/145_hold_and_open.md)
 - [第一百四十六章 被打磨的位置](zh/02_hazran/146_shaped_to_rise.md)
+- [第一百四十七章 被划分的世界](zh/02_hazran/147_sorted_world.md)
 
 ### French
 
@@ -855,6 +859,7 @@ Each language directory is organized by arc:
 - [Chapitre 144 — L'ordre poli](fr/02_hazran/144_polite_order.md)
 - [Chapitre 145 — Tenir et ouvrir](fr/02_hazran/145_hold_and_open.md)
 - [Chapitre 146 — Façonnés pour monter](fr/02_hazran/146_shaped_to_rise.md)
+- [Chapitre 147 — Le monde classé](fr/02_hazran/147_sorted_world.md)
 
 ### Spanish
 
@@ -1003,7 +1008,8 @@ Each language directory is organized by arc:
 - [Capítulo 139 — No solo a una persona](es/02_hazran/139_not_just_a_survivor.md)
 - [Capítulo 140 — La guerra bajo la superficie](es/02_hazran/140_war_beneath.md)
 - [Capítulo 141 — Empezar antes de estar listos](es/02_hazran/141_before_anyone_ready.md)
+- [Capítulo 142 — Elegidos por razones distintas](es/02_hazran/142_chosen_differently.md)
 
 ## Status
 
-Public archive currently published through Episode 146 in Korean, Episode 146 in English, Episode 146 in Japanese, Episode 146 in French, Episode 146 in Chinese (Simplified), and Episode 141 in Spanish.
+Public archive currently published through Episode 147 in Korean, Episode 147 in English, Episode 147 in Japanese, Episode 147 in French, Episode 147 in Chinese (Simplified), and Episode 142 in Spanish.

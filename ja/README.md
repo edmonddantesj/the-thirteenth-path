@@ -154,3 +154,4 @@
 - [第百四十四話　丁重な秩序](02_hazran/144_polite_order.md)
 - [第百四十五話　塞ぎ方と開け方](02_hazran/145_hold_and_open.md)
 - [第百四十六話　整えられる場所](02_hazran/146_shaped_to_rise.md)
+- [第百四十七話　区分された世界](02_hazran/147_sorted_world.md)

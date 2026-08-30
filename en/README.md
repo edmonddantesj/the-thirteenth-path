@@ -154,3 +154,4 @@ Current public English release:
 - [Episode 144. Polite Order](02_hazran/144_polite_order.md)
 - [Episode 145. Hold and Open](02_hazran/145_hold_and_open.md)
 - [Episode 146. Shaped to Rise](02_hazran/146_shaped_to_rise.md)
+- [Episode 147. Sorted World](02_hazran/147_sorted_world.md)

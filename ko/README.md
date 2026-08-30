@@ -155,3 +155,4 @@
 - [144화. 정중한 질서](02_hazran/144_polite_order.md)
 - [145화. 막고 여는 법](02_hazran/145_hold_and_open.md)
 - [146화. 다듬어지는 자리](02_hazran/146_shaped_to_rise.md)
+- [147화. 구분된 세계](02_hazran/147_sorted_world.md)
