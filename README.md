@@ -244,6 +244,7 @@ Each language directory is organized by arc:
 - [145. 막고 여는 법](ko/02_hazran/145_hold_and_open.md)
 - [146. 다듬어지는 자리](ko/02_hazran/146_shaped_to_rise.md)
 - [147. 구분된 세계](ko/02_hazran/147_sorted_world.md)
+- [148. 중심처럼 움직이는 곳](ko/02_hazran/148_moving_like_the_center.md)
 
 ### English
 
@@ -398,6 +399,7 @@ Each language directory is organized by arc:
 - [145. Hold and Open](en/02_hazran/145_hold_and_open.md)
 - [146. Shaped to Rise](en/02_hazran/146_shaped_to_rise.md)
 - [147. Sorted World](en/02_hazran/147_sorted_world.md)
+- [148. Moving Like the Center](en/02_hazran/148_moving_like_the_center.md)
 
 ### Japanese
 
@@ -552,6 +554,7 @@ Each language directory is organized by arc:
 - [第百四十五話　塞ぎ方と開け方](ja/02_hazran/145_hold_and_open.md)
 - [第百四十六話　整えられる場所](ja/02_hazran/146_shaped_to_rise.md)
 - [第百四十七話　区分された世界](ja/02_hazran/147_sorted_world.md)
+- [第百四十八話　中心のように動く場所](ja/02_hazran/148_moving_like_the_center.md)
 
 ### Chinese
 
@@ -706,6 +709,7 @@ Each language directory is organized by arc:
 - [第一百四十五章 堵与开之法](zh/02_hazran/145_hold_and_open.md)
 - [第一百四十六章 被打磨的位置](zh/02_hazran/146_shaped_to_rise.md)
 - [第一百四十七章 被划分的世界](zh/02_hazran/147_sorted_world.md)
+- [第一百四十八章 像中心一样运转的地方](zh/02_hazran/148_moving_like_the_center.md)
 
 ### French
 
@@ -860,6 +864,7 @@ Each language directory is organized by arc:
 - [Chapitre 145 — Tenir et ouvrir](fr/02_hazran/145_hold_and_open.md)
 - [Chapitre 146 — Façonnés pour monter](fr/02_hazran/146_shaped_to_rise.md)
 - [Chapitre 147 — Le monde classé](fr/02_hazran/147_sorted_world.md)
+- [Chapitre 148 — Bouger comme le centre](fr/02_hazran/148_moving_like_the_center.md)
 
 ### Spanish
 
@@ -1010,7 +1015,8 @@ Each language directory is organized by arc:
 - [Capítulo 141 — Empezar antes de estar listos](es/02_hazran/141_before_anyone_ready.md)
 - [Capítulo 142 — Elegidos por razones distintas](es/02_hazran/142_chosen_differently.md)
 - [Capítulo 143 — Cómo vive Serakion](es/02_hazran/143_how_serakion_lives.md)
+- [Capítulo 144 — El orden cortés](es/02_hazran/144_polite_order.md)
 
 ## Status
 
-Public archive currently published through Episode 147 in Korean, Episode 147 in English, Episode 147 in Japanese, Episode 147 in French, Episode 147 in Chinese (Simplified), and Episode 143 in Spanish.
+Public archive currently published through Episode 148 in Korean, Episode 148 in English, Episode 148 in Japanese, Episode 148 in French, Episode 148 in Chinese (Simplified), and Episode 144 in Spanish.

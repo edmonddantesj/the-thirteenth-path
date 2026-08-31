@@ -155,3 +155,4 @@ Chapitres publics actuels :
 - [Chapitre 145 — Tenir et ouvrir](02_hazran/145_hold_and_open.md)
 - [Chapitre 146 — Façonnés pour monter](02_hazran/146_shaped_to_rise.md)
 - [Chapitre 147 — Le monde classé](02_hazran/147_sorted_world.md)
+- [Chapitre 148 — Bouger comme le centre](02_hazran/148_moving_like_the_center.md)
