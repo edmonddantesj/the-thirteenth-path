@@ -1009,7 +1009,8 @@ Each language directory is organized by arc:
 - [Capítulo 140 — La guerra bajo la superficie](es/02_hazran/140_war_beneath.md)
 - [Capítulo 141 — Empezar antes de estar listos](es/02_hazran/141_before_anyone_ready.md)
 - [Capítulo 142 — Elegidos por razones distintas](es/02_hazran/142_chosen_differently.md)
+- [Capítulo 143 — Cómo vive Serakion](es/02_hazran/143_how_serakion_lives.md)
 
 ## Status
 
-Public archive currently published through Episode 147 in Korean, Episode 147 in English, Episode 147 in Japanese, Episode 147 in French, Episode 147 in Chinese (Simplified), and Episode 142 in Spanish.
+Public archive currently published through Episode 147 in Korean, Episode 147 in English, Episode 147 in Japanese, Episode 147 in French, Episode 147 in Chinese (Simplified), and Episode 143 in Spanish.
