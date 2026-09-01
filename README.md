@@ -1016,7 +1016,8 @@ Each language directory is organized by arc:
 - [Capítulo 142 — Elegidos por razones distintas](es/02_hazran/142_chosen_differently.md)
 - [Capítulo 143 — Cómo vive Serakion](es/02_hazran/143_how_serakion_lives.md)
 - [Capítulo 144 — El orden cortés](es/02_hazran/144_polite_order.md)
+- [Capítulo 145 — Bloquear y abrir](es/02_hazran/145_hold_and_open.md)
 
 ## Status
 
-Public archive currently published through Episode 148 in Korean, Episode 148 in English, Episode 148 in Japanese, Episode 148 in French, Episode 148 in Chinese (Simplified), and Episode 144 in Spanish.
+Public archive currently published through Episode 148 in Korean, Episode 148 in English, Episode 148 in Japanese, Episode 148 in French, Episode 148 in Chinese (Simplified), and Episode 145 in Spanish.
