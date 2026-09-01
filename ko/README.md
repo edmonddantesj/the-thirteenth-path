@@ -157,3 +157,4 @@
 - [146화. 다듬어지는 자리](02_hazran/146_shaped_to_rise.md)
 - [147화. 구분된 세계](02_hazran/147_sorted_world.md)
 - [148화. 중심처럼 움직이는 곳](02_hazran/148_moving_like_the_center.md)
+- [149화. 정찰이라 부를 수 없는 것](02_hazran/149_not_just_reconnaissance.md)

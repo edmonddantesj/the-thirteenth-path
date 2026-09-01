@@ -149,3 +149,4 @@ Capítulos públicos actuales:
 - [Capítulo 143 — Cómo vive Serakion](02_hazran/143_how_serakion_lives.md)
 - [Capítulo 144 — El orden cortés](02_hazran/144_polite_order.md)
 - [Capítulo 145 — Bloquear y abrir](02_hazran/145_hold_and_open.md)
+- [Capítulo 146 — Pulidos para subir](02_hazran/146_shaped_to_rise.md)

@@ -156,3 +156,4 @@
 - [第一百四十六章 被打磨的位置](02_hazran/146_shaped_to_rise.md)
 - [第一百四十七章 被划分的世界](02_hazran/147_sorted_world.md)
 - [第一百四十八章 像中心一样运转的地方](02_hazran/148_moving_like_the_center.md)
+- [第一百四十九章 已不能称作侦察的事](02_hazran/149_not_just_reconnaissance.md)

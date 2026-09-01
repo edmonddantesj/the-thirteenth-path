@@ -245,6 +245,7 @@ Each language directory is organized by arc:
 - [146. 다듬어지는 자리](ko/02_hazran/146_shaped_to_rise.md)
 - [147. 구분된 세계](ko/02_hazran/147_sorted_world.md)
 - [148. 중심처럼 움직이는 곳](ko/02_hazran/148_moving_like_the_center.md)
+- [149. 정찰이라 부를 수 없는 것](ko/02_hazran/149_not_just_reconnaissance.md)
 
 ### English
 
@@ -400,6 +401,7 @@ Each language directory is organized by arc:
 - [146. Shaped to Rise](en/02_hazran/146_shaped_to_rise.md)
 - [147. Sorted World](en/02_hazran/147_sorted_world.md)
 - [148. Moving Like the Center](en/02_hazran/148_moving_like_the_center.md)
+- [149. Not Just Reconnaissance](en/02_hazran/149_not_just_reconnaissance.md)
 
 ### Japanese
 
@@ -555,6 +557,7 @@ Each language directory is organized by arc:
 - [第百四十六話　整えられる場所](ja/02_hazran/146_shaped_to_rise.md)
 - [第百四十七話　区分された世界](ja/02_hazran/147_sorted_world.md)
 - [第百四十八話　中心のように動く場所](ja/02_hazran/148_moving_like_the_center.md)
+- [第百四十九話　偵察とは呼べないもの](ja/02_hazran/149_not_just_reconnaissance.md)
 
 ### Chinese
 
@@ -710,6 +713,7 @@ Each language directory is organized by arc:
 - [第一百四十六章 被打磨的位置](zh/02_hazran/146_shaped_to_rise.md)
 - [第一百四十七章 被划分的世界](zh/02_hazran/147_sorted_world.md)
 - [第一百四十八章 像中心一样运转的地方](zh/02_hazran/148_moving_like_the_center.md)
+- [第一百四十九章 已不能称作侦察的事](zh/02_hazran/149_not_just_reconnaissance.md)
 
 ### French
 
@@ -865,6 +869,7 @@ Each language directory is organized by arc:
 - [Chapitre 146 — Façonnés pour monter](fr/02_hazran/146_shaped_to_rise.md)
 - [Chapitre 147 — Le monde classé](fr/02_hazran/147_sorted_world.md)
 - [Chapitre 148 — Bouger comme le centre](fr/02_hazran/148_moving_like_the_center.md)
+- [Chapitre 149 — Pas seulement une reconnaissance](fr/02_hazran/149_not_just_reconnaissance.md)
 
 ### Spanish
 
@@ -1017,7 +1022,8 @@ Each language directory is organized by arc:
 - [Capítulo 143 — Cómo vive Serakion](es/02_hazran/143_how_serakion_lives.md)
 - [Capítulo 144 — El orden cortés](es/02_hazran/144_polite_order.md)
 - [Capítulo 145 — Bloquear y abrir](es/02_hazran/145_hold_and_open.md)
+- [Capítulo 146 — Pulidos para subir](es/02_hazran/146_shaped_to_rise.md)
 
 ## Status
 
-Public archive currently published through Episode 148 in Korean, Episode 148 in English, Episode 148 in Japanese, Episode 148 in French, Episode 148 in Chinese (Simplified), and Episode 145 in Spanish.
+Public archive currently published through Episode 149 in Korean, Episode 149 in English, Episode 149 in Japanese, Episode 149 in French, Episode 149 in Chinese (Simplified), and Episode 146 in Spanish.

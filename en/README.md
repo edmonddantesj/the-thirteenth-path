@@ -156,3 +156,4 @@ Current public English release:
 - [Episode 146. Shaped to Rise](02_hazran/146_shaped_to_rise.md)
 - [Episode 147. Sorted World](02_hazran/147_sorted_world.md)
 - [Episode 148. Moving Like the Center](02_hazran/148_moving_like_the_center.md)
+- [Episode 149. Not Just Reconnaissance](02_hazran/149_not_just_reconnaissance.md)
