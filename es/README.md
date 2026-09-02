@@ -150,3 +150,4 @@ Capítulos públicos actuales:
 - [Capítulo 144 — El orden cortés](02_hazran/144_polite_order.md)
 - [Capítulo 145 — Bloquear y abrir](02_hazran/145_hold_and_open.md)
 - [Capítulo 146 — Pulidos para subir](02_hazran/146_shaped_to_rise.md)
+- [Capítulo 147 — Un mundo dividido](02_hazran/147_sorted_world.md)

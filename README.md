@@ -1023,7 +1023,8 @@ Each language directory is organized by arc:
 - [Capítulo 144 — El orden cortés](es/02_hazran/144_polite_order.md)
 - [Capítulo 145 — Bloquear y abrir](es/02_hazran/145_hold_and_open.md)
 - [Capítulo 146 — Pulidos para subir](es/02_hazran/146_shaped_to_rise.md)
+- [Capítulo 147 — Un mundo dividido](es/02_hazran/147_sorted_world.md)
 
 ## Status
 
-Public archive currently published through Episode 149 in Korean, Episode 149 in English, Episode 149 in Japanese, Episode 149 in French, Episode 149 in Chinese (Simplified), and Episode 146 in Spanish.
+Public archive currently published through Episode 149 in Korean, Episode 149 in English, Episode 149 in Japanese, Episode 149 in French, Episode 149 in Chinese (Simplified), and Episode 147 in Spanish.
