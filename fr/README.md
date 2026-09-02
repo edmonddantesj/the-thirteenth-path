@@ -157,3 +157,4 @@ Chapitres publics actuels :
 - [Chapitre 147 — Le monde classé](02_hazran/147_sorted_world.md)
 - [Chapitre 148 — Bouger comme le centre](02_hazran/148_moving_like_the_center.md)
 - [Chapitre 149 — Pas seulement une reconnaissance](02_hazran/149_not_just_reconnaissance.md)
+- [Chapitre 150 — Le premier véritable affrontement](02_hazran/150_first_real_clash.md)

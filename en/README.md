@@ -157,3 +157,4 @@ Current public English release:
 - [Episode 147. Sorted World](02_hazran/147_sorted_world.md)
 - [Episode 148. Moving Like the Center](02_hazran/148_moving_like_the_center.md)
 - [Episode 149. Not Just Reconnaissance](02_hazran/149_not_just_reconnaissance.md)
+- [Episode 150. First Real Clash](02_hazran/150_first_real_clash.md)

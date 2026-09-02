@@ -151,3 +151,4 @@ Capítulos públicos actuales:
 - [Capítulo 145 — Bloquear y abrir](02_hazran/145_hold_and_open.md)
 - [Capítulo 146 — Pulidos para subir](02_hazran/146_shaped_to_rise.md)
 - [Capítulo 147 — Un mundo dividido](02_hazran/147_sorted_world.md)
+- [Capítulo 148 — Un lugar que se mueve como el centro](02_hazran/148_moving_like_the_center.md)
