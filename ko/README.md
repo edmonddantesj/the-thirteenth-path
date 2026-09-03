@@ -159,3 +159,4 @@
 - [148화. 중심처럼 움직이는 곳](02_hazran/148_moving_like_the_center.md)
 - [149화. 정찰이라 부를 수 없는 것](02_hazran/149_not_just_reconnaissance.md)
 - [150화. 첫 충돌](02_hazran/150_first_real_clash.md)
+- [151화. 먼저 빼야 할 사람](02_hazran/151_who_comes_first.md)

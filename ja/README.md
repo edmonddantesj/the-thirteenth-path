@@ -158,3 +158,4 @@
 - [第百四十八話　中心のように動く場所](02_hazran/148_moving_like_the_center.md)
 - [第百四十九話　偵察とは呼べないもの](02_hazran/149_not_just_reconnaissance.md)
 - [第百五十話　最初の衝突](02_hazran/150_first_real_clash.md)
+- [第百五十一話　先に連れ出すべき人](02_hazran/151_who_comes_first.md)

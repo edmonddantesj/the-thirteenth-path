@@ -158,3 +158,4 @@ Chapitres publics actuels :
 - [Chapitre 148 — Bouger comme le centre](02_hazran/148_moving_like_the_center.md)
 - [Chapitre 149 — Pas seulement une reconnaissance](02_hazran/149_not_just_reconnaissance.md)
 - [Chapitre 150 — Le premier véritable affrontement](02_hazran/150_first_real_clash.md)
+- [Chapitre 151 — Qui extraire en premier](02_hazran/151_who_comes_first.md)

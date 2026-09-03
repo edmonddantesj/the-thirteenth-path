@@ -247,6 +247,7 @@ Each language directory is organized by arc:
 - [148. 중심처럼 움직이는 곳](ko/02_hazran/148_moving_like_the_center.md)
 - [149. 정찰이라 부를 수 없는 것](ko/02_hazran/149_not_just_reconnaissance.md)
 - [150. 첫 충돌](ko/02_hazran/150_first_real_clash.md)
+- [151. 먼저 빼야 할 사람](ko/02_hazran/151_who_comes_first.md)
 
 ### English
 
@@ -404,6 +405,7 @@ Each language directory is organized by arc:
 - [148. Moving Like the Center](en/02_hazran/148_moving_like_the_center.md)
 - [149. Not Just Reconnaissance](en/02_hazran/149_not_just_reconnaissance.md)
 - [150. First Real Clash](en/02_hazran/150_first_real_clash.md)
+- [151. Who Comes First](en/02_hazran/151_who_comes_first.md)
 
 ### Japanese
 
@@ -561,6 +563,7 @@ Each language directory is organized by arc:
 - [第百四十八話　中心のように動く場所](ja/02_hazran/148_moving_like_the_center.md)
 - [第百四十九話　偵察とは呼べないもの](ja/02_hazran/149_not_just_reconnaissance.md)
 - [第百五十話　最初の衝突](ja/02_hazran/150_first_real_clash.md)
+- [第百五十一話　先に連れ出すべき人](ja/02_hazran/151_who_comes_first.md)
 
 ### Chinese
 
@@ -718,6 +721,7 @@ Each language directory is organized by arc:
 - [第一百四十八章 像中心一样运转的地方](zh/02_hazran/148_moving_like_the_center.md)
 - [第一百四十九章 已不能称作侦察的事](zh/02_hazran/149_not_just_reconnaissance.md)
 - [第一百五十章 第一次真正的冲突](zh/02_hazran/150_first_real_clash.md)
+- [第一百五十一章 该先带走谁](zh/02_hazran/151_who_comes_first.md)
 
 ### French
 
@@ -875,6 +879,7 @@ Each language directory is organized by arc:
 - [Chapitre 148 — Bouger comme le centre](fr/02_hazran/148_moving_like_the_center.md)
 - [Chapitre 149 — Pas seulement une reconnaissance](fr/02_hazran/149_not_just_reconnaissance.md)
 - [Chapitre 150 — Le premier véritable affrontement](fr/02_hazran/150_first_real_clash.md)
+- [Chapitre 151 — Qui extraire en premier](fr/02_hazran/151_who_comes_first.md)
 
 ### Spanish
 
@@ -1031,7 +1036,8 @@ Each language directory is organized by arc:
 - [Capítulo 147 — Un mundo dividido](es/02_hazran/147_sorted_world.md)
 - [Capítulo 148 — Un lugar que se mueve como el centro](es/02_hazran/148_moving_like_the_center.md)
 - [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](es/02_hazran/149_not_just_reconnaissance.md)
+- [Capítulo 150 — El primer choque](es/02_hazran/150_first_real_clash.md)
 
 ## Status
 
-Public archive currently published through Episode 150 in Korean, Episode 150 in English, Episode 150 in Japanese, Episode 150 in French, Episode 150 in Chinese (Simplified), and Episode 149 in Spanish.
+Public archive currently published through Episode 151 in Korean, Episode 151 in English, Episode 151 in Japanese, Episode 151 in French, Episode 151 in Chinese (Simplified), and Episode 150 in Spanish.
