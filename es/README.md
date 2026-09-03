@@ -152,3 +152,4 @@ Capítulos públicos actuales:
 - [Capítulo 146 — Pulidos para subir](02_hazran/146_shaped_to_rise.md)
 - [Capítulo 147 — Un mundo dividido](02_hazran/147_sorted_world.md)
 - [Capítulo 148 — Un lugar que se mueve como el centro](02_hazran/148_moving_like_the_center.md)
+- [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](02_hazran/149_not_just_reconnaissance.md)

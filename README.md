@@ -1030,7 +1030,8 @@ Each language directory is organized by arc:
 - [Capítulo 146 — Pulidos para subir](es/02_hazran/146_shaped_to_rise.md)
 - [Capítulo 147 — Un mundo dividido](es/02_hazran/147_sorted_world.md)
 - [Capítulo 148 — Un lugar que se mueve como el centro](es/02_hazran/148_moving_like_the_center.md)
+- [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](es/02_hazran/149_not_just_reconnaissance.md)
 
 ## Status
 
-Public archive currently published through Episode 150 in Korean, Episode 150 in English, Episode 150 in Japanese, Episode 150 in French, Episode 150 in Chinese (Simplified), and Episode 148 in Spanish.
+Public archive currently published through Episode 150 in Korean, Episode 150 in English, Episode 150 in Japanese, Episode 150 in French, Episode 150 in Chinese (Simplified), and Episode 149 in Spanish.
