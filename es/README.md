@@ -154,3 +154,4 @@ Capítulos públicos actuales:
 - [Capítulo 148 — Un lugar que se mueve como el centro](02_hazran/148_moving_like_the_center.md)
 - [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](02_hazran/149_not_just_reconnaissance.md)
 - [Capítulo 150 — El primer choque](02_hazran/150_first_real_clash.md)
+- [Capítulo 151 — A quién sacar primero](02_hazran/151_who_comes_first.md)

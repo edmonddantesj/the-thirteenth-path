@@ -1037,7 +1037,8 @@ Each language directory is organized by arc:
 - [Capítulo 148 — Un lugar que se mueve como el centro](es/02_hazran/148_moving_like_the_center.md)
 - [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](es/02_hazran/149_not_just_reconnaissance.md)
 - [Capítulo 150 — El primer choque](es/02_hazran/150_first_real_clash.md)
+- [Capítulo 151 — A quién sacar primero](es/02_hazran/151_who_comes_first.md)
 
 ## Status
 
-Public archive currently published through Episode 151 in Korean, Episode 151 in English, Episode 151 in Japanese, Episode 151 in French, Episode 151 in Chinese (Simplified), and Episode 150 in Spanish.
+Public archive currently published through Episode 151 in Korean, Episode 151 in English, Episode 151 in Japanese, Episode 151 in French, Episode 151 in Chinese (Simplified), and Episode 151 in Spanish.
