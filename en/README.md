@@ -159,3 +159,4 @@ Current public English release:
 - [Episode 149. Not Just Reconnaissance](02_hazran/149_not_just_reconnaissance.md)
 - [Episode 150. First Real Clash](02_hazran/150_first_real_clash.md)
 - [Episode 151. Who Comes First](02_hazran/151_who_comes_first.md)
+- [Episode 152. Left Behind](02_hazran/152_left_behind.md)

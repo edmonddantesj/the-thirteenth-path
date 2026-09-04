@@ -248,6 +248,7 @@ Each language directory is organized by arc:
 - [149. 정찰이라 부를 수 없는 것](ko/02_hazran/149_not_just_reconnaissance.md)
 - [150. 첫 충돌](ko/02_hazran/150_first_real_clash.md)
 - [151. 먼저 빼야 할 사람](ko/02_hazran/151_who_comes_first.md)
+- [152. 남겨 두는 것](ko/02_hazran/152_left_behind.md)
 
 ### English
 
@@ -406,6 +407,7 @@ Each language directory is organized by arc:
 - [149. Not Just Reconnaissance](en/02_hazran/149_not_just_reconnaissance.md)
 - [150. First Real Clash](en/02_hazran/150_first_real_clash.md)
 - [151. Who Comes First](en/02_hazran/151_who_comes_first.md)
+- [152. Left Behind](en/02_hazran/152_left_behind.md)
 
 ### Japanese
 
@@ -564,6 +566,7 @@ Each language directory is organized by arc:
 - [第百四十九話　偵察とは呼べないもの](ja/02_hazran/149_not_just_reconnaissance.md)
 - [第百五十話　最初の衝突](ja/02_hazran/150_first_real_clash.md)
 - [第百五十一話　先に連れ出すべき人](ja/02_hazran/151_who_comes_first.md)
+- [第百五十二話　残しておくこと](ja/02_hazran/152_left_behind.md)
 
 ### Chinese
 
@@ -722,6 +725,7 @@ Each language directory is organized by arc:
 - [第一百四十九章 已不能称作侦察的事](zh/02_hazran/149_not_just_reconnaissance.md)
 - [第一百五十章 第一次真正的冲突](zh/02_hazran/150_first_real_clash.md)
 - [第一百五十一章 该先带走谁](zh/02_hazran/151_who_comes_first.md)
+- [第一百五十二章 留下不带走的](zh/02_hazran/152_left_behind.md)
 
 ### French
 
@@ -880,6 +884,7 @@ Each language directory is organized by arc:
 - [Chapitre 149 — Pas seulement une reconnaissance](fr/02_hazran/149_not_just_reconnaissance.md)
 - [Chapitre 150 — Le premier véritable affrontement](fr/02_hazran/150_first_real_clash.md)
 - [Chapitre 151 — Qui extraire en premier](fr/02_hazran/151_who_comes_first.md)
+- [Chapitre 152 — Ce qu'on laisse derrière](fr/02_hazran/152_left_behind.md)
 
 ### Spanish
 
@@ -1038,7 +1043,8 @@ Each language directory is organized by arc:
 - [Capítulo 149 — Lo que ya no se puede llamar reconocimiento](es/02_hazran/149_not_just_reconnaissance.md)
 - [Capítulo 150 — El primer choque](es/02_hazran/150_first_real_clash.md)
 - [Capítulo 151 — A quién sacar primero](es/02_hazran/151_who_comes_first.md)
+- [Capítulo 152 — Lo que se deja atrás](es/02_hazran/152_left_behind.md)
 
 ## Status
 
-Public archive currently published through Episode 151 in Korean, Episode 151 in English, Episode 151 in Japanese, Episode 151 in French, Episode 151 in Chinese (Simplified), and Episode 151 in Spanish.
+Public archive currently published through Episode 152 in Korean, Episode 152 in English, Episode 152 in Japanese, Episode 152 in French, Episode 152 in Chinese (Simplified), and Episode 152 in Spanish.

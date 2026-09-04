@@ -159,3 +159,4 @@
 - [第百四十九話　偵察とは呼べないもの](02_hazran/149_not_just_reconnaissance.md)
 - [第百五十話　最初の衝突](02_hazran/150_first_real_clash.md)
 - [第百五十一話　先に連れ出すべき人](02_hazran/151_who_comes_first.md)
+- [第百五十二話　残しておくこと](02_hazran/152_left_behind.md)
