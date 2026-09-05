@@ -160,3 +160,4 @@ Chapitres publics actuels :
 - [Chapitre 150 — Le premier véritable affrontement](02_hazran/150_first_real_clash.md)
 - [Chapitre 151 — Qui extraire en premier](02_hazran/151_who_comes_first.md)
 - [Chapitre 152 — Ce qu'on laisse derrière](02_hazran/152_left_behind.md)
+- [Chapitre 153 — Le premier sauvetage](02_hazran/153_first_rescue.md)

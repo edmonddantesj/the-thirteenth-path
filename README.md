@@ -249,6 +249,7 @@ Each language directory is organized by arc:
 - [150. 첫 충돌](ko/02_hazran/150_first_real_clash.md)
 - [151. 먼저 빼야 할 사람](ko/02_hazran/151_who_comes_first.md)
 - [152. 남겨 두는 것](ko/02_hazran/152_left_behind.md)
+- [153. 첫 구조](ko/02_hazran/153_first_rescue.md)
 
 ### English
 
@@ -408,6 +409,7 @@ Each language directory is organized by arc:
 - [150. First Real Clash](en/02_hazran/150_first_real_clash.md)
 - [151. Who Comes First](en/02_hazran/151_who_comes_first.md)
 - [152. Left Behind](en/02_hazran/152_left_behind.md)
+- [153. First Rescue](en/02_hazran/153_first_rescue.md)
 
 ### Japanese
 
@@ -567,6 +569,7 @@ Each language directory is organized by arc:
 - [第百五十話　最初の衝突](ja/02_hazran/150_first_real_clash.md)
 - [第百五十一話　先に連れ出すべき人](ja/02_hazran/151_who_comes_first.md)
 - [第百五十二話　残しておくこと](ja/02_hazran/152_left_behind.md)
+- [第百五十三話　最初の救出](ja/02_hazran/153_first_rescue.md)
 
 ### Chinese
 
@@ -726,6 +729,7 @@ Each language directory is organized by arc:
 - [第一百五十章 第一次真正的冲突](zh/02_hazran/150_first_real_clash.md)
 - [第一百五十一章 该先带走谁](zh/02_hazran/151_who_comes_first.md)
 - [第一百五十二章 留下不带走的](zh/02_hazran/152_left_behind.md)
+- [第一百五十三章 第一次营救](zh/02_hazran/153_first_rescue.md)
 
 ### French
 
@@ -885,6 +889,7 @@ Each language directory is organized by arc:
 - [Chapitre 150 — Le premier véritable affrontement](fr/02_hazran/150_first_real_clash.md)
 - [Chapitre 151 — Qui extraire en premier](fr/02_hazran/151_who_comes_first.md)
 - [Chapitre 152 — Ce qu'on laisse derrière](fr/02_hazran/152_left_behind.md)
+- [Chapitre 153 — Le premier sauvetage](fr/02_hazran/153_first_rescue.md)
 
 ### Spanish
 
@@ -1044,7 +1049,8 @@ Each language directory is organized by arc:
 - [Capítulo 150 — El primer choque](es/02_hazran/150_first_real_clash.md)
 - [Capítulo 151 — A quién sacar primero](es/02_hazran/151_who_comes_first.md)
 - [Capítulo 152 — Lo que se deja atrás](es/02_hazran/152_left_behind.md)
+- [Capítulo 153 — El primer rescate](es/02_hazran/153_first_rescue.md)
 
 ## Status
 
-Public archive currently published through Episode 152 in Korean, Episode 152 in English, Episode 152 in Japanese, Episode 152 in French, Episode 152 in Chinese (Simplified), and Episode 152 in Spanish.
+Public archive currently published through Episode 153 in Korean, Episode 153 in English, Episode 153 in Japanese, Episode 153 in French, Episode 153 in Chinese (Simplified), and Episode 153 in Spanish.

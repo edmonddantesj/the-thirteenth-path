@@ -160,3 +160,4 @@
 - [第百五十話　最初の衝突](02_hazran/150_first_real_clash.md)
 - [第百五十一話　先に連れ出すべき人](02_hazran/151_who_comes_first.md)
 - [第百五十二話　残しておくこと](02_hazran/152_left_behind.md)
+- [第百五十三話　最初の救出](02_hazran/153_first_rescue.md)
