@@ -162,3 +162,4 @@
 - [151화. 먼저 빼야 할 사람](02_hazran/151_who_comes_first.md)
 - [152화. 남겨 두는 것](02_hazran/152_left_behind.md)
 - [153화. 첫 구조](02_hazran/153_first_rescue.md)
+- [154화. 돌아온 셋](02_hazran/154_three_returned.md)

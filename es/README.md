@@ -157,3 +157,4 @@ Capítulos públicos actuales:
 - [Capítulo 151 — A quién sacar primero](02_hazran/151_who_comes_first.md)
 - [Capítulo 152 — Lo que se deja atrás](02_hazran/152_left_behind.md)
 - [Capítulo 153 — El primer rescate](02_hazran/153_first_rescue.md)
+- [Capítulo 154 — Los tres que regresaron](02_hazran/154_three_returned.md)

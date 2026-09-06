@@ -250,6 +250,7 @@ Each language directory is organized by arc:
 - [151. 먼저 빼야 할 사람](ko/02_hazran/151_who_comes_first.md)
 - [152. 남겨 두는 것](ko/02_hazran/152_left_behind.md)
 - [153. 첫 구조](ko/02_hazran/153_first_rescue.md)
+- [154. 돌아온 셋](ko/02_hazran/154_three_returned.md)
 
 ### English
 
@@ -410,6 +411,7 @@ Each language directory is organized by arc:
 - [151. Who Comes First](en/02_hazran/151_who_comes_first.md)
 - [152. Left Behind](en/02_hazran/152_left_behind.md)
 - [153. First Rescue](en/02_hazran/153_first_rescue.md)
+- [154. Three Returned](en/02_hazran/154_three_returned.md)
 
 ### Japanese
 
@@ -570,6 +572,7 @@ Each language directory is organized by arc:
 - [第百五十一話　先に連れ出すべき人](ja/02_hazran/151_who_comes_first.md)
 - [第百五十二話　残しておくこと](ja/02_hazran/152_left_behind.md)
 - [第百五十三話　最初の救出](ja/02_hazran/153_first_rescue.md)
+- [第百五十四話　戻ってきた三人](ja/02_hazran/154_three_returned.md)
 
 ### Chinese
 
@@ -730,6 +733,7 @@ Each language directory is organized by arc:
 - [第一百五十一章 该先带走谁](zh/02_hazran/151_who_comes_first.md)
 - [第一百五十二章 留下不带走的](zh/02_hazran/152_left_behind.md)
 - [第一百五十三章 第一次营救](zh/02_hazran/153_first_rescue.md)
+- [第一百五十四章 归来的三个](zh/02_hazran/154_three_returned.md)
 
 ### French
 
@@ -890,6 +894,7 @@ Each language directory is organized by arc:
 - [Chapitre 151 — Qui extraire en premier](fr/02_hazran/151_who_comes_first.md)
 - [Chapitre 152 — Ce qu'on laisse derrière](fr/02_hazran/152_left_behind.md)
 - [Chapitre 153 — Le premier sauvetage](fr/02_hazran/153_first_rescue.md)
+- [Chapitre 154 — Trois revinrent](fr/02_hazran/154_three_returned.md)
 
 ### Spanish
 
@@ -1050,7 +1055,8 @@ Each language directory is organized by arc:
 - [Capítulo 151 — A quién sacar primero](es/02_hazran/151_who_comes_first.md)
 - [Capítulo 152 — Lo que se deja atrás](es/02_hazran/152_left_behind.md)
 - [Capítulo 153 — El primer rescate](es/02_hazran/153_first_rescue.md)
+- [Capítulo 154 — Los tres que regresaron](es/02_hazran/154_three_returned.md)
 
 ## Status
 
-Public archive currently published through Episode 153 in Korean, Episode 153 in English, Episode 153 in Japanese, Episode 153 in French, Episode 153 in Chinese (Simplified), and Episode 153 in Spanish.
+Public archive currently published through Episode 154 in Korean, Episode 154 in English, Episode 154 in Japanese, Episode 154 in French, Episode 154 in Chinese (Simplified), and Episode 154 in Spanish.
