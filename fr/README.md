@@ -162,3 +162,4 @@ Chapitres publics actuels :
 - [Chapitre 152 — Ce qu'on laisse derrière](02_hazran/152_left_behind.md)
 - [Chapitre 153 — Le premier sauvetage](02_hazran/153_first_rescue.md)
 - [Chapitre 154 — Trois revinrent](02_hazran/154_three_returned.md)
+- [Chapitre 155 — Serakion apprend aussi](02_hazran/155_serakion_learns.md)

@@ -162,3 +162,4 @@ Current public English release:
 - [Episode 152. Left Behind](02_hazran/152_left_behind.md)
 - [Episode 153. First Rescue](02_hazran/153_first_rescue.md)
 - [Episode 154. Three Returned](02_hazran/154_three_returned.md)
+- [Episode 155. Serakion Learns](02_hazran/155_serakion_learns.md)
