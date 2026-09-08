@@ -163,3 +163,4 @@
 - [第一百五十三章 第一次营救](02_hazran/153_first_rescue.md)
 - [第一百五十四章 归来的三个](02_hazran/154_three_returned.md)
 - [第一百五十五章 瑟拉基昂也在学](02_hazran/155_serakion_learns.md)
+- [第一百五十六章 内部的裂隙](02_hazran/156_break_from_inside.md)

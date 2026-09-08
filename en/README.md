@@ -163,3 +163,4 @@ Current public English release:
 - [Episode 153. First Rescue](02_hazran/153_first_rescue.md)
 - [Episode 154. Three Returned](02_hazran/154_three_returned.md)
 - [Episode 155. Serakion Learns](02_hazran/155_serakion_learns.md)
+- [Episode 156. Break from Inside](02_hazran/156_break_from_inside.md)

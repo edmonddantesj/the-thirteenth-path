@@ -252,6 +252,7 @@ Each language directory is organized by arc:
 - [153. 첫 구조](ko/02_hazran/153_first_rescue.md)
 - [154. 돌아온 셋](ko/02_hazran/154_three_returned.md)
 - [155. 세라키온도 배운다](ko/02_hazran/155_serakion_learns.md)
+- [156. 안쪽의 균열](ko/02_hazran/156_break_from_inside.md)
 
 ### English
 
@@ -414,6 +415,7 @@ Each language directory is organized by arc:
 - [153. First Rescue](en/02_hazran/153_first_rescue.md)
 - [154. Three Returned](en/02_hazran/154_three_returned.md)
 - [155. Serakion Learns](en/02_hazran/155_serakion_learns.md)
+- [156. Break from Inside](en/02_hazran/156_break_from_inside.md)
 
 ### Japanese
 
@@ -576,6 +578,7 @@ Each language directory is organized by arc:
 - [第百五十三話　最初の救出](ja/02_hazran/153_first_rescue.md)
 - [第百五十四話　戻ってきた三人](ja/02_hazran/154_three_returned.md)
 - [第百五十五話　セラキオンも学ぶ](ja/02_hazran/155_serakion_learns.md)
+- [第百五十六話　内側の亀裂](ja/02_hazran/156_break_from_inside.md)
 
 ### Chinese
 
@@ -738,6 +741,7 @@ Each language directory is organized by arc:
 - [第一百五十三章 第一次营救](zh/02_hazran/153_first_rescue.md)
 - [第一百五十四章 归来的三个](zh/02_hazran/154_three_returned.md)
 - [第一百五十五章 瑟拉基昂也在学](zh/02_hazran/155_serakion_learns.md)
+- [第一百五十六章 内部的裂隙](zh/02_hazran/156_break_from_inside.md)
 
 ### French
 
@@ -900,6 +904,7 @@ Each language directory is organized by arc:
 - [Chapitre 153 — Le premier sauvetage](fr/02_hazran/153_first_rescue.md)
 - [Chapitre 154 — Trois revinrent](fr/02_hazran/154_three_returned.md)
 - [Chapitre 155 — Serakion apprend aussi](fr/02_hazran/155_serakion_learns.md)
+- [Chapitre 156 — La fissure intérieure](fr/02_hazran/156_break_from_inside.md)
 
 ### Spanish
 
@@ -1062,7 +1067,8 @@ Each language directory is organized by arc:
 - [Capítulo 153 — El primer rescate](es/02_hazran/153_first_rescue.md)
 - [Capítulo 154 — Los tres que regresaron](es/02_hazran/154_three_returned.md)
 - [Capítulo 155 — Serakion también aprende](es/02_hazran/155_serakion_learns.md)
+- [Capítulo 156 — La grieta desde dentro](es/02_hazran/156_break_from_inside.md)
 
 ## Status
 
-Public archive currently published through Episode 155 in Korean, Episode 155 in English, Episode 155 in Japanese, Episode 155 in French, Episode 155 in Chinese (Simplified), and Episode 155 in Spanish.
+Public archive currently published through Episode 156 in Korean, Episode 156 in English, Episode 156 in Japanese, Episode 156 in French, Episode 156 in Chinese (Simplified), and Episode 156 in Spanish.

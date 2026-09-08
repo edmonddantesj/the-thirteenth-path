@@ -164,3 +164,4 @@
 - [153화. 첫 구조](02_hazran/153_first_rescue.md)
 - [154화. 돌아온 셋](02_hazran/154_three_returned.md)
 - [155화. 세라키온도 배운다](02_hazran/155_serakion_learns.md)
+- [156화. 안쪽의 균열](02_hazran/156_break_from_inside.md)

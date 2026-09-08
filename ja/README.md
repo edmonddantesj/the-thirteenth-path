@@ -163,3 +163,4 @@
 - [第百五十三話　最初の救出](02_hazran/153_first_rescue.md)
 - [第百五十四話　戻ってきた三人](02_hazran/154_three_returned.md)
 - [第百五十五話　セラキオンも学ぶ](02_hazran/155_serakion_learns.md)
+- [第百五十六話　内側の亀裂](02_hazran/156_break_from_inside.md)
