@@ -164,3 +164,4 @@
 - [第百五十四話　戻ってきた三人](02_hazran/154_three_returned.md)
 - [第百五十五話　セラキオンも学ぶ](02_hazran/155_serakion_learns.md)
 - [第百五十六話　内側の亀裂](02_hazran/156_break_from_inside.md)
+- [第百五十七話　もっと高い代価](02_hazran/157_quieter_and_costlier.md)

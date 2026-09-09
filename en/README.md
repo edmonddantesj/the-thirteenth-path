@@ -164,3 +164,4 @@ Current public English release:
 - [Episode 154. Three Returned](02_hazran/154_three_returned.md)
 - [Episode 155. Serakion Learns](02_hazran/155_serakion_learns.md)
 - [Episode 156. Break from Inside](02_hazran/156_break_from_inside.md)
+- [Episode 157. Quieter and Costlier](02_hazran/157_quieter_and_costlier.md)

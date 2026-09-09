@@ -164,3 +164,4 @@ Chapitres publics actuels :
 - [Chapitre 154 — Trois revinrent](02_hazran/154_three_returned.md)
 - [Chapitre 155 — Serakion apprend aussi](02_hazran/155_serakion_learns.md)
 - [Chapitre 156 — La fissure intérieure](02_hazran/156_break_from_inside.md)
+- [Chapitre 157 — Plus silencieux et plus coûteux](02_hazran/157_quieter_and_costlier.md)

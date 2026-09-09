@@ -165,3 +165,4 @@
 - [154화. 돌아온 셋](02_hazran/154_three_returned.md)
 - [155화. 세라키온도 배운다](02_hazran/155_serakion_learns.md)
 - [156화. 안쪽의 균열](02_hazran/156_break_from_inside.md)
+- [157화. 더 비싼 대가](02_hazran/157_quieter_and_costlier.md)

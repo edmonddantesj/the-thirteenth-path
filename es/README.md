@@ -160,3 +160,4 @@ Capítulos públicos actuales:
 - [Capítulo 154 — Los tres que regresaron](02_hazran/154_three_returned.md)
 - [Capítulo 155 — Serakion también aprende](02_hazran/155_serakion_learns.md)
 - [Capítulo 156 — La grieta desde dentro](02_hazran/156_break_from_inside.md)
+- [Capítulo 157 — Más callado y más caro](02_hazran/157_quieter_and_costlier.md)
