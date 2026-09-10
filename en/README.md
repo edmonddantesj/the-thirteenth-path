@@ -165,3 +165,4 @@ Current public English release:
 - [Episode 155. Serakion Learns](02_hazran/155_serakion_learns.md)
 - [Episode 156. Break from Inside](02_hazran/156_break_from_inside.md)
 - [Episode 157. Quieter and Costlier](02_hazran/157_quieter_and_costlier.md)
+- [Episode 158. The One Left Behind](02_hazran/158_the_one_left_behind.md)

@@ -161,3 +161,4 @@ Capítulos públicos actuales:
 - [Capítulo 155 — Serakion también aprende](02_hazran/155_serakion_learns.md)
 - [Capítulo 156 — La grieta desde dentro](02_hazran/156_break_from_inside.md)
 - [Capítulo 157 — Más callado y más caro](02_hazran/157_quieter_and_costlier.md)
+- [Capítulo 158 — El niño que quedó atrás](02_hazran/158_the_one_left_behind.md)

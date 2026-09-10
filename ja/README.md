@@ -165,3 +165,4 @@
 - [第百五十五話　セラキオンも学ぶ](02_hazran/155_serakion_learns.md)
 - [第百五十六話　内側の亀裂](02_hazran/156_break_from_inside.md)
 - [第百五十七話　もっと高い代価](02_hazran/157_quieter_and_costlier.md)
+- [第百五十八話　連れてこられなかった子](02_hazran/158_the_one_left_behind.md)
