@@ -166,3 +166,4 @@
 - [第一百五十六章 内部的裂隙](02_hazran/156_break_from_inside.md)
 - [第一百五十七章 更沉的代价](02_hazran/157_quieter_and_costlier.md)
 - [第一百五十八章 没能带走的孩子](02_hazran/158_the_one_left_behind.md)
+- [第一百五十九章 记忆认出的方式](02_hazran/159_remembering_him.md)

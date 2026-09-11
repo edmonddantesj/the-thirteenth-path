@@ -166,3 +166,4 @@ Chapitres publics actuels :
 - [Chapitre 156 — La fissure intérieure](02_hazran/156_break_from_inside.md)
 - [Chapitre 157 — Plus silencieux et plus coûteux](02_hazran/157_quieter_and_costlier.md)
 - [Chapitre 158 — L'enfant qu'on ne put ramener](02_hazran/158_the_one_left_behind.md)
+- [Chapitre 159 — Comment la mémoire reconnaît](02_hazran/159_remembering_him.md)

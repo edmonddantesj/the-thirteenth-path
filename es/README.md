@@ -162,3 +162,4 @@ Capítulos públicos actuales:
 - [Capítulo 156 — La grieta desde dentro](02_hazran/156_break_from_inside.md)
 - [Capítulo 157 — Más callado y más caro](02_hazran/157_quieter_and_costlier.md)
 - [Capítulo 158 — El niño que quedó atrás](02_hazran/158_the_one_left_behind.md)
+- [Capítulo 159 — Lo que la memoria reconoce](02_hazran/159_remembering_him.md)
