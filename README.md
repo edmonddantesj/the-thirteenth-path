@@ -256,6 +256,7 @@ Each language directory is organized by arc:
 - [157. 더 비싼 대가](ko/02_hazran/157_quieter_and_costlier.md)
 - [158. 데려오지 못한 아이](ko/02_hazran/158_the_one_left_behind.md)
 - [159. 기억이 알아보는 법](ko/02_hazran/159_remembering_him.md)
+- [160. 약속만 남기고](ko/02_hazran/160_only_a_promise.md)
 
 ### English
 
@@ -422,6 +423,7 @@ Each language directory is organized by arc:
 - [157. Quieter and Costlier](en/02_hazran/157_quieter_and_costlier.md)
 - [158. The One Left Behind](en/02_hazran/158_the_one_left_behind.md)
 - [159. Remembering Him](en/02_hazran/159_remembering_him.md)
+- [160. Only a Promise](en/02_hazran/160_only_a_promise.md)
 
 ### Japanese
 
@@ -588,6 +590,7 @@ Each language directory is organized by arc:
 - [第百五十七話　もっと高い代価](ja/02_hazran/157_quieter_and_costlier.md)
 - [第百五十八話　連れてこられなかった子](ja/02_hazran/158_the_one_left_behind.md)
 - [第百五十九話　記憶が気づく方法](ja/02_hazran/159_remembering_him.md)
+- [第百六十話　約束だけ残して](ja/02_hazran/160_only_a_promise.md)
 
 ### Chinese
 
@@ -754,6 +757,7 @@ Each language directory is organized by arc:
 - [第一百五十七章 更沉的代价](zh/02_hazran/157_quieter_and_costlier.md)
 - [第一百五十八章 没能带走的孩子](zh/02_hazran/158_the_one_left_behind.md)
 - [第一百五十九章 记忆认出的方式](zh/02_hazran/159_remembering_him.md)
+- [第一百六十章 只留下一个约定](zh/02_hazran/160_only_a_promise.md)
 
 ### French
 
@@ -920,6 +924,7 @@ Each language directory is organized by arc:
 - [Chapitre 157 — Plus silencieux et plus coûteux](fr/02_hazran/157_quieter_and_costlier.md)
 - [Chapitre 158 — L'enfant qu'on ne put ramener](fr/02_hazran/158_the_one_left_behind.md)
 - [Chapitre 159 — Comment la mémoire reconnaît](fr/02_hazran/159_remembering_him.md)
+- [Chapitre 160 — Ne laisser qu'une promesse](fr/02_hazran/160_only_a_promise.md)
 
 ### Spanish
 
@@ -1086,7 +1091,8 @@ Each language directory is organized by arc:
 - [Capítulo 157 — Más callado y más caro](es/02_hazran/157_quieter_and_costlier.md)
 - [Capítulo 158 — El niño que quedó atrás](es/02_hazran/158_the_one_left_behind.md)
 - [Capítulo 159 — Lo que la memoria reconoce](es/02_hazran/159_remembering_him.md)
+- [Capítulo 160 — Solo una promesa](es/02_hazran/160_only_a_promise.md)
 
 ## Status
 
-Public archive currently published through Episode 159 in Korean, Episode 159 in English, Episode 159 in Japanese, Episode 159 in French, Episode 159 in Chinese (Simplified), and Episode 159 in Spanish.
+Public archive currently published through Episode 160 in Korean, Episode 160 in English, Episode 160 in Japanese, Episode 160 in French, Episode 160 in Chinese (Simplified), and Episode 160 in Spanish.

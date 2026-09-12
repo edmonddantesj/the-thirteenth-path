@@ -167,3 +167,4 @@
 - [第百五十七話　もっと高い代価](02_hazran/157_quieter_and_costlier.md)
 - [第百五十八話　連れてこられなかった子](02_hazran/158_the_one_left_behind.md)
 - [第百五十九話　記憶が気づく方法](02_hazran/159_remembering_him.md)
+- [第百六十話　約束だけ残して](02_hazran/160_only_a_promise.md)

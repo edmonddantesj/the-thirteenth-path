@@ -163,3 +163,4 @@ Capítulos públicos actuales:
 - [Capítulo 157 — Más callado y más caro](02_hazran/157_quieter_and_costlier.md)
 - [Capítulo 158 — El niño que quedó atrás](02_hazran/158_the_one_left_behind.md)
 - [Capítulo 159 — Lo que la memoria reconoce](02_hazran/159_remembering_him.md)
+- [Capítulo 160 — Solo una promesa](02_hazran/160_only_a_promise.md)

@@ -168,3 +168,4 @@
 - [157화. 더 비싼 대가](02_hazran/157_quieter_and_costlier.md)
 - [158화. 데려오지 못한 아이](02_hazran/158_the_one_left_behind.md)
 - [159화. 기억이 알아보는 법](02_hazran/159_remembering_him.md)
+- [160화. 약속만 남기고](02_hazran/160_only_a_promise.md)
