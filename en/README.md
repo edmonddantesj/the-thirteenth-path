@@ -168,3 +168,4 @@ Current public English release:
 - [Episode 158. The One Left Behind](02_hazran/158_the_one_left_behind.md)
 - [Episode 159. Remembering Him](02_hazran/159_remembering_him.md)
 - [Episode 160. Only a Promise](02_hazran/160_only_a_promise.md)
+- [Episode 161. Break the Structure](02_hazran/161_break_the_structure.md)

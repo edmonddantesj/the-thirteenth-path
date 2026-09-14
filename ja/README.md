@@ -168,3 +168,4 @@
 - [第百五十八話　連れてこられなかった子](02_hazran/158_the_one_left_behind.md)
 - [第百五十九話　記憶が気づく方法](02_hazran/159_remembering_him.md)
 - [第百六十話　約束だけ残して](02_hazran/160_only_a_promise.md)
+- [第百六十一話　構造を崩す](02_hazran/161_break_the_structure.md)

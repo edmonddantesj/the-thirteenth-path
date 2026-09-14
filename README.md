@@ -257,6 +257,7 @@ Each language directory is organized by arc:
 - [158. 데려오지 못한 아이](ko/02_hazran/158_the_one_left_behind.md)
 - [159. 기억이 알아보는 법](ko/02_hazran/159_remembering_him.md)
 - [160. 약속만 남기고](ko/02_hazran/160_only_a_promise.md)
+- [161. 구조를 무너뜨리다](ko/02_hazran/161_break_the_structure.md)
 
 ### English
 
@@ -424,6 +425,7 @@ Each language directory is organized by arc:
 - [158. The One Left Behind](en/02_hazran/158_the_one_left_behind.md)
 - [159. Remembering Him](en/02_hazran/159_remembering_him.md)
 - [160. Only a Promise](en/02_hazran/160_only_a_promise.md)
+- [161. Break the Structure](en/02_hazran/161_break_the_structure.md)
 
 ### Japanese
 
@@ -591,6 +593,7 @@ Each language directory is organized by arc:
 - [第百五十八話　連れてこられなかった子](ja/02_hazran/158_the_one_left_behind.md)
 - [第百五十九話　記憶が気づく方法](ja/02_hazran/159_remembering_him.md)
 - [第百六十話　約束だけ残して](ja/02_hazran/160_only_a_promise.md)
+- [第百六十一話　構造を崩す](ja/02_hazran/161_break_the_structure.md)
 
 ### Chinese
 
@@ -758,6 +761,7 @@ Each language directory is organized by arc:
 - [第一百五十八章 没能带走的孩子](zh/02_hazran/158_the_one_left_behind.md)
 - [第一百五十九章 记忆认出的方式](zh/02_hazran/159_remembering_him.md)
 - [第一百六十章 只留下一个约定](zh/02_hazran/160_only_a_promise.md)
+- [第一百六十一章 打破这套结构](zh/02_hazran/161_break_the_structure.md)
 
 ### French
 
@@ -925,6 +929,7 @@ Each language directory is organized by arc:
 - [Chapitre 158 — L'enfant qu'on ne put ramener](fr/02_hazran/158_the_one_left_behind.md)
 - [Chapitre 159 — Comment la mémoire reconnaît](fr/02_hazran/159_remembering_him.md)
 - [Chapitre 160 — Ne laisser qu'une promesse](fr/02_hazran/160_only_a_promise.md)
+- [Chapitre 161 — Briser la structure](fr/02_hazran/161_break_the_structure.md)
 
 ### Spanish
 
@@ -1092,7 +1097,8 @@ Each language directory is organized by arc:
 - [Capítulo 158 — El niño que quedó atrás](es/02_hazran/158_the_one_left_behind.md)
 - [Capítulo 159 — Lo que la memoria reconoce](es/02_hazran/159_remembering_him.md)
 - [Capítulo 160 — Solo una promesa](es/02_hazran/160_only_a_promise.md)
+- [Capítulo 161 — Derribar la estructura](es/02_hazran/161_break_the_structure.md)
 
 ## Status
 
-Public archive currently published through Episode 160 in Korean, Episode 160 in English, Episode 160 in Japanese, Episode 160 in French, Episode 160 in Chinese (Simplified), and Episode 160 in Spanish.
+Public archive currently published through Episode 161 in Korean, Episode 161 in English, Episode 161 in Japanese, Episode 161 in French, Episode 161 in Chinese (Simplified), and Episode 161 in Spanish.

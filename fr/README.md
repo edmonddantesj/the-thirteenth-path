@@ -168,3 +168,4 @@ Chapitres publics actuels :
 - [Chapitre 158 — L'enfant qu'on ne put ramener](02_hazran/158_the_one_left_behind.md)
 - [Chapitre 159 — Comment la mémoire reconnaît](02_hazran/159_remembering_him.md)
 - [Chapitre 160 — Ne laisser qu'une promesse](02_hazran/160_only_a_promise.md)
+- [Chapitre 161 — Briser la structure](02_hazran/161_break_the_structure.md)
