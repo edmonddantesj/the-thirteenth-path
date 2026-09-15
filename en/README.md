@@ -169,3 +169,4 @@ Current public English release:
 - [Episode 159. Remembering Him](02_hazran/159_remembering_him.md)
 - [Episode 160. Only a Promise](02_hazran/160_only_a_promise.md)
 - [Episode 161. Break the Structure](02_hazran/161_break_the_structure.md)
+- [Episode 162. Seorin's Plan](02_hazran/162_seorins_plan.md)

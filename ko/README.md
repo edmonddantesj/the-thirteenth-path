@@ -170,3 +170,4 @@
 - [159화. 기억이 알아보는 법](02_hazran/159_remembering_him.md)
 - [160화. 약속만 남기고](02_hazran/160_only_a_promise.md)
 - [161화. 구조를 무너뜨리다](02_hazran/161_break_the_structure.md)
+- [162화. 서린의 계획](02_hazran/162_seorins_plan.md)

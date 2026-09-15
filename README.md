@@ -258,6 +258,7 @@ Each language directory is organized by arc:
 - [159. 기억이 알아보는 법](ko/02_hazran/159_remembering_him.md)
 - [160. 약속만 남기고](ko/02_hazran/160_only_a_promise.md)
 - [161. 구조를 무너뜨리다](ko/02_hazran/161_break_the_structure.md)
+- [162. 서린의 계획](ko/02_hazran/162_seorins_plan.md)
 
 ### English
 
@@ -426,6 +427,7 @@ Each language directory is organized by arc:
 - [159. Remembering Him](en/02_hazran/159_remembering_him.md)
 - [160. Only a Promise](en/02_hazran/160_only_a_promise.md)
 - [161. Break the Structure](en/02_hazran/161_break_the_structure.md)
+- [162. Seorin's Plan](en/02_hazran/162_seorins_plan.md)
 
 ### Japanese
 
@@ -594,6 +596,7 @@ Each language directory is organized by arc:
 - [第百五十九話　記憶が気づく方法](ja/02_hazran/159_remembering_him.md)
 - [第百六十話　約束だけ残して](ja/02_hazran/160_only_a_promise.md)
 - [第百六十一話　構造を崩す](ja/02_hazran/161_break_the_structure.md)
+- [第百六十二話　ソリンの計画](ja/02_hazran/162_seorins_plan.md)
 
 ### Chinese
 
@@ -762,6 +765,7 @@ Each language directory is organized by arc:
 - [第一百五十九章 记忆认出的方式](zh/02_hazran/159_remembering_him.md)
 - [第一百六十章 只留下一个约定](zh/02_hazran/160_only_a_promise.md)
 - [第一百六十一章 打破这套结构](zh/02_hazran/161_break_the_structure.md)
+- [第一百六十二章 瑟琳的计划](zh/02_hazran/162_seorins_plan.md)
 
 ### French
 
@@ -930,6 +934,7 @@ Each language directory is organized by arc:
 - [Chapitre 159 — Comment la mémoire reconnaît](fr/02_hazran/159_remembering_him.md)
 - [Chapitre 160 — Ne laisser qu'une promesse](fr/02_hazran/160_only_a_promise.md)
 - [Chapitre 161 — Briser la structure](fr/02_hazran/161_break_the_structure.md)
+- [Chapitre 162 — Le plan de Seorin](fr/02_hazran/162_seorins_plan.md)
 
 ### Spanish
 
@@ -1098,7 +1103,8 @@ Each language directory is organized by arc:
 - [Capítulo 159 — Lo que la memoria reconoce](es/02_hazran/159_remembering_him.md)
 - [Capítulo 160 — Solo una promesa](es/02_hazran/160_only_a_promise.md)
 - [Capítulo 161 — Derribar la estructura](es/02_hazran/161_break_the_structure.md)
+- [Capítulo 162 — El plan de Seorin](es/02_hazran/162_seorins_plan.md)
 
 ## Status
 
-Public archive currently published through Episode 161 in Korean, Episode 161 in English, Episode 161 in Japanese, Episode 161 in French, Episode 161 in Chinese (Simplified), and Episode 161 in Spanish.
+Public archive currently published through Episode 162 in Korean, Episode 162 in English, Episode 162 in Japanese, Episode 162 in French, Episode 162 in Chinese (Simplified), and Episode 162 in Spanish.
