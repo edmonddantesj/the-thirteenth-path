@@ -170,3 +170,4 @@ Chapitres publics actuels :
 - [Chapitre 160 — Ne laisser qu'une promesse](02_hazran/160_only_a_promise.md)
 - [Chapitre 161 — Briser la structure](02_hazran/161_break_the_structure.md)
 - [Chapitre 162 — Le plan de Seorin](02_hazran/162_seorins_plan.md)
+- [Chapitre 163 — Chaque couche reçut sa tâche](02_hazran/163_each_layer_assigned.md)

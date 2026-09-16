@@ -170,3 +170,4 @@ Current public English release:
 - [Episode 160. Only a Promise](02_hazran/160_only_a_promise.md)
 - [Episode 161. Break the Structure](02_hazran/161_break_the_structure.md)
 - [Episode 162. Seorin's Plan](02_hazran/162_seorins_plan.md)
+- [Episode 163. Each Layer Assigned](02_hazran/163_each_layer_assigned.md)

@@ -166,3 +166,4 @@ Capítulos públicos actuales:
 - [Capítulo 160 — Solo una promesa](02_hazran/160_only_a_promise.md)
 - [Capítulo 161 — Derribar la estructura](02_hazran/161_break_the_structure.md)
 - [Capítulo 162 — El plan de Seorin](02_hazran/162_seorins_plan.md)
+- [Capítulo 163 — La capa de cada uno](02_hazran/163_each_layer_assigned.md)

@@ -259,6 +259,7 @@ Each language directory is organized by arc:
 - [160. 약속만 남기고](ko/02_hazran/160_only_a_promise.md)
 - [161. 구조를 무너뜨리다](ko/02_hazran/161_break_the_structure.md)
 - [162. 서린의 계획](ko/02_hazran/162_seorins_plan.md)
+- [163. 각자의 층](ko/02_hazran/163_each_layer_assigned.md)
 
 ### English
 
@@ -428,6 +429,7 @@ Each language directory is organized by arc:
 - [160. Only a Promise](en/02_hazran/160_only_a_promise.md)
 - [161. Break the Structure](en/02_hazran/161_break_the_structure.md)
 - [162. Seorin's Plan](en/02_hazran/162_seorins_plan.md)
+- [163. Each Layer Assigned](en/02_hazran/163_each_layer_assigned.md)
 
 ### Japanese
 
@@ -597,6 +599,7 @@ Each language directory is organized by arc:
 - [第百六十話　約束だけ残して](ja/02_hazran/160_only_a_promise.md)
 - [第百六十一話　構造を崩す](ja/02_hazran/161_break_the_structure.md)
 - [第百六十二話　ソリンの計画](ja/02_hazran/162_seorins_plan.md)
+- [第百六十三話　各自の層](ja/02_hazran/163_each_layer_assigned.md)
 
 ### Chinese
 
@@ -766,6 +769,7 @@ Each language directory is organized by arc:
 - [第一百六十章 只留下一个约定](zh/02_hazran/160_only_a_promise.md)
 - [第一百六十一章 打破这套结构](zh/02_hazran/161_break_the_structure.md)
 - [第一百六十二章 瑟琳的计划](zh/02_hazran/162_seorins_plan.md)
+- [第一百六十三章 各自的层](zh/02_hazran/163_each_layer_assigned.md)
 
 ### French
 
@@ -935,6 +939,7 @@ Each language directory is organized by arc:
 - [Chapitre 160 — Ne laisser qu'une promesse](fr/02_hazran/160_only_a_promise.md)
 - [Chapitre 161 — Briser la structure](fr/02_hazran/161_break_the_structure.md)
 - [Chapitre 162 — Le plan de Seorin](fr/02_hazran/162_seorins_plan.md)
+- [Chapitre 163 — Chaque couche reçut sa tâche](fr/02_hazran/163_each_layer_assigned.md)
 
 ### Spanish
 
@@ -1104,7 +1109,8 @@ Each language directory is organized by arc:
 - [Capítulo 160 — Solo una promesa](es/02_hazran/160_only_a_promise.md)
 - [Capítulo 161 — Derribar la estructura](es/02_hazran/161_break_the_structure.md)
 - [Capítulo 162 — El plan de Seorin](es/02_hazran/162_seorins_plan.md)
+- [Capítulo 163 — La capa de cada uno](es/02_hazran/163_each_layer_assigned.md)
 
 ## Status
 
-Public archive currently published through Episode 162 in Korean, Episode 162 in English, Episode 162 in Japanese, Episode 162 in French, Episode 162 in Chinese (Simplified), and Episode 162 in Spanish.
+Public archive currently published through Episode 163 in Korean, Episode 163 in English, Episode 163 in Japanese, Episode 163 in French, Episode 163 in Chinese (Simplified), and Episode 163 in Spanish.

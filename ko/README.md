@@ -171,3 +171,4 @@
 - [160화. 약속만 남기고](02_hazran/160_only_a_promise.md)
 - [161화. 구조를 무너뜨리다](02_hazran/161_break_the_structure.md)
 - [162화. 서린의 계획](02_hazran/162_seorins_plan.md)
+- [163화. 각자의 층](02_hazran/163_each_layer_assigned.md)
