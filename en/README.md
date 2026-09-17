@@ -171,3 +171,4 @@ Current public English release:
 - [Episode 161. Break the Structure](02_hazran/161_break_the_structure.md)
 - [Episode 162. Seorin's Plan](02_hazran/162_seorins_plan.md)
 - [Episode 163. Each Layer Assigned](02_hazran/163_each_layer_assigned.md)
+- [Episode 164. Too Complete to Live](02_hazran/164_too_complete_to_live.md)

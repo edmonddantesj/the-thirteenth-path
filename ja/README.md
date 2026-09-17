@@ -171,3 +171,4 @@
 - [第百六十一話　構造を崩す](02_hazran/161_break_the_structure.md)
 - [第百六十二話　ソリンの計画](02_hazran/162_seorins_plan.md)
 - [第百六十三話　各自の層](02_hazran/163_each_layer_assigned.md)
+- [第百六十四話　生きるには完全すぎる](02_hazran/164_too_complete_to_live.md)
