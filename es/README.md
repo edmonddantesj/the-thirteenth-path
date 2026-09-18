@@ -168,3 +168,4 @@ Capítulos públicos actuales:
 - [Capítulo 162 — El plan de Seorin](02_hazran/162_seorins_plan.md)
 - [Capítulo 163 — La capa de cada uno](02_hazran/163_each_layer_assigned.md)
 - [Capítulo 164 — Demasiado completo para estar vivo](02_hazran/164_too_complete_to_live.md)
+- [Capítulo 165 — Las manos vueltas hacia dentro](02_hazran/165_hands_turned_inward.md)

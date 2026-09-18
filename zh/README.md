@@ -172,3 +172,4 @@
 - [第一百六十二章 瑟琳的计划](02_hazran/162_seorins_plan.md)
 - [第一百六十三章 各自的层](02_hazran/163_each_layer_assigned.md)
 - [第一百六十四章 完整得不像活着](02_hazran/164_too_complete_to_live.md)
+- [第一百六十五章 转向内部的手](02_hazran/165_hands_turned_inward.md)

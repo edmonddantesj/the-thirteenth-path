@@ -172,3 +172,4 @@ Current public English release:
 - [Episode 162. Seorin's Plan](02_hazran/162_seorins_plan.md)
 - [Episode 163. Each Layer Assigned](02_hazran/163_each_layer_assigned.md)
 - [Episode 164. Too Complete to Live](02_hazran/164_too_complete_to_live.md)
+- [Episode 165. Hands Turned Inward](02_hazran/165_hands_turned_inward.md)

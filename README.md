@@ -261,6 +261,7 @@ Each language directory is organized by arc:
 - [162. 서린의 계획](ko/02_hazran/162_seorins_plan.md)
 - [163. 각자의 층](ko/02_hazran/163_each_layer_assigned.md)
 - [164. 살기엔 너무 완전한](ko/02_hazran/164_too_complete_to_live.md)
+- [165. 안으로 돌린 손](ko/02_hazran/165_hands_turned_inward.md)
 
 ### English
 
@@ -432,6 +433,7 @@ Each language directory is organized by arc:
 - [162. Seorin's Plan](en/02_hazran/162_seorins_plan.md)
 - [163. Each Layer Assigned](en/02_hazran/163_each_layer_assigned.md)
 - [164. Too Complete to Live](en/02_hazran/164_too_complete_to_live.md)
+- [165. Hands Turned Inward](en/02_hazran/165_hands_turned_inward.md)
 
 ### Japanese
 
@@ -603,6 +605,7 @@ Each language directory is organized by arc:
 - [第百六十二話　ソリンの計画](ja/02_hazran/162_seorins_plan.md)
 - [第百六十三話　各自の層](ja/02_hazran/163_each_layer_assigned.md)
 - [第百六十四話　生きるには完全すぎる](ja/02_hazran/164_too_complete_to_live.md)
+- [第百六十五話　内へ向けた手](ja/02_hazran/165_hands_turned_inward.md)
 
 ### Chinese
 
@@ -774,6 +777,7 @@ Each language directory is organized by arc:
 - [第一百六十二章 瑟琳的计划](zh/02_hazran/162_seorins_plan.md)
 - [第一百六十三章 各自的层](zh/02_hazran/163_each_layer_assigned.md)
 - [第一百六十四章 完整得不像活着](zh/02_hazran/164_too_complete_to_live.md)
+- [第一百六十五章 转向内部的手](zh/02_hazran/165_hands_turned_inward.md)
 
 ### French
 
@@ -945,6 +949,7 @@ Each language directory is organized by arc:
 - [Chapitre 162 — Le plan de Seorin](fr/02_hazran/162_seorins_plan.md)
 - [Chapitre 163 — Chaque couche reçut sa tâche](fr/02_hazran/163_each_layer_assigned.md)
 - [Chapitre 164 — Trop complet pour vivre](fr/02_hazran/164_too_complete_to_live.md)
+- [Chapitre 165 — Les mains tournées vers l'intérieur](fr/02_hazran/165_hands_turned_inward.md)
 
 ### Spanish
 
@@ -1116,7 +1121,8 @@ Each language directory is organized by arc:
 - [Capítulo 162 — El plan de Seorin](es/02_hazran/162_seorins_plan.md)
 - [Capítulo 163 — La capa de cada uno](es/02_hazran/163_each_layer_assigned.md)
 - [Capítulo 164 — Demasiado completo para estar vivo](es/02_hazran/164_too_complete_to_live.md)
+- [Capítulo 165 — Las manos vueltas hacia dentro](es/02_hazran/165_hands_turned_inward.md)
 
 ## Status
 
-Public archive currently published through Episode 164 in Korean, Episode 164 in English, Episode 164 in Japanese, Episode 164 in French, Episode 164 in Chinese (Simplified), and Episode 164 in Spanish.
+Public archive currently published through Episode 165 in Korean, Episode 165 in English, Episode 165 in Japanese, Episode 165 in French, Episode 165 in Chinese (Simplified), and Episode 165 in Spanish.
