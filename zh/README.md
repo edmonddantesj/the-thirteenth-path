@@ -173,3 +173,4 @@
 - [第一百六十三章 各自的层](02_hazran/163_each_layer_assigned.md)
 - [第一百六十四章 完整得不像活着](02_hazran/164_too_complete_to_live.md)
 - [第一百六十五章 转向内部的手](02_hazran/165_hands_turned_inward.md)
+- [第一百六十六章 在称它们为战力之前](02_hazran/166_the_line_before_use.md)

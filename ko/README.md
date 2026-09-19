@@ -174,3 +174,4 @@
 - [163화. 각자의 층](02_hazran/163_each_layer_assigned.md)
 - [164화. 살기엔 너무 완전한](02_hazran/164_too_complete_to_live.md)
 - [165화. 안으로 돌린 손](02_hazran/165_hands_turned_inward.md)
+- [166화. 전력으로 부르기 전](02_hazran/166_the_line_before_use.md)

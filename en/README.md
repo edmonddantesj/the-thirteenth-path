@@ -173,3 +173,4 @@ Current public English release:
 - [Episode 163. Each Layer Assigned](02_hazran/163_each_layer_assigned.md)
 - [Episode 164. Too Complete to Live](02_hazran/164_too_complete_to_live.md)
 - [Episode 165. Hands Turned Inward](02_hazran/165_hands_turned_inward.md)
+- [Episode 166. The Line Before Use](02_hazran/166_the_line_before_use.md)

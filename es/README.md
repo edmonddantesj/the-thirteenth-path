@@ -169,3 +169,4 @@ Capítulos públicos actuales:
 - [Capítulo 163 — La capa de cada uno](02_hazran/163_each_layer_assigned.md)
 - [Capítulo 164 — Demasiado completo para estar vivo](02_hazran/164_too_complete_to_live.md)
 - [Capítulo 165 — Las manos vueltas hacia dentro](02_hazran/165_hands_turned_inward.md)
+- [Capítulo 166 — La línea antes de usar](02_hazran/166_the_line_before_use.md)

@@ -173,3 +173,4 @@ Chapitres publics actuels :
 - [Chapitre 163 — Chaque couche reçut sa tâche](02_hazran/163_each_layer_assigned.md)
 - [Chapitre 164 — Trop complet pour vivre](02_hazran/164_too_complete_to_live.md)
 - [Chapitre 165 — Les mains tournées vers l'intérieur](02_hazran/165_hands_turned_inward.md)
+- [Chapitre 166 — Avant de les appeler une force](02_hazran/166_the_line_before_use.md)

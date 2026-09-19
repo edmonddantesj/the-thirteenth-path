@@ -262,6 +262,7 @@ Each language directory is organized by arc:
 - [163. 각자의 층](ko/02_hazran/163_each_layer_assigned.md)
 - [164. 살기엔 너무 완전한](ko/02_hazran/164_too_complete_to_live.md)
 - [165. 안으로 돌린 손](ko/02_hazran/165_hands_turned_inward.md)
+- [166. 전력으로 부르기 전](ko/02_hazran/166_the_line_before_use.md)
 
 ### English
 
@@ -434,6 +435,7 @@ Each language directory is organized by arc:
 - [163. Each Layer Assigned](en/02_hazran/163_each_layer_assigned.md)
 - [164. Too Complete to Live](en/02_hazran/164_too_complete_to_live.md)
 - [165. Hands Turned Inward](en/02_hazran/165_hands_turned_inward.md)
+- [166. The Line Before Use](en/02_hazran/166_the_line_before_use.md)
 
 ### Japanese
 
@@ -606,6 +608,7 @@ Each language directory is organized by arc:
 - [第百六十三話　各自の層](ja/02_hazran/163_each_layer_assigned.md)
 - [第百六十四話　生きるには完全すぎる](ja/02_hazran/164_too_complete_to_live.md)
 - [第百六十五話　内へ向けた手](ja/02_hazran/165_hands_turned_inward.md)
+- [第百六十六話　戦力と呼ぶ前に](ja/02_hazran/166_the_line_before_use.md)
 
 ### Chinese
 
@@ -778,6 +781,7 @@ Each language directory is organized by arc:
 - [第一百六十三章 各自的层](zh/02_hazran/163_each_layer_assigned.md)
 - [第一百六十四章 完整得不像活着](zh/02_hazran/164_too_complete_to_live.md)
 - [第一百六十五章 转向内部的手](zh/02_hazran/165_hands_turned_inward.md)
+- [第一百六十六章 在称它们为战力之前](zh/02_hazran/166_the_line_before_use.md)
 
 ### French
 
@@ -950,6 +954,7 @@ Each language directory is organized by arc:
 - [Chapitre 163 — Chaque couche reçut sa tâche](fr/02_hazran/163_each_layer_assigned.md)
 - [Chapitre 164 — Trop complet pour vivre](fr/02_hazran/164_too_complete_to_live.md)
 - [Chapitre 165 — Les mains tournées vers l'intérieur](fr/02_hazran/165_hands_turned_inward.md)
+- [Chapitre 166 — Avant de les appeler une force](fr/02_hazran/166_the_line_before_use.md)
 
 ### Spanish
 
@@ -1122,7 +1127,8 @@ Each language directory is organized by arc:
 - [Capítulo 163 — La capa de cada uno](es/02_hazran/163_each_layer_assigned.md)
 - [Capítulo 164 — Demasiado completo para estar vivo](es/02_hazran/164_too_complete_to_live.md)
 - [Capítulo 165 — Las manos vueltas hacia dentro](es/02_hazran/165_hands_turned_inward.md)
+- [Capítulo 166 — La línea antes de usar](es/02_hazran/166_the_line_before_use.md)
 
 ## Status
 
-Public archive currently published through Episode 165 in Korean, Episode 165 in English, Episode 165 in Japanese, Episode 165 in French, Episode 165 in Chinese (Simplified), and Episode 165 in Spanish.
+Public archive currently published through Episode 166 in Korean, Episode 166 in English, Episode 166 in Japanese, Episode 166 in French, Episode 166 in Chinese (Simplified), and Episode 166 in Spanish.
