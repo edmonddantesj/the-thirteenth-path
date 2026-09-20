@@ -174,3 +174,4 @@
 - [第一百六十四章 完整得不像活着](02_hazran/164_too_complete_to_live.md)
 - [第一百六十五章 转向内部的手](02_hazran/165_hands_turned_inward.md)
 - [第一百六十六章 在称它们为战力之前](02_hazran/166_the_line_before_use.md)
+- [第一百六十七章 学会不说它是空的](02_hazran/167_not_empty.md)

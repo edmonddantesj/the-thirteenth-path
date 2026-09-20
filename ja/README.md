@@ -174,3 +174,4 @@
 - [第百六十四話　生きるには完全すぎる](02_hazran/164_too_complete_to_live.md)
 - [第百六十五話　内へ向けた手](02_hazran/165_hands_turned_inward.md)
 - [第百六十六話　戦力と呼ぶ前に](02_hazran/166_the_line_before_use.md)
+- [第百六十七話　空と呼ばない方法](02_hazran/167_not_empty.md)
