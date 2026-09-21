@@ -171,3 +171,4 @@ Capítulos públicos actuales:
 - [Capítulo 165 — Las manos vueltas hacia dentro](02_hazran/165_hands_turned_inward.md)
 - [Capítulo 166 — La línea antes de usar](02_hazran/166_the_line_before_use.md)
 - [Capítulo 167 — No llamarlo vacío](02_hazran/167_not_empty.md)
+- [Capítulo 168 — Dejar de mentir](02_hazran/168_stop_lying.md)

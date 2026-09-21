@@ -176,3 +176,4 @@
 - [165화. 안으로 돌린 손](02_hazran/165_hands_turned_inward.md)
 - [166화. 전력으로 부르기 전](02_hazran/166_the_line_before_use.md)
 - [167화. 비어 있다고 부르지 않는 법](02_hazran/167_not_empty.md)
+- [168화. 속이지 않기로](02_hazran/168_stop_lying.md)
