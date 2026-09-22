@@ -176,3 +176,4 @@ Chapitres publics actuels :
 - [Chapitre 166 — Avant de les appeler une force](02_hazran/166_the_line_before_use.md)
 - [Chapitre 167 — Ne pas les dire vides](02_hazran/167_not_empty.md)
 - [Chapitre 168 — Cesser de mentir](02_hazran/168_stop_lying.md)
+- [Chapitre 169 — La manière de se tenir près](02_hazran/169_standing_closer.md)

@@ -265,6 +265,7 @@ Each language directory is organized by arc:
 - [166. 전력으로 부르기 전](ko/02_hazran/166_the_line_before_use.md)
 - [167. 비어 있다고 부르지 않는 법](ko/02_hazran/167_not_empty.md)
 - [168. 속이지 않기로](ko/02_hazran/168_stop_lying.md)
+- [169. 곁에 서는 방식](ko/02_hazran/169_standing_closer.md)
 
 ### English
 
@@ -440,6 +441,7 @@ Each language directory is organized by arc:
 - [166. The Line Before Use](en/02_hazran/166_the_line_before_use.md)
 - [167. Not Empty](en/02_hazran/167_not_empty.md)
 - [168. Stop Lying](en/02_hazran/168_stop_lying.md)
+- [169. Standing Closer](en/02_hazran/169_standing_closer.md)
 
 ### Japanese
 
@@ -615,6 +617,7 @@ Each language directory is organized by arc:
 - [第百六十六話　戦力と呼ぶ前に](ja/02_hazran/166_the_line_before_use.md)
 - [第百六十七話　空と呼ばない方法](ja/02_hazran/167_not_empty.md)
 - [第百六十八話　嘘をつかないと決めて](ja/02_hazran/168_stop_lying.md)
+- [第百六十九話　傍に立つ方法](ja/02_hazran/169_standing_closer.md)
 
 ### Chinese
 
@@ -790,6 +793,7 @@ Each language directory is organized by arc:
 - [第一百六十六章 在称它们为战力之前](zh/02_hazran/166_the_line_before_use.md)
 - [第一百六十七章 学会不说它是空的](zh/02_hazran/167_not_empty.md)
 - [第一百六十八章 决定不再自欺](zh/02_hazran/168_stop_lying.md)
+- [第一百六十九章 站在身旁的方式](zh/02_hazran/169_standing_closer.md)
 
 ### French
 
@@ -965,6 +969,7 @@ Each language directory is organized by arc:
 - [Chapitre 166 — Avant de les appeler une force](fr/02_hazran/166_the_line_before_use.md)
 - [Chapitre 167 — Ne pas les dire vides](fr/02_hazran/167_not_empty.md)
 - [Chapitre 168 — Cesser de mentir](fr/02_hazran/168_stop_lying.md)
+- [Chapitre 169 — La manière de se tenir près](fr/02_hazran/169_standing_closer.md)
 
 ### Spanish
 
@@ -1140,7 +1145,8 @@ Each language directory is organized by arc:
 - [Capítulo 166 — La línea antes de usar](es/02_hazran/166_the_line_before_use.md)
 - [Capítulo 167 — No llamarlo vacío](es/02_hazran/167_not_empty.md)
 - [Capítulo 168 — Dejar de mentir](es/02_hazran/168_stop_lying.md)
+- [Capítulo 169 — El modo de estar al lado](es/02_hazran/169_standing_closer.md)
 
 ## Status
 
-Public archive currently published through Episode 168 in Korean, Episode 168 in English, Episode 168 in Japanese, Episode 168 in French, Episode 168 in Chinese (Simplified), and Episode 168 in Spanish.
+Public archive currently published through Episode 169 in Korean, Episode 169 in English, Episode 169 in Japanese, Episode 169 in French, Episode 169 in Chinese (Simplified), and Episode 169 in Spanish.

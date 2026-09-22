@@ -176,3 +176,4 @@
 - [第一百六十六章 在称它们为战力之前](02_hazran/166_the_line_before_use.md)
 - [第一百六十七章 学会不说它是空的](02_hazran/167_not_empty.md)
 - [第一百六十八章 决定不再自欺](02_hazran/168_stop_lying.md)
+- [第一百六十九章 站在身旁的方式](02_hazran/169_standing_closer.md)

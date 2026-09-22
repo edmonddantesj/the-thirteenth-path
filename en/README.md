@@ -176,3 +176,4 @@ Current public English release:
 - [Episode 166. The Line Before Use](02_hazran/166_the_line_before_use.md)
 - [Episode 167. Not Empty](02_hazran/167_not_empty.md)
 - [Episode 168. Stop Lying](02_hazran/168_stop_lying.md)
+- [Episode 169. Standing Closer](02_hazran/169_standing_closer.md)

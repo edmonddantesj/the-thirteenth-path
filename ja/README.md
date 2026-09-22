@@ -176,3 +176,4 @@
 - [第百六十六話　戦力と呼ぶ前に](02_hazran/166_the_line_before_use.md)
 - [第百六十七話　空と呼ばない方法](02_hazran/167_not_empty.md)
 - [第百六十八話　嘘をつかないと決めて](02_hazran/168_stop_lying.md)
+- [第百六十九話　傍に立つ方法](02_hazran/169_standing_closer.md)
