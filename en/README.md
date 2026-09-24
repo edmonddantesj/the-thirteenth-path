@@ -178,3 +178,4 @@ Current public English release:
 - [Episode 168. Stop Lying](02_hazran/168_stop_lying.md)
 - [Episode 169. Standing Closer](02_hazran/169_standing_closer.md)
 - [Episode 170. Faces Before Names](02_hazran/170_faces_before_names.md)
+- [Episode 171. Laughter and Danger](02_hazran/171_laughter_and_danger.md)

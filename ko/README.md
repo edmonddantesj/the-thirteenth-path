@@ -179,3 +179,4 @@
 - [168화. 속이지 않기로](02_hazran/168_stop_lying.md)
 - [169화. 곁에 서는 방식](02_hazran/169_standing_closer.md)
 - [170화. 이름 전에 얼굴을](02_hazran/170_faces_before_names.md)
+- [171화. 먼저 웃은 아이들](02_hazran/171_laughter_and_danger.md)

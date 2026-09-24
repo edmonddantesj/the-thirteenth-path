@@ -174,3 +174,4 @@ Capítulos públicos actuales:
 - [Capítulo 168 — Dejar de mentir](02_hazran/168_stop_lying.md)
 - [Capítulo 169 — El modo de estar al lado](02_hazran/169_standing_closer.md)
 - [Capítulo 170 — El rostro antes que el nombre](02_hazran/170_faces_before_names.md)
+- [Capítulo 171 — Los niños que rieron primero](02_hazran/171_laughter_and_danger.md)

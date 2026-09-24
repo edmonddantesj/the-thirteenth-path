@@ -178,3 +178,4 @@
 - [第百六十八話　嘘をつかないと決めて](02_hazran/168_stop_lying.md)
 - [第百六十九話　傍に立つ方法](02_hazran/169_standing_closer.md)
 - [第百七十話　名前の前に顔を](02_hazran/170_faces_before_names.md)
+- [第百七十一話　先に笑った子どもたち](02_hazran/171_laughter_and_danger.md)

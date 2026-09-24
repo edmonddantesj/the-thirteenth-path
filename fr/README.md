@@ -178,3 +178,4 @@ Chapitres publics actuels :
 - [Chapitre 168 — Cesser de mentir](02_hazran/168_stop_lying.md)
 - [Chapitre 169 — La manière de se tenir près](02_hazran/169_standing_closer.md)
 - [Chapitre 170 — Des visages avant les noms](02_hazran/170_faces_before_names.md)
+- [Chapitre 171 — Les enfants qui rirent les premiers](02_hazran/171_laughter_and_danger.md)
