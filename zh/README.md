@@ -180,3 +180,4 @@
 - [第一百七十章 先于名字的脸](02_hazran/170_faces_before_names.md)
 - [第一百七十一章 先笑起来的孩子们](02_hazran/171_laughter_and_danger.md)
 - [第一百七十二章 定下要守护的](02_hazran/172_what_to_protect.md)
+- [第一百七十三章 应答的脸](02_hazran/173_answered_faces.md)

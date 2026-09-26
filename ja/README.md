@@ -180,3 +180,4 @@
 - [第百七十話　名前の前に顔を](02_hazran/170_faces_before_names.md)
 - [第百七十一話　先に笑った子どもたち](02_hazran/171_laughter_and_danger.md)
 - [第百七十二話　守るものを決めた](02_hazran/172_what_to_protect.md)
+- [第百七十三話　応えた顔](02_hazran/173_answered_faces.md)

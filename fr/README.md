@@ -180,3 +180,4 @@ Chapitres publics actuels :
 - [Chapitre 170 — Des visages avant les noms](02_hazran/170_faces_before_names.md)
 - [Chapitre 171 — Les enfants qui rirent les premiers](02_hazran/171_laughter_and_danger.md)
 - [Chapitre 172 — Décider quoi protéger](02_hazran/172_what_to_protect.md)
+- [Chapitre 173 — Les visages qui répondirent](02_hazran/173_answered_faces.md)

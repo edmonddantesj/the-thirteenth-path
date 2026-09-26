@@ -269,6 +269,7 @@ Each language directory is organized by arc:
 - [170. 이름 전에 얼굴을](ko/02_hazran/170_faces_before_names.md)
 - [171. 먼저 웃은 아이들](ko/02_hazran/171_laughter_and_danger.md)
 - [172. 지킬 것을 정하다](ko/02_hazran/172_what_to_protect.md)
+- [173. 응답한 얼굴](ko/02_hazran/173_answered_faces.md)
 
 ### English
 
@@ -448,6 +449,7 @@ Each language directory is organized by arc:
 - [170. Faces Before Names](en/02_hazran/170_faces_before_names.md)
 - [171. Laughter and Danger](en/02_hazran/171_laughter_and_danger.md)
 - [172. What to Protect](en/02_hazran/172_what_to_protect.md)
+- [173. Answered Faces](en/02_hazran/173_answered_faces.md)
 
 ### Japanese
 
@@ -627,6 +629,7 @@ Each language directory is organized by arc:
 - [第百七十話　名前の前に顔を](ja/02_hazran/170_faces_before_names.md)
 - [第百七十一話　先に笑った子どもたち](ja/02_hazran/171_laughter_and_danger.md)
 - [第百七十二話　守るものを決めた](ja/02_hazran/172_what_to_protect.md)
+- [第百七十三話　応えた顔](ja/02_hazran/173_answered_faces.md)
 
 ### Chinese
 
@@ -806,6 +809,7 @@ Each language directory is organized by arc:
 - [第一百七十章 先于名字的脸](zh/02_hazran/170_faces_before_names.md)
 - [第一百七十一章 先笑起来的孩子们](zh/02_hazran/171_laughter_and_danger.md)
 - [第一百七十二章 定下要守护的](zh/02_hazran/172_what_to_protect.md)
+- [第一百七十三章 应答的脸](zh/02_hazran/173_answered_faces.md)
 
 ### French
 
@@ -985,6 +989,7 @@ Each language directory is organized by arc:
 - [Chapitre 170 — Des visages avant les noms](fr/02_hazran/170_faces_before_names.md)
 - [Chapitre 171 — Les enfants qui rirent les premiers](fr/02_hazran/171_laughter_and_danger.md)
 - [Chapitre 172 — Décider quoi protéger](fr/02_hazran/172_what_to_protect.md)
+- [Chapitre 173 — Les visages qui répondirent](fr/02_hazran/173_answered_faces.md)
 
 ### Spanish
 
@@ -1164,7 +1169,8 @@ Each language directory is organized by arc:
 - [Capítulo 170 — El rostro antes que el nombre](es/02_hazran/170_faces_before_names.md)
 - [Capítulo 171 — Los niños que rieron primero](es/02_hazran/171_laughter_and_danger.md)
 - [Capítulo 172 — Lo que hay que proteger](es/02_hazran/172_what_to_protect.md)
+- [Capítulo 173 — Los rostros que respondieron](es/02_hazran/173_answered_faces.md)
 
 ## Status
 
-Public archive currently published through Episode 172 in Korean, Episode 172 in English, Episode 172 in Japanese, Episode 172 in French, Episode 172 in Chinese (Simplified), and Episode 172 in Spanish.
+Public archive currently published through Episode 173 in Korean, Episode 173 in English, Episode 173 in Japanese, Episode 173 in French, Episode 173 in Chinese (Simplified), and Episode 173 in Spanish.

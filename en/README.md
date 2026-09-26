@@ -180,3 +180,4 @@ Current public English release:
 - [Episode 170. Faces Before Names](02_hazran/170_faces_before_names.md)
 - [Episode 171. Laughter and Danger](02_hazran/171_laughter_and_danger.md)
 - [Episode 172. What to Protect](02_hazran/172_what_to_protect.md)
+- [Episode 173. Answered Faces](02_hazran/173_answered_faces.md)
