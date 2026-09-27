@@ -177,3 +177,4 @@ Capítulos públicos actuales:
 - [Capítulo 171 — Los niños que rieron primero](02_hazran/171_laughter_and_danger.md)
 - [Capítulo 172 — Lo que hay que proteger](02_hazran/172_what_to_protect.md)
 - [Capítulo 173 — Los rostros que respondieron](02_hazran/173_answered_faces.md)
+- [Capítulo 174 — El último superviviente](02_hazran/174_the_last_survivor.md)
