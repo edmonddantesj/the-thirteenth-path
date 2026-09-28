@@ -271,6 +271,7 @@ Each language directory is organized by arc:
 - [172. 지킬 것을 정하다](ko/02_hazran/172_what_to_protect.md)
 - [173. 응답한 얼굴](ko/02_hazran/173_answered_faces.md)
 - [174. 마지막 생존자](ko/02_hazran/174_the_last_survivor.md)
+- [175. 변하기 시작하다](ko/02_hazran/175_beginning_to_change.md)
 
 ### English
 
@@ -452,6 +453,7 @@ Each language directory is organized by arc:
 - [172. What to Protect](en/02_hazran/172_what_to_protect.md)
 - [173. Answered Faces](en/02_hazran/173_answered_faces.md)
 - [174. The Last Survivor](en/02_hazran/174_the_last_survivor.md)
+- [175. Beginning to Change](en/02_hazran/175_beginning_to_change.md)
 
 ### Japanese
 
@@ -633,6 +635,7 @@ Each language directory is organized by arc:
 - [第百七十二話　守るものを決めた](ja/02_hazran/172_what_to_protect.md)
 - [第百七十三話　応えた顔](ja/02_hazran/173_answered_faces.md)
 - [第百七十四話　最後の生存者](ja/02_hazran/174_the_last_survivor.md)
+- [第百七十五話　変わり始める](ja/02_hazran/175_beginning_to_change.md)
 
 ### Chinese
 
@@ -814,6 +817,7 @@ Each language directory is organized by arc:
 - [第一百七十二章 定下要守护的](zh/02_hazran/172_what_to_protect.md)
 - [第一百七十三章 应答的脸](zh/02_hazran/173_answered_faces.md)
 - [第一百七十四章 最后的幸存者](zh/02_hazran/174_the_last_survivor.md)
+- [第一百七十五章 开始改变](zh/02_hazran/175_beginning_to_change.md)
 
 ### French
 
@@ -995,6 +999,7 @@ Each language directory is organized by arc:
 - [Chapitre 172 — Décider quoi protéger](fr/02_hazran/172_what_to_protect.md)
 - [Chapitre 173 — Les visages qui répondirent](fr/02_hazran/173_answered_faces.md)
 - [Chapitre 174 — Le dernier survivant](fr/02_hazran/174_the_last_survivor.md)
+- [Chapitre 175 — Commencer à changer](fr/02_hazran/175_beginning_to_change.md)
 
 ### Spanish
 
@@ -1176,7 +1181,8 @@ Each language directory is organized by arc:
 - [Capítulo 172 — Lo que hay que proteger](es/02_hazran/172_what_to_protect.md)
 - [Capítulo 173 — Los rostros que respondieron](es/02_hazran/173_answered_faces.md)
 - [Capítulo 174 — El último superviviente](es/02_hazran/174_the_last_survivor.md)
+- [Capítulo 175 — Empezar a cambiar](es/02_hazran/175_beginning_to_change.md)
 
 ## Status
 
-Public archive currently published through Episode 174 in Korean, Episode 174 in English, Episode 174 in Japanese, Episode 174 in French, Episode 174 in Chinese (Simplified), and Episode 174 in Spanish.
+Public archive currently published through Episode 175 in Korean, Episode 175 in English, Episode 175 in Japanese, Episode 175 in French, Episode 175 in Chinese (Simplified), and Episode 175 in Spanish.

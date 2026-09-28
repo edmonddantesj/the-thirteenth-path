@@ -182,3 +182,4 @@ Current public English release:
 - [Episode 172. What to Protect](02_hazran/172_what_to_protect.md)
 - [Episode 173. Answered Faces](02_hazran/173_answered_faces.md)
 - [Episode 174. The Last Survivor](02_hazran/174_the_last_survivor.md)
+- [Episode 175. Beginning to Change](02_hazran/175_beginning_to_change.md)
