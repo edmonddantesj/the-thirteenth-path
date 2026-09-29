@@ -179,3 +179,4 @@ Capítulos públicos actuales:
 - [Capítulo 173 — Los rostros que respondieron](02_hazran/173_answered_faces.md)
 - [Capítulo 174 — El último superviviente](02_hazran/174_the_last_survivor.md)
 - [Capítulo 175 — Empezar a cambiar](02_hazran/175_beginning_to_change.md)
+- [Capítulo 176 — Lo que no es una orden](02_hazran/176_not_a_command.md)

@@ -184,3 +184,4 @@
 - [173화. 응답한 얼굴](02_hazran/173_answered_faces.md)
 - [174화. 마지막 생존자](02_hazran/174_the_last_survivor.md)
 - [175화. 변하기 시작하다](02_hazran/175_beginning_to_change.md)
+- [176화. 명령이 아닌 것](02_hazran/176_not_a_command.md)

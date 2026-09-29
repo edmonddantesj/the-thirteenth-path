@@ -183,3 +183,4 @@ Current public English release:
 - [Episode 173. Answered Faces](02_hazran/173_answered_faces.md)
 - [Episode 174. The Last Survivor](02_hazran/174_the_last_survivor.md)
 - [Episode 175. Beginning to Change](02_hazran/175_beginning_to_change.md)
+- [Episode 176. Not a Command](02_hazran/176_not_a_command.md)

@@ -272,6 +272,7 @@ Each language directory is organized by arc:
 - [173. 응답한 얼굴](ko/02_hazran/173_answered_faces.md)
 - [174. 마지막 생존자](ko/02_hazran/174_the_last_survivor.md)
 - [175. 변하기 시작하다](ko/02_hazran/175_beginning_to_change.md)
+- [176. 명령이 아닌 것](ko/02_hazran/176_not_a_command.md)
 
 ### English
 
@@ -454,6 +455,7 @@ Each language directory is organized by arc:
 - [173. Answered Faces](en/02_hazran/173_answered_faces.md)
 - [174. The Last Survivor](en/02_hazran/174_the_last_survivor.md)
 - [175. Beginning to Change](en/02_hazran/175_beginning_to_change.md)
+- [176. Not a Command](en/02_hazran/176_not_a_command.md)
 
 ### Japanese
 
@@ -636,6 +638,7 @@ Each language directory is organized by arc:
 - [第百七十三話　応えた顔](ja/02_hazran/173_answered_faces.md)
 - [第百七十四話　最後の生存者](ja/02_hazran/174_the_last_survivor.md)
 - [第百七十五話　変わり始める](ja/02_hazran/175_beginning_to_change.md)
+- [第百七十六話　命令ではないもの](ja/02_hazran/176_not_a_command.md)
 
 ### Chinese
 
@@ -818,6 +821,7 @@ Each language directory is organized by arc:
 - [第一百七十三章 应答的脸](zh/02_hazran/173_answered_faces.md)
 - [第一百七十四章 最后的幸存者](zh/02_hazran/174_the_last_survivor.md)
 - [第一百七十五章 开始改变](zh/02_hazran/175_beginning_to_change.md)
+- [第一百七十六章 并非命令之物](zh/02_hazran/176_not_a_command.md)
 
 ### French
 
@@ -1000,6 +1004,7 @@ Each language directory is organized by arc:
 - [Chapitre 173 — Les visages qui répondirent](fr/02_hazran/173_answered_faces.md)
 - [Chapitre 174 — Le dernier survivant](fr/02_hazran/174_the_last_survivor.md)
 - [Chapitre 175 — Commencer à changer](fr/02_hazran/175_beginning_to_change.md)
+- [Chapitre 176 — Ce qui n'était pas un ordre](fr/02_hazran/176_not_a_command.md)
 
 ### Spanish
 
@@ -1182,7 +1187,8 @@ Each language directory is organized by arc:
 - [Capítulo 173 — Los rostros que respondieron](es/02_hazran/173_answered_faces.md)
 - [Capítulo 174 — El último superviviente](es/02_hazran/174_the_last_survivor.md)
 - [Capítulo 175 — Empezar a cambiar](es/02_hazran/175_beginning_to_change.md)
+- [Capítulo 176 — Lo que no es una orden](es/02_hazran/176_not_a_command.md)
 
 ## Status
 
-Public archive currently published through Episode 175 in Korean, Episode 175 in English, Episode 175 in Japanese, Episode 175 in French, Episode 175 in Chinese (Simplified), and Episode 175 in Spanish.
+Public archive currently published through Episode 176 in Korean, Episode 176 in English, Episode 176 in Japanese, Episode 176 in French, Episode 176 in Chinese (Simplified), and Episode 176 in Spanish.
