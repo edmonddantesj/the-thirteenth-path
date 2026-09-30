@@ -184,3 +184,4 @@ Chapitres publics actuels :
 - [Chapitre 174 — Le dernier survivant](02_hazran/174_the_last_survivor.md)
 - [Chapitre 175 — Commencer à changer](02_hazran/175_beginning_to_change.md)
 - [Chapitre 176 — Ce qui n'était pas un ordre](02_hazran/176_not_a_command.md)
+- [Chapitre 177 — Un mot](02_hazran/177_before_a_soul.md)

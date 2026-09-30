@@ -273,6 +273,7 @@ Each language directory is organized by arc:
 - [174. 마지막 생존자](ko/02_hazran/174_the_last_survivor.md)
 - [175. 변하기 시작하다](ko/02_hazran/175_beginning_to_change.md)
 - [176. 명령이 아닌 것](ko/02_hazran/176_not_a_command.md)
+- [177. 한마디](ko/02_hazran/177_before_a_soul.md)
 
 ### English
 
@@ -456,6 +457,7 @@ Each language directory is organized by arc:
 - [174. The Last Survivor](en/02_hazran/174_the_last_survivor.md)
 - [175. Beginning to Change](en/02_hazran/175_beginning_to_change.md)
 - [176. Not a Command](en/02_hazran/176_not_a_command.md)
+- [177. Before a Soul](en/02_hazran/177_before_a_soul.md)
 
 ### Japanese
 
@@ -639,6 +641,7 @@ Each language directory is organized by arc:
 - [第百七十四話　最後の生存者](ja/02_hazran/174_the_last_survivor.md)
 - [第百七十五話　変わり始める](ja/02_hazran/175_beginning_to_change.md)
 - [第百七十六話　命令ではないもの](ja/02_hazran/176_not_a_command.md)
+- [第百七十七話　一言](ja/02_hazran/177_before_a_soul.md)
 
 ### Chinese
 
@@ -822,6 +825,7 @@ Each language directory is organized by arc:
 - [第一百七十四章 最后的幸存者](zh/02_hazran/174_the_last_survivor.md)
 - [第一百七十五章 开始改变](zh/02_hazran/175_beginning_to_change.md)
 - [第一百七十六章 并非命令之物](zh/02_hazran/176_not_a_command.md)
+- [第一百七十七章 一句话](zh/02_hazran/177_before_a_soul.md)
 
 ### French
 
@@ -1005,6 +1009,7 @@ Each language directory is organized by arc:
 - [Chapitre 174 — Le dernier survivant](fr/02_hazran/174_the_last_survivor.md)
 - [Chapitre 175 — Commencer à changer](fr/02_hazran/175_beginning_to_change.md)
 - [Chapitre 176 — Ce qui n'était pas un ordre](fr/02_hazran/176_not_a_command.md)
+- [Chapitre 177 — Un mot](fr/02_hazran/177_before_a_soul.md)
 
 ### Spanish
 
@@ -1188,7 +1193,8 @@ Each language directory is organized by arc:
 - [Capítulo 174 — El último superviviente](es/02_hazran/174_the_last_survivor.md)
 - [Capítulo 175 — Empezar a cambiar](es/02_hazran/175_beginning_to_change.md)
 - [Capítulo 176 — Lo que no es una orden](es/02_hazran/176_not_a_command.md)
+- [Capítulo 177 — Una palabra](es/02_hazran/177_before_a_soul.md)
 
 ## Status
 
-Public archive currently published through Episode 176 in Korean, Episode 176 in English, Episode 176 in Japanese, Episode 176 in French, Episode 176 in Chinese (Simplified), and Episode 176 in Spanish.
+Public archive currently published through Episode 177 in Korean, Episode 177 in English, Episode 177 in Japanese, Episode 177 in French, Episode 177 in Chinese (Simplified), and Episode 177 in Spanish.

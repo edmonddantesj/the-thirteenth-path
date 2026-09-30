@@ -184,3 +184,4 @@ Current public English release:
 - [Episode 174. The Last Survivor](02_hazran/174_the_last_survivor.md)
 - [Episode 175. Beginning to Change](02_hazran/175_beginning_to_change.md)
 - [Episode 176. Not a Command](02_hazran/176_not_a_command.md)
+- [Episode 177. Before a Soul](02_hazran/177_before_a_soul.md)
