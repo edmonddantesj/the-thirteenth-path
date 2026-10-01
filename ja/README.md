@@ -185,3 +185,4 @@
 - [第百七十五話　変わり始める](02_hazran/175_beginning_to_change.md)
 - [第百七十六話　命令ではないもの](02_hazran/176_not_a_command.md)
 - [第百七十七話　一言](02_hazran/177_before_a_soul.md)
+- [第百七十八話　退かないと決めて](02_hazran/178_no_one_stepped_back.md)

@@ -274,6 +274,7 @@ Each language directory is organized by arc:
 - [175. 변하기 시작하다](ko/02_hazran/175_beginning_to_change.md)
 - [176. 명령이 아닌 것](ko/02_hazran/176_not_a_command.md)
 - [177. 한마디](ko/02_hazran/177_before_a_soul.md)
+- [178. 물러서지 않기로](ko/02_hazran/178_no_one_stepped_back.md)
 
 ### English
 
@@ -458,6 +459,7 @@ Each language directory is organized by arc:
 - [175. Beginning to Change](en/02_hazran/175_beginning_to_change.md)
 - [176. Not a Command](en/02_hazran/176_not_a_command.md)
 - [177. Before a Soul](en/02_hazran/177_before_a_soul.md)
+- [178. No One Stepped Back](en/02_hazran/178_no_one_stepped_back.md)
 
 ### Japanese
 
@@ -642,6 +644,7 @@ Each language directory is organized by arc:
 - [第百七十五話　変わり始める](ja/02_hazran/175_beginning_to_change.md)
 - [第百七十六話　命令ではないもの](ja/02_hazran/176_not_a_command.md)
 - [第百七十七話　一言](ja/02_hazran/177_before_a_soul.md)
+- [第百七十八話　退かないと決めて](ja/02_hazran/178_no_one_stepped_back.md)
 
 ### Chinese
 
@@ -826,6 +829,7 @@ Each language directory is organized by arc:
 - [第一百七十五章 开始改变](zh/02_hazran/175_beginning_to_change.md)
 - [第一百七十六章 并非命令之物](zh/02_hazran/176_not_a_command.md)
 - [第一百七十七章 一句话](zh/02_hazran/177_before_a_soul.md)
+- [第一百七十八章 决定不退后](zh/02_hazran/178_no_one_stepped_back.md)
 
 ### French
 
@@ -1010,6 +1014,7 @@ Each language directory is organized by arc:
 - [Chapitre 175 — Commencer à changer](fr/02_hazran/175_beginning_to_change.md)
 - [Chapitre 176 — Ce qui n'était pas un ordre](fr/02_hazran/176_not_a_command.md)
 - [Chapitre 177 — Un mot](fr/02_hazran/177_before_a_soul.md)
+- [Chapitre 178 — Choisir de ne pas reculer](fr/02_hazran/178_no_one_stepped_back.md)
 
 ### Spanish
 
@@ -1194,7 +1199,8 @@ Each language directory is organized by arc:
 - [Capítulo 175 — Empezar a cambiar](es/02_hazran/175_beginning_to_change.md)
 - [Capítulo 176 — Lo que no es una orden](es/02_hazran/176_not_a_command.md)
 - [Capítulo 177 — Una palabra](es/02_hazran/177_before_a_soul.md)
+- [Capítulo 178 — Nadie retrocedió](es/02_hazran/178_no_one_stepped_back.md)
 
 ## Status
 
-Public archive currently published through Episode 177 in Korean, Episode 177 in English, Episode 177 in Japanese, Episode 177 in French, Episode 177 in Chinese (Simplified), and Episode 177 in Spanish.
+Public archive currently published through Episode 178 in Korean, Episode 178 in English, Episode 178 in Japanese, Episode 178 in French, Episode 178 in Chinese (Simplified), and Episode 178 in Spanish.
