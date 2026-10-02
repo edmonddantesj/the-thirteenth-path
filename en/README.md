@@ -186,3 +186,4 @@ Current public English release:
 - [Episode 176. Not a Command](02_hazran/176_not_a_command.md)
 - [Episode 177. Before a Soul](02_hazran/177_before_a_soul.md)
 - [Episode 178. No One Stepped Back](02_hazran/178_no_one_stepped_back.md)
+- [Episode 179. No Longer a Thing](02_hazran/179_no_longer_a_thing.md)

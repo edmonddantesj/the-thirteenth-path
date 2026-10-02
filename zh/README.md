@@ -186,3 +186,4 @@
 - [第一百七十六章 并非命令之物](02_hazran/176_not_a_command.md)
 - [第一百七十七章 一句话](02_hazran/177_before_a_soul.md)
 - [第一百七十八章 决定不退后](02_hazran/178_no_one_stepped_back.md)
+- [第一百七十九章 不再是物件](02_hazran/179_no_longer_a_thing.md)

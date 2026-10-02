@@ -187,3 +187,4 @@
 - [176화. 명령이 아닌 것](02_hazran/176_not_a_command.md)
 - [177화. 한마디](02_hazran/177_before_a_soul.md)
 - [178화. 물러서지 않기로](02_hazran/178_no_one_stepped_back.md)
+- [179화. 더는 사물이 아닌](02_hazran/179_no_longer_a_thing.md)

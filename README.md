@@ -275,6 +275,7 @@ Each language directory is organized by arc:
 - [176. 명령이 아닌 것](ko/02_hazran/176_not_a_command.md)
 - [177. 한마디](ko/02_hazran/177_before_a_soul.md)
 - [178. 물러서지 않기로](ko/02_hazran/178_no_one_stepped_back.md)
+- [179. 더는 사물이 아닌](ko/02_hazran/179_no_longer_a_thing.md)
 
 ### English
 
@@ -460,6 +461,7 @@ Each language directory is organized by arc:
 - [176. Not a Command](en/02_hazran/176_not_a_command.md)
 - [177. Before a Soul](en/02_hazran/177_before_a_soul.md)
 - [178. No One Stepped Back](en/02_hazran/178_no_one_stepped_back.md)
+- [179. No Longer a Thing](en/02_hazran/179_no_longer_a_thing.md)
 
 ### Japanese
 
@@ -645,6 +647,7 @@ Each language directory is organized by arc:
 - [第百七十六話　命令ではないもの](ja/02_hazran/176_not_a_command.md)
 - [第百七十七話　一言](ja/02_hazran/177_before_a_soul.md)
 - [第百七十八話　退かないと決めて](ja/02_hazran/178_no_one_stepped_back.md)
+- [第百七十九話　もはや物ではない](ja/02_hazran/179_no_longer_a_thing.md)
 
 ### Chinese
 
@@ -830,6 +833,7 @@ Each language directory is organized by arc:
 - [第一百七十六章 并非命令之物](zh/02_hazran/176_not_a_command.md)
 - [第一百七十七章 一句话](zh/02_hazran/177_before_a_soul.md)
 - [第一百七十八章 决定不退后](zh/02_hazran/178_no_one_stepped_back.md)
+- [第一百七十九章 不再是物件](zh/02_hazran/179_no_longer_a_thing.md)
 
 ### French
 
@@ -1015,6 +1019,7 @@ Each language directory is organized by arc:
 - [Chapitre 176 — Ce qui n'était pas un ordre](fr/02_hazran/176_not_a_command.md)
 - [Chapitre 177 — Un mot](fr/02_hazran/177_before_a_soul.md)
 - [Chapitre 178 — Choisir de ne pas reculer](fr/02_hazran/178_no_one_stepped_back.md)
+- [Chapitre 179 — Plus un objet](fr/02_hazran/179_no_longer_a_thing.md)
 
 ### Spanish
 
@@ -1200,7 +1205,8 @@ Each language directory is organized by arc:
 - [Capítulo 176 — Lo que no es una orden](es/02_hazran/176_not_a_command.md)
 - [Capítulo 177 — Una palabra](es/02_hazran/177_before_a_soul.md)
 - [Capítulo 178 — Nadie retrocedió](es/02_hazran/178_no_one_stepped_back.md)
+- [Capítulo 179 — Ya no una cosa](es/02_hazran/179_no_longer_a_thing.md)
 
 ## Status
 
-Public archive currently published through Episode 178 in Korean, Episode 178 in English, Episode 178 in Japanese, Episode 178 in French, Episode 178 in Chinese (Simplified), and Episode 178 in Spanish.
+Public archive currently published through Episode 179 in Korean, Episode 179 in English, Episode 179 in Japanese, Episode 179 in French, Episode 179 in Chinese (Simplified), and Episode 179 in Spanish.
