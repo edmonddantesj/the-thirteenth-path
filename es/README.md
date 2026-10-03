@@ -183,3 +183,4 @@ Capítulos públicos actuales:
 - [Capítulo 177 — Una palabra](02_hazran/177_before_a_soul.md)
 - [Capítulo 178 — Nadie retrocedió](02_hazran/178_no_one_stepped_back.md)
 - [Capítulo 179 — Ya no una cosa](02_hazran/179_no_longer_a_thing.md)
+- [Capítulo 180 — Lo que se vio tras la batalla](02_hazran/180_after_the_battle.md)

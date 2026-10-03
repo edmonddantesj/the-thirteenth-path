@@ -187,3 +187,4 @@ Current public English release:
 - [Episode 177. Before a Soul](02_hazran/177_before_a_soul.md)
 - [Episode 178. No One Stepped Back](02_hazran/178_no_one_stepped_back.md)
 - [Episode 179. No Longer a Thing](02_hazran/179_no_longer_a_thing.md)
+- [Episode 180. After the Battle](02_hazran/180_after_the_battle.md)

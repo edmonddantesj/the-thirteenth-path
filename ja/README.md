@@ -187,3 +187,4 @@
 - [第百七十七話　一言](02_hazran/177_before_a_soul.md)
 - [第百七十八話　退かないと決めて](02_hazran/178_no_one_stepped_back.md)
 - [第百七十九話　もはや物ではない](02_hazran/179_no_longer_a_thing.md)
+- [第百八十話　戦いの後に見たもの](02_hazran/180_after_the_battle.md)
