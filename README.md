@@ -277,6 +277,7 @@ Each language directory is organized by arc:
 - [178. 물러서지 않기로](ko/02_hazran/178_no_one_stepped_back.md)
 - [179. 더는 사물이 아닌](ko/02_hazran/179_no_longer_a_thing.md)
 - [180. 전투 뒤에 본 것](ko/02_hazran/180_after_the_battle.md)
+- [181. 살아남은 것 이상](ko/02_hazran/181_more_than_surviving.md)
 
 ### English
 
@@ -464,6 +465,7 @@ Each language directory is organized by arc:
 - [178. No One Stepped Back](en/02_hazran/178_no_one_stepped_back.md)
 - [179. No Longer a Thing](en/02_hazran/179_no_longer_a_thing.md)
 - [180. After the Battle](en/02_hazran/180_after_the_battle.md)
+- [181. More Than Surviving](en/02_hazran/181_more_than_surviving.md)
 
 ### Japanese
 
@@ -651,6 +653,7 @@ Each language directory is organized by arc:
 - [第百七十八話　退かないと決めて](ja/02_hazran/178_no_one_stepped_back.md)
 - [第百七十九話　もはや物ではない](ja/02_hazran/179_no_longer_a_thing.md)
 - [第百八十話　戦いの後に見たもの](ja/02_hazran/180_after_the_battle.md)
+- [第百八十一話　生き残った以上のもの](ja/02_hazran/181_more_than_surviving.md)
 
 ### Chinese
 
@@ -838,6 +841,7 @@ Each language directory is organized by arc:
 - [第一百七十八章 决定不退后](zh/02_hazran/178_no_one_stepped_back.md)
 - [第一百七十九章 不再是物件](zh/02_hazran/179_no_longer_a_thing.md)
 - [第一百八十章 战斗之后所见](zh/02_hazran/180_after_the_battle.md)
+- [第一百八十一章 不止是活下来](zh/02_hazran/181_more_than_surviving.md)
 
 ### French
 
@@ -1025,6 +1029,7 @@ Each language directory is organized by arc:
 - [Chapitre 178 — Choisir de ne pas reculer](fr/02_hazran/178_no_one_stepped_back.md)
 - [Chapitre 179 — Plus un objet](fr/02_hazran/179_no_longer_a_thing.md)
 - [Chapitre 180 — Ce qu'on vit après le combat](fr/02_hazran/180_after_the_battle.md)
+- [Chapitre 181 — Plus que survivre](fr/02_hazran/181_more_than_surviving.md)
 
 ### Spanish
 
@@ -1212,7 +1217,8 @@ Each language directory is organized by arc:
 - [Capítulo 178 — Nadie retrocedió](es/02_hazran/178_no_one_stepped_back.md)
 - [Capítulo 179 — Ya no una cosa](es/02_hazran/179_no_longer_a_thing.md)
 - [Capítulo 180 — Lo que se vio tras la batalla](es/02_hazran/180_after_the_battle.md)
+- [Capítulo 181 — Más que sobrevivir](es/02_hazran/181_more_than_surviving.md)
 
 ## Status
 
-Public archive currently published through Episode 180 in Korean, Episode 180 in English, Episode 180 in Japanese, Episode 180 in French, Episode 180 in Chinese (Simplified), and Episode 180 in Spanish.
+Public archive currently published through Episode 181 in Korean, Episode 181 in English, Episode 181 in Japanese, Episode 181 in French, Episode 181 in Chinese (Simplified), and Episode 181 in Spanish.

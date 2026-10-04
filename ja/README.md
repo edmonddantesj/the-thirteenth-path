@@ -188,3 +188,4 @@
 - [第百七十八話　退かないと決めて](02_hazran/178_no_one_stepped_back.md)
 - [第百七十九話　もはや物ではない](02_hazran/179_no_longer_a_thing.md)
 - [第百八十話　戦いの後に見たもの](02_hazran/180_after_the_battle.md)
+- [第百八十一話　生き残った以上のもの](02_hazran/181_more_than_surviving.md)

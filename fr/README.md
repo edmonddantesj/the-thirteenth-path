@@ -188,3 +188,4 @@ Chapitres publics actuels :
 - [Chapitre 178 — Choisir de ne pas reculer](02_hazran/178_no_one_stepped_back.md)
 - [Chapitre 179 — Plus un objet](02_hazran/179_no_longer_a_thing.md)
 - [Chapitre 180 — Ce qu'on vit après le combat](02_hazran/180_after_the_battle.md)
+- [Chapitre 181 — Plus que survivre](02_hazran/181_more_than_surviving.md)
