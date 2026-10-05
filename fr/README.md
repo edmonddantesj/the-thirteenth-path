@@ -189,3 +189,4 @@ Chapitres publics actuels :
 - [Chapitre 179 — Plus un objet](02_hazran/179_no_longer_a_thing.md)
 - [Chapitre 180 — Ce qu'on vit après le combat](02_hazran/180_after_the_battle.md)
 - [Chapitre 181 — Plus que survivre](02_hazran/181_more_than_surviving.md)
+- [Chapitre 182 — Le même plan, un nouveau cœur](02_hazran/182_same_plan_new_heart.md)

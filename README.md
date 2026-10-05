@@ -278,6 +278,7 @@ Each language directory is organized by arc:
 - [179. 더는 사물이 아닌](ko/02_hazran/179_no_longer_a_thing.md)
 - [180. 전투 뒤에 본 것](ko/02_hazran/180_after_the_battle.md)
 - [181. 살아남은 것 이상](ko/02_hazran/181_more_than_surviving.md)
+- [182. 같은 계획, 새 심장](ko/02_hazran/182_same_plan_new_heart.md)
 
 ### English
 
@@ -466,6 +467,7 @@ Each language directory is organized by arc:
 - [179. No Longer a Thing](en/02_hazran/179_no_longer_a_thing.md)
 - [180. After the Battle](en/02_hazran/180_after_the_battle.md)
 - [181. More Than Surviving](en/02_hazran/181_more_than_surviving.md)
+- [182. Same Plan, New Heart](en/02_hazran/182_same_plan_new_heart.md)
 
 ### Japanese
 
@@ -654,6 +656,7 @@ Each language directory is organized by arc:
 - [第百七十九話　もはや物ではない](ja/02_hazran/179_no_longer_a_thing.md)
 - [第百八十話　戦いの後に見たもの](ja/02_hazran/180_after_the_battle.md)
 - [第百八十一話　生き残った以上のもの](ja/02_hazran/181_more_than_surviving.md)
+- [第百八十二話　同じ計画、新しい心臓](ja/02_hazran/182_same_plan_new_heart.md)
 
 ### Chinese
 
@@ -842,6 +845,7 @@ Each language directory is organized by arc:
 - [第一百七十九章 不再是物件](zh/02_hazran/179_no_longer_a_thing.md)
 - [第一百八十章 战斗之后所见](zh/02_hazran/180_after_the_battle.md)
 - [第一百八十一章 不止是活下来](zh/02_hazran/181_more_than_surviving.md)
+- [第一百八十二章 同一个计划，新的心脏](zh/02_hazran/182_same_plan_new_heart.md)
 
 ### French
 
@@ -1030,6 +1034,7 @@ Each language directory is organized by arc:
 - [Chapitre 179 — Plus un objet](fr/02_hazran/179_no_longer_a_thing.md)
 - [Chapitre 180 — Ce qu'on vit après le combat](fr/02_hazran/180_after_the_battle.md)
 - [Chapitre 181 — Plus que survivre](fr/02_hazran/181_more_than_surviving.md)
+- [Chapitre 182 — Le même plan, un nouveau cœur](fr/02_hazran/182_same_plan_new_heart.md)
 
 ### Spanish
 
@@ -1218,7 +1223,8 @@ Each language directory is organized by arc:
 - [Capítulo 179 — Ya no una cosa](es/02_hazran/179_no_longer_a_thing.md)
 - [Capítulo 180 — Lo que se vio tras la batalla](es/02_hazran/180_after_the_battle.md)
 - [Capítulo 181 — Más que sobrevivir](es/02_hazran/181_more_than_surviving.md)
+- [Capítulo 182 — El mismo plan, un nuevo corazón](es/02_hazran/182_same_plan_new_heart.md)
 
 ## Status
 
-Public archive currently published through Episode 181 in Korean, Episode 181 in English, Episode 181 in Japanese, Episode 181 in French, Episode 181 in Chinese (Simplified), and Episode 181 in Spanish.
+Public archive currently published through Episode 182 in Korean, Episode 182 in English, Episode 182 in Japanese, Episode 182 in French, Episode 182 in Chinese (Simplified), and Episode 182 in Spanish.
