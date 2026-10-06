@@ -52,7 +52,7 @@ Elle replia les doigts l'un après l'autre.
 « Premièrement,
 faire sortir quelques personnes ne mettra pas fin à cette structure. »
 « Deuxièmement,
-dès qu'on perce Serakion une fois, il apprend et colmate aussitôt. »
+dès qu'on le perce une fois, Serakion apprend et colmate aussitôt. »
 « Troisièmement,
 à partir de maintenant, il ne faudra donc pas seulement sortir des gens,
 mais toucher l'axe qui fait qu'on les traite ainsi. »
@@ -78,7 +78,7 @@ c'est un retardement, pas un effondrement. »
 
 Seorin résuma aussitôt.
 
-« Bien. Les chemins sont un résultat,
+« Alors les chemins sont un résultat,
 ce que nous devons viser, c'est l'axe. »
 
 Sern prit le relais.
@@ -123,7 +123,7 @@ les véritables lignes d'autorité peuvent vaciller aussi. »
 
 Seorin eut presque un rire.
 
-« Bien. Tu t'en charges. »
+« Tu t'en charges. »
 « Qui fonctionne par vanité,
 et où il faut toucher pour que le haut commence à se surveiller lui-même. »
 
@@ -162,7 +162,7 @@ le rythme qui lit les gens pourra prendre du retard. »
 
 Seorin reprit aussitôt ces mots comme si elle les notait.
 
-« Bien. Nous ne visons pas l'arrêt complet,
+« Voilà. Nous ne visons pas l'arrêt complet,
 mais le ralentissement du rythme de lecture. »
 
 Cette phrase sembla devenir le point qui reliait les sauvetages passés

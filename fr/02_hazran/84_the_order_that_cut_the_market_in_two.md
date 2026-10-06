@@ -1,142 +1,264 @@
 # Chapitre 84 — L'ordre qui coupa le marché en deux
 
-Lorsque vient le moment où la méthode seule ne suffit plus, ce qu'il faut ensuite n'est pas une meilleure méthode.
+Zahir n'était pas sur la ligne de front.
 
-C'est la décision d'un homme qui choisit ce qu'il abandonne et ce qu'il garde.
+Il se tenait un cran en arrière, là d'où l'on voyait tout le marché. C'était l'endroit que Sion avait vu quelques jours plus tôt. D'où la ligne de retour, le canal extérieur et le centre du marché se voyaient d'un seul regard.
 
-À Hazran, ce fut Zahir qui prit cette décision.
+À l'époque, il avait cru que c'était un endroit choisi pour voir ce qui entrait.
 
-À mesure que la ligne de front à l'intérieur du marché reculait section par section, ce qui grandissait plus vite que l'avancée de l'ennemi, c'était la peur sur les visages. Tout le monde le savait maintenant. Ce n'était pas un simple tumulte qui prend fin si l'on tient bon. Un seul mauvais repli, et le marché tout entier se déchirait de l'intérieur.
+À présent, il voyait que non. C'était un endroit choisi pour voir quoi abandonner pour que le reste tienne ensemble.
 
-Haroun tenait toujours la première ligne du couloir. Sern et Ater continuaient de ralentir la vague, section après section. Nassim poussait les évacués à l'intérieur, sa voix devenant presque rauque.
+Zahir parla bas.
 
-Mais Zahir observait tout cela d'un pas à la fois.
+« On coupe la ligne centrale du marché. »
 
-Il ne courait pas.
+Personne ne comprit tout de suite.
 
-Il regardait de la hauteur où l'on voit le plateau entier -- quelle partie sacrifier pour que le reste continue de vivre.
+Nassim fut le premier à lever la tête.
 
-Il parlait très bas.
+« Quoi ? »
 
-« Coupez la ligne centrale du marché. »
+« On abandonne la ligne centrale du marché. »
 
-Au début, personne ne comprit tout de suite ce que cela signifiait.
+Zahir ne détourna pas les yeux.
 
-Nassim fut le premier à lever les yeux.
+« Coupez le conduit d'énergie intérieur, fermez le couloir ouest. »
 
-« Quoi? »
+En entendant cela, Sion regarda vers la ligne centrale du marché.
 
-Zahir reprit la parole sans détourner le regard.
+Quelques jours plus tôt, Seorin y avait marchandé. Elle s'était disputée longtemps pour un seul cordon thermique, et Nassim riait à côté. Les étals s'alignaient longuement des deux côtés, et les gens passaient en se heurtant les épaules.
 
-« Abandonnez la ligne du marché central, » dit-il. « Coupez le conduit d'alimentation interne. Fermez le couloir ouest. »
+C'était la ligne la plus large de Hazran. Là passaient les marchandises, passaient les gens, passaient les paroles.
 
-Au moment où ces mots tombèrent, l'air se glaça d'un coup.
+La couper, ce n'était pas diviser le front. C'était déchirer la ville en deux.
 
-La ligne centrale du marché n'était pas une simple artère. C'était le flux le plus large par lequel Hazran respirait en tant que Hazran -- le tronc par lequel transitaient la plupart des marchandises, des personnes et des rumeurs. Le couper ne revenait pas à diviser la ligne de front. Cela revenait presque à dire: *déchirez la ville en deux*.
+Nassim fit un pas vers Zahir.
 
-Nassim montra les crocs envers Zahir pour la première fois.
+« Si on coupe là, l'intérieur se bouche aussi. »
 
-« Si vous coupez cela, l'intérieur est également bloqué. »
+« Je sais. »
 
-« Je sais, » dit Zahir.
+« Alors les gens ne pourront plus sortir non plus. »
 
-« Ensuite, les gens ne peuvent pas non plus sortir. »
+« C'est pour ça qu'on les sort maintenant. »
 
-« C'est pourquoi nous les retirons maintenant. »
+En entendant ce bref aller-retour, Sion sentit son dos se raidir.
 
-Court. Froid.
+Sion ravala son souffle. Même après, sa poitrine ne redescendit pas.
 
-Nassim serra la mâchoire.
+Haroun ne disait rien.
 
-Ce n'était pas faux. Mais avoir raison rendait la chose plus cruelle encore.
+Sion regarda le visage de Haroun. C'était un visage dont le calcul était déjà fait. Sans doute avant même que Zahir ne parle.
 
-Haroun entendit ce court échange et ne dit rien au début. Il avait probablement fini de calculer avant tout le monde.
+« C'est faisable. »
 
-Si la ligne centrale du marché n'était pas coupée, l'ennemi se propageait plus profondément le long du large courant. La partie intérieure de la coque et les couloirs d'évacuation seraient alors menacés en même temps. Mais en coupant maintenant, la moitié du marché devrait être abandonnée.
+Haroun l'avait dit à voix basse.
 
-C'était à la fois un ordre défensif et un ordre d'adieu.
+Nassim se tourna vers Haroun.
 
-Haroun parla très bas.
+« En échange, ceux qui restent à l'ouest. »
 
-« C'est possible. »
+La voix de Nassim se fêla.
 
-Nassim se tourna vers lui.
+« C'est nous qui les abandonnons. »
 
-Il y avait de la colère dans ce regard. Mais Haroun ne détourna pas les yeux.
+Haroun ne baissa pas les yeux.
 
-« Cependant, les gens toujours du côté ouest... » dit Nassim en serrant les dents. « Nous les abandonnons. »
+« Non. »
 
-Haroun répondit, bas.
+« Quoi, non ? »
 
-« Non, » dit-il. « Il faut commencer à les retirer maintenant. »
+« Il faut les sortir à partir de maintenant, c'est tout. »
 
-Tous deux avaient raison. C'était pour cela que c'était plus cruel.
+Tous deux avaient raison.
 
-Zahir n'expliqua pas davantage.
+Entre les deux, Sion ne pouvait pas choisir lequel avait raison. Si Nassim avait raison, Haroun abandonnait des gens ; si Haroun avait raison, Nassim abandonnait du temps. Comme tous deux avaient raison, chacun avait de quoi haïr l'autre.
 
-« Nassim, » dit-il. « Ramenez jusqu'à la dernière personne de l'ouest. »
+« Combien de minutes ? »
+
+C'était Nassim qui demandait.
+
+Haroun ne répondit pas tout de suite.
+
+« Combien de minutes, j'ai dit. »
+
+« Le temps qu'il faudra pour les ratisser. »
+
+« Je te demande combien de minutes ça fait ! »
+
+« Ça, c'est toi qui le décides. »
+
+Nassim regarda Haroun encore une fois.
+
+Sion comprit pourquoi cette réponse était cruelle. Haroun ne lui avait pas donné de temps. Si Nassim ratissait vite, d'autant plus de gens sortiraient ; s'il était lent, d'autant plus resteraient dedans. Couper ne dépendait pas de Nassim, mais combien sortiraient dépendait de lui.
+
+C'était un temps que personne ne donnait.
+
+« Douze. »
+
+Nassim avait parlé.
+
+« Tout le monde dehors pendant que je compte jusqu'à douze. »
+
+Ce n'était pas un chiffre que quelqu'un avait compté pour lui. C'était un chiffre que Nassim venait de fixer de sa propre bouche.
+
+Zahir n'expliqua rien de plus.
+
+« Nassim. »
+
+« … »
+
+« Ratisse-moi tous ceux de l'ouest. »
+
+Nassim mâcha et ravala un juron, se retourna et courut.
 
 « Haroun. »
 
-« Compris. »
-
-Haroun répondit brièvement.
+« Je sais. »
 
 « Sion. »
 
-Sion se rendit compte un peu tard qu'on l'avait appelé.
+Sion comprit avec un demi-temps de retard qu'on venait de l'appeler.
 
-« Reste entre l'intérieur et l'ouest, » dit Zahir. « Garde la liaison, sans trou. »
+« Toi, tu te mets entre l'intérieur et l'ouest. »
 
-Sion hocha aussitôt la tête.
+Zahir poursuivit :
 
-Il n'avait pas le temps d'en demander plus.
+« Relie-les, sans laisser de trou. »
 
-Seorin bougeait déjà. Elle fila la première vers le couloir ouest sans un mot. Luhai suivit. Nassim ravala un juron et courut rassembler les gens.
+Sion fit oui de la tête et courut. Ce n'était pas le moment de poser d'autres questions.
 
-Sion s'attendait à ce que le marché devienne plus bruyant, mais ce fut le contraire.
+Il pensait que le marché allait devenir plus bruyant, mais ce fut le contraire.
 
-Lorsqu'un ordre vraiment terrible tombe, les gens se taisent un instant.
+Quand tombe un ordre vraiment mauvais, les gens se taisent un instant. Les gens de Hazran ne crièrent pas, et chacun alla vers ce qu'il avait à faire. Personne ne posait de question.
 
-Dans ce silence, Hazran commença à découper son propre corps.
+Puis la ville commença à se découper elle-même.
 
-Kael aida aussitôt les gens à arracher les plaques de reliure de la colonne centrale. Ater indiqua brièvement où couper le conduit d'alimentation pour que l'ennemi ne puisse pas l'utiliser en sens inverse. Sern gagnait encore du temps sur la ligne de front. Haroun ne cessait de modifier l'angle des couloirs pour que Sern puisse grappiller encore un battement de plus.
+Kael prêta main-forte à ceux qui arrachaient les plaques de liaison de la colonne centrale. Ater indiqua où couper le conduit d'énergie pour que l'adversaire ne puisse pas s'en servir. Sern gagnait encore du temps devant la ligne de front, et Haroun ne cessait de changer l'angle des couloirs pour qu'il en gagne un temps de plus.
 
-Dans la partie intérieure, Jiwoo serra les lèvres, attentive aux bruits du dehors.
+La colonne centrale, ce n'était pas Hazran qui l'avait dressée.
 
-Elle le savait aussi. Ce qu'ils étaient en train de couper là-bas. Et c'était, au bout du compte, le prix à payer pour gagner du temps et sauver ce vaisseau.
+C'était quelque chose qui se trouvait déjà là, qu'on avait redressé pour s'en servir. On avait accolé deux vieilles membrures de coque, serré l'espace entre elles avec des plaques de liaison, puis on y avait suspendu tout ce qu'on pouvait : auvents d'étals, toits de couloirs, tout. Quelques jours plus tôt encore, Sion croyait que c'était une colonne.
 
-Aka parla, très bas.
+Pour arracher une plaque de liaison, il fallait s'y mettre à six.
 
-« Il faut le diviser pour survivre. »
+Quatre calèrent des leviers, deux appuyaient par-dessus. D'abord, rien ne vint. À la traction suivante, la plaque se gondola et un côté se souleva le premier.
 
-Jiwoo ne répondit pas tout de suite.
+Dans l'espace soulevé, un autre enfonça une barre de fer.
 
-Au lieu de cela, elle appuya plus fort sa main sur l'articulation tremblante.
+La première plaque de liaison céda.
 
-« Je sais, » dit-elle à voix basse. « C'est pour ça que je déteste encore plus. »
+En cédant, ce qui reposait dessus s'affaissa. Le bruit était bas et long, et il continuait sans fin. Même après que le gros fut descendu, de petites choses continuèrent longtemps de glisser.
 
-Le couloir ouest était déjà le chaos.
+Puis quelque chose monta.
 
-À l'arrivée de Sion, trois personnes encore présentes n'avaient toujours pas abandonné leurs biens. Nassim arrachait pratiquement les paquets pour les jeter. Luhai poussait deux enfants de chaque côté, dégageant le chemin. Seorin, entendant les bruits métalliques venant de l'arrière, poussait presque les gens par le dos.
+Sion ne sut pas d'abord ce que c'était. Il crut à de la poussière.
 
-« Si vous n'y allez pas maintenant, vous serez enfermés avec, » dit Seorin, tranchante.
+Pour de la poussière, ça brillait.
 
-Ce n'était pas une menace. C'était juste un fait.
+C'était une poudre née du frottement de deux plaques de métal longtemps serrées l'une contre l'autre. Pressées pendant des années, elles s'étaient râpées d'un coup en se séparant.
 
-Au loin, l'équipe de Haroun leva le signal pour dégager le dernier angle de la ligne centrale.
+La poudre monta et ne redescendit pas.
 
-Il ne restait presque plus de temps.
+La chaleur du jour montait encore du sol. La poudre s'y posa et flotta. En flottant, elle s'étala sur les côtés, et le haut du couloir devint flou.
 
-Sion se retourna une dernière fois.
+Sion leva la main pour voir. Rien ne se posait sur le dos de sa main. Elle ne faisait que flotter, sans descendre.
 
-Au centre du marché d'Hazran, le tronc central par lequel d'innombrables marchandises avaient transité, par lequel les rumeurs avaient circulé, où les gens avaient ri, s'étaient battus et avaient fixé les prix, se préparait à se rompre.
+Il l'avait vue, mais il ne savait pas ce qu'elle faisait.
 
-La scène était si étrange qu'elle semblait un rêve.
+Ceux qui arrachaient ne regardaient pas non plus. Ils étaient occupés à arracher, et personne n'avait le temps de regarder ça maintenant.
 
-Mais la guerre transforme toujours la réalité en rêve, puis en récolte le prix pour de vrai.
+Seul Haroun leva les yeux.
 
-Sur un ordre de Zahir, Hazran essayait maintenant de diviser son propre coeur en deux pour survivre.
+Ensuite, il regarda aussi le haut du couloir opposé. Là aussi, c'était flou. Il avait le visage de quelqu'un qui mesure d'un regard, mais il ne dit pas ce qu'il mesurait.
+
+Puis, sans un mot, il corrigea de nouveau l'angle du couloir.
+
+Dans la section intérieure, Aka parla bas.
+
+« Il faut couper pour vivre. »
+
+Han Jiwoo appuya plus fort sa main sur le joint.
+
+« Ce qu'on coupe ne se recolle pas. »
+
+On entendit céder la deuxième plaque de liaison.
+
+Sion courut vers le couloir ouest.
+
+Là-bas, tout était déjà emmêlé.
+
+Trois personnes restées là n'avaient toujours pas lâché leurs bagages, et Nassim les leur arrachait presque pour les jeter. Luhai ouvrait le passage en poussant deux petits enfants de part et d'autre.
+
+Seorin regardait vers l'arrière. Du côté d'où venait le bruit.
+
+« Si on ne part pas maintenant, on reste enfermés avec. »
+
+La voix de Seorin était tranchante.
+
+Elle se retourna aussitôt après l'avoir dit. Elle ne regarda pas Sion.
+
+Sion se plaça entre l'intérieur et l'ouest. La place que Zahir lui avait donnée.
+
+C'est en arrivant là qu'il comprit ce que voulait dire relier sans laisser de trou. Si la file se coupait, ceux de derrière ne voyaient plus l'avant et s'arrêtaient. S'arrêter, c'était être en retard ; être en retard, c'était ne pas sortir.
+
+De l'endroit où il se tenait, Sion tourna le corps pour voir les deux côtés.
+
+Il leva une main pour faire signe vers l'intérieur et, de l'autre côté, regarda le bout de la file ouest.
+
+La file se coupa une fois.
+
+Vers le milieu, quelqu'un tomba, et ceux de derrière s'arrêtèrent. À partir de là, tout l'arrière se tassa d'un coup.
+
+Sion cria.
+
+« Avancez ! Continuez d'avancer ! »
+
+On releva celui qui était tombé, et ceux de derrière se remirent à marcher. Il fallut quelques pas pour repartir.
+
+Ces quelques pas s'allongeaient vers l'arrière. Deux pas d'arrêt à l'avant devenaient dix pas tout au bout.
+
+Sion comprit seulement alors pourquoi on l'avait placé là.
+
+Ici, impossible d'empêcher que la file se coupe. La recoller chaque fois qu'elle se coupait, voilà ce que faisait Sion.
+
+Sion posa la main sur l'épaule de l'homme devant lui. Il ne poussa pas. Il ne fit que la poser, et l'homme avança d'un demi-pas.
+
+Quelqu'un d'arrêté résistait quand on le poussait. Quand on le touchait, il avançait de lui-même.
+
+À partir de la troisième fois, sa main partit avant qu'il n'ait pensé.
+
+Nassim comptait.
+
+Il comptait tout en poussant les gens. Il ne comptait pas à voix haute, seules ses lèvres bougeaient, mais Sion pouvait lire la forme de sa bouche.
+
+Neuf.
+
+Au bout de la file ouest, des gens sortaient encore. Trois ou quatre, il ne voyait pas.
+
+Dix.
+
+Sion fit deux pas vers le bout de la file, puis s'arrêta. Il ne devait pas laisser cette place vide. Si elle se vidait, l'intérieur et l'ouest seraient coupés.
+
+Onze.
+
+Les deux derniers passèrent le coude. L'un courait, l'autre boitait.
+
+Nassim cessa de compter.
+
+Il n'était pas allé jusqu'à douze. Sion vit la bouche de Nassim s'arrêter, et ne sut pas si c'était parce que tout le monde était sorti ou parce qu'il ne pouvait plus compter.
+
+Au loin, du côté de Haroun, monta le signal qu'on vidait le dernier angle de la ligne centrale.
+
+Sion regarda derrière lui une dernière fois.
+
+La ligne où l'on marchandait les prix quelques jours plus tôt était là. Les cadres des étals tenaient encore debout, et il restait quelques cordes d'auvent. La poudre flottait au-dessus, si bien qu'on ne voyait pas l'autre bout.
+
+Cette ville était en train de couper la partie la plus large de son propre corps.
+
+Ce qu'elle gagnait à couper, Sion ne le savait pas encore.
+
+À part la poudre qui flottait, il ne voyait rien de gagné. Et cela ne ressemblait même pas à un gain. C'était seulement ce qui était sorti de la casse.
 
 ---
 

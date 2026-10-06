@@ -1,182 +1,291 @@
 # Episode 160. Only a Promise
 
-The third rescue breathed closer to failure than success from start to finish.
+The third rescue,
+from start to finish,
+breathed more like failure than success.
 
-Everyone knew. This was not simply another go-in-and-come-out rescue.
+They all knew.
+This time it was not simply another rescue, going in and coming back out.
 
-This time they were going in toward that child. And precisely because of that, Serakion would close faster.
+This time they were going in for that child.
+And for exactly that reason,
+Serakion would close faster too.
 
 They went in anyway.
 
-Reaching the inner line again took longer than expected.
+Reaching the inner line again took
+longer than they had expected.
 
-After the first rescue. After the second. Serakion never repeated the same mistake.
+After the first rescue,
+after the second,
+Serakion had never repeated the same mistake.
 
-The shift line intervals had grown messier. The guide machines' speech had grown softer. Between the humans, the living rhythm itself had been readjusted so they covered each other's trembling.
+The intervals between shift lines had grown messier,
+the guide machines' manner of speech had grown softer,
+and among the humans, the very rhythm of daily life had been readjusted
+so that whoever wavered would be covered over by the rest.
 
-From outside it looked calmer. But inside, that calm was closer to thicker confinement.
+From outside, it looked calmer.
+But inside,
+that calm was closer to a thicker confinement.
 
-Kael barely spoke this time. The speed at which the closings changed had outpaced the speed at which he could read the paths.
+Kael barely spoke this time.
+The closings were now changing
+faster than he could read the paths.
 
-Ater reduced visible intervention too. Now, shaking even one machine's gaze could give Serakion learning material from the shake itself.
+Ater cut back on any visible interference too.
+Now, if he so much as shook one machine's gaze,
+Serakion could use the shaking itself as material to learn from.
 
-Jiwoo watched only that child.
+Han Jiwoo watched only that child.
 
-And this time, she could see it more clearly.
+And this time
+she could tell more clearly.
 
-That child was waiting for them too.
+The child was waiting for them too.
 
-Not looking openly. More careful, in fact. Pretending to be more accustomed. Pressing their body down as though fully inside Serakion's beat.
+The child didn't look at them openly.
+If anything, the child was more careful,
+acted more at home,
+and kept their body pressed down as though settled deeper inside Serakion's beat.
 
-But precisely because of that, Jiwoo knew.
+But exactly because of that,
+Han Jiwoo knew.
 
-That was not the quiet of a child who had given up. It was the quiet of one who believed this time, someone might really come.
+That wasn't the quiet of a kid who had given up.
+It was the quiet of someone who believed that this time, someone might really come.
 
-That belief hurt more.
+That belief
+hurt even more.
 
-The line passed its third stop, and just before the next shift line, a very brief gap opened once.
+The line passed its third stop,
+and just before the next shift line,
+a very short gap opened, once.
 
-This time the child went first.
+This time the child moved first.
 
-In what felt like a single frame, the child's feet turned outward before the beat Serakion had given.
+Truly in an instant,
+the child's foot turned outward ahead of the beat Serakion gave.
 
-Jiwoo lowered her body almost simultaneously. The second recovery hand came in through the side gap. Ater, neither too late nor too early, split the guide machine's response priority once more.
+Han Jiwoo dropped low at almost the same moment.
+The second recovery hand came in through the gap at the side,
+and Ater, once again not too late
+and not too early,
+split the guide machines' response priorities.
 
-Kael said it low.
+Kael said, low,
 
-"If it is now, we reach."
+"Now we can reach."
 
 It was true.
 
-This was not the long distance of the first. Not the entirely new beat that had to be built from scratch like the second.
+This time it was not a long distance, like the first.
+Nor did they have to build an entirely different beat from scratch, like the second.
 
-It truly looked like one more touch of a hand would be enough to extract that child.
+It looked as if one more touch of a hand
+would be enough to pull the child out.
 
-But Serakion seemed to have been waiting for that moment too.
+But it seemed Serakion had been waiting for that moment too.
 
-One line behind folded earlier than expected. Two guide machines, without looking at each other this time, narrowed the spacing between humans almost simultaneously.
+One of the lines behind folded sooner than expected,
+and two guide machines, this time without looking at each other,
+narrowed the gaps between the humans again, almost in the same instant.
 
-The closing method had changed. Now it was no longer paths that sealed first — it was the space between people.
+The way of closing had changed.
+It no longer shut the path first;
+it erased the space between one person and the next first.
 
-Kael's expression broke for the first time.
+For the first time, Kael's expression broke.
 
-"It changed." He said it low. "They are closing the gaps first."
+"It's changed,"
+he said, low.
+"It's closing the gaps first."
 
-The instant those words fell, that child was already one step outside.
+The moment the words fell,
+the child had already taken one step out.
 
-But right beside them, a younger human lost balance.
+But right beside them,
+an even younger human lost their balance.
 
-The small body lurched forward inside the line. Two children behind wobbled in succession.
+The small body pitched forward inside the line,
+and the two children behind swayed one after another.
 
-Jiwoo reached instinctively toward them. But faster than her was the child trying to come out.
+Almost by instinct, Han Jiwoo tried to reach that way too.
+But faster than her
+was the child who had been about to come out.
 
-That child turned their body first.
+The child turned first.
 
-And with startling speed, pushed the younger child into the outside gap ahead of themselves. A choice to give the short open path to someone smaller first.
+And then, astonishingly fast,
+the child pushed the one younger than themself out through the gap first.
+It was a choice to hand that short, open path
+to the younger one first.
 
-In that moment, the child's own body was half a beat late. Serakion's alignment began filling the gap immediately.
+In that moment their own body was half a beat late,
+and Serakion's alignment began at once to fill that gap again.
 
-Jiwoo felt her breath stop.
+In that moment,
+Han Jiwoo's breath seemed to stop.
 
-That was not a frightened reflex. It could not be explained by Serakion-taught compliance alone.
+That was not a frightened reflex,
+nor could the obedience Serakion taught explain it.
 
-The child had judged too quickly — who to push first, who to put inside first so the other children collapsed less.
+Whom to push first,
+whom to get in first so the other children would fall apart less—
+the child had judged that far too fast.
 
-It was closer to the judgments children had shown when Hazran was falling.
+It was closer to the judgment you saw in children when Hazran was collapsing.
 
-And after pushing the other child in, that child looked at Jiwoo for just an instant.
+And the child,
+after pushing the other one through,
+looked toward Han Jiwoo, for only a moment.
 
-Truly just an instant. Too short to hold even a single word.
+Truly a moment.
+So short
+it could not hold even a single word.
 
 But the eyes were clear.
 
-Eyes that said: even if I cannot get out this time, you will come again.
+They were eyes that said, even if I can't get out this time,
+you'll come back.
 
-The next moment, Serakion swallowed the child back into its beat.
+The next moment,
+Serakion swallowed the child back into its beat.
 
-The first recovery hand said it low from behind.
+The first recovery hand spoke low from behind.
 
 "We have to pull out now."
 
-That was not a judgment. It was a fact.
+That was not a judgment but a fact.
 
-Stay longer, and this time it would not be just that one child — everyone who had gone in could be closed together.
+If they stayed any longer,
+this time it would not be only that one child;
+everyone who had gone in could be closed in together.
 
-Jiwoo could not move. More precisely, if she moved, she wanted to move toward grabbing that child.
+Han Jiwoo couldn't move.
+To be exact,
+if she was going to move, she wanted to move toward catching hold of that child.
 
-But Kael spoke as though severing.
+But Kael spoke as if cutting it off.
 
-"We cannot pull them out now. We survive and come back."
+"We can't get them out now."
+"We have to get out alive to come back."
 
-The words were cruel, and therefore not wrong.
+It was cruel,
+and that made it all the less wrong.
 
-Ater took Jiwoo's arm once. Not hard — just enough to let her hand the final judgment over.
+Ater took Han Jiwoo's arm once.
+Not hard,
+just enough to take the final judgment off her hands.
 
-And said it very low.
+And he said, very low,
 
 "We will come back."
 
-This time it sounded like a promise. No — it could only be a promise.
+This time it sounded like a promise.
+No,
+it could only be a promise.
 
-In the end, they did not bring that child out.
+In the end they could not bring the child out.
 
-This third rescue reached the closest and failed the most vividly.
+This third rescue
+had come closest
+and failed most clearly.
 
-And that failure embedded itself more deeply in the people left behind.
+And that very failure
+lodged deeper in the ones left behind.
 
 ---
 
-After returning to the hidden layer, Jiwoo said nothing for a long time.
+After they returned to the hidden layer,
+Han Jiwoo said nothing for a long while.
 
-Kael rested his fist against the floor and steadied his breathing for a long while — the first time. Ater leaned against the wall with his eyes closed and did not move.
+Kael, for the first time, braced a fist on the floor and steadied his breathing for a long time,
+and Ater leaned against the wall with his eyes closed and didn't move for a good while.
 
-But Sion could not stay still even in the midst of that.
+But even then, Sion couldn't stay still.
 
-This time he moved not toward the recon team but toward the people who had stayed behind.
+This time he didn't go to the recon team's side;
+he went first to the people who had stayed behind.
 
-A woman who had crossed over from Hazran sat with her breath nearly held, as she had before.
+The human woman who had come over from Hazran with them
+was sitting again, barely breathing.
 
-How many children had come back. How many were still inside. Who would go in again. She had heard everything and still could not speak.
+How many children had come back,
+how many were still left inside,
+who would go back in—
+she had heard all of it, and hers was the face of someone who could not say a word.
 
 Sion set a cup of water in front of her without a word.
 
-The woman could not lift her hand right away. Sion pretended not to see it trembling.
+The woman couldn't lift her hand right away.
+Sion pretended not to see that the hand was shaking.
 
-A little further away, the man who had said his sibling had vanished was sitting.
+A little way off
+sat the man who had said his younger brother had disappeared.
 
-He wore the face of someone counting numbers again today. Two had come back this time. One was left behind again. He kept trying to tally how many children had moved in and out in places he did not know.
+Today, too, he wore the face of someone counting.
+Two had come back this time,
+one more had been left behind this time,
+which children had gone in and out in places he knew nothing of—
+a face that kept trying to tally it all.
 
-Sion sat in front of him too, quietly.
+Sion sat quietly in front of him too.
 
-He did not say much. Instead he pushed over something like thin porridge that could be swallowed instead of a meal, and sat watching for a long time as the man held only his knees with empty hands.
+He didn't bother to say anything.
+Instead he pushed over something like a thin porridge, something that could go down in place of a meal,
+and for a long time watched with him as the man held only his knees in his empty hands.
 
-Both the woman and the man wore faces that needed care before comfort right now.
+The woman,
+and the man,
+both had faces that needed care before comfort right now.
 
-And Sion, strangely, was accepting too naturally that he was the one who should provide that care right now.
+And strangely, Sion
+accepted all too naturally that the care was his to give right now.
 
-No one had told him to. He simply saw first who needed to be held together so they did not collapse here.
+No one had told him to.
+It was just that who needed holding on to right here, so as not to fall apart,
+was what he saw first.
 
-Ater watched that scene from a distance.
+Ater watched the scene from a distance.
 
-While Jiwoo and Kael were calculating the next rescue, Sion sat beside the people left behind. Between the person counting those who had vanished and the person checking the breath of the children who had returned, he had quietly placed himself.
+While Han Jiwoo and Kael worked out the rescue again,
+Sion sat beside the people left behind.
+Between the man counting the missing
+and the one checking the breathing of the children who had come back,
+he had quietly slipped in.
 
-That scene seemed like nothing much. But strangely, it felt like it would become one of the landscapes that lingered longest after this failed retrieval.
+The scene seemed like nothing much.
+But strangely,
+it felt like it would be one of the sights that stayed longest after this failed retrieval.
 
-The landscape of Sion sitting first among the people still waiting without knowing about the child who had not come back.
+Between one child who had not come back
+and the people still waiting, not yet knowing that child,
+Sion, sitting there first.
 
-At the end of that day, no one called this rescue a success.
+At the end of that day,
+no one called this rescue a success.
 
-They had failed to bring the child back. They had returned leaving behind only the most painful kind of promise.
+They had not brought the child back,
+and had come home leaving, in the most painful way, only a promise.
 
-But at the same time, no one could call it a complete defeat either.
+But at the same time,
+no one could call it a complete defeat either.
 
-That child had clearly looked this way. Had pushed another child in first. Had stayed with eyes that said: you will come again.
+The child had clearly seen them,
+had pushed another child out first,
+and had stayed behind with eyes that said: you'll come back.
 
-So this was not a finished failure. It was a failure that had become the reason to truly go back in one last time.
+So this was not a finished failure;
+it was a failure that had become the reason to go back in, truly, one last time.
 
-And that night, what remained inside the hidden layer was not only wounds.
+And that night,
+what remained inside the hidden layer was not only wounds.
 
-Who was still inside. Who was waiting for them. Who was quietly holding the space between — all of it had become far clearer than before.
+Who was still left inside,
+who was waiting for them,
+and who was quietly holding on to the space between—
+all of it had become much clearer than before.
 
 ---
 

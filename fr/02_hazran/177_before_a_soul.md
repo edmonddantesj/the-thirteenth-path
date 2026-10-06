@@ -20,7 +20,7 @@ Ses mouvements devenaient plus courts, plus dépourvus d'hésitation, et touchai
 
 Un des enfants qui regardaient retint difficilement ses sanglots et dit d'une toute petite voix :
 
-« Il... il doit avoir mal. »
+« Il… il doit avoir mal. »
 
 Les mots étaient si faibles que seuls quelques-uns semblèrent d'abord les entendre.
 

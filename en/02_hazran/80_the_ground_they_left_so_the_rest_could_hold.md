@@ -1,187 +1,228 @@
 # Episode 80. The Ground They Left So the Rest Could Hold
 
-Hazran didn't hold the second outer line long.
+They did not hold the second line for long.
 
-It was never the plan to.
+The moment it opened, the people of Hazran folded inward.
 
-When Harun said *abandon one more section of the outer line*,
-it didn't mean retreat out of fear.
-It meant abandon the right places precisely,
-to shape the inside so it lasts longer.
+Sion watched the folding from above. It was not the shape of running away. The order for untying the tent ropes was set, so the person who untied the last rope walked backward out of it hugging the whole tent. Behind them, the next person did the same.
 
-Sion understood that in his head.
-But his body couldn't follow as easily.
+A few days ago these people had set out their stalls in this order. They were running that order in reverse.
 
-Because someone pulling back
-means someone has to empty that spot.
+The metal plates that were left, they did not stand up; they knocked them down. Stood up, they were a barrier; knocked down, they cut off the view.
 
-When the second outer line opened,
-the people of Hazran folded inward in an instant.
-Tents were gathered.
-The metal plates left behind were toppled to cut lines of sight instead.
-Two low storage crates set along the waterway edge were broken on purpose—not because the contents didn't matter, but because metal and water scattered across a narrow path could throw off footing.
+They smashed two low storage crates at the edge of the waterway on purpose.
 
-A human stepping on it would slip.
-A machine wouldn't slip.
+Sion didn't know why. What had been inside spilled out, and metal and water spread together across the narrow path.
 
-But its calculation would slow by one beat.
+"Why smash them?"
 
-Harun was the kind of man who clamped down on that one beat and never let go.
+"So they step on it."
+
+Harun said it as he passed.
+
+Sion stood holding on to those few words, and then understood.
+
+When a person steps there, they slip. A machine doesn't slip. Instead, it looks once before it steps. While it looks, its calculation falls half a beat behind.
+
+Hazran wasn't trying to knock the other side down. It was trying to slow it down, one beat at a time.
+
+Harun was a man who would clamp onto that one beat and not let go to the end.
 
 "Now."
-He barked, short.
-Three cutting rounds from behind the second disruption line flew to the same point. Two front-line androids' upper bodies shook simultaneously, and in that gap a desert skiff hidden near the arena wreckage drove in once more, detonating a wide burst of metal dust.
 
-This time, Hazran's side connected properly.
+From behind the second disruption line, three cutting rounds flew at the same spot.
 
-One unit was cut clean in half.
-Two more behind it had their angles thrown badly off.
+The upper bodies of two in the front line shook at the same moment, and a skiff that had been hiding by the stadium wreckage drove into the gap and burst the metal dust wide.
 
-For a moment,
-Sion thought they'd actually pushed them back this time.
+This time they hit it properly.
 
-But again, the other side did not stop.
+The one in front was cut in half. The severed upper body dropped forward, and the lower half went two more steps before it fell over sideways. The two behind it lost their angle badly too.
 
-The rear line climbed over the severed body.
-The units with disrupted angles pulled themselves to one side, clearing the path.
-The next line filled the empty space again.
+This time, Sion thought, they had really pushed it back.
 
-Even when the front line shrank,
-the whole wave did not.
+The unit that had lost its angle moved aside on its own.
 
-Sern spoke low.
+Sion stopped breathing there.
 
-"Response speed is increasing."
+Yesterday it hadn't been like that. Yesterday the one that lost its angle had just been dragged along until the back stepped over it. Today the front got out of the way first. The back came straight into the place it had left, and coming in took not even one step.
 
-Ater took it immediately.
+Sern said one thing, low, and went down below.
 
-"They are learning."
+"Reaction speed will rise further."
 
-Those words made the battlefield far colder.
+Ater did not go down.
 
-Sion realized that line wasn't simply pushing in—
-it had begun reading Hazran's methods with its body.
+"It is learning."
 
-First disruption.
-Second angle.
-Heat-deflection plates.
-Skiff entry lines.
+At those words Sion looked not outside but at this side.
 
-A method experienced once
-works less the next time.
+"Then what about yesterday?"
 
-Harun read it too.
+"Yesterday?"
 
-He snapped his hand without a moment's hesitation.
+"The thing about the two on the right being on the same axis."
 
-"Pull back to the third line immediately."
-He said.
-"Abandon the outer storage."
+Ater did not answer right away.
 
-The moment those words fell,
-Nasim's face tightened—for the first time, just briefly.
+"Does it only work once?"
 
-The outer storage wasn't a simple supply shed.
-It held water, heat-blocking cloth, and some of the expensive parts that would carry them through tonight and tomorrow's dawn.
-But Zahir did not stop Harun's judgment.
+"It works up to twice."
 
-He said only one short thing.
+Ater said it.
+
+"The second time works less than the first, and the third time does not work."
+
+"How does that happen?"
+
+"That side is built so it does not take the same thing twice."
+
+Ater paused there once.
+
+"Human troops are not like that. People know what hit them and still get hit by it again next time. When they are frightened, they forget."
+
+To Sion, that did not sound like comfort.
+
+What they had read yesterday worked less today. Tomorrow it wouldn't work. Every time the other side went through Hazran once, one of the things Hazran could use was gone.
+
+Sion took out the calculation he had made yesterday.
+
+Read it once and you could take down three, and the other side filled that in with two or three steps. Keep earning two or three steps at a time and it would pile up, at least—that was what he had thought.
+
+It didn't pile up.
+
+The other side lost nothing by throwing away its front, and every time this side used a means, that means shrank. The longer it dragged on, the thinner only this side got.
+
+Harun snapped his hand down.
+
+"Pull straight back to the third line."
+
+Then he said one more thing.
+
+"Abandon the outer storehouse."
+
+For the first time, Nasim's face went hard.
+
+Sion looked at that face. This was the second time he had seen this man wipe away his smile.
+
+The outer storehouse was not just a warehouse. The water to get them through tonight and tomorrow's dawn was there. The heat-shield cloth was there too, and the things that had sold at the stalls for four for one until a few days ago were piled up there as well.
+
+From a high place, Zahir spoke briefly.
 
 "People first."
 
-Nasim swallowed a single curse at those words
-and immediately turned his people around.
+At that, Nasim swallowed something. Then he turned toward his own people.
 
-"Leave the expensive stuff."
-He said, low.
-"People first, inside."
+"Dump the expensive stuff."
 
-It sounded un-Hazran,
-but maybe that was what made it more Hazran than anything.
-Normally, price comes first.
-But when the whole board is flipping like this, the people who survive are the ones who set the next price.
+His voice was different from usual.
 
-Luhai moved the instant that short order dropped.
+"People inside first."
 
-Without thinking twice, he plunged into the inner waterway
-and grabbed two merchants who hadn't fully read the situation yet.
+Sion knew how strange a thing that was to say.
 
-"Inside!"
-He shouted.
-"If you don't move now, you're not going at all!"
+The man who read price best in this city was telling them to throw price away. Until yesterday morning, this man had looked at heat-venting cord gone up to four for one and worked out what was coming.
 
-That voice wasn't light the way it usually was.
-For the first time,
-it carried the fear of a kid who had just watched the market he loved actually being torn apart.
+But because it was strange, it was right.
 
-Jiwoo, through all of it, was watching the outer line and the inner tents at the same time.
+Usually price comes first. Not when the whole board is flipping over. The people who survive will put the next prices back on, so people come first. The man who read price had worked that out before anyone.
 
-Holding the ship longer needed time.
-And more materials.
-But if the outer line was being pushed at this speed,
-the inner work zone would be in danger soon.
+The moment the order dropped, Luhai threw himself into the inner side of the waterway.
 
-She pressed her lips shut as if biting them, then spoke low.
+He grabbed two merchants who still hadn't read the situation and hauled them along.
 
-"I can lock the inner position one more time."
+"Inside! If you don't move now, you really won't make it!"
 
-Sion looked at her immediately.
+His voice was not light. Sion had never heard that voice before.
 
-"How long."
+In front of the storehouse, people were passing water pouches inward. They stood in two lines and passed them from hand to hand.
 
-"Long enough to be short."
-Jiwoo answered.
-"But if I don't, the next time we ride it might tear right apart."
+The passing stopped. The front stopped first, and the line behind saw that and stopped after it.
 
-Aka had already reached that conclusion.
+There was no time.
 
-"Bond it now."
-She said.
-"Then run."
+The person holding one just let go of what was in their hands. What they let go bounced once on the ground and rolled away, and no one caught it.
 
-The moment those words fell, Jiwoo turned her body toward the inside.
+Sion watched that one thing roll to the end. A few days ago it would have had a price on it. A thing that used to carry a price was rolling away, and not one of the market people looked at it.
 
-Sion tried to move with her,
-but Seorin caught his arm first.
+Beside it, people were stripping out lines. They weren't gathering them up to carry in; they were cutting them and throwing them away. Leaving nothing the other side could use was Hazran's way.
 
-"You watch outside."
-She said, low.
-"If everyone crowds inside now, it gets worse."
+One person was late.
 
-Sion nearly argued,
-then closed his mouth at the sound of metal bursting outside.
-
-Part of the third line was already breaking.
-
-Outside needed more hands right now.
-Inside, Jiwoo and Aka were holding.
-Then what he had to do
-was move between the two and buy even a little more of the time before collapse.
-
-That moment,
-the first casualty came.
-
-One of the Hazran people clearing the outer storage line
-pulled back too late behind a severed metal plate.
-A thin cutting beam from the android rear line grazed precisely between his shoulder and chest.
+Trying to get behind a cut metal plate, they came up half a step short. A thin cutting line flew from the line in back.
 
 The sound wasn't loud.
 
-But a human body
-collapsed too easily.
+Sion saw the person collapse.
 
-Luhai stopped in his tracks when he saw it.
-Nasim spat a short curse.
+When a machine was cut, the sound was high and long. A person didn't make that sound. They just collapsed, and the collapse took almost no time.
 
-The moment Sion saw that scene,
-he knew this battle was no longer just about *holding back the incoming wave*.
+Luhai stopped running.
 
-From here on,
-it was a battle of deciding who empties which ground to keep the rest alive.
+Nasim spat out a short curse.
 
-Hazran was now
-truly beginning to abandon parts of itself
-so the rest could hold.
+Sion tried to move and couldn't. He found himself counting how many steps it was to get there, and once he had counted, he knew as well that he was too late.
+
+Two people dragged the person inside. While being dragged in, an arm trailed along the ground.
+
+The two who dragged them in went back out the moment they set them down. No one stayed beside them.
+
+Sion knew that was not because they were heartless. If anyone stayed there now, one more place in the line would go empty, and if it went empty, the next person would be late. That was why no one stayed.
+
+But knowing it and seeing it were different.
+
+Someone passing threw a single cloth over them. The motion was fast. Covering it fast meant other people saw less.
+
+Sion recognized the cloth as heat-shield cloth. It had come out of the storehouse they had just abandoned.
+
+Then Sion remembered yesterday.
+
+Yesterday Luhai had counted on his fingers at the entrance. Fourteen going out, and thirteen came in. Sion hadn't seen that one. He had known only by the number.
+
+Today he saw.
+
+That one yesterday must have gone like this too. It had gone like this where Sion wasn't looking, and for as long as Luhai kept his fingers up and waited, they hadn't come.
+
+Luhai was counting even now.
+
+All at once Sion found that hard to bear.
+
+"Why do you count that?"
+
+Sion asked.
+
+Luhai looked toward Sion.
+
+"Count what?"
+
+"Counting doesn't bring them back."
+
+Luhai didn't answer right away. Sion thought he had asked the wrong thing.
+
+"If you don't count, it's like they never were."
+
+Luhai said that, and then looked at the entrance again.
+
+Sion stood where he was.
+
+Counting wasn't saving. No one was managing to save anyone. Counting was something else.
+
+In this city no one called anyone by name. Sion had once thought that was strange, after coming here. Stall owners and the people guarding the waterway didn't call each other by name; they called with a gesture.
+
+But they were counting. They didn't call names, but they knew how many.
+
+Sion understood now that this was how Hazran kept its people. Instead of calling them, it knew when one was missing.
+
+Sion counted the twelfth.
+
+That this side's means shrink the more they are used.
+
+And he set one more beside it, but that one he did not set down as a number.
+
+From outside came the sound of the third line breaking.
+
+Hazran was not fighting a fight to hold ground. It was fighting a fight to decide where to empty out so the rest could hold.
+
+And in the places they emptied, people had been standing until a moment ago.
 
 ---
 

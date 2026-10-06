@@ -79,7 +79,7 @@ Ya no recibió de frente como antes.
 
 Torció el cuerpo a medias,
 desvió hacia un lado a la primera unidad que entraba,
-y secciona con precisión exacta entre el cuello y el hombro de la segunda unidad que venía detrás.
+y seccionó con precisión exacta entre el cuello y el hombro de la segunda unidad que venía detrás.
 
 Fue tan natural
 que a Sion, al contrario, se le puso un momento la piel de gallina.

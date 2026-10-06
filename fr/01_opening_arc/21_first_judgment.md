@@ -2,165 +2,237 @@
 
 Han Jiwoo n'approcha pas davantage la coque.
 
-Le vaisseau tenait à peine, coincé à moitié sur la paroi extérieure de la structure close, dans un angle si instable qu'il ne glissait ni ne reculait. Forcer un peu plus vers l'avant risquait d'égratigner la paroi ; reculer d'un rien suffirait à sortir de la ligne de réaction que Sion était en train de lire. Ce qu'il fallait maintenant, ce n'était pas approcher davantage — c'était tenir.
-
-Cette vérité-là, Han Jiwoo la saisit avant même Sion. Le vaisseau n'avait pas à ouvrir la porte — il devait endurer, jusqu'à la fin du jugement, le bon angle, sans se tromper.
-
-Sion, toujours penché bas devant la fente, regardait le bas de la structure. Sous la surface qui ressemblait à du métal mort, le grain qui s'était à peine révélé quelques instants plus tôt sur le seuil reprenait vie, très faiblement. Pas un signal fort. Plutôt quelque chose qui demandait qui venait, prêt à mourir sur-le-champ si la réponse était mauvaise.
+Sion, toujours penché bas devant la fente, regardait le bas de la structure. Sous la surface qui ressemblait à du métal mort, le grain qui, un peu plus tôt sur le seuil, avait à peine laissé deviner sa présence reprenait vie, très faiblement. Ce n'était pas un signal fort. Cela ressemblait plutôt à quelque chose qui demandait qui venait, prêt à mourir sur-le-champ si la réponse était mauvaise.
 
 Sern compta les cycles et dit :
 
-« Ça revient. »
+« Cela revient. »
 
-Ater répondit aussitôt :
-
-« L'intervalle entre le premier et le second est maintenu. »
+« Le premier et le deuxième font quatre. »
 
 « Et le dernier ? »
 demanda Sion.
 
-Sern observa l'endroit où la réaction se coupait à nouveau et répondit, très bas :
+Sern observa l'endroit où la réaction se coupait de nouveau et répondit, très bas :
 
-« Incomplet. »
+« Le troisième en fait trois. Le dernier ne vient pas. »
 
-Court silence.
+Ater, les yeux sur les lignes d'alignement qui subsistaient au bas de la structure, dit :
 
-Ater regardait les lignes d'alignement qui subsistaient dans la partie inférieure de la structure et dit :
+« Le troisième devait lui aussi en faire quatre, à l'origine. »
 
-« À l'origine, ils étaient trois. »
+Sion hocha très légèrement la tête.
 
-Sion hocha imperceptiblement la tête.
-
-« Les deux premiers : le jugement. »
-« Le dernier : la vérification. »
-« Mais cette partie de vérification est à moitié coupée. »
+« Les deux premiers, c'est le jugement. »
+« Le dernier, c'est la vérification. »
+« Mais cette partie vérification est à moitié coupée. »
 
 Seorin, les bras croisés, demanda :
 
-« Conclusion, alors. »
+« Et donc, la conclusion ? »
 
-Sion ne quitta pas la structure des yeux.
+Sion ne quittait toujours pas la structure des yeux.
 
-« Si on n'approche pas dans le bon ordre, on se fait couper dès le début. Et même si on approche correctement, la fermeture finale ne se fera pas à l'ancienne façon. »
+« Si on n'approche pas dans le bon ordre, on se fait couper dès le début, et même si on arrive comme il faut, la fin ne se refermera pas comme elle le faisait à l'origine. »
 
-Han Jiwoo dit brièvement depuis l'autre côté du canal :
+Han Jiwoo parla depuis l'autre bout du canal.
 
-« Agréable, dès le départ. »
+« Mauvais caractère dès le départ. »
 
-Ce lieu n'était pas une porte qui s'ouvrait à quiconque. Plus précisément, c'était un discriminateur qui éliminait d'abord les mauvaises approches. Ce qu'ils faisaient ici n'était donc pas forcer une porte. Il s'agissait de ne pas abîmer le fait que le discriminateur n'était pas encore mort, et de se faire lire comme n'étant pas du mauvais côté. Pas avancer lentement — plutôt s'arrêter pour ne pas se tromper.
+Ce lieu n'était pas une porte qui accueillait quiconque se présentait. Plus exactement, c'était un discriminateur qui éliminait d'abord les mauvaises approches. Ce qu'ils faisaient là n'était donc pas forcer une porte. Il s'agissait de ne pas briser le fait que le discriminateur n'était pas encore mort, et de se faire lire comme n'étant pas du mauvais côté. Non pas avancer lentement, mais plutôt s'arrêter pour ne pas se tromper.
 
-Sion laissa son regard glisser, comme à tâtons, sur le grain brisé dans la partie inférieure de la structure, puis dit :
+Sion laissa son regard glisser, comme à tâtons, sur le grain rompu au bas de la structure, puis dit :
 
-« Pas de face. »
+« Il ne faut pas s'accoler de face. »
 
-Han Jiwoo demanda immédiatement :
+Han Jiwoo demanda aussitôt :
 
-« Pourquoi. »
+« Pourquoi ? »
 
-« Ça ressemble à une structure qui coupe ceux qui entrent en montrant d'emblée leurs droits. »
-dit Sion, bas.
-« Laisse une voie pour être lu en oblique. »
+« Ça ressemble à une structure qui coupe ceux qui entrent en brandissant leurs droits dès le départ. »
+Sion répondait à voix basse.
+« Garde un angle qui se laisse lire de biais. »
 
-Dès que ces mots furent prononcés, Ater les reformula dans un autre langage.
+Dès que ces mots furent tombés, Ater reformula la même intuition dans une autre langue.
 
-« Discrimination de type évitement, non d'approbation. L'entrée frontale est exclue — c'est peut-être une structure qui ne laisse passer que ceux qui savent s'arrêter à temps. »
+« Ce n'est pas un jugement par approbation, mais par évitement. Il exclut l'entrée frontale, et il se peut qu'il ne laisse en vie que ceux qui savent s'arrêter à la fin. »
 
 Seorin jeta un coup d'œil vers Sion.
 
-« Il faut vraiment qu'il le dise comme ça ? »
+« Il faut vraiment qu'il dise la même chose de cette façon-là ? »
 
-« Mais cette fois, c'est juste. »
-dit Sion.
+« Sauf que cette fois, il a raison. »
+Ce fut Sion qui répondit.
 
 Sern intervint, très bas :
 
 « La réaction faiblit. »
 
-Ces quelques mots changèrent l'air d'un coup.
+Ces seuls mots changèrent l'air.
 
-Cette structure n'était pas là pour l'éternité. C'était quelque chose de proche d'une réaction laissée, comme une dernière habitude, par un discriminateur déjà en train de mourir. Manquer ça une fois, et il ne serait peut-être plus jamais possible de la lire de la même façon. Et cela signifiait que le seuil lui-même, qu'ils avaient mis tant de peine à localiser jusqu'ici, serait à nouveau perdu.
+Cette réaction ne les attendait pas. C'était l'habitude de quelque chose qui se mourait, répétée encore quelques fois avant la fin.
 
-Seorin dit brièvement :
+Seorin dit :
 
-« Récapitulons. Ce qu'on peut faire, ce qu'on ne peut pas faire. »
+« Récapitule. Ce qu'il faut faire, et ce qu'il ne faut pas faire. »
 
 Sion répondit sans hésiter :
 
-« Le vaisseau maintient l'angle. Ni plus près, ni plus loin. »
+« Le vaisseau garde l'angle actuel. Ni plus près, ni plus loin. »
 
-« Maintenu. »
-répondit Han Jiwoo, court.
+« Je garde. »
+Han Jiwoo avait répondu.
 
-« Sern continue de compter les cycles. Il nous dit quand la réaction est sur le point de mourir. »
+« Sern continue de compter les cycles. Il nous dit le moment juste avant que la réaction meure. »
 
-« Compris. »
+« Entendu. »
 
-« Ater regarde où ça aurait dû s'arrêter à l'origine. À la place de la partie de vérification coupée, il lit jusqu'où les deux qui restent autorisent le passage. »
+« Ater regarde où ça aurait dû s'arrêter à l'origine. À la place de la dernière vérification coupée, il lit jusqu'où les deux qui restent laissent passer. »
 
-Ater hocha brièvement la tête.
+Ater hocha la tête.
 
-« Je regarde. »
+« Je vais voir. »
 
 Seorin demanda en dernier :
 
-« Et moi. »
+« Et moi ? »
 
-Cette fois, Sion la regarda directement.
+Cette fois, Sion la regarda droit dans les yeux.
 
 « Si je me trompe, tu coupes. »
 
-Seorin eut un tout petit sourire.
+Seorin sourit.
 
-« Ça, c'est ce que je fais depuis toujours. »
+« Ça, je le fais toujours. »
 
-Les mots étaient courts, mais c'était suffisant. Personne ne se trouvait plus dans l'ignorance de ce qu'il avait à faire. Han Jiwoo tenait le vaisseau, Sern comptait l'ordre, Ater lisait la structure, Seorin saisissait l'instant où il fallait s'arrêter, Sion reliait le grain des traces avec les réactions sur place. Devant ce discriminateur, il suffirait qu'une seule de ces cinq fonctions manque pour que le passage soit impossible.
+Puis elle ajouta :
 
-Sion se pencha à nouveau vers la structure.
+« Je vais faire une chose de plus. »
+
+« Quoi ? »
+
+« Je reste à bord. »
+
+Sion se retourna.
+
+« Tu ne viens pas ? »
+
+« Si on entre tous les quatre, personne ne garde la place du retour. » Seorin s'était déjà à demi tournée vers la ligne de récupération, à l'arrière de la coque. « Si ça tourne mal là-dedans, vous ne pourrez pas ressortir. Il faut quelqu'un dehors pour tirer, sinon personne ne sort. »
+
+« Je pourrais rester, moi. »
+
+« Toi, tu ne peux pas te permettre de ne pas lire. »
+
+Sion ne trouva rien à répondre.
+
+« Et puis, ajouta Seorin, entrer, c'est toi qui l'as décidé ; rester, c'est moi qui le décide. Ça, au moins, je peux le décider. »
+
+Il suffisait qu'un seul des cinq manque pour que ce seuil ne soit pas franchi. Personne ne le dit à voix haute.
+
+Sion se pencha de nouveau vers la structure.
 
 Première réaction.
 
-Sous la surface de métal mort, un tout mince frémissement remonta.
+Sous la surface de métal mort, un frémissement très mince remonta.
 
-Il dit, retenant son souffle :
+Il dit, le souffle retenu :
 
-« On s'accroche maintenant. Pas de face — par le côté. »
+« On s'accole maintenant. Pas de face. Par le côté. »
 
-Han Jiwoo ne bougea les commandes que d'un millimètre à la fois. Le vaisseau dériva très, très lentement, presque imperceptiblement. Pas de face — un angle qui se faisait lire en frôlant l'extérieur des lignes d'alignement restantes. Pas une approche forcée, mais une façon de caler la coque à l'intérieur de la dernière bande d'accès que cette structure avait laissée.
+Han Jiwoo ne poussait les axes manuels que d'une phalange à la fois. Le vaisseau glissa de biais, si lentement que cela ne se voyait presque pas. Pas de face : un angle qui se laissait lire en frôlant l'extérieur des lignes d'alignement restantes. Ce n'était pas une approche qui forçait le passage, mais une manière d'ajuster la coque à l'intérieur de la dernière marge que cette structure avait laissée.
 
 La deuxième réaction vint.
 
 Sern dit aussitôt :
 
-« Maintenu. Pas encore. »
+« Maintenez. Pas encore. »
 
-Ater regardait l'extrémité de la ligne brisée dans la partie inférieure de la structure et dit, très bas :
+Ater, qui regardait l'extrémité de la ligne rompue au bas de la structure, dit très bas :
 
-« Il faut s'arrêter au prochain. »
+« Au prochain, il faudra s'arrêter. »
 
-Sion, au lieu de répondre, poursuivit jusqu'au bout l'endroit où la dernière réaction se coupait. L'endroit où la troisième partie de vérification aurait dû se fermer. Mais là, c'était déjà coupé. La vérification complète est impossible. Il faut s'ajuster jusqu'au maximum de ce que les deux restants autorisent, pas plus. Aller trop loin, c'est se tromper ; rester en deçà, c'est ne pas être lu.
+Au lieu de répondre, Sion suivit jusqu'au bout l'endroit où la dernière réaction se coupait. L'endroit où la troisième vérification aurait dû se refermer. Mais il était déjà coupé. Une vérification complète était impossible. Il fallait s'ajuster jusqu'au maximum de ce que les deux restantes autorisaient, pas plus. Aller plus loin, c'était se tromper ; rester en deçà, c'était ne pas être lu.
 
-Han Jiwoo demanda, comme en retenant sa respiration :
+Han Jiwoo parla, comme on pose une question en retenant son souffle.
 
 « Maintenant ? »
 
 « Pas encore. »
-trancha Sion.
+Sion avait tranché net.
 
-Juste avant que la première réaction ne meure, la seconde devint la plus nette.
+Le vaisseau continuait de dériver. Il ne s'était pas arrêté, il glissait très lentement, et pendant qu'il glissait, la marge se réduisait.
 
-Sern dit presque au même instant :
+« Han Jiwoo. »
 
-« Maintenant. »
+« Quoi ? »
 
-Ater parla en même temps, sa voix se superposant à celle de Sern :
+« Tes bras, ils tiennent combien de temps ? »
 
-« Il faut s'arrêter ici. »
+« Ne demande pas. »
 
-La main de Han Jiwoo s'immobilisa d'un coup.
+La main qui tenait l'axe manuel trembla une fois. Le tremblement passa tel quel dans la coque, et de la coque dans la structure.
 
-Et à ce moment précis, depuis l'intérieur de l'anneau brisé dans la partie inférieure de la structure, un tout bas son métallique résonna.
+La réaction répondit à moitié à ce tremblement, puis s'éteignit de nouveau.
 
-Moins le bruit d'une porte qui s'ouvre que le son d'un vieux dispositif de jugement reconnaissant qu'il ne refuserait pas complètement l'approchant.
+« Ça, là, dit Sion. Encore une fois, et on est coupés. »
+
+« Je sais. »
+
+« Mais une fois, il en faut une. »
+
+« … Quoi ? »
+
+« Si ça ne tremble pas du tout, ça se lit comme une machine. Et une machine, ça frappe de face, donc ça se fait couper. » Sion ne détournait pas les yeux. « Il faut que ça se lise comme une personne qui pousse. Mais si ça tremble trop, ça ne se lit plus. »
+
+Han Jiwoo jura, brièvement.
+
+« Autrement dit, trembler juste autant que maintenant ? »
+
+« Oui. »
+
+« Et comment je dose ça ? »
+
+« Tu ne peux pas. »
+
+Sern trancha entre eux.
+
+« Six. »
+
+Tout le monde se tut.
+
+« Cinq. »
+
+Han Jiwoo remit du poids dans ses bras. Cette fois, elle n'essaya pas d'étouffer le tremblement. Elle poussa, simplement.
+
+« Quatre. »
+
+La première réaction commença à faiblir.
+
+« Trois. »
+
+La deuxième monta par-dessus. Cette fois, bien plus nette que tout à l'heure.
+
+« Deux. »
+
+Ater détacha les yeux de l'extrémité de la ligne coupée, au bas de la structure.
+
+« C'est ici. »
+
+« Un. »
+
+« Arrêtez. »
+
+La main de Han Jiwoo s'arrêta net.
+
+Et à cet instant précis, à l'intérieur de l'anneau tranché, au bas de la structure, un son métallique très bas résonna.
+
+Moins le bruit d'une porte qui s'ouvre que celui d'un vieux dispositif de jugement qui reconnaissait ne pas rejeter tout à fait celui qui approchait.
+
+Puis, à l'intérieur de l'anneau tranché, une ligne très fine s'alluma.
+
+Elle n'était pas vive. On n'aurait même pas pu appeler cela une lampe. Ce qui restait dans un circuit longtemps inutilisé tournait à contrecœur, rien de plus, et cette lueur ne révélait que les trois premiers pas du couloir intérieur.
+
+Au-delà de trois pas, c'était le noir.
 
 Sion expira très lentement.
 
@@ -170,55 +242,103 @@ Seorin demanda aussitôt :
 
 « Tu en es sûr ? »
 
-Cette fois, c'est Ater qui répondit.
+Cette fois, ce fut Ater qui répondit.
 
-« Le premier jugement. Du moins, oui. »
-
-Court silence.
-
-Ces quelques mots suffirent à changer l'air dans la coque. Ils n'étaient pas encore entrés à l'intérieur, ils ne tenaient pas encore le fragment entre les mains. Mais une chose était certaine. Ce chemin n'était pas complètement mort. Et ce qu'ils venaient de passer n'était pas une porte — c'était la première ligne de contrôle d'une séquence que quelqu'un avait coupée depuis longtemps.
+« Pour le premier jugement, oui. Du moins pour celui-là. »
 
 Sion regardait toujours l'intérieur de la structure.
 
-Au-delà de l'endroit où le premier jugement avait été franchi, une réaction différente des précédentes se leva, très faiblement. Pas le frémissement résiduel sous la paroi extérieure, comme au début — une réaction plus profonde, du genre qui ne se voit que lorsque quelqu'un touche le grain suivant, depuis l'intérieur.
+Au-delà de l'endroit où le premier jugement avait été franchi, une réaction différente des précédentes affleura, très faiblement. Pas le frémissement resté sous la paroi extérieure, comme au début, mais une réaction profonde, de celles qu'on ne voit que lorsque quelqu'un, plus loin à l'intérieur, touche la couche suivante.
 
-Son regard changea imperceptiblement.
+Son regard changea, à peine.
 
-Seorin le lut la première.
+Seorin fut la première à le lire.
 
-« Quoi. »
+« Quoi ? »
 
-Sion dit, bas, regardant l'obscurité intérieure :
+Sion parla bas, les yeux sur l'obscurité intérieure.
 
-« Il y a quelque chose dedans. »
+« Il y a un dedans. »
 
-Han Jiwoo demanda brièvement depuis l'autre côté du canal :
+Han Jiwoo demanda depuis l'autre bout du canal :
 
 « On entre ? »
 
 Cette fois, Sion ne répondit pas.
 
-À la place, c'est Ater qui parla en premier.
+Ce fut Ater qui prit la parole le premier.
 
-« Désormais, ce n'est plus le vaisseau — il faut que des personnes regardent. »
+« À partir de maintenant, ce n'est plus au vaisseau de regarder, mais à des personnes. »
 
 Sern ajouta calmement :
 
-« L'intervalle des réactions a raccourci. Si on n'y va pas maintenant, ça peut mourir à nouveau. »
+« L'intervalle des réactions s'est raccourci. Si nous n'y allons pas maintenant, cela risque de mourir de nouveau. »
 
-Ces mots signifiaient que la raison pour laquelle ils étaient venus jusqu'ici passait maintenant à l'étape suivante. Le premier jugement était franchi. Ils avaient vérifié que le chemin restant n'était pas une illusion. Et plus à l'intérieur, la réaction suivante s'était réveillée. Ce n'était plus le prolongement d'une exploration — c'était une fenêtre qu'ils allaient manquer s'ils ne bougeaient pas tout de suite.
+Seorin expira.
 
-Seorin expira brièvement.
+« Alors il va vraiment falloir descendre. »
 
-« Bien. Alors maintenant il faut vraiment descendre. »
+Sion détacha enfin les yeux de la structure et hocha la tête.
 
-Sion, seulement alors, détacha les yeux de la structure et hocha la tête, très brièvement.
+« Oui. À partir de maintenant, il faut lire avec les pieds. »
 
-« Oui. Maintenant il faut lire avec les pieds. »
+Han Jiwoo bloqua l'axe manuel là où il était et enfonça la goupille de blocage. Elle avait baissé les bras, mais ses doigts restaient recourbés à la forme de l'axe. Elle les déplia un à un avec l'autre main.
 
-Aussitôt l'air dans le vaisseau changea à nouveau. Han Jiwoo maintint la coque à l'angle actuel et vérifia la passerelle extérieure et la ligne de récupération ; Seorin décida de rester du côté de la coque pour voir d'abord l'instant où il faudrait couper et la ligne du retour. Sion, Ater et Sern, eux, finirent de se préparer à descendre vérifier de visu ce qui se trouvait au-delà du premier jugement qui venait de s'ouvrir. Dans cet endroit, qui entrait à l'intérieur et qui gardait la place du retour comptait autant que l'ordre du passage.
+« Je tiens l'angle. Mais pas longtemps. »
 
-Et depuis les profondeurs de la structure, comme un signal que le grain suivant était encore vivant, un très faible reflet résiduel trembla à nouveau.
+« Combien ? »
+
+« Aucune idée. On verra qui lâche en premier, mes bras ou le vaisseau. »
+
+Seorin déroula la ligne de récupération et l'attacha tour à tour à la taille des trois. Ensuite, elle tira une fois sur chacune. Sur celle d'Ater, sa main revint une fois de plus.
+
+« Enlève ton manteau. »
+
+« … Pardon ? »
+
+« S'il s'accroche, ce n'est pas la ligne qui tirera, c'est le manteau. »
+
+Ater regarda un instant son manteau. L'emblème des Valkar avait depuis longtemps disparu sous la poussière. Il le déboutonna, l'ôta et l'accrocha à un crochet de la paroi de la cabine.
+
+« Vous me le rendrez plus tard. »
+
+« Si on revient. »
+
+Les lignes se tendirent une à une, dans l'ordre des trois.
+
+Sion regarda Seorin une dernière fois.
+
+« Le signal ? »
+
+« Deux coups, vous sortez. Trois, je coupe. »
+
+« Trois, c'est qu'on est morts. »
+
+« Oui. C'est pour ça que les trois, c'est moi qui les décide. »
+
+Sion ne sourit pas. Il hocha seulement la tête, une fois, et se tourna vers la passerelle.
+
+La passerelle n'était pas d'origine sur ce vaisseau. Étroite, le bout usé, et des deux points d'appui côté structure, un seul tenait encore.
+
+Sion y posa un pied et n'y mit que la moitié de son poids. La passerelle s'affaissa d'un coup, puis s'arrêta.
+
+« Ça fait du bruit, dit Seorin derrière lui. »
+
+« Il faut que ça en fasse. »
+
+« Encore cette rengaine. »
+
+« Aujourd'hui, tout est comme ça. »
+
+Sion y mit le reste de son poids.
+
+Tout au fond de la structure, une lueur résiduelle très faible trembla de nouveau.
+
+Cette fois, un peu plus loin à l'intérieur que tout à l'heure.
+
+Sion savait qu'elle ne l'appelait pas. Si c'était un signal d'appel, elle aurait brillé depuis longtemps.
+
+Elle était encore en train de compter.
 
 ---
 

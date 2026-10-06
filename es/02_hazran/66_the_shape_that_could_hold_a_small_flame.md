@@ -1,22 +1,23 @@
 # Capítulo 66 — La forma que soporta una pequeña llama
 
-«Ahora por fin ven lo mismo.»
+*Ahora por fin ves lo mismo.*
 
-Incluso después de que cayeran esas palabras de Aka, los tres no se movieron de inmediato.
+Incluso después de que cayeran esas palabras de Aka, los tres no se movieron enseguida.
 
-Sion, con la brasa apretada en el hueco de la mano, volvió a mirar el punto enfriado sobre el soporte.
+Sion, con la brasa apretada en la mano, volvió a mirar el punto enfriado sobre el pedestal.
 
 Negro,
-sin palabras,
+mudo,
 un fragmento que parecía ya del todo terminado.
 
-Pero la brasa no mentía. Solo ante esto se volvía, de forma apenas perceptible, un poco menos incómoda. Así que aquello no era un simple resto, sino la huella real de algo que había pasado sobre la misma gramática.
+Pero la brasa no mentía. Solo ante aquello se volvía, de forma apenas perceptible, menos incómoda. Así que aquello no era un simple resto, sino la huella de algo que de verdad había pasado sobre la misma gramática.
 
-Aka no lo empujó con una explicación.
+Aka no insistió con explicaciones.
 
-En su lugar, sacó y abrió un cajón bajo, al costado del soporte. Dentro había unas cuantas tiras de metal largas y finas, una fibra parecida a la fibra de unión, delgada, y unos trozos de eterita refinada solo a medias, todo ordenado. Nada brillaba; al contrario, eran cosas tan sobrias que, vistas por primera vez, ni siquiera se les habría reconocido el valor.
+En cambio, sacó y abrió un cajón bajo, al lado del pedestal. Dentro había, ordenadas, unas cuantas tiras de metal largas y finas, una fibra parecida a un hilo de unión delgado y unos trozos de eterita refinada solo a medias. Nada brillaba; al contrario, eran cosas tan sencillas que, a primera vista, nadie les habría reconocido el valor.
 
-—¿Sabes qué es lo primero que se descarta? —preguntó Aka en voz baja.
+—¿Sabes qué es lo primero que se tira?
+Lo preguntó Aka en voz baja.
 
 Sion no supo responder.
 
@@ -26,166 +27,214 @@ Han Jiwoo habló primero.
 
 Aka la miró.
 
-Y asintió muy brevemente con la cabeza.
+Y asintió muy brevemente.
 
-—Sí —dijo—. Si quieres salvar rápido, lo matas primero.
+—Sí.
+Lo dijo ella.
+—Si quieres salvarlo rápido, lo matas antes que nada.
 
 Sion sintió que aquellas palabras eran de una exactitud aterradora.
 
-Ahora mismo quería meter de inmediato en el casco la brasa que tenía en la mano.
-Quería juntarla también con el punto enfriado que tenía delante.
-Quería comprobar enseguida si de verdad se enlazaban.
+Ahora mismo quería meter enseguida en el casco la brasa de su mano. Quería juntarla también con el punto enfriado que tenía delante. Quería comprobar ya mismo si de verdad se enlazaban.
 
-Pero ese ansia era justo lo primero que mataba.
+Pero era justo ese deseo el que mataba primero.
 
-Aka eligió del cajón el trozo de eterita más turbio y de aspecto más feo, y se lo tendió a Han Jiwoo.
+Sion contó los momentos en que había tenido prisa en el camino hasta aquí.
 
-—Este no es bonito —dijo—. Por eso aguanta.
+En la arena hubo un equipo que fue directo a por la luz que creció primero. Ese equipo la agarró y se detuvo, y en ese instante de pararse, una nave que entraba por el costado lo empujó y lo hizo resbalar.
 
-Han Jiwoo recibió aquel trozo y examinó una vez la luz y otra la veta.
+También hubo gente que, al oír que los precios se disparaban, salió antes que nadie hacia el canal de fuera.
 
-—La grieta interna es lenta —dijo en voz baja—. Aunque tome calor, no se partirá de golpe.
+Tener prisa no era el error. Cuando hay prisa, uno se salta la comprobación, y en lo que se salta muere hasta lo que no tenía por qué morir.
 
-Esta vez Aka señaló bajo el borde del trozo negro, del lado del punto enfriado.
+—¿Entonces cuánto hay que esperar?
 
-—Aquí es donde tocó —dijo—. Pero ahora está frío.
+Lo preguntó Sion.
 
-Y enseguida indicó con un gesto del mentón hacia el compartimento exterior, donde estaba el casco.
+—Hasta que no muera.
 
-—Allí quedó la forma capaz de aguantar.
+—¿Y eso cuánto es?
 
-En ese instante, Sion comprendió a medias lo que Aka quería hacer.
+Aka no respondió a esa pregunta. La respuesta cambiaba cada vez. Aquí perdía el que decía primero un precio, y Aka todavía no había dicho ninguno.
+
+Aka eligió del cajón el trozo de eterita más turbio y de aspecto más feo y se lo tendió a Han Jiwoo.
+
+—Este no es bonito.
+Lo dijo ella.
+—Por eso aguanta mucho.
+
+Han Jiwoo tomó el trozo y examinó una vez la luz y otra la veta.
+
+—La grieta de dentro avanza despacio.
+Lo dijo en voz baja.
+—Aunque tome calor, no se va a partir de golpe.
+
+Esta vez Aka señaló bajo el borde del trozo negro, el del punto enfriado.
+
+—Aquí es donde tocó.
+Lo dijo ella.
+—Pero ahora está frío.
+
+Y enseguida indicó con el mentón el compartimento exterior, donde estaba el casco.
+
+—Allí quedó una forma que aguanta.
+
+En ese momento, Sion entendió vagamente lo que Aka quería hacer.
 
 El punto enfriado conoce la dirección.
-El casco dejó un cuerpo capaz de aguantar.
-La brasa sigue viva.
+El casco conserva un cuerpo que aguanta.
+La brasa todavía está viva.
 
-Entonces lo que hacía falta ahora no era enlazar los tres de una sola vez, sino crear la primera forma que recibe, una que no muriera entera aunque la pequeña llama la rozara apenas un momento.
+Entonces lo que hacía falta ahora
+no era enlazar los tres de una vez,
+sino hacer la primera forma receptora, una que no muriera entera aunque la pequeña llama la tocara un instante.
 
-—¿Vas a hacer la prueba? —preguntó Sion.
+—¿Vas a probar?
+Lo preguntó Sion.
 
 Aka respondió breve.
 
 —Solo un poco.
 
-Sobre una placa de metal baja, delante del soporte, colocó la fibra de unión delgada, dos pequeñas tiras de metal y el trozo de eterita turbio que acababa de tender. Más que un producto terminado, tenía la forma de un molde. Más que un corazón para albergar la brasa, parecía el trabajo de hacer una palma de la mano que no se hiciera añicos lo primero cuando la pequeña llama pasara rozándola.
+Sobre una placa de metal baja, delante del pedestal, colocó el hilo de unión delgado, dos pequeñas tiras de metal y el trozo de eterita turbio que acababa de dar. Más que un producto terminado, tenía la forma de un molde. Más que un corazón para albergar la brasa, parecía el trabajo de hacer una palma que no se hiciera añicos antes que nada cuando la pequeña llama pasara rozándola.
 
 Han Jiwoo, mirándolo, murmuró muy bajo.
 
 —El molde receptor.
 
-Aka asintió con la cabeza.
+Aka asintió.
 
 —Sí.
 
 Esta vez miró a Sion.
 
-—Baja solo un poco —dijo—. Pero no dejes que toque.
+—Bájala solo un poco.
+Lo dijo ella.
+—Pero que no toque.
 
 Sion contuvo la respiración.
 
-Solo con tender la mano hacia delante se ponía, por extraño que fuera, en tensión. La brasa siempre había estado solo en el hueco de su mano. Era la primera vez que la sacaba hacia fuera, exactamente la distancia que alguien le indicaba.
+Solo tender la mano hacia delante lo ponía, de un modo extraño, en tensión. La brasa siempre había estado en su mano y en ninguna otra parte. Era la primera vez que la sacaba hacia fuera la distancia exacta que alguien le indicaba.
 
-Bajó la mano muy despacio.
+Sion podía contar cuántas manos habían intentado quitársela en la arena. En esos días había aprendido una sola cosa. Esto no se suelta.
+
+Ahora le pedían lo contrario. No soltarla, pero tenderla.
+
+Sion sabía con las manos lo distintas que eran esas dos cosas. Tenía que dejar igual la fuerza con que la apretaba y estirar solo el brazo.
+
+Sion bajó la mano muy despacio.
 
 La brasa seguía en silencio.
-Pero, a medida que se acercaba sobre el molde receptor, la fibra de unión delgada sobre la placa de metal fue la primera en temblar de forma apenas perceptible. También el trozo de eterita turbio recibió la luz, muy lentamente, en su veta interior.
+Pero cuanto más se acercaba al molde receptor, antes que nada tembló de forma apenas perceptible el hilo de unión delgado sobre la placa de metal. También el trozo de eterita turbio recibió la luz, muy despacio, en la veta de dentro.
 
 No saltó.
 Tampoco se disparó hacia arriba.
 
-En su lugar, de forma apenas perceptible,
-ocurrió un cambio parecido al de dos cosas vivas que se alivian mutuamente la incomodidad.
+En cambio, se produjo un cambio mínimo, como si dos cosas vivas se aliviaran mutuamente la incomodidad.
 
-—Ahí —dijo Aka en voz baja.
+—Ahí.
+Lo dijo Aka en voz baja.
 
 Sion detuvo la mano.
 
-Han Jiwoo miraba aquella escena casi sin respirar.
+Han Jiwoo miraba aquello casi sin respirar.
 
-—¿Si va más allá, muere? —preguntó en voz baja.
+—¿Si va más allá, muere?
+Lo preguntó en voz baja.
 
-Aka guardó silencio un momento y luego respondió.
+Aka se quedó callada un momento y luego respondió.
 
 —Por ahora.
 
 Esas dos palabras pesaron, al contrario, más.
 
 Por ahora no se puede.
-Pero significaba que algún día se podría ir más lejos.
+Pero eso quería decir que algún día quizá se pudiera ir más lejos.
 
-Sion sostuvo quieta, a esa distancia, la brasa en el hueco de su mano. El molde receptor temblaba muy débilmente, y la veta interior de la eterita turbia se volvió un poco más nítida. Era una reacción de verdad pequeña. Tanto que, mirada al descuido, parecería que no pasaba nada.
+Sion sostuvo quieta la brasa a esa distancia. El molde receptor temblaba muy débilmente, y la veta de dentro de la eterita turbia se volvió un poco más nítida. Era una reacción de verdad pequeña. Tanto que, mirada sin atención, parecería que no pasaba nada.
 
-Pero los tres pudieron saberlo.
+Pero los tres podían saberlo.
 
 Esto era la primera vez.
 
 No era abrir una puerta,
 ni elevar el casco,
-ni crear una luz grandiosa.
+ni crear una gran luz.
 
-Era, simplemente, el primer instante en que una pequeña llama no moría ante otra forma,
-y esa forma tampoco se desmoronaba al momento.
+Solo el primer instante en que una pequeña llama no moría ante otra forma, y esa forma tampoco se derrumbaba de inmediato.
 
 Aka dijo muy bajo.
 
-—Mira —dijo—. No muere.
+—Mira.
+Lo dijo ella.
+—No muere.
 
-Sion sintió, ante esas palabras, una extraña sequedad en la garganta.
+Al oír eso, Sion sintió una extraña sed en la garganta.
 
-Por ser tan pequeño,
-era, al contrario, más seguro.
+Por ser tan pequeño, era, al contrario, más seguro.
 
-Las reacciones falsas siempre eran grandes y vistosas.
-Para engañar a alguien hay que llamar la atención.
-Pero la primera reacción que de verdad se enlaza es así de callada.
+Sion no apartó los ojos. Si los apartaba, no sabía si podría volver a verlo.
 
-Esta vez Han Jiwoo soltó el aliento antes que Sion.
+Sion se preguntó a quién podría explicarle esto después.
 
-—Hay que hacer crecer esto —dijo—. Pero si equivocas el orden, será de nuevo el final.
+¿Qué le diría a Seorin? Si le decía que el hilo de unión había temblado un poco y que la veta de dentro de la piedra se había vuelto un poco más nítida, ahí se acababa todo. Para quien lo oyera, sonaría a que no había pasado nada.
+
+Para quien no lo hubiera visto aquí, esto no era una prueba.
+
+Solo entonces Sion entendió una vez más por qué Aka no se lo enseñaba a cualquiera. No era por esconderlo. Era porque, aunque lo enseñara, la mayoría no vería nada.
+
+Esta vez Han Jiwoo soltó el aire antes que Sion.
+
+—Hay que hacer crecer esto.
+Lo dijo ella.
+—Pero si nos equivocamos de orden, se acaba otra vez.
 
 Aka respondió breve.
 
 —Sí.
 
-Y, rozando con la yema del dedo una esquina del molde receptor, añadió.
+Y, tocando con la yema del dedo una esquina del molde receptor, añadió algo.
 
 —Por eso hace falta tu mano.
 
-Aunque lo había previsto desde el principio, esas palabras sonaron, por extraño que fuera, más pesadas.
+Aunque lo había previsto desde el principio, esas palabras sonaron, de un modo extraño, más pesadas.
 
-Sion sintió que no era algo que dijera solo a Han Jiwoo.
-La mano de Han Jiwoo es la mano que hace aguantar la estructura,
-y su propia mano es la mano que lleva la brasa sin matarla.
+Sion sintió que no se lo decía solo a Han Jiwoo.
+La mano de Han Jiwoo era la que hacía aguantar la estructura; la suya era la que llevaba la brasa sin matarla.
 
-Aka ya había dicho varias veces que con una sola de las dos no bastaba.
+Aka ya lo había dicho varias veces: con una sola de las dos no bastaba.
 
 Han Jiwoo volvió a levantar el trozo de eterita turbio y examinó la veta.
 
-—¿Hay más material igual? —preguntó.
+—¿Hay más del mismo material?
+Lo preguntó ella.
 
-—Un poco —respondió Aka—. No mucho.
+—Un poco.
+Fue la respuesta de Aka.
+—No mucho.
 
 —Entonces no podemos equivocarnos más.
 
 Esta vez Aka sonrió de forma apenas perceptible.
 
-—Ahora por fin tienes miedo.
+—Ahora por fin te da miedo.
 
-Han Jiwoo también sonrió brevemente.
+Han Jiwoo también sonrió, breve.
 
-—Estas cosas dan más miedo —dijo—. Lo grande, si fracasa, se ve enseguida; lo pequeño, en cambio, puede que no lo notes hasta que lo has matado.
+—Estas cosas siempre dan más miedo.
+Lo dijo ella.
+—Lo grande, si sale mal, se ve enseguida; lo pequeño, puede que no lo notes hasta que lo has matado.
 
 Sion no pudo decir nada, de tan exactas que eran esas palabras.
 
-La brasa que ahora tenía en el hueco de la mano era igual.
-Algo que, manejado al descuido, podía enfriarse en silencio en algún momento.
-Pero que, si se sostenía como es debido,
-podía volver a hacer aguantar una forma que se creía muerta.
+La brasa que ahora tenía en la mano era igual.
+Algo que, tratado sin cuidado, podía enfriarse en silencio en cualquier momento.
+Pero que, si se sostenía como era debido, podía hacer aguantar otra vez una forma que se creía muerta.
 
-Aka miró por turnos el punto enfriado sobre el soporte, el pequeño molde receptor sobre la placa de metal y la brasa en el hueco de la mano de Sion.
+Aka miró por turnos el punto enfriado sobre el pedestal, el pequeño molde receptor sobre la placa de metal y la brasa en la mano de Sion.
 
-—Ahora solo queda una cosa —dijo en voz baja.
+—Ahora solo queda una cosa.
+Lo dijo en voz baja.
 
 Sion preguntó.
 
@@ -193,11 +242,17 @@ Sion preguntó.
 
 Aka respondió muy breve.
 
-—Decidir dónde colgarla primero.
+—Decidir a qué apostar primero.
 
-Con esas palabras,
-se volvió nítido que salvar el casco no era una simple reparación,
-sino elegir las verdaderas prioridades.
+Sion supo por qué eso venía al final.
+
+El material estaba decidido, y el molde ya lo habían levantado una vez. Pero no había mucho del mismo material. Si se apostaba a una cosa, no se podía apostar a otra.
+
+Se podía apostar primero a que el barco volara, o a que no se rompiera, o a que la gente que fuera dentro no saliera herida.
+
+Las tres cosas eran ciertas. No se podían hacer las tres.
+
+No era cuestión de reparar. Era cuestión de elegir qué salvar primero.
 
 ---
 

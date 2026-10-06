@@ -1,272 +1,289 @@
 # Chapitre 116 — Ce que le vaisseau révéla après avoir disparu
 
-Qu'ils avaient disparu...
-les premiers à réaliser que c’étaient les gens à l’intérieur, pas ceux à l’extérieur.
+Qu'ils avaient disparu, ce fut l'intérieur qui le sut avant l'extérieur.
 
-Justement,
-le silence laissé après la fin du mouvement était différent.
+La coque était trop silencieuse.
 
-Il ne s'agissait pas de la vibration résiduelle d'un vaisseau qui tremble normalement.
-Ce n'était pas le craquement laissé après qu'une coque cousue de force s'efforce de tenir.
+Ce vaisseau n'avait jamais été silencieux. Le moteur forçait toujours quelque part, ce qui avait été recollé le faisait sentir, et ce qui avait été rajouté grinçait d'autant. Sion s'était si bien habitué à ces bruits que c'est à l'oreille qu'il remarqua leur disparition.
 
-C'était le contraire.
+Han Jiwoo n'arrivait pas à décoller la main du panneau.
 
-Trop calme.
+« Qu'est-ce qu'il y a ? »
 
-Jiwoo n'a pas pu retirer sa main du panneau pendant un long moment.
+« Quelque chose est passé sous ma main. »
 
-Parce que la réponse qui venait de passer sous sa main
-ne ressemblait en rien à une réponse de barre qu'elle connaissait.
+« Tout à l'heure ? »
 
-Le vaisseau n'avait pas été expulsé.
-Quelque chose comme une ligne de référence invisible s'était alignée en premier,
-et toute la coque l'avait suivi par la suite.
+« Oui. »
 
-Elle leva la main très lentement
-et murmura, bas.
+Elle retira la main, puis la reposa. Cette fois, elle ne recommença pas trois fois comme tout à l'heure. Elle la posa une fois et la retira aussitôt.
 
-« Ce n'était pas... du mouvement. »
+« Si c'était une réponse de la barre, je le saurais. »
+C'était Han Jiwoo.
+« Ça, ce n'était pas une réponse. »
 
-demanda immédiatement Kael.
+Kael posa la question.
 
-« Alors qu'est-ce que c'était? »
+« Alors c'était quoi ? »
 
-Jiwoo ne pouvait pas répondre.
+Han Jiwoo ne sut pas répondre.
 
-Dans la langue qu'elle connaissait,
-ce qui venait de se passer ne pouvait pas être traduit avec précision.
+Sion savait ce qu'était ce silence. Ce que Han Jiwoo avait dit la veille revenait tel quel. Sans nom, on ne peut pas le passer à la personne suivante. En cet instant, Han Jiwoo ne parvenait même pas à faire passer, de ses propres mains, ce qu'elle venait de vivre.
 
-Sion tenait la balustrade et régulait sa respiration pendant un moment.
+Appuyé à la rambarde, Sion reprit son souffle.
 
-Le sens de l'orientation qui n'avait été que faible jusqu'à présent
-n'avait pas disparu.
-C'était plutôt comme s'il s'était déployé en un grain complètement différent, long et étiré.
+Jusqu'à tout à l'heure, cet endroit donnait l'impression de chercher. Quand on en approchait la main, quelque chose était là, mais on ne savait pas vers où cela allait.
 
-Moins comme saisir
-et plutôt la sensation, après que quelque chose s'est déjà connecté une fois,
-de ne plus se disperser dans le vide comme avant.
+Maintenant, c'était différent.
 
-Il savait que ses paroles sonneraient étrangement,
-mais il ouvrit quand même la bouche.
+« On dirait que ça a touché quelque part une fois, et que c'est revenu. »
+C'était Sion.
 
-« Jusqu'à présent, j'avais l'impression de chercher »
-dit-il à voix basse.
-« En ce moment… c'est comme si quelque chose avait déjà été touché une fois et est revenu. »
+Seorin regarda aussitôt Sion.
 
-Seorin regarda Sion immédiatement.
+D'ordinaire, elle aurait laissé filer ce genre de phrase. Cette fois, non.
 
-Dans une journée normale, elle aurait pu laisser passer des mots comme celui-là.
-Mais tout à l'heure,
-personne ne pouvait prendre à la légère les sens d’une autre personne.
+« Touché où ? »
 
-Seorin relâcha lentement sa main de la balustrade et parla.
+« Je sais pas. »
 
-« Alors où en sommes-nous en ce moment. »
+« Alors on est où, là, nous ? »
 
-Cette question était courte,
-et donc plus lourd.
+Personne ne sut répondre.
 
-Personne ne pouvait encore répondre.
+Sern relisait l'écran. Plus il lisait, plus son visage se figeait.
 
-Sern était déjà en train de relire le réseau de suivi et les données de surveillance environnantes.
-Mais son expression ne fit que se durcir davantage.
+« Je ne capte rien. »
 
-« Rien n'accroche. »
-dit-il, bas.
+« Rien de quoi ? »
+C'était Han Jiwoo qui demandait.
 
-Jiwoo se tourna.
+« Les interférences extérieures que je lisais encore tout à l'heure. »
+C'était Sern.
+« S'il y avait eu un regard collé à nous, il aurait déjà dû laisser une trace au moins une fois. »
 
-« Quoi. »
+Un bref silence.
 
-Sern répondit sans quitter l'écran des yeux.
+« Or il n'y en a pas. »
 
-« L'interférence extérieure qui était lisible jusqu'à présent. »
-dit-il.
-« Que ce soit l'Empire ou l'Alliance, s'il y avait des yeux qui nous suivaient, il devrait y avoir au moins une trace maintenant. »
+Luhai ravala un juron.
 
-Un court silence.
+C'était le genre de nouvelle dont on ne savait pas tout de suite si elle était bonne ou mauvaise.
 
-« Il n'y en a pas. »
-
-Luhai avala quelque chose qui ressemblait à un faible sort.
-
-Le genre de mots qu'on ne peut pas dire immédiatement
-si c'est une bonne ou une pire nouvelle.
-
-Ater déplia les bras et demanda.
-
-« Les avons-nous perdus ? »
-
-Sern vérifia à nouveau brièvement les données et parla.
+« Nous les avons semés ? »
+Ater posa la question.
 
 « Non. »
-« Si on les avait secoués, il y aurait des traces. »
+Sern répondit.
+« Si nous les avions semés, il resterait des traces. »
 
-Cette phrase était étrangement plus inquiétante.
+Ces mots étaient plus inquiétants encore.
 
-Les secouer serait compréhensible.
-Les tromper serait également logique.
-Mais aucune explication du tout
-signifiait que ce vaisseau était sorti des catégories connues de poursuite et d'évasion.
+Les avoir semés, cela se comprenait. Les avoir trompés, cela avait un sens aussi. Que rien ne s'explique voulait dire que ce vaisseau avait bougé en dehors de la poursuite et de l'esquive.
 
-Aka était toujours silencieux.
+Sion regarda cet endroit.
 
-Elle regardait depuis longtemps le point condensé à l’intérieur du panneau.
-Mais bizarrement,
-cet endroit était devenu plus calme qu’auparavant.
+Il était devenu plus calme qu'un peu plus tôt. Il n'avait pas disparu : on aurait dit qu'il avait fini sa tâche et s'était déposé, une fois.
 
-Pas disparu.
-C'était plutôt comme s'il s'était installé une fois après avoir terminé son rôle.
+Aka se tenait devant.
 
-Aka a dit, très bas.
+Exactement à l'endroit où, tout à l'heure, quand le vaisseau avait penché, elle seule n'avait pas penché.
 
-« Ça a pris le dessus. »
+Aka ouvrit la bouche. Sa voix sortait à peine.
 
-Sion la regarda.
+« Ça a saisi. »
 
-Aka continua sans détourner le regard.
+Sion regarda Aka.
 
-« Nous n'avons pas trouvé le chemin. »
-Après une brève pause,
-dit-elle.
-« Le vaisseau a pris le premier. »
+Sans détourner les yeux, Aka continua.
 
-A ces mots,
-une sensation de fraîcheur descendit lentement le long de la colonne vertébrale de Jiwoo.
+« C'est pas nous qui avons pris le chemin. »
 
-Le vaisseau s'est accroché le premier.
+Après s'être arrêtée un instant, elle parla.
 
-C'était une phrase qui bouleversait toute la manière dont ils avaient traité ce vaisseau.
+« C'est le vaisseau qui a saisi le premier. »
 
-Jusqu'à présent, cela avait toujours été le contraire.
-Les gens ont tenu.
-Les gens se sont liés.
-Les gens l'ont forcé vivant et l'ont traîné ici – c'est ce que tout le monde croyait.
+Quelque chose de froid descendit lentement le long du dos de Han Jiwoo.
 
-Mais que vient-il de se passer
-on aurait dit que quelque part à l'intérieur de cette vieille coque,
-une couche qui lit les chemins avant les gens
-s'était brièvement réveillé.
+Le vaisseau avait saisi le premier.
 
-demanda Seorin, calmement.
+Ces mots renversaient toute la manière dont ils avaient traité ce vaisseau jusque-là.
 
-« Alors, quel était ce vaisseau, exactement ? »
+Jusqu'ici, c'était l'inverse. Ils avaient cru que des gens avaient tenu, que des gens avaient recollé, que des gens l'avaient maintenu en vie de force pour le traîner jusqu'ici. Toute la corne restée sur les mains de Han Jiwoo était le prix de cette croyance.
 
-Encore une fois, personne ne répondit facilement.
+Or ce qui venait de se passer ressemblait plutôt à quelque chose, quelque part dans cette coque, qui lisait le chemin avant les gens et s'était réveillé un instant.
 
-Luhai baissa les yeux vers le sol une fois
-et dit, très bas.
+Seorin posa doucement la question.
 
-« Ce n'est pas un travail de patchwork Hazran, je suppose. »
+« Alors, ce vaisseau, c'était quoi au juste ? »
 
-Cette seule phrase ne ressemblait pas à une blague.
-C'était plus proche de la peine minimale
-tout le monde ici était à peine d'accord sur
-parce que personne n’osait lui donner un nom plus grand.
+Cette fois encore, personne ne sut répondre facilement.
 
-L'extérieur minable.
-Les traces de coutures.
-Le cadre cassé.
+Luhai baissa une fois les yeux vers le sol et dit tout bas :
 
-Rien de tout cela n’était un mensonge.
-Mais ce n’était pas non plus toute la vérité.
+« C'était pas un rafiot rapiécé de Hazran, en fait. »
 
-Au-dessous de tout,
-un ordre bien plus ancien dont personne ne savait encore qu'il était caché.
-Et tout à l'heure,
-cet ordre avait révélé pour la première fois son propre type de mouvement.
+Cela ne sonnait pas comme une plaisanterie.
+
+C'était la phrase minimale sur laquelle les gens présents pouvaient tout juste s'accorder, faute de savoir lui donner un nom plus grand.
+
+En l'entendant, Sion regarda vers le sol.
+
+Huit personnes de Hazran étaient collées à la paroi. Elles avaient penché avec le vaisseau, et depuis que le calme était revenu, elles n'avaient rien dit.
+
+L'une d'elles se leva lentement et marcha jusqu'au sol nu devant ce panneau.
+
+Elle s'arrêta là. N'alla pas plus loin.
+
+Puis elle inclina la tête une fois.
+
+Sion vit ce geste.
+
+C'était un salut. À qui, Sion ne le savait pas non plus. Au vaisseau, à ce qui restait dedans, ou bien à Hazran.
+
+La personne regagna bientôt sa place et se rassit. Personne ne demanda ce que c'était.
+
+Sion retint encore une fois ses questions.
+
+Ces gens en savaient plus qu'eux sur ce vaisseau. Mais ils n'avaient pas l'intention d'en parler maintenant, et ce n'était pas le moment de les presser.
+
+Sion alla vers Aka.
+
+« Hier, tu as dit que si on lui donne un nom, c'est fini. »
+
+Aka ne quittait pas cet endroit des yeux.
+
+« Ce que tu viens de dire, c'est pas un nom ? »
+
+Aka secoua la tête.
+
+« Ça, c'est pas un nom. »
+
+« Alors c'est quoi ? »
+
+« C'est ce qu'il a fait. »
+
+Sion ne saisit pas tout de suite la différence. Il comprit un peu plus tard.
+
+Aka n'avait pas dit ce que c'était. Elle avait seulement dit ce que cela avait fait. Un nom se colle à une chose ; ce qu'elle venait de dire, c'était ce que la chose avait fait.
+
+C'étaient donc des mots qui ne refermaient encore rien.
+
+Ce n'est qu'alors que Sion comprit que c'était la même façon de faire que Han Jiwoo, la veille, laissant telle quelle la ligne vide de sa liste. Laisser vide, écrire *pas encore*, ne dire que ce qui a été fait. Trois façons de ne pas clore.
+
+L'extérieur miteux, les traces de raccords, les cadres brisés.
+
+Ce n'était pas un mensonge. Mais ce n'était pas tout.
+
+En dessous, il y avait un ordre plus ancien que personne ne connaissait encore, et tout à l'heure, pour la première fois, il avait bougé à sa propre manière.
 
 ---
 
-À l’intérieur du vaisseau de suivi de l’Empire, les mêmes phrases se répétèrent pendant un moment.
+À bord du vaisseau de traque de l'Empire, les mêmes phrases firent un moment l'aller-retour.
 
-« Reconfirmez la dernière trajectoire. »
-« Négatif. »
+« Revérifiez la dernière trajectoire. »
+
+« Rien. »
+
 « Signal résiduel. »
-« Négatif. »
 
-Le commandant resta longtemps silencieux.
+« Rien. »
 
-La dernière trace à l'écran
-a été interrompu sans la suite qui aurait dû être là.
+Le commandant resta longtemps sans rien dire.
 
-Aucun précurseur pour un saut.
-Aucun bruit résiduel pour une cape.
-La pause était trop nette pour une défaite.
+À l'écran, la dernière trace était coupée net, sans suite.
 
-Il parlait très lentement.
+Pour un saut, il n'y avait eu aucun signe avant-coureur,
+pour une dissimulation, il manquait le bruit qui aurait dû rester,
+pour une perte, la coupure était trop nette.
 
-« Qui a classé cette coque comme un vaisseau de fortune Hazran. »
+Il parla très lentement.
 
-Personne n’a pu prendre la parole tout de suite.
+« Qui a classé cette coque comme un rafiot rapiécé de Hazran ? »
 
-Cela y ressemblait depuis le début.
-Délabré.
-Aucun enregistrement.
-On aurait dit un vaisseau d'évacuation construit à la hâte.
+Personne ne put ouvrir la bouche tout de suite.
 
-Ils avaient donc ajouté un suivi,
-mais maintenu l'évaluation à un niveau bas.
+C'était bien ce qu'il avait paru dès le début. Misérable, sans registre, on aurait dit un vaisseau d'évacuation bricolé à la hâte.
 
-Le prix à payer pour cela les regardait maintenant en face.
+Si bien qu'on l'avait pris en chasse, mais qu'on lui avait accordé peu de poids.
 
-Le commandant parlait à voix basse.
+Le prix de cette erreur était maintenant sous leurs yeux.
 
-« Réviser l'évaluation. »
+« Révise l'évaluation. »
+C'était le commandant.
 « À partir de maintenant, c'est une coque non identifiée. »
 
+L'officier des registres corrigea l'entrée.
+
+C'était le registre où, quelques jours plus tôt, la même main avait écrit *inconnu* au lieu du nombre de personnes. Cette fois, le même mot entra aussi du côté du vaisseau.
+
+Au même moment, du côté du réseau de surveillance de l'Alliance, c'était à peu près pareil.
+
+Kanus Han, même après avoir écouté le rapport jusqu'au bout, ne referma pas le dossier pendant un moment.
+
+« Ce n'est pas qu'on n'a pas réussi à suivre. »
+Elle le dit à voix basse.
+« Il serait plus juste de dire qu'au départ, on ne savait pas ce qu'on regardait. »
+
+La salle de réunion se tut.
+
+« Ça devait ressembler à un vaisseau minable. »
+Kanus poursuivit.
+« Alors tout le monde a dû se rassurer. »
+
+Du bout des doigts, elle tapota la table, de façon presque imperceptible.
+
+« Mais à l'instant où il a trouvé sa direction, il est sorti de notre champ de vision avant tout le reste. »
+
+Ce n'était pas un rapport d'erreur. Cela tenait plutôt d'un avis de révision de jugement.
+
+« À partir de maintenant, ne classez plus les choses d'après leur forme visible. »
+
+Puis Kanus reprit la feuille qu'elle avait poussée de côté quelques jours plus tôt.
+
+La feuille où étaient inscrits les morts et les disparus. Celle qu'elle avait appelée des chiffres clos.
+
+Cette fois, elle ne la referma pas et la lut jusqu'au bout.
+
 ---
 
-Du côté de la surveillance de l’Alliance, l’ambiance était similaire.
+Les gens à bord ne savaient pas qu'ils venaient d'ébranler en même temps les jugements de l'Empire et de l'Alliance.
 
-Kanus Han écouta le rapport complet et ne referma pas le dossier pendant un long moment.
+Mais ils savaient une chose.
 
-« Ce n'est pas que nous ne puissions pas suivre, »
-dit-elle à voix basse.
-« Il est plus exact de dire que nous ne savions pas ce que nous regardions en premier lieu. »
+Ce vaisseau ne ressemblait plus seulement à un vaisseau d'évacuation tout juste rafistolé à Hazran.
 
-La salle de conférence devint silencieuse.
+Sion sortit l'ongle, puis le rentra.
 
-Kanus continua sans détourner son regard vers la fenêtre.
+Il avait voulu tracer un trait de plus, puis y renonça. Ce qui venait de se passer ne pouvait pas se mesurer, et s'il traçait de force, le sens des deux premiers traits risquait de se brouiller lui aussi.
 
-« Cela ressemblait à un vaisseau en piteux état. »
-« Alors personne ne s’en est inquiété. »
+À la place, il effleura une fois du bout du doigt les deux traits déjà tracés.
 
-Elle tapota très légèrement la table du bout du doigt.
+Un demi-empan.
 
-« Mais dès qu’il a trouvé sa direction, il a disparu de notre champ de vision avant tout le reste. »
+C'était tout ce que ce vaisseau possédait en ce moment.
 
-Ce n’était pas un rapport d’erreur.
-C’était plus proche d’un avis de révision de jugement.
+La planète des machines était encore loin. Le sentiment d'être perdus dans l'immensité restait le même.
 
-« À partir de maintenant, » dit Kanus, « ne classez plus selon l’apparence. »
+Mais au milieu de ce désarroi, une chose était apparue.
 
----
-
-Les gens à l'intérieur du vaisseau
-ne savaient pas encore qu'ils venaient de bouleverser simultanément les évaluations de l'Empire et de l'Alliance.
-
-Mais ils savaient au moins une chose.
-
-Ce vaisseau
-il ne ressemblait plus à un simple vaisseau d'évacuation à peine assemblé pour survivre à Hazran.
+Ce vaisseau pouvait réagir le premier.
 
 Sion ferma les yeux, puis les rouvrit.
 
-Le sens de l'orientation n'avait pas complètement disparu.
-Au lieu de cela, de loin, très finement,
-il restait comme un grain qu'on pourrait rattraper la prochaine fois.
+La direction n'avait pas entièrement disparu. Elle demeurait au loin, très ténue, assez pour qu'on puisse la ressaisir la prochaine fois.
 
-La planète des machines était encore loin.
-Le fait du vide est resté inchangé.
+Sion s'adossa à la paroi.
 
-Mais maintenant,
-Un fait naquit dans ce vide : le vaisseau pourrait réagir en premier.
+Les seize étaient encore tous là, à l'intérieur. Dehors, on ne voyait rien ; derrière, c'était calme ; devant, c'était loin.
 
-Et avec ce seul fait,
-le voyage portant ce groupe
-avait déjà commencé
-d'une manière que personne n'avait imaginée.
+Mais une chose différait de tout à l'heure.
+
+Jusqu'ici, ce vaisseau n'avançait que si des gens le poussaient. Ce n'était plus le cas.
+
+Hazran avait fermé.
+
+Et ce que Hazran avait chargé et fait partir en fermant venait, pour la première fois, de bouger de lui-même, ici, dans ce vaisseau.
 
 ---
 

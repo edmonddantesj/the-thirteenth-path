@@ -35,7 +35,7 @@ Ceux qui distribuent de l'eau.
 Ceux qui rassemblent les enfants pour les calmer.
 Et ceux confirmant le décompte des nouveaux arrivés.
 
-Le comte.
+Le nombre.
 
 Cela est venu en premier.
 
@@ -74,13 +74,13 @@ Il mouilla ses lèvres sèches une fois et dit à peine.
 
 demanda la vieille machine.
 
-« Décompte actuellement confirmé. »
+« Et le nombre confirmé à présent ? »
 
 L'homme regarda derrière lui.
 
 Ses yeux comptant les visages survivants—
 ce regard ressemblait moins à une confirmation des gens
-et plutôt des absences touchantes, une à une.
+qu'à un geste qui touchait les absences, une à une.
 
 « Treize. »
 
@@ -95,9 +95,9 @@ mais ce chiffre restait bien trop clairement dans l’espace.
 Un peu plus tard,
 des réponses similaires sont venues d’autres groupes.
 
-« Vingt-trois à seize ans. »
-« Neuf heures moins cinq. »
-« Sept heures moins trois. »
+« De vingt-trois à seize. »
+« De neuf à cinq. »
+« De sept à trois. »
 
 Les chiffres étaient courts.
 Mais à mesure que ces mots courts s'accumulaient,
@@ -109,7 +109,7 @@ La perte entendue en chiffres
 a une façon de durer plus longtemps que de crier.
 
 Même sans dire comment quelqu'un est mort,
-Le nombre de personnes portées disparues était déjà déjà assez terrible.
+le nombre de places vides suffisait déjà à rendre la chose terrible.
 
 Aka regardait depuis longtemps deux enfants assis dans un coin.
 
@@ -136,11 +136,11 @@ Luhai la regarda.
 
 continua la femme, le visage décharné.
 
-« Plus tard vous saurez qui a disparu, »
-« plus les gens continuent de regarder aux mauvais endroits. »
-« Ils surveillent la porte. »
-Surveillez le couloir.
-Relevez-vous au bruit d'un seul pas tardif.
+« Plus on apprend tard qui manque,
+plus les gens continuent de regarder aux mauvais endroits. »
+« Ils regardent vers la porte,
+vers le couloir,
+et se relèvent au moindre bruit de pas un peu tardif. »
 
 Ces mots étaient silencieux,
 ce qui les rendait encore plus cruels.
@@ -153,7 +153,7 @@ pourquoi les gens ici avaient des visages si calmes.
 
 Pas parce qu’ils ne ressentent rien.
 Parce qu'ils ont enduré trop de choses,
-et ne peut plus supporter l'état de n'avoir rien confirmé.
+et ne peuvent plus supporter l'état de n'avoir rien confirmé.
 
 Ensuite,
 cria soudain un jeune humain, depuis le fond de la salle.
@@ -219,7 +219,7 @@ Un peu plus tard,
 dit Sern à Sion à voix très basse.
 
 « Ces gens ne perdent pas espoir. »
-« Ils parviennent à atteindre le point où l'espoir devient un mensonge. »
+« Ils gèrent d'avance le moment où l'espoir devient un mensonge. »
 
 Sion entendit cela et ne put répondre.
 

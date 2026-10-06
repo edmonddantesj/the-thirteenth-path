@@ -8,9 +8,9 @@ Plus l'équipe de reconnaissance s'enfonçait en profondeur, plus le regard de K
 
 Pas qui passait par là, mais où les choses se déroulaient. Pas quelles portes se sont complètement fermées, mais quels points ont ralenti en premier.
 
-Serakion ne ferme pas tout d'un coup. Cela fait le contraire.
+Serakion ne ferme pas tout d'un coup. C'est même le contraire.
 
-Il laisse les choses ouvertes, puis se ferme juste assez, juste au moment où il est vraiment trop tard.
+On laisse les choses paraître ouvertes, puis on ne ferme que juste ce qu'il faut, au moment où il est vraiment trop tard.
 
 Ainsi, ceux qui tentent de s'échapper se rendent toujours compte un instant plus tard de l'endroit où ils ont été enfermés.
 
@@ -18,7 +18,7 @@ Kael étudia les fines fentes d'observation, les joints cachés près du plafond
 
 La deuxième main de récupération le remarqua et demanda bas.
 
-« Qu'est-ce que tu regardes. »
+« Qu'est-ce que vous regardez. »
 
 Kael répondit sans détourner son regard.
 
@@ -70,7 +70,7 @@ demanda Ater à côté de lui.
 
 Kael répondit brièvement.
 
-« Un gros problème. Bloquer les troupes signifie que vous avez l'intention de vous battre. Couper le flux signifie que vous avez l'intention de vous disperser. »
+« Une grande. Bloquer les troupes, c'est vouloir se battre. Couper le flux, c'est vouloir les disperser. »
 
 C’était si précis que Jiwoo comprit immédiatement.
 
@@ -126,7 +126,7 @@ Bref silence.
 
 Ce n’était pas exagéré. C'était plus proche de la description la plus réaliste de ce monde.
 
-Serakion vous fait toujours comprendre qu'il est trop tard. Et une fois que vous êtes en retard, le corps humain ne peut plus suivre la structure.
+Serakion vous fait toujours comprendre trop tard. Et une fois que vous êtes en retard, le corps humain ne peut plus suivre la structure.
 
 Sachant cela, le combat dans l'esprit de Kael était en train de passer d'une simple collision à une technique permettant de gagner du temps et de retarder les replis.
 
@@ -134,7 +134,7 @@ Ce que vous bloquez n'est pas un mur. C'est l'heure de fermeture. Ce que vous ou
 
 Jiwoo entendit cela et murmura très bas.
 
-« Il ne s'agit pas de retirer les gens. Il s'agit de les faire sortir avant le bercail. »
+« Il ne s'agit pas de retirer les gens. Il s'agit de les faire sortir avant que tout ne se replie. »
 
 Kael fit un bref signe de tête.
 

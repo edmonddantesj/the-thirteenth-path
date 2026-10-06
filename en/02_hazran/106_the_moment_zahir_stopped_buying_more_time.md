@@ -1,186 +1,347 @@
 # Episode 106. The Moment Zahir Stopped Buying More Time
 
-After Harun held the corridor open on one knee
-and the fifth group's first three slipped through that gap,
-a very short silence fell inside Hazran.
+Twelve of the twenty minutes had passed when Zahir came down to the corridor.
 
-No one truly stopped.
-But everyone was feeling the same thing.
+Sion was sitting beside Harun then. He had been sitting there holding the water, and Harun still hadn't drunk it.
 
-This far.
+Zahir looked at Harun.
 
-No more going forward the same way, buying time.
+He looked for a long time.
 
-Sion felt that sensation
-drive into his body before anyone said it.
+Until now this man had never looked at anyone for long. Even when he set the placements, he looked once and spoke.
 
-Harun was still blocking the path.
-Sern and Ater still hadn't collapsed.
-Kael was still holding the left.
-The hull was still receiving people.
+"This is as far as it goes."
 
-But none of that
-guaranteed the next time anymore.
+Harun raised his head.
 
-Until just now, *one more time* was possible.
-From now on, even that *one more time*—
-no one could promise who would be alive to pay for it.
+"What is."
 
-Zahir was watching all of it.
+"The buying."
 
-Harun bleeding on one knee on the right.
-Sern and Ater filling that spot.
-Kael on the left, gripping the last layer of barrier.
-The people pressed against the hull.
-And Nasim, Seorin, Luhai, and Sion forcing them outside even so.
+Sion needed no time at all to understand those two words.
 
-He didn't linger on sentiment for even a moment.
+Everything Hazran had done so far was buying time. One barrier for one line, one arm for one hour, twelve hands for one hole. They paid the price and bought time.
 
-He said, very brief.
+"We're not buying anymore,"
+Zahir said.
 
-"This is it."
+Harun said nothing for a long while after he heard it.
 
-Those four syllables
-changed the entire battlefield once more.
-
-Nasim raised his head first.
-
-"Meaning what."
-
-Zahir spoke clearly this time.
-
-"No more buying."
-He said, low.
-"Attach the remaining people. Send those who leave first. Close the rear."
-
-That wasn't a simple speed adjustment.
-
-It meant ending the method they'd been using until just now—
-one more line, one more section, one more beat—
-right here.
-
-From now on, before holding,
-who to send and what to close comes first.
-
-Sion felt his chest drop.
-
-Yes.
-It had to be this way.
-But being right made it hurt more.
-
-Because it also meant
-the share of those who stay becomes far clearer from here.
-
-Nasim clenched his jaw.
-
-"Then the people left behind—"
-
-Zahir cut him short.
-
-"We make it so no one is left."
-
-Short and cold.
-
-But Sion understood the meaning.
-It wasn't about grabbing anyone and sacrificing them to the end.
-The opposite.
-From now on, to prevent anyone from being stranded,
-the people to pull and the spaces to close would be decided faster.
-
-Harun heard those words too.
-
-He was still catching his breath with one knee on the wreckage.
-When he heard Zahir, he exhaled something that was neither a laugh nor a breath.
+Then he let out a very low breath. It wasn't a laugh.
 
 "Finally."
-He said, low.
 
-Inside that one word
-were relief and self-mockery together.
+That one word closed Sion's throat.
 
-If told to buy more, he would have had to keep buying.
-But now that Zahir said no more buying,
-at last the end of this blood-price was in sight.
+This man had spent ninety-some hours buying time. He hadn't been waiting for someone to tell him to stop. He had kept buying because he was afraid no one ever would.
 
-Sern looked toward Harun and said, brief.
+"Then what do we do?"
+Sion asked.
 
-"Then please pull back now."
+Zahir was looking toward the board. The board couldn't be seen from here, but he looked that way anyway.
 
-This time Harun didn't deny it.
+"How many left?"
 
-He gave the faintest nod.
+"Two runs."
 
-Ater saw it and immediately re-read the front line.
+"Is there time to buy two?"
 
-"While you pull back, I will cover the right."
-He said.
-"Sern, leave only the rear reinforcement axis. Do not hold the front long."
+Sion did the math.
 
-Sern answered, brief.
+Twenty a run. The time it took the ship to go and come back. Twenty minutes for the hole to widen. Twelve of those twenty minutes had already passed.
+
+"No."
+
+"Then it's one."
+
+"But twenty-eight…"
+
+"Put twenty on and leave eight."
+
+Sion's breath caught at that.
+
+"And the eight?"
+
+"The eight go last, with the outsiders."
+
+When he heard that answer, it took Sion half a beat to realize what he had just heard.
+
+The outsiders.
+
+"Us?"
+
+Zahir didn't answer. Not answering was the answer.
+
+Nasim came over toward the corridor. His voice was cracked when he asked.
+
+"Down to one run?"
 
 "Yes."
 
-From the left corridor, Kael heard and called out almost simultaneously.
+"Then what about the eight?"
 
-"Folding one layer here too!"
+"I'll see that none get left."
 
-Zahir, without turning his head, said.
+Nasim stopped for a moment at that answer.
 
-"Fold it."
+Sion thought he had heard it wrong too. Because it sounded as if he meant to grab anyone at hand and use them up to the very end.
 
-No hesitation left now.
-Rather than forcing the collapsing to stay alive,
-the direction had fully shifted to folding what should fold quickly,
-making the remaining path sharper.
+But that wasn't it.
 
-The line before the hull changed with it.
+It meant he would decide faster who had to be pulled out and where had to be closed, so that no one would be left behind.
 
-Nasim wrung his voice and shouted.
+"You board last."
 
-"From now on, don't wait!"
-"Only the line that's boarding, attach!"
-"Anyone who can't board, pull back—only boarding moves forward!"
+"Is there a last?"
 
-Cruel.
-But this was no longer cruelty.
-It was the final organizing to save who could be saved.
+Zahir didn't answer that right away.
 
-Seorin wordlessly split the line in two.
-Those who climb.
-Those who fall back.
-The motion was so fast
-she looked like someone who had been preparing for this moment all along.
+Sion knew what that silence meant. For the last ship to lift, this place had to be standing until then. For it to stand, someone had to stand.
 
-Luhai ran between the two groups,
-separating those who truly couldn't walk
-from those who could but were frozen by fear.
-Sion filled the gaps between,
-turning the shoulders of people who kept looking back to face forward again.
+"Then make one,"
+Zahir said.
 
-Jiwoo noticed all the changes from the hull entrance.
+"Who?"
 
-"It's really happening."
-She said, low.
+"Me."
 
-Aka answered very quietly.
+At that answer Nasim took a step toward Zahir for the first time.
 
-"Now it goes."
+"And what will you do?"
 
-This time those words sounded
-less like sensing and more like a declaration.
+"Placement."
 
-Sion heard it and understood.
+"You've got no hands to place."
 
-What changed wasn't simply a tactic.
+"I do."
 
-Zahir had just
-shifted Hazran completely—
-from a city buying time to the very end
-to a city sending its people out for the last time.
+Then Zahir looked toward the corridor.
 
-And from that moment,
-the end of this battle
-finally began to come into view.
+"Abandon the corridor."
+
+Sion thought he had misheard those three words.
+
+"Abandon it?"
+
+"Yes."
+
+"Then they'll just walk in."
+
+"Let them."
+
+Harun pushed himself up against the wall. This time it took four tries.
+
+"That works."
+
+"What does?"
+Sion asked.
+
+Harun looked at the corridor once before he answered.
+
+"Right now they're hitting here because it's blocked."
+
+"Yes."
+
+"If we don't block it, this place turns into nothing."
+
+Only then did Sion understand.
+
+Ater had said something earlier. That they kept counting again where it paid most to strike. And that if you changed the price, they counted again.
+
+Abandon the corridor, and the corridor's price was gone.
+
+"Then where's the next price?"
+
+Zahir answered.
+
+"The ship."
+
+Sion's back went cold at that answer.
+
+"Then that's worse."
+
+"It is."
+
+"Then why…"
+
+"It takes them longer to reach the ship than to break through the corridor."
+
+Sion followed the calculation.
+
+The corridor was narrow and close. The ship was far, and the way there was strewn with collapsed walls and debris and fallen black things. While they counted that route again, time would open up.
+
+Zahir was spending the time the other side took to count.
+
+"How much do we get?"
+
+"Don't know."
+
+Zahir said that much.
+
+"But it's cheaper than buying it now."
+
+Harun took a step toward the corridor.
+
+Zahir spoke at once.
+
+"No."
+
+"What."
+
+"You're still trying to keep it alive."
+
+Harun stopped.
+
+"If I stand here…"
+
+"If you stand, they price this place again."
+
+Zahir didn't raise his voice. He had never once raised it.
+
+"As long as you're standing there, this stays an expensive spot."
+
+Harun had no reply to that.
+
+Nasim came to Zahir's side.
+
+"If we do it your way."
+
+"Yes."
+
+"What do I do?"
+
+"Line them up."
+
+"It's eight. That's not a line."
+
+"Then line up eight."
+
+Nasim said nothing for a moment at that answer.
+
+"A lifetime of putting prices on things, and at the end I line up eight."
+
+"The eight are the most expensive."
+
+Nasim laughed for the first time. No sound came out. His voice was gone, so none did.
+
+Sion felt something strange as he watched.
+
+Until now, Harun's holding on had kept this city alive, and Zahir had just said that same holding on now made a target. Both were right. Until yesterday the first was right; from today on, the second.
+
+"Pull back,"
+Zahir said.
+
+Harun didn't move.
+
+"Harun."
+
+"…All right."
+
+It took a long time for those two words to come out.
+
+Then Harun turned his back on the corridor. It was the first time in ninety-some hours.
+
+Sion watched that back.
+
+He walked slowly. He walked with his right hand on the wall, and his left arm had only been hanging there, attached, for a while now. But all the way out, with his back to the corridor, he never once looked back.
+
+That frightened Sion most of all. Not looking back is what you do when you know you won't be coming back to a place.
+
+Sion was still holding the water bowl. He ran ahead and stood in his way.
+
+"Drink it now."
+
+Only then did Harun take it. He drank one mouthful and gave it back.
+
+"There's some left."
+
+"The eight can drink it later."
+
+Sion couldn't lower the bowl.
+
+Three people had held this water bowl today, and all three had left their share. None of them had agreed on it with the others.
+
+"Tenth line,"
+Zahir said.
+"Now."
+
+Sion ran.
+
+The line was already formed. Of the twenty-eight, twenty were split into threes, and the other eight stood apart beside them. No one had decided who would be the eight, yet they had already divided.
+
+Sion looked at the eight.
+
+All of them were the hands that had been digging at the pile earlier. The backs of their hands were scraped raw, and two had no fingernails.
+
+There had been eleven earlier; now there were eight. Three had gone into the hole and two had come out, and one of those two couldn't stand now and sat off to the side.
+
+That no one had decided who would be the eight was wrong. It had already been decided. These people hadn't stood in line once all day.
+
+"Three."
+
+Three went up.
+
+"One. Two."
+
+The line counted along. The eight counted along too.
+
+Six groups of three. Two at the end.
+
+"Twenty."
+
+The ramp folded. The ship lifted.
+
+Twenty gone from twenty-eight. Eight.
+
+One run.
+
+Sion drew the tenth mark on the board.
+
+The short strokes beside it had stopped at five. No one had told him to keep counting them. The arm had come out, so there was no need to count anymore, but to Sion it felt closer to having stopped counting than to being over.
+
+And at the far right edge of the board was a line he had drawn earlier, meant to count nothing.
+
+Sion drew a mark there for the first time.
+
+Eight.
+
+The number who stayed behind. Until now the board had held only the numbers going out.
+
+And then a sound came from the corridor.
+
+The sound of the hole widening.
+
+Sion turned. No one was over there.
+
+One black thing came through the hole. It didn't snag. The second didn't snag either. Nor the third.
+
+Watching them come in, Sion saw one more thing.
+
+The front three weren't off.
+
+The first time Harun had used a barrier, the front three had each been thrown off by half a span. Because of the dust. The floating iron dust had fooled their eyes by half a span.
+
+Now the dust had all settled. It was on the floor, not in the air.
+
+The three came in side by side and stood side by side. Not off by even half a span.
+
+Only then did Sion understand exactly what this city had gained by cutting out its own heart.
+
+Half a span.
+
+That half a span was gone today.
+
+They came in one after another and stood inside the corridor.
+
+And there they stopped.
+
+No one was blocking them, and still they didn't come.
+
+Watching that, Sion called back what he had heard earlier. They were counting again.
+
+How long it took to get here, and what that would cost.
+
+Sion began to count the time they spent counting.
 
 ---
 

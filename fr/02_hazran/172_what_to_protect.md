@@ -42,7 +42,7 @@ L'adversaire était bien plus nombreux. Pourtant, pendant les premières seconde
 
 Luhai souffla :
 
-« C'est impossible... »
+« C'est impossible… »
 
 Ses mots n'avaient rien d'étrange.
 
@@ -92,7 +92,7 @@ Mais cette précision ne venait pas de la jouissance de massacrer. Elle ressembl
 
 Une ancienne machine murmura très bas :
 
-« Ça... »
+« Ça… »
 
 Mais ses mots n'allèrent pas plus loin.
 

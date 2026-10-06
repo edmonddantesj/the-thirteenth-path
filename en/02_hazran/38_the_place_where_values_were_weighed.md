@@ -1,244 +1,273 @@
 # Episode 38. The Place Where Values Were Weighed
 
-Walking inward following Harun and Nasim, the outer-layer market's air peeled away from the body bit by bit.
+As they followed Harun and Nasim inward, the air of the market's outer layer came away from their bodies a little at a time.
 
-On the surface it was an ordinary corridor connecting canopies and frames — but after a few turns, the sound changed first. If outside the noise layered into one market, inside it was sliced fine. Hammer strikes, iron dust being shaken off, brief haggling, a water drum lid closing, a laugh bursting once from somewhere far. All audible — but none tangling with each other. A place where who did what where was already organized.
+From the outside it looked like an ordinary passage threading between awnings and frames, but after a few turns the sound changed first. Out in the outer layer the racket had piled up until it sounded like one single market; in here, if anything, the noise was cut into small pieces. Hammering, iron filings being brushed off, short bouts of haggling, the lid of a water drum shutting, a laugh breaking out now and then somewhere far off. All of it could be heard, and none of it tangled. It felt like a place where who did what, and where, had already been sorted out.
 
-Sion found that difference more unsettling.
+Sion found that difference more uncomfortable.
 
-The outer layer's commotion at least felt like a living place. But this inside had order. And that kind of order usually formed when who could hold how much of what was already decided.
+The noise of the outer layer had at least felt like a place that was alive. But in here there was order. And order like that usually comes about when it has already been settled who can hold what, and how much.
 
-Nasim still walked ahead with a smiling face; Harun opened the way in silence. Luhai was still half-caught in Kael's grip — but not entirely dragged. Instead of looking for escape angles, the eyes were now memorizing the inner structure. Sion knew: kids like this did not give up — they remembered faster.
+Nasim still walked in front with a smiling face, and Harun only opened the way without a word. Luhai was still half held in Kael's hand, but he wasn't being dragged along outright. Instead of looking for an angle to run, his eyes were now trying to memorize how the inside was built. Sion knew that kids like this didn't give up; they remembered faster.
 
-Ater glanced at frames and walls they passed and said, very low.
+Ater glanced at the frames and wall panels they passed and spoke very low.
 
-"A warehouse."
+"It is a warehouse."
 
-Sion asked small.
+Sion asked quietly.
 
-"Not the market's inside?"
+"Not the inside of the market?"
 
-"Both."
+"Both,"
 Ater answered.
-"But not a place where anyone haggles like outside. The gathering, sorting, and holding side is stronger."
+"But it is not a place where anyone can haggle, as they do outside. Here the ones who gather, sort and hold things back are stronger."
 
-Kael said short.
+Kael spoke briefly.
 
-"A place that ties things down briefly until the price is set."
+"A place where things get tied up for a while till the price is set."
 
-Whether Harun heard that or not was unclear — but he slowed his step once, at an indiscernible pace. A brief reaction, but Sion did not miss it. Harun was also reading that Kael was not someone entirely unfamiliar with this floor.
+Harun slowed his step, just once, at a pace that made it impossible to tell whether he had heard. It was a small reaction, but Sion didn't miss it. It meant Harun was reading it too: Kael was not entirely new to this trade.
 
-What appeared at the corridor's end was not an open square.
+When they reached the end of the passage, the first thing they saw was not an open square.
 
-It was a wide workshop with a half-covered roof. Beneath a ceiling made of connected dead hull frames — long tables, low loading platforms, half-disassembled devices, sealed drums, metal crates stacked in layers. People were clearly many — but unlike the outer market, no one shouted. Each moved what they were responsible for, wiped, weighed, spoke briefly, and returned to hands. Here, hands seemed to work before voices.
+It was a wide workshop, half roofed over. Under a ceiling pieced together from hulk frames stood long tables, low loading racks, half-dismantled machines, sealed drums and metal crates, stacked in tiers. There were plenty of people, clearly, but they didn't shout the way the outer market did. Each of them moved, wiped or measured whatever was theirs to handle, said a few words, and went back to their hands. Here the hands seemed to work before the voices did.
 
-Sion noticed several things at once.
+Sion noticed a few things right away.
 
-First — if precious materials like etherite circulated anywhere, an inside like this was the right fit.
-Second — why the name Aka was swallowed outside made slightly more sense. A name bound inside a structure like this — the moment it was spoken carelessly in the outer layer, it would enter inner ears regardless of who heard.
-Third — Luhai, upon seeing this inner structure, was not frightened but looking harder. That was not a good sign. Kids like this, the more scared they got, the more angles they looked for.
+First, if something as precious as Etherite was changing hands, an inner place like this actually made more sense.
+Second, he understood a little better why the name Aka had been swallowed outside. A name tied into a structure like this—say it carelessly in the outer layer, and whoever heard it, it would go straight to the ears inside.
+Third, the moment Luhai saw how the inside was built, he started looking harder instead of getting scared. That was not a good sign. A kid like that looked for an angle to steal harder the more frightened he got.
 
-Nasim turned, very slowly.
+Nasim turned around, very slowly.
 
-"Good."
-He said.
-"Now that the outside air is shaken off — let's talk like people."
+"Good,"
+he said.
+"Now that we've shaken off the outside air, let's talk like people in here."
 
-Seorin fired back.
+Seorin shot back.
 
-"If you'd planned to talk like people, you wouldn't have dragged us in from outside like that."
+"If you'd meant to talk like people, you wouldn't have dragged us in from outside like that in the first place."
 
 Nasim smiled.
 
-"Too many ears outside."
-He said.
-"In here, at least I get to see first how high the price climbs."
+"Too many ears outside,"
+he said.
+"In here, at least, I'm the first to see how high the price goes."
 
-"So what do you want to hear first."
+"So what is it you want to hear first?"
 Sion asked.
 
-Nasim looked as if he'd been waiting for that question — scanning Sion, Kael, Luhai, and the gear in Ater's hands in turn.
+As if he had been waiting for that question, Nasim looked at Sion, at Kael, at Luhai, and then at the equipment in Ater's hands, one after another.
 
 "In order?"
-He said.
-"Why you need etherite. Why you came knowing Aka's name. And why that child happened to grab the real thing and run today of all days."
+he said.
+"Why you need Etherite. Why you came knowing Aka's name. And why that kid, today of all days, grabbed the real one and ran."
 
 Luhai cut in at once.
 
-"I don't think I need to explain that."
+"I don't have to explain that one, do I?"
 
-"No."
-Harun cut.
-"You go first."
+"No,"
+Harun cut him off.
+"You have to go first."
 
-Luhai shut his mouth. Until now the mouth came first — but now it was different. Before Harun, the body already knew: add one more word and it could truly be severed.
+Luhai shut his mouth. Until a moment ago his mouth had always come first; now it was different. His face said his body already knew: in front of Harun, one more word and he could really be cut off.
 
-Seorin looked at Sion once first.
+Seorin glanced toward Sion first, once.
 
-Sion nodded, brief.
+Sion gave a short nod.
 
-Having entered this far, they could not hide completely. But there was no need to put everything forward first either. Only as much as needed — but without lies. That was the way to look least weak right now.
+Having come this far in, they couldn't hide it all. But there was no need to put everything on the table first, either. Only as much as needed, but no lies. That was the way to look least weak right now.
 
 Sion spoke first.
 
-"Ship's near-dead."
-He said.
-"Crash-landing nearly killed the axis. Fake etherite and it ends faster."
+"Our ship's about to die,"
+he said.
+"The crash landing nearly wrecked the axis, and if we fit fake Etherite it'll go even faster."
 
 Nasim asked.
 
-"Where's the ship."
+"Where's the ship?"
 
-"That's for later."
-Seorin cut.
+"That's for later,"
+Seorin cut in.
 
-Nasim did not push. Instead he tilted his head once with a smile. Not the type who forced immediately — the type who knew that what was not pushed now would eventually be spoken later.
+Nasim didn't bother pushing it. He only tilted his head once, still smiling. He wasn't the type to force things right away; he was the type who knew that some things didn't need pushing now, because people ended up saying them later anyway.
 
 Ater added quietly.
 
-"We needed a hand that could distinguish real from fake. That is why we looked for the name."
+"We needed a hand that could tell the real from the fake. So we looked for a name."
 
-Harun received that.
+Harun took it from there.
 
 "Aka."
 
-Short silence.
+A short silence.
 
-"Yes."
+"Yeah,"
 Sion said.
-"Someone left that name for us."
+"Someone left us that name."
 
-Nasim reduced his smile just slightly.
+Nasim's smile shrank, just a little.
 
 "Left it?"
-He asked.
+he asked.
 "Not sold it."
 
-"You'll need to tell us more first before we know that."
+"You'll have to tell us more first before we'd know that,"
 Seorin answered.
 
-Harun heard that exchange and did not change expression. Instead, for the first time, he looked properly at Luhai.
+Harun heard the whole exchange without changing his expression. Instead, for the first time, he properly looked at Luhai.
 
 "You."
 
-Luhai avoided his gaze briefly, then raised it again. The way of someone who knew this was not an opponent you could hide from by not looking.
+Luhai looked away for a moment, then raised his eyes again. He seemed to know this wasn't someone you could hide from by looking away.
 
-"I just grabbed it."
-He said.
+"I just grabbed it,"
+he said.
 
-Harun stepped one pace closer.
+Harun took a step closer.
 
-"Lie."
+"That's a lie."
 
-Luhai bit the inside of his lip briefly. Sion saw that face and knew. This child was not fully caught — but searching for the right words to reduce.
+Luhai chewed the inside of his lip, briefly. Sion could tell from that face. The kid hadn't been fully caught; he was hunting for a way to say less.
 
-"Not completely just."
-Luhai said, reluctantly.
-"It was playing too dead among the fakes."
+"Not just like that,"
+Luhai said reluctantly.
+"It was playing dead too hard, in among the fakes."
 
 "And?"
 Harun asked.
 
-Luhai was silent briefly, then said, lower.
+Luhai was silent a moment, then said it lower.
 
-"And today, the line where goods move out from inside was a bit off."
+"And today the line where goods go out from the inside was kind of strange."
 
-Sion's gaze shifted — barely.
+Something in Sion's eyes shifted, barely.
 
-That was important. Deeper information than a simple attempted theft. Luhai was not a child who got caught trying to steal — but one who had been peering at the inner flow itself.
+That wasn't what a kid caught stealing would say.
 
-Nasim seemed to understand too.
+Nasim seemed to have caught it too.
 
 "Who taught you that?"
-He asked, smooth.
+he asked gently.
 
-"Nobody."
+"Nobody,"
 Luhai answered at once.
-"You just see it when you look at the ledgers."
+"You just look at the ledger and it shows."
 
-The alley's air paused.
+Nasim put a little of his smile away.
 
-This time not only Sion felt it. Ater, Kael, Seorin, Nasim, Harun — all felt that the word *ledgers* landed with a different grain than a petty thief's excuse.
+"Then take a look."
+
+Nasim pointed with his chin at the price board hanging at the end of the next stall. Today's figures were still on it, half wiped away.
+
+Luhai took two steps over and looked at it. He didn't look long.
+
+"Third line here."
+
+"Why."
+
+"There's a mark left under where it was wiped. The number went down."
+
+"So what if it went down."
+
+"Every other line went up, and only this one went down."
+
+Luhai said it without taking his eyes off the board.
+
+"There's only one reason a seller drops a price. When they need to get rid of it fast."
+
+"Know whose stall it is?"
+
+"No. I don't need to."
+
+"Why."
+
+"Because if only that line goes down, something's slipping out of there."
+
+The air in the workshop stopped for a moment.
+
+This time it wasn't only Sion who felt it. Ater, Kael, Seorin, Nasim, Harun. All of them felt that the word *ledger* had not landed like a petty thief's excuse.
 
 Nasim smiled, very slowly.
 
-"Ah."
-He said.
-"So you're that kind of kid."
+"Ah,"
+he said.
+"So that's the kind of kid you are."
 
-Luhai did not look pleased at that. Closer to the face of someone whose value had been read too quickly.
+Luhai didn't look glad to hear it. If anything, he looked like someone whose price had been found out too soon.
 
-Sion felt, in that moment, another piece of the puzzle fitting.
+In that moment Sion felt one more piece of the puzzle click into place.
 
-Luhai was not simply a child with fast hands.
-Reading records and flows,
-picking out the not-dead among fakes,
-seeing the days when ledger lines moved strangely.
+The most quietly dangerous one here had just turned out to be that kid.
 
-That might be the most quietly dangerous ability at this table right now.
+Harun spoke very low.
 
-Harun said, very low.
+"So that's why you put your hand on the inside goods."
 
-"So you touched inside goods."
+This time Luhai didn't answer.
 
-Luhai did not reply this time.
+Instead, Nasim went on, more softly.
 
-Instead Nasim continued, smoother.
+"Good. Then the sums change a bit,"
+he said.
+"The outsiders need Etherite, and they came carrying Aka's name. And this kid reads ledgers."
 
-"Good. Then the calculation changes a bit."
-He said.
-"The outsiders need etherite and came carrying Aka's name. And this kid reads ledgers."
+Sion knew that one sentence was the sound of the four of them and Luhai being tied onto a single line.
 
-The instant that summary ended, Sion felt these people were no longer seeing them as separate.
+In the outer layer it had been three separate matters. In here it had become one item.
 
-Now they were one bundle.
-A bundle where problems, prices, and possibilities mixed.
-
-What had looked like coincidence on the outer layer — entering the inside, it was all connecting into one line.
-
-Seorin asked low.
+Seorin asked, low.
 
 "So."
 
-Nasim did not answer before Harun this time. Instead he glanced aside, very brief. That gaze meant: who made the final decision was already settled.
+This time Nasim didn't answer ahead of Harun. Instead he glanced to the side, very briefly. That glance meant it was already settled who made the final call.
 
-Harun said.
+Harun spoke.
 
-"Taking them."
+"We take them."
 
-Short silence.
+A short silence.
 
-Luhai reacted at once.
+Luhai reacted immediately.
 
 "Where."
 
-Harun did not even look at him.
+Harun didn't even look at him.
 
-"Shut your mouth and come — somewhere less annoying."
+"Somewhere less of a hassle, if you keep your mouth shut on the way."
 
-"That's not reassuring at all."
+"That doesn't make me feel any better at all,"
 Luhai muttered.
 
-Kael said, very low.
+Kael spoke very low.
 
-"Be quiet."
+"Keep it down."
 
-Sion looked deeper inside along with those words.
+With that, Sion looked deeper inside.
 
-Behind the workshop — another section screened by canopy and frame. Quieter than the outer layer, fewer people, but every hand that passed through moved with purpose. If there was a place where etherite, Aka, Luhai's ledger-reading, and all of it would be pulled in at once — it would be there.
+Behind the workshop was another section, screened off by awnings and frames. Quieter than the outer layer, fewer people, and every hand that went in and out of it moved with purpose. If there was a place where Etherite and Aka and Luhai's ledger could all be pulled in at once, it would be there.
 
-And somewhere in that inside — the person who truly held this floor's board would be there.
+And somewhere in there would be the person who truly held the board down here.
 
-Sion pressed the paper inside his jacket once more.
+Sion thought again about how Luhai had just read the board.
 
-*Hazran.*
-*Aka.*
+He'd said he didn't need to know whose stall it was. That if one line went down, he could tell something was slipping out.
 
-The two words still had no explanation.
+Sion looked at what he had the same way.
 
-But one thing was clear now.
+**Hazran** was a place. They'd come here, so it was half used up.
 
-## The path to finding this name had no choice but to pass through the very center of where values were weighed.
+**Aka** was not a place.
+
+Elia had written the two side by side. Writing them side by side meant writing them with the same weight. Then both ought to be places, but what he'd seen today said the second one was a person.
+
+On the same line, one place and one person, side by side.
+
+He didn't know yet why they weighed the same. Still, today he had pinned down where the not-knowing was.
+
+That the road to finding this name would, in the end, have to pass through the very middle of the place where values were weighed.
 
 ---
 

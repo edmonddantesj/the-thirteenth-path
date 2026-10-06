@@ -1,154 +1,196 @@
 # Chapitre 28 — Ce qui s'ouvre sans nom
 
-Le discriminateur mourant ne se ralluma qu'un instant.
+Le discriminateur mourant ne revint à la vie qu'un très bref instant.
 
-Un mince filament de lumière résiduelle effleura la surface du fragment le plus grand, et le métal dans la main de Kael vibra sourdement. Cette vibration n'était pas une simple réaction. C'était le signal que des choses qu'on pouvait encore raccorder ici existaient vraiment, encore. Les archives tranchées, les fragments épars, la lumière résiduelle du lieu — et jusqu'aux gens debout là, côte à côte, sans se faire entièrement confiance. Le tout cherchait à s'imbriquer de nouveau sur une seule ligne, pour un instant.
+Un faible éclat de lumière résiduelle effleura la surface du plus grand fragment, et le grain du métal, dans la main de Kael, vibra sourdement. Cette vibration n'était pas une simple réaction. C'était le signe qu'il restait vraiment, ici et maintenant, des choses que l'on pouvait encore raccorder. Les archives tranchées, les débris laissés derrière, la lumière résiduelle du lieu, et jusqu'aux gens qui se tenaient côte à côte sans encore se faire entièrement confiance. Tout cela, à grand-peine, cherchait à s'emboîter de nouveau sur une seule ligne.
 
 Ater reprit son souffle, très lentement.
 
 « Maintenant. »
 
-Sion avait déjà les yeux fixés sur le filament de lumière résiduelle le plus mince encore vivant à l'intérieur. Le grain infime qui subsistait sur la paroi de la structure était plus instable que tout à l'heure, mais pas mort tout à fait. Une ligne pareille au dernier nerf de ce qui avait été un chemin — mais n'était plus qu'un souvenir de chemin. Cette ligne devait toucher le fragment le plus grand que Kael tenait en main.
+Sion avait déjà le regard rivé sur le filament de lumière résiduelle le plus mince, encore vivant, tout au fond. Le grain infime qui subsistait sur la paroi de la structure était plus instable que tout à l'heure, mais pas tout à fait mort. Pas un chemin : une ligne pareille au dernier nerf de ce qui avait été un chemin. Cette ligne devait toucher le grand fragment que Kael tenait en main.
 
 Sern dit à voix basse :
 
-« Un demi-temps sur la gauche. Posez-le d'un coup, ça repart en arrière. »
+« Un demi-temps de retard, sur la gauche. Si vous le posez directement, il rebondira. »
 
-Kael entendit ces mots et inclina très légèrement le fragment. Pas un geste de virtuose. Le réglage minimal que seul quelqu'un connaissant le poids pouvait faire. Pendant qu'il bougeait, Sion suivait la cadence du tremblement de la lumière résiduelle, et Ater regardait sous quel angle la ligne d'approbation tranchée pouvait se rattacher.
+Kael l'entendit et inclina très légèrement le fragment. Rien de spectaculaire. Le réglage minimal dont seul était capable quelqu'un qui connaissait le poids des choses. Pendant qu'il bougeait, Sion suivait la vitesse à laquelle tremblait la lumière résiduelle, et Ater cherchait sous quel angle la ligne d'approbation tranchée pourrait se rejoindre.
 
-Par le canal proche, la voix de Han Jiwoo effleura brièvement.
+Par le canal proche, la voix de Han Jiwoo passa, furtive.
 
 « La réaction monte. »
 
 Seorin coupa aussitôt.
 
-« On finit d'un seul coup. »
+« Finis d'un seul coup. »
 
-Après ça, les mains parlèrent avant les mots.
+Ensuite, les mains passèrent avant les mots.
 
-Au lieu de pousser le fragment directement dans la rainure, Kael en accrocha d'abord un seul bord. Sion comprit immédiatement pourquoi il n'avait pas enfoncé d'un coup. Insérer complètement aurait pu tuer la réaction. Ce qu'il fallait maintenant, ce n'était pas une insertion — c'était un contact. La première mise en présence pour que les grains qui restaient se reconnaissent entre eux.
+Au lieu d'enfoncer le grand fragment dans la rainure, Kael n'en posa d'abord qu'un seul bord. Sion comprit aussitôt pourquoi il ne l'insérait pas directement. L'enfoncer complètement risquait de tuer la réaction. Ce qu'il fallait maintenant, ce n'était pas une insertion mais un contact. Un affleurement qui permette aux grains restants de se reconnaître.
 
-Ater dit, presque comme un souffle :
+Ater dit, presque dans un souffle :
 
-« Bien. Comme ça. »
+« Comme ça. »
 
 Sern ajouta presque en même temps :
 
 « Maintenant. »
 
-Sion tendit brièvement la main le long du dernier filament de lumière résiduelle. Ses doigts ne le touchèrent pas directement. Mais en lisant la direction de la lumière infime qui coulait sur la surface du métal puis se rompait, il découpa des yeux l'espace de combien le fragment devait encore bouger.
+Sion tendit la main le long du dernier filament de lumière résiduelle. Ses doigts ne le touchèrent pas. Il lisait seulement la direction de la lumière infime qui courait sur le métal puis se rompait, et taillait d'abord des yeux l'écart dont Kael devait encore déplacer le fragment.
 
 « Deux crans à droite. »
 
 Kael obéit sans poser de question.
 
-À cet instant, un motif qui était mort au centre du fragment se ralluma soudain.
+À cet instant, un motif mort au centre du fragment revint brusquement à la vie.
 
-De minces lignes se propagèrent comme une onde sur la vieille surface de métal, et une partie de la section d'approbation qu'on avait crue tranchée retrouva sa forme, brièvement. Ce n'était pas une restauration complète. Mais le fait qu'un circuit rompu avait respiré une fois encore — ça suffisait.
+De fines lignes s'étendirent sur la vieille surface métallique comme une encre qui se répand, et une partie de la section d'approbation qu'on croyait arrachée retrouva, très brièvement, sa forme. Ce n'était pas une restauration complète. Mais qu'un circuit rompu eût respiré une fois de plus suffisait.
 
-De l'intérieur de la structure monta une vibration sourde.
+Une vibration sourde monta de l'intérieur de la structure.
 
-Lointaine et faible au début, elle devint bientôt assez nette pour passer par les semelles. La vibration d'un dispositif qui était mort depuis longtemps et se remettait en marche — portant à la fois la bienvenue et l'inquiétude.
+Lointaine et faible d'abord, elle devint vite assez nette pour se transmettre sous leurs pieds. Au bout de cette secousse, quelque part du côté de l'anneau extérieur, on entendit un verrou se libérer. Personne n'avait le loisir de regarder par là. C'était le tremblement que produit un dispositif longtemps mort lorsqu'il se remet en marche, chargé à la fois de soulagement et d'inquiétude.
 
-La voix de Sern s'assombrit brusquement.
+La voix de Sern baissa d'un coup.
 
 « Le temps de maintien est court. »
 
-Ater lisait déjà les lignes de motif qui s'élevaient sur le fragment.
+Ater lisait déjà les lignes du motif qui affleuraient sur le fragment.
 
 « Ce ne sont pas des coordonnées. »
-Il dit calmement.
-« C'est un ordre d'approbation antérieur aux coordonnées. »
+Sa voix était calme.
+« C'est un ordre d'approbation, antérieur aux coordonnées. »
 
 Sion demanda aussitôt :
 
-« En un mot. »
+« En un mot ? »
 
-« Ce chemin a été dissimulé non pas par sa position, mais par l'ordre de passage. »
+« Ce chemin n'a pas été caché par sa position, mais par son ordre de passage. »
 Le regard d'Ater ne quittait pas le motif.
-« Ce qu'ont tranché en premier ceux qui ont effacé les noms, c'est aussi cet ordre-là. »
+« Et c'est aussi cet ordre que ceux qui ont effacé les noms ont tranché en premier. »
 
-Court silence.
-
-La phrase était trop importante pour qu'on puisse y répondre immédiatement.
-
-Ce qui venait d'apparaître n'était pas une position — c'était un ordre.
-
-Kael dit tout bas :
+Kael dit très bas :
 
 « Voilà pourquoi chercher le nom seul n'ouvrait rien. »
 
-Ater, au lieu de répondre, lut une ligne de plus en bas du motif. À cet instant, son regard changea, imperceptiblement.
+Au lieu de répondre, Ater lut une ligne de plus, sous le motif. À cet instant, son regard changea, imperceptiblement.
 
-« C'est… »
+« Ceci… »
 
 Sion le regarda.
 
-« Quoi. »
+« Quoi ? »
 
-Ater dit très lentement :
+Ater parla très lentement.
 
-« L'autorité d'approbation n'est pas unique. »
+« Il n'y a pas qu'une seule autorité d'approbation. »
 
 Sern réagit le premier.
 
-« Une approbation plurielle ? »
+« Une approbation multiple ? »
 
 « Oui. Au moins deux. »
-Ater dit à voix basse.
-« L'une est une ligne d'approbation impériale, et l'autre… elle est tranchée, je ne peux pas en être certain, mais elle ne correspond pas davantage au système de l'Alliance. »
+Ater baissa la voix.
+« L'une est une ligne d'approbation impériale, et l'autre… elle est coupée, je ne peux pas en être certain, mais elle ne ressemble pas non plus au système de l'Alliance. »
 
-Le visage de Sion se ferma.
+Le visage de Sion se figea.
 
-Les doigts de Kael, serrant le bord du fragment, frémirent légèrement. Lui aussi touchait la même conclusion.
+Les doigts de Kael, crispés sur le bord du fragment, tremblèrent légèrement. Lui aussi arrivait à la même conclusion.
 
-Par le canal proche, la voix de Han Jiwoo grésilla :
+La voix de Han Jiwoo s'étendit, basse, sur le canal.
 
-« Dehors aussi, ça tourne mal. Les débris bougent. »
+« Dehors aussi, ça va mal. Les débris bougent. »
 
 Seorin enchaîna aussitôt.
 
-« Si vous n'avez pas fini à l'intérieur, vous coupez tout de suite. »
+« Si ça ne se termine pas à l'intérieur, vous coupez tout de suite. »
 
-À peine cet avertissement tombé, quelque part dans les entrailles de la structure, un déchirement métallique claqua brièvement.
+À peine l'avertissement tombé, un bref crissement de métal déchiré jaillit quelque part au fond de la structure.
 
-Sion releva la tête par réflexe.
+Sion leva la tête par réflexe.
 
-Le son venait de plus profond. Ce n'était pas une simple vibration née de la réouverture de la structure. Un son de frottement directionnel — comme quand quelque chose passe, ou quand quelque chose qui tenait se lâche. Le discriminateur venait de se rallumer, et d'autres parties fermées s'étaient mises à trembler avec lui.
+Le bruit venait de plus profond encore. Ce n'était pas une simple vibration due à la réouverture de la structure. C'était un frottement orienté, celui qui se produit quand quelqu'un passe, ou quand quelque chose qui tenait se relâche. En revenant à la vie, le discriminateur avait fait trembler avec lui d'autres parties restées fermées.
 
-Sern dit presque en même temps :
+Sern parla presque en même temps.
 
-« Un deuxième point de jonction s'éveille. »
+« Une autre jonction s'éveille. »
 
-La main de Kael se resserra.
+La main de Kael se raffermit.
 
-« Du bon côté ? »
+« Dans le bon sens ? »
 
-« Je ne sais pas encore. »
-Sern répondit.
-« C'est ça le pire. »
+« Je ne le sais pas encore. »
+Sern répondit d'une voix égale.
+« C'est bien pour cela que c'est pire. »
 
-Ater ravala un souffle court.
+Ater ravala son souffle.
 
-« Le bas du motif continue à s'ouvrir. Il faut tenir encore un instant. »
+« Le bas du motif s'ouvre davantage. Il faut tenir encore un peu. »
 
-Sion trancha aussitôt :
+« Stop. »
 
-« Kael, tu maintiens. »
-Puis, à Sern.
-« Si ça s'effondre, qu'est-ce qui part en premier ? »
+C'était Kael.
+
+Tous le regardèrent. La main qui tenait le fragment n'avait pas bougé. Seule sa voix avait changé.
+
+« Pourquoi ? » demanda Sion.
+
+« Ce qu'on a dit tout à l'heure. Si je dis qu'on s'arrête, on s'arrête. »
+
+« Sans raison ? »
+
+« J'en ai une. La réaction n'est plus la même que tout à l'heure. »
+
+Sern reporta aussitôt les yeux sur le terminal à son poignet.
+
+« D'après les chiffres, elle est identique. »
+
+« Pas les chiffres. » Kael ne lâcha pas le fragment. « C'est ce qui arrive dans la main qui change. Tout à l'heure, ça poussait. Maintenant, ça tire. »
+
+Ce fut Seorin qui parla la première.
+
+« Stop. »
+
+« Seorin— »
+
+« On avait dit qu'on s'arrêtait si un seul des deux le disait. Là, les deux l'ont dit. »
+
+Sion serra les dents. Le bas du motif était en train de s'ouvrir. S'arrêter maintenant, c'était peut-être le laisser se refermer.
+
+Pourtant, personne ne retira la main. Tous les quatre se figèrent seulement là où ils étaient.
+
+Pendant deux temps environ, il ne se passa rien.
+
+Puis, au fond de la structure, quelque chose s'affaissa d'un seul coup, lourdement. Dans la direction exacte où Kael s'apprêtait, un instant plus tôt, à pousser le fragment.
+
+« …Si on avait poussé », parvint à dire Sion.
+
+« Oui. »
+
+« Comment tu as su ? »
+
+« Je ne savais pas. C'était bizarre, c'est tout. »
+
+Alors seulement, Kael déplaça de nouveau le fragment, très légèrement. Cette fois, dans une autre direction.
+
+« Maintenant, allez-y. »
+
+Sion trancha aussitôt.
+
+« Kael, tu tiens. »
+Puis, à l'adresse de Sern :
+« Si ça s'effondre, qu'est-ce qui lâche en premier ? »
 
 « Le plancher auxiliaire de droite. »
 
-Avant même que la réponse s'achève, un bruit de rupture mat résonna depuis dessous cette plaque-là.
+Avant même la fin de la réponse, un craquement sourd monta sous cette plaque de métal-là.
 
-Kael pivota à demi sans lâcher le fragment. Ce mouvement était si naturel que Sion comprit, dans son corps, pourquoi cet homme-là avait survécu seul jusqu'ici. Ce n'était pas le mouvement de quelqu'un qui porte une lame — c'était le mouvement de quelqu'un qui reçoit avec son corps la direction d'où vient l'effondrement. Quand Kael tira la poignée métallique à sa ceinture comme pour la dégainer, une courte lumière résiduelle bleue effleura le bord, très rase.
+Kael pivota à demi sans lâcher le fragment. Le mouvement était si naturel que Sion comprit seulement alors, avec son corps, pourquoi cet homme avait tenu seul jusqu'ici. Ce n'était pas tant le mouvement de quelqu'un qui porte une lame que celui de quelqu'un qui reçoit avec son corps la direction de ce qui s'effondre en premier. Quand Kael tira la poignée métallique à sa ceinture comme on dégaine, une brève lueur bleue courut, à peine, le long de son tranchant.
 
-Il ne la fit pas tournoyer.
+Il ne la brandit pas.
 
-À la place, il la posa en appui court sur le bord du plancher auxiliaire qui s'affaissait.
+À la place, il la cala contre le bord du plancher auxiliaire qui s'effondrait.
 
-Le métal contre le métal résonna sauvagement. Ce n'était pas un maintien parfait, mais l'effondrement fut ralenti d'un demi-temps. Exactement ce qu'il fallait. Un demi-temps pour qu'Ater lise encore le motif, que Sion raccorde encore la lumière résiduelle, que Sern recalcule l'ordre du prochain effondrement.
+Le choc du métal contre le métal retentit, rauque. Ce n'était pas un blocage complet, mais l'effondrement fut retardé d'un temps. Juste assez. Un temps pour qu'Ater lise encore le motif, que Sion raccorde encore la lumière résiduelle, que Sern recalcule l'ordre du prochain effondrement.
 
 Sion serra les dents.
 
@@ -158,77 +200,97 @@ Kael ne leva pas les yeux.
 
 « Pour l'instant, c'est un étai. »
 
-Réponse courte, mais un seul mot suffisait.
+Il était de ceux qui se servent d'un outil fait pour trancher, tel quel, pour soutenir.
 
-Ce n'était pas quelqu'un pour qui l'attaque et la défense étaient séparées. Quelqu'un qui se sert de ce qui tranche pour l'appuyer aussi. Quelqu'un qui ouvre les chemins, les bloque, les tient, et les coupe quand il le faut. C'est alors seulement que s'éclaira un peu mieux pourquoi Kael, qui était entré le premier, était encore en vie.
+Ater prit soudain la parole.
 
-Ater ouvrit la bouche soudainement.
+« Je l'ai vu. »
 
-« J'ai vu. »
+Tous les regards se tournèrent vers lui.
 
-Tous les regards convergèrent vers lui.
+En bas du motif, dans la partie encore morte un instant plus tôt, une phrase très courte venait d'apparaître. Ce n'était pas un enregistrement complet. Mais l'essentiel restait.
 
-En bas du motif, dans la partie qui était morte jusqu'à l'instant d'avant, une très courte phrase venait d'apparaître. Ce n'était pas un enregistrement complet. Mais l'essentiel était là.
+**Le nom ne prouve pas le passage.**
 
-`Le nom ne prouve pas le passage.`
+Et dessous, la ligne suivante, presque rompue.
 
-Et dessous, la ligne suivante, en train de se rompre presque.
+**Le chemin ne s'ouvre que lorsque l'ordre est juste.**
 
-`Seul l'ordre juste ouvre le chemin.`
+Ces deux lignes remirent en ordre tout ce qui s'était passé ici.
 
-Ces deux phrases réorganisèrent la totalité du lieu.
+Le nom seul ne suffisait pas. Ce qu'on avait tranché, ce n'était pas une personne, mais la possibilité même de reprendre ce chemin.
 
-Le nom seul ne suffisait pas. Ce qui avait été tranché n'était pas une seule personne — c'était la possibilité elle-même de reprendre ce chemin.
+Seorin dit très bas :
 
-Par le canal proche, Seorin dit tout bas :
+« Maintenant, je comprends pourquoi le nom seul ne suffisait pas. »
 
-« Bien. Maintenant ça a du sens — pourquoi le nom seul ne fonctionnait pas. »
+Han Jiwoo ajouta :
 
-Han Jiwoo ajouta brièvement :
+« Sauf qu'on n'aura pas le temps de s'extasier longtemps, je crois. »
 
-« Sauf qu'on n'a pas le temps de s'en émerveiller longtemps. »
+C'était vrai.
 
-C'était juste.
+Sous le plancher auxiliaire que Kael soutenait, un autre craquement de métal éclata. L'étai ne tiendrait pas éternellement. Les deux lignes et le morceau de ligne d'approbation qu'ils venaient d'obtenir seraient peut-être tout ce qu'ils auraient.
 
-Sous le plancher auxiliaire que Kael retenait, un autre déchirement métallique explosa. L'appui n'était pas éternel. Les deux lignes et le fragment de ligne d'approbation qu'ils venaient d'obtenir étaient peut-être tout ce qu'il y aurait.
+Sern dit d'un ton ferme :
 
-Sern dit avec fermeté :
+« Il faut nous retirer. »
 
-« Il faut décrocher. »
-
-Ater, encore incapable de quitter le motif des yeux, demanda :
+Ater, sans pouvoir détacher les yeux du motif, demanda :
 
 « Et l'enregistrement ? »
 
-Sion répondit sans hésiter.
+Sion répondit aussitôt.
 
-« Il faut être vivant pour continuer à lire. »
+« Il faut vivre pour continuer à le lire. »
 
-Kael leva brièvement les yeux à ces mots. Cette fois, il ne sourit pas. À la place, une expression toute proche de l'assentiment traversa son visage, à peine.
+À ces mots, Kael leva les yeux. Cette fois, il ne sourit pas. Une expression proche de l'approbation traversa seulement son visage, à peine.
 
-Sion cria doucement :
+Sion lança à mi-voix :
 
-« Retirez le fragment. »
+« Retire le fragment. »
 
-Kael appuya et le fragment le plus grand se décrocha du bord de la rainure. Les lignes de motif s'affaiblirent aussitôt, et la faible lumière du discriminateur recommença à mourir. Mais il n'était pas trop tard.
+Kael força, et le grand fragment se détacha de nouveau du bord de la rainure. Les lignes du motif faiblirent aussitôt, et la pâle lueur du discriminateur recommença à mourir. Mais il n'était pas trop tard.
 
-Rien que ça, le lieu où ils se trouvaient était devenu un endroit entièrement différent de ce qu'il avait été au début.
+Cela seul suffisait : le lieu n'était déjà plus du tout celui du début.
 
 « En arrière. »
-Sion dit brièvement.
+C'était Sion.
 
-Sern fut le premier à trouver l'ordre des appuis qui n'avaient pas cédé, Ater récita une fois en lui-même les phrases lues, pour ne pas les laisser s'échapper, et Kael, laissant jusqu'au dernier instant le poids de son corps côté plancher auxiliaire, gagna le demi-temps qui permettrait aux trois autres de sortir, puis se dégagea à son tour.
+Sern repéra le premier l'ordre des appuis qui n'avaient pas cédé, et Ater se répéta une fois, du bout des lèvres, les phrases lues, comme quelqu'un qui craint de les laisser échapper. Kael laissa son poids sur le plancher auxiliaire jusqu'au bout, gagna le demi-temps dont les trois autres avaient besoin pour se dégager, et alors seulement il retira la lame calée sur le plancher et se dégagea à son tour.
 
-Et l'instant d'après, la partie de structure qu'ils retenaient encore s'effondra dans les profondeurs.
+Et l'instant d'après, la partie de la structure qui tenait encore s'effondra loin vers le bas.
 
-Le son de la chute fut long.
+Le bruit de la chute fut long.
 
-Même quand il se tut, personne ne parla tout de suite.
+Même après qu'il se fut tu, personne ne parla tout de suite.
 
-Ils savaient tous.
+Tous le savaient.
 
 Ce qu'ils venaient d'ouvrir n'était pas une simple porte.
-C'était la première preuve que l'ordre tranché avant les noms avait réellement existé.
+C'était la preuve qu'un ordre, tranché avant même les noms, avait réellement existé.
+
+Longtemps après, Seorin demanda dans le canal :
+
+« Tout le monde est vivant ? »
+
+« Oui. »
+
+« Combien ? »
+
+Sion n'avait pas besoin de compter, mais il compta. Lui, Ater, Sern, Kael.
+
+« Quatre. »
+
+« Alors, cinq. »
+
+« Six », intervint Han Jiwoo.
+
+« …C'est vrai. »
+
+Alors seulement, Sion rit une fois. Il n'y avait pas de quoi rire, et pourtant le rire était venu.
+
+Sous l'endroit qui venait de s'effondrer, il n'y avait toujours rien, et au-dessus, six personnes restaient.
 
 ---
 

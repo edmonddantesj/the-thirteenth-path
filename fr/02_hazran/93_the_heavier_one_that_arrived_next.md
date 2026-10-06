@@ -1,130 +1,297 @@
 # Chapitre 93 — Le plus lourd arriva ensuite
 
-Lorsque Sern dit que *quelque chose de lourd arrivait*, Sion crut d'abord qu'il parlait simplement du nombre.
+La première fois qu'il entendit dire que quelque chose de gros arrivait, Sion crut que cela voulait simplement dire plus nombreux.
 
-Ce n'était pas le cas.
+Ce n'était pas ça.
 
-Ce qui arriva cette fois différait non pas en nombre, mais en poids et en fonction.
+Ce qui arrivait cette fois différait moins par le nombre que par le poids et par le rôle.
 
-Le son métallique venu de l'autre côté du couloir extérieur droit différait nettement des lignes d'androïdes qui pénétraient dans le marché. Le rythme était plus lent. Mais chaque fois qu'il résonnait, il s'enfonçait dans le sol même.
+Le bruit de métal venu d'au-delà du couloir extérieur de droite était nettement différent des files qui s'étaient engouffrées jusque-là dans le marché. Le rythme était plus lent, mais chaque coup appuyait jusque sous le sol.
 
-Haroun le remarqua immédiatement.
+Sion reçut d'abord la vibration par la plante des pieds. Il se tenait sur la rampe, et ce n'était pas la rampe qui tremblait, mais le sable dessous.
 
-Pour la première fois, il jeta un coup d'œil en arrière, très brièvement.
+Ater dit brièvement :
 
-« Sern. »
+« Des unités de percée. »
 
-Sern répondit, faible.
+Pas besoin d'une longue explication.
 
-« Oui. Ce n'est pas une unité de première ligne. »
+Les files entrées jusque-là créaient des brèches, lisaient les directions, déchiraient case par case. Si des unités de percée entraient, cela voulait dire qu'elles allaient écraser ce calcul même par la force pour passer.
 
-Puis :
+« Alors les couloirs ne servent plus à rien. »
+C'était Sion.
 
-« C'est une unité de brèche. »
+« En effet. »
 
-Cela ne nécessita pas de longues explications.
+« Les barricades de Haroun aussi ? »
 
-Les lignes qui entraient jusqu'à présent étaient celles qui créaient des espaces, lisaient la direction et déchiraient une section à la fois.
+« Celles-là, de toute façon, ne servaient qu'une fois. »
 
-Mais si une unité de brèche entrait, cela signifiait écraser par la force tout ce calcul.
+Sion savait que cette réponse n'était pas un réconfort. Ater ne prenait pas la peine, en ce moment, d'adoucir les mauvaises nouvelles. Cela voulait dire qu'il n'en avait pas le temps.
 
-L'air à l'intérieur d'Hazran s'affaissa une fois de plus à ce simple mot.
+Han Jiwoo se redressa du côté de la paroi extérieure de la coque.
 
-Même Sion, occupé à la civière du deuxième groupe, eut l'impression que le poids sur ses mains s'était soudainement alourdi.
+« Si ça frappe ici, c'est fini. »
 
-Ils avaient à peine tenu jusqu'à présent. Et maintenant, la méthode même pour tenir risquait de se briser.
+En le disant, ses mains faisaient déjà la chose suivante. Elle coucha l'angle de la rampe d'un demi-empan de plus, resserra une jonction, et déplaça du pied la plaque de métal que Kael avait dressée tout à l'heure.
 
-Jiwoo leva aussitôt les yeux du mur de la coque.
+« Il en reste combien, déjà ? »
+C'était elle qui demandait.
 
-« Si cela arrive ici, c'est fini, » dit-elle à mi-voix.
+« Neuf. »
 
-Aka écoutait vers l'extérieur et avait cessé de respirer un bref instant.
+« Neuf. »
 
-C'était terrible. Mais étrangement, c'était aussi déchirant — insupportablement triste.
+Elle répéta ce nombre, et pour la première fois, elle jura.
 
-Aka ne parvint pas à retenir la phrase avant qu'elle ne lui échappe. Elle murmura, très brièvement.
+Sion savait que ce juron ne visait pas l'ennemi.
 
-« Il pousse à plat. »
+« Fabriquer un truc pareil avec une machine. »
+Elle laissa tomber ces mots.
 
-Sion ne comprit pas tout de suite. Mais le visage d'Ater montra une compréhension immédiate.
+« Qu'est-ce que tu veux dire ? »
 
-« Ce sera un format de pressage, » dit-il. « Plutôt que de couper : enfoncer, effondrer, aplatir le chemin, puis faire passer l'arrière. »
+« Ça, c'est fait pour casser. »
 
-Haroun déglutit brièvement.
+« Tout est comme ça, non ? »
 
-C'était pire.
+« Non. »
+Han Jiwoo trancha.
+« La plupart des choses, on les fabrique pour faire quelque chose. Pour déplacer, pour soulever, pour creuser. Ce qui casse, ça arrive en chemin. »
 
-Ce qu'Hazran faisait maintenant, c'était une défense qui utilisait des couloirs et des angles de braquage étroits, des sacs de sable bas et des débris, pour tuer la vitesse et contrôler la direction.
+Elle leva un peu le menton vers le bruit du dehors.
 
-Mais si l'ennemi se contentait de pousser cette structure à plat, toutes les fines couches de temps bâties jusque-là risquaient de s'effondrer d'un coup.
+« Ça, dès le départ, on l'a fabriqué en comptant sur le fait qu'il allait se casser lui-même. »
 
-Haroun ne réfléchit pas plus loin.
+En l'écoutant, Sion comprit pourquoi elle était à ce point en colère.
 
-« Continuez à charger le deuxième groupe, » dit-il à mi-voix. « Arrêtez et nous mourrons tous ici ensemble. »
+Han Jiwoo, c'étaient des mains qui ramenaient à la vie les engins mourants. Dès le premier jour où ils étaient tombés à Hazran, elle avait choisi l'engin le plus honnêtement en panne, et en arrachant de ses propres mains la pièce qu'elle y avait fixée, elle avait dit que le vaisseau n'avait pas mal. Et devant elle, à présent, marchait un objet fabriqué en partant du principe qu'il se briserait lui-même.
 
-Mots cruels. Mais vrais.
+« Ça non plus, ça n'a pas mal. »
+C'était Sion.
 
-Le visage de Zahir indiquait qu'il était arrivé à la même conclusion.
+« C'est bien pour ça que ça m'énerve. »
 
-Il regarda une fois la coque, puis balaya tour à tour Nassim, Seorin, Luhai et Sion.
+Aka écoutait le dehors depuis un moment.
 
-« Attachez le deuxième groupe à la fin, » dit-il. « Pas d'arrêt d'ici là. »
+Sion vit que sa main s'était détachée de la coque. Une main qui, jusque-là, était restée collée à la paroi. À présent, elle pendait simplement le long de son corps.
 
-Lorsque les mots tombèrent, les mains à l'intérieur de Hazran bougèrent à nouveau.
+« Aka. »
 
-Nassim cria de sa voix presque ruinée.
+Pas de réponse.
 
-« Les civières d'abord ! Vite, mais ne poussez pas ! »
+« Aka. »
 
-Seorin poussa directement les épaules à l'avant de la deuxième ligne, alignant les angles. Luhai remballa le tissu qui glissait des mains d'un blessé. Sion tassa le sable sous la rampe de la coque avec ses pieds pour l'empêcher de bouger, utilisant son corps pour empêcher les passages de s'emmêler.
+« Oui. »
 
-À ce moment-là, la chose se révéla enfin au bout du couloir extérieur droit.
+« Tu entends quoi ? »
 
-La première impression fut que même le mot *humanoïde* ne convenait pas.
+Aka attendit longtemps avant de répondre.
 
-Bas. Épais. Le centre de gravité avant, étrangement lourd. Si les androïdes vus jusqu'à présent avaient formé *une ligne incassable*, c'était la *tête écrasante* placée à l'avant de cette ligne.
+« Pas de souffle. »
 
-Les joints étaient plus épais. Le blindage avant avait été conçu pour ouvrir des chemins, au prix même d'absorber les coupures et les perturbations. L'endroit qui aurait dû ressembler à un visage l'était encore moins qu'avant. Juste une surface noire, conçue uniquement pour les collisions et la pression.
+Aka l'avait déjà dit. La première fois qu'elle avait vu ces choses. Sion l'avait entendu, lui aussi.
 
-Luhai inspira sans un mot au moment où il le vit.
+« Je sais. Il n'y en avait pas depuis le début. »
 
-Seorin, pour la première fois, se tut au lieu de jurer.
+« Oui. »
 
-Haroun parla à voix basse.
+« Mais… »
 
-« Je prends celui-là. »
+Aka ne dit pas la suite.
 
-Sern releva aussitôt la tête.
+Sion regarda son profil.
 
-« Pas seul. »
+Elle ne pleurait pas. Ce n'était pas non plus un visage effrayé. Ce n'était pas non plus le visage qu'Aka prenait jusque-là quand elle rendait un verdict.
 
-« Je sais, » lui coupa Haroun. « Mais il faut que quelqu'un se place devant pour le plier. »
+C'était le visage de quelqu'un qui avait compris quelque chose sans savoir quoi, et qui s'était arrêté là.
 
-Ater ajouta, très rapidement.
+« Aka. »
 
-« Ne pas engager de front. Observez d'abord le genou gauche et la ligne d'accouplement inférieure. Le haut du corps est conçu pour être sacrifié. »
+« C'est horrible. »
+Ce fut sa réponse.
 
-Ces mots ressemblaient à ce qu'ils avaient appris sur les autres androïdes, mais sonnaient plus effrayants.
+« Oui. »
 
-Parce que si une unité était conçue pour entrer au prix même du haut de son corps, le côté qui la bloque risquait des dégâts bien plus graves.
+« Mais… »
 
-Sern saisit à nouveau l'outil coupant, comprimant sa plaie latérale.
+Elle s'interrompit encore.
 
-Sion voyait qu'il atteignait sa limite, et savait également qu'il ne pouvait pas l'arrêter pour le moment.
+Cette fois, Sion ne la pressa pas et attendit.
 
-La première civière du deuxième groupe remonta la rampe. Jiwoo vérifia aussitôt, de sa main, le tremblement de l'accouplement. Aka, les yeux toujours fermés, mesurait le prochain poids.
+« C'est bizarre. »
+Aka finit par parler.
+« Ça me fait de la peine. »
 
-Mais à travers tout cela, le regard de Sion ne cessait de dériver vers cette *chose plus lourde* à l'extérieur.
+Sion crut avoir mal entendu.
 
-Si cela s'impose une fois, cet endroit pourrait vraiment prendre fin.
+« Quoi ? »
 
-Haroun abaissa sa position. Sern s'étendit du côté opposé. Ater lisait les angles par derrière dans les respirations les plus courtes.
+« Ça. »
 
-Et l'unité noire de brèche porta son poids en avant pour la première fois.
+« Ça te fait de la peine, ça ? »
 
-Ce seul pas fit grincer faiblement les débris posés sous le couloir.
+« Oui. »
 
-Le temps qu'Hazran avait acheté jusqu'à présent était sur le point d'entrer en collision avec quelque chose d'un poids plus lourd.
+Sion ne sut pas quoi dire.
+
+Cette chose venait vers eux en ce moment, et si elle arrivait, des gens mourraient ; les vingt et quelques d'ici, les cent soixante-huit et les neuf fois, tout vacillait à cause d'elle. Ce n'était pas le moment d'avoir de la peine.
+
+« Pourquoi ? »
+C'était lui qui demandait.
+
+Aka secoua la tête.
+
+« Sais pas. »
+
+« Tu sais pas, et ça te fait de la peine ? »
+
+« Oui. »
+
+« Ça a du sens, ça ? »
+
+Pour la première fois, Aka regarda Sion.
+
+« Non. »
+
+Puis elle regarda de nouveau dehors.
+
+Sion regarda le profil d'Aka.
+
+Jusqu'ici, cette enfant n'avait jamais dit qu'elle ne savait pas. Porte ou pas porte, vrai ou simulacre, jusqu'où c'était vivant et à partir d'où c'était mort — elle savait tout. Il lui était arrivé de taire ce qu'elle savait, mais jamais de dire qu'elle ne savait pas.
+
+Pour la première fois, à l'instant, elle n'avait pas su.
+
+Et elle s'était attristée de ce qu'elle ne savait pas.
+
+Han Jiwoo avait entendu la moitié de l'échange.
+
+« Elle dit quoi ? »
+
+Sion hésita un instant.
+
+« Que ça lui fait de la peine. »
+
+La main de Han Jiwoo s'arrêta.
+
+« Quoi ? »
+
+« Ça. »
+
+Han Jiwoo écouta une fois le bruit du dehors, regarda une fois vers Aka, et rabaissa les mains vers la jonction.
+
+« …D'accord. »
+
+Ce fut tout. Elle ne la contredit pas, ne dit pas non plus qu'elle comprenait.
+
+Trouvant cette réaction étrange, Sion demanda :
+
+« Ça ne t'énerve pas ? »
+
+« Si. »
+
+« Alors pourquoi tu ne dis rien ? »
+
+Sans arrêter ses mains qui serraient, Han Jiwoo répondit :
+
+« Moi, c'est contre les mains qui ont fabriqué ça que je suis en colère. »
+
+« Et elle ? »
+
+« Elle, elle regarde la chose elle-même. »
+
+Sion saisit la différence avec un demi-temps de retard.
+
+Han Jiwoo voyait de quoi cette chose était faite. Aka voyait ce que cette chose était. Elles regardaient la même chose, debout à des endroits différents.
+
+Dehors, le bruit écrasa le sol une fois de plus.
+
+Plus près que tout à l'heure.
+
+Ater dit brièvement :
+
+« Il faut d'abord viser la ligne de jonction en bas à gauche. Le haut du corps est fait pour être sacrifié. »
+
+« Sacrifié ? »
+C'était Sion qui demandait.
+
+« Oui. Ces unités livrent le haut du corps pour entrer. »
+
+Après ces mots, Sion regarda de nouveau Aka.
+
+Aka ne disait rien. Mais sa main était descendue plus bas que tout à l'heure.
+
+Sion regarda longtemps cette main.
+
+Il ne savait toujours pas ce que cela voulait dire. Aka aussi avait dit qu'elle ne savait pas. Et ici, maintenant, il n'avait ni le moyen ni le temps de le découvrir.
+
+Alors Sion décida de ne rien demander.
+
+À la place, il décida de garder cet instant en mémoire.
+
+Pour que, si un jour Aka comprenait pourquoi, il puisse lui dire qu'il avait été là, avec elle.
+
+Et la chose noire, pour la première fois, porta son poids jusqu'au bout du couloir.
+
+La première impression fut que même le mot humanoïde ne lui convenait pas.
+
+Basse,
+épaisse,
+et son centre de gravité, qui avançait, était étrangement lourd. Si ce qu'ils avaient vu jusque-là était une file ininterrompue, ceci ressemblait à une tête dressée devant cette file. Une pierre posée devant une vague d'eau.
+
+Les articulations étaient plus épaisses, et le blindage avant était conçu pour ouvrir le chemin, quitte à se faire couper et rayer. L'endroit qui aurait dû ressembler à un visage en était encore moins un. Une face noire faite uniquement pour le choc et la pression.
+
+Ce seul pas suffit à broyer sourdement les débris qui jonchaient le sol.
+
+En entendant ce bruit, Sion comprit une chose.
+
+Tout ce que Hazran avait utilisé jusque-là servait à empêcher l'adversaire de prendre de la vitesse. Les charpentes couchées, les plaques laissant des interstices, le sol arraché. Tuer la vitesse, c'était tuer l'angle, et tuer l'angle, c'était faire gagner un temps aux gens.
+
+Cette chose-là ne prenait pas de vitesse.
+
+Elle venait sans en prendre, dès le départ ; il n'y avait pas de vitesse à tuer.
+
+« Han Jiwoo. »
+
+« Quoi ? »
+
+« Quand ça arrive, il faudra combien de barricades ? »
+
+Han Jiwoo ne répondit pas. À la place, elle cessa de serrer, descendit sous la rampe et ramena du pied la plaque de métal qu'elle avait poussée tout à l'heure. Un empan plus à l'intérieur.
+
+« Pourquoi tu la déplaces ? »
+
+« Pour choisir moi-même où ça va frapper. »
+
+Sion regarda de ce côté.
+
+Elle savait déjà qu'on ne pourrait pas arrêter cette chose. Alors, au lieu de l'arrêter, elle était passée à choisir elle-même l'endroit où elle frapperait.
+
+À côté d'elle, Aka dit très bas :
+
+« Si ça frappe là, ça meurt pas. »
+
+« Et où ça meurt ? »
+
+« À côté. »
+
+Han Jiwoo déplaça encore la plaque d'un demi-empan.
+
+« Ici ? »
+
+« Oui. »
+
+« Merci. »
+
+Aka ne répondit pas. Elle regardait toujours dehors.
+
+En regardant ce bref aller-retour, Sion ressentit quelque chose d'étrange.
+
+À l'instant, Aka avait eu de la peine pour cette chose, et en même temps elle avait dit exactement ce qu'elle allait détruire. La peine et le calcul ne se heurtaient en rien à l'intérieur d'une même personne.
+
+Sion ne savait pas comment c'était possible.
+
+Il lui vint seulement l'idée que c'était peut-être ainsi que cette enfant avait vécu jusqu'ici, au fond de Hazran.
 
 ---
 

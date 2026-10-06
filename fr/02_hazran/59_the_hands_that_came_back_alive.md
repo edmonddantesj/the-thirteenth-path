@@ -1,160 +1,224 @@
 # Chapitre 59 — Les mains revenues vivantes
 
+Dès l'instant où les deux engins commencèrent à infléchir de nouveau leur cap vers le centre de Hazran, la fuite cessa d'être une fuite.
 
-Dès l'instant où les deux engins commencèrent à infléchir leur trajectoire vers le centre de Hazran, la fuite cessa d'être une fuite.
+Sion ressentait cela avec une netteté étrange.
 
-Sion trouva cette sensation étrangement nette.
+Filer vers l'extérieur, c'était devenir une main traquée.
+Mais rentrer à l'intérieur avec le vrai, c'était, au moins pour l'instant, rester une main encore dans la partie.
 
-S'ils filaient vers l'extérieur, ils devenaient des mains en fuite.
-Mais s'ils reprenaient le vrai et rentraient de nouveau vers l'intérieur,
-au moins pour l'heure, ils pouvaient rester des mains encore en jeu.
+Cette différence changeait tout.
 
-Cette différence changea tout.
+L'esquif de Han Jiwoo longea la ligne basse et sale de la périphérie et replongea sous les structures intérieures. Tout à l'heure, c'était une ligne qu'ils avaient abandonnée pour survivre ; à présent, cette ligne abandonnée était devenue le détour le plus rapide pour se rapprocher du centre. Une ligne qu'on n'employait pas pour la course, et que tout le monde évitait, trop instable même pour la récupération. C'est pourquoi, dans une situation comme celle-ci, elle était la plus vide.
 
-L'esquif de Han Jiwoo longea le bas de la ligne sale de la périphérie et replongea sous les structures intérieures. Jusqu'à maintenant, c'était une ligne qu'ils avaient abandonnée pour survivre ; à présent, cette ligne abandonnée devenait le détour le plus rapide pour rejoindre le centre. Inutilisée pour la course, trop instable pour la récupération, personne n'en voulait. C'est précisément pour cela que, dans une situation comme celle-ci, elle était la plus dégagée.
+L'engin de glisse de Kael et de Sern les soutenait un demi-temps plus haut. Pas assez près pour qu'on les prît pour un seul appareil, pas assez loin pour que l'équipe de Han Jiwoo se retrouvât tout à fait seule. Les deux équipes, séparées tout à l'heure en leurre et en ligne porteuse du vrai, formaient désormais une double ligne qui rentrait vers le centre avec le même résultat en main.
 
-L'engin de glisse de Kael et Sern les soutenait un demi-temps plus haut. Pas assez près pour se confondre en un seul appareil, mais assez pour que l'équipe Han Jiwoo ne restât pas entièrement seule. Les deux équipes, naguère scindées en leurre et ligne porteuse, formaient désormais une double ligne de retour vers le centre, un même résultat en main.
+L'engin de glisse rouge sombre, derrière, ne les avait pas tout à fait lâchés.
 
-L'engin de glisse rouge sombre, derrière, ne les avait pas complètement perdus.
+Mais l'angle de poursuite n'était plus celui de tout à l'heure. Ce n'était plus une main qui coupait la sortie hors du terrain, mais une main qui suivait comme pour vérifier si ces mains-là avaient vraiment l'intention de regagner le centre. L'adversaire le savait, lui aussi. S'enfuir avec le vrai et revenir avec le vrai n'avaient pas le même prix. Le second pouvait renverser la partie elle-même.
 
-Mais l'angle de poursuite n'était plus le même. Ce n'était plus une main coupant une évasion vers l'extérieur du terrain, mais une main qui suivait comme pour vérifier si ces mains-là comptaient vraiment regagner le centre. L'adversaire, lui aussi, savait. S'enfuir avec le vrai et revenir avec le vrai n'avaient pas la même valeur. Le second pouvait renverser le plateau tout entier.
+« Ils collent toujours. »
+Sion l'avait dit à voix basse.
 
-« Ils restent collés. »
-dit Sion à voix basse.
+La réponse de Han Jiwoo fut brève.
 
-Han Jiwoo répondit brièvement.
-
-« S'ils nous lâchent, c'est fini pour eux aussi. »
+« S'ils nous perdent, c'est fini pour eux aussi. »
 
 Sion pensa qu'elle avait raison.
 
-L'équipe qui avait d'abord saisi la fausse braise — si elle laissait aussi échapper la vraie ici, elle glisserait à la fois dans la course et sur le plateau. Elle n'avait donc pas d'autre choix que de mordre davantage.
+L'équipe qui avait d'abord saisi la fausse braise, si elle laissait aussi filer la vraie ici, glisserait à la fois dans la course et dans la partie. Elle ne pouvait donc que mordre davantage.
 
-Sern était parvenu à la même conclusion.
+Sern était arrivé à la même conclusion.
 
-« Cette équipe envisage peut-être de ne plus nous bloquer, mais de rentrer avec nous. »
-dit-il à voix basse.
+« Cette équipe songe peut-être désormais moins à nous barrer la route qu'à rentrer avec nous. »
+Il l'avait dit à voix basse.
 
-Kael tourna les yeux vers lui.
+Kael tourna les yeux vers lui, de côté.
 
 « Pourquoi ? »
 
-« Si on ne peut pas manger dehors, on mange dedans. »
-répondit Sern.
-« S'ils peuvent retourner la situation devant Zahir, ils tenteront le coup. »
+« Faute de pouvoir se servir dehors, ils se serviront dedans. »
+La réponse venait de Sern.
+« S'ils peuvent retourner la situation, fût-ce devant Zahir, ils essaieront. »
 
 Kael eut un rire bref.
 
-« Jusqu'au bout, ils jouent sale. »
+« Sales jusqu'au bout. »
 
-« C'est comme ça qu'ils sont arrivés jusque-là. »
+« C'est sans doute ainsi qu'ils sont arrivés jusqu'ici. »
 
-Depuis les gradins aussi, des regards commençaient à lire ce changement.
+Dans les gradins aussi, certains commençaient à lire ce changement.
 
-Luhai, penché au bout de la rambarde, vit que la ligne en contrebas ne filait pas vers l'extérieur mais s'infléchissait de nouveau vers l'intérieur, et écarquilla les yeux.
+Luhai, se penchant davantage au bout de la rambarde, vit que la ligne d'en bas ne s'enfuyait pas vers l'extérieur mais s'infléchissait de nouveau vers l'intérieur, et il écarquilla les yeux.
 
-« Ils reviennent. »
-dit-il d'un ton presque incrédule.
-« Ils reviennent vraiment. »
+« Ils retournent. »
+Il le dit comme s'il n'arrivait presque pas à y croire.
+« Ils retournent vraiment. »
 
 Seorin le savait déjà.
 
-« C'est la seule façon de survivre. »
-dit-elle à voix basse.
-« S'ils sortent la braise dehors, c'est tout Hazran qui les mord. »
+« C'est comme ça qu'ils survivent. »
+Elle l'avait dit à voix basse.
+« S'ils sortent maintenant, c'est tout Hazran qui mord. »
 
-Ater acquiesça d'un imperceptible hochement de tête.
+Ater, à ces mots, inclina très légèrement la tête.
 
-C'était le bon calcul.
-Rentrer dans le plateau de Zahir était dangereux. Mais au moins, cela portait un nom. Il restait encore un peu de règle, et la main qui revenait avec un résultat gagnait un titre légitime. En revanche, dehors, ils devenaient des mains en cavale avec le vrai mais sans légitimité. Alors les mains extérieures au terrain, l'intervention du côté de Haroun, le fond du marché — tout convergeait dans la même direction.
+C'était le bon jugement.
+Rentrer dans la partie de Zahir était dangereux. Mais au moins, cela avait un nom. Il restait encore un peu de règles, et la main qui revenait avec le résultat y gagnait une légitimité. Dehors, au contraire, on ne serait plus qu'une main qui fuyait avec le vrai, sans aucune légitimité. Alors les mains extérieures au terrain, l'intervention du côté de Haroun, le pavé du marché, tout se jetterait dans la même direction.
 
-Nassim, regardant en contrebas, effaça presque entièrement son sourire pour la première fois.
+Nassim, les yeux en bas, effaça presque son sourire pour la première fois.
 
-Lui aussi avait dû lire la manœuvre.
-Que ce n'étaient pas simplement les derniers soubresauts d'étrangers survivants, mais un coup où l'on revenait à la table de règlement avec la mise en main.
+Lui aussi avait dû le lire.
+Que ce n'était pas le simple sursaut d'étrangers rescapés, mais un coup : rapporter la mise à la table de règlement.
 
 Zahir ne bougeait toujours pas.
 
-Mais cette immobilité différait de celle d'un instant plus tôt. Elle se rapprochait désormais du silence de quelqu'un qui attend. Le silence de celui qui ne posera ses mots qu'après avoir vu jusqu'au bout qui, tenant le vrai, parviendrait à revenir jusqu'à lui.
+Mais cette immobilité-là différait encore de celle d'un instant plus tôt. Elle ressemblait désormais au silence de quelqu'un qui attend. Le silence de celui qui ne poserait ses mots qu'après avoir vu jusqu'au bout qui, tenant le vrai, pourrait revenir jusque devant lui.
 
-Aka observait la scène en contrebas, aux côtés de Nahira.
+Aka, qui regardait en bas, parla.
 
-La main qui revenait avec la braise.
-L'autre main qui la mordait jusqu'au bout.
-Et l'endroit où ces mains finiraient par se tenir de nouveau.
+« Quand ils arrivent jusqu'ici, ils ne poursuivent plus. »
 
-Son regard était aussi calme que celui de quelqu'un qui connaissait déjà ces trois choses.
+Seorin enchaîna aussitôt.
 
-Sion ne pouvait pas voir cela, mais il sentait étrangement que ce retour n'était pas un simple choix de survie. C'était l'acte de marcher de nouveau vers le devant du plateau. Vers un endroit où plus d'yeux regardaient, où plus de mains fixaient un prix qu'auparavant.
+« Pourquoi ils ne poursuivent plus ? »
+
+« Parce que si on prend ici, ça se voit qu'on a pris. »
+
+Seorin regarda de nouveau la ligne d'en bas.
+
+L'engin rouge sombre mordait encore. Mais l'écart s'était un peu creusé par rapport à tout à l'heure. Il se contentait de suivre à cette distance, sans coller.
+
+« Alors c'est bien, non ? »
+
+C'était Luhai qui posait la question.
+
+Aka ne répondit pas, resta longtemps silencieuse, puis parla.
+
+« C'est pire, quand ils ne poursuivent pas. »
+
+Le visage de Luhai se figea.
+
+« Pourquoi ? »
+
+« Poursuivre, c'est être pressé. »
+
+Aka le disait en regardant en bas.
+
+« Ne pas poursuivre, c'est ne pas être pressé. »
+
+Seorin l'entendit et ne dit rien.
+
+Ne pas être pressé, c'était penser que, même sans prendre ici, on pourrait prendre plus tard. Ce que ces deux-là, en bas, rapportaient de toutes leurs forces, certaines mains l'attendaient assises.
+
+Ater ajouta, à voix basse :
+
+« Parce qu'une fois à l'intérieur, les règles changent. »
+
+« Quelles règles ? »
+
+« Ici, on ne prend pas. On fixe un prix. »
+
+Il fallut un moment à Luhai pour comprendre ces mots.
+
+Quand il eut compris, il serra plus fort la rambarde.
 
 « Ça se resserre devant. »
-dit Han Jiwoo à voix basse.
+Han Jiwoo l'avait dit à voix basse.
 
-Sion lut aussitôt l'espace devant eux.
+Sion lut aussitôt ce qu'il y avait devant.
 
-C'était un tronçon où deux lignes mortes de la périphérie confluaient de nouveau sous la structure intérieure. De chaque côté, de vieux cadres de récupération et des vestiges de volets à demi effondrés ; au-dessus, l'ombre d'une grille métallique. Un segment d'entretien plus qu'une piste de course — pas très large, mais justement, il sentait d'autant plus le centre.
+C'était un tronçon où deux lignes mortes de la périphérie se rejoignaient de nouveau sous la structure intérieure. De part et d'autre, de vieux cadres de récupération et des restes de volets à demi effondrés ; au-dessus, l'ombre d'une grille métallique. Plus proche d'une zone d'entretien que d'une piste de course, l'endroit n'était pas large, mais justement, il sentait d'autant plus le centre.
 
 « Tout droit, c'est le plus rapide. »
-dit Sion.
-« Mais trop propre. »
+Ce fut Sion qui parla.
+« Mais c'est trop propre. »
 
-Han Jiwoo demanda brièvement.
+Han Jiwoo posa une question brève.
 
-« Et sur le côté. »
+« Et sur le côté ? »
 
-« À gauche c'est sale et plus lent. En revanche, difficile d'y tendre une embuscade. »
+« À gauche, c'est sale et lent. En revanche, difficile pour quelqu'un d'y attendre. »
 
-Dès ces mots achevés, Sern intercepta depuis le haut, à voix basse.
+À peine avait-il fini que Sern enchaîna, bas, depuis le haut.
 
-« Nous, on vérifie tout droit. »
+« Nous allons vérifier tout droit. »
 
-Kael, sans un mot, poussa légèrement le nez de l'engin vers l'avant. Moins un leurre désormais qu'une ligne de vérification, passant une lame devant la ligne porteuse du vrai.
+Kael, sans un mot de trop, avança un peu l'engin de glisse. Plus vraiment une ligne de leurre : c'était désormais plutôt une ligne de vérification, qui passait encore une fois la lame devant la ligne porteuse du vrai.
 
-L'engin rouge sombre, dans leur sillage, se rapprocha davantage de la ligne droite.
+L'engin rouge sombre, à sa suite, colla davantage à la ligne droite.
 
-Sion prit une brève inspiration.
+Sion reprit brièvement son souffle.
 
 Bien.
-Ça se sépare de nouveau.
+Ils se séparaient encore.
 
-Ce qu'il fallait maintenant, ce n'était pas toujours le chemin le plus rapide,
-mais que quelqu'un foule le premier la voie que les autres convoitaient.
+Ce qu'il fallait maintenant, ce n'était pas toujours le chemin le plus rapide, mais savoir qui irait, à la place des siens, fouler le chemin que l'autre convoitait d'abord.
 
 L'engin de Kael érafla le premier la ligne droite et propre.
 
-Le premier demi-temps, rien.
-Mais l'instant d'après, un panneau métallique dissimulé sous le sol se souleva et frappa violemment le dessous de l'engin. Pas une blessure mortelle, mais la preuve suffisante que cette ligne n'était qu'un leurre, nettoyé pour avoir belle allure.
+Le premier demi-temps se passa sans encombre.
+Mais l'instant d'après, un panneau métallique caché sous le sol se souleva et frappa violemment le dessous de l'engin. Pas un coup mortel, mais une preuve suffisante que cette ligne était un leurre, arrangé seulement pour plaire à l'œil.
 
-« En effet. »
-dit Kael à voix basse.
+« C'était bien ça. »
+Kael l'avait dit à voix basse.
 
-Sern visait déjà la suite.
+Sern désignait déjà la ligne suivante.
 
 « Alors, en bas à gauche. »
 
-Han Jiwoo, avant même que ces mots ne fussent achevés, fit virer l'esquif dans la ligne sale de gauche. Sous un volet à demi effondré, dans l'ombre d'un cadre métallique — la vitesse y mourait, mais la ligne ne tuait pas sur-le-champ.
+Avant même qu'il eût fini, Han Jiwoo fit virer l'esquif dans la ligne sale de gauche. Sous le volet à demi effondré, dans l'ombre des cadres métalliques : une ligne où la vitesse mourait, mais qui ne dévorait pas les gens d'un coup.
 
-Sion, en observant cela, eut une fois de plus cette certitude.
+En voyant cela, Sion en fut certain une fois de plus.
 
-Maintenant, la question n'était pas qui allait le plus vite,
-mais qui prouverait le premier sa légitimité à revenir avec le vrai.
+La question n'était plus de savoir qui allait le plus vite, mais qui prouverait le premier, par lui-même, qu'il avait le droit de revenir avec le vrai.
 
-L'engin de glisse rouge sombre hésita encore un bref instant.
-Continuer à mordre la ligne droite, c'était tomber dans le piège ;
-se rabattre en bas, c'était sacrifier vitesse et angle.
+L'engin rouge sombre, derrière, hésita encore un instant.
+Continuer à mordre tout droit, c'était se laisser prendre au leurre ; coller en bas, c'était abandonner vitesse et angle.
 
-Cette seule et brève hésitation
-suffit aux deux équipes, celle de Han Jiwoo et celle de Kael.
+Cette seule et brève hésitation suffit, pour l'équipe de Han Jiwoo comme pour celle de Kael.
 
-Les deux engins glissèrent une fois de plus vers la même structure intérieure, à une distance décalée l'un de l'autre.
+Les deux engins glissèrent une fois de plus vers la même structure intérieure, à distance décalée l'un de l'autre.
+
+Une fois sous la structure intérieure, le son changea.
+
+Dehors, il n'y avait eu que le vent et le grincement du métal. Ici, on entendait des gens. Au-delà de la grille, au-dessus, des pas passaient ; quelque part, on frappait du fer à intervalles réguliers ; quelqu'un cria aussi quelque chose, une fois.
+
+C'était le marché.
+
+En entendant ces bruits, Sion éprouva une sensation étrange.
+
+Quelques jours plus tôt, il avait simplement marché au milieu de ces bruits. Il avait demandé des prix, regardé les étals, suivi Seorin. À ce moment-là, ce n'était qu'un décor.
+
+Maintenant, ces bruits étaient la partie.
+
+Là-dedans, il y avait des mains qui voudraient acheter ceci, des mains qui voudraient le prendre et des mains qui voudraient lui fixer un prix. Ce que Sion avait rapporté jusqu'ici allait être posé devant ces mains-là.
+
+« Tu as peur ? »
+
+C'était Han Jiwoo qui demandait.
+
+Avant de répondre, Sion regarda sa main. Il ne l'avait pas encore ouverte.
+
+« Un peu. »
+
+« Moi aussi. »
+
+Han Jiwoo continua.
+
+« Mais d'entendre ces bruits, là, ça va un peu mieux. »
+
+Sion savait ce qu'elle voulait dire.
+
+Si ces bruits existaient, c'est que là-dedans, c'était encore vivant. Des gens annonçaient des prix, battaient le fer, s'appelaient les uns les autres. Dehors, il n'y avait rien de tel.
 
 Et Sion le sut.
 
 Ce qui venait ensuite n'était plus un simple retour.
 Avec le vrai en main,
-ayant tenu bon malgré les ruses,
-en tant que mains revenues vivantes après avoir brisé le plateau,
-le moment de se tenir de nouveau devant Zahir arrivait.
+après avoir tenu même face aux ruses,
+en mains revenues vivantes après avoir brisé la partie,
+le moment approchait où ils se tiendraient de nouveau devant Zahir.
 
 ---
 

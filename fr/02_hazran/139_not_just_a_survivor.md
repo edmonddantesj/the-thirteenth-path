@@ -6,17 +6,17 @@ personne ne s'est dispersé tout de suite.
 Lorsqu'un humain vivant franchit le seuil,
 il n’a jamais semblé que c’était l’arrivée d’un seul corps.
 
-Avec ça est venu
-tout ce que l'on voit et entend à l'extérieur.
+Avec lui,
+entrait aussi tout ce qu'on avait vu et entendu dehors.
 
 Comme une odeur.
 Comme la poussière.
 Et comme une tension pas encore pleinement exprimée en mots.
 
 L’humain transporté a été déplacé plus profondément à l’intérieur.
-Jiwoo et plusieurs machines intérieures sont restés attachés.
+Jiwoo et plusieurs machines de l'intérieur restèrent à son chevet.
 
-Le traitement n'était pas terminé...
+Le traitement n'était pas terminé…
 c'était plus proche du début de la couture.
 
 Mais l'air près du seuil
@@ -33,16 +33,16 @@ La première machine revenue s'appuya contre le mur.
 De près,
 les dégâts en surface étaient pires que prévu.
 
-Pas seulement des égratignures...
+Pas seulement des égratignures…
 traces d'avoir été profondément déchirées une fois et recouvertes de force.
 Les dégâts causés par la chaleur n'étaient pas anciens non plus ; c'était relativement récent.
 
-Sion l'a vu et a compris un peu plus
-à quel point l'expression *est sorti et est revenu* était laissée de côté.
+Sion le vit et mesura un peu mieux
+combien de choses taisait le simple fait d'être *allé dehors et revenu*.
 
-demanda la vieille machine, très basse.
+demanda la vieille machine, très bas.
 
-« Jusqu'où êtes-vous arrivé. »
+« Jusqu'où êtes-vous allés ? »
 
 Cette fois, le camp qui revenait ne déviait pas tout de suite.
 
@@ -50,11 +50,11 @@ La première machine laissa échapper un bref bruit semblable à celui d'un souf
 
 « Juste en dessous du carrefour du niveau supérieur. »
 « Deux des routes grises que nous empruntions auparavant sont scellées.
-Il y en a un qui est encore en vie. »
+L'une est encore en vie. »
 
 Les yeux de Sern changèrent immédiatement.
 
-« Pas un confinement total, donc. »
+« Ce n'est donc pas un confinement total ? »
 
 La première machine inclina très légèrement la tête.
 
@@ -97,12 +97,13 @@ obliger les gens à choisir une direction pour fuir,
 les canalisant dans un couloir prédéterminé.
 
 Aka leva la tête au moment où elle entendit.
+
 « Les enfermer comme si on les nourrissait. »
 
 La première machine regarda Aka une fois.
 
-« Similaire. »
-C'est dit, bas.
+« Pareil. »
+dit-il, bas.
 « Mais ils le feront avec plus d'élégance. »
 
 Cette réponse courte dénotait un mépris très ouvert pour les niveaux supérieurs de Serakion.
@@ -117,24 +118,24 @@ La première machine resta silencieuse pendant un moment.
 Contrairement aux mains qui s'occupaient jusqu'à présent du corps du blessé,
 devant cette question, il semblait choisir l'ordre de ses mots.
 
-« Extrait près des quartiers supérieurs des serviteurs. »
+« Je l'ai sorti près du quartier des serviteurs, en haut. »
 « Ça n'aurait pas duré très longtemps. »
 
-En entendant cela, Sion se sentit
-une autre face de l'intérieur de Serakion – une face qu'il n'avait pas encore vue – devenant plus claire.
+En entendant cela, Sion sentit
+une autre face de l'intérieur de Serakion — une face qu'il n'avait pas encore vue — devenir plus nette.
 
 Des visages heureux.
-Placements commandés.
+Des placements bien ordonnés.
 Hospitalité trop polie.
 
 Et au-dessous de tout ça,
 des zones humaines où les gens ne durent pas longtemps sans extraction.
 
-Serakion était très probablement un monde qui se cache
-même la façon dont ça brise les gens
+Serakion était très probablement un monde qui cachait
+jusqu'à sa manière de briser les gens
 derrière la beauté.
 
-Jiwoo sortit brièvement du plus profond de lui-même.
+Jiwoo ressortit un instant du fond de la salle.
 Ses mains portaient encore du sang et de la graisse ensemble.
 
 « Des chances de survie ? »
@@ -142,13 +143,13 @@ demanda-t-elle à voix basse.
 
 La deuxième machine répondit.
 
-« A l'origine, aucun. »
-« Encore moins après avoir perdu l'adhérence une fois. »
+« Au départ, aucune. »
+« Encore moins après l'avoir lâché une fois. »
 
 Quand ces mots furent terminés,
-L’expression de Jiwoo se resserra pendant un instant.
+l’expression de Jiwoo se resserra pendant un instant.
 
-*À l'origine, aucun.*
+*Au départ, aucune.*
 
 Seul le côté qui a saisi quelque chose de force sans aucune chance
 pouvait dire cette phrase de façon si catégorique.
@@ -159,18 +160,18 @@ demanda à nouveau la vieille machine, sans montrer la moindre émotion.
 
 Les yeux de la première machine changèrent cette fois avant les mots.
 
-À cause de la fatigue,
-une très légère colère passa.
+Par-dessus la fatigue,
+une très mince colère passa.
 
 « De nouvelles classifications sont entrées en vigueur. »
-C'est dit, bas.
+dit-il, bas.
 « Ce n'est pas un simple travail comme avant. »
 « La façon dont ils utilisent les gens est devenue plus raffinée. »
 
 L’air tout entier devint silencieux.
 
 Sion sentit immédiatement que ces paroles
-quelque part lié à la classification qui avait failli être imposée aux évacués de Hazran.
+touchaient quelque part à la classification qu'on avait voulu imposer aux réfugiés de Hazran.
 
 Serakion répète peut-être la même chose, en plus raffiné,
 tant à l'intérieur qu'à l'extérieur.
@@ -182,7 +183,7 @@ S'assurer qu'ils ne peuvent pas partir.
 
 Aka a dit, très bas.
 
-« J'ai dû devenir plus jolie. »
+« Ça a dû devenir encore plus joli. »
 
 Cette fois, personne n’a répondu tout de suite.
 Mais le silence lui-même sonnait déjà comme une réponse.
@@ -192,22 +193,23 @@ plus il est facile de se cacher.
 
 Luhai se tenait contre le mur, le visage durci.
 
-Pour la première fois sans aucun côté ludique, demanda-t-il.
+Pour la première fois sans la moindre trace de jeu, il demanda :
 
 « Alors tu repars ? »
 
 La première machine ne l'a même pas regardé.
 
 « Si nous ne sortons pas, l'intérieur reste scellé et pourrit. »
+
 Ces mots étaient résolus,
 mais n'avaient aucun ton héroïque.
 
 C'est juste quelque chose que quelqu'un doit faire, alors il le fait.
-Et quelque chose qu’ils referont probablement.
+Et quelque chose qu’il referait sans doute.
 
-A cet instant, Sion sentit clairement
-que ces mains du redressement ne sont pas simplement du côté audacieux.
-Ce sont des êtres qui traînent sans cesse la réalité
+À cet instant, Sion sentit clairement
+que ces mains de récupération n'étaient pas simplement les plus audacieuses.
+C'étaient des êtres qui traînaient sans cesse la réalité
 entre l'extérieur et l'intérieur de Serakion.
 
 Ce qu’ils ont ramené n’était pas une seule personne.
@@ -215,11 +217,11 @@ Ce qu’ils ont ramené n’était pas une seule personne.
 Preuve qu'un chemin scellé est toujours vivant.
 Un fragment de ce qui se passe sous les niveaux supérieurs de Serakion.
 Et le fait que ceux qui restent à l'intérieur
-on ne peut absolument pas tenir le coup en oubliant l'extérieur.
+ne peuvent absolument pas tenir en oubliant l'extérieur.
 
 Ce jour-là, le seuil
-ressemblé pour la première fois à une bouche
-amener les nouvelles extérieures dans la couche la plus profonde.
+ressembla pour la première fois à une bouche
+qui faisait entrer les nouvelles du dehors jusque dans la couche la plus profonde.
 
 ---
 

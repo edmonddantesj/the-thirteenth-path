@@ -1,16 +1,20 @@
 # Capítulo 12 — La coordenada del primer fragmento
 
-Elia no dijo nada durante un buen rato. Solo miraba el fragmento.
+Elia aún no había apartado la mano de la tapa cuando Seorin habló.
 
-El silencio de la habitación era el mismo de antes, pero su textura había cambiado por completo.
-Si el silencio de cuando la puerta se abrió por primera vez era el de dos bandos que se miden, este se acercaba más al de cuatro personas pendientes solo de las yemas de los dedos de Elia.
-Bajo la vieja lámpara del escritorio, el corte limpio, el borde quemado y lo que quedaba de un nombre empezaban, muy despacio, a revelar otra cara.
+—Ya sé que en un día no da para ir a todo, pero nosotros no tenemos mañana.
 
-Elia colocó el fragmento sobre la placa de lectura y, con la otra mano, lo cubrió con una membrana de filtro finísima.
-Unas líneas pálidas se extendieron en el aire. Frases muertas, líneas de firma cortadas, rastros de registro retorcidos por el calor. Más que un documento, aquello se parecía a una herida. Solo que Elia tenía menos aspecto de alguien que lee las frases que de alguien que empieza por leer dónde se había hecho el corte.
+Elia miró a Seorin y luego miró la tapa.
+
+—O sea, que quieren saber hoy mismo adónde ir.
+
+—Sí.
+
+Elia volvió a abrir la caja. Colocó el fragmento sobre la placa de lectura y, con la otra mano, lo cubrió con una membrana de filtro finísima.
+Sobre la placa de lectura asomaron unas líneas tenues. Frases muertas, líneas de firma cortadas, restos de registro retorcidos por el calor. Más que un documento, aquello se parecía a una herida. Solo que Elia parecía alguien que, antes que las frases, leía desde dónde se había abierto la herida.
 
 Sion estaba de pie, sin poder ni cruzar los brazos.
-Seorin, a su lado, lo notó y dijo en voz baja:
+Seorin, a su lado, lo vio y dijo en voz baja.
 
 —Estás aguantando la respiración.
 
@@ -18,205 +22,232 @@ Seorin, a su lado, lo notó y dijo en voz baja:
 
 —Mentira.
 
-Incluso ese breve toma y daca sonó sin fuerza esta vez.
+Ni siquiera ese breve toma y daca tenía fuerza esta vez.
 La mirada de Sion seguía pegada a la placa de lectura.
 
-Elia murmuró bajo:
+Elia murmuró en voz baja.
 
-—No es un solo fragmento. Son dos.
+—No es un fragmento. Son dos.
 
 Sern reaccionó al instante.
 
 —Dos.
 
 —Sí.
-Elia respondió sin levantar la cabeza.
-—La frase borrada es una, pero los rastros que quedan apuntan en dos direcciones. Una hacia el veredicto, y la otra… mmm.
+Elia contestó sin levantar siquiera la cabeza.
+—La frase borrada es una, pero los rastros que quedan van en dos direcciones. Una hacia el veredicto, y la otra… mmm.
 
-Empujó con un dedo un lado de la membrana de filtro y, sobre la placa de lectura, asomó una línea mucho más tenue. Por su textura, más que una frase parecía una marca de coordenada. Y aun así tan incompleta que cualquier persona corriente la habría tomado por ruido, por diez arañazos más sobre una superficie ya marcada.
+Empujó con un dedo un lado de la membrana de filtro y, sobre la placa de lectura, surgió una línea mucho más tenue. Más que una frase, su veta se parecía a una marca de coordenadas. Solo que era tan incompleta que cualquier persona corriente la habría tomado por ruido, por una superficie arañada diez veces más.
 
 —Esto no es una frase.
-Seorin habló primero.
+Seorin lo dijo primero.
 
-—No, no es una frase.
-Elia lo confirmó.
+—No, no lo es.
+Elia le contestó.
 —Es un camino.
 
 Sion entornó los ojos, muy despacio.
 
 —¿Una ruta?
 
-—No completa.
-Elia volvió a apretar el fragmento mientras hablaba.
-—Se acerca más a un camino cerrado. Para ser exactos, un camino borrado.
+—No una completa.
+Elia lo dijo mientras volvía a presionar el fragmento.
+—Se parece más a un camino cerrado. Para ser exactos, a un camino borrado.
 
-Al oírlo, Ater dio por primera vez un paso más cerca.
-Esta vez no tenía la cara de quien anda midiendo atribuciones o cortesías.
-Camino. Camino cerrado. Camino borrado. En el mundo de la casa Valkar y de la Cámara de Reconocimiento del Imperio, esas palabras eran tan delicadas como el nombre de una persona.
+Al oír eso, Ater se acercó un paso más por primera vez.
+Esta vez no tenía cara de estar pendiente de jurisdicciones ni de cortesías.
+Camino. Camino cerrado. Camino borrado. En el mundo de la casa Valkar y de la Cámara de Reconocimiento del Imperio, eran palabras tan delicadas como el nombre de una persona.
 
-Elia añadió con una calma que demostraba que conocía bien esa reacción:
+Elia añadió con mucha calma, como si esa reacción también la conociera.
 
-—Si solo quedara el fragmento del veredicto, no habría salido hasta aquí.
-Quien escondió esto no cortó solo la frase: cortó el camino con ella.
+—Si solo hubiera quedado el fragmento del veredicto, no habría salido hasta aquí.
+Quien escondió esto no cortó solo la frase: cortó también el camino.
 
-Sern preguntó en voz baja:
+Sern preguntó en voz baja.
 
-—¿Quiere decir que ese camino llegó hasta el Archivista?
+—¿Quiere decir que ese camino pasó a manos del Archivista?
 
 Elia se encogió de hombros.
 
-—Si le llegó, o si fue el Archivista quien lo retuvo al final, eso todavía no lo sé.
-Pero, como mínimo, este no es un rastro que quedara ahí por casualidad.
+—Si llegó hasta el Archivista o si fue lo último que el Archivista alcanzó a sujetar, todavía no lo sé.
+Pero esto, como mínimo, no es una veta que se haya pegado por casualidad.
 
-Sobre la placa de lectura, la línea pálida tembló una vez más.
-Elia sacó de un cajón del escritorio una lente aún más pequeña y la posó sobre la membrana de filtro.
-Entonces, en el extremo cortado de la línea, una marca parecida a unas cifras truncadas y una antigua notación de tipo myo cobraron vida por un instante.
+Sobre la placa de lectura, la línea tenue tembló una vez más.
+Elia sacó del cajón del escritorio una lente aún más pequeña y la posó sobre la membrana de filtro.
+
+Entonces, en el extremo de la línea, una marca parecida a una cifra truncada y otra notación pegada a su lado cobraron vida por un instante.
+
+Que la cifra era una cifra, cualquiera podía reconocerlo.
+
+Lo de al lado, no.
+
+Los trazos eran finos y los extremos se curvaban hacia dentro. No se parecía a ninguna de las notaciones que se usaban hoy en el puerto. Era una vieja notación de los Myo.
 
 Sion contuvo el aliento.
 
 —Eso…
 
-En lugar de responder, Elia retiró la lente y apagó la pantalla.
-Cuando la luz pálida murió, el aire de la habitación volvió a posarse en una realidad húmeda.
+Elia no respondió. Retiró la lente, quitó la membrana de filtro y apagó la luz.
 
-—No pueden ir por ahí cargando con todo esto.
+Fue rápido.
 
-Seorin arqueó una ceja.
+Sion vio esa velocidad. Hasta hacía un momento, esa persona había estado examinando un solo fragmento cambiando el ángulo dos veces en cada mirada. Y en cuanto subió aquella notación, hizo tres movimientos de golpe.
 
-—Bien. Eso ya lo sabemos.
+—…¿Por qué la apagaste?
 
-—No, no es cuestión de grado.
+—Si le da mucho la luz, se estropea.
+
+—Antes no lo hacías.
+
+Elia guardó la lente en el cajón y cerró el cajón.
+
+—Antes miraba partes que no se estropean.
+
+Sion no preguntó más. Aunque preguntara, la respuesta sería la misma, y los dos sabían que esa respuesta era mentira.
+
+Desde el otro lado de la habitación, Ater preguntó.
+
+—¿Ha leído esa notación?
+
+—No.
+
+—La ha leído.
+
+Elia levantó por fin la cabeza. Era la segunda vez en el día que miraba a alguien de frente en esa habitación.
+
+—Pongamos que la leí. ¿Y qué?
+
+—No le pregunto qué significa —dijo Ater tras dejar pasar un compás—. Le pregunto por qué no lo dice ahora.
+
+La habitación se quedó en silencio.
+
+Seorin dio medio paso hacia Elia. Era el mismo paso que había dado al meterse entre Sern y Sion delante de las tuberías.
+
+—Eso pregúntalo después.
+
+—Si no es ahora, puede que no haya ocasión de preguntarlo.
+
+—Pues no la habrá.
+
+Sern, mientras observaba aquel tira y afloja, supo que era la tercera vez en el día que veía lo mismo.
+
+En el instante en que surgió aquella notación, en esa habitación se habían movido tres personas. El que contuvo el aliento, la que apagó la luz, la que se plantó delante. Los tres eran del lado del 373 en el registro del muelle, y los tres se habían callado.
+
+Sern no anotó nada. Un consejero de la Cámara de Reconocimiento, por oficio, anota estas cosas.
+
+Hoy no las anotó.
+
+Elia apartó la placa de lectura y habló.
+
+—Ahora mismo no pueden ir por ahí cargando con todo esto.
+
+Seorin arqueó las cejas.
+
+—Eso ya lo sabemos.
+
+—No, no hablo de ese nivel.
 Elia levantó la cabeza.
 —Lo que acaba de salir no es un simple resto de veredicto. Es el resto de un camino que alguien intentó borrar.
 
-Un silencio corto.
+En el instante en que cayeron esas palabras, Sion sintió que el peso del fragmento que había llevado encima hasta entonces cambiaba de forma imperceptible.
 
-En el instante en que esas palabras cayeron, Sion sintió que el peso del fragmento que aún tenía en la mano cambiaba de forma imperceptible.
-Esto ya no era cosa de un solo nombre.
-Alguien había cortado, junto con el nombre, el camino que ese nombre debía alcanzar.
-Y un camino así no se recuperaba a partir de un solo documento: era de los que solo se enlazaban si uno volvía a pisar los lugares mismos que habían sido cortados.
+Ater bajó la mirada al oírlo.
+El camino es más peligroso.
+Ese pensamiento, para alguien del lado de la Cámara de Reconocimiento del Imperio, resultaba demasiado familiar y, sin embargo, en ese momento le llegaba con un sentido completamente distinto.
 
-Ater bajó la mirada un instante muy breve al oírlo.
-*El camino es más peligroso.*
-Esa frase, para alguien del lado de la Cámara de Reconocimiento del Imperio, resultaba demasiado familiar y, sin embargo, en ese preciso momento sonaba con un sentido completamente distinto.
-
-Sern preguntó en voz baja:
+Sern preguntó con calma.
 
 —¿Hasta dónde es posible la restauración?
 
-Elia no respondió de inmediato.
-En cambio, recorrió por turnos el fragmento, la placa de lectura y las cuatro caras.
-La posibilidad misma de una restauración ya era información cara. Y, sin embargo, esos cuatro traían algo más peligroso que el dinero.
+Elia no respondió enseguida.
+En cambio, recorrió con la mirada el fragmento, la placa de lectura y las caras de los cuatro, una tras otra.
+La sola posibilidad de una restauración ya era información cara. Y esos cuatro traían ahora algo más peligroso que el dinero.
 
-—Una restauración completa todavía no.
-Dijo ella.
+—La restauración completa todavía no se puede.
+Eso dijo ella.
 —Pero el primer fragmento ya ha salido.
 
-Sion preguntó al instante:
+Sion preguntó en el acto.
 
 —¿Dónde?
 
-Elia dio un toque con la uña a la breve marca que acababa de anotar en el borde de la placa de lectura.
+Elia dio un golpecito con la uña sobre la breve marca que acababa de anotar en el papel, junto a la placa de lectura.
 
-—Un punto de transbordo cerrado, hacia el cúmulo estelar exterior.
-Ahora el nombre ha cambiado, y en los registros oficiales debe de figurar como un sitio casi muerto.
-Elia añadió breve:
-—Antes era un punto de transbordo auxiliar donde repartían la carga y la gente empujada hacia fuera, pero después de la guerra se convirtió en un lugar que sabía demasiado, así que se quedó haciéndose el muerto.
+—Un punto de transbordo cerrado, hacia el cúmulo exterior.
+Ahora tiene otro nombre, y en los registros oficiales debe de figurar casi como un sitio muerto.
+Elia añadió algo más.
+—Antes era un punto de transbordo auxiliar donde repartían en distintas naves la carga y la gente que habían empujado hacia fuera, pero después de la guerra se convirtió en un lugar que sabía demasiado y se quedó haciéndose el muerto.
 
-Seorin murmuró bajo:
+Seorin murmuró en voz baja.
 
-—Bien. Ahora hasta tenemos un destino.
+—Ahora hasta tenemos destino.
 
 —Más que un destino, un primer punto de comprobación.
-Elia corrigió.
-—Puede que al llegar no salga la respuesta de golpe. Pero, al menos, es muy probable que el siguiente rastro de quien borró el camino esté ahí.
-Elia golpeó la placa de lectura con la yema del dedo.
-—El fragmento puedes llevarlo en la mano, pero las respuestas siempre quedan más en el sitio del que ese fragmento fue cortado.
+Elia la corrigió.
+—Puede que al ir no salga la respuesta enseguida. Pero, como mínimo, es muy probable que el siguiente rastro de quién borró el camino esté ahí.
+Elia tamborileó en la placa de lectura con la yema de los dedos.
+—El fragmento puedes llevarlo en la mano, pero las respuestas siempre quedan más en el sitio del que se cortó.
 
-Sion oyó eso y volvió a guardar el fragmento en el pecho.
-Hasta hacía un momento estaban del lado de los que huyen.
-Y ahora, por primera vez, había un sitio adonde ir después.
+Sion lo oyó y volvió a guardar el fragmento contra el pecho.
+Hasta hacía un momento era de los que huían.
+Pero ahora, por primera vez, tenía adónde ir después.
 
-Quien antes captó esa diferencia sutil fue Seorin.
+Quien antes notó esa sutil diferencia fue Seorin.
 
 Seorin alzó un poco la barbilla.
-—Ya no solo nos persiguen.
+—Ya no somos solo los perseguidos.
 
-Elia esbozó una sonrisa.
+Elia soltó una risita.
 
-—No. Que nos persiguen sigue siendo lo más cierto.
-Y añadió enseguida:
-—Solo que ahora sabemos hacia dónde huir para llegar menos tarde.
+—No. Por ahora, lo de perseguidos sigue siendo lo más exacto.
+Y enseguida añadió algo más.
+—Solo que ahora saben hacia dónde huir para llegar menos tarde.
 
-Yona Hale, apoyado en el marco de la puerta, cruzó los brazos.
+Yona, apoyada junto a la puerta, se cruzó de brazos.
 
-—Si es el punto de transbordo cerrado del cúmulo exterior, el combustible sale más caro.
+—Si es un punto de transbordo cerrado del cúmulo exterior, el combustible sale más caro.
 
-Sion sonrió ante esas palabras.
+Sion soltó una risita al oírla.
 
-—Me habría dolido que no lo dijeras.
+—Si no lo hubieras dicho, me habría dolido.
 
 Ater observaba a Elia en silencio.
-Esta mujer no restauraba registros.
-Leía lo que, al final, no había podido borrarse del todo: los caminos cortados, el orden que habían arrancado, los rastros que quedaron. Si la Cámara de Reconocimiento del Imperio era el lugar donde se administraban los resultados, este era el lugar donde se leían las vacilaciones y los huecos que esos resultados habían dejado al caer.
 
-Él dijo muy bajo:
+Él habló muy bajo.
 
 —Si vamos a ese punto de transbordo, ¿saldrá el siguiente fragmento?
 
 Elia inclinó un hombro.
 
 —Si hay suerte.
-Y añadió con la misma calma plana:
+Y añadió con mucha calma.
 —Si no la hay, allí los enterrarán a ustedes también.
 
-La habitación se quedó callada un momento.
-Nadie oyó eso como fanfarronería. Elia no era de las que exageran para meter miedo, sino de las que le ponen al peligro su precio justo, tal cual.
-
-Sern fue el primero en plantear la pregunta práctica:
+Sern fue el primero en plantear la pregunta práctica.
 
 —¿Quién conoce esa coordenada?
 
 —Ahora mismo, yo.
-Dijo Elia.
-—Y, a partir de ahora, ustedes.
+Eso dijo Elia.
+—Y ahora, ustedes.
 
-Seorin rio corto.
+Seorin se rio.
 
-—Bien. Otra vez con el nombre en juego.
+—Otra vez con el nombre en juego.
 
 —No.
-Elia corrigió.
+Elia la corrigió.
 —A partir de ahora también está en juego el camino.
 
-Cuando esas palabras cayeron, la habitación se quedó callada un instante más.
-Si hasta hacía un momento sostenían un nombre borrado, ahora significaba que tenían que seguir el camino que había sido cortado junto con ese nombre.
-Nadie conocía aún el verdadero nombre de ese camino.
-Pero una cosa estaba clara.
-El asunto pasaba ya de la rehabilitación de una sola persona a la persecución de rutas borradas y caminos cerrados.
+Sion miró una vez más hacia la placa de lectura.
 
-Elia cerró la placa de lectura como quien pone el punto final y dijo:
+Estaba apagada. Era un objeto sin pantalla, y apagado no era más que una placa del tamaño de una palma. La notación de antes no seguía dentro. La notación estaba en el fragmento, y el fragmento estaba ahora en su bolsillo interior.
 
-—Bien.
-Entonces ahora sí hay que elegir de verdad.
+En esa habitación solo había una persona capaz de leerla, y esa persona no se la había leído.
 
-—¿Elegir qué?
+Sion apretó una vez ese sitio por encima del abrigo.
 
-Preguntó Sion.
-
-Elia dejó el fragmento en mitad del escritorio y miró a las cuatro personas una por una.
-
-—Si solo huir, o ir tras el primer fragmento.
-
-Seorin ya tenía cara de saber la respuesta, y Sion casi también.
-Sern esperaba la decisión de Su Excelencia, y Ater, en algún punto entre los dos, empujaba su reflexión en un silencio muy apretado.
-
-Fuera, el ruido del puerto seguía sin morir, y este depósito tampoco era un sitio seguro para siempre.
-Pero, al menos en ese preciso momento, ante los cuatro se abría por primera vez no la mera supervivencia, sino una dirección.
-
-Y esa dirección,
-más allá de quién había borrado el nombre,
-los empujaba ahora a preguntar quién había querido borrar también el camino.
+Era fino.
 
 ---
 

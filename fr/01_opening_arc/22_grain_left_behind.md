@@ -1,195 +1,249 @@
 # Chapitre 22 — Le grain laissé derrière
 
-Quand les trois descendirent sur les passerelles extérieures, la structure était plus froide et plus mince qu'ils ne l'avaient imaginé — et pourtant encore vivante.
+Quand les trois descendirent sur la passerelle extérieure, la structure se révéla plus froide qu'ils ne l'avaient cru, et vivante d'une vie plus mince encore.
 
-Ce n'était pas une zone de vide complet. Entre la paroi extérieure tranchée et les couloirs à demi effondrés, un vieux champ de maintien tenait encore, refusant de mourir. L'air y était froid, ténu, mais respirable — de justesse. Odeur de lignes d'alimentation mortes depuis longtemps, odeur de poussière froide que seules exhalent les faces métalliques sectionnées, et, très faiblement, un résidu d'ozone. Quelqu'un avait tué la fonction ici. Sans y parvenir tout à fait.
+Ce n'était pas une zone de vide complet. Entre la paroi extérieure tranchée et le couloir à demi effondré, un vieux champ de maintien n'était pas encore mort, et une couche d'air froide et mince, mais bel et bien respirable, tenait tout juste. Une odeur de lignes d'alimentation mortes depuis longtemps, une odeur de poussière froide comme seules en dégagent les faces de métal sectionnées, et, très faiblement, un écho d'ozone. L'odeur d'un endroit où quelqu'un avait tué la fonction, sans parvenir à la tuer tout à fait.
 
-Le vaisseau de Han Jiwoo restait en retrait derrière eux, appuyé en oblique contre la paroi extérieure de la structure, ni vraiment entré ni vraiment en retrait. Se coller davantage aurait été plus rapide, mais cela aurait multiplié les points de non-retour. Pour l'heure, préserver la marge de manœuvre comptait plus que la vitesse.
+Au bout de la passerelle, Sion leva une fois les yeux.
 
-Par le canal fermé de proximité, la voix de Seorin arriva la première.
+Au-delà de l'endroit où finissait la paroi extérieure de la structure, il n'y avait rien. Ni mur ni plafond, et ce n'était même pas sombre. Pour qu'il fasse sombre, il aurait fallu que quelque chose arrête la lumière, et il n'y avait rien pour l'arrêter.
 
-« Vu de près, c'est encore moins engageant. »
+Il y avait des étoiles. Bien plus nombreuses que celles qu'il voyait depuis le port, bien plus petites, et pas une ne scintillait. Ce fut alors que Sion comprit pour la première fois, avec son corps, que sans atmosphère les étoiles ne tremblent pas.
 
-Han Jiwoo répondit brièvement.
+Le champ qui retenait les pieds ne vivait que jusqu'à hauteur de cheville. Au-dessus, rien ne retenait le corps. Si la fine couche sur laquelle il se tenait venait à s'éteindre, ce qui l'attendait ensuite n'était pas un sol, mais ces étoiles-là.
 
-« Elle est pas encore morte, quand même. »
+« Ne regarde pas en haut, dit Seorin dans le canal. »
 
-Sion, lui, ne dit rien. Il regardait l'intérieur de la structure. Passé le premier seuil de lecture, une lueur de guidage résiduelle avait repris vie quelque part dans la profondeur — puis s'était éteinte, avait repris, s'était éteinte encore. Aucun fil directeur continu. Plutôt quelque chose qui semblait tester celui qui lisait : si on le suivait, ça se coupait une fois de plus ; si on s'arrêtait, ça reprenait, à peine.
+« Comment tu sais ? »
 
-Ater observa ce flux un moment, puis dit posément :
+« L'angle de ta tête s'affiche à l'écran. »
 
-« Ce n'est pas un signal qu'on lit en continu. C'est une structure qui entraîne en vérifiant les réactions. »
+« … Ça vaut le coup d'œil. »
 
-Sern enchaîna aussitôt.
+« Si tu regardes, tes genoux vont lâcher. »
 
-« Elle guide le visiteur jusqu'à l'intérieur, tout en s'arrangeant pour que la moindre erreur d'ordre lui fasse rater la cible. »
+Sion baissa la tête. Ses genoux flanchaient déjà un peu.
 
-L'endroit avait encore la capacité de trancher la mauvaise main. Toucher une seule chose dans le mauvais sens, et la réaction mourrait avant le fragment — et avec elle, la raison même d'être venu jusqu'ici.
+Seorin dit :
 
-Sion pressa légèrement la pointe du pied contre la surface de la structure, puis avança lentement vers l'intérieur. Entre les plaques métalliques, rien n'était lisse. Des marques de découpe, des traces de rajouts, d'anciens repères d'alignement emmêlés ensemble. Ce n'était pas un chemin tracé comme un quai officiel — c'était une voie qui n'existait que si on marchait sur le grain laissé derrière.
+« Vu comme ça, c'est encore moins engageant. »
 
-Sern dit dans son dos, à voix basse.
+Han Jiwoo enchaîna.
 
-« Troisième panneau à gauche — la charge est instable. »
+« N'empêche, ce n'est pas encore mort. »
 
-Sion pivota du pied immédiatement.
+Au lieu de répondre, Sion regarda l'intérieur de la structure. La lueur de guidage résiduelle, revenue à la vie après le premier jugement, apparaissait une fois tout au fond, puis retombait comme morte, et recommençait. Ce n'était pas une ligne de guidage régulière. Elle semblait plutôt mettre à l'épreuve celui qui la lisait : si on la suivait, elle se coupait une fois de plus ; si on s'arrêtait, elle revivait, très peu.
 
-Ater, lui, fermait la marche et parcourait des yeux les motifs gravés sur les parois de la structure. Ce qu'il avait d'abord pris pour de simples traces de découpe révélait, de près, une régularité. Les marques qui avaient tué les lignes directrices centrales et celles qui, au contraire, avaient délibérément préservé les alignements secondaires n'appartenaient pas au même niveau de lecture. Ce n'étaient peut-être pas les mêmes mains.
+Ater observa ce flux, puis dit calmement :
 
-Il s'immobilisa et dit, très bas.
+« Ce n'est pas un signal qui se laisse lire en continu, mais une structure qui vous entraîne en vérifiant vos réactions. »
 
-« Sion. Ça n'a pas été tranché en une seule fois. »
+Sern ajouta aussitôt :
+
+« Elle guide le visiteur jusqu'à l'intérieur, tout en faisant en sorte qu'il perde la piste à la moindre erreur d'ordre en chemin. »
+
+Une seule mauvaise manipulation, et la réaction mourrait avant le fragment.
+
+Sion appuya une fois la pointe du pied sur la surface de la structure, puis avança lentement vers l'intérieur. Entre les plaques de métal, rien n'était lisse. Des traces de découpe, des traces de rapiéçage et d'anciennes marques de lignes d'alignement s'emmêlaient. Ce n'était pas un chemin où l'on marchait comme sur un quai officiel, mais une voie qui ne menait à l'intérieur qu'à condition de marcher sur le grain laissé derrière.
+
+Derrière lui, Sern dit à voix basse :
+
+« Troisième panneau à gauche, la charge est instable. »
+
+Sion dévia aussitôt le pied.
+
+Ater, en queue, parcourait des yeux les motifs restés sur les parois de la structure. Il les avait d'abord pris pour de simples traces de découpe, mais de près, ils avaient une règle. Les marques qui avaient tué le cœur de la ligne de guidage et celles qui, au contraire, avaient délibérément laissé l'alignement auxiliaire n'appartenaient pas à la même couche. Cela voulait dire que la main qui avait abîmé et celle qui avait préservé n'étaient peut-être pas la même.
+
+Il s'arrêta et dit, très bas :
+
+« Sion. Cela n'a pas été tranché en une seule fois. »
 
 Les pas de Sion s'arrêtèrent.
 
-« Tu veux dire que quelqu'un y a touché deux fois ou plus ? »
+« Ça veut dire que quelqu'un y a touché plus d'une fois ? »
 
-« Oui. La première fois, pour tuer la fonction. La seconde, quelqu'un a préservé le minimum — le discriminateur et l'alignement. »
+« Oui. La première fois, on a coupé pour tuer la fonction ; ensuite, quelqu'un a laissé le minimum : le discriminateur et l'alignement. »
 
-Sern reprit aussitôt.
+Sern reprit aussitôt ces mots.
 
-« Alors ce qui subsiste n'est pas un vestige de la structure d'origine. C'est une structure résiduelle qu'on a volontairement maintenue en vie. »
+« Dans ce cas, la voie qui subsiste n'est pas un débris de la structure d'origine, mais une structure résiduelle que quelqu'un a délibérément maintenue en vie. »
 
-Sion entendit ces mots et eut un sourire très lent.
+À ces mots, Sion eut un sourire très lent.
 
-« Ça ne fait que confirmer. »
+« Alors c'est encore plus sûr. »
 
-Rien que la rainure et le fragment devant lui suffisaient à voir : ce que quelqu'un avait effacé, ce n'était pas un nom — c'était la route que ce nom aurait dû emprunter.
+À cet instant, dans une rainure de panneau tout près de ses pieds, une lueur très faible passa.
 
-À cet instant, depuis une des rainures de panneau tout près de ses pieds, une lueur infime effleura.
+Sion se baissa aussitôt. Il restait là une rainure longue et mince, et sur son bord, la trace d'un gabarit où avait dû s'emboîter, autrefois, un fragment d'archive à insertion.
 
-Sion se baissa aussitôt. Il y avait là une rainure longue et étroite, et sur son bord, la trace d'un gabarit correspondant à une ancienne plaque d'archive à insertion.
+« C'est là. »
 
-« C'est ici. »
+Sern vint aussitôt à côté de lui.
 
-Sern se rapprocha immédiatement.
+« S'agit-il d'une rainure d'insertion ? »
 
-« Une rainure d'insertion. »
-
-« Probablement. »  
-Sion fit glisser le bout des doigts sur la rainure et dit :  
-« Mais là, il est vide. »
+« Sans doute. »
+Sion passa le bout des doigts sur la rainure en parlant.
+« Mais pour l'instant, elle est vide. »
 
 Ater s'approcha à son tour et examina la marque.
 
-« Ce n'est pas un emplacement où on aurait emboîté un fragment pour tester. C'est là où on a vérifié quelle sorte de fragment il s'agissait. »
+« Ce n'est pas un emplacement où l'on essayait d'ajuster un fragment. C'est un emplacement où l'on vérifiait de quelle sorte de fragment il s'agissait. »
 
 Sion releva lentement la tête.
 
-« Alors ce qu'on porte n'est pas juste un fragment d'archive ordinaire. »
+« Alors ce qu'on porte, nous, ce n'est pas non plus un simple fragment d'archive. »
 
-Seorin cria depuis la coque.
+Seorin cria depuis la coque :
 
-« Vous n'êtes pas en train de suggérer de l'y glisser là, maintenant ? »
+« Ne me dis pas que tu veux l'insérer là, maintenant. »
 
-« On ne glisse rien. »  
-Sion coupa court.  
-« Ici, la structure demande qu'on lise d'abord, et qu'on compare après. »
+« Je ne l'insère pas. »
+Sion avait coupé court.
+« Ici, on lit d'abord, et on compare seulement après. »
 
-Sern, qui inspectait le bas de la rainure, dit doucement.
+Sern, qui examinait le dessous de la rainure, dit à voix basse :
 
-« Attendez. »
+« Un instant. »
 
-Tous les regards convergèrent vers lui.
+Tous les regards se tournèrent de ce côté.
 
-Juste en dessous de la rainure, coincé dans l'interstice entre deux plaques métalliques sectionnées, se trouvait un fragment d'une minceur extrême. Recouvert de poussière et de cendre, il ressemblait d'abord à un simple éclat de métal ; mais quand Sern le souleva avec précaution, du bout de ses doigts gantés, la surface révéla un grain infime et artificiel.
+Juste sous la rainure, coincé dans l'interstice d'une plaque de métal sectionnée, il y avait un éclat d'une extrême minceur.
 
-Un fragment d'archive.
+Sern ne le saisit pas tout de suite. Il commença par ôter son gant.
 
-Pas une plaque d'archive complète. À peine la taille d'un ongle, bords brûlés, surface à moitié morte. Mais sur une face, des lignes clairement tracées par une main. Trop courtes pour une phrase, trop fragmentées pour des coordonnées.
+« Vous le touchez à mains nues ? » demanda Ater.
 
-Sion prit une inspiration très peu profonde.
+« Avec un gant, on ne perçoit pas l'épaisseur. »
+
+Sern posa le bout des doigts, très légèrement, sur l'éclat. C'était froid. Plus froid que les plaques de métal alentour. Ce n'était donc pas du métal.
+
+Puis, de l'ongle, il en souleva à peine le bord. Cela ne cassa pas. Cela plia.
+
+C'était un fragment d'archive.
+
+Pas une plaque entière. La taille d'un ongle, des bords brûlés, une surface à moitié morte. Mais sur une face, des lignes nettement artificielles subsistaient. Trop courtes pour être une phrase, trop tronquées pour être des coordonnées.
+
+Sion inspira, à peine.
 
 « Le voilà. »
 
-Han Jiwoo demanda depuis la coque.
+Han Jiwoo demanda aussitôt depuis la coque :
 
-« Quoi. »
+« Quoi donc ? »
 
-Sion, sans quitter le fragment des yeux, répondit.
+Sion répondit sans quitter l'éclat des yeux.
 
 « Le premier vrai fragment. »
 
-Ater baissa les yeux sur l'éclat dans la main de Sern. Petit, incomplet, encore incapable d'expliquer quoi que ce soit. Et pourtant, tout le monde savait. Pour prouver que la route qui les avait conduits jusqu'ici n'était pas une illusion, ce seul petit fragment suffisait.
+Ater baissa les yeux sur l'éclat posé dans la main de Sern. Petit, incomplet, et encore incapable de rien expliquer.
 
-Il dit, très bas.
+Il dit, très bas :
 
-« Ce n'est pas un fragment d'archive. C'est la première preuve physique que la route effacée a réellement existé. »
+« Ce n'est pas un éclat d'archive. C'est la première preuve matérielle que la route effacée a réellement existé. »
 
-Mais Sion regardait déjà depuis un moment non plus le fragment, mais le bord de la rainure d'où il avait glissé.
+Pourtant, plus longtemps que le fragment lui-même, Sion regardait le bord de la rainure d'où il était sorti.
 
-C'est Seorin qui remarqua la première.
+Seorin fut la première à s'en apercevoir.
 
-« Pourquoi. »
+« Quoi ? »
 
-Au lieu de répondre, Sion posa le bout des doigts sur le bord intérieur de la rainure. À l'intérieur, vide — mais d'un vide qui n'allait pas de soi. Ce n'était pas la rainure d'une rainure restée vide longtemps. C'était l'empreinte d'une plaque d'archive bien plus grande, engagée jusqu'à l'instant d'avant, arrachée dans la précipitation. La poudre brûlée n'avait pas eu le temps de se déposer uniformément, et à l'intérieur de la rainure métallique, des stries fraîches témoignaient encore d'un retrait tout récent.
+Au lieu de répondre, Sion posa le bout des doigts sur le bord intérieur de la rainure. Elle était vide, mais vide d'une façon étrange. Ce n'était pas une rainure restée longtemps vide : c'était la place d'une plaque plus grande, engagée là jusqu'à l'instant d'avant, puis retirée à la hâte. La poussière brûlée n'avait pas eu le temps de se déposer uniformément, et à l'intérieur de la rainure de métal, une strie qui semblait toute fraîche restait encore vive.
 
-Sern lut ce grain à son tour, immédiatement.
+Sern lut ce grain lui aussi, aussitôt.
 
 « Il y avait une plaque plus grande. »
 
-Ater ajouta, très bas.
+Ater ajouta, très bas :
 
 « Et elle a été retirée récemment. »
 
-Court silence.
+Un bref silence.
 
-Seorin plissa les sourcils.
+Seorin fronça les sourcils.
 
-« Alors on n'a pas trouvé un fragment — on a ramassé les miettes que quelqu'un a laissées en faisant place nette. »
+« Alors on n'a pas trouvé un fragment. On a ramassé les miettes qui restaient là où quelqu'un a fait place nette. »
 
 Sion hocha lentement la tête.
 
-« Oui. Ce qui était là à l'origine était bien plus grand. Ça, c'est ce qui s'est cassé et est resté quand on a tout arraché à la hâte. »
+« Oui. Ce qui était là à l'origine était sans doute bien plus grand. Ça, on dirait le morceau cassé qui est resté quand on l'a arraché à la hâte. »
 
-Han Jiwoo, depuis le poste de pilotage, ravala un juron à voix basse.
+Han Jiwoo, depuis le poste de pilotage, ravala un juron.
 
-« C'est la phrase que je déteste le plus entendre. »
+« C'est la phrase que je déteste le plus. »
 
-Sion désigna le côté extérieur de la plaque métallique sous la rainure.
+Sion désigna la face extérieure de la plaque de métal, sous la rainure.
 
-Une trace sur la poussière. Pas des empreintes de quelqu'un entrant dans la structure — plutôt la trace d'un transfert de poids, glissant, de quelqu'un qui avait tourné demi-tour en hâte en serrant quelque chose contre lui. Pas d'empreinte complète, mais la marque d'un appui perdu puis rattrapé était encore là.
+Une trace sur la poussière. Moins l'empreinte de quelqu'un qui serait entré dans la structure que le transfert de poids glissant de quelqu'un qui avait fait demi-tour en hâte, quelque chose serré contre lui. Ce n'était pas une empreinte complète, mais on y voyait la marque d'un équilibre perdu, puis rattrapé.
+
+« Une seule main, dit Sion. »
+
+« Pourquoi une seule main ? » demanda Sern.
+
+« Quand il a perdu l'équilibre, une seule main est partie. Ici, sur la paroi, une empreinte de paume. De l'autre côté, rien. »
+
+« Et l'autre main ? »
+
+« Elle portait quelque chose, sûrement. »
+
+Sion posa sa propre main à côté de l'empreinte de paume. La taille était à peu près la même. Ce n'était pas une grande information. Mais une chose, au moins, se laissait savoir.
+
+« Il a failli le lâcher, et il ne l'a pas lâché. »
+
+« En quoi est-ce important ? »
+
+« Parce que si ça tombe, ça se brise. » Sion retira sa main. « C'est une main qui sait qu'elle porte quelque chose qui ne doit pas se briser. »
 
 Sern mit aussitôt un genou à terre.
 
 « C'est récent. »
 
-« Combien de temps ? »  
+« Récent comment ? »
 demanda Seorin.
 
-Sern parcourut rapidement la trace, la poussière, la couche de débris interrompue.
+Sern parcourut rapidement la trace, la poussière, la couche de cendre interrompue.
 
-« Pas très longtemps. Il est probable qu'ils étaient déjà partis avant que nous franchissions le premier seuil de lecture. »
+« Pas très ancien. Il est probable qu'il était déjà reparti avant que nous ne franchissions le premier jugement. »
 
-Le regard d'Ater se porta vers l'obscurité, plus loin dans la structure.
+Le regard d'Ater se porta vers l'obscurité, plus loin à l'intérieur de la structure.
 
-« En ce cas, ils n'ont peut-être pas eu le temps d'aller très loin. »
+« Dans ce cas, il n'est peut-être pas encore allé bien loin. »
 
-Sion regarda le petit fragment dans sa main, puis la rainure vide. La sensation d'avoir obtenu un premier fragment était bien là. Mais dans le même mouvement, il devenait incontestable que l'essentiel — quelqu'un l'avait pris avant eux et s'était enfui.
+Sion regarda le petit éclat que Sern lui avait tendu, puis de nouveau la rainure vide. Le sentiment d'avoir obtenu un fragment était bien là. Mais en même temps, il devenait tout aussi clair que l'essentiel, quelqu'un l'avait pris avant eux et s'était enfui avec.
 
-Il dit, très bas.
+Il dit, très bas :
 
-« C'est la première fois qu'on tient vraiment quelque chose. »
+« Enfin, on tient une vraie piste. »
 
-Han Jiwoo, depuis la coque, demanda.
+Han Jiwoo demanda depuis la coque :
 
-« Alors. On suit maintenant ? »
+« Et donc ? On le poursuit tout de suite ? »
 
 Sion ne répondit pas tout de suite.
 
-Sern calculait encore le délai laissé par la trace. Ater repassait dans sa tête le fait que celui qui avait emporté la plaque plus grande était quelqu'un capable de lire cette structure. Seorin regardait les trois visages tour à tour, guettant lequel pencherait le premier vers l'imprudence.
+Sern calculait l'âge de la trace récente, et Seorin regardait tour à tour les visages des trois, pour voir lequel pencherait le premier du côté de l'imprudence.
 
-Au fond de la structure, une toute petite réaction de guidage reprit vie une fois de plus. Signal que l'intérieur avait encore quelque chose à offrir — et signal que la route que quelqu'un avait tranchée à la hâte n'était pas tout à fait morte jusqu'au bout.
+Au fond de la structure, une réaction de guidage très faible revint encore une fois à la vie. C'était le signe qu'il restait un intérieur plus profond, et le signe que le bout de la route que quelqu'un avait coupée en passant à la hâte n'était pas tout à fait mort.
 
-Sion glissa le petit fragment dans la poche de récupération et dit à voix basse.
+Sion glissa le petit éclat au fond de la poche de récupération et dit à voix basse :
 
-« Le premier fragment, on le garde. Et celui qui a pris la plaque plus grande n'est pas encore très loin. »
+« Le premier fragment, on le garde. Et celui qui a emporté le plus gros avant nous n'est pas encore très loin. »
 
-Ater dit alors, comme pour prendre le relais.
+Ater parla calmement, comme pour prendre le relais.
 
-« Alors il n'y a que deux choix. Vérifier d'abord ce qu'il reste à l'intérieur — ou se jeter maintenant sur la trace fraîche. »
+« Dans ce cas, il n'y a que deux choix. Vérifier d'abord ce qu'il y a plus loin à l'intérieur, ou mordre tout de suite dans la trace fraîche. »
 
-Et devant les cinq, ce qui s'ouvrait n'était plus une simple exploration de vestige : c'était la vraie étape suivante — qui avait lu cette route le premier, qui tenait la plaque plus grande et s'était enfui avec, et qui les rattraperait.
+Seorin demanda depuis l'autre bout du canal :
+
+« Juste une chose. »
+
+« Vas-y. »
+
+« Pourquoi il ne l'a pas emportée, ce type ? Cette miette. »
+
+Aucun des trois ne répondit.
+
+L'avait-il laissée en sachant qu'elle s'était cassée, ou sans savoir qu'elle s'était cassée ? C'étaient là deux personnes complètement différentes.
 
 ---
 

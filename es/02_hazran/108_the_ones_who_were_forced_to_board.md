@@ -1,170 +1,80 @@
 # Capítulo 108 — Los que al final fueron empujados a embarcar
 
-Después de que Zahir dijera «Embarquen a los forasteros»,
-el aire dentro de Hazran volvió a moverse.
+Los ocho subieron primero.
 
-Pero ese movimiento ya no era como el de antes.
+Manos con los nudillos despellejados se agarraron a la baranda y subieron uno a uno. Al último lo subieron entre dos, sujetándolo cada uno por un lado. Esa persona no miró atrás ni una sola vez mientras subía.
 
-Antes era una línea de evacuación para salvar gente.
-Ahora era, sin lugar a dudas,
-el movimiento de empujar al interior del casco a los que debían irse.
+Cuando los ocho estuvieron dentro, la rampa quedó vacía.
 
-Sion, parado en medio de todo eso,
-aún no lograba mover los pies.
+Sion miró esa rampa vacía.
 
-Con la cabeza lo sabía.
-Esto era lo correcto.
-A Hazran la cerraban los de Hazran,
-y ellos no eran los que se quedaban, sino los que debían salir afuera.
+Hoy la habían desplegado y plegado diez veces. Veinte por diez veces eran doscientos. Esos doscientos habían pasado todos pisando ese mismo ancho. El centro de la rampa estaba gastado y tenía otro color que los bordes.
 
-Pero el cuerpo era otra cosa.
+La parte gastada tenía justo el ancho de tres personas. Era la huella de haberlos subido de tres en tres.
 
-El cuerpo todavía sentía
-que despegar el pie aquí, ahora,
-era como una traición.
+Ahora le tocaba al grupo.
 
-Y bajo esa sensación de traición
-había un sentimiento mucho más claro.
+A Sion no se le despegaban los pies.
 
-La deuda.
+Con la cabeza lo sabía. Esto era lo correcto. A Hazran tenía que cerrarla Hazran, y ellos no eran los que se quedaban. Pero el cuerpo era otra cosa. Para el cuerpo, despegar ahora los pies de aquí se sentía como una traición.
 
-Porque vinimos nosotros,
-empezó la guerra.
-Porque volvimos sosteniendo la brasa,
-Hazran se volvió un campo de batalla en vez de un refugio.
+Y debajo de eso había algo todavía más claro.
 
-Sion no necesitaba decir ese pensamiento en voz alta
-para leer casi lo mismo en las caras de los que tenía al lado.
+La guerra empezó porque nosotros vinimos.
 
-Seorin apretaba los labios con fuerza,
-y Han Jiwoo tenía la mano cerrada con demasiada fuerza sobre la baranda de la entrada del casco.
-Kael no lograba despegar el pie que había vuelto a poner,
-y Luhai, hasta antes de decir «nosotros también vamos», se quedó muy brevemente rígido.
+Sion no lo dijo en voz alta y, aun así, vio lo mismo en las caras de al lado. Seorin tenía los labios apretados, y Han Jiwoo apretaba de más la mano con la que agarraba la baranda. Kael no conseguía despegar los pies con los que había vuelto.
 
-Incluso Sern y Ater,
-sabiendo que al final tenían que embarcar,
-desviaban la mirada de vez en cuando hacia Harún y Zahir.
+Hasta a Sern y a Ater se les quedaba la mirada enganchada hacia dentro de vez en cuando.
 
-Todos sabían lo mismo.
+Al final, Sion habló en voz baja.
 
-Esta guerra empezó por nuestra culpa.
-¿Entonces no es lo correcto quedarse hasta el final?
+—La guerra empezó porque vinimos nosotros, ¿no?
 
-Al final Sion dijo, bajo:
+Era casi algo que se decía a sí mismo.
 
-—La guerra empezó porque vinimos nosotros.
+Zahir lo recibió de frente.
 
-Esas palabras parecían casi dichas para sí mismo.
+—Sí.
 
-Pero Zahir las recibió de frente.
+Con esa sola palabra, a Sion se le cortó la respiración.
 
-—Es cierto.
-La voz de Zahir no tenía ni un temblor.
+No hubo excusa ni consuelo.
 
-Esa sola palabra,
-más bien, le cortó el aliento a Sion.
+—Por eso se van ustedes.
+Lo dijo Zahir.
+—Llévense a la espalda también lo que pasó aquí.
 
-No había excusa,
-ni había consuelo.
+Sion sintió como si le hubieran golpeado de frente dentro del pecho.
 
-Es cierto.
-Hazran se volvió campo de batalla porque vinieron ustedes.
+Si le hubiera dicho que se quedaran a pagarlo, habría sido más fácil. No era perdón ni absolución. Era algo más pesado.
 
-Por eso las siguientes palabras pesaron más.
+Seorin habló tarde.
 
-—Por eso ustedes se van —dijo Zahir—. Llévense también a la espalda lo que pasó aquí.
-
-En el instante en que Sion oyó eso,
-sintió como si le hubieran pegado de lleno en el pecho.
-
-No era quedarse para pagar,
-sino irse para cargar.
-
-Esto no era perdón ni era absolución.
-Más bien era una orden de una forma mucho más pesada.
-
-Seorin habló muy tarde:
-
-—La guerra empezó por nuestra culpa,
-¿y está bien que nos vayamos?
+—Empezó por nosotros, ¿y lo correcto es que nos vayamos?
 
 Zahir no apartó la mirada.
 
-—Es cierto —dijo—. Cerrar lo hace Hazran. Ustedes vayan a lo siguiente y carguen este precio hasta el final.
+—Sí.
+Eso dijo.
+—Cerrar lo hace Hazran. Ustedes sigan hacia lo siguiente y lleven este precio hasta el final.
 
-Esas palabras eran tan tajantes
-que nadie pudo decir nada más con facilidad.
+Han Jiwoo soltó el aliento en voz baja.
 
-Han Jiwoo soltó el aire muy bajo.
+—Es que siento que, por querer subir nosotros, esto se partió todavía más…
 
-—Como queríamos embarcar,
-parece que esto se dividió más…
+No llegó al final.
 
-Esa frase no llegó hasta el final.
-Pero fue suficiente.
+—Por eso suben.
 
-Zahir volvió a cortar también esta vez.
-
-—Por eso embarcan.
-
-Han Jiwoo levantó la cabeza.
+Han Jiwoo alzó la cabeza.
 
 Zahir no bajó la mirada.
 
-—Ustedes salvaron este barco,
-y ustedes son los que deben salir cargados en él.
+—Los que salvaron este barco son ustedes, y los que tienen que salir cargados en este barco también son ustedes.
 
-Esas palabras cayeron con el mismo peso sobre Han Jiwoo,
-sobre Sion,
-y sobre todos los demás.
+No se quedaban porque tuvieran una deuda: tenían que irse porque tenían una deuda. Zahir les estaba haciendo aceptar eso ahora.
 
-No quedarse porque hay deuda,
-sino irse porque hay deuda.
-
-Eso era lo que Zahir los obligaba ahora a aceptar a la fuerza.
-
-Luhai dijo muy bajito:
-
-—¿Yo también?
-
-En esa sola palabra
-estaba entera la vacilación de un nativo de Hazran que sentía que debía quedarse.
-
-Zahir respondió de inmediato:
-
-—Luhai también va.
-Zahir miró a Luhai.
-—Tú tampoco eres una de las manos sobrantes de aquí.
-
-Luhai se quedó rígido un momento.
-
-Zahir añadió sin retirar la mirada:
-
-—A Hazran la cerramos nosotros.
-
-En cuanto cayeron esas palabras,
-Luhai tampoco pudo decir nada más.
-Solo se acercó al lado de Sion y se quedó parado muy brevemente.
-
-Ahora sí, de verdad,
-era de los que se iban juntos.
-
-Han Jiwoo, apretando los dientes, despejó más la entrada.
-
-—Suban —dijo bajo—. No se detengan. Hay que embarcar mientras se aguanta.
-
-Aka aún estaba bajo el casco.
-
-Nahira se paró justo a su lado,
-y entre las dos no hubo palabras.
-
-Ese silencio era tan denso
-que Sion, más bien, no podía apartar los ojos.
-
-Nahira no retenía a Aka.
-Pero tampoco era que no quisiera dejarla ir.
-Estaba simplemente justo a su lado,
-como quien se queda parada con ella hasta el final.
+Aka seguía al pie del casco. Nahira estaba de pie a su lado, y entre las dos no había palabras.
 
 Zahir miró a Aka.
 
@@ -172,100 +82,230 @@ Zahir miró a Aka.
 
 Aka lo miró.
 
-—Vete —dijo—. Lo nuestro se queda aquí.
+—Vete.
+Lo dijo.
+—Nuestra parte la dejamos aquí.
 
-Aka seguía sin decir nada.
-Pero esta vez, muy despacio,
-miró hacia Nahira.
+Aka no dijo nada. Luego, muy despacio, miró hacia Nahira.
 
-Nahira recibió esa mirada de frente.
+Nahira sostuvo esa mirada de frente.
 
-Y muy brevemente,
-asintió una sola vez con la cabeza.
+Y asintió con la cabeza, breve, una sola vez.
 
-Quería decir: vete.
-No que podía irse,
-sino que debía irse.
+Quería decir que se fuera. No que podía irse, sino que tenía que irse.
 
 Solo entonces Aka dio un paso hacia el casco.
 
-Con ese pequeño movimiento,
-Sion sintió que algo se le derrumbaba por dentro del pecho.
-
-Hazran de verdad estaba dejando ir a Aka.
-
-Han Jiwoo estiró la mano y subió a Aka primero.
+Han Jiwoo alargó la mano y fue la primera en subirla.
 
 —Aquí. Rápido.
 
-Aka subió,
-y detrás se apretaron Sion, Seorin y Luhai.
-Kael también se retiró del todo desde la izquierda,
-y Sern y Ater seguían sujetando el exterior,
-pero ahora también ellos se inclinaban claramente, no hacia las «manos sobrantes»,
-sino hacia los que tenían que embarcar al final.
+Aka subió.
 
-Harún, detrás de la línea de defensa interior, recobraba el aliento
-y miraba todo aquello en silencio.
+Han Jiwoo siguió tendiendo el brazo desde dentro después de ella.
 
-Ya no podía ponerse más adelante.
-Pero aun así tampoco parecía alguien que se hubiera quedado fuera de esta despedida.
-Él seguía siendo
-parte de las manos que Hazran necesitaba para cerrarse al final.
+—Dame la mano.
 
-Nasim, empujando la espalda de la siguiente persona, gritó con la voz ronca:
+—La mano.
 
-—¡No aparten la mirada!
-—¡El que embarca, que embarque!
+—La mano.
 
-Esas palabras ya eran de verdad crueles.
+Las mismas palabras, dieciséis veces. Las dieciséis veces agarró con la misma fuerza.
 
-Pero si no hablaba así,
-cualquiera miraría hacia atrás.
-Y en el instante en que uno mira atrás,
-la despedida se retrasa un paso.
+Luhai subía detrás cuando se detuvo a mitad de la rampa.
 
-Ahora Hazran no tiene ese paso.
+—¿Qué pasa?
+Lo preguntó Sion.
 
-Sion vaciló una vez justo delante de la rampa.
+Luhai no respondió y miró afuera.
 
-Desde atrás llegó la voz de Zahir:
+—Tú no eres de aquí, ¿no?
+
+—¿Eh?
+
+—Tú viniste aquí y te vas.
+
+Después Luhai se miró las manos. Eran las manos que en todo el día habían agarrado brazos de gente y tapado ojos de niños.
+
+—Yo nací aquí, y me voy.
+
+Sion no pudo decir nada.
+
+—Dicen que irse es lo correcto.
+Lo dijo Luhai.
+—Si lo dijo Zahir, será verdad.
+
+Y subió. No se volvió ni una vez mientras subía.
+
+Era el que esa misma mañana les había enseñado a los niños a no mirar atrás.
+
+Seorin iba después.
+
+En lo alto de la rampa se volvió una vez. Sion seguía abajo.
+
+—Sion.
+
+—Sí.
+
+—Estás contando, ¿verdad?
+
+Sion no pudo responder. Estaba contando.
+
+—Sube contando.
+
+—¿Por qué?
+
+—Si cuentas, los pies se mueven.
+
+Sion se miró los pies.
+
+Ella, en todo el día, había visto antes que nadie dónde se derrumbaba la gente. También había visto antes que nadie dónde se derrumbaría Sion ahora.
+
+Kael terminó de retirarse de la izquierda y entró.
+
+Antes de subir, Sion buscó a Harún.
+
+No estaba cerca de la rampa. Estaba de pie, apoyado detrás de la línea derrumbada. Desde allí miraba el pasillo. El cuerpo ya se le había derrumbado mucho, pero la mirada no.
+
+Sion dio medio paso hacia allí.
+
+Nasim le agarró el brazo.
+
+—No vayas.
+
+—Para despedirme…
+
+—Ese hombre ahora no puede recibir una despedida.
+
+—¿Por qué?
+
+—Porque si la recibe, deja de mantenerse en pie.
+
+Sion no retiró el brazo. No tenía por qué retirarlo.
+
+Sion se detuvo un momento delante de la rampa.
+
+Ya que se había detenido, miró a un lado. Allí había una placa apoyada en diagonal. Era la placa de acople que llevaba ahí desde antes.
+
+Al verla, algo se le quedó enganchado.
+
+—Kael.
+
+Kael se volvió desde dentro de la entrada.
+
+—¿Qué?
+
+—Esto.
+
+—¿Qué le pasa?
+
+—Me dijiste que la tumbara medio palmo más. Después de que despegara el barco.
+
+Kael miró esa placa.
+
+La miró un buen rato.
+
+—Lo dije.
+
+—¿Lo hago ahora?
+
+—Déjalo.
+
+—¿Por qué?
+
+Kael se quedó un momento callado antes de responder.
+
+—Ya nadie va a tropezar.
+
+Sion se quedó con esa respuesta y no pudo decir nada.
+
+Aquella indicación había salido por miedo a que alguien tropezara. Cuando desaparece quien podía tropezar, la indicación desaparece con él. Los cuatro que se quedaban aquí no iban a pasar por delante de esa placa. Porque ya no había adónde pasar.
+
+Aun así, Sion se agachó.
+
+Tumbó la placa medio palmo.
+
+Se oyó un breve chirrido contra el suelo.
+
+—Te dije que no lo hicieras.
+
+—Ya está hecho.
+
+Kael no insistió más.
+
+Al levantarse, Sion supo que eso era lo último que hacía hoy en Hazran. Era algo que no servía de nada. Y precisamente porque no servía de nada, sentía que tenía que hacerlo hasta el final.
+
+Nasim le empujó la espalda desde atrás.
+
+—No vuelvas la vista.
+Lo dijo con la voz ronca.
+—El que sube, sube.
+
+Esas palabras eran crueles. Pero si no se decían así, cualquiera miraría atrás. Y si miraba atrás, la despedida se retrasaba un paso. Ahora mismo, Hazran no tenía ese paso.
+
+Sion puso el pie en la rampa.
+
+Por detrás le llegó la voz de Zahir.
 
 —Salgan.
 
-Una orden corta.
+Fue una orden corta.
 
-Solo entonces Sion bajó la cabeza
-y al final subió el pie dentro del casco.
+Sion bajó la cabeza y terminó de subir el pie al interior del casco.
 
-Ese paso fue
-tan pesado como pisar y dejar atrás todo el tiempo que habían aguantado dentro de Hazran.
+Ese único paso pesaba como si pasara por encima de todo el tiempo que habían aguantado hasta ahora en Hazran.
 
-Seorin subió detrás,
-Luhai subió apretando los dientes,
-y Kael, después de mirar atrás una última vez, se empujó dentro del casco.
+Sern y Ater entraron los últimos.
 
-El interior del casco era estrecho, áspero y todavía inestable.
-Pero ese interior era, a la vez,
-el espacio de los que se iban, a quienes Hazran había empujado dentro hasta el final.
+Sern, al entrar, apoyó el hombro contra la pared. Esta vez había una pared donde apoyarse.
 
-Lo que quedaba afuera
-eran ahora, de verdad, los que cerraban.
+Sion lo vio y alargó el brazo.
 
-Zahir,
-Nasim,
-Harún,
-Nahira,
-y las manos que aún mordían el último afuera.
+—No hace falta.
+Lo dijo Sern.
 
-Sion, recobrando el aliento dentro de la entrada,
-supo con claridad por primera vez:
+—Antes dijiste que no.
 
-Ahora la despedida no era una declaración, sino una ejecución.
+—Ahora hay una pared.
 
-Hazran acababa de empujar al interior del casco,
-cargándoles incluso la deuda a la espalda,
-a quienes al final tenía que hacer subir.
+Ater, al entrar, miró afuera una vez más. No eran ojos que leyeran ángulos. Eran ojos que solo miraban.
+
+—¿Subieron todos?
+Lo preguntó Ater.
+
+—Dieciséis.
+
+—Entonces está bien.
+
+A Sion esa respuesta le pareció extraña. Era la primera vez que oía de boca de ese hombre que algo estaba bien. Era alguien que en todo el día solo había hablado del siguiente ángulo.
+
+Dentro del casco era estrecho. Con dieciséis dentro no había sitio para estar de pie, y todos se pegaron a las paredes. Quien se había sentado en el suelo era uno de los ocho de antes, y dos más se sentaron a su lado.
+
+El aire era extraño. El olor de fuera no llegaba aquí. Ni limaduras de hierro ni olor a quemado: solo olor a gente apiñada.
+
+Eso fue lo primero que le dio miedo a Sion. Que lo de fuera no entrara quería decir que quedaban cortados de lo de fuera.
+
+La rampa se plegó.
+
+Sion miró afuera por la rendija de la entrada.
+
+Se veía a los cuatro. Zahir en el centro, Nasim a la izquierda, Nahira hacia dentro, Harún el más atrás.
+
+Ninguno de los cuatro miraba el barco. Miraban hacia el pasillo.
+
+Sion supo que esa era la disposición exacta. Si miras el barco, la mano llega tarde. Aquella gente era disposición hasta el final.
+
+Sion jadeó dentro de la entrada. El barco había recibido a toda la gente. Dieciséis.
+
+Hasta entonces, cada vez que despegaba este barco, Sion trazaba una marca en la tablilla. Esta vez no había tablilla donde trazarla. La tablilla estaba allá fuera, y Sion, aquí dentro.
+
+Por primera vez, la cuenta se cortó.
+
+Sion puso la mano en la pared.
+
+No llegó nada. Este barco había estado fuera hasta hacía un momento y ahora Sion estaba dentro, pero a la punta de los dedos no le llegaba nada.
+
+Y el barco despegó.
 
 ---
 

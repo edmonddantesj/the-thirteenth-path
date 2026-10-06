@@ -1,193 +1,347 @@
 # Capítulo 98 — La velocidad que hizo falta empezó a quebrarlos primero
 
-«La próxima vez hay que ser más rápidos.»
+Lo que Zahir le dijo a Sion al dejar la tablilla fueron dos palabras.
 
-Esa frase que Zahir soltó en voz baja
-era una orden y, al mismo tiempo, sonaba como un veredicto.
+Más rápido.
 
-A Hazran ya casi no le quedaba tiempo.
-Y entonces lo que hacía falta no era más valor ni una voluntad más ardiente,
-sino simplemente manos más rápidas.
+Sion se llevó esas palabras a la rampa. Mientras las llevaba, lo que querían decir no dejaba de crecer.
 
-El problema
-era que el cuerpo de una persona no se acelera como la mente.
+Seorin estaba formando la quinta tanda. Con dos pasos de separación.
 
-Sion lo sintió con más claridad cuando la segunda terna de la tercera tanda
-empezó a moverse.
+—Que lo hagamos más rápido, dice.
 
-Si el de delante se adelantaba un paso,
-el de atrás se ponía aún más nervioso.
-El cuerpo nervioso daba un mal paso,
-y quien daba el mal paso sacudía la fila.
+Seorin no detuvo las manos.
 
-Lo más temible ahora dentro de Hazran
-no era solo el enemigo.
+—O sea, que quitemos los dos pasos.
 
-Era el momento en que la prisa por sobrevivir
-empezaba a quebrar primero el cuerpo de la gente.
+—Eso no lo dijo.
 
-Nasim, en cuanto lo vio, se volvió más rudo.
+—Lo dijo.
 
-—¡No corran! —gritó con la voz ronca—. ¡Dije rápido, no enredados!
+Sion iba a rebatirlo y lo dejó. Tenía razón. En esta fila, ahora, no había otro sitio donde recortar tiempo.
 
-Las palabras eran rudas,
-pero eran ciertas.
+—¿Y qué pasa si quitamos los dos pasos?
 
-Si aquí caía una persona,
-en el espacio frente al casco, comprimido como estaba ahora,
-podían engancharse tres a la vez,
-empujarse cinco a la vez,
-sacudirse diez a la vez.
+—Que cuando alguien se caiga como antes, los de atrás se van todos en bloque.
 
-Luhai estiró la mano desde la parte delantera de la tercera tanda
-y agarró de golpe el hombro de un niño que se inclinaba hacia delante con prisa.
+—Entonces no puede ser.
 
-—Para —dijo en voz baja—. Aquí, aunque sea rápido, hay que ir por turnos.
+—No, no puede.
 
-El niño ni siquiera pudo llorar y solo asintió con la cabeza.
+Después Seorin volvió a mirar la fila entera. Con los mismos ojos que cuando la había cortado de tres en tres.
 
-Seorin ya miraba al mismo tiempo el ángulo de la camilla y la distancia entre la gente que caminaba.
+—Los dos pasos se quedan.
 
-Iba más allá de hacerles soltar la carga;
-ahora cortaba con la mano hasta los huecos entre las personas.
+—¿Entonces dónde recortamos?
 
-—Tú un paso atrás.
-—No te pegues ahora.
-—Primero igualen el aliento.
+—Delante.
 
-Esas palabras parecían órdenes de combate,
-y eran demasiado frías para gente que huía.
+Seorin señaló a los tres primeros al pie de la rampa.
 
-Pero ahora,
-si no era por esa frialdad, no se salvaba nadie.
+—Ahora los tres siguientes solo se mueven cuando los tres de delante ya han subido. En vez de eso, haz salir a los tres siguientes cuando los de delante vayan por la mitad de la rampa.
 
-Sion seguía haciendo lo mismo al pie de la rampa.
+—Entonces habrá seis en la rampa.
 
-Si empujaban, cortaba;
-si se pegaban, despegaba;
-si parecían a punto de caer, los sostenía con el cuerpo.
+—¿Y qué tiene de malo que haya seis?
 
-Pero, mientras tanto,
-la mirada se le partía una y otra vez hacia la fila de la derecha y la de la izquierda.
+—Han Jiwoo dijo que veinte de una vez…
 
-A la derecha, Harún aguantaba cada vez más con el precio en sangre;
-a la izquierda, después de que Kael entrara, apenas se mantenía el aliento cosido.
+—Seis en la rampa no son peso dentro del barco. La rampa ya está hecha para recibir veinte.
 
-Y ambas,
-por culpa de la fila de evacuación más rápida,
-se volvían más fáciles de sacudir.
+Sion siguió la cuenta. Era correcta. Aunque la fila se solapara sobre la rampa, el número de personas que entraba en el barco no cambiaba. Lo que se solapaba solo restaba tiempo.
 
-Ater dijo en voz baja:
+—Lo intento.
 
-—Por la velocidad se desmorona el patrón.
+—Yo vigilo delante. Tú vigila detrás.
 
-Al principio creyó que hablaba del enemigo.
-Pero no.
+Así empezaron.
 
-Hablaba de Hazran.
+Se volvió más rápido.
 
-Cuanto más se aceleraba la fila de gente,
-más se apresuraba la línea de defensa para igualar esa velocidad.
-La mano que disparaba aguantando un compás se ponía precipitada,
-y la mano precipitada borraba el ángulo.
+Cuando los tres de delante iban por la mitad de la rampa salían los tres siguientes, y cuando esos iban por la mitad salían los siguientes. Sobre la rampa siempre había gente. Ya no había momentos vacíos.
 
-La guerra también quiebra a la gente así.
+Sion, detrás, mantenía los dos pasos. La gente intentaba pegarse una y otra vez. Como los de delante iban rápido, el cuerpo los seguía antes que nada.
 
-Sern tragó hondo una vez.
+—Dos pasos.
 
-—Con que se desordene un poco más, se abre.
+Después de mandar el sexto grupo de tres, Sion corrió a la entrada del casco.
 
-En cuanto terminó esa frase,
-en el pasillo de la izquierda saltó áspero un chirrido de metal.
+Han Jiwoo tenía el dorso de la mano apoyado en la junta.
 
-Era el lado por donde había entrado Kael.
+—¿Este ritmo está bien?
 
-Sion giró el cuerpo por reflejo.
+—No está bien.
 
-Kael todavía aguantaba.
-Pero un biombo bajo de metal que había levantado a las prisas
-se había enganchado en la línea de corte y quedaba medio plegado.
-Detrás, un cuerpo negro, agachado bien bajo,
-miraba el ángulo interior.
+—¿Entonces lo bajamos?
 
-Kael gritó corto:
+—Si lo bajas, está peor.
 
-—¡Aquí no aguantamos mucho!
+—¿Y qué hacemos si las dos cosas están mal?
 
-Esa frase le apretó el pecho a Sion sin más.
+—Que esté mal por el lado rápido.
 
-La derecha ya aguantaba sangrando,
-la izquierda apenas la sujetaba una sola mano recién reasignada.
-Y sin embargo la fila de delante del casco tenía que ser más rápida.
+Con esa respuesta, Sion miró hacia Aka.
 
-Todo se engranaba a la vez
-y se gastaban unos a otros más rápido.
+Aka tenía la palma pegada a la pared exterior. Llevaba así desde hacía rato.
 
-Zahir, en medio de todo eso, no cambió la cara.
+—Aka. ¿El barco lo recibe?
 
-Pero Sion lo sabe.
-Esa cara no era por insensibilidad,
-sino la cara de alguien que sabe que si flaquea ahora, todo lo que hay aquí se derrumba junto.
+—Lo recibe.
 
-—Preparen la cuarta tanda —dijo corto.
+—¿Lo recibe porque está bien?
 
-Ante esa frase,
-Nasim, por primera vez, miró a Zahir con cara de no creérselo de verdad.
+Aka tardó un momento en responder.
+
+—No.
+
+—¿Entonces?
+
+—Lo recibe porque, si no lo recibe, no puede ser.
+
+A Sion esa respuesta le dio miedo.
+
+Hasta ahora la niña solo había dicho si el barco aguantaba o no. Hacía un momento, por primera vez, había separado aguantar de tener que aguantar.
+
+—¿Cuánto más puede recibir?
+
+—No sé.
+
+—¿Tres tandas?
+
+—No sé.
+
+Sion no preguntó más.
+
+En cambio, también eso le tocó cargarlo a él. Los viajes del barco, la hora, y que nadie supiera cuántas tandas más podía recibir el barco.
+
+Con las tres cosas a cuestas, corrió hacia atrás.
+
+—Dos pasos.
+
+Separaba, volvía a separar, empujaba al siguiente grupo de tres, sostenía un hombro que parecía a punto de caerse, apartaba bultos con el pie.
+
+Alguien soltó una bolsa de agua. Se agachó para recogerla, y los tres de detrás se le pegaron encima.
+
+Sion sacó la bolsa de agua de la fila de una patada y empujó a esa persona por la espalda.
+
+—Adelante.
+
+—Es mía…
+
+—Adelante.
+
+La persona siguió. La bolsa de agua rodó entre los escombros y se perdió de vista. Sion pensó que quizá era lo último que esa persona pensaba llevarse de aquí.
+
+Solo lo pensó, y siguió empujando.
+
+Y mientras tanto contaba.
+
+Estaba contando la hora. La contaba desde que había vuelto a atar el brazo de Harún.
+
+La cuenta rodaba sola dentro de su cabeza. Hasta ahora había sido así.
+
+Hacia la duodécima persona de la quinta tanda, Sion no supo qué número estaba contando.
+
+Se detuvo.
+
+Delante salían tres, detrás se pegaban tres, las manos no dejaban de moverse, pero el número que tenía dentro de la cabeza no estaba.
+
+Intentó encontrarlo de nuevo. No salía.
+
+Sion lo buscó sin dejar de trabajar. ¿Por cuánto iba cuando miró las marcas de la tablilla? ¿Por cuánto iba antes, cuando empujó a la persona que cargaba agua?
+
+No estaba.
+
+—Dos pasos.
+
+Las manos seguían. Solo faltaba el número.
+
+Solo entonces le entró miedo a Sion.
+
+No sabía si había pasado la hora o no. Si había pasado, aquel brazo se estaba muriendo ahora mismo; si no había pasado y él iba y lo desataba, la sangre se iría. La única persona que sabía cuál de las dos era él, y esa única persona la había perdido.
+
+—Sion.
+
+Era Seorin quien lo llamaba.
+
+—Sí.
+
+—¿Por cuál vas?
+
+—Que qué grupo de tres de la quinta tanda.
+
+—…No lo sé.
+
+Seorin detuvo las manos.
+
+A Sion esa pausa le dio miedo. Ella era alguien que no detenía las manos nunca.
+
+—¿Desde cuándo?
+
+—Tampoco lo sé.
+
+Seorin miró a Sion. No tenía cara de enfado. Tampoco de sorpresa.
+
+Tenía cara de saberlo.
+
+—Siéntate.
 
 —¿Ahora?
 
-Zahir ni siquiera giró la cabeza.
+—Aquí, siéntate.
 
-—Ahora.
+Sion se sentó. Al sentarse, le temblaron las piernas. De pie no lo había notado.
 
-Era cruel.
-Pero, otra vez, era cierto.
+—¿Por qué me dijiste que me sentara?
 
-Ya no se podía ir de modo que una fila termina y se añade la siguiente.
-La fila siguiente tenía que estar ya lista
-para no dejar hueco cuando la de delante se cortara.
+—Porque se te veían temblar las piernas.
 
-En el momento en que oyó esa frase,
-Sion supo que Hazran había entrado ya casi en su último tramo de velocidad.
+—No me temblaban.
 
-El tramo en que la velocidad que la situación exigía
-se había vuelto más rápida que la que la gente podía soportar.
+—Te temblaban. Desde hace rato.
 
-Y en momentos así,
-casi siempre, antes que el enemigo,
-es la persona la que se rompe por dentro.
+Seorin, de pie junto a Sion, que seguía sentado, no dejaba de mirar la fila.
 
-Han Jiwoo, a la entrada del casco, oyó lo de la cuarta tanda
-y cerró y abrió los ojos un instante muy breve.
+—Va por el sexto.
+Lo dijo ella.
 
-—A este paso el barco vomita primero —dijo en voz baja.
+—¿Qué?
 
-Aka contestó enseguida:
+—Ahora está subiendo el sexto grupo de tres de la quinta tanda.
 
-—Aun así recíbelo.
+—¿Estabas contando?
 
-Han Jiwoo apretó los dientes.
+—Sí.
 
-—Porque si no recibimos, se acaba todo.
+—¿Desde cuándo?
 
-En esas palabras había fastidio,
-había resignación,
-y había también la terquedad de aguantar hasta el final.
+—Desde el principio.
 
-En el instante en que la segunda terna de la tercera tanda cruzaba la rampa,
-a la derecha Harún,
-a la izquierda Kael,
-delante del casco Nasim y Seorin y Sion,
-y a la entrada Han Jiwoo,
-cada uno desde su sitio aguantaba lo mismo.
+—¿Y por qué me hiciste contar a mí?
 
-La exigencia de ser más rápidos.
-Y el hecho de que, cuanto más rápidos fueran, lo primero que se rompía
-era, al final, la gente.
+—No te lo mandé. Contaste tú.
 
-Hazran ahora
-luchaba contra el enemigo y al mismo tiempo
-luchaba también para no derrumbarse bajo esa velocidad.
+Seorin calló un momento y luego añadió algo más.
+
+—Yo también iba contando. Solo que no lo decía.
+
+—¿Por qué?
+
+—Porque con dos, si se pierde una, no pasa nada.
+
+Sion se apoyó en las piernas y se levantó. Al levantarse, entendió lo que querían decir esas palabras.
+
+Ella sabía que alguna se le iba a escapar. Por eso llevaba dos a la vez. Por eso tampoco se había sorprendido al ver que a Sion se le había escapado.
+
+—¿Y la hora?
+
+—Esa no la conté.
+
+A Sion se le cortó la respiración.
+
+—Porque esa la contabas tú.
+Lo dijo Seorin.
+—Así que esa se perdió.
+
+Sion miró hacia el pasillo. Allí todavía había una persona de pie.
+
+—Puedo ir ahora y preguntarle.
+
+—¿Y qué crees que te dirá?
+
+Sion sabía la respuesta. Le diría que todavía no. Hoy, las dos veces, había sido así.
+
+—¿Entonces qué hago?
+
+—Vuelve a contar.
+
+—¿Desde el principio?
+
+—Desde ahora.
+
+—¿Y lo que ya ha pasado?
+
+Seorin tardó un momento en responder a esa pregunta.
+
+—Eso se lo lleva él.
+
+Sion entendió lo que eso quería decir. Que el tiempo que a él se le había escapado lo pagaría aquel brazo en su lugar. Nadie sabía cuánto era, y la única persona que lo sabía lo había perdido.
+
+Seorin alzó la barbilla hacia la tablilla.
+
+—Márcalo ahí.
+
+—¿El qué?
+
+—La hora, desde ahora. No la lleves en la cabeza: márcala ahí.
+
+—Es la tablilla para contar los viajes del barco.
+
+—Pues márcalo al lado.
+
+Sion fue a la tablilla.
+
+Había cuatro marcas. Al lado, donde no había nada, trazó con la uña una raya corta. No se marcaba bien, así que la trazó dos veces.
+
+Después empujó rampa arriba a los dos últimos de la quinta tanda.
+
+—Veinte.
+
+La rampa se plegó. El barco despegó. Despegó más rápido que en todo el día.
+
+Sion trazó en la tablilla la quinta marca.
+
+A ciento veintiocho se le restaban veinte. Ciento ocho.
+
+Seis viajes.
+
+Y al lado estaba la raya corta que antes había trazado con la uña.
+
+Sion miró las dos cosas juntas.
+
+Una era la marca de la gente que se había ido; la otra, el tiempo que alguien seguía de pie. Con las dos juntas en una sola tablilla, se veía cuál crecía más deprisa.
+
+La que crecía más deprisa era la raya corta.
+
+Seorin se le puso al lado.
+
+—La marcaste.
+
+—Sí.
+
+—Entonces ya no se pierde.
+
+Sion preguntó sin apartar la vista de la tablilla.
+
+—¿Y tú?
+
+—¿Qué?
+
+—Lo que cuentas tú, ¿dónde lo apuntas?
+
+Seorin no respondió enseguida a esa pregunta.
+
+—Aquí no.
+
+—¿Entonces?
+
+—En mi cabeza.
+
+—Entonces se te va a perder.
+
+—Sí.
+
+Después Seorin volvió a la fila. Mientras volvía, dijo una cosa más.
+
+—Por eso, vigila tú.
+
+Sion se quedó un poco más delante de la tablilla.
+
+Lo que se marcaba aquí no desaparecía. Lo que estaba en la cabeza de Seorin, sí. Y aun sabiéndolo, ella seguía guardándolo en la cabeza.
+
+En el extremo derecho de la tablilla, Sion trazó con la uña otra raya corta. Era una raya que no contaba nada.
+
+Todavía no sabía qué iba a contar. Le pareció que algo habría que contar, y solo dejó el sitio hecho.
 
 ---
 

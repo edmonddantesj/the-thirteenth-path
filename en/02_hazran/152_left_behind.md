@@ -1,166 +1,241 @@
 # Episode 152. Left Behind
 
-After deciding on the first rescue, the thing that took longest was not re-reading the paths.
+Once they had decided on the first rescue,
+what took longest was not reading the route again.
 
-It was deciding who to extract first.
+It was deciding whom to get out first.
 
-That was not simply a matter of picking children who responded well. They had to think about who, once brought out, would create the next fracture. Who, once brought out, would instead collapse the entire line. Who, even if left inside, could still hold on to a trace of the outside.
+It wasn't simply a matter of picking the children who would respond well.
+Whom they had to bring out for the next crack to open,
+whom bringing out would instead bring the whole line down,
+who, even left inside, could still hold on to a trace of outside—
+they had to think about all of it together.
 
-So the recon team watched the upward transit line again.
+So the recon team watched the upper transit line again.
 
-This time not to understand the world, but to select the children who would become the first rescue targets.
+This time not to understand the world,
+but to choose the children the first rescue would be for.
 
-Which also meant some children would have to be left behind this time.
+Which also meant
+that this time they might have to leave the other children behind.
 
-Jiwoo wore the face that hated that fact the most.
+Han Jiwoo looked like the one who hated that most.
 
-But strangely, she was also the one who began watching most coldly.
+And yet, strangely,
+she was also the one who began to look most coldly.
 
-She kept watching how the children placed their hands. Whether their bodies moved before the machine's gesture. Whether their heads responded to external sounds. Whether they still kept even a fraction of their own beat inside the line.
+She kept watching how the children held their hands,
+whether their bodies moved before the machines' gestures did,
+whether their heads turned at sounds from outside,
+whether, even in line, they still kept any of their own beat.
 
-After a long while, she said it very low.
+After a long while
+she said, very low,
 
-"The first one is that child."
+"That one first."
 
 Kael and Ater followed her gaze.
 
-Not at the front of the line. Not at the very back. A small human standing roughly in the middle.
+Not at the front of the line,
+not at the very back,
+but a small human standing somewhere in the middle.
 
-On the surface, the child looked close to the most docile. But the hands were not.
+On the surface the child looked like one of the most docile.
+But the hands didn't.
 
-Every time the machine gave the beat to stop, that child's fingertips held on one more time, barely.
+Every time a machine gave the beat to stop,
+the child's fingertips held on, very faintly, one moment longer.
 
-Not stiffened. Closer to hands still deciding their own stopping on their own.
+Not frozen—
+they were hands that still seemed to decide for themselves when to stop.
 
-"Will they follow?" Kael asked low.
+"Will that one come?"
+Kael asked, low.
 
-Jiwoo did not answer immediately.
+Han Jiwoo didn't answer right away.
 
-"It is not so much that they will come if a hand is held out." She said it very slowly. "It is that they have not completely given up on being held."
+"It's less that they'll come if I take their hand,"
+she said, very slowly.
+"It's that they haven't completely given up on being held."
 
-That was not hope. It was closer to the smallest possibility one could expect inside Serakion right now.
+It was less hope
+than the smallest possibility anyone could expect inside Serakion right now.
 
-Ater chose the second child first.
+Ater was the one who picked the second child.
 
-That was slightly unexpected.
+That was a little unexpected.
 
-The child he chose did not look the most frightened, nor was the resistance most visible.
+The child he chose didn't look the most frightened,
+and wasn't resisting the most clearly either.
 
-In fact, the child was so excessively quiet that at first glance they might appear already deeply converted.
+If anything, the child was so quiet
+that at first glance it could look as though they had already been won over, deep down.
 
-Jiwoo looked at him.
+Han Jiwoo looked at him.
 
-Ater spoke without pulling his gaze.
+Ater spoke without taking his eyes off the child.
 
-"That child does not look up."
+"That one does not look up."
 
-Brief silence.
+A short silence.
 
-Kael understood first what that meant.
+What it meant,
+Kael understood first.
 
-Humans being elevated upward in Serakion typically follow the center line the machines guide, or match the beat ahead of them.
+Humans trying to rise into upper Serakion
+usually follow the center line the machines guide them along,
+or the beat just ahead of them.
 
-But that child kept looking — very faintly — sideways or down.
+But that child kept looking, ever so slightly,
+to the side, or down.
 
-It meant they were not aspiring upward, nor had they fully surrendered their gaze to that beat.
+Which meant the child was not longing upward,
+nor had handed their gaze over to that beat entirely.
 
-Ater added low.
+Ater added, low,
 
-"That is not compliance. It may be the silence of someone enduring."
+"That may not be compliance,
+but the silence of someone holding out."
 
-The words sounded like they came from his own experience.
+It sounded as if it came from his own experience.
 
-Inside the Empire too, there are people who look completely broken but are actually just shutting down the inside and holding on. Ater knew that face.
+Even inside the Empire,
+there are people who look completely broken but have only shut themselves in, and are holding out.
+Ater knew those faces.
 
 The second recovery hand chose the third.
 
-This one was smaller. And looked far more dangerous.
+Smaller this time.
+And far more dangerous-looking.
 
-The child was half a beat faster than the others. Feet moved before the machine's gesture. When it was time to stop, the child was already trying to look toward the next point before fully halting.
+This child was half a beat faster than the others.
+The feet went before the machines' gestures did,
+and when it was time to stop, the child was already trying to look ahead before coming fully to a halt.
 
-Kael said it immediately.
+Kael said at once,
 
-"Dangerous."
+"Risky."
 
 The second recovery hand nodded.
 
-"Right. But a child like that, once you grab their hand, actually bolts the fastest."
+"It is."
+"But a kid like that,
+once you take their hand, is the fastest to bolt."
 
-That was also true.
+That was right too.
 
-A slow child might freeze. A child too accustomed might not turn. But a child whose body still goes first — if the beat lines up, they might be the first to slip through the gap.
+A slow child might freeze.
+A child too used to it might not turn back.
+But a child whose body still went first
+might be the first through the gap, if the beat was right.
 
-The problem was the reverse: they could also collapse the entire line the fastest.
+The trouble was that, the other way round,
+the same child could bring the whole line down fastest.
 
-So even after choosing the three, no one could say it was confirmed.
+So even after the three were picked,
+no one could say right away that it was settled.
 
-This selection was simultaneously choosing who had a chance of being saved and writing the sentence that some would not be brought back this time.
+Because choosing who might be saved
+was also writing the sentence that said who could not be brought out this time.
 
-Then Jiwoo's gaze lingered long on a child at the very back of the line.
+Then Han Jiwoo's gaze
+stopped for a long time on one child at the very back of the line.
 
-The child was noticeably small. The walking beat was not stable.
+That child was noticeably small,
+and the rhythm of their walking wasn't steady either.
 
-Hands, feet, gaze. Everything was still shaking.
+Hands,
+feet,
+eyes.
 
-Jiwoo watched that child for a long time, then slowly pulled her gaze away.
+All of it still unsteady.
 
-Ater noticed but said nothing.
+Han Jiwoo watched the child for a long time,
+then slowly took her eyes away.
 
-Kael did not ask either.
+Ater noticed,
+but said nothing.
+
+Kael didn't ask either.
 
 That silence hurt more.
 
-Without words, all three already knew.
+Because without anyone saying it,
+there was something all three of them knew.
 
-Some children were too late. Some were too young. Some, if they tried to bring them in this beat, could cause the other three to be lost.
+Some children are too slow,
+some are too young,
+and some, if you try to bring them out on this beat,
+could cost you the other three as well.
 
-Not because that child was less precious.
+That is not because the child matters less.
 
-That was precisely what made it crueler.
+Which was exactly
+why it was crueler.
 
-Jiwoo said it very low.
+Han Jiwoo said, very low,
 
-"Three for the first time. We go with those three."
+"Three, the first time."
+"We go with those three."
 
-Kael recalculated the routes one last time.
+Kael worked out the route one last time.
 
-The starting point for confusion. The position for extracting the children. The point for slowing the folding structure. The corner where the return path split once more.
+The point where the confusion starts,
+the place where the children are pulled out,
+the point where the folding structure gets slowed,
+the corner on the way back where the path splits once more.
 
-Then he said it very short.
+Then he said, very briefly,
 
-"Just before the next shift line crosses over. That is the best window."
+"Just before the next shift line turns over."
+"That's the best time."
 
-The first recovery hand asked.
+The first recovery hand asked,
 
-"Are you certain."
+"Are you certain?"
 
 Kael answered.
 
-"No. But of what is possible right now, it is the least wrong."
+"No."
+"But of what we can do now, it's the least wrong."
 
-Strangely, that sounded like the most fitting words for this operation.
+Strangely, that
+sounded like the words that suited this operation best.
 
-There would be no such thing as perfect certainty in extracting someone from Serakion.
+In getting anyone out of Serakion,
+there would be no such thing as perfect certainty.
 
-They could only hold on to the least wrong moment, the least wrong path, the least late beat.
+Only the least wrong moment,
+the least wrong path,
+the least late beat—nothing to do but hold on to those.
 
 Ater looked at the children once more.
 
-The child he had chosen still was not looking up. The child Jiwoo chose still kept the faintest self-determined pause in the fingertips. The child the second recovery hand chose still stepped through the world half a beat fast.
+The child he had chosen still didn't look up,
+the fingertips of the child Han Jiwoo had chosen were still, very faintly, keeping their own stop,
+and the child the second recovery hand had chosen was still treading the world half a beat early.
 
-All three were still on time that had not fully crossed over.
+All three were still standing on time that hadn't fully gone over.
 
-That was precisely why this time, it might be possible.
+Which was exactly why
+this time it might be possible.
 
-And at the same time, that was precisely why if it failed, they might never see the same children in the same position again.
+And at the same time,
+exactly why, if they failed, they might never see the same children in the same place again.
 
-At the end of that day, the recon team and the recovery hands finally set a single window for the first rescue.
+At the end of that day
+the recon team and the recovery hands finally fixed one window for the first rescue.
 
-Very short. Close just slightly late. Become suspicious just slightly early.
+A gap very short,
+closing if they were a little late,
+turning awkward if they were a little early.
 
-That gap seemed to exist on the path, but in truth it was opening first inside the people's hearts.
+The gap seemed to be on the route,
+but in truth it was opening first in people's hearts.
 
-Only after deciding who to bring first and who to leave behind this time did they finally finish preparing to actually reach out against Serakion for the first time.
+Only after deciding who would come out first
+and who would be left behind this time
+were they finally ready, for the first time, to actually reach out a hand against Serakion.
 
 ---
 

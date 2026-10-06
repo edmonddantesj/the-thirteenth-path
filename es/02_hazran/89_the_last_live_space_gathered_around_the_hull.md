@@ -1,190 +1,271 @@
 # Capítulo 89 — El último espacio vivo se reunió junto al casco
 
-Después de que la línea central del mercado quedara cortada,
-y de que por primera vez la gente empezara de verdad a ser enviada hacia afuera,
-la propia sensación de espacio dentro de Hazran cambió.
+Sion supo que el espacio se encogía por el oído, antes de verlo con los ojos.
 
-Ya no estaban el mercado, el interior y el casco separados unos de otros.
+Hasta hacía un momento, los ruidos llegaban de muchas direcciones. Del oeste llegaban gritos, del norte gemía el metal, y en los toldos de dentro se oía llorar a un niño. Ahora todo llega de un solo lado.
 
-Las personas vivas,
-las manos que aún podían moverse,
-la nave que podía cargarlos,
-y la última fila de defensa que todavía aguantaba
-empezaron todos a comprimirse contra un solo punto.
+La gente viva,
+las manos que todavía podían moverse,
+el barco que podía cargarlos,
+la última línea de defensa que aún aguantaba: todo se estaba aplastando contra un solo punto.
 
-Era cerca del casco.
+Junto al casco.
 
-Sion lo sintió con el cuerpo antes de verlo con los ojos.
+Sion subió a la rampa y miró hacia abajo una vez.
 
-La dirección hacia la que la gente retrocedía se volvió toda la misma,
-y el llanto,
-y los insultos,
-y el ruido del metal chocando
-se amontonaron poco a poco hacia el mismo lado.
+Desde allí era evidente. Hasta hacía un momento la gente estaba dispersa por los callejones. Ahora estaba apretada en círculo con el casco en medio, y ese círculo se iba estrechando poco a poco.
 
-Los evacuados que hasta hacía un momento estaban dispersos por varios pasajes
-empezaron ahora a llenar el descampado bajo afuera del compartimento del casco, el costado del biombo derrumbado,
-y hasta los alrededores de la fila de embarque improvisada unida a duras penas.
+No se estrechaba porque la gente retrocediera. Se estrechaba porque el detrás desaparecía.
 
-Los niños habían sido empujados hacia la sombra del casco,
-los heridos apretaban los dientes sobre camillas hechas de lonas arrancadas,
-y los que aún servían de manos volvían a acarrear material de defensa por los alrededores.
+Cada vez que se cerraba un callejón de fuera, la gente que estaba allí era empujada hacia dentro, y el círculo se engrosaba otro tanto. Y el círculo engrosado se movía menos.
 
-La distinción entre la retaguardia y el frente
-casi había desaparecido.
+En el borde de ese círculo, Sion vio a un niño encajado entre las piernas de los adultos. El niño ni siquiera lloraba. No lloraba porque no tenía sitio para llorar.
 
-Han Jiwoo miró aquel cuadro y se tragó un insulto corto.
+Han Jiwoo, viendo aquello, se tragó una maldición corta.
 
-—Están demasiado pegados —dijo ella en voz baja.
+—Están demasiado pegados.
 
-Tenía razón.
+—¿No es bueno que estén cerca?
+Lo preguntó Sion.
 
-Que hubiera tanta gente amontonada tan cerca del casco
-significaba que Hazran había perdido aún más de su retaguardia.
-Pero a la vez,
-significaba también que, si ahora no se lograba sacar esta nave, los que estaban aquí reunidos quedarían encerrados con ella.
+—Para subir gente, sí.
+Lo dijo ella.
+—Y para recibir golpes, también.
 
-Aka estaba de pie con la cara de quien escucha los alientos que se agolpan desde afuera hacia adentro.
+Han Jiwoo no paró las manos mientras lo decía. Pegada al costado de la rampa, en la parte baja del casco, llevaba un rato tocando el mismo punto.
 
-—Este es el último —dijo ella en voz muy baja.
+Solo entonces preguntó Sion lo que no había preguntado ni una vez.
 
-No estaba claro a quién se lo decía,
-y justo por eso resultaba más exacto.
+—¿Esto puede llevar a veinte?
 
-Ahora, dentro de Hazran, el último espacio que seguía vivo
-parecía ser, de verdad, solo este.
+Las manos de Han Jiwoo se detuvieron.
 
-Zahir también lo sabía.
+—¿Quién ha dicho veinte?
 
-Miró una vez el frente del compartimento del casco,
-recorrió una vez los pasajes estrechos de más afuera y dijo corto:
+—El que pone los precios.
 
-—Tira más la fila.
+—Lo que mide ese es el número de personas.
+Lo dijo ella.
+—Lo que mido yo es el peso.
 
-Nasim repreguntó enseguida.
+Golpeó con el dorso de la mano la juntura de la rampa. Sonó dos veces distinto. A los oídos de Sion sonaba igual, pero Han Jiwoo parecía saber algo por esa diferencia.
 
-—¿Más que esto?
+—Si aquí entran veinte, esta juntura se lo traga todo de una vez. Cuando la gente sube toda junta, el peso se carga hacia delante.
 
-—Acércalos —dijo Zahir—. Si están lejos, se cortan.
+—¿Entonces no se puede?
 
-Aquellas palabras querían decir que hicieran la línea de evacuación más corta y más apretada.
-Que era mejor amontonar a la gente más pegada al casco
-que dejar que vinieran dispersos cada uno por su lado y los cortaran.
+—Se puede.
+Lo dijo Han Jiwoo.
+—Pero no los subo todos a la vez.
 
-Cruel, pero cierto.
+Trazó con la mano unas líneas sobre la rampa. Quedaron tres tramos.
 
-Nasim torció la cara y aun así se movió enseguida.
+—Hasta aquí, siete. Alto. Hasta aquí, siete. Alto. El resto, seis.
 
-—¡Ya lo oyeron! —gritó—. ¡El que pueda caminar, que se pegue más adentro! ¡Acuesten primero a los heridos, y a los niños arréenlos bajo la sombra del casco!
+—Pero así se tarda más.
 
-Luhai, en cuanto oyó aquello, se pegó hacia el lado de los niños.
+—Sí.
 
-Bajó la cintura y habló a la altura de los ojos de los críos.
+—Hay gente esperando fuera.
 
-—De aquí en adelante no corran —dijo—. Si los empujan, se caen. No se suelten de las manos.
+—Lo sé.
 
-Aquella voz estaba extrañamente serena.
-Él también tenía miedo,
-pero era la cara de quien de pronto había entendido que ya tenía la edad en que no se puede dejar ver ese miedo.
+Han Jiwoo no explicó más. En cambio, apretó una juntura más.
 
-Seorin pasaba rápido entre las filas de heridos y cortaba el espacio.
+De pie a su lado, Sion entendió contra qué estaba luchando ella. Desde fuera, todo empujaba a subirlos más rápido, aunque fuera una vez. Pero si el barco se partía antes, morían también los que ya habían subido. Han Jiwoo estaba midiendo con las manos el espacio entre las dos cosas.
 
-—El que se vaya a acostar, a la izquierda.
-—El que pueda caminar, que se ponga detrás.
-—La carga, de aquí en adelante, tiradla toda.
+—¿Cuántos segundos más se tarda?
 
-Ya no consolaba,
-ni metía prisa.
-Solo reacomodaba a la gente, con exactitud, en la forma con más probabilidad de vivir.
+—Unos diez.
 
-Sion, a su lado, unía a la gente para que la fila no se cortara.
+—Diez segundos.
 
-Quién tenía que ir primero,
-quién tenía que sostener a un herido y moverse,
-qué hueco había quedado vacío.
+—Si son diez segundos cada vez, en once veces…
 
-Pero, aun en medio de eso, su mirada volvía una y otra vez hacia el frente del casco.
+Sion no terminó la cuenta. No quería hacerla.
 
-Demasiado cerca.
+Aka, un poco apartada, tenía la palma apoyada en la pared exterior del casco.
 
-La gente,
-la guerra,
-y la nave.
+—¿Cuántos hay arriba ahora?
+Lo preguntó ella.
 
-Si todo se pegaba hasta este punto,
-un solo impacto que entrara mal podía sacudirlo todo a la vez.
+—Todavía nadie.
+Sion respondió.
 
-Harún también lo sabía.
+—Entonces esto es el barco temblando solo.
 
-Por eso no retrocedió más.
-Al contrario, seguía mordiendo al enemigo un paso más afuera del último pasaje estrecho que entraba al compartimento del casco.
+Aka no apartó la mano. Sion solo entendía a medias lo que hacía. Hasta ahora, Aka había separado lo verdadero de la imitación. Si este barco era verdadero o no era algo que ya se había resuelto dentro. Lo que medía ahora era otra cosa.
 
-—¿Todavía se puede mandar a más? —preguntó sin mirar atrás siquiera.
+—¿Oyes algo?
 
-Sion respondió jadeando.
+—El peso.
+Lo dijo Aka.
+—Por dónde empieza a hundirse esto cuando sube la gente.
 
-—La primera tanda ya salió, la segunda se está pegando.
+—¿Eso se puede saber antes?
 
-Harún asintió corto.
+—Todavía no lo sé.
+Lo dijo ella.
+—Hay que ver cómo suben para saberlo. Pero cuando suben una vez, a partir de ahí lo sé.
 
-—Entonces aguanto una vez más.
+Sion tardó en entender qué quería decir. Los primeros veinte subirían sin que nadie supiera nada. Solo después de que Aka oyera dónde y cómo cargaban esos veinte se podría corregir el orden a partir de la segunda vez.
 
-Seorin oyó aquello y maldijo en voz baja.
+La primera tanda era un experimento.
 
-Pero no pudo detenerlo.
+A Sion eso no le gustó.
 
-Si Harún se retiraba ahora,
-el enemigo alcanzaría demasiado rápido a esa gente apiñada tan cerca.
-Eso lo sabían aquí todos, mejor que nadie.
+—Entonces se puede probar antes.
+Lo dijo Sion.
 
-Ater volvía a leer el frente junto al emplazamiento derrumbado.
+Aka lo miró.
 
-—Esta vez, más que empujar adentro, van a querer desgarrar —dijo en voz baja—. No vienen en una sola fila. Se dividirán en dos para apuntar a la aglomeración frente al casco.
+—¿Con qué?
 
-Sern, apretándose la herida del costado, también asintió.
+—Con cosas que pesen. En lugar de gente.
 
-—Habrán visto que la gente se ha amontonado.
+Han Jiwoo lo oyó y detuvo un momento las manos.
 
-En el instante en que cayeron esas palabras,
-Sion sintió que un escalofrío le recorría la espalda.
+—Kael.
 
-Ellos también lo saben.
-Que ahora estos alrededores del casco
-son el lugar más vivo de Hazran.
-Y por eso, también, el lugar que mejor conviene desgarrar.
+—¿Sí?
 
-Han Jiwoo, en cuanto lo oyó, se pegó hacia el muro exterior del casco.
+—Tráeme todas las placas arrancadas que hay allí.
 
-—¡Kael! —gritó—. ¡Levanta otra placa de acople aquí! ¡Si encima alcanzan a la gente, se acabó!
+Kael no preguntó por qué. Arrastró las placas de metal arrancadas y los armazones inservibles y los apiló sobre la rampa. Han Jiwoo los fue subiendo contándolos con la mano. Lo que pesa una persona cada vez.
 
-Kael se movió enseguida, sin responder siquiera.
-Arrastró la menos doblada de las planchas de metal que quedaban
-y la levantó inclinada entre la parte baja del casco y la fila de embarque improvisada. No era una barrera perfecta.
-Pero ahora bastaba con que pudiera hacer torcer la dirección aunque fuera una vez.
+Cuando llevaba siete, la juntura hizo un ruido.
 
-Aka, en medio de aquel aire en vilo, murmuró muy bajo.
+Sion también lo oyó. Aquel sonido distinto que antes había salido cuando Han Jiwoo golpeó, esta vez salió solo.
 
-—Todo está aquí.
+—Ahí.
+Lo dijo Aka.
 
-Sion oyó esas palabras
-y, sin saber por qué, sintió que el pecho se le apretaba por dentro.
+—¿Dónde?
 
-Cierto.
-De verdad, ahora,
-todo lo que seguía vivo estaba reunido aquí.
+—Abajo a la izquierda.
 
-El último aire al que Hazran sostenía el aliento hasta el final,
-la gente que no se soltó hasta el final,
-la nave que apenas se había salvado,
-y las manos que compraban tiempo, por última vez, para hacerla salir.
+Han Jiwoo metió la mano por ese lado. Estuvo un buen rato palpando.
 
-Todo quedó comprimido junto al casco.
+—Es verdad.
 
-Por eso, ahora,
-esta lucha se había vuelto más peligrosa.
+—¿Qué tan mal está?
+Lo preguntó Sion.
 
-Pero, a la vez,
-qué había que proteger quedaba más claro que antes.
+—Siete, sí. A partir de ocho, no.
+
+—Antes dijiste siete, tres veces.
+
+—Por eso dije siete.
+Lo dijo Han Jiwoo.
+—Pero ahora lo sé. Antes era una suposición.
+
+Sion entendió cuál era la diferencia. Decir siete por suposición y decir siete después de medirlo no pesan lo mismo. Este barco acababa de mostrar lo que no podía hacer con chatarra, no con personas.
+
+Con chatarra solo se podía saber hasta ahí. Hacia dónde se amontona la gente solo se sabe cuando sube la gente.
+
+—¿Eso no habría que decírselo a la gente, de todos modos?
+Sion se lo preguntó a Aka.
+
+—No.
+
+—¿Por qué?
+
+—Si lo dices, la primera tanda no se forma.
+
+Después de decirlo, Aka apartó la mano por primera vez. Y miró a Sion.
+
+—Tú tampoco lo digas.
+
+Era la segunda vez en el día que Sion oía la misma petición. Por la mañana le habían dicho que no dijera el número; ahora le decían que no dijera el orden.
+
+Esta ciudad, para salvar a la gente, no le dice las cosas a la gente.
+
+Mientras tanto, Kael estaba levantando una placa de acople.
+
+De las placas de metal que quedaban, arrastró la menos torcida y la levantó inclinada entre la parte baja del casco y la fila de embarque improvisada. No era una barricada perfecta. Ahora bastaba con que pudiera hacerles torcer la dirección aunque fuera una vez.
+
+—Hace falta otra.
+Han Jiwoo lo dijo mirando hacia allí.
+
+—No hay.
+Kael respondió.
+
+—¿No hay en ningún sitio?
+
+—Las he usado todas.
+
+Han Jiwoo se quedó un momento sin decir nada.
+
+Luego tocó con la punta de los dedos un trozo del revestimiento que estaba fijado al casco, a su lado. Era uno que Kael había comprado en el mercado de Hazran y que ella misma había fijado.
+
+—Quita esto.
+
+—Eso lo pusiste tú.
+
+—Por eso también decido yo cuándo se quita.
+
+Kael la miró un momento. Luego, sin decir nada, tomó la herramienta.
+
+Al verlo, a Sion le dolió en un sitio extraño. El día que fijó ese trozo, Han Jiwoo había tardado dos horas. Aquel día había dicho que ese era el punto que más tardaría en venirse abajo.
+
+Quitarlo no llevó ni dos minutos.
+
+El sitio de donde lo habían quitado quedó al descubierto. Parecía incluso más feo que antes de fijarlo.
+
+—¿Estás bien?
+Lo preguntó Sion.
+
+—¿El qué?
+
+—Eso.
+
+Han Jiwoo le pasó a Kael el trozo arrancado mientras hablaba.
+
+—Al barco no le duele.
+
+Sion supo que esa no era la respuesta a su pregunta. Pero no preguntó más.
+
+Aka habló muy bajo.
+
+—Está todo aquí.
+
+Al oírlo, Sion volvió a mirar alrededor.
+
+Era cierto. El último aire en el que Hazran seguía aferrando su aliento, la gente que no había soltado hasta el final, el barco que a duras penas había revivido, y las manos que compraban tiempo para hacerlo salir. Todo estaba aquí.
+
+Que todo se hubiera reunido en un punto quería decir que lo que había que proteger se había reducido a una sola cosa.
+
+Al mismo tiempo, quería decir también que se podía perder todo de una vez.
+
+Sion volvió a subir a la rampa.
+
+El círculo se había estrechado otra vez. El niño seguía allí, y seguía sin llorar.
+
+Y más allá, el cielo del lado de la línea central derrumbada estaba más rojo que antes.
+
+El sol estaba bajando.
+
+Al verlo, a Sion se le enfrió la espalda por primera vez. Había visto muchas veces cómo la gente de Hazran recibía la noche con alegría. La hora en que se iba el calor y se podía vivir. Pero ahora esa hora no podía llegar.
+
+Cuando se va el calor, el polvillo se asienta.
+
+Cuando el polvillo se asienta, los treinta pasos sin techo se vuelven treinta pasos sin más.
+
+—Han Jiwoo.
+
+—¿Qué?
+
+—¿Qué pasa cuando se ponga el sol?
+
+Han Jiwoo detuvo las manos y miró el cielo una vez. Luego volvió a bajar las manos a la juntura.
+
+—No me digas que me dé prisa.
+Lo dijo ella.
+—Ya voy lo más rápido posible.
+
+Sion no dijo nada.
+
+Este barco tenía que cargar once veces, cada vez tardaba diez segundos más, y el sol se estaba poniendo.
 
 ---
 

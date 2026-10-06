@@ -8,7 +8,7 @@ Si volvían a entrar la próxima vez,
 esta vez entrarían hacia ese niño.
 
 El problema era
-que la sensación de que ese niño no era simplemente el «niño que esta vez no pudieron traer»
+que la sensación de que ese niño no era simplemente el *niño que esta vez no pudieron traer*
 se volvía cada vez más nítida.
 
 Han Jiwoo, al principio, no supo explicar ese hecho.
@@ -94,7 +94,7 @@ Han Jiwoo levantó enseguida la cabeza.
 
 Al niño se le secaban los labios,
 y la voz seguía siendo pequeña.
-Pero esta vez no se detuvo en «uno más» como la otra vez.
+Pero esta vez no se detuvo en *uno más* como la otra vez.
 
 —…era de los que se quedan.
 
@@ -152,7 +152,7 @@ Ahora el objetivo no era una simple recuperación.
 Aunque saquemos a otro niño con él,
 el eje es ese niño.
 
-La primera máquina de recuperación preguntó.
+La primera mano de recuperación preguntó.
 
 —¿Por qué?
 

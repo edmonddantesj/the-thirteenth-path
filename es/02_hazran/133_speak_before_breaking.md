@@ -133,7 +133,7 @@ La mujer negó al instante con la cabeza.
 
 —Tengo que dormir a los niños.
 
-—Ahora el que se apaga primero eres tú.
+—Ahora la que se apaga primero eres tú.
 
 Ante esas palabras,
 la mujer miró a Sion por primera vez.

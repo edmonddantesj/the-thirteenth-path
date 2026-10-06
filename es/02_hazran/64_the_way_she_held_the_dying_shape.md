@@ -1,185 +1,239 @@
 # Capítulo 64 — Cómo sostener una forma que muere
 
-El compartimento interior, aquel en el que Aka entró primero, era distinto de toda la Hazran que habían atravesado hasta entonces.
+El compartimento interior en el que Aka había entrado primero era distinto, otra vez, de toda la Hazran que habían atravesado hasta entonces.
 
-El olor a calor y arena se había vuelto más tenue, y en su lugar se acercaban el del metal pulido durante mucho tiempo, el de la tela seca, y el de una corriente débil que no terminaba de apagarse. Era el olor de un lugar donde alguien había separado largamente lo que podía salvarse de lo que al final no. Parecía un taller, parecía una sala de conservación, parecía también una enfermería.
+El olor a calor y a arena se había vuelto más tenue, y en su lugar se acercaban el del metal pulido durante años, el de la tela seca y el de una corriente débil que no acababa de apagarse. Era el olor de un lugar donde alguien llevaba mucho tiempo separando lo que se podía salvar de lo que al final no. Parecía un taller, una sala de conservación y también una enfermería.
 
-Sion pensó que el aire de aquel adentro se parecía a Aka.
+Sion pensó que el aire de aquel interior se parecía a Aka.
 
-No había nada que se mostrara con estrépito,
-pero era un aire que sabía de antemano qué soltar y qué sostener.
+Nada se mostraba con estrépito, pero era un aire que sabía de antemano qué desechar y qué retener.
 
-Han Jiwoo miraba alrededor de manera aún más abierta que Sion. Su interés no estaba en ninguna otra parte. El casco a medio desmontar, el metal de refuerzo ordenado al lado, la línea de empuje que se había cortado y luego se había vuelto a unir de forma provisional, una conexión que iba en dirección distinta a la del dispositivo de flotación. Este no era el sitio donde se repara un esquife del desierto. Se parecía más a los rastros acumulados por gente que había intentado revivir algo que de verdad pretendía salir hasta más allá del cielo.
+Han Jiwoo miraba alrededor de forma aún más abierta que Sion. Su interés no estaba en ninguna otra parte. El casco medio desmontado, el metal de refuerzo ordenado a un lado, la línea de empuje cortada y vuelta a unir de forma provisional, una conexión orientada en otra dirección que la de los dispositivos de sustentación. Aquel no era un sitio para reparar esquifes del desierto. Se parecía más a las huellas que había ido acumulando gente que intentaba devolverle la vida a algo que de verdad iba a salir más allá del cielo.
 
-Aka, incluso después de detenerse junto al casco, no explicó nada de inmediato.
+Aka, aun después de detenerse junto al casco, no explicó nada enseguida.
 
-En lugar de eso, miró una vez la brasa en la mano de Sion,
-una vez la marca de unión de eterita junto al armazón del casco,
+En cambio, miró una vez la brasa en la mano de Sion,
+una vez la marca de unión de eterita junto a la estructura del casco
 y una vez la mano de Han Jiwoo.
 
-Con solo aquel breve desplazamiento de la mirada, Sion sintió que Aka no estaba viendo tres objetos por separado. La brasa, el casco y una mano humana. Unos ojos que miraban si los tres podían enlazarse de una sola vez.
+Con solo ese breve movimiento de la mirada, Sion sintió que Aka no estaba viendo tres cosas por separado. La brasa, el casco y una mano de persona. Eran ojos que miraban si las tres podían enlazarse a la vez.
 
 Han Jiwoo preguntó primero.
 
-—¿Dónde sigue vivo todavía?
+—¿Dónde sigue vivo?
 
-Aka señaló el armazón interior, dentro de un desgarro largo en el revestimiento, un poco más atrás del centro del casco.
+Aka señaló el armazón interior, bajo un largo desgarro del revestimiento, un poco más atrás del centro del casco.
 
-—Aquí —dijo ella—. No del todo muerto.
+—Aquí.
+Lo dijo ella.
+—No está muerto del todo.
 
-Han Jiwoo se acercó enseguida hacia ese lado.
+Han Jiwoo se acercó enseguida.
 
-Antes de poner la mano, primero miró,
-y antes de mirar, primero acompasó la respiración.
+Antes de poner la mano, miró; y antes de mirar, recuperó el aliento.
 
-Aquello, más que la actitud de alguien que toca una máquina, era la de alguien que no toca a la ligera algo que aún podría no estar muerto.
+Más que la actitud de alguien que toca una máquina, era la de alguien que no toca a la ligera algo que tal vez aún no está muerto.
 
-Recorrió con mucho cuidado la junta interior del armazón.
+Recorrió con mucho cuidado la superficie de unión del interior del armazón.
 
-—Se quedaron a medias poniendo eterita —dijo en voz baja—. Y hay partes que mataron al pegarla.
+—Empezaron a ponerle eterita y lo dejaron a medias.
+Lo dijo en voz baja.
+—Y hay partes que mataron al fijarla.
 
-Aka asintió breve con la cabeza.
+Aka asintió con un gesto breve.
 
-—Si pones mucha, muere rápido —dijo ella—. Solo se parece en la forma.
+—Si pones mucha, muere rápido.
+Lo dijo ella.
+—Solo se parece en la forma.
 
 A Sion esa frase le sonó como una explicación de Hazran entera.
 
-Lo que solo se vuelve parecido por fuera.
+Lo que solo se parece por fuera.
 Lo que finge ser una puerta.
 Las luces que fingen estar vivas.
 
 Aka siempre había detestado eso.
 
-En lugar de salvar lo verdadero,
-el modo de matar imitando solamente la forma.
+En lugar de salvar lo verdadero, matarlo imitando solo la forma.
 
-Si Sern o Ater hubieran estado allí, habrían querido preguntar más enseguida, pero ahora mismo, en este adentro, los dos no estaban. Por eso, al contrario, las palabras se encadenaban más cortas, más directas.
+Si Sern o Ater hubieran estado allí, habrían querido preguntar más enseguida, pero en este interior no estaba ninguno de los dos. Por eso mismo, las palabras se encadenaban más cortas y más directas.
 
 Sion preguntó.
 
-—¿Entonces cómo se pega?
+—¿Entonces cómo se fija?
 
 Aka miró la mano de Sion.
 
-—Eso —dijo, señalando la brasa con un gesto del mentón—. Primero tiene que seguir vivo mucho tiempo.
+—Eso.
+Señaló la brasa con un gesto del mentón.
+—Primero tiene que seguir viva mucho tiempo.
 
-—Ahora está vivo.
+—Ahora está viva.
 
-—Solo dentro de la mano —dijo Aka—. Tiene que no morir tampoco cuando toque la forma.
+—Solo dentro de la mano.
+Lo dijo Aka.
+—Tampoco tiene que morir cuando toque la forma.
 
-En cuanto cayó esa frase, la expresión de Han Jiwoo cambió de manera apenas perceptible.
+Cuando eso cayó, la expresión de Han Jiwoo cambió de forma apenas perceptible.
 
-Sion supo de inmediato qué era ese cambio.
+Sion supo enseguida qué era ese cambio.
 
-A partir de ahora lo que hacía falta no era una simple reparación.
-No era el nivel de cambiar piezas y unir la línea de empuje,
-sino construir una estructura que sostuviera la brasa para que no muriera dentro del casco.
+Lo que hacía falta a partir de ahora no era una simple reparación.
+No se trataba de cambiar piezas y unir la línea de empuje, sino de construir una estructura que sostuviera la brasa para que no muriera dentro del casco.
 
 Han Jiwoo dijo muy bajo.
 
-—Hace falta primero un molde que reciba.
+—Primero va a hacer falta un molde receptor.
 
 Esta vez Aka miró a Han Jiwoo más tiempo que a Sion.
 
-—Sí —dijo ella—. Si la metes directo, vuelve a quemar.
+—Sí.
+Lo dijo ella.
+—Si la metes directo, vuelve a quemar.
 
-Han Jiwoo recorrió de nuevo el interior del casco. Tenía ya el rostro de quien dibuja como en un plano qué estructura desmontar y hasta dónde, con qué sostener en su lugar, qué junta había que salvar.
+Al oír eso, Sion se miró la mano.
 
-—Hay que tirar la mitad de las juntas existentes —dijo—. Queda demasiado rastro muerto. Si montas algo encima a la fuerza, como tú dices, solo vive la forma.
+Si esto no moría ahora, era porque no tocaba nada. Vivía porque estaba solo en su mano. En cuanto la fijaran, empezaría la prueba.
 
-En el momento en que oyó eso, Sion sintió que Han Jiwoo y Aka estaban viendo la misma escena con una rapidez extraña.
+—¿Entonces fijarla es lo más peligroso?
 
-Una separaba con el sentido lo verdadero de lo imitado,
-la otra separaba con la mano la estructura muerta de la que se podía salvar.
+—Sí.
 
-Lo que ambos detestaban era lo mismo.
-El modo de hacer que algo muerto fingiera estar vivo a la fuerza.
+—¿Y si no la fijo?
 
-Aka trajo de un estante estrecho, junto al casco, tres fragmentos muy pequeños de eterita.
+Aka miró a Sion.
 
-Los tres parecían semejantes, pero de cerca su veta era distinta. Uno parecía demasiado claro, otro estaba turbio por las muchas impurezas, y el último, que al principio parecía el más insignificante, cuando recibía la luz revivía muy despacio una veta interior.
+—Entonces tendrás que llevarla en la mano toda la vida.
 
-Aka los puso sobre la placa de metal bajo el casco y dijo.
+Sion no supo qué responder.
 
-—Por dentro todos parecen iguales —dijo ella—. Pero el que no aguanta mucho es el primero en ponerse bonito.
+Si solo la llevaba, no moriría. Pero tampoco iría a ninguna parte. No la había traído hasta aquí para quedarse llevándola.
+
+Han Jiwoo recorrió otra vez el interior del casco. Tenía la cara de quien ya dibuja en la cabeza, como en un plano, qué estructura arrancar y hasta dónde, con qué sostenerla en su lugar y qué superficies de unión había que salvar.
+
+—Hay que tirar la mitad de las superficies de unión que hay.
+Lo dijo ella.
+—Quedan demasiadas huellas muertas. Si montas algo encima a la fuerza, como dices tú, solo vive la forma.
+
+En el momento en que lo oyó, Sion sintió que Han Jiwoo y Aka estaban viendo lo mismo con una rapidez extraña.
+
+Una separaba con el sentido lo verdadero de la imitación; la otra separaba con las manos la estructura muerta de la que se podía salvar.
+
+Las dos detestaban lo mismo.
+Obligar a lo muerto a fingir que está vivo.
+
+De un estante estrecho junto al casco, Aka trajo tres fragmentos muy pequeños de eterita.
+
+Los tres parecían iguales, pero de cerca la veta era distinta. Uno parecía demasiado limpio, otro estaba turbio de tantas impurezas, y el último, que al principio parecía el más insignificante, al recibir la luz dejaba revivir muy despacio la veta de dentro.
+
+Aka los puso sobre una placa de metal bajo el casco y habló.
+
+—Aquí dentro todos parecen iguales.
+Lo dijo ella.
+—Pero lo que no dura mucho es lo primero que se pone bonito.
 
 Sion oyó esas palabras conteniendo la respiración.
 
-Esa frase sonaba como algo que se prendía por igual a la brasa, a la puerta y a una mano humana.
+Le sonaron como algo que valía por igual para la brasa, para las puertas y para las manos de la gente.
+
+Así habían sido las luces que crecían primero en la arena. Si las agarrabas, se consumían enteras en tu mano.
+
+Así habían sido también las cosas que primero subían de precio en el mercado. Nasim había dicho que no era que subiera el precio, sino que la gente tenía prisa.
+
+A Sion le resultó extraño que hasta aquí fuera lo mismo.
+
+Brasa, piedra o persona, lo que parecía bueno demasiado pronto solía estar gastando de golpe lo que le quedaba.
+
+—¿Y lo que dura?
+
+Lo preguntó Sion.
+
+—Se ve tarde.
+
+Lo dijo Aka.
+
+—Hay poca gente que espere a lo que se ve tarde, así que todos se llevan lo bonito.
 
 Han Jiwoo se puso en cuclillas y miró los tres una vez.
 
-No eligió de inmediato por intuición, como la brasa.
-En lugar de eso, leyó junto a cada fragmento la marca de unión, las grietas mínimas, la huella mordida por el calor. Alguno era desde el principio tan recto que daba sospecha, otro estaba tan turbio que parecía muerto del todo.
+Ella no elegía de golpe por intuición, como la brasa.
+En cambio, leía junto a cada fragmento la marca de unión, las grietas mínimas, las huellas del calor. Alguno era tan recto desde el principio que daba sospecha; otro estaba tan turbio que parecía muerto del todo.
 
 Sion, sin darse cuenta, acercó más la brasa que tenía en la mano.
 
-El calor de la brasa se aplacó muy levemente solo cerca de uno de los tres.
+Solo cerca de uno de los tres, el calor de la brasa se calmó un poco más, de forma apenas perceptible.
 
 Sin saltar,
 sin estrépito,
-sencillamente el lado menos incómodo.
+simplemente el lado menos incómodo.
 
-—Este —dijo Sion en voz baja.
+—Este.
+Lo dijo Sion en voz baja.
 
-La mirada de Aka fue al instante hacia ese fragmento.
+La mirada de Aka fue directa a ese fragmento.
 
-Han Jiwoo miró una vez la cara de Sion, y de nuevo aquel fragmento.
+Han Jiwoo miró una vez la cara de Sion y luego otra vez el fragmento.
 
-—Yo también iba a mirar ese —dijo.
+—Yo también iba a mirar ese.
+Lo dijo ella.
 
-A Sion, de un modo extraño, esas palabras lo aliviaron.
+A Sion, de un modo extraño, eso lo alivió.
 
-Como si significaran que haber entrado a este adentro no era un sitio donde tuviera que juzgar él solo.
+Le pareció que significaba que haber entrado aquí no lo obligaba a decidir solo.
 
 Aka tomó el último fragmento y lo puso sobre la mano de Han Jiwoo.
 
-—Este sostiene —dijo ella—. Aunque todavía no pueda enlazar, puede retrasar la muerte.
+Antes de dejarlo, se detuvo una vez. Con la palma abierta hacia arriba, esperó un momento y luego lo dejó.
 
-Han Jiwoo cerró la mano una vez y la abrió, como sintiendo aquel peso, y exhaló muy bajo.
+Sion supo que no era un gesto para medir el peso. Había mirado por última vez si podía dejarlo en esa mano.
+
+—Este sostiene.
+Lo dijo ella.
+—Todavía no puede enlazar, pero puede retrasar la muerte.
+
+Han Jiwoo cerró y abrió la mano una vez, como si sintiera ese peso, y soltó el aire muy bajo.
 
 —Entonces sí se puede salvar.
 
-Esta vez Aka no asintió de inmediato.
+Esta vez Aka no asintió enseguida.
 
-En lugar de eso, dijo muy bajo.
+En cambio, habló muy bajo.
 
-—Salvar, hasta aquí —dijo ella—. Hacer que se mueva, es lo siguiente.
+—Salvarlo llega hasta aquí.
+Lo dijo ella.
+—Hacer que se mueva es lo siguiente.
 
-Sion pronto supo por qué esas palabras le entraban, de un modo extraño, con más fuerza.
+Sion pronto entendió por qué esas palabras le entraban, de un modo extraño, con más fuerza.
 
-Lo que se podía hacer ahora mismo en este adentro
-llegaba hasta sostenerlo para que no muriera.
-Que se elevara de verdad,
-que tomara un camino,
-que saliera afuera, era otra etapa distinta.
+Lo que se podía hacer en este interior llegaba hasta sujetarlo para que no muriera.
+Elevarse de verdad,
+tomar el camino
+y salir afuera era otra etapa.
 
-Es decir, esto no era una versión terminada,
-sino el trabajo de crear un estado capaz de pasar a la etapa siguiente.
+O sea, esto no era la versión terminada, sino el trabajo de dejarlo en un estado que pudiera pasar a la siguiente etapa.
 
-No era un sitio donde se entregara enseguida una respuesta completa.
-En cambio, era un sitio donde se hacía comprobar que aún no estaba muerto
-y se lo dejaba listo para pasar a lo que venía.
+No era un sitio donde se entregara enseguida una respuesta terminada.
+Era, en cambio, un sitio donde se comprobaba que aún no estaba muerto y se lo dejaba listo para pasar a lo siguiente.
 
 Sion preguntó en voz baja.
 
 —¿Y después, adónde?
 
-Aka esta vez no respondió de inmediato.
+Esta vez Aka no respondió enseguida.
 
-En lugar de eso, miró una vez la oscuridad más profunda detrás del casco, miró una vez más la brasa en la mano de Sion, y solo entonces dijo muy bajo.
+En cambio, miró una vez la oscuridad más profunda detrás del casco, miró otra vez la brasa en la mano de Sion y solo entonces habló, muy bajo.
 
-—Antes de salir afuera —dijo ella—, hay que ver primero una cosa más.
+—Antes de salir afuera.
+Lo dijo ella.
+—Primero hay que ver una cosa más.
 
-Sion supo que esas palabras no eran una simple explicación añadida.
+Sion supo que aquello no era una simple explicación añadida.
 
-Significaban que dentro de este adentro había todavía un adentro más profundo,
-y que antes que el modo de salvar el casco,
-quedaba algo más que mostraría por qué este camino aún no había muerto del todo.
+Quería decir que dentro de este interior había todavía algo más adentro,
+que antes que la manera de salvar el casco
+quedaba algo que mostraría por qué este camino aún no había muerto del todo.
 
-Y ahora Aka,
-por primera vez, estaba pensando en mostrar
-incluso ese umbral siguiente.
+Y ahora Aka, por primera vez, estaba pensando en mostrarles también el siguiente umbral.
 
 ---
 

@@ -2,256 +2,275 @@
 
 Caer no era lo mismo que estrellarse.
 
-Al menos no la caída una vez que pasaba a manos de Han Jiwoo.
+Al menos no lo era la caída una vez que quedaba en manos de Han Jiwoo.
 
-Cuando el casco se hundió más adentro, bajo la sombra de los restos, el paisaje exterior se invirtió por completo. En lugar del telón negro del vacío, osamentas seccionadas, anillos de carga vacíos y pieles calcinadas de cargueros desfilaban sin distinción de arriba ni de abajo. Un mínimo desvío de ángulo y los rasparía o los reduciría a astillas. Aun así, Han Jiwoo no cortó la velocidad. Como quien sabe mejor que nadie que cortarla del todo significaba morir, forzaba la línea entre el eje roto y el poco empuje que restaba, cosiendo el trazo a pura obstinación.
+El casco se hundió más hondo bajo la sombra de los restos. El espacio entre las osamentas era más estrecho que antes. Bastaba torcer apenas el ángulo para rozarlas o hacerse pedazos. Aun así, Han Jiwoo no redujo la velocidad. Como quien sabe mejor que nadie que reducirla era morir, iba empalmando a la fuerza una línea entre el eje destrozado y el empuje que quedaba.
 
-—Aguanta. Aguanta.
-Lo masculló con los dientes apretados.
+—Va a aguantar. Aguanta.
+Ella lo murmuró con los dientes apretados.
+—Morirse ahora sería una injusticia, ¿no?
 
-—Morir ahora sería demasiado injusto.
+A quién se lo decía no estaba claro. Al barco, al motor o a sí misma. Pero, por extraño que fuera, las tres cosas sonaban ciertas.
 
-A quién se lo decía, era difícil saberlo. Al barco, al motor, a sí misma. Pero, por extraño que fuera, las tres respuestas parecían justas.
+Sern habló mientras recorría el panel con la vista.
 
-Sern recorrió el panel con la mirada y dijo:
+—Uno de atrás sigue pegado a nosotros.
 
-—Uno detrás todavía sigue pegado.
-
-—Tenaz.
+—Qué tenaz.
 Seorin lo dijo en voz baja.
 
-—Es la mano que atrapa.
+—Porque es la mano que atrapa.
 Kael respondió en pocas palabras.
 
 Esta vez nadie dejó pasar esas palabras.
 
-Afuera, otro destello rozó el flanco del casco. No fue un impacto directo, sino algo más parecido a reventar a propósito un fragmento de osamenta y dispersarlo. Las esquirlas de metal pasaron al otro lado de la rendija como polvo de estrellas. Ya no era una línea de intimidación, sino una de hostigamiento: sacudir sin descanso hasta hacerlos caer al fin. Del otro lado habían cambiado de idea: del derribo frontal habían pasado a la caída forzada.
+Otro destello de fuera rozó el costado del casco. No fue un impacto directo; esta vez se parecía más a reventar a propósito un trozo de osamenta para esparcirlo. Las esquirlas de metal pasaron rozando el exterior de la rendija como polvo de estrellas. No era una línea para asustar, sino una línea que sacude sin parar hasta hacerlos caer. Estaba claro que del otro lado también habían cambiado de idea: del derribo frontal a la caída forzada.
 
-Ater dijo brevemente:
+Ater habló con brevedad.
 
-—No es bueno.
+—No es buena señal.
 
-—¿Alguna vez lo ha sido?
-Han Jiwoo le devolvió la pregunta.
+—¿Y cuándo ha habido una buena?
+Han Jiwoo se la devolvió.
 
-Pero esta vez ni siquiera ella lo dijo con su ligereza de siempre.
+Pero esta vez ni siquiera eso sonó tan ligero como siempre.
 
-Otro impacto entró y la parte inferior del casco gimió como si fuera a plegarse sobre sí misma. Dos paneles bajo el puesto de pilotaje se apagaron a la vez, la respuesta del motor se cortó un brevísimo instante y volvió, áspera y entrecortada. El casco se hundió de golpe, y Han Jiwoo enderezó la postura con un gesto casi convulso, como si torciera la trayectoria a mano.
+Al entrar otro impacto, la parte inferior del casco gimió como si se doblara. Dos paneles bajo el puesto de pilotaje se apagaron a la vez, y la respuesta del motor se cortó un brevísimo instante antes de volver, áspera. El casco cayó de golpe, y Han Jiwoo le devolvió la postura casi retorciéndolo de un tirón.
 
-Sion apretó más fuerte el asidero que sujetaba. No tenía margen para leer lo de afuera, pero su cuerpo ya sabía hasta qué punto el casco se mantenía por puro milagro. Esto no era volar: era resistir. El último puntal para frenar la caída y elegir en qué dirección caer primero.
+Sion apretó más la mano sobre el asidero. No tenía margen para leer el exterior, pero su cuerpo supo antes que nada hasta qué punto el casco se sostenía a la fuerza. Esto no era volar, sino aguantar. El último esfuerzo para frenar la caída y caer primero en la dirección que querían.
 
-Sern dijo muy bajo:
+Sern habló muy bajo.
 
-—Llega la orilla de la capa térmica.
+—Llega el borde de la capa térmica.
 
 Un breve silencio.
 
-Han Jiwoo dijo, sin rastro de sonrisa:
+Han Jiwoo habló sin rastro de sonrisa.
 
-—Bien. A partir de aquí es puro instinto.
+—Entonces, de aquí en adelante, es puro instinto.
 
-Seorin preguntó:
+Seorin preguntó.
 
 —¿Puedes salvarlo?
 
-Han Jiwoo no respondió de inmediato. Dio un golpe más al mando y solo entonces dijo en voz baja:
+Han Jiwoo no respondió enseguida. En lugar de eso, dio un golpe más al mando y solo entonces habló en voz baja.
 
-—No hay manera de bajar sin romperlo.
+—Sin romper algo no se baja.
 
 Esa sola frase bastó.
 
-Esta vez nadie preguntó «¿puedes aguantar?». La situación estaba más allá de lo que esa pregunta pudiera cambiar. No quedaba más que estrellarse vivos, costara lo que costara.
+Esta vez nadie preguntó «¿puede aguantar?». No era un estado que fuera a cambiar por preguntarlo. No quedaba más que estrellarlo con vida, como fuera.
 
-La orilla exterior de la capa térmica llegó más rápido de lo previsto.
+El borde exterior de la capa térmica llegó antes de lo que pensaban.
 
-A través de la rendija, entre los restos y el telón negro, se dibujó primero una distorsión muy fina y borrosa. Después la luz ondeó, larga. Cosas que no eran rectas pero lo parecían se curvaron todas de golpe. La capa ardiente posada en la frontera entre el espacio y el desierto, esa zona que tuerce una vez todo lo que entra y todo lo que sale. La capa térmica exterior de Hazran.
+Entre los restos y el telón negro que se veían por la rendija, apareció primero una distorsión muy fina y borrosa. Después la luz tembló, larga. Cosas que no eran del todo rectas, pero lo parecían, se curvaron todas de golpe. La capa ardiente tendida en la frontera entre el espacio y el desierto, el tramo que retuerce una vez todo lo que entra y todo lo que sale. Era la capa térmica exterior de Hazran.
 
-Sern dijo:
+Sern habló.
 
-—Si entramos ahora, perdemos la visibilidad de retaguardia de golpe.
+—Si entramos ahora, perderemos un momento la visión de atrás.
 
-—A cambio, ellos también quedan ciegos.
+—Y a cambio nosotros también quedamos ciegos.
 Han Jiwoo respondió.
 
 —Sí.
 
-—Bien. Es equitativo.
+—Bien. Es lo justo.
 
-Han Jiwoo metió el empuje a fondo una última vez.
+Han Jiwoo metió el último empuje.
 
-En el instante en que el casco rozó la orilla de la capa térmica, todo el barco pareció atrapado por una mano gigantesca y torcido de un solo golpe.
+En el instante en que el casco rozó el borde exterior de la capa térmica, sintieron como si una mano gigantesca agarrara el barco entero y lo retorciera de un solo golpe.
 
-Ater contuvo el aliento, aferrado a la pared. Sern, por primera vez, apartó los ojos del panel e inclinó el cuerpo para leer la vibración misma en lugar de los números. Kael se acuclilló más, apretando el anclaje del suelo, mientras Seorin desplazó su peso hacia el centro, lista para atrapar a cualquiera que saliera despedido.
+Sern apartó por primera vez los ojos del panel. Inclinó el cuerpo para leer la vibración misma en lugar de los números.
 
-Sion, en ese instante, sintió el papel dentro de su chaqueta presionar más caliente entre la tela empapada de sudor. *Hazran. Aka.* Dos palabras escritas sin explicación que ahora parecían la fuerza misma que arrastraba el casco hacia abajo.
+Sion despegó de la pared la mano en la que se apoyaba. Antes, cuando se había agarrado a ella, estaba fría.
 
-Afuera, destellos cortos y largos se enredaron un breve instante.
+El calor estaba afuera, pero la pared lo iba pasando hacia dentro. La marca que le quedó en la palma tardó en enfriarse.
 
-Sern dijo casi al instante:
+Afuera, un destello corto y otro largo se enredaron una vez.
 
-—Visibilidad perdida.
+Sern habló casi al instante.
+
+—Se ha perdido la visión.
 
 Han Jiwoo apretó los dientes.
 
-—Bien. Entonces somos nosotros los que caemos primero.
+—Entonces somos nosotros los que caemos primero.
 
-Pero la capa térmica no era un refugio. Era un lugar que exigía un tributo.
+—Han Jiwoo.
+Sern la llamó.
+—¿Cuánto queda hasta abajo?
 
-En algún punto bajo el casco estalló una detonación sorda.
+—¿Y por qué me lo preguntas a mí? El que lo lee eres tú.
 
-Esta vez nadie hizo preguntas. El sonido solo bastaba para entenderlo todo. El último eje de equilibrio inferior había acabado por ceder.
+—Lo que leo y lo que se ve no coinciden.
 
-El barco se desplomó hacia abajo.
+La mano de Han Jiwoo se detuvo un instante muy breve.
+
+—¿Cuánto?
+
+—El doble, más o menos.
+
+Un breve silencio.
+
+Sion lo entendió y se le heló la espalda. Ni el que lee ni el que mira mienten, pero el calor que pasa entre los dos pliega la distancia una vez. Te fíes de cuál te fíes, vas a parar a donde no cuadra.
+
+—¿Y entonces con qué nos guiamos?
+Sion lo preguntó.
+
+Han Jiwoo, en lugar de responder, soltó el mando a medias. Y volvió a agarrarlo.
+
+—Con el cuerpo.
+
+En algún punto bajo el casco estalló un gran crujido de rotura.
+
+Esta vez nadie hizo preguntas. Bastaba el sonido para saberlo todo. El único eje de equilibrio inferior que quedaba no había aguantado al final.
+
+El barco se inclinó hacia un lado y no volvió.
 
 Más exactamente, empezó a hundirse.
 
-Han Jiwoo tiró del mando hacia sí y dijo con una voz cercana al gruñido:
+Han Jiwoo tiró del mando y habló casi gruñendo.
 
-—Muy bien, ven. Veamos hasta dónde caemos.
+—Ven. A ver hasta dónde caemos.
 
 —Han Jiwoo.
 Seorin la llamó en voz baja.
 
 —Lo sé.
-Lo cortó en seco.
+Han Jiwoo la cortó en seco.
+—Lo voy a estrellar vivo.
 
-—Lo voy a posar vivo.
+El casco ya no se movía como una nave espacial.
 
-El casco ya no se comportaba como una nave espacial.
+Ahora era una nave de descenso. Un cuerpo que, con el empuje restante, apenas sostenía la postura y gastaba toda su fuerza en elegir hacia dónde caer. Las reglas habían cambiado: ya no se trataba de quién moría primero, sino de quién tocaba el suelo menos roto.
 
-Ahora era una trayectoria de descenso. Un cuerpo que consagraba toda su fuerza restante a mantener apenas la postura con el poco empuje disponible, a elegir su dirección de caída. Las reglas habían cambiado: ya no se trataba de quién moriría primero, sino de quién tocaría el suelo menos roto.
-
-A través de la rendija, el telón negro se levantó, y debajo el desierto empezó a revelarse.
+Por la rendija, el telón negro se retiró y debajo empezó a asomar el desierto.
 
 Lo primero que vieron fue la luz.
 
-No la luz de las estrellas, sino el brillo muerto del metal que devolvía un suelo agrietado por el calor.
+No la de las estrellas, sino el brillo muerto del metal que devolvía un suelo agrietado por el calor.
 Después, la arena.
-Ni roja ni dorada: un desierto gris pardo donde se mezclaban viejas limaduras de hierro calcinadas y ceniza.
-Y por encima, las sombras largas de las naves muertas que lo cruzaban. Inmensas osamentas de barcos medio enterradas, cubiertas exteriores arrancadas, estructuras de carga torcidas tendidas sobre llanuras vitrificadas. Hazran parecía menos un planeta que un lugar donde unos restos jamás del todo abandonados se negaban aún a morir, erguidos sobre la arena.
+Ni roja ni dorada: un desierto pardo grisáceo donde se mezclaban limaduras de hierro quemadas durante mucho tiempo y ceniza.
+Y, cruzándolo a lo largo, la sombra de las naves muertas. Inmensas osamentas de naves medio enterradas, cubiertas exteriores a medio arrancar, estructuras de carga tendidas y retorcidas sobre llanuras vitrificadas. Hazran, más que un planeta, parecía un lugar donde unos restos que nunca habían llegado a ser abandonados del todo seguían aguantando sobre la arena, sin poder morir todavía.
 
-Sion contuvo brevemente el aliento.
+Sion contuvo el aliento un instante.
 
-Era ahí.
+Era allí.
 
-No podía explicarlo, y sin embargo lo sabía: era ahí. El papel señalaba ese lugar, y esta misma caída se inclinaba hacia ese punto. Una dirección que parecía un azar sin serlo. Una línea que no se podía leer, pero que no se debía perder.
+No sabía explicar por qué, y aun así sabía que era allí. El papel señalaba ese lugar, y también esta caída, al final, se inclinaba hacia allí.
 
-Sern dijo rápidamente:
+Sern habló deprisa.
 
-—A la izquierda, alta densidad de naves muertas. A la derecha, suelo vitrificado: el impacto será más violento.
+—A la izquierda, el grupo de naves muertas es muy denso. A la derecha, suelo vitrificado: el impacto será mayor.
 
-Ater enlazó de inmediato:
+Ater tomó el relevo de inmediato.
 
-—Hay que renunciar a un aterrizaje limpio. Mejor alargar la fricción.
+—Hay que renunciar a un aterrizaje completo. Mejor alargar la fricción.
 
-—Solo de oírlo ya es siniestro.
+—Solo de oírlo ya suena atroz.
 Han Jiwoo lo dijo en voz baja.
+—Entonces vamos por donde se muere menos.
 
-—De acuerdo. Vamos por el lado donde se muere menos.
+Kael habló mirando hacia delante por primera vez.
 
-Kael, por primera vez, miró hacia adelante y dijo:
+—La sombra bajo la segunda osamenta de la izquierda. Ahí el viento gira menos.
 
-—Bajo la segunda osamenta a la izquierda, en la sombra. Ahí el viento gira menos.
+Sion habló casi al mismo tiempo.
 
-Sion dijo casi al mismo instante:
+—Ahí dentro hay una línea que todavía no se ha venido abajo.
 
-—Ahí dentro, hay una línea que aún no se ha derrumbado.
+Han Jiwoo soltó una risa breve.
 
-Han Jiwoo tuvo una risa breve.
+—Vaya, ahora todos se animan a hablar.
 
-—Bien. Ahora todos se ponen a hablar.
+Ella volcó lo que quedaba de empuje hacia la izquierda una vez más.
 
-Volcó el resto del empuje hacia la izquierda una vez más.
+El casco soltó un alarido.
 
-El casco chilló.
+Aquel alarido se parecía menos a un ruido de máquina que a la voz de un cuerpo que ya no quería seguir aguantando, ni siquiera a la fuerza. Algún punto de la pared exterior izquierda raspó una osamenta y se desgarró a lo largo, y el choque retorció el barco entero. Ater se golpeó una rodilla de lleno, y a Sern se le pusieron blancos los nudillos de la mano que aferraba la arista del panel. Seorin sostuvo por reflejo el peso del centro, y Kael, por un instante, lanzó hacia delante su propio cuerpo antes que el fragmento. Para frenar a quien saliera despedido.
 
-Aquel chillido tenía menos de ruido mecánico que del grito de un cuerpo que se niega a aguantar un segundo más, ni siquiera a la fuerza. En algún punto de la pared izquierda, el metal raspó una osamenta y se desgarró a lo largo; el choque torció el barco entero. Ater golpeó el suelo con la rodilla. Las articulaciones de Sern blanquearon sobre la arista del panel que aferraba. Seorin reequilibró por instinto el peso en el centro, y Kael, por un instante, lanzó su propio cuerpo hacia adelante antes incluso de pensar en el fragmento. Para bloquear a quien saliera despedido.
-
-Han Jiwoo gritó con los dientes apretados:
+Han Jiwoo gritó con los dientes apretados.
 
 —¡Agárrense, agárrense bien!
 
-El segundo impacto fue aún más brutal.
+El segundo impacto fue más brutal.
 
-Esta vez la parte inferior raspó a la vez la arena y el metal muerto. El chirrido de fricción resonó como si moliera el casco entero, y por la rendija saltaron de golpe el polvo del desierto y los fragmentos metálicos. El barco se deslizó, se torció, se levantó una vez más y volvió a caer. No era un alto: era el movimiento de un cuerpo que se rompía hasta el final para lograr detenerse.
+Esta vez la parte inferior raspó a la vez la arena y el metal de desecho. El chirrido de la fricción retumbó como si triturara el casco entero, y por la rendija saltaron de golpe polvo del desierto y esquirlas de metal. El barco resbaló, se torció, se levantó una vez más y volvió a clavarse. No era detenerse: era un movimiento que se rompía hasta el final para poder detenerse.
 
-Sion apretó los dientes. La mano amenazaba con resbalar, pero no soltó. Lo que no debía soltar en ese instante no era solo el asidero. Este barco, esta gente, el papel en su chaqueta, el fragmento que Kael apretaba contra el pecho, y algo en el corazón de Hazran que ni siquiera había visto todavía. En ese instante, todo eso era una sola masa.
+Sion apretó los dientes. Sentía que la mano iba a resbalar, pero no soltó. Lo que no podía soltar en ese momento no era solo el asidero. Este barco, esta gente, el papel dentro de la chaqueta, el fragmento que Kael abrazaba y hasta algo del interior de Hazran que todavía ni siquiera habían visto. Ahora todo era una sola masa.
 
 El último choque fue extrañamente breve.
 
-En lugar de un estruendo final, la sensación de un largo raspado que se interrumpió de pronto.
+En vez de un estruendo final, la sensación de un raspado enorme que se detenía de golpe.
 
-Después vino el silencio.
+Después llegó el silencio.
 
-Más exactamente, el silencio nacido de la desaparición súbita de la vibración que, un instante antes, lo cubría todo: un silencio hueco, vacío.
+Más exactamente, un silencio hueco, nacido de que la vibración que hasta hacía un momento lo cubría todo hubiera desaparecido de pronto.
 
-Nadie habló de inmediato.
+Nadie habló enseguida.
 
-El motor, en algún sitio, todavía temblaba bajo, como un aliento que se negara a apagarse, y dentro del casco se enredaban el olor a metal recalentado y a circuitos quemados. A lo lejos soplaba el viento. Un sonido que jamás debería oírse desde el interior de una nave espacial. El viento de un planeta árido, barriendo la arena y el metal muerto.
+El motor seguía temblando bajo en alguna parte, como si jadeara un aliento que no lograba morirse, y dentro del casco se enredaban el olor a metal recalentado y el de circuitos quemados. A lo lejos soplaba el viento. Era una clase de sonido que no debería oírse dentro de una nave espacial. El viento de un planeta seco, barriendo la arena y el metal de desecho.
 
-Han Jiwoo fue la primera en exhalar.
+Han Jiwoo fue la primera en soltar el aire.
 
-—Bien.
-Lo dijo como una risa a medias.
-
+—Ja.
+Ella lo dijo como una risa sin ganas.
 —No estamos muertos.
 
 Seorin se incorporó de inmediato.
 
-—Todos, estado.
+—Todos, digan cómo están.
 
-Sern respondió en pocas palabras:
+Sern respondió con brevedad.
 
-—Consciente.
+—Estoy consciente.
 
-Ater se irguió apoyándose en una rodilla y dijo:
+Ater se irguió apoyándose en la rodilla y habló.
 
-—No parece haber nada roto de gravedad.
+—No parece que haya nada roto de gravedad.
 
-Kael, antes de responder, comprobó el fragmento. Seguía contra él. Solo entonces dejó escapar un aliento muy breve.
+Kael, antes que responder, comprobó el fragmento. Seguía contra su pecho. Solo entonces soltó un aliento muy breve.
 
-Sion soltó el asidero y se incorporó despacio. El papel dentro de su chaqueta seguía allí.
+Sion también soltó el asidero y se incorporó despacio. No metió la mano por dentro de la chaqueta. Estaba donde sabía que estaba, sin necesidad de tocarlo.
 
-*Hazran.*
-*Aka.*
+**Hazran**
+**Aka**
 
-Las dos palabras pesaban más que en el momento en que las descubrió.
+Las dos palabras pesaban más que la primera vez que las vio.
 
-Han Jiwoo ya recorría el panel del puesto de pilotaje, tanteándolo como para auscultarlo. Su expresión tenía menos del alivio de haber sobrevivido que del diagnóstico: por dónde empezar para salvar lo que quedaba.
+Han Jiwoo ya recorría el panel del puesto de pilotaje como si lo fuera golpeteando. Su expresión estaba más cerca de calcular por dónde empezar a salvar lo roto que del alivio de haber sobrevivido.
 
-—Nada mal.
-Lo dijo en voz baja.
-
-—El motor no está muerto, y el barco está medio vivo. Pero en este estado no volverá a despegar nunca.
+—Vivos estamos, eso sí.
+Ella lo dijo en voz baja.
+—El motor todavía no ha muerto y el barco está medio vivo. Pero en este estado no vuelve a despegar nunca.
 
 Un breve silencio.
 
-Seorin preguntó:
+Seorin preguntó.
 
-—¿Qué necesitas?
+—¿Qué hace falta?
 
-Han Jiwoo presionó la línea de respuesta rota bajo el panel y respondió:
+Han Jiwoo apretó una vez la línea de respuesta rota bajo el panel y contestó.
 
 —Eterita.
 
-Ese nombre cayó por primera vez dentro del casco.
+Aquel nombre cayó por primera vez dentro del casco.
 
-—Y de la auténtica.
-Han Jiwoo añadió con los dientes apretados.
+—Y de la buena.
+Han Jiwoo lo añadió con los dientes apretados.
+—Nada de falsa: de la de verdad. Para volver a levantar un eje así de destrozado, sin eso no hay salida.
 
-—Nada de falsificaciones. De la de verdad. Para volver a poner en vuelo un eje tan dañado, sin eso no hay solución.
+Sion miró por la rendija.
 
-Sion miró a través de la rendija.
+Más allá de las naves muertas medio enterradas, la arena, el calor y el brillo muerto del metal se extendían sin fin. Un lugar que no era de nadie. Un lugar donde importaba menos quién lo había abandonado que quién seguía allí, aguantando sin morirse.
 
-Más allá de las naves muertas medio enterradas, la arena, el calor y el brillo muerto del metal se extendían sin fin. Un lugar que no pertenecía a nadie. Un sitio donde la pregunta no era quién lo había abandonado, sino quién seguía aferrado allí, negándose a morir.
+Elia solo había dejado un nombre y una palabra.
+Han Jiwoo había dicho que hacía falta eterita.
+Y en algún lugar de este desierto estaba Aka.
 
-Elia no había dejado más que un nombre y una sola palabra.
-Han Jiwoo había dicho que necesitaban eterita.
-Y en algún punto de ese desierto estaba Aka.
+Haber sobrevivido no era el final.
 
-Haber sobrevivido no significaba que todo hubiera terminado.
-
-Todo empezaba ahora.
+Lo de verdad empezaba ahora.
 
 ---
 

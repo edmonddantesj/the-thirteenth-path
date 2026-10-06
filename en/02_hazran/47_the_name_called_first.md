@@ -1,207 +1,223 @@
 # Episode 47. The Name Called First
 
-After the man standing at the center of the courtyard swallowed his last word, the surrounding air sank one more time.
+After the man standing in the middle of the courtyard swallowed his last words, the air around them sank once more.
 
-Only now did Sion feel that this place was not simply somewhere people were gathered, but a space that ran even silence itself as a rule. Who spoke first, who got excited first, who turned their head first—all of it factored into value. That was why the people who had been laughing low and murmuring moments ago went quiet with unsettling speed the instant the decisive moment arrived.
+Only now did Sion feel that this was not simply a place for gathering people, but a place that ran even silence itself as a rule. A place where who talked first, who got worked up first, who looked away first all went into the price. That was why the people who had been laughing low and muttering a moment ago went strangely quick to quiet when it counted.
 
-Harun stood at the courtyard's edge, arms unfolded. Nasim had stepped one pace back. Those two were not the ones who would stand at center stage. Instead, they had already moved to the positions with the clearest view of who went how far, who collapsed, who broke from expectation.
+Harun stood at the edge of the courtyard without folding his arms, and Nasim had drawn back a step. Those two were not people who stood at center stage. Instead, they had already moved to the spots where they could see most precisely who went how far, who broke, and who jumped out where no one expected.
 
-Sion pressed the paper inside his jacket once and let go.
+Sion pressed the paper inside his jacket once, then took his hand away.
 
-Hazran.
-Aka.
+**Hazran**
+**Aka**
 
-The two words were still there, yet strangely they felt like they were growing more distant. Not because they had come close enough to reach, but because entering a larger structure had placed them just beyond his grasp for now.
+The two words were still there, and yet, strangely, they felt as if they were drifting further off. Not as if they had come closer and into his hand, but as if he had stepped into a bigger structure and so could not reach them right now.
 
-The man at the center spoke again.
+The man at the center opened his mouth again.
 
-"The first round is simple."
-He said.
-"We see whether a hand can recognize the real thing."
+"The first is simple,"
+he said.
+"We see whether a hand knows the real thing."
 
-Several people nearby swallowed a quiet breath.
+A few people around them drew a low breath.
 
-From that brief reaction alone, Sion could tell. This might be a rule used often on this floor, but it was not an easy one. Recognizing the real thing ultimately meant filtering out the fakes first. And in this desert, fakes were usually made to look real.
+Even from that short reaction, Sion could tell. This might be a rule often used on this floor, but it was not an easy one. Knowing the real thing meant, in the end, sifting out the fakes first. And in this desert, fakes were usually made to look like the real thing.
 
-Three shallow pedestals draped in black cloth were brought onto the central metal platform.
+Three shallow stands draped in black cloth came up onto the central metal plate.
 
-Quiet hands moved—impossible to tell who had placed them or when. Beneath each cloth, objects of similar size seemed to rest. The shapes looked alike, but the sense of weight was subtly different.
+Quiet hands moved, and no one could tell who had set them there or when. Under each cloth seemed to sit an object of about the same size. The shapes looked alike, but the sense of weight was subtly different.
 
-Sion found himself searching for Aka without thinking.
+Sion found himself looking for Aka.
 
-Aka was still standing near the deepest shade inside. Nahira blocked her by half a step, yet even so, Aka's gaze had already reached the three central pedestals. But she said nothing. The reason Zahir did not easily place Aka at the center of the stage was visible once more. A single word from that child, and this board's first rule might end too easily.
+Aka was still standing near the innermost shade. Nahira was screening her a step in front, but even so, Aka's eyes had already reached the three stands at the center. Still, she said nothing. Once again he could see why Zahir did not readily put Aka in the middle of the stage. If that child said a single word, the first rule of this board could end far too easily.
 
-So what was needed now was not Aka, but the task of selecting a hand that believed it could sort the real from the false to some degree even without her.
+So what was needed now was probably not Aka, but picking out the hands that believed they could tell the real thing apart, at least somewhat, even without her.
 
 The man at the center spoke.
 
-"One of the three is real."
-He said.
-"One is an imitation of a place where the real once sat, and one is trash that never deserved a price."
+"One of the three is real,"
+he said.
+"One is an imitation of where the real thing used to be, and one is trash that can't take a price at all."
 
-Luhai swallowed something that was almost a curse, very quietly.
+Luhai swallowed a very small breath that was nearly a curse.
 
-Sion understood immediately why the kid reacted. This was not a simple test of perception. It was a condensed version of everything Hazran's core had been talking about. Real, imitation, never-was. A door, something pretending to be a door, and something with no value at all.
+Sion could see at once why the kid had reacted. This wasn't a simple test of a sharp eye. It was everything the heart of Hazran had been saying until now, boiled down into one problem. The real thing, the imitation, and what was never it to begin with. The door and the thing pretending to be a door, and the thing that simply has no price.
 
 Nasim laughed very low.
 
-"Nice opening."
-He murmured.
+"Pretty way to start,"
+he muttered.
 
-Seorin heard that and rolled her eyes once.
+Hearing that, Seorin only rolled her eyes once.
 
-"Nice is your speech habit."
-She said low.
+"The only pretty thing here is the way you talk,"
+she said, low.
 
-The man at the center paid no mind.
+The man at the center paid no attention.
 
-"First name."
-He said clearly.
+"First name,"
+he said clearly.
 
-In that moment, Sion's breath went shallow for a strange reason.
+At that moment, oddly, Sion's breathing went shallow before anything else.
 
-The premonition that it might be him had been there since earlier.
+He had been feeling for a while now that it might be him.
 
 "Luhai."
 
 Luhai swallowed a curse almost by reflex.
 
-Low laughter rippled through the surroundings and faded quickly. It did not seem like a surprising call. If anything, it was so natural that everyone appeared to have been waiting. The kid who picked up a real fragment first from the inside, the kid who touched ledgers, the kid who chased the scent of fake and real until he caused the first incident. A perfect fit for the first call.
+A low laugh spread around once, then quickly settled. It didn't seem to be a surprising call. If anything it was so natural that it was closer to what everyone had been waiting for. The kid who had picked up the real fragment from inside first, the kid who messed with the ledgers, the kid who chased the smell of fake and real and caused trouble before anyone else. Just right for a first call.
 
-Luhai looked once at the watching hand beside him, then back at the center.
+Luhai glanced once at the watching hand beside him, then looked back at the center.
 
-"What if I refuse?"
-He asked bluntly.
+"What if I say no?"
+he asked bluntly.
 
-The man at the center answered without smiling.
+The man at the center answered without even smiling.
 
-"Then your value for tonight ends right there."
+"Then your price for tonight ends right there."
 
 Luhai clicked his tongue.
 
-"Rotten luck."
+"Real lousy luck."
 
-"And yet you're walking up."
-Kael said low.
+"You're still going up, though,"
+Kael said, low.
 
-Luhai heard that and shot him an irritated look. But this time, instead of a retort, he only let out something close to a scoff. He already knew. Pulling out here was not escape—it was an immediate drop in value. At least for a kid like Luhai.
+Luhai shot him one irritated look at that. But this time, instead of arguing back, he only let out a breath close to a snort. He already knew it himself. Pulling out here wasn't running away; it was his price dropping on the spot. At least for a kid like Luhai.
 
-He walked slowly toward the center.
+He walked out to the center slowly.
 
-Sion noticed the steps were less light than expected. His mouth was fast and his hands moved first, but once truly placed on a line, this was not a fearless kid. Just the type whose calculations ran faster than his fear.
+Sion saw that the walk was less light than he had expected. The mouth was quick and the hands moved first, but put him on a real line and he was not a kid without fear. He was just the type whose arithmetic ran ahead of the fear.
 
-The man at the center asked.
+The man at the center put a question to him.
 
-"Which hand will you look with."
+"Which hand does the looking?"
 
 Luhai answered irritably.
 
-"My hand. Whose else."
+"My hand. Whose else would it be?"
 
-Low laughter rose from the surroundings again.
+Low laughter rose around them again.
 
 The man at the center nodded.
 
 "Good. Then pick."
 
-The cloths had not yet been lifted.
+The cloths had not been lifted yet.
 
-Luhai stood before the three pedestals and did not move for a while. Sion noticed the kid's eyes were looking less at the pedestals themselves and more at the edges of the cloths, the shadows beneath the bases, the traces left from when they were placed. This was not the eye of someone simply choosing an object. It was the eye of a kid who had spent years stealing and running, watching where people hid the real thing.
+Luhai stood before the three stands and did not move for a while. Sion noticed that the kid's eyes were on the edges of the cloths, the shadows under the stands and the marks left when things were set down, more than on the stands themselves. It was not the eye of someone simply choosing an object. It was the eye of a kid who had stolen and run, and had spent a long time watching where people hid the real thing.
 
-Before the first pedestal, Luhai's hand stopped for just an instant.
+In front of the first stand, Luhai's hand stopped for just a moment.
 
-But he did not pick it.
+But he didn't take it.
 
 The second.
 
-This time his fingertip nearly grazed the cloth before pulling away.
+This time his fingertips almost brushed the cloth, then pulled back.
 
-Before the third, Luhai truly held his breath for the first time.
+In front of the third, Luhai held his breath for real for the first time.
 
-Sion found that reaction so subtle it made his nerves sharpen further. Luhai was not certain right now. He was reading how the three lied differently from one another.
+The reaction was so slight that it set Sion's nerves even more on edge. Luhai wasn't sure right now; he was reading how the three lied differently from one another.
 
-Aka was still silent.
+Aka still said nothing.
 
 Nahira said nothing either.
 
-Harun did not move.
+Harun didn't move.
 
-Only Nasim wore the faintest trace of a smile.
+Only Nasim was smiling, very faintly.
 
-Luhai finally spoke.
+Luhai finally opened his mouth.
 
 "This one."
 
-He pointed to the second pedestal.
+He pointed at the second stand.
 
-"Why."
-The man at the center asked.
+"Why,"
+the man at the center asked.
 
 Luhai narrowed his eyes.
 
-"The first one fakes being real too obviously."
-He said.
-"The third hid it too sloppily in the other direction. On this floor, the real thing doesn't roll like that."
+"The first one fakes being real way too obviously,"
+he said.
+"The third's the other way round, hidden way too sloppy. The real thing doesn't roll like that on this floor."
 
 The man at the center pressed further.
 
-"So the second?"
+"So, the second?"
 
 "The second,"
-Luhai said very low.
-"It pretends to be hidden, but it couldn't fully conceal what it is to the end."
+Luhai said very low,
+"acts like it's hiding, but it couldn't keep what it is covered all the way."
 
-That sentence sounded strangely like something said about all of Hazran right now.
+That sentence, strangely, sounded like it was about all of Hazran right now.
 
-The rule Zahir had drawn from the inside. The imitation of a door Aka had judged. And the severed site they had been chasing.
+The rule Zahir had brought out from inside,
+the imitation of a door that Aka had judged,
+and even the cut-off place they themselves had been chasing.
 
-Sion drew a shallow breath without realizing it.
+Sion found himself evening out a shallow breath.
 
-The man at the center slowly pulled back the cloth over the second pedestal.
+The man at the center slowly drew back the cloth over the second stand.
 
-Beneath it lay a single irregular metal fragment. At first glance it could pass for a worn part; look a little more carefully and it resembled an old junction piece.
+Inside lay a single irregular piece of metal. At a glance it could pass for an old part; looked at as something a little more precious, it could pass for an old joining piece.
 
-The surrounding air trembled by the smallest degree.
+The air around them stirred, very slightly.
 
-From that reaction alone, Sion felt this was not a complete failure. At least Luhai had not chosen the utter trash.
+From that reaction alone, Sion sensed this was not a complete failure. At least he hadn't picked the outright trash.
 
-But whether it was the real thing or the imitation—that was still unclear.
+But whether it was the real thing or an imitation, he couldn't tell yet.
 
-The man at the center lifted the fragment once, showing it to everyone.
+The man at the center lifted the piece once to show everyone.
 
-Then said very low.
+Then he spoke, very low.
 
 "Half right."
 
-Luhai's face locked.
+Luhai's face went stiff.
 
-The surrounding air mixed laughter, disappointment, and interest all at once.
+Laughter, disappointment and interest all mixed into the air at once.
 
-The man at the center set the fragment back down.
+The man at the center set the piece back down.
 
-"This is an imitation."
-He said.
-"But it has value. It clung to the site where the real thing once sat for a long time."
+"This is an imitation,"
+he said.
+"But it has a price. It held on to the place where the real thing used to be for a long time."
 
-Sion felt that statement slide cold down the inside of his back.
+Sion felt those words run cold down the inside of his back.
 
-An imitation, but with value.
+Then he looked toward Aka.
 
-That connected precisely to what Aka had been saying. Not all imitations were meaningless. Some had clung so long to the site where the real once sat that they were, in fact, more dangerous.
+Aka still said nothing, but it was different from before.
 
-Luhai bit his lip once.
+She wasn't looking at the stands. She was looking at Luhai.
 
-His face showed more anger precisely because it was not a complete failure.
+Sion didn't know what kind of look that was. He only knew it was the first time on this board that the kid had looked toward a person.
+
+Nahira noticed and moved half a step closer.
+
+Aka didn't move. She kept watching until Luhai came down.
+
+An imitation, but it has a price.
+
+That touched exactly on what Aka had been saying all along. Being an imitation did not make a thing meaningless. Some imitations held on to the place where the real thing had been for so long that they were even more dangerous.
+
+Luhai chewed his lip once.
+
+It was the face of someone angrier because it wasn't a complete failure.
 
 The man at the center spoke one last time.
 
-"Good. Then the next round goes harder."
+"Good. Then the next one gets harder."
 
-In that moment, Sion knew the first call would not end with Luhai.
+From the stands, the sound of prices being called rose again. Louder than before.
 
-If anything, the real start was now.
+Luhai didn't look up at the sound. Instead he rubbed his palms on his trousers, twice. It was the hand that had gone for the stand.
 
-And the next name was very likely to be called from the side carrying a higher value.
+"Wonder what comes out next."
+
+Sion had nothing to answer with. Luhai didn't seem to be asking because he was waiting for an answer either.
 
 ---
 

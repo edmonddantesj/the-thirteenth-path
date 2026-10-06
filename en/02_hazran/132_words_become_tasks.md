@@ -1,224 +1,220 @@
 # Episode 132. Words Become Tasks
 
-After saying what they had brought without losing,
-Sion's group and the Hazran people
-felt for the first time that they were beginning to have a place inside this old layer.
+After they had said what they'd brought this far without losing,
+Sion's group and the people of Hazran
+felt, for the first time, a place of their own beginning to form inside this old layer.
 
-It still couldn't be called acceptance.
-The feeling of being welcomed, even less.
+They couldn't yet say they had been accepted.
+Still less did it feel like welcome.
 
-But at least
-no one left them in the state of completely unknowable outsiders anymore.
+But at least,
+no one kept them only as wholly unknowable outsiders anymore.
 
-It was less trust
-and closer to a trial.
+That was less trust
+than a test.
 
-The kind that watches whether a survivor actually bears the share they claimed.
+The kind that meant to see what share a survivor could actually carry.
 
-The inner space was busier than the morning.
+The inner space had grown busier than it was in the morning.
 
-Treatment for the wounded continued.
-Supply organizing wasn't finished.
-Checks on which corridors would be safe for now kept going back and forth.
+Treatment of the wounded went on,
+the sorting of supplies wasn't finished yet,
+and word on which passages were safe for now kept going back and forth.
 
 But one thing was different from the day before.
 
-Sion's group was no longer standing outside that flow.
+Sion's group no longer stood outside that flow.
 
-The old machine wasn't the type to pour out direct instructions.
+The old machine was not the kind to pour out direct orders.
 But strangely,
-the few short words it dropped
-decided the direction of the entire space.
+the few short words it tossed out
+set the direction of the whole space.
 
-"Those who can move—water and cloth first."
-"Those who use their hands—toward parts organizing."
-"Beside the children, place those who did not collapse through the night."
+"Those who can move: water and cloth first."
+"Those who work with their hands: to the parts sorting."
+"Beside the children we put those who did not break overnight."
 
-Those words were very dry,
-but Sion felt that inside them was exactly how this community sees people.
+The words were very dry,
+but Sion felt the way this community saw people was right there in them.
 
-Not those who are skilled.
-Those who can hold right now.
+Not those who are good at it,
+but those who can hold up now.
 
-That standard was humble,
-but it looked like the method that survives longer.
+The standard was modest,
+and for that reason it looked like a way of surviving longer.
 
-Jiwoo was immediately called to the side where repairs and emergency reinforcement had piled up.
+Han Jiwoo was called at once to where repairs and emergency reinforcement had piled up.
 
-Few devices were fully destroyed,
-but many needed to be used further by force.
+Little of the equipment had broken down completely,
+but much of it had to be forced into further use.
 
-One old machine opened a parts crate and said.
+One old machine opened a crate of parts to show her and spoke.
 
-"By these standards, this is already scrap."
+"By this standard, these are already scrap."
 
-Jiwoo looked inside once
-and answered low.
+Han Jiwoo looked into the crate once
+and answered, low.
 
-"Then from now on, it's my standards."
+"Then from now on, it's my standard."
 
-Those words were short,
-and one human nearby couldn't help a brief grin.
+It was short,
+but a human nearby let out a short laugh despite themselves.
 
-Jiwoo put her hands to work immediately.
+Han Jiwoo set her hands to it at once.
 
-Part specs were a mess.
-Makeshift repair traces were layered.
-In any normal environment, these should have been discarded long ago.
+The part specifications were a mess,
+temporary patches lay one over another,
+and in normal conditions all of it should have been thrown out long ago.
 
 But strangely,
-she grew calmer before that disorder.
+she grew calmer, if anything, in front of that disorder.
 
-The side that tries to bring something broken back one more time before giving up completely.
+Trying once more to bring a broken thing back before giving up on it for good.
 
-What she'd said yesterday
-came back today as work for the hands.
+What she had said yesterday
+had come straight back today as work for her hands.
 
-Luhai started on the supply transport side,
-but was soon called more often to the people-holding side.
+Luhai first joined the supply hauling,
+but soon he was called more and more often to hold on to people.
 
-When a frightened child tried to bolt.
-When a wounded person started seeing things from pain and tried to stand.
-Who would quietly stay beside them and not let go to the end—
-the people of this old layer recognized it faster than expected.
+When a frightened child suddenly tried to bolt,
+when someone wounded and seeing things from the pain tried to get up,
+who would quietly stay close and not lose them to the end—
+the people of this old layer recognized that faster than expected.
 
-Luhai found the attention slightly uncomfortable.
+Luhai found those looks a little uncomfortable.
 
-"Why do you keep calling just me."
-He grumbled low.
+"Why do you keep calling just me?"
+he grumbled, low.
 
-A nearby human woman answered, offhand.
+A human woman nearby answered offhandedly.
 
 "Because you keep watching."
 
 Luhai frowned.
 
-The woman added.
+The woman added,
 
-"Like you're afraid of losing them."
+"In case you lose them."
 
-That wasn't teasing—it was observation.
-Which is why Luhai couldn't say anything more.
+That wasn't teasing; it was observation.
+So Luhai couldn't say anything more.
 
-Aka at first looked like she belonged nowhere.
+At first Aka seemed to belong nowhere.
 
 But precisely because of that,
-several machines in this old layer watched her more often.
+a few of the machines in this old layer watched her more often.
 
-Aka looked longer at sealed gaps and long-closed structures
-than at open corridors.
+Rather than the open passages,
+Aka spent longer looking at blocked-off gaps and structures sealed long ago.
 
-Sion watched and understood
-that what she'd said yesterday hadn't vanished from this space.
+Sion saw that,
+and knew that what she had said yesterday still hadn't faded from this space.
 
-*I can tell where something has gone wrong.*
-*And where something has been closed for a long time.*
+*I can tell where something's lying.*
+*Places shut a long time, too.*
 
-One old machine finally asked Aka, low.
+At last one old machine asked Aka, low,
 
-"Can you see it now?"
+"Do you see it even now?"
 
-Aka pointed at one section of wall.
+Aka pointed to one part of the wall.
 
 "That path isn't dead."
-"It is pretending to be dead."
+"It's pretending to be dead."
 
-At those words,
-two nearby machines raised their gaze simultaneously.
+At that,
+two machines nearby lifted their gaze at the same moment.
 
-A very small reaction,
-but Sion sensed intuitively that in this layer, it carried considerable weight.
+It was a truly small reaction,
+but Sion sensed that in this layer it meant a great deal.
 
-Sern joined the side organizing signal flows.
-Ater re-examined structures at risk of collapse and defensible positions.
-Kael naturally drifted toward the hardest work.
+Sern took up sorting the signal flow.
+Ater looked again at structures at risk of collapse and positions that could be defended,
+and Kael was naturally pushed toward the hardest work.
 
-No one assigned it to him,
-but in the end, the spot lifting the heaviest things,
-the spot standing first before dangerous corridors,
-the spot where the night shift ran thin—Kael was there.
+No one told him to,
+yet in the end, wherever something heavy had to be lifted,
+wherever someone had to stand first in front of a dangerous passage,
+wherever the night shift had a gap, Kael was there.
 
-Sion watched and felt
-that a person's share doesn't always come from someone assigning it.
+Watching that, Sion felt
+that a share didn't necessarily come from someone assigning it.
 
-Some people
-are already tilted toward their own share
-by their very nature.
+Some people,
+just by being who they are, already lean toward their share.
 
-Without even knowing it themselves.
+Without even knowing it.
 
-And lastly,
+And last of all,
 work came to Sion too.
 
-The old machine and the woman with the tired face from the day before
+The old machine and the human woman who had spoken to him the day before with a tired face
 called him aside.
 
-A middle corridor—neither the deepest inside
-nor fully outside.
+Neither the deepest inside
+nor fully outside, it was a middle passage.
 
 The human woman spoke first.
 
-"You're the watching type."
+"You're the one who watches."
 
 Sion didn't answer right away.
 
 The old machine followed.
 
-"Closer to the side that reads
-when people are holding,
-when they are collapsing,
-when they are forcing themselves to move."
+"Closer to the one who reads when a person is holding up,
+when they are breaking,
+and when they are moving only by force."
 
 Sion listened quietly.
 
 It was right,
 and uncomfortable.
 
-Because he'd seen those things too often.
-And because the person who sees those things
-often gets to rest last.
+Because he had seen such things too often.
+And people who see such things
+are often the last to rest.
 
-The human woman unfolded an old panel hanging on the wall.
+The human woman unfolded an old board that hung on the wall.
 
-Rough sketches of layouts.
-Positions of the newly arrived.
-Danger zone markers overlapping.
+A rough layout,
+the positions of the newcomers,
+and marks for danger zones lay over one another.
 
 "Starting tonight,"
 she said.
-"You watch."
-"Who is about to collapse right now."
+"You take a look."
+"At who's about to break right now."
 
 A short silence.
 
-That didn't mean assigning surveillance.
-It was closer to entrusting the eyes that don't miss
-the person about to go dark first.
+It didn't mean she was handing him surveillance.
+It was closer to entrusting him with the eye that doesn't miss who will burn out first.
 
-Sion looked down at that panel for a long time.
+Sion looked down at the board for a long time.
 
-The sense from Hazran of knowing when not to leave.
-Here, that was transforming
-into a different form of responsibility.
+The sense, in Hazran, of knowing he would not leave until the end.
+Here,
+it was turning into a different form of responsibility.
 
-He asked, very low.
+He asked, very low,
 
-"Is watching enough?"
+"Is watching all I have to do?"
 
 The old machine answered.
 
 "No."
 "You must speak first."
 
-That single line
-precisely shaped the task given to Sion.
+That one line
+gave Sion's share its exact shape.
 
 That day, this old layer
-hadn't simply given them a place for the first time.
+did not merely give them a place for the first time.
 
-It had begun converting
-the things left as words
-into work that had to actually be borne.
+It began turning what they had left in words
+into work they would actually have to carry.
 
 ---
 

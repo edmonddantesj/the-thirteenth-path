@@ -1,182 +1,239 @@
 # Episode 64. The Way She Held the Dying Shape
 
-The compartment beyond where Aka had walked in was different again from everything in Hazran so far.
+Once Aka had walked in ahead of them, the inner section turned out to be different again from the Hazran they had passed through.
 
-The heat and sand smell had thinned further. In their place, the closer scent of long-polished metal, dry cloth, and a faint electrical current that would not quite die pressed in. The smell of a place where someone had spent a long time sorting what could be saved from what could not. Part workshop, part preservation room, part sickbay.
+The heat and the sand smell thinned further, and in their place the smells of long-polished metal, dry cloth and a weak current that would not easily die came closer. It was the smell of a place that had spent a long time sorting what could be saved from what never could. It was a little like a workshop, a little like a preservation room, a little like a sickroom.
 
-Sion thought the air inside resembled Aka.
+Sion thought the air in there was like Aka.
 
-Nothing displayed itself loudly, yet the air already knew what to discard and what to hold.
+Nothing in it showed itself loudly, but it was air that already knew what to throw away and what to hold on to.
 
-Jiwoo was looking around even more openly than Sion. Her attention was nowhere else. The half-disassembled hull. The patching metals arranged beside it. Thrust lines severed then temporarily reconnected. Junction points oriented differently from hover devices. This was not a station for repairing desert skiffs. It was closer to traces stacked by people genuinely trying to revive something that could reach beyond the sky.
+Han Jiwoo was looking around even more openly than Sion. Her attention was nowhere else. The half-dismantled hull, the patch metal laid out beside it, thrust lines that had been cut and then spliced back for the time being, joints facing a different direction from hover gear. This was no place for repairing desert skiffs. It was closer to the traces left by people trying to bring back something that would really go out past the sky.
 
-Aka stopped beside the hull and did not explain immediately.
+Even after stopping beside the hull, Aka didn't explain right away.
 
-Instead, she looked once at the ember in Sion's hand, once at the etherite bonding traces along the hull's skeleton, and once at Jiwoo's hands.
+Instead she looked once at the ember in Sion's hand,
+once at the Etherite join marks beside the hull's frame,
+and once at Han Jiwoo's hands.
 
-From that short sweep of gazes alone, Sion felt that Aka was not seeing the three objects separately. The ember, the hull, and a person's hands. Eyes seeing whether all three could be bridged at once.
+From that short shift of her eyes alone, Sion sensed that Aka was not looking at three separate things. The ember, the hull, a person's hands. Her eyes were checking whether the three could be connected at once.
 
-Jiwoo asked first.
+Han Jiwoo asked first.
 
-"Where is it still alive."
+"Where's it still alive."
 
-Aka pointed to the inner frame behind a long tear in the outer skin, slightly aft of center.
+Aka pointed to the inner frame a little behind the middle of the hull, under a long tear in its skin.
 
-"Here."
-She said.
-"Not fully dead."
+"Here,"
+she said.
+"It's not all the way dead."
 
-Jiwoo went straight to it.
+Han Jiwoo went straight over.
 
-Before touching, he looked first. Before looking, he steadied his breath first.
+She looked before she touched, and steadied her breath before she looked.
 
-That was not the manner of someone handling a machine, but of someone who would not carelessly disturb something that might still have a chance of life.
+It was less the manner of someone handling a machine than of someone who would not carelessly touch a thing that might not be dead yet.
 
-She ran her gaze very carefully over the bonding surfaces inside the frame.
+Very carefully, she ran her hand over the joint faces inside the frame.
 
-"They started applying etherite and stopped."
-She said low.
-"Some parts they killed by bonding."
+"Somebody started fitting Etherite and quit,"
+she said, low.
+"And on this side they killed it putting it on."
 
-Aka nodded shortly.
+Aka gave a short nod.
 
-"Bond too much and it dies fast."
-She said.
-"Only the shape matches."
+"Put on a lot and it dies fast,"
+she said.
+"Only the shape ends up the same."
 
-Sion heard that sentence as a description of all of Hazran.
+To Sion the sentence sounded like an explanation of all of Hazran.
 
-Things that only matched in surface shape. Things pretending to be doors. Lights pretending to be alive.
+Things that came to look alike only on the outside.
+The thing pretending to be a door.
+The flames that pretended to live.
 
 Aka had always hated that.
 
-Instead of saving the real thing, the method that killed it while imitating the form.
+The way that, instead of saving the real thing, killed it while mimicking only its shape.
 
-If Sern or Ater had been here they would have pressed for more immediately, but neither was in this interior. So the words stayed shorter, more direct.
+Sern or Ater would have wanted to ask more right away if they had been here, but neither of them was in here now. So the words ran shorter, and more direct.
 
 Sion asked.
 
-"Then how do you bond it."
+"Then how do you attach it."
 
 Aka looked at Sion's hand.
 
-"That."
-She gestured at the ember with her chin.
-"It needs to stay alive for a long time first."
+"That,"
+she said, with a tilt of her chin at the ember.
+"It has to stay alive a long time first."
 
-"It's alive now."
+"It's alive now, isn't it."
 
-"Only in your hand."
+"Only in your hand,"
 Aka said.
-"It has to not die when it touches the form too."
+"It has to not die when it touches the shape, too."
 
-The moment those words landed, Jiwoo's expression shifted by the smallest degree.
+When those words fell, Han Jiwoo's expression changed, very slightly.
 
-Sion recognized the change immediately.
+Sion knew right away what that change was.
 
-What was needed from here was not simple repair. Not the level of swapping parts and connecting thrust lines, but building a structure that supported the ember so it did not die inside the hull.
+What was needed from here on was not simple repair.
+Not swapping parts and splicing thrust lines, but building a structure that would brace the ember inside the hull so it didn't die.
 
-Jiwoo said very low.
+Han Jiwoo spoke, very low.
 
-"We need a receiving frame first."
+"So we need a frame to receive it first."
 
-Aka looked at Jiwoo longer than Sion this time.
+This time Aka looked at Han Jiwoo longer than at Sion.
+
+"Yeah,"
+she said.
+"Put it straight in and it burns again."
+
+At that, Sion looked into his hand.
+
+The only reason this wasn't dying now was that it wasn't touching anything. It lived because it was only in his hand. From the moment it was attached, it would be tested.
+
+"So attaching it is the most dangerous part?"
 
 "Yeah."
-She said.
-"Put it in raw and it burns again."
 
-Jiwoo scanned the hull's interior once more. Her face was already drafting something like a blueprint—what to strip, what to brace with, which bonding surfaces to keep alive.
+"And if we don't attach it."
 
-"Half the existing bonding surfaces have to go."
-She said.
-"Too many dead traces left. Force it on top and it'll be alive in shape only, like you said."
+Aka looked at Sion.
 
-Hearing that, Sion felt that Jiwoo and Aka were seeing the same scene with unsettling speed.
+"Then you hold it in your hand the rest of your life."
 
-One sorted real from imitation by instinct. The other sorted dead structure from salvageable structure by hand.
+Sion had no answer to that.
 
-What they both hated was the same. The method of forcing dead things to look alive.
+If he only held it, it wouldn't die. But it wouldn't go anywhere either. He hadn't carried it this far just to hold it.
 
-Aka brought three very small etherite fragments from a narrow shelf beside the hull.
+Han Jiwoo ran her eyes over the inside of the hull again. Her face was already drawing it in her head like a blueprint—which structure to tear out and how far, what to brace it with instead, which joint faces had to be saved.
 
-All three looked similar, but up close the grain was different. One looked excessively clear. One was cloudy with impurities. The last looked the most unremarkable at first, but when it caught light, its inner grain came alive very slowly.
+"Half the existing joint faces have to go,"
+she said.
+"Too many dead traces left on them. Force it up onto these and, like you said, only the shape lives."
 
-Aka placed the three on the metal plate beneath the hull and spoke.
+The moment he heard that, Sion felt that Han Jiwoo and Aka were seeing the same picture strangely fast.
 
-"Everything looks similar in here."
-She said.
-"But the one that won't last is always the first to look pretty."
+One sorted the real from the mimicry by sense; the other sorted dead structure from structure worth saving by hand.
 
-Sion held his breath listening.
+What they both hated was the same.
+The way of forcing a dead thing to pretend it was alive.
 
-That sounded like a sentence that applied equally to embers, to doors, and to human hands.
+From a narrow shelf beside the hull, Aka brought three very small fragments of Etherite.
 
-Jiwoo crouched and looked at all three once.
+All three looked alike, but up close their grain differed. One looked too clear, one was cloudy with impurities, and the last looked like the least of them at first, but when it caught the light, the grain inside it came alive very slowly.
 
-He did not choose by gut the way one would with an ember. Instead, he read the bonding traces beside each fragment, the micro-fractures, the heat marks. Some were suspiciously neat from the start. Some looked outright dead from the cloudiness.
+Aka set the three on the metal plate under the hull and spoke.
 
-Sion brought the ember in his hand closer without realizing it.
+"In here they all look alike,"
+she said.
+"But the ones that can't last get pretty first."
 
-Near one of the three, the ember's heat settled by the smallest additional degree.
+Sion held his breath as he listened.
 
-No spike. No flair. Just the side that was less uncomfortable.
+The words sounded as if they caught on the ember, on doors and on people's hands, all alike.
 
-"This one."
-Sion said low.
+The flames that had grown biggest first in the arena had been like that. Grab them, and they burned out in your hand.
+
+The things whose prices had gone up first in the market had been like that too. Nasim had said it wasn't the price going up, it was people getting desperate.
+
+Sion found it strange that it was the same word all the way down here.
+
+Ember, stone or person, whatever looked good fast was usually spending everything it had left at once.
+
+"Then what about the ones that last."
+
+Sion asked her.
+
+"They show late."
+
+Aka answered him.
+
+"Not many people wait for what shows late, so everyone takes the pretty ones."
+
+Han Jiwoo crouched and looked over the three once.
+
+She didn't pick on instinct right away, the way the ember did.
+Instead she read the join marks beside each fragment, the hairline cracks, the scorch where heat had soaked in. One was suspicious for being too neat from the start; one was so cloudy it seemed dead outright.
+
+Without thinking, Sion brought the ember in his hand closer.
+
+Only near one of the three did the ember's heat settle, very slightly, lower.
+
+Not jumping,
+not loud,
+just the less uncomfortable side.
+
+"This one,"
+Sion said, low.
 
 Aka's gaze went straight to that fragment.
 
-Jiwoo looked at Sion's face once, then back at the fragment.
+Han Jiwoo looked once at Sion's face, then at the fragment again.
 
-"I was about to pick that one too."
-She said.
+"I was about to look at that one too,"
+she said.
 
-Sion felt strangely relieved at those words. Because it meant that coming inside was not a place where he had to judge alone.
+Strangely, that relieved Sion.
 
-Aka picked up the last fragment and placed it on Jiwoo's palm.
+It seemed to mean that coming in here did not make this a place where he had to judge alone.
 
-"Hold this."
-She said.
-"It can't bridge yet, but it can slow the dying."
+Aka picked up that last fragment and placed it on Han Jiwoo's hand.
 
-Jiwoo felt the weight, clenched and opened her hand once, and exhaled very low.
+She stopped once before she set it down. She waited a moment with the palm open and facing up, then let it go.
 
-"Then it can be saved."
+Sion knew it wasn't a motion for weighing. It was a last look at whether it was all right to put it in this hand.
 
-This time Aka did not nod immediately.
+"This one braces,"
+she said.
+"It can't connect it yet, but it can slow the dying."
 
-Instead, she said very low.
+Han Jiwoo closed her hand once and opened it again, as if feeling the weight, and let out a very low breath.
 
-"Saving is as far as here."
-She said.
-"Making it move is the next step."
+"Then we can save it, at least."
 
-Sion soon understood why those words landed so much larger.
+This time Aka didn't nod right away.
 
-What could be done inside here was holding it so it did not die—and only that. Actually rising, riding the path, going out—that was another stage entirely.
+Instead she spoke, very low.
 
-So this was not a finished answer. It was the work of building a state that could move to the next stage.
+"Saving it goes this far,"
+she said.
+"Making it move is next."
 
-Not a place that gave a completed answer immediately. Instead, a place that confirmed nothing had died yet and made it possible to carry forward.
+Sion soon knew why those words came in strangely larger.
+
+What could be done in here now went only as far as holding it so it didn't die.
+Actually lifting off,
+riding the path
+and getting out was another stage.
+
+So this wasn't a finished piece; it was work to bring it to a state that could go on to the next stage.
+
+It wasn't a place that handed over a finished answer right away.
+It was a place that confirmed it was not dead yet, and made it something that could be passed on to what came next.
 
 Sion asked quietly.
 
-"Where is the next step."
+"Where's after that."
 
-Aka did not answer immediately this time.
+This time Aka didn't answer right away.
 
-Instead, she looked once at the deeper darkness behind the hull, once more at the ember in Sion's hand, and only then said, very low.
+Instead, only after looking once into the deeper dark behind the hull, and once more at the ember in Sion's hand, did she speak, very low.
 
-"Before going outside,"
-She said.
-"There's one more thing to see first."
+"Before we go out,"
+she said,
+"there's one more thing to see first."
 
-Sion knew that was not a simple addendum.
+Sion knew that wasn't just more explanation.
 
-Even inside this interior, there was still a deeper inside. And before the method of saving the hull, something remained that would show why this path had not fully died yet.
+It meant this inside still had an inside of its own,
+and that before any way to save the hull,
+there was something more left to show why this path was not completely dead yet.
 
-And right now, Aka was thinking—for the first time—of showing the way to that next threshold as well.
+And now, for the first time, Aka was thinking of showing them even that next threshold.
 
 ---
 

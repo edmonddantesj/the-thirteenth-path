@@ -1,172 +1,270 @@
 # Capítulo 23 — La mano que pasó primero
 
-La reacción de guía que había revivido dentro de la estructura era débil, pero las huellas de una fuga reciente eran claras.
+La reacción de guía que había revivido dentro de la estructura era débil, y las huellas de una salida reciente, claras.
 
-Si solo hubiera estado una de las dos, la decisión habría sido fácil. Si solo quedara la reacción de guía, habrían revisado más adentro; si solo hubiera huellas recientes, habrían perseguido sin esperar. El problema era que ahora estaban las dos a la vez. El camino que quedaba aún no había muerto, y quien se había llevado primero el fragmento más grande tampoco había desaparecido hacía tanto tiempo.
+Si solo hubiera habido una de las dos, la decisión habría sido fácil. Si solo quedara la reacción de guía, habrían comprobado lo que había más adentro; si solo hubiera huellas recientes, habrían ido tras ellas enseguida. El problema era que ahora estaban las dos. El camino que quedaba aún no había muerto, y quien se había llevado antes el fragmento más grande tampoco había desaparecido hacía mucho.
 
-Sion fue el primero en abrir la boca.
+Desde el otro lado del canal de corto alcance, Seorin fue la primera en hablar.
 
-—Decidamos. Si miramos más adentro primero, o si vamos tras el rastro ahora.
+—Decide. O miramos primero lo de más adentro, o vamos ya tras la cola.
 
-Sion no respondió de inmediato. Sus ojos seguían yendo de la oscuridad del fondo de la estructura a las huellas recientes en el borde de la ranura. La marca de peso que había dejado quien se llevó el fragmento más grande: un desplazamiento del centro de gravedad, una raya apenas visible sobre el metal, y la huella del cuerpo que se torció una vez al salir a toda prisa. Eran huellas de alguien que huía y, a la vez, huellas de alguien que sabía leer esta estructura.
+Sion no respondió enseguida. Sus ojos seguían yendo y viniendo entre la oscuridad del interior de la estructura y las huellas recientes junto a la ranura. La marca del desplazamiento de peso que había dejado el que se llevó el fragmento más grande, la superficie de metal levemente arañada y la huella de alguien que, al salir con muchísima prisa, había torcido el cuerpo una vez.
 
-Sern dijo en voz baja:
+Sern habló en voz baja.
 
-—Si lo perseguimos, ahora es cuando estamos más cerca. Si tardamos más, la capa de polvo y las vibraciones matan las huellas.
+—Si lo vamos a perseguir, ahora es cuando más cerca estamos. Si tardamos más, la capa de polvo y las vibraciones matan las huellas.
 
-Ater señaló el otro lado casi al mismo tiempo.
+—¿Cuánto queda?
 
-—Pero si se corta la reacción que queda más adentro, reabrir toda esta estructura puede salir caro.
+—Por las huellas, menos de diez minutos. Después solo queda la dirección y desaparece la distancia.
 
-Han Jiwoo dijo, baja, desde el lado del casco:
+—¿Con la dirección no basta para seguirlo?
 
-—Ninguno de los dos se equivoca. Por eso me molesta más.
+—Fuera de esta estructura hay cuatro ramales —dijo Sern, y se detuvo un momento—. Solo con la dirección, sería elegir uno de los cuatro.
 
-Sion miraba la oscuridad interior. Habló muy despacio:
+Ater, casi al mismo tiempo, señaló el otro lado.
 
-—No podemos llevarnos las dos cosas.
+—¿La reacción del interior también tiene diez minutos?
+
+—Eso no puedo medirlo. El ciclo no es regular.
+
+Ater miró la oscuridad del interior.
+
+—Entonces es peor. Por un lado, algo que no sabemos cuándo morirá; por otro, algo que se borra dentro de diez minutos. Dejar para después lo que no sabemos cuándo morirá no es un cálculo, es una apuesta.
+
+—¿Entonces propone mirar primero el interior?
+
+—No he dicho eso —dijo Ater, con la voz un poco más baja—. Yo he dicho cuál es el precio de ese lado. No es lo mismo descartar algo sabiendo su precio que sin saberlo.
+
+Sion lo miró un momento al oír eso.
+
+Lo decía un hombre de la Cámara de Reconocimiento, pero esta vez no era el lenguaje de la autoridad. Decía que, si había que descartar algo, al menos se supiera qué.
+
+Han Jiwoo habló en voz baja desde el casco.
+
+—Ninguno de los dos se equivoca. Por eso lo odio más. No se pueden llevar las dos cosas.
 
 —Claro que no.
+Sion respondió.
+—Por eso digo que decidamos ahora.
 
-Sion dijo, bajo:
+Sern volvió a examinar la zona de las huellas de la salida reciente. La capa de polvo se cortaba una vez, y un fino polvo metálico estaba esparcido hacia fuera. Alguien que hubiera sacado un objeto con prisa habría oscilado mucho más, pero estas huellas estaban sorprendentemente ordenadas. Un movimiento apresurado que, sin embargo, no se había venido abajo. Es decir, alguien acostumbrado al terreno.
 
-—Por eso digo de decidir ahora.
+Y habló muy bajo.
 
-Sern volvió a examinar la zona de las huellas de la fuga reciente. La capa de polvo se cortaba una vez, y un fino polvo metálico se había dispersado hacia fuera. Si hubiera sido alguien que arrancó el objeto con prisa, el centro de gravedad se habría tambaleado mucho más, pero estas huellas estaban, inesperadamente, ordenadas. Un movimiento apresurado, pero que no se derrumbó. Es decir, alguien acostumbrado a este sitio.
+—Por lo menos, no es un aficionado. Son las huellas de alguien que sabe ordenar incluso cuando va con prisa.
 
-Dijo muy bajo:
+Ater volvió a mirar los arañazos recientes. La posición de donde se había sacado el fragmento más grande, el ángulo en que había quedado encajada la esquirla, el grado de daño del borde de la ranura.
 
-—El otro no es, por lo menos, un aficionado. Son huellas de alguien que sabe darse prisa y ordenar a la vez.
+Y habló en voz queda.
 
-Ater volvió a mirar las rayas recientes. La posición exacta de donde se había sacado el fragmento más grande, el ángulo en que habían quedado encajados los restos, el grado de daño en el borde de la ranura. Coincidía. No eran huellas de una mano que arrancó con prisa sin conocer la estructura. Esta era una mano que se había movido después de entender al menos una vez esta lógica.
+—Quien pasó primero es alguien capaz de leer esta estructura.
 
-Dijo, en voz baja:
+Sion no reaccionó enseguida a esas palabras.
 
-—Quien pasó primero es del lado que sabe leer esta estructura.
+Seorin habló.
 
-Sion no reaccionó de inmediato a esas palabras. No era simplemente alguien que robó, sino alguien que superó el discriminador y agarró con precisión el fragmento más grande. Entonces esto no era un problema de un objeto robado. Era la cuestión de quién había leído este camino primero.
-
-Por el canal cercano entró breve la voz de Seorin.
-
-—Pues razón de más para perseguirlo ahora.
+—Entonces, con más razón, lo correcto es perseguirlo ahora.
 
 Ater levantó la mirada.
 
-—El motivo.
+—¿Con qué fundamento?
 
-—El fondo queda, pero la mano que pasó primero no.
+—El interior se queda, pero la mano que pasó primero no se queda.
+Seorin lo dijo tajante.
+—La estructura se puede volver a leer. A una persona, si la vuelves a perder, se acabó.
 
-Seorin cortó en seco:
+—Si la estructura muere, tampoco se puede leer —replicó Ater.
 
-—La estructura puede leerse otra vez. A una persona, si la perdemos otra vez, se acabó.
+—Aunque muera, sigue ahí.
 
-Breve silencio.
+—Aunque siga ahí, si no se puede leer, es como si no existiera.
 
-Al oír eso, Sion levantó muy levemente la comisura de la boca. Seorin tenía razón. La reacción del fondo era inestable, pero aún seguía viva. En cambio una persona, si se alejaba una vez más, en esta zona del cúmulo exterior simplemente se disolvía en el espacio.
+—Entonces te pregunto una cosa —dijo Seorin, bajando un poco la voz—. No sé qué hay ahí dentro. Pero el que va por delante ya sabe lo que nosotros sabemos. Lo leyó antes que nosotros, lo agarró antes que nosotros y ahora se lo está llevando. ¿Cuál de los dos sabe más?
+
+Ater no respondió.
+
+—La estructura la podemos leer si volvemos. Esa persona, aunque volvamos, ya no estará aquí.
+
+Sion lo oyó y levantó apenas la comisura de los labios. La reacción del interior era inestable, pero aún estaba viva. En cambio, una persona, si se alejaba una vez más, en esta zona del cúmulo exterior simplemente se disolvía en el espacio.
 
 Por fin levantó la cabeza.
 
 —Vamos tras él.
 
-Ater no preguntó más. Esa decisión parecía emocional, pero en realidad era la opción más práctica. Y el hecho de que ni él mismo encontrara ahora una razón para oponerse a esa elección era, a la vez, desagradable y nítido.
+Ater no preguntó más.
 
-Sern preguntó enseguida:
+Pero tampoco se dio la vuelta. Mientras los otros dos se orientaban hacia las huellas, él siguió mirando la oscuridad del interior.
 
-—El orden.
+—Excelencia.
 
-Sion señaló con el dedo la dirección que seguían las huellas recientes.
+Sern lo llamó.
 
-—El que huyó no salió directo hacia fuera. Se escondió una vez en la sombra de la estructura interior y desde ahí volvió a torcer hacia la banda de acceso exterior.
+—Nos vamos.
 
-Han Jiwoo recibió de inmediato:
+Aun así, tardó un compás más.
 
-—Entonces saco un poco más el casco hacia fuera y armo el ángulo de la nave de recogida.
+En ese compás, el resplandor residual del interior asomó una vez más. Más débil que antes. Y luego desapareció muy despacio, más que apagándose, desvaneciéndose.
+
+Ater lo miró terminar hasta el final.
+
+—…Ha muerto.
+
+Sion se volvió.
+
+—¿El qué?
+
+—La reacción del interior. Ahora mismo.
+
+Los tres miraron hacia allí. La oscuridad seguía tan oscura como antes. Para saber qué había estado allí y ya no estaba, habría que haber estado mirando desde antes, y el único que había estado mirando desde antes era Ater.
+
+El canal de corto alcance se quedó un momento en silencio.
+
+—¿Volverá a revivir? —preguntó Seorin.
+
+—No lo sé.
+
+—Que no lo sepas quiere decir que no.
+
+—…Sí.
+
+Sion no dijo nada.
+
+Acababa de ver, delante de sus ojos, cómo pagaba el precio no el lado que había elegido, sino el que no había elegido. Al elegir había pensado que se trataba de ganar una de las dos cosas, y en realidad se trataba de matar una.
+
+—Es decisión mía —dijo Sion.
+
+—Es decisión tuya, sí —respondió Seorin—. Pero el fundamento lo di yo.
+
+—Eso lo repartimos luego.
+
+—No hay luego. Si no lo repartimos ahora, luego cargas tú solo con ello.
+
+Solo entonces Ater se dio la vuelta. Al girarse, miró atrás una vez más, pero esta vez no había nada que ver.
+
+Sern preguntó enseguida.
+
+—¿El orden de avance?
+
+Sion señaló con el dedo la dirección en que seguían las huellas recientes.
+
+—El que salió no fue directo hacia fuera. Primero se escondió en la sombra de la estructura interior y desde ahí giró otra vez hacia la banda de acceso exterior.
+
+Han Jiwoo respondió enseguida.
+
+—Entonces saco un poco más el casco hacia fuera y preparo el ángulo para la línea de recuperación.
 
 —No.
+Sion negó con la cabeza.
+—Han Jiwoo, tú mantén el casco. Si alguien vuelve a pegarse, necesitamos un barco al que volver.
 
-Sion negó con la cabeza:
+Han Jiwoo no replicó. En lugar de eso, desde el otro lado del canal de corto alcance solo llegó un respiro muy corto.
 
-—Han Jiwoo, tú mantienes el casco. Si alguien se nos vuelve a pegar, necesitamos una nave para volver.
+Seorin preguntó.
 
-Han Jiwoo no replicó. En cambio, por el canal cercano cruzó solo un respiro muy corto.
-
-Por el canal cercano entró la voz de Seorin.
-
-—Quién va al frente.
+—¿Quién va delante?
 
 —Yo.
+Lo dijo Sion.
+—Sern, en medio. Ater, detrás, leyendo la estructura.
 
-Sion dijo:
+Un momento después, Seorin habló.
 
-—Sern en medio. Ater detrás, leyendo la estructura.
+—Si te pasas, corto yo primero.
 
-Un momento después, Seorin dijo, breve:
-
-—Si te excedes, soy yo quien corta primero.
-
-Sion respondió con la vista al frente:
+Sion respondió con la vista al frente.
 
 —Lo sé.
 
-Terminada la breve conversación, los tres se movieron muy rápido. Sion fue el primero en torcer el cuerpo hacia fuera de la estructura, siguiendo la marca reciente del desplazamiento de peso. El camino no estaba trazado como un camino. Anillos cortados y peldaños rotos, restos de alineación exterior, un esqueleto de mantenimiento de dique medio descubierto en una grieta estrecha. Esto no era un pasaje, sino una junta que solo alguien que conociera la estructura podía cruzar a duras penas. Es decir, también quien había pasado primero sabía leer este camino.
+Terminada la breve conversación, los tres se movieron muy deprisa. Sion fue el primero en girar el cuerpo hacia el exterior de la estructura, siguiendo la marca reciente del desplazamiento de peso. El camino no estaba abierto como un camino. Anillos cortados y pasarelas rotas, restos de la alineación exterior, una grieta estrecha donde asomaba a medias el armazón de mantenimiento del muelle.
 
-Sern dijo enseguida desde atrás:
+Sern habló enseguida desde atrás.
 
-—Peldaño izquierdo, carga muerta.
+—Pasarela izquierda: carga muerta.
 
-En cuanto oyó las palabras, Sion torció el pie. Justo al instante siguiente, la parte de abajo de la placa metálica que iba a pisar se hundió en silencio. Más que una caída, fue un silencio como si lo que aguantaba se hubiera derrumbado por sí solo.
+En cuanto lo oyó, Sion desvió el pie. Al instante siguiente, la parte de abajo de la placa de metal que iba a pisar se hundió en silencio. Más que una caída, fue un silencio, como si lo que aguantaba se hubiera derrumbado por sí solo.
 
-Por el canal cercano, Seorin bajó la voz.
+Seorin bajó la respiración.
 
 —Si hubieras venido solo, ya te habrías caído.
 
 —Si hubiera venido solo, para empezar no habría venido.
 
-—Eso es mentira.
+—Mentira.
 
-Sion no respondió y miró al frente.
+—…Sí.
 
-En la pared interior de la sombra de la estructura quedaba esta vez una huella mucho más nítida. Sobre la superficie metálica, una quemadura como si el dorso de una mano hubiera rozado la superficie, y justo al lado un fragmento de fibra muy brevemente cortado. Parecía la huella del filo de un abrigo o del forro de un guante raspado.
+—Habrías venido. Tú solo.
 
-Sern tendió la mano y levantó esa fibra con muchísimo cuidado.
+—Eso también, sí.
+
+—Por eso me quedé en el barco.
+
+Sion no respondió. Detrás solo se oía a Sern señalando la siguiente línea de carga.
+
+En la pared interior de la sombra de la estructura quedaba esta vez una huella mucho más nítida. Una quemadura en la superficie de metal, como si la hubiera rozado el dorso de una mano, y, al lado, un trozo de fibra cortado muy corto. Parecía lo que deja al rasparse el borde de un abrigo o el forro de un guante.
+
+Sern alargó la mano y recogió esa fibra con muchísimo cuidado.
 
 —Es nueva.
 
 En cuanto Ater la vio, su mirada se hundió.
 
-—No es de corte imperial.
+—No es de factura imperial.
 
-Sion preguntó de inmediato:
+Sion preguntó enseguida.
 
-—¿Del lado de la Alianza?
+—¿De la Alianza?
 
 Ater no estaba seguro.
 
-—Al menos no es del formato de la Cámara de Reconocimiento. Y tampoco es de los peones del puerto.
+—Por lo menos, no es del formato de la Cámara de Reconocimiento. Y tampoco es de los estibadores del puerto.
 
-Esa era la clase más incómoda. Ni imperial, ni de la Alianza, ni tampoco un buhonero de los bajos fondos. Una mano gris que había leído la estructura desde fuera del poder y había entrado primero.
+Esa era la clase más incómoda. Ni el Imperio, ni la Alianza, ni tampoco un buhonero de los bajos fondos. Una mano gris que había entrado primero desde fuera del poder.
 
-Sion miró más tiempo la huella del dorso de la mano en la superficie metálica de al lado que el fragmento de fibra.
+Sion miró más tiempo la huella del dorso de la mano en la superficie de metal de al lado que el trozo de fibra.
 
-—Eso no es una raya de correr. Es la marca de quien se detuvo para aguantar.
+—Eso no es un arañazo de ir corriendo. Es la marca de alguien que se detuvo y aguantó.
 
-Ater continuó en voz baja:
+Ater lo continuó en voz queda.
 
-—Entonces el otro también leyó la dirección aquí y volvió a moverse.
+—Entonces quiere decir que también el otro leyó aquí la dirección y volvió a moverse.
 
-Sion señaló al frente muy despacio.
+Sion señaló hacia delante muy despacio.
 
 —Por allí.
 
-El punto donde terminaba la sombra exterior de la estructura, la parte donde se superponían los restos de la banda de acceso exterior y una vieja placa de alineación. El lugar más apropiado para que alguien se escondiera y volviera a salir.
+Era el punto donde terminaba la sombra exterior de la estructura, donde se superponían los restos de la banda de acceso exterior y una vieja placa de alineación. El sitio más adecuado para que alguien se escondiera y volviera a salir.
 
-Ahora el objetivo propio estaba claro. Seguir leyendo la reacción de dentro también importaba, pero lo más urgente ahora era no perder la mano que había pasado primero con el fragmento más grande. La reacción que quedaba era débil, y las huellas también se morían rápido. Y al final, el único lado capaz de leer esta escena aquí mismo, ahora, y de continuar el hilo, eran ellos.
+Sion se detuvo un momento allí.
 
-Las cuatro personas bajaron la respiración a la vez.
+—Sern.
 
-Y justo entonces, en la oscuridad de delante, sonó el roce muy leve de un metal.
+—Sí.
 
-Como si alguien aún no se hubiera ido lejos.
+—Antes dijiste diez minutos.
+
+—Sí.
+
+—¿Cuántos han pasado?
+
+Sern hizo la cuenta un momento antes de responder.
+
+—Seis minutos.
+
+—¿Y lo que tardó en morir el interior?
+
+—…Dos minutos.
+
+Sion soltó el aire una vez.
+
+Dos minutos. Entre elegir y que le pasaran la cuenta habían pasado dos minutos. No sabía si eso era rápido o lento, pero al menos una cosa sí sabía. La próxima vez que eligiera algo, el precio también llegaría así, por detrás.
+
+—Vamos.
+
+Los tres bajaron la respiración a la vez.
+
+En la oscuridad de delante sonó un roce de metal, muy leve.
 
 ---
 

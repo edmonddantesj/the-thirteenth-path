@@ -1,259 +1,266 @@
 # Episode 37. The Hand That Cut the Noise
 
-When Harun entered the alley, the commotion remaining in the market's outer layer had not fully died — yet it could no longer orbit this center.
+When Harun came into the alley, the commotion left in the market's outer layer had not fully died out, yet it could no longer move with this spot at its center.
 
-Someone was still breathing hard, someone swallowing curses, someone muttering about lost value — but all that sound felt like it was being pushed outside Harun's field of vision. He did not walk especially slowly, nor did he walk with deliberate menace. He simply entered — and no one could step forward first. That kind of hand.
+Someone was still breathing hard, someone was swallowing a curse, someone was muttering that a price had just flown away, and all of those sounds felt as if they were being pushed out past the edge of Harun's sight. He was not walking especially slowly, and his step was not deliberately threatening either. He had simply walked in, and yet he was the kind of hand no one dared step forward ahead of.
 
-Sion could tell the instant he saw him.
+The moment Sion saw him, he knew.
 
-If Nasim was the face that priced and filtered roads — this one was the hand that decided who could still speak here and who had to shut their mouth.
+If Nasim was the face that put prices on things and filtered the way through, this one was the hand that decided who could keep making noise here and who had to shut their mouth.
 
-Harun stopped after two steps into the alley.
+Harun stopped only after he had come two steps into the alley.
 
-The arm revealed beneath black cloth was lean but solid, bearing the marks of long scraping by sand and heat. The face did not smile, did not show anger. Instead — a single sweep of this side was enough to assess who was how dangerous, danger first.
+The arm showing under the black cloth was on the thin side but hard, and it still bore the marks of long scraping by sand and heat. His face did not smile, and it did not show anger. Instead his were eyes that, with a single sweep over them, measured first who was dangerous and by how much.
 
-His gaze touched the shard in Luhai's hand first.
-Then Kael's grip.
-Then Sion.
-And last — Seorin.
+What his gaze touched first was the piece in Luhai's hand.
+Next, Kael's hand,
+next, Sion,
+and last of all, Seorin.
 
-Ater had reduced even his breathing, waiting for the next words.
+Ater, his breathing pared right down, waited for the next word.
 
-Harun spoke.
+Harun opened his mouth.
 
 "Let go."
 
-Short, low voice.
+It was a short, low voice.
 
-Kael did not release immediately.
+Kael did not loosen his hand right away.
 
-"To whom."
-He asked.
+"Says who?"
+he asked.
 
-Short silence.
+A short silence.
 
-Outside the alley, someone swallowed a small breath. Nasim maintained his smiling face, but his gaze dipped toward Kael for just a moment. This was not an amusing conversation — it was the kind of beginning that Hazran's outer-layer people preferred not to watch long.
+Outside the alley, someone swallowed a breath quietly. Nasim kept his smiling face just as it was, but his eyes settled on Kael for only a moment. This was not a fun conversation; it was the kind of beginning the people of Hazran's outer layer didn't want to watch for long.
 
-Instead of answering, Harun looked at Kael's hand gripping Luhai's wrist.
+Instead of answering, Harun looked once at Kael's hand gripping Luhai's wrist.
 
-"Start there."
-He said.
+"Starting there,"
+he said.
 
-Kael narrowed his eyes. In that brief face, Sion felt again: this person was not the type to avoid a fight — but the type that watched until the very end who crossed the line first, then decided. Same as inside the structure, same as in the alley moments ago. Kael did not yield easily. Nor did he collide stupidly. The kind who moved after seeing exactly one more line.
+Kael narrowed his eyes. In that brief face Sion felt again that this man was not the type to avoid a fight, but the type to watch to the very end who crossed the line first and then decide. He had been like that inside the structure, and in the alley a moment ago too. Kael did not back down easily. Nor did he crash head-on like a fool. He was a man who moved once he had seen just one more line.
 
-Seorin cut in first.
+Seorin stepped in first.
 
-"We didn't pick it up first."
-She said low.
-"But who first recognized the real thing mixed among fakes — everyone's seen that now."
+"We're not the ones who picked it up first,"
+she said, low.
+"But I think everyone's seen by now who spotted the real one mixed in among the fakes first."
 
 Harun's gaze went to her.
 
-"So."
+"So?"
 
-"So there's no reason to price bloodshed outside."
+"So there's no reason to put a knife's price on it out here,"
 Seorin answered.
-"For this much value — at least sort out who's fleecing whom before moving."
+"With a price like this, you'd at least have to sort out who's fleecing whom before anyone moves, wouldn't you?"
 
-Nasim laughed very small from beside. The words were rough, but he caught that Seorin had thrown them in this floor's logic instead of charging Harun head-on.
+Nasim laughed very softly beside them. The phrasing itself was rough, but it was the laugh of someone who had caught that Seorin, instead of going straight at Harun, had thrown out her words in the logic of this place.
 
-Harun's expression did not change even at that.
+Harun's expression still didn't change.
 
-"Everyone talks like that."
-He said.
-"The hand that caught the real thing always thinks they knew first."
+"Everyone says that,"
+he said.
+"The hand that grabs the real thing always thinks it knew first."
 
-Luhai fired back immediately hearing that.
+Hearing that, Luhai blurted out at once.
 
 "I did know first."
 
-Kael's grip tightened slightly again.
+Kael's hand tightened a little again.
 
-"Mouth."
-He said short.
+"Mouth,"
+he said briefly.
 
-"That hurts."
+"That hurts,"
 Luhai snapped.
-"I said I'm not running."
+"I told you I'm not running."
 
-"You said that just now too."
+"You said that just now too,"
 Sion muttered.
 
-That brief line loosened the alley air just barely. Not fully released — but at least the moment when everything hung on a single blade-edge felt past. Harun seemed to sense that subtle shift too. But he did not ease up. He was the type that organized situations even colder.
+At those few words the air in the alley loosened, just a little. It hadn't come completely undone, but at least it felt as if the moment when everything hung on a single blade had passed. Harun seemed to feel that slight change too. That did not mean he let it go. If anything, he was the kind who settled a situation even more coldly.
 
-"The shard."
-He said, looking at Luhai.
+"The piece,"
+he said, looking at Luhai.
 "Hand it over."
 
-Luhai's expression went rigid.
+At that one word, Luhai's face went hard all at once.
 
-Until now irritation and bravado came first — but this time, real wariness beneath showed through. This child already knew: this was not a problem that ended with losing a few coins.
+Until a moment ago irritation and bluster had come first, but this time the real wariness underneath showed. That this was not a problem that ended with getting fleeced of a few coins, this kid at least already knew.
 
-"No."
-Low.
+"No,"
+he said, low.
 
-Harun's eyelids lowered — barely perceptibly.
+Harun's eyelids lowered, very slightly.
 
-Sion felt precisely where danger was growing in that moment. Not when shouts got louder — but when only too-short words remained. On this floor, truly dangerous hands always moved that way.
+At that moment Sion felt exactly where the danger was growing. Not when the shouting got louder, but when only words that were far too short were left. On this floor, the truly dangerous hands always moved like that.
 
-Kael placed words first.
+Kael spoke first.
 
-"Take it straight from this kid's hand and it gets louder."
+"Take it straight out of the kid's hand and it'll only get louder."
 
 Harun looked at him.
 
-"So."
+"So?"
 
-"So let's decide who looks at the price first."
-Kael said, plain.
-"Everyone's watching right now."
+"So let's settle who looks at the price first,"
+Kael said evenly.
+"Everyone here's watching right now."
 
-Harun, for the first time, looked around once more at the end of those words.
+At the end of those words, for the first time, Harun looked around once more.
 
-People standing beyond the alley, ears pretending not to hear but hearing everything, the merchant who'd just been shouting about the real thing, outer-layer eyes that would remember who touched wrong. Harun could dismiss outer-layer people lightly — but his face knew he could not cut a commotion this widespread without a trace.
+The people standing outside the alley, the ears pretending not to see but hearing everything, the merchant who had just been yelling that it was real, the eyes of the outer layer that would remember who had wrongly laid a hand on what. It was the face of someone who knew that he might think little of the people of the outer layer, but that he could not cut off a commotion that had spread this far without leaving a trace.
 
-Nasim slid in, smooth.
+Nasim stepped in softly.
 
-"Hold onto this too long outside and the price only climbs."
-He said.
-"And that kid's mouth will only get longer."
+"Hold on to it out here too long and the price only jumps,"
+he said.
+"And that kid's mouth is only going to get longer."
 
-Luhai fired back at once.
+Luhai shot right back.
 
 "It's always been long."
 
-This time even Sion nearly could not hold back a laugh. Even Ater briefly lowered his gaze with a steadying breath. A mouth that went first even at timing like this — it matched strangely well with the way the name Luhai was attached.
+This time even Sion nearly couldn't hold back a laugh. Even Ater lowered his eyes for a moment and seemed to steady his breath. A kid whose mouth went first even at a moment like this. That fit, strangely well, the way the name Luhai had been stuck on him.
 
 Harun did not laugh.
 
-Instead, very low.
+Instead he spoke very low.
 
-"Do you even know what you grabbed and ran with."
+"Do you know what you ran off with?"
 
-Luhai was silent briefly.
+Luhai was silent for a moment.
 
-"Half."
-A blunt answer.
-"No — two-thirds."
+"Half,"
+he said, flatly.
+"No. Two-thirds."
 
-Sion blinked almost reflexively. Same answer as before. But Harun's face did not hear it as pure bluster.
+Sion blinked, almost by reflex. It was the same answer as before. But Harun had the face of a man who hadn't heard it as mere bragging.
 
-"Explain."
-He said.
+"Explain,"
+he said.
 
-Luhai rolled his eyes even caught in Kael's grip. Eyes calculating what to say here to live and what to say to get robbed.
+Even held in Kael's grip, Luhai rolled his eyes around. They were eyes calculating what he could say here and live, and what he could say and have it taken from him on the spot.
 
-"It was playing too dead among the fakes."
-He said.
-"Then it's usually one of two things. Real — or someone hid it on purpose."
+"It was playing dead too hard among the fakes,"
+he said.
+"Then it's usually one of two things. It's real, or somebody hid it there on purpose."
 
-Harun did not reply immediately.
+Harun did not respond right away.
 
-Nasim laughed small instead.
+Nasim laughed softly instead.
 
-"Long mouth indeed."
+"A long mouth, sure enough."
 
-"I'm right though."
-Luhai tossed out.
+"It's true, isn't it?"
+Luhai shot out flatly.
 
 This time Harun looked not at Luhai but at Sion.
 
-"You came looking for that too?"
+"Did you come to look at that too?"
 
-Sion did not hesitate.
+Sion did not hesitate even for a moment.
 
-"We need etherite."
-He said.
-"Our ship is near-dead."
+"We need Etherite,"
+he said.
+"Our ship is about to die."
 
-"And looking for that name too."
+"And that's why you're looking for that name too,"
 Harun said.
 
-Short silence.
+A short silence.
 
-Sion did not ask which name he meant.
+Sion didn't ask which name he meant.
 
 Aka.
 
-Harun already knew. Here, the hand that read the fact of hiding was faster than the hand that hid.
+Harun already knew. Here, the hand that read the very fact that something was being hidden was faster than the side doing the hiding.
 
-Seorin said, very low.
+Seorin spoke very low.
 
-"We saw the reaction when someone covered a child's mouth outside, and we saw how this market swallows that name."
+"We saw them clamp that kid's mouth shut outside, and we saw how this market swallows that name."
 
-Harun narrowed his eyes, very thin, at that.
+At that, Harun narrowed his eyes very thinly.
 
-"That's why you're already late."
-He said.
+"Which only made it later,"
+he said.
 
-Sion felt that sentence land more precisely than the impression from the alley's end moments before. *Late* did not mean time had passed. It was closer to meaning they had touched too many things at once. Etherite, Aka, Luhai, and this commotion in the middle of the outer-layer market. It had now become a state that could not be shrunk back to four outsiders and one petty thief.
+Sion felt the sentence land more precisely than the feeling that had brushed past him at the end of the alley a little earlier. *Late* did not mean that time had passed. It was closer to meaning that they had already touched too many things at once. Etherite, Aka, Luhai, and now this commotion in the middle of the market's outer layer. It had become something that could no longer be shrunk down to a problem of four outsiders and one petty thief.
 
-Nasim drew the conclusion, very smooth.
+Nasim reached the conclusion very softly.
 
-"Good. Then let's not shave more outside — price it inside."
+"Good. Then let's stop haggling it down out here and look at the price inside."
 
-Kael heard that and looked at Harun.
+Hearing that, Kael looked at Harun.
 
-"Us included?"
+"Us too?"
 
-Harun answered, very short.
+Harun answered very briefly.
 
 "All of you."
 
-The merchant cut in desperately at last.
+Only then did the merchant cut in, in a hurry.
 
-"Wait — that's my—"
+"Wait, that's my—"
 
-Harun's gaze grazed once, and the merchant could not finish.
+One pass of Harun's eyes, and the merchant could not finish.
 
-That brief scene was enough. On Hazran's outer layer — who could talk price and who had to close their mouth. Harun was someone who decided that by silence, not words.
+That short scene alone was enough. Who in Hazran's outer layer could make noise about a price, and who had to shut their mouth. Harun was a man who decided it with that silence rather than with words.
 
-Luhai swallowed a small curse.
+Luhai swallowed a curse under his breath.
 
-"Ah, this really sucks."
+"Ugh, what rotten luck."
 
-Nasim smiled.
+Nasim laughed.
 
-"No."
-He said.
+"No, it isn't,"
+he said.
 "This is where luck splits."
 
-Kael eased the pressure on Luhai's wrist only after a long moment. Not a release. Just the level of force where both knew: bolt and you would not make it to the outer alley.
+Only after a long while did Kael ease his grip on Luhai's wrist a little. He hadn't let go. It was just the kind of grip where they both knew that even if the kid bolted now, he wouldn't make it as far as the alleys of the outer layer.
 
-Seorin moved before Sion.
+Seorin moved before Sion did.
 
-"Let's go."
-She said low.
-"Ask more here and it all leaks outside anyway."
+"Let's go,"
+she said, low.
+"Ask anything more here and it all leaks outside anyway."
 
-Sion felt she was right.
+Sion felt she was right, too.
 
-One real etherite shard.
-One name — Aka.
-One fast-mouthed hand called Luhai.
+One real piece of Etherite,
+one name, Aka,
+one quick-mouthed hand called Luhai.
 
-From the moment these three tangled at the same place, Hazran had no intention of leaving them on the outer-layer floor.
+From the moment those three were tied together in the same place, Hazran had already had no intention of leaving them out on the floor of the outer layer.
 
 Harun turned.
 
-Not toward the shadow line leading back outside the alley — but toward the dark corridor leading deeper into the market. Nasim was still smiling beside him, and the people who had been watching cleared the path with a naturalness that was too natural.
+Not toward the line of shadow leading back out of the alley, but toward a dark passage leading deeper into the market. Nasim was still smiling beside him, and the onlookers cleared the way they would pass, all too naturally.
 
-Sion looked back once, just before entering that corridor.
+Just before stepping onto that path, Sion looked back only once.
 
-The outer-layer market was still noisy. But now that noise no longer felt like their affair — more like the residue left where their affair had passed. The noise of everyone knowing: the real pricing would happen inside.
+The outer market was still noisy. But now that noise felt not like their business, but like the dregs left behind where their business had passed. A noise everyone knew meant that the real price would now be set inside.
 
-And somewhere in that inside — Aka would be there too.
+And somewhere inside, Aka would be there too.
 
-Sion pressed the paper inside his jacket once more.
+Sion went back over the day.
 
-*Hazran.*
-*Aka.*
+Not one person in this city had said that name out loud.
 
-The two words still had no explanation.
+In the outer layer, they had covered a kid's mouth. Harun knew it and still only said *that name*, and Nasim never brought it up at all.
 
-But one thing was becoming clear now.
+They weren't saying it, of their own accord.
 
-## This was not a name that ended once you found it.<br>It was a name that, if found wrong, swallowed you whole.
+If you don't know a name, you can ask. A name everyone knows and no one says has nowhere to ask about it. The moment you ask, the one who asked is marked.
+
+Sion counted how many times he had said the name in the outer layer.
+
+Twice.
+
+This was not a name that ended with finding it.
+
+Look for it the wrong way, and it was a name that swallowed you whole.
 
 ---
 

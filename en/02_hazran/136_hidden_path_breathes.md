@@ -1,199 +1,198 @@
 # Episode 136. Hidden Path Breathes
 
-They saw that path actually open
+They saw the path actually open
 only after that evening had fully passed.
 
-More precisely,
-it was less that it fully opened
-and closer to watching it take a breath.
+To be exact,
+it was less that it opened all the way
+than that they saw it allowed to breathe for a moment.
 
-The old machines said nothing during the day.
-They didn't deny what Jiwoo and Aka had seen.
-But they didn't immediately show anything either.
+The old machines said nothing all day.
+They did not deny what Han Jiwoo and Aka had seen,
+but they did not show them anything right away either.
 
 That silence was caution.
 
-This place takes people in when the moment calls for it,
-saves what can be saved,
-shares the work.
+This place took people in when the moment called for it,
+saved what could be saved,
+and handed out shares of the work.
 
-But it is not a community that shows everything easily.
+But that did not make it a community that showed everything easily.
 
-Sion felt that was actually natural.
+Sion found that, if anything, natural.
 
-One of the reasons this old layer had survived this long
-was probably that kind of late verification and slow disclosure.
+One of the reasons this old layer had held out this long
+was probably that kind of late confirmation and slow opening.
 
-When the sun had fully tilted
-and the day's noise began settling one by one,
-the same old machine from the day before came to Sion's group.
+When the sun had fully set
+and the noises of the day had begun to settle again one by one,
+the same old machine as the day before came over to Sion's party.
 
-This time it wasn't only Sion.
+This time it didn't call only Sion.
 
-Jiwoo.
-Aka.
+Han Jiwoo,
+Aka,
 Sern.
 
-And Luhai, who followed without saying a word to the end.
+And Luhai too, who tagged along without a word right to the end.
 
-The machine didn't bother stopping him.
-But it didn't grant permission either.
+The machine didn't bother to stop him.
+But it didn't give permission either.
 
-It simply turned and spoke, brief.
+It simply turned and said, briefly,
 
-"Now that you have seen, pretending otherwise is no longer possible."
+"Now that you have seen it, you can hardly pretend not to know."
 
-That sounded less like authorization
-and more like a notification that one stage of the trial had been passed.
+It sounded less like permission
+than a notice that they had passed one more stage of a test.
 
-They chose a time when the old layer's people were relatively sparse
-and went to the sealed wall again.
+They chose an hour when people on the old layer were moving about less,
+and went back to the blocked wall.
 
-What had looked during the day like nothing more than an old, long-sealed metal surface
-made a subtly different sound up close.
+What had been nothing more than an old, long-blocked metal surface by day
+was making a faintly different sound up close.
 
 From deep inside,
-the sound of air being pressed and released once.
+a sound like air being pressed down once and coming back.
 
-Jiwoo heard it first.
+Han Jiwoo heard it first.
 
-"That's not the sound of an empty wall."
-She said, low.
+"That's not a hollow-wall sound,"
+she said, low.
 
-The old machine, instead of answering,
-placed its hands on several nearly invisible grooves along the wall's edge.
+Instead of answering, the old machine
+laid its hand on a few nearly invisible grooves along the edge of the wall.
 
-*Hands* was almost the wrong word.
+Even the word *hand* fit the motion only loosely.
 
-Not pressing.
-Not opening.
-Closer to a motion that makes old metal remember itself.
+Not pressing,
+not opening,
+but closer to a movement that made old metal remember itself.
 
 Then one side of the wall hummed, very faintly.
 
-It didn't open wide.
-Just a gap thin enough for one person's shoulder to barely pass through.
+It did not open wide.
+Just barely wide enough for one person's shoulders,
+a very thin gap was all that appeared.
 
-But the air that leaked through that gap
+But the air seeping out of that gap
 was already saying everything.
 
-Different from the air inside the old layer.
+It was different from the air inside the old layer.
 
-Colder.
-Drier.
-The metal smell was different.
+Colder,
+drier,
+and the metal smelled different too.
 
-Aka said, low as a breath.
+Aka said, low, almost a breath,
 
-"The smell of coming and going."
+"Smells like coming and going."
 
-Jiwoo muttered small the moment she caught the scent too.
+Han Jiwoo, too, muttered quietly the moment she caught the smell.
 
-"Outside air stuck to it."
+"There's outside air on it."
 
-That didn't simply mean outdoor air.
+That didn't simply mean outside air.
 
-Not the polished interior of Serakion.
-Not the long-settled smell of this old layer.
-The smell of metal that had passed through somewhere and come back.
+Not Serakion's well-polished interior,
+not the long-stagnant smell of this old layer either,
+but the smell of metal that had passed through somewhere and come back.
 
-Sion looked inside the gap for a long time.
+Sion looked into the gap for a long time.
 
-Almost no light.
-But not the darkness of a completely dead space either.
+There was almost no light.
+But it wasn't the darkness of a completely dead space either.
 
 Very faintly,
-somewhere deeper, a single living line blinked as if hiding.
+somewhere deeper in, a single live line blinked, as if hiding.
 
-Sern spoke low.
+Sern said, low,
 
 "There is a signal."
-"Not fixed—
-it connects briefly and disconnects."
+"It is not fixed;
+it connects briefly and then cuts off."
 
-Those words made the evidence that this path was still in use even clearer.
+That made the proof that the path was still in use clearer still.
 
-Luhai grimaced before the narrow gap.
+Luhai frowned in front of the narrow gap.
 
 "It's real."
-"They've been hiding this and using it?"
+"They keep it hidden like this and go through it?"
 
-The old machine didn't reply to him.
-Instead it said, very low.
+The old machine didn't answer him.
+Instead it said, very low,
 
-"If discovered, it must be closed.
-If undiscovered, it must stay alive.
-That is what this path is."
+"It is a path that must close if it is found,
+and must live if it is not."
 
-That explained the path,
-but it also sounded like it explained the entire outer arm of this community.
+Those words explained the path,
+but they also sounded like an explanation of every outside hand this community had.
 
-Must not be seen.
-Must not die.
+Something that must not be seen,
+but must not die.
 
-Sion felt the air from inside the gap once more.
+Sion felt the air inside the gap once more.
 
 In that moment,
-if this old layer is a place that preserves memory,
-then that path was probably closer to the side that carries will out to the beyond.
+he thought that if this old layer was where memory was kept,
+that path was probably closer to the thing that carried will all the way outside.
 
-There are those who remain.
-There are those who go out and come back.
+There were those who stayed,
+and those who went out and came back.
 
-Both must exist,
-or this place hardens into nothing but ruin.
+Only with both
+did this place keep from hardening into plain ruins.
 
-Then,
-from deeper inside the dark, one very short friction sound rang.
+Just then,
+a single, very short scrape sounded from the darkness further in.
 
 Everyone stopped at once.
 
-Luhai's body tensed first.
-Sern's eyes shifted immediately.
-Sion held his breath without thinking.
+Luhai's body tensed first,
+Sern's eyes changed instantly,
+and Sion, too, held his breath without meaning to.
 
-The old machine kept its hand on the gap
-and said, very low.
+The old machine kept its hand where it was at the gap
+and said, very low,
 
 "Do not move."
 
-In that voice, for the first time,
-was a tautness different from the dryness this old layer always maintained.
+For the first time, its voice held
+a tautness unlike the dryness it always kept here in the old layer.
 
-Aka looked into the darkness beyond the gap,
-then said, almost inaudibly small.
+Aka watched the dark past the gap,
+then said, so quietly it could barely be heard,
 
-"It is not coming from inside."
+"It's not coming from inside."
 
 Sion looked at her.
 
-Aka continued without turning her gaze.
+Aka went on without moving her eyes.
 
-"It is the returning side."
+"It's something coming back."
 
-At that single line,
-the entire air changed.
+With that one line,
+the whole air changed.
 
-This was not a showing of a dead path.
+This was not a moment for being shown a dead path.
 This might be the very moment
 when another hand, just back from outside,
-is reaching this threshold.
+reached the threshold on this side.
 
-The old machine gave no more explanations.
+The old machine explained no further.
 
-Jiwoo curled her hand slightly without realizing.
-Luhai kept his eyes fixed on the gap, pretending indifference.
-And Sion felt, for the first time in a long while,
-a different kind of tension rising inside him—
-different from anything since Hazran.
+Han Jiwoo curled her hand a little without realizing it,
+Luhai acted indifferent but had his eyes fixed hard on the gap,
+and Sion felt rising in him, for the first time in a long while,
+a kind of tension he had not felt since Hazran.
 
-Not the tension of hiding.
-The tension of something approaching.
+It wasn't the tension of hiding.
+It was the tension of something approaching.
 
 And in that moment,
-from deep inside this old layer,
-the time of a hand that actually travels outside
-began reaching Sion's group for the first time.
+deep inside this old layer, for the first time,
+the time of the hands that actually went outside and came back
+began to reach Sion's party.
 
 ---
 

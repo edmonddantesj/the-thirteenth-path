@@ -1,182 +1,347 @@
 # Chapitre 106 — L'instant où Zahir cessa d'acheter du temps
 
+Douze des vingt minutes s'étaient écoulées quand Zahir descendit jusqu'au couloir.
 
-Après que Haroun, encore à genoux, eut maintenu le passage ouvert
-et que les trois premiers de la cinquième file se furent glissés par cette brèche,
-un silence très bref tomba à l'intérieur de Hazran.
+Sion était alors assis à côté de Haroun. Il était assis là, le bol d'eau à la main, mais Haroun n'avait toujours pas bu.
 
-Personne ne s'était véritablement arrêté.
-Mais tous ressentaient la même chose.
+Zahir regarda Haroun.
 
-C'était fini.
+Longtemps.
 
-On ne pouvait plus continuer à acheter du temps de la même manière.
+Jamais jusque-là cet homme n'avait regardé quelqu'un longtemps. Même pour fixer la disposition, il regardait une fois, puis il parlait.
 
-Sion sentit cette certitude
-se planter dans son corps avant que quiconque ne la formulât.
+« Ça s'arrête là. »
 
-Haroun bloquait encore le chemin.
-Sern et Ater n'avaient pas encore cédé.
-Kael tenait encore le côté gauche.
-La coque accueillait encore des gens.
+Haroun leva la tête.
 
-Mais tout cela, désormais,
-ne garantissait plus la prochaine fois.
+« Quoi donc ? »
 
-Jusqu'à l'instant d'avant, « encore une fois » était possible.
-À partir de maintenant, même ce « encore une fois »,
-personne ne pouvait garantir qui le paierait en restant vivant.
+« Acheter. »
 
-Zahir regardait tout cela.
+Il ne fallut pas longtemps à Sion pour comprendre ces deux mots.
 
-Sur la droite, Haroun, à genoux, qui saignait.
-Sern et Ater comblant sa place.
-Sur la gauche, Kael agrippé au dernier rideau d'écran.
-Les gens tassés devant la coque.
-Et Nassim, Seorin, Luhai et Sion qui les poussaient coûte que coûte vers la sortie.
+Jusqu'ici, tout ce qu'avait fait Hazran, c'était acheter du temps. Une barricade pour une file, un bras pour une heure, douze mains pour un trou. On payait le prix, et on achetait du temps.
 
-Il ne s'attarda pas un seul instant dans l'émotion.
+« Maintenant, on n'achète plus. »
+Ce fut Zahir qui le dit.
 
-Il dit très brièvement :
+À ces mots, Haroun resta longtemps sans rien dire.
 
-« C'est fini. »
+Puis il expulsa un souffle, très bas. Ce n'était pas un rire.
 
-Ces quatre syllabes
-changèrent une fois de plus le champ de bataille tout entier.
+« Enfin. »
 
-Nassim releva la tête le premier.
+Ces deux syllabes serrèrent la gorge de Sion.
 
-« Qu'est-ce que tu veux dire. »
+Cet homme avait passé plus de quatre-vingt-dix heures à acheter du temps. Il n'avait pas attendu qu'on lui dise d'arrêter : il avait continué d'acheter de peur que personne ne le dise jamais.
 
-Zahir, cette fois, parla clairement :
+« Alors on fait comment ? »
+Ce fut Sion qui demanda.
 
-« On n'achète plus, » dit-il à voix basse.
-« On fixe ceux qui restent, on envoie d'abord ceux qui partent. Le reste, on ferme. »
+Zahir regardait du côté du tableau. D'ici, on ne voyait pas le tableau, et pourtant il regardait de ce côté.
 
-Ces mots n'étaient pas un simple réglage de vitesse.
+« Il en reste combien ? »
 
-La méthode d'avant —
-cette défense qui consistait à acheter une ligne de plus, un cran de plus, un temps de plus —
-il venait d'y mettre fin.
+« Deux fois. »
 
-Désormais, plutôt que de tenir,
-la question de qui envoyer et quoi fermer passait en premier.
+« On a le temps d'en acheter deux ? »
 
-Sion sentit l'intérieur de sa poitrine basculer d'un coup.
+Sion calcula.
 
-Oui.
-C'était ce qu'il fallait faire maintenant.
-Mais justement parce que c'était juste, cela faisait plus mal.
+Vingt à chaque fois. Le temps qu'il fallait au vaisseau pour faire l'aller-retour. Vingt minutes pour que le trou s'élargisse. Et sur ces vingt minutes, douze étaient déjà passées.
 
-Car ces mots signifiaient aussi
-que la part de ceux qui restaient devenait, ici, beaucoup plus nette.
+« Non. »
 
-Nassim serra les dents.
+« Alors ce sera une fois. »
 
-« Et ceux qui restent derrière. »
+« Mais les vingt-huit… »
 
-Zahir coupa aussitôt :
+« Tu en fais monter vingt et tu en laisses huit. »
 
-« Il n'y en aura pas. »
+À ces mots, Sion eut le souffle coupé.
 
-Des mots brefs et froids.
+« Et les huit ? »
 
-Mais Sion en comprit le sens.
-Il ne s'agissait pas de retenir n'importe qui et de le sacrifier jusqu'au bout.
-C'était l'inverse.
-Désormais, pour qu'il n'y eût plus personne de laissé en arrière,
-il déciderait plus vite qui retirer et quel espace fermer.
+« Les huit partiront à la fin, avec les étrangers. »
 
-Haroun aussi entendit ces mots.
+Après cette réponse, il fallut à Sion un demi-temps pour saisir ce qu'il venait d'entendre.
 
-Il reprenait encore son souffle, un genou posé sur les débris,
-et en entendant Zahir, il lâcha un souffle très bas — pas tout à fait un rire.
+Les étrangers.
 
-« Enfin, » dit-il à voix basse.
+« Nous ? »
 
-Dans ce seul mot,
-le soulagement et l'autodérision cohabitaient.
+Zahir ne répondit pas. Ne pas répondre était la réponse.
 
-Si Zahir lui avait dit d'acheter encore, il aurait encore acheté.
-Mais puisque Zahir avait dit qu'on n'achetait plus,
-le prix du sang, enfin, voyait sa fin.
+Nassim s'approcha du couloir. Il posa la question de sa gorge fendue.
 
-Sern, regardant du côté de Haroun, dit brièvement :
-
-« Alors maintenant, retirez-vous. »
-
-Cette fois, Haroun ne refusa plus.
-
-Il hocha la tête d'un mouvement à peine perceptible.
-
-Ater vit cela et relut aussitôt le front :
-
-« Pendant qu'il se retire, je couvre la droite, » dit-il.
-« Sern, laissez juste l'axe de renfort arrière. Ne mordez pas longtemps de face. »
-
-Sern répondit brièvement :
+« Tu réduis à une fois ? »
 
 « Oui. »
 
-Du côté du couloir gauche, Kael, entendant ces mots, cria presque au même instant :
+« Alors les huit, on en fait quoi ? »
 
-« Ici aussi, je replie d'une couche ! »
+« Je fais en sorte qu'il n'en reste pas. »
 
-Zahir dit sans tourner la tête :
+Nassim s'arrêta un instant à cette réponse.
 
-« Replie. »
+Sion aussi crut avoir mal entendu. Cela sonnait comme : on attrape n'importe qui et on s'en sert jusqu'au bout.
 
-Plus la moindre hésitation désormais.
-Plutôt que de maintenir de force ce qui allait s'écrouler,
-replier vite ce qu'il fallait replier
-pour rendre le chemin restant plus net — la direction avait entièrement basculé.
+Mais ce n'était pas ça.
 
-La file devant la coque changea avec le reste.
+Cela voulait dire décider plus vite qui il fallait retirer et où il fallait fermer, pour que personne ne soit laissé derrière.
 
-Nassim cria comme s'il s'arrachait la gorge :
+« Monte en dernier. »
 
-« À partir de maintenant, n'attendez plus ! »
-« Seule la file qui s'accroche s'accroche ! »
-« Ceux qui ne peuvent pas monter, en arrière ! Ceux qui montent, en avant ! »
+« Il y aura un dernier ? »
 
-C'était cruel.
-Mais désormais, ce n'était plus de la cruauté.
-C'était le dernier tri pour sauver des vies.
+Zahir ne répondit pas aussitôt à cette question.
 
-Seorin, sans un mot, coupa la file en deux.
-Ceux qui allaient monter.
-Ceux qui reculaient.
-Le geste fut si rapide
-qu'elle semblait avoir préparé cet instant depuis le début.
+Sion savait ce que voulait dire ce silence. Pour que le dernier vaisseau décolle, il fallait que cet endroit tienne debout jusque-là. Et pour qu'il tienne debout, il fallait que quelqu'un s'y tienne.
 
-Luhai courait entre les deux groupes,
-séparant ceux qui ne pouvaient véritablement plus marcher
-de ceux qui le pouvaient mais que la peur avait figés.
-Sion, comblant les brèches entre eux,
-retournait vers l'avant les épaules de ceux qui ne cessaient de se retourner.
+« On fait en sorte qu'il y en ait un. »
+Zahir parla.
 
-Jiwoo, depuis l'entrée de la coque, perçut tous ces changements.
+« Qui ? »
 
-« Ils y vont vraiment, » dit-elle à voix basse.
+« Moi. »
 
-Aka répondit très doucement :
+À cette réponse, pour la première fois, Nassim fit un pas vers Zahir.
 
-« Maintenant, oui. »
+« Et toi, tu vas faire quoi ? »
 
-Ces mots, cette fois, ne sonnaient pas comme une sensation
-mais presque comme une déclaration.
+« La disposition. »
 
-Sion, à l'instant où il entendit cela, comprit.
+« Tu n'as plus de mains à disposer. »
 
-Ce qui avait changé n'était pas une simple tactique.
+« Si. »
 
-Zahir venait, à l'instant,
-de faire basculer Hazran tout entier :
-de la ville qui achetait du temps jusqu'au bout
-à la ville qui envoyait des gens une dernière fois.
+Après quoi, Zahir regarda du côté du couloir.
 
-Et à partir de cet instant,
-la fin de ce combat, enfin, commença à se dessiner.
+« Abandonnez le couloir. »
+
+Sion crut avoir mal entendu ces trois mots.
+
+« L'abandonner ? »
+
+« Oui. »
+
+« Mais alors ces choses vont entrer, tout simplement. »
+
+« Qu'elles entrent. »
+
+Haroun se leva en prenant appui sur le mur. Cette fois, il y parvint au quatrième essai.
+
+« Ça peut marcher. »
+
+« Quoi donc ? »
+Ce fut Sion qui demanda.
+
+Avant de répondre, Haroun regarda une fois le couloir.
+
+« Si ces choses frappent ici en ce moment, c'est parce que c'est bloqué. »
+
+« Oui. »
+
+« Si on ne bloque pas, ici ne vaut plus rien. »
+
+Alors seulement, Sion comprit.
+
+Il y avait ce qu'Ater avait dit tout à l'heure. Que ces choses recomptaient sans cesse l'endroit où frapper leur rapportait le plus. Et que si on leur changeait le prix, elles recomptaient.
+
+Si l'on abandonnait le couloir, le prix du couloir disparaissait.
+
+« Alors le prix suivant, c'est où ? »
+
+Zahir répondit.
+
+« Le vaisseau. »
+
+À cette réponse, Sion sentit son dos se glacer.
+
+« Mais alors c'est pire. »
+
+« C'est pire. »
+
+« Mais pourquoi… »
+
+« Pour venir jusqu'au vaisseau, il leur faut plus de temps que pour percer le couloir. »
+
+Sion suivit ce calcul.
+
+Le couloir était étroit et proche. Le vaisseau était loin, et sur le chemin s'étalaient des murs effondrés, des débris et des choses noires renversées. Pendant que ces choses recompteraient ce chemin, du temps se créerait.
+
+Il se servait du temps que l'autre camp passait à compter.
+
+« Ça en crée combien ? »
+
+« Va savoir. »
+
+Zahir parla.
+
+« Mais c'est moins cher que d'acheter maintenant. »
+
+Haroun fit un pas vers le couloir.
+
+Zahir parla aussitôt.
+
+« Non. »
+
+« Quoi ? »
+
+« Tu essaies encore de le garder en vie. »
+
+Haroun s'arrêta.
+
+« Si je reste planté là… »
+
+« Si tu restes planté là, ces choses refixent le prix d'ici. »
+
+Zahir n'éleva pas la voix. Pas une seule fois.
+
+« Tant que tu te tiens là, cet endroit reste cher. »
+
+Haroun ne trouva rien à répondre.
+
+Nassim vint à côté de Zahir.
+
+« Si on fait comme tu dis. »
+
+« Oui. »
+
+« Moi, je fais quoi ? »
+
+« Mets-les en file. »
+
+« Ils sont huit. Ça ne fait pas une file. »
+
+« Alors aligne les huit. »
+
+À cette réponse, Nassim resta un instant sans rien dire.
+
+« Toute une vie à fixer des prix, et à la fin, j'aligne huit personnes. »
+
+« Les huit, c'est ce qu'il y a de plus cher. »
+
+Pour la première fois, Nassim rit. Le rire ne fit aucun bruit. Sa gorge avait lâché, il n'en sortait rien.
+
+En voyant cela, Sion ressentit quelque chose d'étrange.
+
+Jusqu'ici, c'était la résistance de Haroun qui avait sauvé cette ville, et Zahir venait de dire que cette résistance, désormais, créait une cible. Les deux étaient vrais. Jusqu'à hier, le premier était vrai ; à partir d'aujourd'hui, c'était le second.
+
+« Retire-toi. »
+Zahir parla.
+
+Haroun ne bougea pas.
+
+« Haroun. »
+
+« … D'accord. »
+
+Ce mot mit longtemps à sortir.
+
+Après quoi, Haroun tourna le dos au couloir. Pour la première fois en plus de quatre-vingt-dix heures.
+
+Sion regarda ce dos.
+
+Il marchait lentement. Il avançait en s'appuyant au mur de la main droite, et son bras gauche, depuis tout à l'heure, restait simplement collé au corps. Pourtant, tout le temps qu'il marcha en tournant le dos au couloir, il ne se retourna pas une seule fois.
+
+C'est ce qui fit le plus peur à Sion. Ne pas se retourner, c'est ce qu'on fait quand on sait qu'on ne reviendra pas à cet endroit.
+
+Sion tenait toujours le bol d'eau. Il courut se mettre devant lui.
+
+« Buvez, maintenant. »
+
+Alors seulement, Haroun le prit. Il but une gorgée et le rendit.
+
+« Il en reste. »
+
+« Les huit le boiront plus tard. »
+
+Sion ne put pas baisser le bol.
+
+Aujourd'hui, trois hommes avaient tenu ce bol, et tous trois avaient laissé leur part. Aucun ne s'était concerté avec les autres.
+
+« Dixième file. »
+Zahir parla.
+« Maintenant. »
+
+Sion courut.
+
+La file était déjà formée. Sur les vingt-huit, vingt étaient coupés par trois, et les huit autres se tenaient à part, à côté. Personne n'avait décidé qui ferait partie des huit, et pourtant la séparation était déjà faite.
+
+Sion regarda ces huit.
+
+C'étaient toutes des mains qui creusaient l'amas tout à l'heure. Le dos de leurs mains était écorché, et deux d'entre eux n'avaient plus d'ongles.
+
+Tout à l'heure, ils étaient onze ; ils étaient huit. Trois étaient allés au trou, deux en étaient ressortis, et l'un de ces deux, incapable de tenir debout, était assis à côté.
+
+Dire que personne n'avait décidé qui ferait partie des huit était faux. C'était déjà décidé. Ces gens-là ne s'étaient pas mis une seule fois dans la file de toute la journée.
+
+« Trois. »
+
+Trois montèrent.
+
+« Un. Deux. »
+
+La file compta avec lui. Les huit aussi comptèrent.
+
+Six paquets de trois. Deux à la fin.
+
+« Vingt. »
+
+La rampe se replia. Le vaisseau s'éleva.
+
+Vingt-huit moins vingt. Huit.
+
+Une fois.
+
+Sion traça la dixième marque sur le tableau.
+
+À côté, les traits courts s'étaient arrêtés à cinq. Personne ne lui avait dit de continuer à les compter. Le bras était sorti, il n'y avait plus besoin de compter ; mais Sion sentait que c'était moins une fin qu'un renoncement à compter.
+
+Et à l'extrémité droite du tableau, il y avait une ligne qu'il avait tracée tout à l'heure pour ne rien compter.
+
+Pour la première fois, Sion y traça un trait.
+
+Huit.
+
+C'était le nombre de ceux qui restaient. Jusque-là, le tableau ne portait que les nombres de ceux qui partaient.
+
+Et un bruit vint du côté du couloir.
+
+Le bruit du trou qui s'élargissait.
+
+Sion se retourna. Il n'y avait personne de ce côté.
+
+Une chose noire entra par le trou. Elle ne resta pas coincée. La deuxième non plus. La troisième non plus.
+
+En les regardant entrer, Sion vit encore autre chose.
+
+Les trois du premier rang ne se décalaient pas.
+
+La première fois que Haroun avait employé une barricade, les trois du premier rang s'étaient décalés d'un demi-empan chacun. À cause de la poudre. La poudre de fer en suspension avait trompé leurs yeux d'un demi-empan.
+
+Maintenant, la poudre était entièrement retombée. Elle était au sol, et plus dans l'air.
+
+Les trois entrèrent côte à côte et se placèrent côte à côte. Pas même un demi-empan de décalage.
+
+Alors seulement, Sion comprit exactement ce que cette ville avait obtenu en tranchant son propre cœur.
+
+Un demi-empan.
+
+Ce demi-empan avait disparu aujourd'hui.
+
+Elles entrèrent en rang et se placèrent dans le couloir.
+
+Et s'arrêtèrent là.
+
+Personne ne les bloquait, et elles ne venaient pas.
+
+En les regardant, Sion se rappela les mots de tout à l'heure. Elles étaient en train de recompter.
+
+Combien de temps il fallait pour venir jusqu'ici, et quel en était le prix.
+
+Sion se mit à compter ce temps qu'elles passaient à compter.
 
 ---
 

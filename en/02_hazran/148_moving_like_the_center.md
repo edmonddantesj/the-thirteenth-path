@@ -1,150 +1,219 @@
-# Episode 148. Moving Like the Center
+# Episode 148. A Place That Moves Like the Center
 
-Deeper, higher — the further in they went, the more Serakion seemed to converge in a single direction.
+The further in
+and the further up they went,
+the more Serakion seemed to converge in a single direction.
 
-Sound, light, steps, the timing of stops.
+Sound,
+light,
+footsteps,
+the timing of every pause.
 
-This world did not simply grow more lavish the higher you went. It grew more alike.
+Going higher, this world didn't simply grow more lavish.
+If anything, it grew more alike.
 
-The moving beings gradually took on the same rhythm.
+The beings moving through it came, little by little, to share the same rhythm.
 
-Jiwoo felt it first in the hands. Ater read it in the way of living. Kael noticed it from the side where structure was enforcing that rhythm.
+Han Jiwoo felt it first in hands,
+Ater read it in the way people lived,
+and Kael caught it in how the structure forced that rhythm on them.
 
-The next section they reached was wider and quieter than before, yet strangely felt more empty.
+The next section they reached
+was wider and quieter than the last,
+and yet, strangely, it felt emptier.
 
-Decoration was plentiful but not excessive. The light was warm but held no body heat. The machines moved courteously, but so precisely they erased the impression of anyone actually living there.
+There was plenty of ornament, but never too much;
+the light was warm, but it held no body heat;
+the machines moved courteously,
+but so precisely that they wiped out any sense that anyone was *living* there.
 
-Ater said it low the moment he saw the space.
+The moment he saw the space, Ater said, low,
 
-"This is not a place where living happens. It is a place where living has already been organized to its end."
+"This is not a place where people live.
+It seems a place where living has already been put in order, all the way to the end."
 
-That was precise.
+That was exact.
 
-The lower sections still had the friction of life. Traces of use. Repair marks. Gaps where emotion leaked through. Supports held together by sheer stubbornness.
+The lower sections still had the friction of living.
+Signs of use,
+marks of repair,
+cracks where feeling leaked out,
+supports patched together somehow, by force if need be.
 
-Here, almost none of that remained.
+But here there was almost none of that.
 
-Everything was already placed within the proper distance and the proper sequence.
+Everything had already been set at a proper distance and in a proper order.
 
-Humans sat quietly. Machines made no large motions. No one was in a hurry. No one was lost.
+People sat quietly,
+machines made no large movements,
+no one was in a hurry,
+and no one got lost.
 
-That was precisely why this place was more frightening than below.
+That was exactly why
+this place was more frightening than below.
 
-Not being lost might mean there is never a path to choose.
+Never getting lost
+might mean never having to choose your own way.
 
-Then, along a nearby corridor, a group of humans and machines was seen passing together.
+Just then, along a passage not far off,
+a group of people and machines could be seen passing together.
 
-They were far more ordered than the previous section. The humans' clothes went beyond simply clean — each felt calibrated to match their role and position.
+They were far more ordered than in the previous section,
+and the people's clothes went beyond simply clean;
+they felt tuned to each person's role and position.
 
-Some humans were dressed so their hands showed best. Some so their facial lines emerged softly. Some so that standing in silence alone gave a sense of stability.
+Some were dressed so their hands showed best,
+some so the line of the face came through softly,
+some so that just standing there without a word, they gave off a sense of calm.
 
-Jiwoo said it very low the moment she saw it.
+The moment Han Jiwoo saw it, she said, very low,
 
-"Even the way they dress people is different now."
+"Now even the way they dress people is different."
 
-The first recovery hand answered short.
+The first recovery hand answered briefly.
 
-"The higher you go, the more obvious the way they are used."
+"The higher you go,
+the clearer it is what they're used for."
 
-The words were brief, but enough to make Jiwoo's expression colder.
+It was short,
+but enough to make Han Jiwoo's expression colder.
 
-Serakion does not stop at selecting and grooming people. It designs what each person should look like.
+Serakion does not stop at choosing people and polishing them.
+It designs even what each of them is supposed to look like.
 
-Then a human no longer exists as just their own body. They exist wearing the impression this world expects.
+Then a person no longer exists only in their own body.
+They come to exist wearing the very impression that world expects of them.
 
-Ater was watching that scene when he paused — he saw a human bow to a machine with complete naturalness.
+Ater was watching the scene
+when he stopped, at the sight of a person bowing to a machine with complete ease.
 
-It was not frightened submission. It was not trained protocol either.
+It wasn't frightened obedience.
+Nor was it trained protocol.
 
-It was a gesture so familiar it looked like the person's own.
+It was a gesture so familiar
+that it looked like the person's own.
 
-Ater murmured low.
+Ater muttered, low,
 
-"At this level, even obedience becomes a living habit."
+"At this point, obedience itself must become a habit of daily life."
 
-The words sounded like mockery aimed at his own world too.
+It also sounded like mockery aimed at his own world.
 
-The Empire makes obedience visible and loud. Serakion dissolves obedience into daily life, making it look like nothing more than natural movement.
+The Empire puts obedience on loud display.
+Serakion melts obedience into everyday life
+so that it looks like nothing more than a natural gesture.
 
-Which of the two is crueler — Ater seemed to be asking that question anew inside himself.
+Which of the two was crueler,
+Ater seemed to be asking himself all over again.
 
-Kael had been reading the upper section's closing structures the entire time.
+Kael had been reading the closure structure of the upper sections all along.
 
-And only here did he seem to arrive at a colder conclusion than before.
+And only here
+did he seem to reach a conclusion colder than before.
 
-"There is barely any need to close this place." He said it low.
+"There's not much need to close anything here,"
+he said, low.
 
-Jiwoo looked at him.
+Han Jiwoo looked at him.
 
-Kael continued without shifting his gaze.
+Kael went on without taking his eyes off it.
 
-"They already line up on their own inside. The closing structure is closer to a last failsafe."
+"People already line up on their own inside."
+"The closing structure is more of a last safeguard."
 
-Those words deepened the terror of Serakion's upper level.
+That deepened the terror of Serakion's upper level.
 
-Below, you have to close. Above, everything is already aligned before closing.
+Below, things have to be closed.
+Above, everything is already aligned before it needs closing.
 
-So this upper order does not appear to be maintained by force, yet in reality it is far stronger.
+So this upper order,
+while it never appears to be held in place by force,
+is in fact far stronger.
 
-Because the very imagination of defying that order shrinks, little by little, inside daily life.
+Because the very thought of going against that order
+keeps shrinking, little by little, inside everyday life.
 
-Then, from deeper inside the section, a very faint flicker of light grazed across the wall.
+Just then,
+a very faint ripple of light brushed across the wall from deeper in the section.
 
-Several machines saw it and corrected their posture by a difference so impossibly small it should not have mattered.
+The instant they saw it, a few machines
+corrected their posture by an absurdly small margin.
 
-No one gave an order. No one reacted visibly.
+No one had given an order.
+No one had reacted in any large way.
 
-But clearly, the influence of some center had brushed through that entire space for one instant.
+But unmistakably,
+the influence of some center had passed over that entire space for an instant.
 
-Jiwoo felt instinctive revulsion seeing it.
+Han Jiwoo felt an instinctive distaste at the sight.
 
-Ater caught that small reaction and watched it longer.
+Ater, by contrast, didn't let that small reaction slip by, and watched it longer.
 
-"Even unseen, everyone already knows and moves." He said it low.
+"Even without seeing it,
+they all already know, and move accordingly,"
+he said, low.
 
-The second recovery hand answered very brief.
+The second recovery hand answered very briefly.
 
-"That is what this place has the most of."
+"That's what there's most of here."
 
-It was not commentary. But it was enough to describe this upper zone.
+It wasn't an explanation.
+But it was enough to describe this upper zone.
 
-The center does not need to be visible. Orders do not need to fall loudly. Order only needs to soak into daily life.
+The center need not be in sight,
+orders need not come down loudly,
+it is enough for order to have soaked into daily life.
 
-Then, on one side of an orderly upward transit line, three humans who looked younger than before paused briefly with two machines.
+Then, at one side of an orderly upward line,
+three people who looked younger than any before stopped for a moment with two machines.
 
-One of them missed the beat of stopping by just a fraction.
+One of them, for just an instant,
+missed the beat for stopping.
 
-An impossibly small mistake. Almost invisible.
+It was a tiny mistake.
+Barely noticeable at all.
 
-But the machine beside them did not reprimand. Instead, too softly, as if it had always been this way, it re-synced the half-beat.
+But the machine right beside them did not scold the mistake.
+Instead, ever so gently,
+as though it had always been that way, it made up the half beat for them again.
 
-That scene was more terrible.
+That scene was worse.
 
-Not because there was no violence, but because it seemed to mean that at this level, violence no longer needed to look sharp.
+Not because there was no violence,
+but because it seemed to mean that, by now, violence no longer needed to look sharp at all.
 
-Serakion's upper order was a world that courteously realigned even the smallest deviation.
+Serakion's upper order
+was a world where even the slightest misstep
+was courteously put back into alignment.
 
-Jiwoo saw it and spoke as though grinding her teeth.
+Han Jiwoo watched it and spoke almost through gritted teeth.
 
-"At this point they have probably synced the breathing too."
+"At this rate they'll have people breathing in step too."
 
-The first recovery hand answered short.
+The first recovery hand answered briefly.
 
-"Nearly."
+"Just about."
 
-That single brief answer drove the recon team deeper into silence.
+That one short answer
+drove the recon team into a deeper silence.
 
-What they saw in the upper level that day was not luxury or displays of power.
+What they saw up there that day
+was not luxury or a show of power.
 
 It was something more frightening.
 
-A place where people come to match even the rhythm of their own bodies to this world.
+A place where people come to live
+with even the rhythm of their own bodies set to this world.
 
-And once accustomed to that rhythm, leaving becomes far harder than simply running.
+And a place where, once you grew used to that rhythm,
+breaking out of it became far harder than a simple escape.
 
-The recon team was beginning to understand that fact almost in their bodies now.
+The recon team
+was now beginning to understand that almost with their bodies.
 
-And that understanding was making it increasingly clear why the rescue to come would not end with simply opening a door and running.
+And that very understanding
+was making it ever clearer why the rescue to come
+would not end with simply opening a door and running.
 
 ---
 

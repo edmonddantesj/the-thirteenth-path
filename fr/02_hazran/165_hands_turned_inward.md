@@ -41,7 +41,7 @@ et une brèche qui n'aurait jamais dû descendre vers le bas s'était réellemen
 
 Serakion n'appelait pas encore cela un tumulte.
 À la place,
-il commença à renforcer silencieusement ses forces intérieures.
+ce monde commença à renforcer silencieusement ses forces intérieures.
 
 ---
 
@@ -156,7 +156,7 @@ dit Jiwoo en le regardant droit dans les yeux,
 
 Il fronça les sourcils.
 
-« Ce ne sont même pas des humains, et... »
+« Ce ne sont même pas des humains, et… »
 
 Jiwoo le coupa de nouveau.
 

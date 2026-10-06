@@ -45,7 +45,7 @@ cada unidad, una por una, peleaba hasta el final por separado.
 Se movían hacia la misma dirección,
 pero no parecían un mismo ser.
 
-Alguno, al intentar tapar a dos niños a la vez, se le rompió primero la derecha,
+A alguno, al intentar tapar a dos niños a la vez, se le rompió primero el lado derecho,
 alguno eligió abrazar a más unidades enemigas y caer lejos,
 alguno, incluso con una pierna casi destrozada, no retrocedió hasta el final.
 
@@ -153,7 +153,7 @@ Por eso los empujaba hacia dentro más rápido,
 más cruel,
 de un modo más consumible.
 
-Han Jiwoo, al verlo, se le puso el rostro blanco.
+A Han Jiwoo, al verlo, se le puso el rostro blanco.
 
 —Paren… —murmuró ella casi sin que se oyera.
 

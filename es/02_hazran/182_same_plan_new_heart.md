@@ -60,7 +60,7 @@ Pero ya no se podía dejar esa existencia fuera de esta historia.
 
 Seorin no ocultó ese hecho.
 
-—Del otro lado siguen los androides de mando. Y ahora de este lado hay un androide que no se mueve por órdenes.
+—Del otro lado siguen los androides de órdenes. Y ahora de este lado hay un androide que no se mueve por órdenes.
 
 Esas palabras parecían una explicación,
 pero en realidad estaban más cerca de una declaración.
@@ -70,7 +70,7 @@ Porque la condición misma del campo de batalla había cambiado.
 
 Ater fue el primero en preguntar bajo.
 
-—¿Lo vas a poner al frente directamente?
+—¿Lo va a poner al frente directamente?
 
 Ante esa pregunta todos reaccionaron un poco sensibles.
 Han Jiwoo alzó la cabeza,

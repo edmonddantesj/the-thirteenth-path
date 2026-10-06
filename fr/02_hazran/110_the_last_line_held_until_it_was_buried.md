@@ -1,234 +1,300 @@
 # Chapitre 110 — La dernière ligne tint jusqu'à ce qu'on l'ensevelisse
 
+Une fois les quatre en place, une forme apparut.
 
-Après que Zahir se fut retourné,
-Hazran ne fut plus une ville qui tenait.
+Juste à l'intérieur de l'entrée, Kael la vit et parla bas.
 
-Ce fut désormais une ville qui fermait.
+« Ça y est, la forme est complète. »
 
-Sion, debout à l'intérieur de l'entrée de la coque,
-vit distinctement cette ultime procédure commencer.
+Sion savait pourquoi ces mots étaient froids. Cela voulait dire qu'il n'y avait plus rien à replier, et que n'importe qui pouvait désormais reconnaître où était la fin.
 
-Nassim avait baissé la voix.
-Presque tout ce qui pouvait être replié l'avait déjà été,
-et ce qui restait, c'était maintenir la dernière ligne sans la laisser vaciller.
+Sion regarda cette forme.
 
-C'est pourquoi ses ordres, au contraire, étaient devenus plus courts.
+Ils étaient quatre, et les quatre ne formaient pas un carré. Zahir devant, au centre, Nassim trois pas sur la gauche, Nahira deux pas sur la droite, Haroun cinq pas en arrière. Les intervalles étaient étranges.
 
-« Serrez. »
-« Ne vous écartez pas. »
-« Maintenant. »
+Sion ne savait pas pourquoi ces intervalles-là.
 
-Il ne restait plus de carte large à Hazran.
-Plus de sections à réorganiser,
-plus de couloirs à abandonner, ou presque.
-Ce qui restait, c'était l'étroit chemin menant à la coque,
-et au bout, les gens qui fermaient.
+Ater le savait.
 
-Kael, depuis l'intérieur de l'entrée, ne regardait que la dernière ligne au-dehors.
+« Ce n'est pas une disposition pour bloquer. »
 
-« La forme est complète, maintenant. »
-dit-il à voix basse.
+« Alors c'est quoi ? »
 
-Ces mots sonnèrent plus froidement encore.
-Car ils signifiaient que, sans plus rien à replier,
-tout le monde pouvait désormais voir où se trouvait la fin.
+Ater ne répondit pas tout de suite ; il lut l'angle.
 
-Sion, en regardant cela,
-sentit la culpabilité qui l'avait écrasé tout au long
-se transformer en quelque chose d'une autre forme.
+« C'est une disposition pour ouvrir. »
 
-Ce n'était plus une dette abstraite.
-Désormais, qui resterait jusqu'au bout et où,
-qui fermerait cette ville et de quelle manière —
-tout cela se décidait sous ses yeux.
+« Pour ouvrir ? »
 
-Nahira s'était entièrement retournée depuis l'endroit où elle avait envoyé Aka.
+« Ils ont réduit le chemin d'entrée à un seul. Si les quatre se placent ainsi, ces choses, pour les frapper tous les quatre, vont se regrouper au centre. »
 
-Elle ne ressemblait plus à quelqu'un qui envoie,
-mais à quelqu'un qui prend en charge la dernière limite intérieure.
-Ce changement était si net
-que Sion déglutit brièvement.
+Sion regarda le centre de l'espace que formaient les quatre.
 
-Même ceux qui avaient envoyé quelqu'un finissaient par se retourner du côté de ceux qui ferment.
-Hazran s'apprêtait vraiment à finir ainsi.
+Tout à l'heure, il avait vu Nahira poser quelque chose bas, à l'intérieur. Il ne savait pas ce que c'était.
 
-Sern et Ater, mordant encore le dernier dehors,
-se rapprochaient peu à peu vers l'arrière.
+« Il y a quoi, au centre ? »
 
-Ce n'était pas une retraite.
-C'était un mouvement de convergence vers la dernière ligne fixée.
-Tous deux avaient l'air de gens qui venaient enfin de comprendre pleinement :
-s'ils montaient vivants à bord,
-ce serait parce que quelqu'un de Hazran avait fermé leur place à leur endroit.
+Ater ne répondit pas tout de suite.
 
-Haroun, adossé près de la ligne de défense arrière,
-regardait encore le couloir par-dessus son souffle brisé.
-Il n'avait plus le corps pour bloquer quoi que ce fût de front.
-Mais il n'était pas non plus quelqu'un de fini.
-Sa seule présence en ce lieu
-donnait encore le sentiment que la dernière ligne était vivante.
+Ce fut Sern qui répondit à sa place.
 
-Jiwoo, depuis l'intérieur de l'entrée, serrait les dents en maintenant l'état de la coque.
+« Ce qui soutient ce qu'il y a au-dessus. »
 
-« Renforcez les fixations. »
-« Dégagez le côté de l'entrée. »
-« Si ça bouge maintenant, c'est fini. »
+Sion leva les yeux.
 
-Ces mots signifiaient aussi
-que si ceux qui restaient dehors tenaient cette ligne quelques fois encore,
-on pourrait partir.
+En haut du mur effondré, il restait quelque chose qui ne s'était pas encore effondré. Des plaques de métal à moitié éventrées après avoir servi de barricade, des morceaux de coque découpés, des restes de sacs de sable. Ce que Hazran avait fabriqué en se taillant elle-même était posé là-haut.
 
-C'est pourquoi ils étaient plus cruels encore.
+Ce qui soutenait tout cela jusqu'ici, c'étaient trois pièces, en dessous.
 
-Dehors, ces gens se faisaient ensevelir,
-et dedans, grâce à cet ensevelissement, le départ se préparait.
+« Et si on les retire ? »
 
-Luhai, debout à l'intérieur de l'entrée,
-ne cessait de regarder dehors.
+« Tout descend. »
 
-« Il reste encore une odeur de gens, là-bas. »
-dit-il très bas.
+Sion cessa de respirer.
 
-À ces seuls mots,
-Sion sentit de nouveau, violemment,
-que Hazran n'avait pas été qu'un champ de bataille —
-c'était une terre où la vie de quelqu'un demeurait encore.
+« Alors les quatre aussi… »
 
-Ce qui se fermait en cet instant, ce n'étaient pas seulement des couloirs.
-C'étaient des ruelles,
-des maisons,
-l'odeur d'un endroit où revenir.
+« Oui. »
 
-Et ceux qui fermaient tout cela
-repliaient leur propre terre de leurs propres mains, jusqu'au bout.
+Ater n'en dit pas plus.
 
-Zahir leva la main une dernière fois.
+Sion regarda de nouveau la disposition.
 
-Nassim tira l'écran,
-Nahira tint la limite intérieure,
-Sern et Ater ajustèrent la ligne restante.
-Haroun, par-dessus son souffle brisé, regardait tout cela.
+Maintenant, il savait pourquoi ces intervalles-là. Les quatre se tenaient là pour regrouper ces choses au centre, et quand elles s'y seraient regroupées, le haut descendrait. Quand le haut descendrait, tout ce qui était au centre serait recouvert.
 
-À cet instant,
-la forme de la dernière ligne de Hazran se révéla entièrement.
+Au centre, il y avait aussi les quatre.
 
-Très mince,
-très courte,
-et d'autant plus irréversible.
+« Pourquoi ils font ça ? »
+Ce fut Sion qui demanda.
 
-Sion le sut d'instinct.
-Si cette ligne se rompait,
-ce qui viendrait après serait vraiment la fin.
+« Parce qu'il n'y a pas d'autre moyen. »
 
-Et c'est à cet instant précis
-que la légion d'androïdes se remit à déferler.
+« Non, ce n'est pas ça. »
 
-C'était différent d'avant.
+Sion ne savait pas lui-même ce qu'il voulait demander, et ne put pas continuer.
 
-Avant, on pouvait trancher,
-tordre,
-repousser — il restait un espace pour tenir.
-Mais ce qui fondit sur eux,
-c'était un mouvement froid et précis
-qui cherchait à recouvrir la dernière ligne tout entière,
-comme pour confirmer un lieu déjà achevé.
+Ce n'était pas pourquoi il fallait faire ainsi. C'était pourquoi ces gens-là l'avaient décidé comme si de rien n'était.
 
-Sion crut que son souffle s'arrêtait.
+« Les gens d'ici faisaient leurs barricades en déplaçant ce qui s'était effondré. »
+Ater parla.
+« Le dernier aussi, ils l'ont fait avec ça. »
 
-Cela ressemblait moins à un assaut
-qu'à la scène d'une violence autorisée recouvrant d'un coup toutes les formes.
+Sion ne put rien répondre à ces mots.
 
-Par-dessus les gens,
-par-dessus l'écran,
-par-dessus la ligne qui se fermait,
-les androïdes se superposèrent avec un ordre effroyable.
+Ces choses arrivèrent.
 
-La voix de Nassim éclata une dernière fois.
+Ce n'était pas une charge. Elles venaient froides et précises, comme on vient vérifier un endroit déjà fini.
 
-« Serrez ! »
+Le premier rang ne se décalait pas même d'un demi-empan. Puisqu'il n'y avait plus de poudre.
 
-Sern tint.
-Ater corrigea l'angle.
-Nahira ne lâcha pas la limite intérieure.
-Zahir, au milieu de tout cela, dressa la dernière ligne.
+Sion savait désormais d'où venait cette exactitude. Le demi-empan que Hazran avait obtenu en tranchant son cœur avait disparu.
 
-Haroun tenta de relever de force son corps brisé.
+Elles vinrent vers Zahir. Elles vinrent aussi vers Nassim. Vers Nahira, et vers Haroun aussi.
 
-Mais par-dessus tous ces mouvements,
-la légion d'androïdes déferla sans s'arrêter.
+Pour frapper les quatre, il fallait passer par le centre.
 
-Sans même laisser le temps de montrer distinctement la mort de qui que ce fût,
-ils recouvrirent froidement la dernière ligne tout entière, comme pour l'avaler.
+Elles se regroupèrent au centre.
 
-Sion ne put détourner les yeux de cette scène.
+Mais leur façon de se regrouper n'était pas celle qu'il avait vue tout à l'heure.
 
-Parce qu'Aka avait déjà dit
-qu'il ne fallait pas les détourner.
-Qu'il fallait regarder jusqu'au bout.
+Le premier rang s'arrêtait et le rang suivant montait par-dessus. Ce qui était monté se faisait encore recouvrir par d'autres. Elles arrivaient en couches, par-dessus les gens, par-dessus les débris, par-dessus toute la ligne qui restait.
 
-Il regarda.
+Ce n'était pas piétiner pour passer. C'était recouvrir.
 
-La dernière ligne de Hazran,
-qui avait tenu jusqu'au bout,
-fut effroyablement ensevelie sous la légion.
+Sion comprit que ce n'était pas une charge. C'était un mouvement venu vérifier un endroit déjà fini. Chacune était précise, toutes allaient à la même vitesse, et aucune ne se pressait.
 
-Seorin ne put rien dire,
-Luhai ne parvenait plus à respirer correctement,
-Jiwoo serrait la rambarde de l'entrée à s'en briser les doigts.
-Kael se mordait les lèvres,
-et Aka, le visage livide, regardait cette scène jusqu'au bout.
+Les quatre commencèrent à disparaître là-dessous.
 
-Et à cet instant, Sion
-sentit quelque chose, au fond de sa poitrine, se transformer en une forme entièrement différente.
+Il voulut voir qui partait le premier, mais on ne voyait pas. Ce qui arrivait en couches ne laissait pas de visage.
 
-Survivre et sortir d'ici,
-ce n'est pas une fuite.
-C'est porter cette scène sur notre dos.
+Alors seulement, Sion comprit exactement pourquoi cet ennemi faisait si peur.
 
-Ce n'est pas abandonner ces gens.
-C'est, ayant vu cette forme effroyable,
-reprendre la responsabilité de ne plus jamais laisser une terre se faire recouvrir de cette manière.
+Ici, personne ne mourait séparément. Il ne restait rien de qui avait fini, ni de comment. Parce que ce n'était pas tuer, c'était recouvrir.
 
-Sion dit très bas,
-presque en serrant les dents.
+Sern dit quelque chose à voix basse. Sion ne comprit pas.
 
-« Protège-les. Coûte que coûte. »
+« Comment ? »
 
-Si bas qu'on ne savait plus
-si c'était dit à quelqu'un ou à lui-même.
+« Dans l'Empire, on appelle cela une approbation. »
 
-Seorin, à côté de lui, dit dans un souffle.
+« Une approbation ? »
+
+« C'est un mot fait pour dire que personne ne l'a fait. »
+
+Ater laissa ces mots sans réponse. Les laisser sans réponse, c'était les admettre.
+
+Sion ne put pas détourner les yeux.
+
+Parce qu'Aka avait déjà dit qu'il ne fallait pas les détourner.
+
+La voix de Nassim retentit une dernière fois.
+
+« Tenez bon ! »
+
+Les quatre ne reculèrent pas. S'ils reculaient, ces choses ne se regrouperaient pas.
+
+Et Zahir leva la main.
+
+Il n'éleva pas la voix. C'était un homme qui ne l'avait jamais élevée. Un homme pour qui la disposition était la parole.
+
+La main s'abaissa.
+
+Le haut descendit.
+
+Ce que Sion vit, ce ne fut pas une succession. Ce fut tout à la fois.
+
+Ce qui avait été barricade, ce qui avait été morceau de coque, ce qui avait été sacs de sable, tout ce que Hazran avait fabriqué en tranchant son propre cœur descendit d'un seul coup.
+
+Ce n'était pas de la poussière, c'étaient des blocs.
+
+Cela recouvrit ce qui recouvrait.
+
+Les choses noires furent recouvertes, et les quatre avec elles.
+
+On ne voyait pas qui était parti le premier. On ne voyait pas non plus qui avait été où. Ils furent recouverts deux fois, d'une manière qui ne laissait rien à voir.
+
+Une fois, c'était l'autre camp qui avait recouvert ; une fois, c'était ce camp-ci.
+
+Sion ne parvint pas à distinguer les deux. Vu d'en haut, rien n'était fait pour qu'on puisse les distinguer.
+
+Sion regarda jusqu'au bout.
+
+Le bruit mit longtemps à cesser. Même après l'arrêt des gros blocs, de petits morceaux continuèrent de glisser, et ce n'est qu'une fois tout cela arrêté que le silence vint.
+
+Une fois le silence venu, il ne resta qu'un amas.
+
+La poudre de fer étalée au sol se déposa dessus en une mince couche. Ce qui était retombé toute la journée vint s'y poser une dernière fois.
+
+Une fois posée, rien ne montrait plus ce qui venait de se passer. On aurait dit un effondrement de plus. Dans cette ville, il y en avait beaucoup depuis tout à l'heure.
+
+C'était un amas tout pareil à celui sous lequel Haroun avait été enseveli tout à l'heure.
+
+C'est ce que Sion eut le plus de mal à supporter.
+
+Quelqu'un, là-dessous, pouvait frapper. Une fois, le temps de compter jusqu'à dix. Mais cette fois, personne n'irait creuser. Il ne restait plus personne ici pour aller creuser.
+
+Sion alla vers Aka.
+
+« Aka. »
+
+« Oui. »
+
+« Tu entends ? »
+
+Aka colla la main à la paroi.
+
+Un long moment passa.
+
+« Non. »
+
+« Tu n'entends pas ? »
+
+« D'ici, je n'entends pas. »
+
+À cette réponse, Sion expulsa un souffle.
+
+Ne pas entendre d'ici ne voulait pas dire qu'il n'y avait pas de bruit là-bas. Le vaisseau flottait, la paroi était double, et le sol ne touchait pas : voilà pourquoi on n'entendait pas.
+
+Désormais, il n'y avait donc plus aucun moyen de savoir.
+
+« Je garde la main dessus. »
+Ce fut Aka qui le dit.
+
+« Tu dis que tu n'entends pas. »
+
+« Quand même. »
+
+Dans la coque, personne ne parlait.
+
+Seorin ne détourna pas le visage. Luhai n'arrivait pas à respirer correctement. Han Jiwoo agrippait la rambarde de l'entrée à la briser. Kael se mordait les lèvres.
+
+Le visage blême, Aka regarda jusqu'au bout.
+
+Sion jeta un regard à ce profil.
+
+Tout à l'heure, Aka avait dit que ces choses lui faisaient pitié. À présent, là-dessous, il y avait ces choses et des gens ensemble. Pourtant, sur le visage d'Aka, on ne voyait aucune trace qui sépare les deux.
+
+Sion voulut lui demander ce que cela voulait dire, mais ne demanda pas.
+
+Si l'on demandait, elle répondrait qu'elle ne savait pas. Elle l'avait fait la dernière fois aussi.
+
+Sion regarda ses mains.
+
+Elles tremblaient. Elles tremblaient depuis tout à l'heure, et tremblaient encore.
+
+Il savait que s'il comptait, elles ne trembleraient pas.
+
+Il ne compta pas.
+
+« Protège-les, coûte que coûte. »
+
+Sion l'avait dit très bas.
+
+On ne savait pas s'il l'avait dit à quelqu'un ou à lui-même.
+
+À côté de lui, Seorin parla, presque dans un souffle.
 
 « On reviendra. »
 
 Des mots brefs.
-Mais à l'intérieur de ces mots,
-il y avait la vengeance,
-la dette,
-et la terre qu'il faudrait reprendre.
 
-Luhai, incapable de détacher ses yeux du dehors,
-dit très doucement.
+Dedans, il y avait à la fois ce qu'il faudrait rendre et la terre qu'il faudrait reprendre.
 
-« C'est pas fini, là-bas. »
+Sans parvenir à détacher les yeux du dehors, Luhai parla tout bas.
 
-Ces mots ressemblaient presque à une prière.
-Mais Sion le savait.
+« Là-bas, c'est pas encore fini. »
 
-Désormais, ils porteraient ces mots jusqu'au bout.
+Des mots qui ressemblaient à une prière.
 
-Pour protéger ceux qui restaient.
-Pour revenir sur cette terre.
-Et pour ne pas laisser Hazran sous cette violence froide et ordonnée.
+Mais Sion savait. À partir de maintenant, ces mots, ils les porteraient jusqu'au bout.
 
-L'air à l'intérieur de la coque était lourd à en étouffer.
+Ater parla très bas.
 
-Mais dans cette pesanteur,
-ce n'était pas une fuite qui commençait — c'était un héritage.
+« Nous le trouverons. »
 
-Et la dernière ligne de Hazran
-tint véritablement jusqu'à ce qu'on l'ensevelisse.
+« Quoi donc ? »
+
+« L'endroit qui a fabriqué cela. »
+
+À cette réponse, Sion tourna la tête. Ater regardait toujours dehors.
+
+Tout à l'heure, quand Zahir leur avait dit de trouver la planète des machines, cet homme n'avait rien dit. Il répondait maintenant, pour la première fois.
+
+Celui qui aurait dû recevoir cette réponse n'était déjà plus là.
+
+La main de Han Jiwoo quitta le joint.
+
+« La gauche n'a pas changé de son. »
+
+« Alors… »
+
+« On passe. »
+
+Le vaisseau s'éleva.
+
+Cette fois, ce n'était pas à deux empans. Il quitta l'ombre du mur effondré, et sa proue se dressa vers la couche thermique.
+
+En montant, Hazran rapetissait en dessous.
+
+Sion regarda jusqu'au dernier moment.
+
+Au milieu de la ville effondrée, il y avait un amas. Vu d'en haut, on voyait exactement à quel point il était petit.
+
+À côté, un tableau était dressé.
+
+D'ici, impossible de voir les marques, et pourtant Sion savait où il était. Un tableau où étaient tracés, côte à côte, dix traits, cinq, huit et quatre.
+
+Des nombres que personne ne regarderait.
+
+Sion apprit ces nombres par cœur.
+
+Dix, cinq, huit, quatre.
+
+Une seule personne, à bord, savait ce qu'ils comptaient, et dehors, il n'y avait plus personne.
+
+Puis le vaisseau entra dans la couche thermique.
+
+On ne vit plus le dehors.
 
 ---
 

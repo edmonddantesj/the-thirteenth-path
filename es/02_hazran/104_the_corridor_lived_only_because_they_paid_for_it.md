@@ -1,192 +1,383 @@
-# Capítulo 104 — Ese pasaje seguía vivo solo porque estaban pagando el precio
+# Capítulo 104 — Ese pasillo seguía vivo solo porque estaban pagando el precio
 
-Después de que adelantaran a los tres de delante de la quinta tanda,
-el interior de Hazran parecía repetir una vez más los mismos movimientos.
+—Dieciocho.
 
-Cortar gente,
-unir la fila,
-morder el frente,
-mantener el barco en pie.
+Cuando Aka lo dijo, Sion pensó que había oído mal.
 
-Pero Sion ya lo sabe.
+—Antes eran quince.
 
-Parecer lo mismo no es ser lo mismo.
+—Sí.
 
-Aunque parezca que se repiten los mismos gestos,
-la fuerza que ya se ha drenado por dentro es distinta,
-el estado de los cuerpos que aguantan es distinto,
-y el precio que se mete en cada uno de esos gestos también es distinto de antes.
+—Subió tres de golpe.
 
-El pasaje de la derecha era exactamente así.
+—Sí.
 
-Por fuera todavía aguantaba.
-Estaba Harún,
-estaba Sern,
-estaba Ater,
-y el cuerpo de ruptura inclinado seguía tapando a medias el cuello del pasaje.
+Sion iba a preguntar otra vez, pero lo dejó. Aunque volviera a preguntar, seguiría siendo dieciocho.
 
-Pero en realidad,
-ese pasaje ya no estaba vivo porque «fuera fuerte»,
-sino que estaba más cerca de seguir vivo a duras penas porque los que estaban delante seguían pagando el precio.
+Donde Aka tenía la mano pegada a la pared, la piel se había quedado blanca de la presión. Era de tenerla apoyada tanto tiempo.
 
-Harún se había vuelto más lento.
+—¿No te duele la mano?
 
-El tiempo que tardaba en recuperar el aliento se había alargado,
-y cuando torcía un ángulo, llegaba mínimamente tarde al movimiento siguiente.
-Cada una de esas pequeñas tardanzas
-las cubrían Sern y Ater, más a menudo, en su lugar.
+—Me duele.
 
-Sern, desde que se había tambaleado hace un rato,
-redujo las entradas profundas,
-y en su lugar pasó a dos cortes breves y retirarse.
-Pero cuanto más lo hacía, más tenía que usar todo el cuerpo.
+—Entonces quítala.
 
-Ater, mirándolo, dijo corto.
+—Si la quito, no oigo.
 
-—Sern, ahora solo abajo a la derecha.
+—Aunque la quites un poco…
+
+—Si la quito un poco, oigo un poco menos.
+
+Sion no dijo más.
+
+—Sigue contando.
+
+—Sí.
+
+Sion corrió.
+
+Delante del pasillo, Ater vigilaba el ángulo. A su lado, Sern estaba sentado con la espalda contra la pared; era la primera vez en el día que se sentaba.
+
+—Dieciocho.
+
+Ater no apartó los ojos del ángulo.
+
+—¿Cuántos minutos son?
+
+—¿Qué?
+
+—¿Cuántos minutos son dieciocho?
+
+Con esa pregunta, Sion convirtió por primera vez lo que contaba en tiempo.
+
+Sabía cuánto se tardaba en contar dieciocho. Llevaba todo ese rato contando.
+
+—Unas veinte respiraciones por golpe.
+
+—¿Y al principio?
+
+—Eran diez, así que unas diez respiraciones.
+
+—O sea, el doble.
+
+Entonces, por primera vez, Ater apartó los ojos del ángulo.
+
+—Quiere decir que lo que al principio le llevaba una hora ahora lo hace en dos.
+
+Sion sabía hacia dónde iba ese cálculo.
+
+—¿Y la próxima?
+
+—La próxima, cuatro horas. Y la siguiente, ocho.
+
+—Eso es simplemente…
+
+—Sí. Simplemente, a partir de ahí deja de golpear.
+
+Sion no pudo mover los pies.
+
+Hasta entonces había ido recibiendo, uno a uno, cómo el doce se volvía quince y el quince dieciocho. Creía que subía de muesca en muesca. No era así. Lo que se agrandaba era el propio salto.
+
+—¿Seguro que es esa persona la que golpea?
+
+—¿Qué quieres decir?
+
+—Podría ser solo el ruido de piedras que se mueven, ¿no?
+
+Ater respondió enseguida.
+
+—No.
+
+—¿Cómo lo sabes?
+
+—Las piedras no tienen intervalo.
+
+Esa respuesta lo alivió un poco. Que hubiera una regla quería decir que todavía había alguien contando.
+
+Pero esa regla se había alargado ahora al doble.
+
+—¿Cuánto les falta a los que cavan arriba?
+
+—No lo sé.
+
+—¿Y a los de abajo?
+
+Ater miró la parte baja del montón.
+
+—Eso sí lo sé. Hoy mismo.
+
+Sion, al darse la vuelta, miró hacia ese lado.
+
+Seguía sentado con los ojos cerrados. No dormía. Las manos se le movían un poco sobre las rodillas, como si agarraran algo.
+
+—¿Y él, está bien?
+
+—Ahora está descansando.
+
+—¿Cuántos minutos descansa?
+
+—Lo que yo tarde en contar hasta diez.
+
+Al oír eso, Sion miró a Ater.
+
+—¿Y por cuánto vas?
+
+—Siete.
+
+Sion contó con él los tres que faltaban, allí mismo.
+
+Ocho, nueve, diez.
+
+Aquel hombre abrió los ojos. Para levantarse apoyándose en la pared necesitó dos intentos.
+
+Sion lo vio y echó a correr.
+
+Zahir estaba delante de la tablilla. Miraba las marcas que había trazado Sion. Ocho marcas de barcos y, al lado, cuatro rayas cortas.
+
+—Dieciocho.
+
+Zahir no se volvió.
+
+—Y dicen que los del otro lado van a abrir brecha hoy mismo.
 
 —Lo sé.
 
-—Harún, una vez atrás.
+—¿Lo sabe?
 
-Harún esta vez respondió muy corto.
+—Vino hace un rato y se fue.
 
-—…Una sola.
+Sion no sabía cuándo había venido Ater hasta aquí y se había ido. Tampoco sabía cómo podía ir y venir alguien que no apartaba los ojos del ángulo.
 
-A Sion le pareció entender por qué esas palabras sonaban tan pesadas.
+—Entonces, ¿qué hacemos?
 
-Ahora ya no era «aguantar más»,
-sino que se estaba volviendo la pelea de «una vez más».
+—Lo estoy decidiendo.
 
-A Kael, que había ido al pasaje de la izquierda, tampoco le iba bien.
+—¿Decidiendo qué?
 
-Tenía ya hasta preparado cerrar el segundo biombo,
-y eso quería decir
-que en la izquierda quedaba en la práctica una sola capa de espacio para ceder.
+Solo entonces Zahir miró a Sion.
 
-Kael gritó corto.
+—Si cavar o no.
 
-—¡Si entran la próxima, lo cierro!
+—¿No dijo que, si cavamos, entran?
 
-Zahir asintió solo de forma mínima.
+—Sí.
 
-Ese juicio,
-ahora tampoco estaba equivocado.
+—Entonces no hay que cavar.
 
-En cada vez más lugares
-llegaba la fase en que había que decidir antes
-«cuándo abandonar» en vez de «salvamos esto».
+—Aunque no cavemos, entran.
 
-La fila delante del casco se hizo más densa.
+Al oír eso, a Sion se le cortó la respiración.
 
-Nasim, con la voz ronca, volvió a cortar gente.
+—Si los del otro lado abren brecha hoy, se abre aunque no cavemos.
 
-—¡Los tres de delante, muévanse!
-—¡Los de atrás, esperen!
-—¡No se peguen, corten!
+Lo dijo Zahir.
 
-Seorin no repitió esas palabras a propósito.
-Ella ya estaba cortando la fila con su cuerpo.
-Empujaba la espalda del de delante,
-frenaba el pecho del de atrás,
-torcía el ángulo de la camilla,
-apartaba lo que enganchaba los pies.
+—O sea, que para nosotros se abre si cavamos y se abre si no cavamos.
 
-Luhai hizo que la mano cansada de alguien volviera a aferrar,
-y Sion, contando uno a uno con los ojos los pies que temblaban bajo la rampa,
-adelantaba el momento de las caídas para frenarlas.
+—Entonces…
 
-Ahora todos
-se movían por función casi antes que por su propia emoción.
+—Por eso solo hay una cosa que decidir.
 
-Sabiendo que, si eso duraba demasiado, lo de dentro de la persona se gastaba primero,
-no podían parar.
+Sion esperó lo que diría a continuación.
 
-Han Jiwoo se preparaba para recibir a los tres de delante de la quinta tanda,
-y al oír el temblor del casco solaparse con el ruido de metal de fuera, maldijo bajo.
+Zahir no habló. Tenía cara de estar esperando a que hablara Sion.
 
-—Esto de verdad no aguanta mucho.
+Allí mismo, Sion sintió que algo se le enganchaba. No era de hoy: era algo que había oído hacía unos días.
 
-Aka respondió muy callada.
+Le vino a la memoria alguien que, bajo la rampa, movía medio palmo una plancha de metal.
 
-—No hace falta que aguante mucho.
+—¿Por qué la mueves?
+—Para decidir yo dónde va a golpear.
 
-Han Jiwoo giró enseguida la cabeza.
+Sion soltó el aire una vez.
 
-Aka, con la mano apoyada en la pared exterior del casco, dijo.
+—¿Cuándo?
 
-—Basta con que aguante lo justo para hacerlos pasar.
+Los ojos de Zahir se movieron un poco.
 
-Esas palabras eran crueles, pero exactas.
+—¿Qué?
 
-Este barco no necesita revivir del todo.
-Ahora solo
-basta con que aguante lo justo para llevar un poco más afuera a los que hay que enviar.
+—Si se abre cavando y se abre sin cavar.
+Lo dijo Sion.
+—Lo único que queda por decidir es cuándo se abre, ¿no?
 
-Con Hazran pasaba lo mismo.
-No es que vaya a vivir la ciudad entera,
-basta con que aguante lo justo para enviar fuera a los que hay que salvar.
+Zahir pasó un buen rato sin decir nada ante eso.
 
-Ese pensamiento volvió a apretarle el pecho a Sion una vez más, fuerte.
+—¿Quién te lo enseñó?
 
-El que ahora todos aguantaran
-no era para sobrevivir juntos,
-sino para empujar primero a alguien hacia fuera.
+—La que arregla el barco.
 
-Y que fuera,
-los que se quedan y los que se van aparecen al mismo tiempo.
+—¿Cuándo?
 
-Justo antes de que los tres de delante de la quinta tanda llegaran bajo la rampa,
-en el pasaje de la derecha Sern volvió a tragar un gran aliento.
-Ater lo vio de inmediato,
-y Harún esta vez tampoco pudo fingir no haberlo visto.
+—Cuando vino el cuerpo de ruptura. Como no podía pararlo, eligió ella misma dónde iba a golpear.
 
-Un silencio corto.
+Zahir asintió muy levemente con la cabeza.
 
-Y entonces Harún dijo muy bajo.
+—Así es.
 
-—Sern, esta vez sal.
+Y se volvió hacia la tablilla.
 
-Sern fue a replicar enseguida,
-pero Harún cortó primero.
+—Cuándo se abre lo decidimos nosotros.
 
-—Esta vez la recibo yo.
+—Entonces, ¿cuándo?
 
-En el momento en que cayeron esas palabras,
-Sion supo por instinto que no eran buenas palabras.
+—Cuando haya subido toda la novena tanda.
 
-Porque dejar a alguien fuera una vez
-quiere decir vivir esa vez más con el propio cuerpo.
+Sion siguió ese cálculo.
 
-Ater tenía la cara de quien sentía lo mismo.
+Cuando salieran los veinte de la novena tanda, quedarían veintiocho. Mientras esos veintiocho se retiraban hacia allá, se perforaría el montón. Al perforarlo se abriría el pasillo, y al abrirse entrarían los del otro lado, pero para entonces aquí solo quedarían veintiocho.
 
-—Entonces yo me adelanto —dijo de inmediato.
+—¿Y los veintiocho?
 
-Harún sacudió la cabeza corto.
+—Pégalos al barco.
 
-—No —dijo bajo—. Tú quédate como los ojos.
+—¿Eso es todo?
 
-Era un juicio de combate.
-Y al mismo tiempo,
-quería decir que ahora Harún empezaba a repartir con más claridad
-quién pagaba el precio y de qué manera.
+—Eso es todo.
 
-Los tres de delante de la quinta tanda empezaron a moverse.
+—¿Y esa persona?
 
-Nasim gritó con la voz partida,
-Seorin cortó el camino,
-Luhai empujó a la gente,
-y Sion apartó la arena y las esquirlas de metal que temblaban bajo los pies.
+—¿Quién?
 
-En el pasaje de la derecha,
-Harún se preparaba de verdad para adelantar su propio cuerpo una vez más.
+—La que está abajo.
 
-Ahora ese pasaje seguía vivo
-no por una buena estructura,
-ni por buena suerte.
+Por primera vez, Zahir apartó la mirada de la tablilla.
 
-Era porque los que estaban delante
-seguían pagando su parte del precio.
+—Si se perfora, sale.
+
+—¿Y después de salir?
+
+—Lo que pueda hacer al salir se sabrá cuando salga.
+
+—¿Y si no puede caminar?
+
+—Entonces, a cuestas.
+
+—¿Con el pasillo abierto?
+
+Zahir no respondió.
+
+Sion había oído ese silencio muchas veces ese día. Ya ni hacía falta preguntar qué significaba.
+
+—¿Y los que cavan?
+
+Zahir no respondió.
+
+—Los doce que cavaban arriba. En el momento en que se abra, van a estar ahí.
+
+—Lo sé.
+
+—Esa gente…
+
+—Lo sé.
+
+Sion no preguntó más. Aunque preguntara, serían las mismas dos palabras.
+
+—Se lo digo yo.
+Lo dijo Zahir.
+
+—¿Qué?
+
+—A esa gente se lo digo yo.
+
+Al oír eso, Sion volvió a entender por qué aquel hombre había bajado hasta el pie de la rampa.
+
+Decidir se podía hacer desde arriba, pero decir lo decidido lo hacía él mismo.
+
+—¿Va ahora?
+
+—No.
+
+—¿Por qué?
+
+—Si se lo digo ahora, sueltan.
+
+Zahir miró la tablilla una vez más.
+
+—Se lo digo cuando haya subido toda la novena tanda.
+
+Sion pudo calcular qué colgaba de esa sola frase.
+
+Esos doce seguirían cavando varias horas más sin saber qué abría lo que cavaban. Si lo supieran, soltarían, y si soltaban, los del otro lado perforarían primero. Y si perforaban primero, ya no se podría elegir.
+
+—Eso es engañarlos.
+
+—Sí.
+
+Zahir no lo negó.
+
+—Es engañarlos.
+
+Sion intentó decir algo más y no pudo.
+
+—Se puede hacer de otra manera, ¿no?
+
+—¿Cómo?
+
+Sion tenía una respuesta, pero no la dio.
+
+Existía la opción de decírselo ahora y pedirles que cavaran igual. Pero si oían ese pedido, esos doce se quedarían. Y si se quedaban, estarían ahí cuando se abriera. Quedarse sabiéndolo o quedarse sin saberlo, estar, estarían igual.
+
+Había una sola diferencia. Si se quedaban sabiéndolo, era algo que habían elegido ellos.
+
+—Dígaselo.
+Lo dijo Sion.
+
+Zahir miró a Sion.
+
+—¿Ahora?
+
+—Ahora.
+
+—¿Y si sueltan?
+
+—Si sueltan, eso es lo que eligieron ellos, ¿no?
+
+Ante esa respuesta, Zahir no se movió enseguida.
+
+Al cabo de un buen rato, preguntó.
+
+—¿Y si así no llegamos a perforar?
+
+—Entonces perforarán los del otro lado.
+
+—Entonces no podremos elegir nosotros.
+
+—Eso ya lo sé.
+
+Sion oyó que le temblaba la voz.
+
+—Pero lo primero es que elija esa gente, ¿no?
+
+Zahir se quedó de pie delante de la tablilla, mucho rato, sin decir nada.
+
+Después se fue caminando hacia el montón.
+
+Sion no lo siguió. Si lo seguía, oiría qué decía aquel hombre y cómo lo decía, y no se veía capaz de ordenar la fila después de oírlo.
+
+En cambio, trazó la quinta raya en la tablilla.
+
+Tres veces. Y la quinta hora. Y dieciocho.
+
+Las tres cosas estaban una junto a otra. Sion no pudo mirarlas las tres de una vez. Tuvo que mirarlas una por una.
+
+Un buen rato después, miró hacia el montón.
+
+Allí todavía había gente pegada.
+
+Sion contó.
+
+Eran once.
+
+Faltaba uno. No sabía quién. No se había aprendido todas las caras.
+
+Sion miró hacia la fila para buscar a ese uno y lo dejó. Ni él mismo sabía qué haría si lo encontraba.
+
+Los once que quedaban cavaban a la misma velocidad que antes. Ni después de saberlo se les habían vuelto más lentas las manos.
+
+Eso fue lo que más miedo le dio a Sion.
+
+Entre saber y no saber, había solo una mano de diferencia.
 
 ---
 

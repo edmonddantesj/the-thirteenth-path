@@ -1,174 +1,353 @@
 # Capítulo 103 — Cada pequeño reinicio costaba más
 
-La fila se sacudió una vez y apenas volvió a moverse.
+Por la izquierda llegó alguien.
 
-Ese breve reinicio
-empezó a devorar mucho más que antes.
+No venía a hablar. Llegó corriendo, se plantó delante de Sion y solo respiró. Nadie le metió prisa hasta que recuperó el aliento.
 
-Sion lo sentía cada vez más claro.
+—El biombo.
 
-Antes, cuando alguien estaba a punto de caer,
-otro lo sujetaba,
-y la fila volvía a unirse,
-eso contaba como un tiempo ganado.
+Eso fue todo.
 
-Pero ya no.
+Sion corrió.
 
-Ahora, dentro de Hazran,
-para hacer ese pequeño reinicio,
-alguien tiene que correr más,
-alguien tiene que aguantar más,
-alguien tiene que sangrar más.
+Era la primera vez en el día que tomaba el camino de la izquierda. Hasta entonces, la izquierda solo había existido como un nombre. La izquierda de la que hablaba Zahir, la izquierda a la que había ido Kael.
 
-Hace un momento, ese único gesto de Seorin,
-empujando la cintura de la persona lenta para volver a unir la fila,
-solo había sido posible porque atrás alguien mordía la línea más tiempo.
+Al llegar, resultó que no era nada.
 
-Detrás de cada pequeño reinicio
-ya había un costo mayor tendido.
+Entre muros derrumbados había un pasillo por el que cabía una persona, y delante, una sola placa de metal plantada en diagonal. Ese era el biombo. Ni siquiera llegaba a la altura de una persona.
 
-Cuando la cuarta tanda iba más o menos por la mitad,
-en el pasaje derecho la respiración de Sern se volvió notoriamente áspera.
+Detrás había otra placa más. Más pequeña que la primera.
 
-Él seguía moviéndose corto y preciso,
-pero ahora, cada vez que entraba y salía,
-se veía cómo la sangre se extendía más en la herida del costado.
+Kael sujetaba la primera placa con el pie.
 
-Ater lo vio y dijo, muy corto.
+A su lado había tres personas más. Una sostenía con el hombro la parte baja de la placa, y las otras dos movían escombros.
 
-—Sern, retrásate medio tiempo.
+Sion contó a los cuatro y volvió a mirar el pasillo.
 
-Sern respondió bajo.
+Eso era todo. Dos placas y cuatro personas.
 
-—Si me retraso, se abre.
+—¿Cuántos son?
 
-Esa respuesta salió tan al instante
-que a Sion se le apretó más el pecho.
+—Tres.
 
-Sin tiempo siquiera para pensar,
-el cuerpo ya lo sabía.
-Aquí, ahorrar medio tiempo significaba que su cuerpo se rompía menos,
-y retrasarse medio tiempo significaba que se abría otra fila.
+—¿Nada más?
 
-Harún ya casi no hablaba.
+—Cuatro, conmigo.
 
-Sujetaba como obstáculo el cuerpo de ruptura inclinado
-y, en lugar de chocar de frente, ganaba tiempo desviando, doblando y torciendo. El brazo izquierdo lo tenía casi muerto, y por eso, al contrario, debía usar más todo el cuerpo.
+—Antes dijiste que no sabías cuántos eran.
 
-Eso era más peligroso.
-Cuando una parte muere,
-al final otra se desgasta más en su lugar.
+—Llegué y resultó que éramos cuatro.
 
-En el pasaje izquierdo la situación empeoraba de modo parecido.
+Sion estuvo a punto de preguntar cómo habían sido esos días, pero lo dejó. Si preguntaba, habría respuesta, y responder lleva tiempo.
 
-Uno de los biombos bajos de metal que había levantado Kael,
-esta vez empezó a rasgarse directamente desde la esquina del extremo.
-Él lo fijó enseguida con el pie y le dijo corto a la persona de atrás.
+El borde de la placa estaba rasgado. Se había partido a lo largo desde la esquina hacia dentro, y la grieta se abría un poco más cada vez que la apretaban.
 
-—Si esto se va, cierra de inmediato el segundo biombo.
+—Viniste.
 
-—Entonces también se bloquea el pasaje de atrás.
+—¿Qué pasó?
 
-—Lo sé —cortó Kael—. Aun así, ciérralo primero.
+—Esta se va.
 
-En el instante en que oyó esa conversación,
-Sion se dio cuenta de que la izquierda también había llegado al punto de «cerrarlo antes de que caiga».
+—¿Cuándo?
 
-Hazran, cada vez más,
-contaba el espacio que debía abandonar más rápido que el espacio que sostenía.
+—Si vienen una vez más.
 
-Frente al casco, Nasim volvió a partir la fila una vez más.
+Sion miró la segunda placa.
 
-—¡Cuando termine la cuarta tanda, pega la quinta de inmediato! —gritó con la voz ronca—. ¡No dejen vacío el medio!
+—Entonces basta con cerrar esa, ¿no?
 
-Ante esas palabras,
-por un momento Sion quiso cerrar los ojos.
+—Entonces esto desaparece.
 
-Ahora significaba no dejar ni siquiera un respiro entre fila y fila.
+Kael golpeó dos veces con el pie el sitio donde estaba parado.
 
-Pero Zahir no lo detuvo.
-Eso quería decir
-que el juicio era correcto.
+Solo entonces lo vio Sion.
 
-Luhai ya arrastraba a la persona del frente de la quinta tanda para unirla.
-Seorin vigilaba que los últimos tres de la cuarta tanda no se engancharan en la rampa
-y, a la vez, cortaba con la mano que los tres siguientes no se pegaran demasiado.
-Sion, entre los dos,
-sentía que sujetaba no a personas, sino a un flujo.
+Si cerraban la segunda placa, todo este pasillo pasaría a ser del otro lado. El sitio donde estaba Kael, y también los unos veinte pasos de espacio que seguían detrás.
 
-Las caras de la gente también se volvían ya todas parecidas.
+Sion sabía qué estaban haciendo esos veinte pasos en ese momento.
 
-Cara asustada,
-cara a punto de llorar,
-cara apretada,
-cara rendida,
-todo estaba mezclado,
-pero, curiosamente, al menos los movimientos se volvían cada vez más parecidos.
+El final de la fila frente al casco llegaba hasta allí.
 
-Todos, al final,
-se iban volviendo cuerpos que intentaban sobrevivir dentro de esta velocidad y este hueco.
+—Ahí hay gente.
 
-Han Jiwoo, junto a la entrada del casco, leía el último temblor de la cuarta tanda
-y apretó los dientes muy brevemente.
+—Lo sé.
 
-—La próxima será más áspera —dijo bajo.
+—La parte de atrás de la fila…
 
-Aka preguntó.
+—Lo sé.
 
-—¿El barco?
+Kael no levantó el pie.
 
-—La gente también —respondió Han Jiwoo.
+—Por eso todavía no la he cerrado.
 
-Esas palabras eran exactas.
+—Entonces, ¿cuándo la cierras?
 
-Ahora, el modo en que se sacudía el casco
-y el modo en que se sacudía la gente eran demasiado parecidos.
-Los dos al límite,
-los dos aún aguantando,
-los dos podían quebrarse en cualquier momento sin que extrañara.
+—Cuando tú los hayas hecho retroceder.
 
-Zahir, en medio de todo aquello,
-parecía alguien a quien de verdad solo le quedaba el último cálculo.
+Solo entonces Sion se miró los pies.
 
-—Tiren los tres de delante de la quinta tanda —dijo corto.
+Aquel hombre había estado sujetando con el pie una placa que se rasgaba mientras esperaba a que llegara Sion. Porque sabía que, si la cerraba él, la gente de atrás quedaría atrapada.
 
-En ese instante,
-en el pasaje derecho Sern se tambaleó fuerte una vez.
+—¿Cuántos pasos tengo que hacerlos retroceder?
 
-No llegó a caer del todo.
-Pero el pie que pisaba los escombros se le dobló hondo una vez,
-y el cuerpo se le inclinó de lado más de lo esperado.
+—Veinte.
 
-Ater, casi al mismo tiempo, estiró la mano y lo apartó de un empujón.
-Y desvió, recibiéndolo él mismo, un ángulo alto que venía hacia su lado.
+—Entonces no salen los dos pasos.
 
-Un breve sonido de fricción.
+Por primera vez, Kael miró a Sion de verdad.
 
-El extremo de la manga de Ater se rasgó largo.
+—¿Qué es eso de los dos pasos?
 
-No fue un corte hondo.
-Pero ahora también aquel lado:
-tanto como había vacilado Sern una vez,
-incluso Ater empezaba a desgastarse directamente.
+—El hueco entre grupo y grupo. Los corto de tres en tres y los pongo a dos pasos.
 
-Sion apretó los dientes mirando esa escena.
+—Pues ponlos pegados.
 
-Para hacer un solo pequeño reinicio,
-ahora cada vez más gente se iba desgastando junta.
+—Si van pegados, cuando cae uno, caen todos.
 
-Los últimos tres de la cuarta tanda cruzaron al interior del casco.
-Y casi al mismo tiempo,
-los primeros tres de la quinta tanda fueron tirados hacia delante.
+Ante eso, Kael se quedó un momento sin decir nada.
 
-La fila continuó.
+—Eso no lo decido yo.
 
-Eso quería decir que estaba viva.
-Pero, a la vez,
-quería decir que el precio de unir esa fila se hacía mayor.
+—Entonces, ¿quién lo decide?
 
-Hazran, ahora,
-por cada pequeño reinicio que la hacía moverse una vez más
-quemaba cada vez más sangre, más fuerza y más gente.
+—Quien lo hizo.
+
+Sion iba a echar a andar y se detuvo.
+
+—¿Y ustedes cuatro?
+
+—¿Qué pasa con nosotros cuatro?
+
+—Si la cierras, ¿no se quedan también los cuatro del otro lado?
+
+Kael miró la segunda placa.
+
+—La cerramos después de pasar a este lado.
+
+—Entonces, ¿quién la cierra al final?
+
+—Yo.
+
+Sion tomó aire y lo dejó ahí.
+
+—Vete rápido.
+Lo dijo Kael.
+—Me duele el pie.
+
+Sion corrió.
+
+El camino de vuelta se le hizo más corto que el de ida. Pasa cuando uno corre cargando una mala noticia.
+
+Seorin estaba delante de la octava tanda.
+
+—Hay que hacerlos retroceder veinte pasos.
+
+Seorin preguntó sin detener las manos.
+
+—¿La izquierda?
+
+—Sí.
+
+—¿Ahora?
+
+—Ahora.
+
+Solo entonces Seorin detuvo las manos. Y miró la fila entera. Eran los mismos ojos de antes, cuando la había cortado de tres en tres, pero esta vez miró durante más tiempo.
+
+—No salen los dos pasos.
+
+—No.
+
+—Y pegados no pueden ir.
+
+—No.
+
+Sion esperó lo que diría a continuación.
+
+Seorin pasó un buen rato sin hablar. Mientras tanto la fila seguía tal cual, en los veinte pasos de atrás todavía había gente, y a la izquierda alguien sujetaba una placa con el pie.
+
+—Si no puedes separarlos con espacio.
+Eso dijo Seorin.
+
+—Sí.
+
+—Sepáralos con tiempo.
+
+—¿Cómo que…?
+
+—Suben los tres de delante y cuentas dos. Luego mandas a los tres siguientes.
+
+Sion siguió ese cálculo.
+
+Lo que hacían los dos pasos era que, cuando caían los de delante, los de atrás no los alcanzaran. Aunque la gente estuviera pegada, si se retrasaba la salida, sobre la rampa no iban pegados. El sitio donde estaban parados se estrechaba, pero el espacio en el que se movían no.
+
+—Entonces se tarda más.
+
+—Se tarda.
+
+—¿Cuánto?
+
+—Unos veinte conteos por tanda.
+
+Sion supo enseguida qué se comía ese número.
+
+Veinte conteos eran veinte por tanda, y si quedaban cuatro tandas, eran ochenta. Durante esos ochenta conteos, el intervalo de los golpes bajo el montón seguiría alargándose.
+
+—¿No hay otra manera?
+
+—Si la hubiera, ya la habría usado.
+
+Sion recibió esa respuesta y preguntó una vez más.
+
+—Te costó mucho tiempo armar eso, ¿no?
+
+Seorin no respondió enseguida.
+
+—¿No te da pena?
+
+—Me da pena.
+
+—¿Pero?
+
+—Si te da pena, te aferras, y si te aferras, la gente de esos veinte pasos no sale.
+
+Después de eso, Seorin añadió una cosa más.
+
+—Lo hice yo, así que me toca a mí tirarlo.
+
+Y se fue caminando hacia el final de la fila.
+
+—¡Veinte pasos adelante!
+
+La gente se movió. Fueron entrando, empujados desde atrás.
+
+Los veinte pasos desaparecieron enseguida. Lo que tardó fue lo de después. Los de delante no cedían su sitio. No porque no quisieran, sino porque no tenían adónde cederlo.
+
+Sion fue adelante y empujó los hombros de la primera fila. Cada empujón los movía medio palmo. Empujó ocho veces, medio palmo cada vez, e hizo cuatro pasos.
+
+Mientras tanto, la gente de los veinte pasos fue entrando. Al entrar, nadie preguntó. Por qué tenían que retroceder, qué era lo que se tiraba. Porque en todo el día nadie que hubiera preguntado había recibido una respuesta.
+
+Los dos pasos desaparecieron y los hombros volvieron a pegarse.
+
+Sion vio cómo aquello volvía atrás.
+
+Lo que antes habían separado uno a uno se pegó de nuevo. Separarlo había llevado mucho tiempo; pegarse fue cuestión de nada.
+
+—Cuenta dos.
+Se lo dijo Seorin a Sion.
+
+—Sí.
+
+—Cuando yo suba a los tres de delante, tú cuentas dos y mandas a los tres siguientes.
+
+—¿En voz alta?
+
+—En voz alta.
+
+—¿Por qué?
+
+—Para que la gente cuente contigo.
+
+Subieron tres.
+
+—Uno. Dos.
+
+Los tres siguientes salieron.
+
+—Uno. Dos.
+
+Otros tres.
+
+Más o menos desde el tercer grupo, se oyó desde atrás que otros contaban también. Al principio eran una o dos voces, luego cinco o seis. El sonido no era fuerte, pero se extendió por toda la fila.
+
+Sion lo escuchaba mientras contaba.
+
+Los dos pasos habían desaparecido, pero la gente no se empujaba. No porque no hubiera sitio para empujar, sino porque mientras contaban nadie se movía.
+
+Seorin también estaba oyendo aquel sonido.
+
+—¿Lo oyes?
+Lo preguntó Sion.
+
+—Sí.
+
+—¿Por qué funciona esto?
+
+—Si tiene algo que contar, la gente no empuja.
+
+—¿Eso es todo?
+
+—Eso es todo.
+
+Mientras subía a los tres siguientes, Seorin añadió algo más.
+
+—Para empujar tienes que mirar adelante, pero para contar no hace falta.
+
+Subieron los dos últimos de la octava tanda.
+
+—Veinte.
+
+La rampa se plegó. El barco despegó.
+
+Sion fue a la tablilla. Las marcas llegaron a ocho.
+
+De sesenta y ocho se fueron veinte. Cuarenta y ocho.
+
+Tres veces.
+
+Y entonces sonó algo por la izquierda. Era el ruido de una placa de metal al dar contra el suelo. Sonó una vez y se acabó.
+
+Sion miró hacia allí. No se veía. Desde aquí, ese sitio nunca se había visto.
+
+Se había cerrado.
+
+No había forma de comprobar si los cuatro habían pasado a este lado. Para comprobarlo tendría que ir corriendo, y si iba corriendo, aquí no quedaría nadie que contara.
+
+Sion no corrió.
+
+Junto a las rayas cortas, Sion trazó la cuarta. Después fue a ver a Aka.
+
+—¿Cuántos?
+
+Aka contó con la mano pegada a la pared.
+
+Contó un buen rato. Tardó más que antes.
+
+—Quince.
+
+—Antes eran doce.
+
+—Sí.
+
+—Subió tres de golpe.
+
+—Sí.
+
+Sion iba a echar a correr hacia el pasillo y se detuvo.
+
+—Aka.
+
+—Sí.
+
+—¿El sonido no se ha vuelto más débil?
+
+Aka no respondió enseguida a esa pregunta.
+
+—Lo de más débil no lo sé.
+
+—¿Por qué?
+
+—Yo solo oigo lo que cuento.
+
+Sion entendió qué quería decir esa respuesta.
+
+Esa niña contaba los intervalos con exactitud. Cuánta fuerza quedaba, eso no podía contarlo. Eso no podía contarlo nadie.
+
+Sion corrió.
+
+Corría y contaba. Uno, dos.
+
+Ahora sabía qué compraban esos dos. Una persona que iba a caer. Y cada vez que compraban esos dos, allí abajo el quince se iba volviendo dieciséis.
 
 ---
 

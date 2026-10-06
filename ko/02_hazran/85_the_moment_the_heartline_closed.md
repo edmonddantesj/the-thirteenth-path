@@ -1,6 +1,4 @@
-# EP085. THE MOMENT THE HEARTLINE CLOSED
-
-## 85화. 심장줄이 닫히던 순간
+# 85화. 심장줄이 닫히던 순간
 
 말로 들을 때는 한 줄이었다.
 

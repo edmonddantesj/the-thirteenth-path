@@ -1,144 +1,201 @@
 # Capítulo 55 — La línea que solo quienes portaban lo verdadero sostenían
 
-En el instante en que se deslizaron hacia la pendiente muerta de abajo, casi como en una caída, lo primero que cambió fue el sonido que hacían los aparatos.
+En el instante en que se deslizaron, casi cayendo, hasta la pendiente muerta de abajo, lo primero que cambió fue el sonido de los aparatos.
 
-Más arriba quedaba todavía algo parecido al ruido de una arena. Calor que estallaba, capas vítreas que se quebraban, espectadores que gritaban con un instante de retraso, voces que contaban quién había caído. Pero aquí abajo era distinto. A partir de esta línea ya no se trataba de un tablero ofrecido a los curiosos, sino de un trayecto reservado a quienes de verdad pensaban salir vivos.
+Arriba quedaba todavía algo parecido al ruido de la arena. El calor que estallaba, las capas de vidrio que se quebraban, el público que gritaba con retraso, las voces que contaban quién se había hundido. Pero aquí abajo era distinto. A partir de aquí ya no era una partida para enseñar a los mirones, sino una línea que solo tomaban quienes de verdad iban a salir sin morir.
 
-Han Jiwoo no forzó el esquife a enderezarse. Al contrario, mantuvo tal cual el ángulo de media caída y dejó que el casco derivara en la dirección que la pendiente muerta le imponía. La placa de sustentación derecha estaba casi inerte, y el fondo no dejaba de rasparse, pero en este instante el aparato no sobrevivía resistiendo: sobrevivía deslizándose.
+Han Jiwoo no forzó el esquife a enderezarse. Al contrario: le dejó tal cual el ángulo de media caída y dejó correr el casco en la dirección en que lo empujaba la pendiente muerta. La placa de sustentación derecha estaba casi muerta y el fondo no dejaba de rasparse, pero ahora el aparato no sobrevivía aguantando, sino deslizándose.
 
-Sion envolvió más hondo la brasa en su mano.
+Sion envolvió más hondo la brasa que tenía en la mano.
 
-La brasa verdadera seguía callada. No fulguraba en su palma como una falsa, ni intentaba sobresaltar a quien la sostenía. Y aun así seguía viva. Era precisamente esa quietud lo que la hacía más segura. Si al caer por esta pendiente no moría, entonces era de verdad.
+La brasa verdadera seguía callada. No destellaba en la mano como la falsa ni intentaba sobresaltar a quien la sostenía. Pero seguía viva. Precisamente por esa quietud era más segura. Si ni siquiera ahora, cayendo por esta pendiente, se moría, entonces era de verdad.
 
-—Curva delante —dijo Sion en voz baja.
+—Delante hay una curva.
+Sion lo dijo en voz baja.
 
-Han Jiwoo respondió breve.
+Han Jiwoo respondió, breve.
 
 —Lo sé.
 
-El fondo de la pendiente no parecía un camino. Marcos exteriores rotos, capa vítrea medio apagada, fragmentos de metal clavados en la arena en líneas enmarañadas: a primera vista, todo parecía un callejón sin salida. Pero Sion empezaba a entender cómo nacía un camino de verdad en sitios así. No una línea limpia, sino una rendija sucia, fugaz, que aparecía un instante junto a una estructura recién muerta. Los caminos vivos nunca tenían buen aspecto.
+El fondo de la pendiente no parecía un camino. Marcos exteriores rotos, capas vítreas medio hundidas, líneas de chatarra clavadas en la arena: todo estaba tan enredado que, mirado mal, parecía un callejón sin salida. Pero Sion creía entender ya un poco cómo nacía en sitios así un camino de verdad. No una línea limpia, sino una rendija sucia que se abre un momento junto a una estructura recién muerta. Los caminos vivos nunca tenían buen aspecto.
 
-—A la derecha no. Abajo a la izquierda —dijo enseguida—. Dentro del marco roto.
+—A la derecha no. Abajo a la izquierda.
+Lo dijo enseguida.
+—Dentro del marco roto.
 
 Han Jiwoo inclinó el morro del esquife.
 
-Bajo el casco, un chirrido de metal raspado se desgarró largo. Sion estuvo a punto de salir disparado hacia delante, pero Han Jiwoo no soltó las manos. Cambiar de dirección al pie de una pendiente muerta tenía menos de pilotaje que de sentido en bruto. No se trataba de abrir un camino visible, sino, en pleno deslizamiento, de confirmar con el cuerpo, una a una, las superficies que aún no habían muerto.
+Bajo el casco, el chirrido del metal raspado se desgarró, largo. Sion estuvo a punto de salir despedido hacia delante, pero Han Jiwoo no aflojó las manos. Cambiar de dirección al pie de una pendiente muerta se parecía más al tacto que al pilotaje. No se trataba de abrir un camino visible, sino de ir comprobando con el cuerpo, una a una, mientras resbalaban, las superficies que aún no habían muerto.
 
-Más arriba, a sus espaldas, el planeador rojo oscuro descendía de nuevo.
+Detrás y arriba, el planeador rojo oscuro volvía a descender.
 
-Curtidos.
+Tenían oficio.
 
-El momento de titubeo no los había hecho rendirse. Solo que ya no podían recurrir a la táctica del embudo. Aquí abajo, un embudo no aguantaba mucho. Por eso ese equipo se pegaba ahora de forma más brutal. En lugar de cortar el paso, buscaban el ángulo para rozar el flanco del esquife de Han Jiwoo y hacer caer la brasa justo en el viraje.
+Habían titubeado un momento, pero no se habían rendido. Solo que ya no podían empujarlos hacia un cuello de botella como antes. Aquí abajo, los propios cuellos de botella no aguantaban mucho. Por eso ese equipo se les echaba ahora encima sin disimulo. En lugar de cortarles el paso, buscaban el ángulo para rozar el costado del esquife de Han Jiwoo cuando virara de nuevo y hacer caer la brasa.
 
-—Esta vez van a arrancarla —dijo Sion breve.
+—Esta vez van a quitárnosla.
+Sion lo dijo, breve.
 
-Han Jiwoo ni siquiera sonrió ante esas palabras.
+Han Jiwoo ni siquiera sonrió al oírlo.
 
 —Entonces es más fácil.
 
-Sion captó el sentido al instante.
+Sion entendió enseguida lo que quería decir.
 
 La mano que acorrala es complicada.
-Pero la mano que quiere arrancar acaba teniendo que pegarse.
-Y en el momento en que se pega, para un piloto como Han Jiwoo, al contrario, es más fácil de leer.
+Pero la mano que quiere arrebatar tiene que acercarse, al final.
+Y en cuanto se acerca, para una piloto como Han Jiwoo, es más fácil de leer.
 
-En la amplia línea de rodeo al norte, el planeador de Kael y Sern se sumaba de verdad hacia abajo.
+Por la amplia línea de rodeo del norte, el planeador de Kael y Sern bajaba de verdad para unirse a ellos.
 
-Era una línea mucho más precaria de lo que parecía vista desde arriba. En parte solo un planeador torpe podía con ella. Un aparato fino y rápido ya habría tenido un panel lateral arrancado en ese punto, pero el de Kael, justo por ser pesado y torpe, rebotaba menos en una pendiente muerta como esta.
+Era una línea mucho más precaria de lo que parecía vista desde arriba. En parte, solo era posible porque el planeador era torpe. Un aparato fino y rápido ya habría perdido los paneles laterales en un sitio así, pero el de Kael, precisamente por pesado y torpe, rebotaba menos en una pendiente muerta como esa.
 
-—Lo veo delante —dijo Kael en voz baja.
+—Ya se ve delante.
+Kael lo dijo en voz baja.
 
-Sern observaba a la vez la rendija sucia en la que se había metido el equipo de Han Jiwoo, el ángulo del planeador rojo oscuro que la seguía, y las dos sombras que se movían por fuera de todo aquello.
+Sern miraba a la vez la rendija sucia a la que se aferraba la pareja de Han Jiwoo, el ángulo del planeador rojo oscuro que los seguía de cerca y las dos sombras que se movían por fuera de todo eso.
 
-—Si nos pegamos ahora, nos arrastran con ellos —dijo—. Bajamos un nivel más, y cuando viren, les comemos la línea lateral.
+—Si nos pegamos ahora mismo, nos arrastran con ellos.
+Lo dijo él.
+—Baje una vez más y, cuando ellos viren, tome la línea lateral.
 
-Kael preguntó breve.
+Kael preguntó, breve.
 
-—Nosotros tampoco estamos ya en la carrera, ¿no?
+—A partir de ahora nosotros tampoco estamos en la carrera, ¿no?
 
 Sern respondió muy breve.
 
-—La regla es el bando que saca lo verdadero.
+—La regla es quien saque lo verdadero.
 
-Esas palabras fueron fríamente exactas.
+Las palabras fueron de una exactitud fría.
 
-Desde las gradas, las voces que nombraban la carrera quedaban ya cubiertas por las que preguntaban quién había agarrado lo verdadero. Luhai, pegado al extremo de la baranda, barría con los ojos casi toda la línea de fuga, y Seorin ya no leía las manos sino el flujo de la gente. Quién aprovechaba el derrumbe de la carrera para bajar, quién seguía arriba observando la situación a la espera.
+En las gradas, las voces que preguntaban quién había agarrado lo verdadero crecían ya más que las que gritaban los nombres de la carrera. Luhai, pegado al extremo de la baranda, recorría con los ojos casi toda la línea de escape, y Seorin ya no leía las manos, sino el flujo de la gente. Quién aprovechaba el derrumbe de la carrera para bajar y quién seguía arriba, mirando y esperando.
 
-—Bajan dos —dijo Seorin muy bajo.
+—Bajan dos.
+Seorin lo dijo muy bajo.
 
 Ater preguntó enseguida.
 
-—¿Del lado de Harún?
+—¿Son de Harún?
 
-—Aún no sé —respondió Seorin—. Pero si la brasa ha caído abajo, pronto todos olerán el fondo.
+—Todavía no se sabe.
+Seorin respondió así.
+—Pero si la brasa se fue abajo, pronto todos van a olerse lo de abajo.
 
-Ater llevó la mirada aún más lejos.
+Ater llevó la mirada más lejos.
 
-Esas palabras eran ciertas.
-En el instante en que lo verdadero descarrila fuera de las reglas de la carrera, la mano que lo sostiene queda también empujada fuera de las reglas del mercado. Desde aquí en adelante, las manos que se pegan ya no son concursantes de la carrera, sino manos que cazan lo verdadero.
+Tenía razón.
+En el instante en que lo verdadero se sale de las reglas de la carrera, la mano que lo sostiene queda también empujada fuera de las reglas del mercado. Y entonces, las manos que se acerquen a partir de ahora ya no son participantes de la carrera, sino manos que van tras lo verdadero.
 
-Nasim seguía calculando, y Zahir no se movía aún.
+—No lo suelta.
+
+Lo dijo Aka.
+
+Seorin giró la cabeza.
+
+—¿Qué no suelta?
+
+—Lo que tiene en la mano.
+
+Seorin miró un momento a Aka y luego otra vez hacia abajo.
+
+Desde aquí, el esquife de allá abajo se veía como un punto. No era una distancia desde la que se pudiera ver qué había en una mano. Solo se veía el aparato tumbarse de lado cada vez que se sacudía.
+
+—¿Lo ves?
+
+—No.
+
+Eso dijo Aka.
+
+—Pero no lo suelta.
+
+Seorin no preguntó más.
+
+En cambio, apretó la mano con que se agarraba a la baranda. Que la mano de allá abajo siguiera sosteniéndolo quería decir que lo que buscaban los dos que acababan de bajar seguía allí.
+
+Ater oyó ese breve ir y venir.
+
+—¿Está segura?
+
+—No sé.
+
+Así respondió Aka.
+
+—Si fuera de los que sueltan, ya lo habría soltado antes.
+
+Nasim seguía calculando, y Zahir seguía sin moverse.
 
 Pero no moverse y dejar escapar son cosas distintas.
-Ater no podía descartar que ese silencio no fuera mera indiferencia, sino el de un hombre que aún no había decidido en qué línea intervenir.
+Ater no podía descartar que ese silencio no fuera mera pasividad, sino el silencio de alguien que aún no había decidido en qué línea intervenir.
 
-La pendiente bajo Sion volvió a sacudirse con fuerza.
+Abajo, la pendiente del lado de Sion volvió a sacudirse con fuerza.
 
-Esta vez no fue la izquierda, sino el frente. El suelo dentro del marco roto se deslizó hacia abajo, y los fragmentos de metal apilados encima se vinieron de golpe. Han Jiwoo ni siquiera maldijo: torció la barra de gobierno. El esquife, casi tumbado de lado, rozó el exterior del flujo de escombros, y Sion contrajo el brazo entero para que la brasa no se le escapara de la mano.
+Esta vez no fue a la izquierda, sino delante. El suelo de dentro del marco roto resbaló hacia abajo y los fragmentos de metal amontonados encima se vinieron de golpe. Han Jiwoo, sin siquiera maldecir, torció la barra de gobierno. El esquife, casi tumbado de lado, rozó el borde del torrente de fragmentos, y Sion apretó el brazo entero para que la brasa no se le escurriera de la mano.
 
-Justo detrás, el planeador rojo oscuro se llevó de lleno el mismo flujo de escombros.
+Justo detrás, el planeador rojo oscuro recibió el mismo torrente de fragmentos.
 
-El piloto curtido enderezó el casco al instante, pero su pasajero de atrás se sacudió con fuerza. El ángulo que había tomado para tender la mano hacia el flanco del esquife se vino abajo, y el morro del planeador quedó un instante empujado hacia fuera.
+El piloto veterano enderezó el casco al instante, pero el que iba detrás se sacudió con fuerza. Se deshizo el ángulo con que tendía la mano para agarrar el costado del esquife, y el morro del planeador también quedó empujado hacia fuera un instante.
 
 Han Jiwoo no iba a dejar pasar esa abertura.
 
-En lugar de empujar el esquife más adentro, lo metió bajo el marco roto, todavía más abajo.
+No metió el esquife más adentro, sino que lo empujó, al contrario, por debajo de un marco roto, más abajo.
 
 Sion lo supo casi por instinto.
 
-Esa línea parecía morir hacia abajo,
-pero bastaba con aguantar una sola vez para que se abriera un hueco hacia el exterior opuesto.
+Aunque esa línea pareciera morir hacia abajo, si aguantaba una sola vez, había un agujero que salía al exterior del otro lado.
 
-—¿Eso pasa de largo? —preguntó breve.
+—¿Por ahí se pasa?
+Lo preguntó, breve.
 
-Han Jiwoo dijo sin sonreír.
+Han Jiwoo habló sin sonreír.
 
-—Si no está abierto, lo abro ahora.
+—Si no se pasa, lo abro ahora.
 
 El esquife se hundió tal cual bajo el marco oscuro.
 
-El choque de metal contra metal le arañó los oídos. Por un instante la visión murió del todo, y el resplandor rojo de la capa térmica quedó atrás. Sion contuvo el aliento y apretó la brasa con más fuerza aún.
+El choque de metal contra metal le arañó los oídos. Por un instante la vista se apagó del todo, y hasta la luz roja de la capa térmica quedó atrás. Sion contuvo el aliento y solo apretó la brasa con más fuerza.
 
-Y al instante siguiente,
-apareció una luz que se filtraba por fuera del marco oscuro.
+Y al instante siguiente vio una luz que se filtraba por fuera del marco oscuro.
 
 Vivos.
 
 Por ahora.
 
-Al mismo tiempo, en la amplia línea de rodeo de arriba, el planeador de Kael y Sern empezó a alinearse en paralelo a esa salida de abajo.
+Al mismo tiempo, por la amplia línea de rodeo de arriba, el planeador de Kael y Sern empezó a ponerse a la par de esa salida de abajo.
 
 Sern lo vio primero.
 
-—Ahora —dijo en voz baja.
+—Ahora.
+Lo dijo en voz baja.
 
-Kael dejó que todo el peso del planeador lo llevara a plantarse bajo el marco muerto, por el lado exterior. No era exactamente la misma línea, pero a la salida el ángulo lo haría converger con el equipo de Han Jiwoo en la misma línea exterior.
+Kael cargó todo el peso del planeador y se pegó por abajo al marco muerto del lado exterior. No era exactamente la misma línea, pero era un ángulo que, a la salida, lo juntaría con la pareja de Han Jiwoo en la misma línea exterior.
 
-El planeador rojo oscuro había vuelto también a morder una trayectoria.
-Pero ya no tenía el margen del principio. Uno de los dos grupos había desaparecido bajo el marco oscuro, el otro bajaba desde arriba para sumarse. A estas alturas, incluso decidir a quién bloquear primero había que hacerlo deprisa.
+Detrás, el planeador rojo oscuro también había vuelto a morder la línea.
+Pero ya no tenía el margen del principio. Uno había desaparecido bajo el marco oscuro, y el otro bajaba desde arriba para unirse. A esas alturas, hasta a quién frenar primero había que decidirlo deprisa.
 
 Sion lo sintió y recobró el aliento un momento.
 
-Por fin, los dos iban a juntarse.
+Mientras lo recobraba, lo primero que miró fue su mano.
 
-Han Jiwoo y Sion.
-Kael y Sern.
+No la había abierto desde hacía rato. Entre los dedos resbalaba el sudor y las articulaciones de abajo le hormigueaban. El hormigueo había empezado después de apretar con el brazo entero, cuando el marco se sacudió con fuerza.
 
-Los dos equipos convocados por separado antes de que empezara esta carrera
-convergían ahora en la línea de fuga, fuera de la carrera, portando lo verdadero, en la misma dirección.
+Si soltaba, estaría más cómodo.
 
-Y a partir de ese instante,
-la partida en torno a la brasa no haría sino agrandarse.
+Sion lo pensó una vez y lo borró. Borrarlo no le llevó tiempo.
+
+Algo bajaba desde arriba.
+
+Al principio creyó que eran escombros. Los escombros no toman un ángulo así.
+
+Era el planeador de Kael. Detrás iba Sern.
+
+Ninguno de los dos venía por dentro de la línea de la carrera. Bajaban por el lado exterior, y allí no se ganaban puntos.
+
+—Jiwoo.
+Lo dijo Sion.
+—Por allá.
+
+Han Jiwoo ya estaba mirando.
 
 ---
 

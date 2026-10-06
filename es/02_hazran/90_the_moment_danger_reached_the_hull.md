@@ -1,182 +1,257 @@
 # Capítulo 90 — El instante en que el peligro alcanzó el casco
 
-Que el último espacio aún con vida quedara aplastado contra el casco
-significaba que el peligro también podía llegar hasta allí.
+Que el último espacio vivo quedara aplastado junto al casco quería decir que el peligro también podía llegar hasta allí.
 
-Y ese instante
-llegó antes de lo esperado.
+Y ese momento llegó antes de lo que pensaban.
 
-Después de que Ater dijera «pretenden rasgarlo en dos ramales»,
-el movimiento del lado de los androides cambió de verdad.
+Lo primero que cambió fue el aire.
 
-Ya no empujaban una sola fila con fuerza como antes,
-sino que rozaban casi a la vez los dos pasos estrechos
-y partían en dos la atención del lado de Hazran.
+Sion lo notó en la cara. Lo que hasta hacía un momento le raspaba el fondo de la garganta con cada respiración había desaparecido. Al irse el calor, el polvillo que flotaba había empezado a asentarse.
 
-Harún leyó esa intención de inmediato.
+Respirar se hizo más fácil. A Sion le dio miedo justamente que se hiciera más fácil.
 
-—La izquierda es falsa —dijo en voz baja—. La derecha es la que entra de verdad.
+Ater vio lo mismo en el mismo instante.
+
+—Se está asentando.
+
+Harún respondió sin volverse siquiera.
+
+—Lo sé.
+
+—Ahora el otro lado ve los dos pasillos a la vez.
+
+—Eso también lo sé.
+
+Sion supo que los dos ya habían metido esta hora en su cálculo. Por la mañana, cuando Zahir lo preguntó, Harún había respondido: «Mientras haya sol, no parará. Cuando refresque, se asentará.»
+
+Entonces había creído que hablaba solo de ese día.
+
+Ahora veía que era un reloj.
+
+El movimiento de los androides cambió de verdad. Ya no empujaban una sola fila gruesa como antes, sino que tanteaban casi a la vez dos pasillos estrechos y partían en dos la mirada de Hazran.
+
+Harún leyó enseguida la intención.
+
+—La izquierda es falsa. Por la derecha entran de verdad.
 
 Sern negó con la cabeza al instante.
 
 —Son las dos.
 
-Un silencio breve.
+Un silencio corto.
 
 Ater lo recogió enseguida.
 
-—Quieren que cortemos la izquierda
-y que la derecha alcance.
+—Por la izquierda quieren hacernos cortar; por la derecha, llegar.
 
-En el instante en que cayeron esas palabras,
-Sion sintió que la espalda se le enfriaba.
+En el instante en que lo dijo, Sion sintió que se le helaba la espina dorsal.
 
-Una era el cebo para rasgar aún más la línea que sostenían Harún, Sern y Ater,
-y la otra era la cuchilla que, por ese hueco, quería alcanzar de verdad la aglomeración frente al casco.
+Quería decir que uno era un cebo para desgarrar todavía más el frente que sostenían Harún y Sern, y el otro, la hoja que, aprovechando ese hueco, quería llegar de verdad hasta la línea de aglomeración junto al casco.
 
-Es decir, a partir de ahora
-la línea de combate y la nave de evacuación reciben el golpe a la vez.
+A partir de ahora, el frente y la línea de evacuación recibirían los golpes a la vez.
 
 Harún ni siquiera maldijo.
 
-Alzó la mano de inmediato y retiró más atrás a los dos que quedaban en el paso izquierdo,
-y a su propio cuerpo, en cambio, lo pegó a la derecha.
+Alzó la mano al instante, retiró más atrás a los dos que quedaban en el pasillo izquierdo y, en cambio, pegó su propio cuerpo a la derecha.
 
-—Sern, sujeta la izquierda un solo compás —dijo—. Ater, dame los ojos de la derecha.
+—Sern, sujeta la izquierda un solo tiempo.
+
+Sern se movió.
+
+Pero Sion vio algo en ese movimiento.
+
+Era lento.
+
+No mucho. Medio tiempo, más o menos. Pero hasta entonces Sern nunca había ido medio tiempo tarde. Hacía unos días que le habían cortado el costado, y en todo ese tiempo no se le había notado ni una vez. Ahora se le notaba.
+
+Ater también lo vio.
+
+—Sern.
 
 —Lo sé.
-—Sí.
 
-Las dos respuestas fueron cortas.
+—Con un tiempo basta. No se tome dos.
 
-A partir de ahora un solo error
-alcanza a la gente al instante.
+—Lo sé.
 
-Nasim también endureció el rostro mirando la aglomeración frente al casco.
+Sion entendió qué significaba aquel breve ir y venir. Ater le estaba diciendo a Sern que no aguantara mucho. Porque los dos sabían que, si aguantaba mucho, no salía.
 
-—¡Echen la fila al suelo! —gritó—. ¡Bajen primero a los que están de pie!
+Sern entró por la izquierda.
 
-En cuanto Seorin lo oyó, hizo agacharse a la fila de los heridos,
-y Luhai cubrió las cabezas de los niños casi con su propio cuerpo.
-Sion, en mitad de la fila de embarque improvisada, empujó con las manos para que la gente no se amontonara hacia un lado y enderezó la fila.
+Cortó una vez y salió enseguida. Fue exacto. Solo que, al salir, apoyó una vez el hombro en la pared. Hasta hacía un momento, nunca se apoyaba ahí.
 
-En ese instante,
-una placa de metal en el extremo del paso estrecho de la derecha salió cortada en diagonal.
+—He ganado un tiempo.
+Lo dijo él.
 
-El sonido fue corto,
-pero lo que vino después fue demasiado rápido.
+También la voz era corta.
 
-No es que una figura negra hubiera metido el cuerpo entero hacia dentro.
-Pero un solo paso,
-exactamente un solo paso más, entró más hondo.
+Y durante ese tiempo, por la derecha, una placa de metal salió volando, cortada en diagonal.
 
-Ese único paso fue el problema.
+El ruido fue corto, pero lo que vino detrás fue demasiado rápido.
 
-Hasta ahora cortaban desde fuera de la línea de defensa.
-Pero con aquel único paso,
-el peligro entró por primera vez en el aire de la gente que estaba junto al casco.
+Una forma negra no llegó a meter el cuerpo del todo hacia dentro. Pero entró un paso, exactamente un paso, más hondo.
 
-Un niño soltó un grito.
+Ese paso era el problema.
 
-Con ese sonido corto,
-la aglomeración frente al casco se sacudió un instante.
+Hasta ahora los cortaban fuera de la línea de defensa. Con ese paso, el peligro había entrado por primera vez en el aire de la gente que estaba junto al casco.
 
-Si se sacude una vez, es el fin.
-Sion lo supo antes con el cuerpo.
+Un niño gritó.
 
-Si la gente se amontona,
-cae,
-y alguien queda aplastado,
-en ese instante la fila de embarque,
-la nave de evacuación
-y la línea de defensa se rompen juntas.
+Con ese grito corto, la aglomeración frente al casco se agitó por un instante.
 
-Casi como un reflejo, gritó.
+Si se agitaba una vez, era el fin. Sion lo supo primero con el cuerpo. Si la gente se amontonaba, se caía y alguien quedaba aplastado debajo, en ese instante se rompían a la vez la fila de embarque, la línea de evacuación y la línea de defensa.
+
+Sion gritó casi por reflejo.
 
 —¡No empujen!
 
-La garganta parecía a punto de rasgarse,
-pero aun así la voz salió a través.
+Sintió que se le desgarraba la garganta, pero la voz se abrió paso.
 
-Seorin gritó casi al mismo tiempo.
+Y no sabía qué había que hacer después.
 
-—¡Agáchense!
+Hasta ahora, en momentos así había alguien a su lado. Seorin cortaba la fila, Luhai envolvía a un niño, Nasim gritaba. Ahora los tres estaban en otra parte. Aquí solo estaban Sion, Harún frenando por la derecha, Sern, que a duras penas había salido de la izquierda, y Ater, que miraba a los dos a la vez.
 
-Luhai apretó a dos niños hacia el suelo y los cubrió,
-y Nasim pateó con el cuerpo una camilla que se torcía y la metió de nuevo dentro de la fila.
+Sion se metió en la fila.
 
-Pero al final de esa aglomeración,
-un androide llevó de verdad su mirada hasta la placa de acople frente al casco.
+Se abrió paso con el cuerpo entre la gente, paró con las manos dos hombros que se iban hacia delante y los empujó hacia atrás. Luego otro. Luego otro. Sin decir nada, solo con el cuerpo. De todos modos, las palabras no se oían.
 
-A Han Jiwoo le pareció en ese instante que se le cortaba el aliento.
+Cuando empujó a la cuarta persona, esa persona le pegó a Sion.
 
-Eso no mira solo la fila de la gente,
-sino también el punto de unión del casco.
+Era por miedo. Sion lo sabe. Él también tiene miedo ahora.
 
-Casi por instinto, gritó.
+Recibió el golpe y no retrocedió. En cambio, volvió a agarrar a esa persona por el hombro y la puso otra vez en su sitio, atrás.
 
-—¡Kael, abajo!
+La sacudida se detuvo.
 
-Kael, sin responder siquiera, pateó la parte de abajo de la placa de acople que estaba apoyada de través.
-El ángulo de la placa de metal se dobló una vez más,
-y desvió la línea de corte que acababa de entrar para que no rascara directamente la parte inferior del casco.
+Solo cuando se detuvo se dio cuenta Sion de que tenía el labio partido.
 
-Sonó un chirrido agudo.
+Y miró las caras de la gente que acababa de poner en su sitio a empujones.
 
-De haber tardado un poco más,
-habría sido el sonido del muro exterior del casco y la fila de embarque rasgándose juntos.
+Los cuatro lo miraban. Había una cara enfadada, una cara apenada, y alguien sin ninguna cara en particular. Entre ellos estaba la persona que le había pegado antes.
 
-Han Jiwoo apretó los dientes.
+Esa persona abrió la boca y la volvió a cerrar.
 
-—Si vienen una vez más, de verdad nos da.
+Sion tampoco dijo nada.
 
-Aka habló muy bajo.
+Aquí, pedir perdón se come tiempo. Es la misma razón por la que a un niño se le dice que mire solo hacia delante. Si se empieza a hablar, la fila se para, y si la fila se para, lo que acaba de ponerse en pie se viene abajo otra vez.
 
-—Por eso ahora aparta.
+Sion le dio a esa persona una palmada en el hombro y pasó de largo. Era todo lo que podía hacer.
+
+—¿Estás bien?
+Lo preguntó Ater, sin apartar los ojos del pasillo derecho.
+
+—Estoy bien.
+
+—Donde las palabras no llegan, eso es lo correcto.
 
 —¿El qué?
 
-—A la gente —dijo Aka—. Despégalos de delante del barco.
+—Poner a la gente en su sitio con el cuerpo.
+Lo dijo Ater.
+—En el Imperio, al final, también se hace así.
 
-Tenía razón.
+Sion no supo si aquello era un consuelo o no.
 
-Junto al casco está el último espacio aún con vida,
-pero si se aplasta demasiado, eso mismo se vuelve el blanco.
-Entonces, también aquí, otra vez
-hay que crear el hueco para sobrevivir.
+Entretanto, por la derecha, Harún había hecho retroceder aquel paso. No del todo. Solo lo empujó medio paso; el otro medio quedó donde estaba.
 
-Zahir, al oír esas palabras, tomó la decisión de inmediato.
+—El paso se ha quedado en medio paso.
+Lo dijo Ater.
 
-—Embarca la primera tanda —dijo en voz baja—. No dejes a más gente de pie.
+—Medio paso también es dentro.
+Harún respondió.
 
-Cuando cayó esa orden,
-el aire dentro de Hazran volvió a darse la vuelta.
+Era cierto. Hasta hoy, dentro era dentro. Ahora el fuera había entrado medio paso, y ese medio paso no volvería a salir.
 
-Ya no hay tiempo de esperar y ordenar.
-Una vez que el peligro ha alcanzado el casco,
-hay que embarcar de inmediato a los que están listos y despegarlos.
+Harún se volvió a mirar atrás por primera vez.
 
-Nasim gritó con la garganta partida.
+—¿Cuántos se pueden subir ahora?
 
-—¡Que se mueva la primera tanda!
+—Siete, siete y seis.
+Sion respondió.
+—Veinte cada vez.
 
-Luhai empujó a los niños,
-Seorin agarró ella misma una camilla y tiró,
-y Sion arreó hacia la rampa del casco a la gente que se tambaleaba.
-Han Jiwoo, con una mano apoyada en el muro exterior del casco,
-calculaba hasta el final si esto de verdad aguantaría.
+—¿Y el tiempo?
 
-Harún dejó todo aquello a su espalda
-y se plantó para volver a empujar hacia fuera aquel único paso que había entrado de verdad por el paso de la derecha.
+—Dice que cada vez se tarda diez segundos más.
 
-Ahora la batalla quedó clara.
+Harún tomó esos diez segundos y calculó un momento. Mientras calculaba, tampoco apartó los ojos de la derecha.
 
-El peligro alcanzó el casco.
-Así que ya no se puede esperar más.
+—Entonces súbelos ya.
 
-Hazran, ahora,
-en el último espacio aún con vida,
-empezaba de verdad a despegar a la gente.
+—¿Ya?
+
+—Ha entrado medio paso.
+
+Sion entendió qué quería decir. Hasta ahora, tener a la gente reunida era lo seguro. Una vez entrado ese medio paso, estar reunidos se había vuelto lo más peligroso. El otro lado ya los había visto amontonados.
+
+—Pero la barricada todavía…
+
+—La barricada la vigilo yo.
+Lo dijo Harún.
+—Tú ve y diles que suban.
+
+—¿Y usted?
+
+—Mientras yo esté aquí, no pasa del medio paso.
+
+Sion se lo creyó. Y por creérselo, le disgustó más.
+
+—¿Cuánto puede aguantar ahí de pie?
+
+En vez de responder, Harún miró a Ater.
+
+Ater respondió por él.
+
+—Hasta que el polvillo se asiente del todo.
+
+—¿Y eso cuándo es?
+
+—No lo sé.
+Lo dijo Ater.
+—Pero ahora es cuando más queda.
+
+Sion se quedó mucho tiempo con esa frase.
+
+Ahora es cuando más queda. Eso quería decir que, de ahora en adelante, solo iría a menos. La única arma que Hazran había conseguido cortándose el corazón estaba desapareciendo a la velocidad a la que se ponía el sol.
+
+Sern despegó el hombro de la pared.
+
+—Puedo entrar una vez más.
+
+—No entras.
+Lo dijo Harún.
+
+—Puedo ganar un tiempo más.
+
+—Si en ese tiempo no sales, perdemos los diez siguientes.
+
+Sern no lo rebatió. En cambio, miró muy brevemente a Ater, y Ater no dijo nada. Ese silencio era su acuerdo.
+
+Antes de darse la vuelta, Sion preguntó una vez más.
+
+—¿Se pueden cargar las once veces?
+
+Esta vez Harún respondió enseguida.
+
+—No lo sé.
+
+—¿Entonces hasta cuántas?
+
+—Eso tampoco lo sé.
+Lo dijo Harún.
+—Pero una cosa sí la sé.
+
+—¿Cuál?
+
+—Si no los subimos ahora, seguro que las once no las hacemos.
+
+Sion lo oyó y echó a correr.
+
+Mientras corría, oyó los ruidos de detrás. En el pasillo derecho el metal volvió a rechinar, Harún seguía allí, y el medio paso seguía siendo medio paso.
+
+El polvillo seguía asentándose.
+
+Sion no miró el cielo. No lo miró porque le pareció que, si lo miraba, sabría cuánto quedaba.
 
 ---
 

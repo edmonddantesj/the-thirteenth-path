@@ -1,227 +1,240 @@
 # Capítulo 52 — El instante en que la regla se plegó
 
-En el instante en que los tres equipos supervivientes convergieron casi a la vez ante el mismo candidato de brasa, el aire mismo, en la zona de brasas bajo la capa térmica, pareció estrecharse.
+En el instante en que los tres equipos supervivientes se pegaron casi ante la misma brasa candidata, el propio aire de la zona de brasas de la capa térmica pareció estrecharse.
 
-Sion no jadeaba por falta de aliento; era la sensación de que todas las líneas de alrededor se precipitaban hacia un solo punto lo que le hacía tomar inspiraciones cortas.
+Sion respiraba corto no porque le faltara el aliento, sino por la sensación de que todas las líneas de alrededor se precipitaban hacia un solo punto.
 
-Abajo a la izquierda, la frontera donde fragmentos de metal y suelo vitrificado se tocaban.
-Allí, un minúsculo punto rojo prendido.
+Abajo a la izquierda, el borde donde los fragmentos de metal tocaban el suelo vítreo.
+Allí, prendido, un punto rojo diminuto.
 
-Tan apagado que al principio ni siquiera parecía una luz,
-tan silencioso que, en el tumulto de las reacciones más vistosas, quedaba enterrado.
+Tan apagado que al principio ni siquiera parecía una luz, y tan silencioso que, precisamente por eso, quedaba enterrado entre las demás reacciones vistosas.
 
-Pero ahora los tres equipos miraban en su dirección.
+Pero ahora los tres miraban hacia allí.
 
 Han Jiwoo y Sion.
 El planeador rojo oscuro.
 Kael y Sern.
 
-El simple hecho de que las manos supervivientes terminaran todas por tocar el mismo punto
-bastaba a Sion para saber que su ojo no se había desviado del todo.
+Con solo ver que las manos supervivientes acababan llegando al mismo sitio, Sion pudo saber que su ojo no se había desviado del todo.
 
 El problema venía después.
 
-No quién tocaría primero,
-sino quién se movería mal primero.
+Más que quién llegaba primero, quién se movía mal primero.
 
-Han Jiwoo bajó el esquife aún más. La respuesta de la placa de sustentación derecha ya estaba muerta una vez más, y bajo el casco un chirrido de metal raspado se prolongaba en un ritmo regular. El aparato no aguantaría mucho. Razón de más para que el último intento fuera preciso.
+Han Jiwoo bajó todavía más el esquife. La respuesta de la placa de sustentación derecha ya había muerto una vez más, y bajo el casco seguía, regular, un chirrido de metal rascado. El aparato no aguantaría mucho. Por eso mismo, el último intento tenía que ser exacto.
 
-—Tú limítate a calar la distancia —dijo ella en voz baja—. Cuando yo lo pase, tú lo coges.
+—Tú solo calcula la distancia.
+Ella habló en voz baja.
+—Yo te llevo hasta ahí, y lo coges tú.
 
-Sion, en lugar de responder, se aplastó contra el aparato.
+Sion, en lugar de responder, bajó el cuerpo.
 
-El planeador rojo oscuro que llegaba por el exterior derecho tenía reacciones mucho más afiladas. Había reducido la velocidad y, aun así, su casco no se deslizaba con blandura; al contrario, se plegaba justo lo bajo necesario, leyendo los rebotes del suelo. Dignos de los campeones del año anterior, su supervivencia hasta aquí no tenía visiblemente nada de golpe de suerte.
+El planeador rojo oscuro que se acercaba por el exterior derecho tenía reacciones mucho más afiladas. Aunque había reducido la velocidad, el casco no resbalaba a la ligera; al contrario, se mantenía bajo solo lo justo y leía el rebote del suelo. Como correspondía al equipo campeón del año anterior, se notaba que haber sobrevivido hasta aquí no era cuestión de suerte.
 
-Los dos ocupantes eran visibles.
-El piloto de delante casi no movía los brazos, y el otro, retirado atrás, ya tenía el cuerpo inclinado en el ángulo exacto para tender la mano. Eran manos de gente que, más que coger rápido, se apoderaba del instante en que el otro vacilaba.
+También se veía a los dos pilotos.
+El que llevaba los mandos delante casi no movía los brazos, y el otro, que sacaba el cuerpo por detrás, ya calculaba el ángulo para tender la mano. Eran manos de gente que, más que coger rápido, se quedaba con el instante en que otro vacilaba primero.
 
-El equipo de Kael y Sern, descendiendo desde el norte, acusaba medio tiempo de retraso respecto a los otros dos.
+El equipo de Kael y Sern, que bajaba desde el norte, iba medio tiempo por detrás de los otros dos.
 
-Pero no era lentitud, sino más bien prudencia. Sern observaba hasta el final qué abandonaban los otros dos equipos y qué perseguían, y Kael no hundía el planeador más allá de lo necesario. Esos dos no buscaban caer encima los primeros; aguardaban a que solo lo verdadero subsistiera.
+Pero no era lentitud: se parecía más a la prudencia. Sern seguía mirando hasta el final qué descartaban y qué perseguían los otros dos equipos, y Kael no apretaba el planeador más de lo necesario. Esos dos no eran de los que se lanzan primero, sino de los que aguantan hasta que al final solo queda lo verdadero.
 
-—Las tres en el mismo sitio —dijo Kael en voz baja.
+—Los tres nos hemos pegado al mismo sitio.
+Kael habló en voz baja.
 
-Sern respondió breve.
+Sern respondió, breve.
 
-—Por eso ahora es cuando se vuelve peligroso.
+—Por eso es ahora cuando empieza el peligro.
 
-Sion también lo sentía.
+Sion también lo sintió.
 
-Ante una brasa, uno se pierde dos veces.
-La primera, cuando toma lo falso por verdadero.
-La segunda, cuando ha reconocido lo verdadero pero rompe el juego por querer cogerlo antes que los demás.
+Ante una brasa, uno se arruina dos veces.
+Una, cuando cree que lo falso es verdadero; la otra, cuando ha visto lo verdadero y aun así estropea la partida por querer cogerlo antes que los demás.
 
-Y la situación presente se inclinaba más hacia la segunda.
+Y ahora estaban más cerca de lo segundo.
 
-Han Jiwoo inflexionó imperceptiblemente el morro del esquife para ajustar el ángulo con el planeador rojo oscuro. En lugar de embestir de frente, creaba una línea donde sería incómodo tender la mano a la vez. Sion leyó su intención al instante. Lo que hacía falta ahora no era la colisión, sino el medio tiempo. El medio tiempo que le permitiría a él coger.
+Han Jiwoo torció de forma mínima el morro del esquife para ajustar el ángulo con el planeador rojo oscuro. En lugar de embestir de frente, creaba una línea en la que a ninguno le resultaba fácil tender la mano a la vez. Sion leyó enseguida la intención. Lo que hacía falta ahora no era un choque, sino medio tiempo. El medio tiempo que le permitiera cogerlo a él.
 
-Fue entonces cuando el ocupante trasero del planeador rojo oscuro sacó el cuerpo primero.
+Entonces el piloto de atrás del planeador rojo oscuro sacó el cuerpo primero.
 
 Demasiado rápido.
 
-Sion lo comprendió de forma casi refleja.
-No era la velocidad de quien se lanza con certeza,
-sino la de quien solo quiere poner su mano antes que los demás.
+Sion lo supo casi por reflejo.
+Aquella no era la velocidad de quien se mueve con certeza, sino la de quien solo quiere poner la mano antes que los demás.
 
-—Ahora no —dijo Sion con una voz que casi sonó a grito.
+—Ahora no.
+Sion lo dijo casi gritando.
 
-Pero casi en el mismo instante,
-la mano contraria se tendió hacia el punto rojo.
+Pero casi a la vez que esas palabras, la mano del rival se tendió hacia el punto rojo.
 
-Y en ese momento preciso,
-el aire bajo la capa térmica se torció una vez más, con más violencia.
+Y justo en ese instante, el aire bajo la capa térmica se torció otra vez, con fuerza.
 
-Era distinto de todo lo que había precedido.
+Esta vez era distinto.
 
 No era una distorsión natural.
-Como si, en algún lugar bajo el suelo vitrificado, un aliento ardiente fuera empujado a la fuerza hacia arriba, la capa de aire se enrolló hacia un lado. Las tres luces bajas que habían quedado pegadas al suelo hicieron todas el ademán de crecer a la vez, y alrededor del pequeño punto rojo que Sion había localizado, otras dos reacciones rojas estallaron de pronto al unísono.
+Como si en algún punto del suelo vítreo de abajo alguien empujara hacia arriba, a la fuerza, un aliento ardiente, la capa de aire se enroscó hacia un lado. Las tres luces que estaban pegadas abajo fingieron a la vez volver a la vida con más fuerza, y alrededor del pequeño punto rojo que Sion había elegido estallaron de pronto otras dos reacciones rojas.
 
 Era demasiado descarado.
 
-Sion, en ese instante, estuvo casi seguro.
+En ese instante, Sion estuvo casi seguro.
 
-Alguien había tocado el juego.
-El tablero mismo.
+Alguien la había manipulado.
+La partida.
 
-La mano trasera del planeador rojo oscuro titubeó un instante ante la reacción alterada.
-Ese breve titubeo bastó.
+La mano de atrás del planeador rojo oscuro vaciló un instante ante la reacción cambiada.
+Esa breve vacilación bastó.
 
-Han Jiwoo hundió enseguida el esquife más abajo.
+Han Jiwoo metió enseguida el esquife todavía más abajo.
 
 —Ahora.
 
-El cuerpo de Sion se adelantó a su pensamiento.
+El cuerpo de Sion salió antes que el pensamiento.
 
-En el momento en que empujó sobre el estribo trasero y proyectó el cuerpo hacia delante, el aire ardiente le azotó la cara. Vistas de cerca, las luces eran un caos aún peor. Las más grandes eran demasiado escandalosas, e incluso el pequeño punto del que estaba seguro un instante antes se hallaba un momento enterrado en los remolinos de aire.
+En el instante en que empujó con el pie el estribo de atrás y se lanzó hacia delante, el aire ardiente le azotó la cara. Vistas de cerca, las luces eran un caos todavía peor. Las grandes resultaban, al contrario, demasiado escandalosas, e incluso el punto pequeño del que hasta hacía un momento estaba seguro quedó enterrado un instante en la oscilación del aire.
 
-Pero Sion se negó deliberadamente a mirar las grandes reacciones.
+Pero Sion no se obligó a mirar las reacciones grandes.
 
-Lo que finge estar vivo
-empieza siempre por crecer.
+Lo que finge estar vivo siempre crece primero.
 
 Lo verdadero aguanta.
 
-Bajó la mirada al ras del suelo.
+Bajó la mirada hasta cerca del suelo.
 
-Bajo la rendija del vidrio,
+Bajo una grieta del vidrio,
 junto a la sombra de un fragmento de metal,
-un punto rojo que seguía obstinadamente pequeño.
+un punto rojo que seguía siendo pequeño.
 
-Mientras todo lo demás temblaba,
-aquel no buscaba probar lo que era.
-Simplemente permanecía.
+Mientras lo demás oscilaba, aquel no intentaba probar lo que era.
+Simplemente seguía allí.
 
-La mano de Sion se tendió en su dirección.
+La mano de Sion se tendió hacia allí.
 
-Justo al lado, la mano del lado del planeador rojo oscuro entró casi a la vez.
+Justo al lado, la mano del planeador rojo oscuro entró casi a la vez.
 
-Fue el adversario quien tocó primero.
+Fue el rival quien llegó primero.
 
-Sion sintió el corazón caer de un bloque.
+Sion sintió que el corazón se le caía a los pies.
 
-Pero al instante siguiente, lo que estalló en la mano contraria fue, una vez más, una luz demasiado fácil.
+Pero al instante siguiente, lo que estalló en la mano del rival fue otra vez una luz demasiado fácil.
 
-Una reacción roja floreció con esplendor.
+La reacción roja floreció, vistosa.
 
-Demasiado esplendor.
-Y fue justamente por eso por lo que Sion lo supo.
+Tan vistosa que, precisamente por eso, Sion lo supo.
 
-Era un falso.
+Falsa.
 
-—¡Esa no es! —gritó Sion enseguida.
+—¡Esa no es!
+Sion lo gritó enseguida.
 
-El adversario ya había perdido.
+El rival ya llegaba tarde.
 
-La luz hizo el ademán de despertar una vez con vanidad en su mano, y luego se apagó como si se consumiera de golpe. Al mismo tiempo, el suelo vitrificado de debajo se agrietó levemente, y el planeador perdió pesadamente el equilibrio.
+La luz fingió una vez volver a la vida con fuerza en su mano, y enseguida se apagó como si se consumiera. Al mismo tiempo, el suelo vítreo de debajo se agrietó levemente y el equilibrio del planeador se tambaleó con fuerza.
 
-Han Jiwoo soltó una maldición.
+Han Jiwoo escupió una maldición.
 
 —¡Agáchate!
 
-Sion se aplastó aún más abajo.
+Sion se apretó todavía más abajo.
 
-Casi en el mismo instante, el planeador de Kael se hundió desde la línea exterior hacia el interior. Kael no había embestido a la vez que las otras manos. En lugar de eso, había mantenido hasta el final la línea menos perturbada que Sern había identificado, y gracias a ello pudo penetrar de la manera más estable por el exterior del suelo que acababa de agrietarse.
+Casi en el mismo instante, el planeador que llevaba Kael entró a fondo desde la línea exterior hacia dentro. Kael había visto cómo otras manos se tendían primero y aun así no se había lanzado con ellas. En cambio, había aguantado hasta el final la línea menos agitada que Sern había señalado, y gracias a eso pudo meterse de la forma más estable por el lado exterior del suelo que acababa de agrietarse.
 
-—Debajo —dijo Sern breve—. Las grandes reacciones no. Debajo.
+—Abajo.
+Sern lo dijo, breve.
+—No la reacción grande; la de abajo.
 
-Esas palabras coincidían exactamente con lo que Sion había visto.
+Esas palabras eran lo mismo que Sion ya había visto.
 
-Los dedos de Sion tocaron por fin el pequeño punto rojo.
+Por fin, la punta de los dedos de Sion tocó el pequeño punto rojo.
 
-La primera sensación fue más cercana al calor que a la luz.
+La primera sensación se parecía más al calor que a la luz.
 
-Pero ese calor no tenía nada de esplendoroso.
-No saltó en su mano, no se puso en valor.
-Sencillamente se había negado a morir.
+Pero ese calor no era vistoso.
+No le saltaba a la mano ni se exhibía.
+Simplemente no moría.
 
 En ese instante, Sion lo supo.
 
-Era el verdadero.
+Verdadera.
 
-Al mismo tiempo,
-en algún lugar más abajo de la capa térmica, resonó un sonido metálico bajo y áspero.
+Al mismo tiempo, en algún lugar bajo la capa térmica, resonó un sonido metálico grave y áspero.
 
 Una vez.
 
-Luego una segunda, poco después.
+Y enseguida, una segunda.
 
-Aquel ruido no se parecía a los sonidos naturales del terreno de carrera. Más que un derrumbe, era el sonido de alguien que tiraba por fin de un dispositivo colocado de antemano.
+Aquel sonido no se parecía a los ruidos naturales del terreno. Más que algo que se derrumbaba, sonaba a alguien que por fin tiraba de un mecanismo dejado preparado de antemano.
 
 Sern levantó la cabeza casi a la vez.
 
-—Es anormal.
+—Es extraño.
 
-Kael preguntó breve.
+Kael preguntó, breve.
 
-—El qué.
+—¿El qué?
 
-—Demasiado rápido —dijo Sern—. La capa de aire no tiene ninguna razón para amontonarse hacia un solo lado así.
+—Es demasiado rápido.
+Lo dijo Sern.
+—No hay razón para que la capa de aire se amontone así hacia un solo lado.
 
-En ese momento, del lado de las gradas, no fue un murmullo sino un verdadero tumulto lo que estalló.
+En ese momento, también en las gradas estalló, más que un murmullo, un verdadero alboroto.
 
-Luhai, con el cuerpo inclinado como si fuera a caer por encima de la baranda, gritó.
+Luhai gritó, asomándose tanto que casi se caía de la baranda.
 
 —¡Alguien ha tocado eso!
 
-Ater miró enseguida el flujo de calor de abajo, y Seorin ya observaba otra cosa.
+Ater miró de inmediato el flujo de calor de abajo, y Seorin ya estaba mirando otra cosa.
 
 Gente.
 
-En el linde de la zona bajo la capa térmica, en un sitio que debería haber estado fuera de la línea de carrera, varias siluetas se movían demasiado rápido. No eran manos de la carrera. Ni recuperadores, ni vigilancia ordinaria. Gente que había entrado de antemano, y cuyos movimientos delataban el conocimiento de los emplazamientos de los dispositivos.
+En el borde de la zona de la capa térmica, en un punto que debería quedar fuera de la línea de carrera, unas cuantas sombras se movían demasiado rápido. No eran manos de la carrera. Tampoco manos de recuperación, ni la vigilancia de siempre. Se movían como gente que ya estaba dentro de antemano, como quien sabe dónde están los mecanismos.
 
 Seorin murmuró muy bajo.
 
-—Ya están aquí.
+—Ya llegaron.
 
-Aka no pronunció una sola palabra.
+Aka no miraba hacia allí.
 
-Pero, de pie junto a Nahira, tomó por primera vez una inspiración muy breve.
-Esa ínfima reacción bastaba para decir que lo que se rompía en ese momento no era un simple accidente.
+Lo que había visto Seorin eran las sombras en movimiento. Aka no miraba esas sombras, sino la parte de abajo de la tribuna, y allí no estaba pasando nada.
 
-Sion aún apretaba la brasa en su mano.
+—Esa gente no mira la carrera.
 
-Esta no tenía el esplendor escandaloso del falso.
-Pero en su palma vivía, baja y tenaz.
+Seorin giró la cabeza hacia Aka.
 
-Era el verdadero.
+—¿Qué?
 
-El problema
-era que ahora el camino de vuelta con ese verdadero en la mano
-quizá ya no se hallara enteramente dentro de las reglas de la carrera.
+—Los que entraron no.
 
-Han Jiwoo forzó el esquife a virar para acercarse a Sion y dijo.
+Aka señaló hacia abajo con la barbilla.
+
+—Los que están ahí de pie.
+
+Seorin miró hacia allí.
+
+En el borde inferior de la tribuna había unas cuantas personas de pie. Todos miraban hacia arriba y gritaban, pero esas pocas no. No giraban la cabeza hacia el terreno y estaban de pie guardando la misma distancia entre sí.
+
+No eran gente que hubiera venido a ver la carrera.
+
+Nahira dio un paso y se puso delante de Aka.
+
+Sion seguía con la brasa bien apretada en la mano.
+
+Esta no era vistosa como la falsa.
+Pero en su mano vivía, muy baja y tenaz.
+
+Era verdadera.
+
+El problema era que, a partir de ahora, el camino de vuelta con esa brasa verdadera en la mano quizá ya no estuviera solo dentro de las reglas de la carrera.
+
+Han Jiwoo giró el esquife a la fuerza para arrimarlo a Sion, y habló.
 
 —¡Sube!
 
-Al mismo tiempo,
-el aire bajo la capa térmica se torció por tercera vez, con violencia.
+Al mismo tiempo, el aire bajo la capa térmica se torció con fuerza por tercera vez.
 
-Esta vez, varias luces que fingían estar vivas estallaron a la vez hacia arriba, y empezaron a desgarrar la línea de entrada misma que aún subsistía.
+Esta vez, varias luces que fingían estar vivas estallaron a la vez hacia arriba y empezaron a hacer jirones la propia línea de entrada que hasta hacía un momento seguía en pie.
 
-Y Sion lo comprendió.
+Y Sion lo supo.
 
-La regla,
-en ese instante preciso, se había plegado la primera.
+La regla, justo ahora, había sido la primera en plegarse.
 
 ---
 

@@ -1,178 +1,264 @@
 # Episode 153. First Rescue
 
-The first rescue began more quietly than expected.
+The first rescue
+began more quietly than they had expected.
 
-Serakion was a world that had always taken people without loud noise, and so the first disturbance to that order could not start too loudly either.
+Serakion had always been a world that took people without a sound,
+so the first shaking of that order
+couldn't begin too loudly either.
 
-The recon team and the recovery hands split and attached to positions just before the predetermined shift line.
+The recon team and the recovery hands
+split up and took their places along the stretch just before the shift line they had chosen.
 
-Kael held the position for catching the closing sequence. Ater held the position for creating the most natural confusion. Jiwoo and the second recovery hand held the position for extracting the children. The first recovery hand held the position for catching the return flow.
+Kael where he could hold back the order of the closing,
+Ater where he could make confusion look most natural,
+Han Jiwoo and the second recovery hand where they could pull the children out,
+and the first recovery hand where it could hold the flow on the way back.
 
 No more words.
 
-They had already calculated too much. From here, each had to prove it with their body.
+They had already calculated too much,
+and from here on each of them had to prove it with their own body.
 
 Ater moved first.
 
-He walked in as though mimicking the upper section's beat — neither rushed nor slow.
+As if mimicking the beat of the upper sector,
+he walked in, neither hurried nor slow.
 
-Then he overlapped his path with a machine moving along the alignment line, at the most trivially minor level possible.
+And with one machine moving along the alignment line
+he crossed paths, by only the smallest possible margin.
 
-Just enough to look like a mistake. Just enough to invite correction, not suspicion.
+Just enough to look like a mistake.
+Just enough to call for tidying up, not suspicion.
 
-That single small misalignment split the gaze of two machines in the front line exactly once.
+With that one small misalignment,
+the attention of the two machines in the front row split, just once.
 
 That was truly all.
 
-But in a world as over-organized as Serakion, it was enough.
+But in a world as over-ordered as Serakion,
+that was enough.
 
-When the beat wobbles even once, a brief gap opens before the alignment behind it fully locks.
+If the beat wavered even slightly, even once,
+a short gap opened before the alignment behind it locked shut.
 
 Kael had been waiting for that moment.
 
-He shifted his body toward the narrow closure axis on the opposite side and delayed exactly one folding structure he had studied in advance.
+He turned straight toward the narrow closure axis on the opposite side
+and slowed, precisely, one folding structure he had marked in advance.
 
-He did not force it to stop. He did not fully break it.
+He didn't force it to stop.
+He didn't break it outright either.
 
-He simply made the sequence that should have closed arrive slightly less than one beat late.
+He only delayed the order in which it was meant to close
+by a little less than one beat.
 
-Serakion's structure was weaker against not-quite-closing than against fully opening.
+Serakion's structures were less vulnerable to being thrown wide open
+than to not closing exactly.
 
-One misalignment, and the next fold had to recalculate itself, momentarily leaving a gap.
+Put them out by a single step,
+and the next fold, busy recalculating itself,
+left a gap for an instant.
 
-In that instant, Jiwoo and the second recovery hand entered simultaneously.
+In that instant
+Han Jiwoo and the second recovery hand went in together.
 
-The line had not fully collapsed yet. But it was no longer the same order as before.
+The line had not fully broken.
+But it was no longer the same order it had been.
 
-Three children were wobbling at faintly different beats inside the alignment line.
+Inside the alignment line, three children were swaying, very faintly, each on a different beat.
 
-Jiwoo did not hesitate.
+Han Jiwoo didn't hesitate.
 
-First, she took the wrist of the child whose fingertips had not yet let go of their own stopping.
+First
+she took the wrist of the child whose fingertips had not yet let go of their own stop.
 
-She did not pull hard. Instead she spoke very low and fast.
+She didn't pull hard.
+Instead she spoke, very low and fast.
 
 "Go."
 
-At that single word, the child seemed to freeze at first.
+At that one word
+the child seemed at first to freeze.
 
-But the hands were different. The hands were already following the direction where outside force was entering, before the word itself.
+But the hand was different.
+Even before the word, the hand
+was already following the direction the pull from outside was coming from.
 
 The second was the child Ater had chosen.
 
-That child was not looking up, gaze still held downward.
+That child wasn't looking up,
+and was still keeping their eyes down.
 
-The second recovery hand wrapped the child's shoulder from behind in a motion almost mechanical in its brevity.
+With a short movement, almost machinelike,
+the second recovery hand wrapped an arm behind the child's shoulders.
 
-The child's body stiffened for an instant.
+The child's body went rigid for an instant.
 
-But then Ater said it very low.
+But then
+Ater said, very low,
 
 "Do not look. Come."
 
 Strangely, it worked.
 
-The child's rigid body did not fully release, but at least it began to peel itself away from the upper beat.
+The child's rigid body
+didn't fully loosen,
+but at least it began to pull itself away from the upper beat.
 
 The third was the most dangerous.
 
-The small child who had been half a beat fast — perhaps sensing the confusion already — tried to move first.
+The small child who ran half a beat fast,
+maybe sensing the confusion had already begun,
+tried to move first instead.
 
-That did not work entirely in their favor.
+That didn't work out only for the good.
 
-The child nearly leapt sideways, and the jolt shook one adjacent alignment line wider than planned.
+The child sprang sideways, almost at a run,
+and because of it, the alignment line right beside them
+shook harder than planned.
 
-Kael said it low.
+Kael said, low,
 
 "Too fast."
 
-Before the words had even settled, one upper machine turned its gaze completely.
+The words had barely landed
+when one of the upper machines turned its attention fully around.
 
-From here, it was closer to detection starting than correction.
+From here it was closer to detection beginning than to tidying up.
 
-Jiwoo could not even curse. She pivoted her body toward that child first.
+Han Jiwoo didn't even have time to swear;
+her body was already wrenching toward the child.
 
-In that moment the first recovery hand cut the flow from behind.
+In that instant the first recovery hand cut the flow from behind.
 
-Very briefly, he blocked one corridor needed for the alignment to reset — with his body.
+Very briefly,
+it blocked with its body one path the alignment needed in order to reset.
 
-Two Serakion machines tried to re-establish the beat simultaneously, and in that instant the flow folded half a turn.
+Just as two of Serakion's machines tried to set the beat again together,
+that flow folded back by half a turn.
 
-That half-turn was enough.
+Half a turn was enough.
 
-Jiwoo grabbed the fast child almost in an embrace and pulled them inward. The second recovery hand passed the second child he had already secured to the rear.
+Han Jiwoo caught the fast child, nearly hugging them, and pulled inward,
+and the second recovery hand passed the second child, already in hand, back behind.
 
-The first child was already following — not at running speed but at being-pulled speed, yet clearly on their own feet.
+The first child was coming along at a pace more dragged than running,
+but clearly on their own feet.
 
-Kael did not look back. He kept reading only the closing sequence.
+Kael didn't look back.
+He kept reading only the order of the closing.
 
-"Now." He said it low. "Not left. Center."
+"Now,"
+he said, low.
+"Not left. The middle."
 
-The first recovery hand redirected his body accordingly.
+The first recovery hand turned as he said.
 
-Normally the left exit would have been the more natural structure. But precisely because of that, Serakion would have folded that side first.
+Normally the structure made breaking left the more natural way out.
+But that was exactly why
+Serakion would have folded that side first.
 
-The center was narrow and rough. Inconspicuous, but passable exactly once.
+The middle was narrow and rough,
+and in exchange for not being seen
+it was a path you could get through exactly once.
 
-The three children moved at different speeds.
+The three children each moved at a different speed.
 
-The first child followed as though refusing to let go of the hand. The second child walked on their own feet but kept fighting not to look back. The third child was so fast they nearly broke the beat several times.
+The first followed as if struggling not to let go of the hand,
+the second came on their own feet while fighting the whole time not to look back,
+and the third was so fast they nearly wrecked the beat several times.
 
-That disordered tempo made the escape harder than expected.
+That disordered tempo
+made the escape harder than they had expected.
 
-Serakion was originally a world strong at reading and controlling individually different speeds. But right now, this side had to force those different speeds in one direction.
+Serakion had always been a world good at reading and controlling different speeds.
+But now this side
+had to drag those different speeds out in one direction by force.
 
-One child too slow and the whole group fell behind. One child too fast and the alignment broke. One child freezing and the rear folded immediately.
+If one child was slow, everyone was late;
+if one was fast, the alignment broke;
+if anyone froze, what was behind them folded shut at once.
 
-Carrying all of that, they still had to keep moving.
+Carrying all of that,
+they had to keep moving.
 
-From behind, something like a very low alert tone sounded once.
+Behind them, something like a very low alarm sounded once.
 
-It was not overtly loud. That was precisely why it was worse.
+It wasn't loud.
+That was exactly what made it worse.
 
-Serakion had always been this way. Before fully revealing, it began closing quietly first.
+Serakion was always like that.
+Before it showed anything fully,
+it began, quietly, to close.
 
-Kael spoke the instant he heard it.
+The moment Kael heard it, he said,
 
-"Do not run. Match the speed only."
+"Don't run."
+"Just match the pace."
 
-The words were strangely precise.
+It was strangely exact.
 
-If they ran blindly here, the slowest child would be immediately abandoned, the fastest child would dart ahead again, and the whole thing would collapse faster.
+Break into a blind run here,
+and the slowest child would be abandoned on the spot,
+the fastest would shoot out ahead again,
+and the whole thing would fall apart faster.
 
-So instead of running, they forced themselves into the same directional beat.
+So instead of running,
+they forced a beat that all went the same way.
 
-Jiwoo did not let go of the first child's hand. The second recovery hand pushed the second child's shoulder at a constant pace. The first recovery hand stopped the third child from getting too far ahead, once at a time.
+Han Jiwoo didn't let go of the first child's hand,
+the second recovery hand kept a steady push at the second child's shoulder,
+and the first recovery hand checked the third child now and then so they couldn't get too far ahead.
 
-And finally, the last corner folding into the hidden layer came into view.
+And at last
+the final corner folding into the hidden layer came into view.
 
-Even as they reached it, no one thought they had succeeded.
+Even up to the moment they reached it,
+no one could think they had made it.
 
-In Serakion, the fastest closings almost always came at the moment you felt you were nearly there.
+Because in Serakion
+things so often closed fastest just when you felt you were nearly there.
 
-But that day, just once.
+But that day,
+just once.
 
-The fold Kael had delayed, the misalignment Ater had created, the hands Jiwoo had read, and the flow the recovery hands had held — all of it aligned, just barely.
+The fold Kael had slowed,
+the misalignment Ater had made,
+the hands Han Jiwoo had read,
+and the flow the recovery hands had held
+fit together, by the narrowest margin.
 
-When the three children fully crossed into the hidden layer, no one could speak right away.
+When the three children were fully across into the hidden layer,
+no one could speak right away.
 
-Jiwoo was still catching her breath without letting go of the hand. Ater was clenching his jaw, refusing to look back. Kael only now closed his eyes once and opened them.
+Han Jiwoo was catching her breath, still not letting go of the hand,
+Ater had his jaw clamped shut so as not to look back,
+and Kael, only now, closed his eyes once and opened them.
 
 The first recovery hand was the first to speak, low.
 
-"One crack opened."
+"One opened."
 
-It did not sound like joy. It sounded more like confirmation that something larger had just begun.
+It didn't sound like joy.
+It sounded more like confirmation that something bigger had only now begun.
 
 And it had.
 
-They had extracted three. But Serakion was still above them. The other children were still inside that rhythm. And there was no guarantee this fracture would work the same way next time.
+They had gotten three out.
+But Serakion was still above,
+the other children were still inside that rhythm,
+and there was no guarantee this crack would work the same way next time.
 
-Even so, that day, for the first time, three children that Serakion had been carrying away as though it would never lose them were caught by hands from the outside and brought back.
+Even so,
+that day, for the first time,
+three children Serakion had been taking as if it would never once let go
+were truly caught by hands from outside and brought back.
 
-It could not yet be called a victory.
+It couldn't be called a victory yet.
 
-But it was, without question, the first time someone had been pulled from this world's beat.
+But it was, without doubt,
+the first time anyone had been pulled out of that world's beat.
 
 ---
 

@@ -1,235 +1,279 @@
 # Chapitre 30 — Le lieu qui n'appartient à personne
 
-Même lorsque la coque s'était entièrement arrachée de la paroi extérieure de la structure, l'air à l'intérieur n'avait pas encore tout à fait évacué le tremblement de l'instant précédent.
+Même lorsque le vaisseau se fut entièrement détaché de la paroi extérieure de la structure, l'air à l'intérieur n'avait pas encore tout à fait secoué le tremblement du lieu qu'ils venaient de quitter.
 
-Han Jiwoo allait et venait rapidement entre le poste de pilotage et le panneau moteur, lisant l'état de la coque. L'un des flancs inférieurs de la coque avait encaissé les vibrations résiduelles de l'effondrement, et l'un des axes d'ancrage extérieurs répondait plus lentement que d'ordinaire. Pas au point d'exploser sur-le-champ, mais pas assez solide pour tenir longtemps en régime de croisière. Ce vaisseau était optimisé pour fuir vivant, rien d'autre — pas pour soutenir une poursuite et foncer sur la route principale.
+Han Jiwoo allait et venait rapidement entre le poste de pilotage et le panneau moteur, lisant l'état du vaisseau. Un côté du bas de la coque avait encaissé des vibrations résiduelles avec l'effondrement, et l'un des axes de fixation extérieurs répondait plus lentement que d'habitude. Pas au point d'exploser sur-le-champ, mais pas non plus en état de tenir longtemps sans souci. Pour l'heure, ce vaisseau était fait pour s'en sortir vivant, de justesse, pas pour prendre une route frontale avec une poursuite aux trousses.
 
-« Je peux pas monter en vitesse tout de suite. »
-Elle dit cela à voix basse.
-« Si l'axe d'ancrage prend encore une pression, l'angle de virage part en vrille. »
+« Je ne peux pas monter en vitesse tout de suite. »
+La voix de Han Jiwoo était basse.
+« Si l'axe de fixation prend encore un coup, l'angle de virage va se fausser. »
 
-Seorin se redressa de la paroi contre laquelle elle s'appuyait et posa une courte question.
+Seorin quitta l'appui de la paroi et demanda :
 
-« Le vaisseau de poursuite. »
+« Le vaisseau de poursuite ? »
 
 Sern répondit aussitôt.
 
-« Pas de réaction directe pour l'instant. Mais les vibrations résiduelles du redémarrage du discriminateur sont encore là. »
+« Pas encore de réaction directe. Mais l'écho de la remise en marche du discriminateur est resté. »
 
-Ater ajouta à voix basse.
+Ater ajouta à voix basse :
 
-« Avant un blocus direct, le réseau d'approbation environnant a toutes les chances de lire le signal d'anomalie. »
+« Avant même un blocage direct, il est très probable que le réseau d'approbation environnant lise un signal anormal. »
 
-Sion écoutait ces mots en silence.
+Sion se contentait d'écouter en silence.
 
-Six personnes à bord. Quelques instants plus tôt, ce chiffre lui-même avait semblé anormal — et pourtant, maintenant, personne ne le mentionnait plus. Chacun regardait d'abord autre chose. Comment traverser la phrase qu'on venait de lire, où aller avant que la poursuite se colle à eux, quand et comment rouvrir le fragment plus grand que Kael avait apporté. Les problèmes qui primaient sur le nombre de personnes s'étaient déjà imposés.
+Ils étaient six à bord. Un peu plus tôt, ce nombre même semblait anormal ; à présent, curieusement, personne n'en parlait. Chacun regardait d'abord un autre problème. Comment transmettre les phrases lues, où filer avant que la poursuite ne s'accroche, quand et comment rouvrir le grand fragment que Kael avait apporté. Des problèmes plus pressants que le nombre de personnes étaient déjà apparus.
 
-Kael était assis, adossé au coin le plus reculé de la coque. Pas tout à fait installé, pas non plus dressé comme quelqu'un prêt à sauter à tout moment. Le fragment, il ne le lâchait pas de la main, et son regard suivait plus souvent les allées et venues des gens à bord que l'obscurité de l'autre côté des fentes. C'était le regard de quelqu'un qui avait basculé du côté des survivants, sans pour autant s'être encore pleinement confié à aucun d'eux.
+Kael était assis, adossé dans le coin le plus reculé du vaisseau. Pas tout à fait installé, pas non plus redressé comme quelqu'un prêt à sauter de nouveau. Il ne lâchait toujours pas le fragment, et son regard suivait plus souvent les allées et venues des gens à bord que l'obscurité derrière la fente. Le regard de quelqu'un qui avait penché du côté de la survie, sans s'en remettre encore entièrement à personne.
 
-Ce fut Seorin qui prit la parole en premier.
+Seorin parla la première.
 
-« On coupe les options maintenant. »
+« Maintenant, on élimine des options. »
 
-Han Jiwoo laissa échapper un souffle qui ressemblait à un rire court.
+Han Jiwoo souffla par le nez, presque un ricanement.
 
-« Y a plus grand-chose à couper. Dans cet état, si on entre dans un port, on est grillés d'emblée. »
+« Il n'y a pas grand-chose à éliminer. Dans cet état, si on entre dans un port, on est repérés tout de suite. »
 
 Sern inclina légèrement la tête.
 
-« En effet. Après une réaction comme celle qu'on vient de provoquer, si on prend une route fixe, que ce soit du côté de l'Empire ou de l'Alliance, ils lisent le schéma très vite. »
+« C'est exact. Après avoir provoqué une réaction comme celle-ci, si nous prenons une route fixe, l'Empire comme l'Alliance pourront vite en lire le schéma. »
 
-Ater mit les choses en ordre, plus froidement.
+Ater trancha plus froidement.
 
-« Le trajet direct vers le dépôt d'Elia Vern est à exclure. »
+« Il faut exclure d'aller directement au dépôt d'Elia Vern. »
 
-Un bref silence.
+Personne ne le contesta.
 
-Personne ne contredit.
+Sion, le dos contre la paroi, ferma les yeux puis les rouvrit. En temps normal, c'est le visage d'Elia qui lui serait venu en premier. Quelqu'un qui sait lire, qui sait cacher, qui connaît la valeur de ce qui reste jusque dans son grain. Jusqu'ici, aller la trouver avec le fragment aurait été le chemin le plus rapide. Mais c'était justement un chemin interdit parce que rapide. Après avoir remué une réaction de cette ampleur, quelqu'un capable de lire comme Elia entrerait le premier dans les calculs de l'ennemi.
 
-Sion, dos à la paroi, ferma les yeux une seconde puis les rouvrit. Dans d'autres circonstances, il aurait commencé par penser à Elia. Quelqu'un qui peut lire, qui peut dissimuler, qui connaît la texture de ce qui reste. Jusqu'à présent, la marche la plus rapide aurait été de prendre le fragment et d'aller la trouver. Mais à présent, c'était justement la marche qu'il fallait ne pas faire — trop rapidement. Après avoir déclenché une réaction d'une telle ampleur, quelqu'un capable de lire comme Elia figurerait en premier dans les calculs adverses.
+Seorin dit doucement :
 
-Seorin dit doucement.
-
-« Aller au dépôt, c'est fini. »
+« Si on va au dépôt, c'est fini. »
 
 « Je sais. »
-Sion répondit brièvement.
+Sion répondit à son tour.
 « C'est la première chose à laquelle j'ai pensé. »
 
-« C'est pour ça que c'est non. »
+« Raison de plus pour ne pas y aller. »
 
-Cette réplique n'était pas un reproche — plutôt une conclusion.
+Ce n'était pas un reproche, plutôt une mise au point.
 
-Kael s'immisça dans la conversation pour la première fois, à la fin de cet échange.
+Au bout de cet échange, Kael intervint pour la première fois.
 
 « Elia. »
-Il dit cela d'une voix posée.
+Sa voix était grave.
 « C'est le nom de la main qui lit ? »
 
-Sion ne nia ni ne confirma sur-le-champ. Il se tut un moment, puis dit brièvement.
+Sion ne confirma ni ne nia tout de suite. Ce n'est qu'après un bref silence qu'il répondit.
 
-« Quelqu'un qui peut lire. »
+« Quelqu'un qui sait lire. »
 
-Kael n'insista pas. À la place, comme si cette courte réponse suffisait, il passa une fois le pouce sur le bord du fragment. Ce qui comptait maintenant, ce n'était pas qui était Elia — c'était le fait qu'on avait besoin de quelqu'un comme elle.
+Kael n'en demanda pas plus. Comme si cette courte réponse suffisait, il passa une fois le pouce sur le bord du fragment. Ce qui comptait, à cet instant, c'était moins de savoir qui était Elia que le fait même d'avoir besoin de quelqu'un de cette sorte.
 
 Ater regarda Sion.
 
-« Il y a une autre voie. »
+« Y a-t-il une autre voie ? »
 
-Sion ne répondit pas davantage. À la place, il baissa légèrement la tête comme pour réfléchir, et sa main alla instinctivement tâtonner dans la poche de sa veste. Les doigts glissèrent une fois dans le vide, puis, dans le repli intérieur, accrochèrent quelque chose — un petit papier coincé là depuis longtemps.
+Sion ne répondit toujours pas tout de suite. Il baissa un peu la tête, comme pour réfléchir, et sa main, par habitude, alla tâter la poche de son manteau. Ses doigts tournèrent une fois dans le vide, puis, entre deux plis intérieurs, accrochèrent un petit papier longtemps resté écrasé là.
 
-La main de Sion s'arrêta une fraction de seconde.
+La main de Sion s'arrêta, très brièvement.
 
-Han Jiwoo haussa un sourcil.
+Han Jiwoo haussa les sourcils.
 
-« C'est quoi. »
+« C'est quoi ? »
 
-Sion ne déplia pas le papier immédiatement. C'était une texture qu'il ne reconnaissait pas. Un papier dont il n'avait pas souvenir de l'avoir mis là.
+Sion ne déplia pas tout de suite le papier. Le toucher lui était inconnu. Il n'avait aucun souvenir d'avoir mis ce papier là.
 
-Seorin demanda en premier.
+Seorin demanda la première :
 
 « C'est à toi ? »
 
 « Je sais pas. »
-Sion dit cela à voix basse.
-« Je l'avais jamais vu. »
+La voix de Sion était basse.
+« Je le vois pour la première fois. »
 
-Sern dit à voix étouffée.
+Sern parla en baissant la voix.
 
-« Quand nous sommes sortis du dépôt, il y a eu un moment où Elia Vern s'est approchée de très près. »
-
-Un bref silence.
+« En sortant du dépôt, il y a eu un moment où Elia Vern s'est tenue tout près de vous. »
 
 Sion leva les yeux.
 
-Sern continua.
+Sern poursuivit.
 
-« Je n'avais pas remarqué qu'elle lui avait remis quelque chose. Mais maintenant que j'y pense, ça devait être à ce moment-là. »
+« Sur le moment, je n'ai pas vu qu'elle vous remettait quelque chose. Mais à présent, il me semble que c'est à ce moment-là qu'elle l'a glissé. »
 
-Cette fois, Kael aussi détacha les yeux du fragment pour regarder de ce côté. Ater, sans un mot, fixait seulement le bout des doigts de Sion, et Sern referma la bouche.
+Cette fois, Kael lui aussi détacha les yeux du fragment pour regarder de ce côté. Ater, sans un mot, ne regardait que le bout des doigts de Sion, et Sern se tut de nouveau.
 
-Ce fut alors seulement que Sion déplia lentement le papier plié.
+Alors seulement, Sion déplia lentement le papier plié.
 
-À l'intérieur, sans aucune autre explication, il n'y avait que deux mots.
+À l'intérieur, sans autre explication, il n'y avait que deux mots.
 
-`Hazran`
+**Hazran**
 
 En dessous, une ligne.
 
-`Aka`
+**Aka**
 
 Han Jiwoo réagit presque par réflexe.
 
 « Hazran ? »
-Elle laissa échapper un court souffle.
-« Du côté de la ceinture de sable ? »
+Elle expira.
+« Du côté de la ceinture désertique ? »
 
-Sion ne détacha pas les yeux du papier.
+Sion ne quitta pas le papier des yeux.
 
-« Tu connais l'endroit ? »
+« Tu connais ? »
 
-« Je connais. »
-Han Jiwoo eut un rire bref.
-« Un port dont on aurait honte de donner le nom. De la ferraille à moitié ensevelie dans le sable, des balises d'identification contrefaites qui circulent plus vite que les vraies. »
+« Évidemment. »
+Han Jiwoo eut un petit rire, presque un ricanement.
+« Un endroit qu'on a honte d'appeler un port. De la ferraille à moitié enfouie dans le sable qui traîne partout, et des balises contrefaites qui circulent plus vite que les vraies. »
 
 Le visage de Seorin se figea imperceptiblement, puis se détendit.
 
 « Je m'en souviens. »
-Elle dit cela à voix basse.
-« Une frontière où la loi de personne ne va jusqu'au bout. Du sable, des coques abandonnées, des marchés ambulants, du carburant de contrebande. Facile de se cacher, crasseux d'en ressortir vivant. »
+Sa voix était basse.
+« Une marche où la loi de personne n'arrive jusqu'au bout. Du sable, des épaves, des marchés ambulants, du carburant de contrebande. Facile de s'y cacher, sale d'en ressortir vivant. »
 
-Ater examina tour à tour les deux lignes du papier.
+Ater regarda tour à tour les deux lignes du papier.
 
-« Et Aka. »
+« Et Aka, qu'est-ce que c'est ? »
 
-Personne ne put répondre sur le moment.
+Personne ne sut répondre tout de suite.
 
-Sern dit doucement.
+Sern dit calmement :
 
-« C'est vraisemblablement un nom de personne. Mais dans nos archives, aucune occurrence directe de cette graphie. »
+« Il s'agit probablement d'un nom de personne. Mais nos archives ne contiennent aucune graphie qui y corresponde directement. »
 
-Kael demanda à voix basse.
+Kael demanda à voix basse :
 
 « C'est la main qui lit qui a laissé ça ? »
 
-Sion, le papier toujours déplié, resta silencieux un instant.
+Sion resta un instant silencieux, sans même parvenir à replier le papier.
 
 « C'est son écriture. »
-Il dit cela tout bas.
-« Mais je n'ai pas souvenir qu'elle me l'ait donné. »
+Il parlait tout bas.
+« Mais je ne me souviens pas qu'elle me l'ait donné. »
 
-Seorin regarda Sion un bref moment.
+Seorin regarda Sion un instant.
 
-« Elle connaissait tes habitudes. »
+« Elle connaissait ton habitude. »
 
-Cela fut dit brièvement, mais c'était suffisant. L'habitude de glisser la main dans sa poche chaque fois qu'il se retrouvait dans l'embarras. Si elle l'avait glissé là en calculant jusqu'à un moment comme celui-ci, le peu d'explications était lui aussi, à sa manière, tout à fait dans son style.
+C'était bref, mais suffisant. Ce réflexe de porter d'abord la main à sa poche dès qu'il était dans l'embarras. Si elle l'y avait glissé en prévoyant jusqu'à un moment comme celui-ci, le peu d'explications lui ressemblait justement.
 
-Han Jiwoo parcourut le papier une dernière fois et dit.
+Han Jiwoo regarda encore une fois le papier et dit :
 
-« Parfait. Une planète, un nom. Sacré Elia, jusqu'au bout. »
+« Une planète, un nom. C'est tellement Elia, c'en est rageant. »
 
-« On a au moins une direction. »
-Sern dit cela.
+« Nous avons tout de même une direction. »
+C'était Sern.
 
-Ater ne détachait toujours pas les yeux du mot `Aka`.
+Ater ne quittait toujours pas des yeux le mot “Aka”.
 
-« C'est trop peu. »
+« C'est bien peu. »
 
 « C'est voulu. »
-Sion dit cela en repliant le papier.
-« Avec plus que ça maintenant, c'est le côté adverse qui aurait trouvé en premier. »
+Sion replia le papier.
+« Si elle en avait écrit davantage, pour l'instant, elle se serait fait prendre plus vite. »
 
-Avant même que la phrase fût terminée, le regard de Sern bondit vers le panneau.
+Avant même qu'il ait fini, le regard de Sern bondit vers le panneau.
 
-« Réaction en approche. »
+« Une réaction arrive. »
 
-Han Jiwoo fit volte-face aussitôt.
+Han Jiwoo se retourna aussitôt.
 
-« Quoi. »
+« Quoi ? »
 
-« Réactivation du réseau d'approbation arrière. »
-La voix de Sern tomba très bas.
-« C'est le vaisseau de poursuite. Il est plus rapide que prévu. »
+« Le réseau d'approbation, derrière nous, se rallume. »
 
-L'instant d'après, un côté de la coque se secoua — bref, brutal.
+« Le vaisseau de poursuite ? »
 
-Han Jiwoo ravala ce qui ressemblait à un juron et se jeta vers le poste de pilotage.
+« Oui. » Sern ne quittait pas l'écran des yeux. « Mais ce n'est pas nous qu'il est venu chercher. »
+
+Sion leva la tête.
+
+« Qu'est-ce que tu racontes ? »
+
+« L'angle n'est pas orienté vers nous, mais vers la structure. » La voix de Sern baissa. « Ce qu'ils ont lu, ce n'est pas nous, c'est le discriminateur ranimé tout à l'heure. »
+
+Ater comprit le premier.
+
+« …C'est nous qui l'avons allumé. »
+
+« Oui. »
+
+La cabine devint silencieuse.
+
+Sion regarda dehors, par la fente. La structure qu'ils venaient de quitter n'était déjà plus qu'une silhouette dans l'obscurité, et la réaction qui s'était ranimée si brièvement quelque part au fond devait être morte de nouveau.
+
+Morte, elle avait pourtant laissé son bruit.
+
+« On l'a allumé combien de secondes ? » demanda Sion.
+
+« Onze secondes, exactement. »
+
+« Onze secondes, et ça appelle déjà. »
+
+« Oui. »
+
+Depuis son coin, Kael dit à voix basse :
+
+« C'est pour ça que je circulais seul. »
+
+Personne ne répondit.
+
+« Chaque fois qu'on lit un fragment, ça appelle autant. Si on emmène des gens, ils se font prendre avec. »
+
+« Pourtant, aujourd'hui, tu étais avec nous », dit Sion.
+
+« Oui. »
+
+« Pourquoi ? »
+
+« Parce que seul, on allume onze secondes et on ne lit rien. »
+
+L'instant d'après, un côté du vaisseau trembla, bref et brutal.
+
+Han Jiwoo souffla comme on ravale un juron et se jeta vers le poste de pilotage.
 
 « Merde, ils ont déjà tiré. »
 
-L'alerte sonna avec un temps de retard. Une ligne rouge se répandit en oblique sur le panneau mural. Ce qui venait de frôler la coque n'était pas un tir direct — mais c'était un avertissement qu'il n'y avait plus de temps à perdre.
+L'alerte sonna en retard. Une ligne rouge se répandit en biais sur le panneau mural. Ce qui venait de les frôler n'était pas un tir direct, mais cela voulait dire qu'il n'y avait plus le loisir d'attendre.
 
-Seorin se détacha de la paroi et dit brièvement.
+Seorin se détacha de la paroi.
 
-« On réfléchit après. D'abord, on survit. »
+« On réfléchira plus tard. D'abord, on survit. »
 
-Ater tirait déjà le panneau latéral pour effacer les traces d'approbation, et Sern avait commencé à lire l'angle de la poursuite. Kael se leva et rengaina le fragment à l'intérieur de ses vêtements. L'air dans la coque avait basculé en un instant — du silence de ceux qui choisissent une direction, au silence de ceux qui bougent leur corps pour rester en vie.
+Ater tirait déjà le panneau latéral pour replier les traces d'approbation, et Sern commençait à lire l'angle de la poursuite. Kael se leva et cacha le fragment sous ses vêtements.
 
-Sion, tenant le papier replié dans la main, dit brièvement.
+Sion, le papier plié dans la main, dit :
 
 « On va à Hazran. »
 
-Han Jiwoo, au lieu de répondre, réveilla brutalement les moteurs.
+Pour toute réponse, Han Jiwoo réveilla brutalement les moteurs.
 
-« Si c'est décidé, accrochez-vous. À partir de maintenant, si tu tombes, t'es vraiment mort. »
+« Si c'est fini de parler, accrochez-vous. À partir de maintenant, si on tombe, on meurt pour de bon. »
 
-La coque s'inclina violemment une fois.
+Le vaisseau s'inclina violemment une fois.
 
-Quelques instants plus tôt, ils parlaient encore de savoir où aller. Maintenant, il n'y avait plus de temps pour ça. Une planète désertique, un nom inconnu, et deux mots qu'Elia avait laissés avant de disparaître. Le vaisseau de poursuite n'accordait aucune marge pour les examiner davantage.
+Un instant plus tôt, ils parlaient encore de l'endroit où aller. Maintenant, ils n'avaient même plus le temps d'y réfléchir. Une planète désertique, un nom inconnu, et deux mots qu'Elia avait laissés en secret. Le vaisseau de poursuite ne leur laissait pas le temps de s'y attarder davantage.
 
-Il ne restait plus qu'à ne pas perdre la direction pendant la fuite.
+Il ne restait qu'à ne pas perdre la direction pendant la fuite.
 
-La coque commença lentement à corriger son cap.
+Le vaisseau commença lentement à infléchir sa route.
 
-Ce n'était pas une trajectoire de fuite en ligne droite. C'était une route grise — celle qui rasait d'abord le champ d'épaves de cargos délibérément mis au silence, puis cassait une nouvelle fois l'angle avant de repartir. Pas le chemin le plus rapide, à l'évidence. Mais un chemin qui ne laissait pas de trace unique, qui rendait la poursuite en ligne directe exaspérante, un chemin que les gens de la zone grise avaient gravé dans leurs habitudes pour survivre longtemps.
+Ce n'était pas une ligne de fuite droit devant, mais une route grise qui frôlait d'abord, délibérément, un champ d'épaves de cargos morts, puis cassait de nouveau l'angle pour repartir. Ce n'était, de toute évidence, pas le chemin le plus rapide. Mais c'était un chemin qui ne laissait pas une trace unique, un chemin qui exaspérait toute poursuite en ligne droite, un chemin que les gens de la zone grise avaient appris par le corps pour survivre longtemps.
 
-Hazran n'était pas à portée immédiate. Mais en abandonnant les routes fixes et en prenant la ceinture grise derrière la couche thermique, il serait possible, pendant l'approche des confins, de brouiller au moins quelque temps les calculs de poursuite. Ce qu'il fallait maintenant, ce n'était pas arriver vite — c'était glisser jusque là-bas vivants.
+Hazran n'était pas à portée immédiate. Mais en abandonnant les routes fixes pour prendre la ceinture grise derrière la couche thermique, on pouvait, pendant l'approche des confins, brouiller au moins un temps les calculs de la poursuite. Ce qu'il fallait maintenant, ce n'était pas arriver vite, c'était se glisser jusque là-bas vivants.
 
-Par les fentes, à la place des étoiles, la ceinture de poussière fila longuement, en silence.
+Par la fente, au lieu de la lumière des étoiles, une longue bande de poussière défila.
 
-Là-bas, la question ne serait plus de savoir qui mourrait en premier.
+Sion remit le papier plié dans sa poche intérieure. Puis il appuya une fois dessus.
 
-Ce serait de savoir qui atteindrait en premier le lieu qui n'appartient à personne.
+C'était mince.
+
+Au quai, quand il y avait glissé le fragment pour la première fois, c'était pareil. Alors, il n'y avait qu'une chose mince ; maintenant, à cette chose mince s'ajoutait une feuille de papier.
+
+C'était tout ce qui s'était ajouté.
 
 ---
 

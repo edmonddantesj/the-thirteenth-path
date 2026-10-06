@@ -1,181 +1,221 @@
 # Capítulo 86 — La defensa más allá de la línea del corazón rota
 
-Después de que se cerrara la línea central del mercado,
-por un instante Hazran pareció contener de verdad la respiración.
+Después de que se cerrara la línea central del mercado, Hazran pareció contener el aliento de verdad por un momento.
 
-El estruendo de todo viniéndose abajo había sido grande,
-pero el silencio que llegó detrás fue, de un modo extraño, todavía más grande.
+El ruido de todo derrumbándose había sido grande, pero el silencio que vino después fue, de un modo extraño, todavía mayor.
 
-A Sion ese silencio breve le dio miedo.
+A Sion le daba miedo ese breve silencio. Le parecía que ahora lo sabía con el cuerpo: el silencio que se abre en mitad de una guerra no es un final, se parece más al tiempo en que el siguiente choque vuelve a tomar posición.
 
-El silencio que nace en mitad de una guerra
-no es un final, sino algo más parecido al tiempo en que el siguiente choque vuelve a acomodarse,
-y eso ya empezaba a entenderlo con el cuerpo.
+Y, en efecto, ese tiempo no fue largo.
 
-Y, en efecto,
-ese tiempo no fue largo.
+Solo que, entretanto, una cosa cambió.
 
-Más allá de la línea central derrumbada,
-una de las hileras que había perdido el rumbo volvió a tomar su ángulo, y un sonido bajo de metal lo acompañó.
+Empezó a entrar el viento.
 
-Harún habló de inmediato.
+La línea central del mercado también había sido un muro que durante cuarenta años se había alzado cerrándole el paso al centro de Hazran. Al venirse abajo se abrió un camino del oeste hasta lo de dentro, y por ese camino entró en masa la arena que durante el día se había asentado fuera.
 
-—Vuelven dando un rodeo.
+Sion apartó la cara una vez. No se le había metido en los ojos; era que, al tomar aire, le raspaba en el fondo de la garganta.
 
-Con esas dos palabras,
-el aire dentro de Hazran volvió a moverse.
+Zahir recibía ese viento de frente y aun así no cerraba los ojos.
 
-El hueco que habían abierto sacrificando media plaza les había dado tiempo, sin duda.
-Pero solo tiempo.
-El enemigo no había desaparecido.
-Ahora aquella ola, ya que no podía entrar a lo ancho,
-trataría de meterse buscando un camino más estrecho y más hondo.
+—¿Cuánto va a entrar?
+Era Zahir quien preguntaba.
 
-Zahir miró un momento más la línea central caída,
-y luego apartó la vista.
+Harún respondió.
 
-—Vuelvan a atar en tres líneas internas —dijo en voz baja—.
-No cubran ancho. Corten en trozos.
+—Mientras haya sol, no parará. Cuando refresque, se asentará.
 
-Harún lo recogió enseguida.
+—Entonces, mientras haya sol, el tiempo es nuestro.
 
-—La primera fila ceba el pasillo, en la segunda se tuerce, la tercera protege a la gente.
+Sion entendió con medio tiempo de retraso qué querían decir esas palabras.
 
-Palabras cortas.
-Pero ahora a la gente de Hazran le bastaba con eso.
+La arena es mala también para los ojos de la gente. Pero el otro lado no ve con los ojos. Esas filas miden lo que tienen delante, cuentan los intervalos, calculan dónde se ha derrumbado algo y ponen el siguiente pie. Lo que Zahir acababa de preguntar era qué pasaba si a ese cálculo se le echaba encima una capa de polvillo gris pardo.
 
-El campo de batalla había cambiado por completo.
+Harún había llegado al mismo sitio.
 
-El mercado que hasta hacía un momento se plegaba en torno a una sola línea central
-quedaba ahora partido en trozos pequeños: los callejones interiores de más allá, los pasillos de conexión, los espacios estrechos frente a los compartimentos del casco. El gran flujo había muerto, y en su lugar resucitaron varios frentes pequeños.
+—Antes, en el oeste, una fila se detuvo dos veces.
+Lo decía Harún.
+—No le dieron ni se enganchó, pero se detuvo.
 
-Hazran ya no tenía que aguantar como ciudad entera,
-sino con los órganos pequeños que le quedaban dentro.
+—¿La arena?
 
-Nasim apartó al fin la vista del lado de la línea central y volvió a girar a la gente.
+—No hay otra cosa.
 
-—¡No pongan cara de que todo terminó! —gritó con dureza—.
-¡No terminó. Si hubiera terminado, no correríamos así!
+Zahir no dijo nada durante un momento.
 
-Aquellas palabras eran casi un forcejeo.
-Pero, aunque fuera a la fuerza, hacían falta.
-Quien ha visto algo derrumbarse,
-con un solo descuido es fácil que ahí se le apague también el corazón.
+—Entonces no hay que pelear en lo ancho.
 
-Luhai oyó esa voz y, aunque fuera a la fuerza, volvió a mover los pies.
-Empujó hacia una tienda más al fondo a los dos niños que había rescatado antes,
-y salió otra vez corriendo. La cara ya la tenía hecha un desastre de polvo del desierto y sudor,
-pero los ojos al menos no se le habían muerto del todo.
+—Así es.
 
-Sion también volvió a encontrar su lugar.
+—Porque en lo estrecho el polvillo no se levanta.
 
-Ahora no debía ser el puente que unía el oeste con el interior,
-sino la mano que rellenaba los huecos entre los pasillos que habían quedado rotos.
-Quién andaba perdido sin conocer las líneas nuevas,
-dónde estaba bloqueado el paso,
-qué pasillo todavía servía para sacar a alguien.
+—Así es.
 
-Leer eso,
-correr,
-avisar,
-y tirar de la gente.
+Al oír ese breve ir y venir, a Sion se le heló la espalda. Esta ciudad acababa de cortarse el corazón, y ya contaba como arma el polvo que había salido del corte.
 
-El campo de batalla se había vuelto más pequeño,
-pero lo que había que hacer era, al contrario, mucho más.
+Más allá de la línea central derrumbada resonó, bajo, el ruido metálico de una fila que había perdido la dirección y volvía a tomar ángulo.
 
-Seorin, mirando a aquel Sion, dijo corto.
+—Vienen rodeando.
+Lo dijo Harún.
 
-—Esta vez no llegues tarde.
+Zahir miró un momento más la línea central derrumbada y luego apartó la vista.
 
-Sonó como un reproche,
-pero en realidad era pedirle que siguiera vivo y siguiera corriendo.
+—Vuelvan a atarlo en tres filas por dentro. No cierren en lo ancho. Córtenlo en trozos pequeños.
 
-Sion, en vez de contestar, asintió corto con la cabeza y volvió a girar el cuerpo.
+Harún tomó la palabra enseguida.
 
-En el compartimento interior,
-Han Jiwoo retiró al fin la mano una vez.
+—La primera fila se queda con el pasillo, la segunda los tuerce y la tercera protege a la gente.
 
-No es que estuviera del todo terminado.
-Pero el afuera había empujado hasta un punto en que ya no podía quedarse aferrada solo aquí, en este sitio.
+Palabras cortas. Pero a la gente de Hazran ahora le bastaba con eso.
 
-La junta temblaba bajo,
-y el molde receptor estaba, sin duda, aguantando más que antes.
-Aka tenía la cara de quien ya lo sabe sin necesidad de tocarlo con la mano.
+El campo de batalla cambió por completo. El mercado, que hasta hacía un momento se plegaba en torno a la sola línea central, ahora se partía en trozos pequeños: los callejones de más allá, por dentro, los pasillos de enlace, los espacios estrechos frente a los compartimentos del casco. El gran flujo había muerto y, en su lugar, habían cobrado vida muchos frentes pequeños.
 
-—Va a aguantar —dijo ella.
+Hazran ya no tenía que aguantar como ciudad entera, sino con los pequeños órganos que le quedaban dentro.
 
-Han Jiwoo soltó el aliento con aspereza.
+Harún movió las manos enseguida.
 
-—Si no aguanta, lo hago aguantar a golpes.
+Sion lo vio levantar una barricada, de verdad, por primera vez. No era nada parecido a una línea de defensa imperial.
 
-Aquellas palabras eran medio fastidio,
-pero Sion, aun de lejos, supo que eran más bien algo cercano al alivio.
+Primera fila. Harún tumbó en la entrada del pasillo el armazón de un puesto derrumbado. No lo tumbaba para cerrar el paso. El ángulo en que quedaba tumbado estaba a la altura de la rodilla de una persona, de modo que lo que entraba andando pasaba por encima y lo que entraba rodando se enganchaba.
 
-El barco aún no se había muerto.
-Y eso, en este campo de batalla, ahora mismo,
-significaba casi lo mismo que la esperanza de poder salvar a unas cuantas personas más.
+—¿Por qué no lo pone de pie?
+Lo preguntó uno de los tiradores.
 
-Sern, con la herida del costado atada de cualquier manera, volvió a ponerse en la primera fila.
+—Si lo pones de pie, lo rompen y pasan.
+Lo dijo Harún.
+—Si lo tumbas, pasan por encima. El que pasa por encima deja libre lo de arriba.
 
-Harún, al verlo, dijo en voz baja.
+Segunda fila. Puso en diagonal, a ambos lados del pasillo, seis placas de metal finas que había arrastrado desde el desguace. No las juntó entre sí. Dejó a propósito una rendija como de dos dedos.
 
-—Retírate.
+Sion hizo una pregunta.
 
-Sern negó con la cabeza.
+—¿Y esa rendija?
 
-—Todavía no.
+—Para que pase el viento.
 
-Ater lo miró un momento.
+—¿No es para cerrar el paso?
 
-No lo detuvo.
-En su lugar dijo solo, corto.
+—Si lo cierras, no entra el polvillo.
 
-—La próxima es distinta.
+Solo entonces lo entendió Sion. Esta barricada no estaba hecha para frenar al enemigo, sino para meter en el pasillo la arena que llegaba desde la línea central derrumbada. Si el viento pasaba por las rendijas entre las placas, dentro el polvillo seguiría flotando.
 
-Sern respondió.
+—Si entran aquí, el otro lado se retrasará medio tiempo cada vez.
+Harún se lo dijo a Zahir.
+—Con medio tiempo no se los mata. Pero Sern puede entrar una vez más.
 
-—Lo sé.
+En la tercera fila no levantó nada.
 
-Las dos voces seguían siendo bajas,
-y por eso mismo daban más tensión.
-Porque lo que iba a entrar de ahora en adelante no era la misma hilera de hasta hacía un momento,
-sino una hilera que había rodeado la línea central caída y había encontrado un camino nuevo.
+En lugar de eso, Harún no puso a nadie en ese sitio y quitó las placas de metal que cubrían el suelo. Debajo quedó la arena al descubierto.
 
-Eso era más prudente,
-más obstinado,
-y tenía más probabilidades de apuntar con exactitud a lo más adentro.
+—Esto lo dejo para que se les hunda el pie.
 
-Zahir miró por última vez todo el interior.
+—La gente también se hunde.
+Lo dijo Sion.
 
-Harún, la primera fila;
-Nasim, el flujo de la gente;
-Sion y Seorin, los huecos vacíos;
-Luhai, la información y los niños;
-Kael, la mano que volvía a empalmar de forma provisional los lazos rotos;
-Han Jiwoo y Aka, el casco;
-Ater y Sern, los ojos que leían aquella ola.
+—La gente pisa sabiéndolo.
 
-Ya no le quedaba mucho a Hazran.
+Apenas terminó de decirlo, Harún clavó dos marcas bajas a ambos lados de ese tramo. Eran marcas que la gente de Hazran reconocía y los forasteros no. Sion no preguntó qué significaban. Si preguntaba se lo dirían, y si se lo decían, le parecía que él también se volvería alguien de Hazran.
 
-Aun así, todavía,
-cada uno tenía su lugar.
+Levantar las tres filas llevó poco tiempo. Un ejército regular habría dibujado planos, medido materiales y pedido que se aprobara la disposición. Aquí movieron lo derrumbado y lo tumbaron, lo pusieron de pie, lo quitaron.
 
-Zahir habló muy bajo.
+—¿Cuánto aguanta esto?
+Lo preguntó el tirador.
 
-—Bien —dijo—.
-Ahora hacemos la lucha por hacerlos pasar.
+Harún respondió sin detener las manos que levantaban.
 
-En el momento en que cayeron esas palabras,
-Sion sintió que algo dentro del pecho se le ponía una vez más pesado.
+—Una vez aguanta.
 
-No es una lucha por aguantar.
-De ahora en adelante es una lucha por sacar a alguien, al fin, desde dentro hacia fuera,
-no,
-más allá de Hazran.
+—¿Una vez?
 
-Más allá de la línea del corazón rota,
-Hazran empezaba así
-a levantar otra vez la forma de su última defensa.
+—A partir de la segunda, el otro lado ya conoce esta forma.
+
+Sion pensó que esas palabras explicaban toda la ciudad. Hazran nunca había levantado una barricada que aguantara mucho. Levantaba deprisa algo que funcionara una vez y, cuando dejaba de funcionar, levantaba deprisa otra cosa. Como lo hacía solo con lo que no valía nada, no daba pena tirarlo, y como tirarlo no dolía, podía seguir haciendo cosas nuevas.
+
+El problema era que con la gente no se podía hacer eso.
+
+Y el que había decidido ponerse al final del pasillo de la primera fila era Harún.
+
+Zahir llamó a Nasim.
+
+—¿Cuántos?
+
+Nasim, antes de responder, cerró la boca un momento. A Sion ese silencio le sonó más fuerte que cualquier ruido.
+
+—Dentro hay poco más de doscientos.
+
+—¿Cuánto es poco?
+
+—Doscientos ocho.
+
+Zahir no repitió el número. En lugar de eso, asintió una sola vez con la cabeza.
+
+Solo entonces se dio cuenta Sion de que hasta ahora nunca había oído a la gente como un número. Cuando entró en Hazran por primera vez, este mercado era gente sin cuenta. Gente que gritaba en la capa exterior, que cantaba precios, que vendía agua, que tiraba del brazo de un niño. Eso ahora eran doscientos ocho.
+
+Desde el momento en que se la cuenta, se puede ver cómo la gente disminuye.
+
+—¿Cuántos caben por tanda?
+Lo preguntó Zahir.
+
+—Tal como está ahora, veinte.
+La respuesta fue de Nasim.
+—Si se cargan más, el barco se tambalea.
+
+—Entonces son diez veces.
+
+—Son once.
+
+Esta vez Zahir tampoco corrigió. Lo aceptó sin más.
+
+—Once.
+
+Sion supo que esa sola palabra acababa de convertirse en el tiempo que le quedaba a todo Hazran. Bastaba con aguantar lo suficiente para embarcar once veces, y si no aguantaban, ahí se acababa. Hasta ahora el problema había sido cuánto podían aguantar; ahora el problema era cuántas veces.
+
+Nasim se volvió de pronto hacia la gente.
+
+—¡No pongan esa cara de que todo se acabó!
+Su grito fue cortante.
+—No se acabó. ¡Si se hubiera acabado, no estaríamos corriendo así!
+
+Aquello era casi forzado. Pero, aunque fuera forzado, hacía falta. Los que habían visto derrumbarse algo, con un solo descuido, podían apagarse ahí también por dentro.
+
+Después, Nasim añadió muy bajo, solo hacia Sion.
+
+—Lo de doscientos ocho no se lo digas a nadie.
+
+—¿Por qué?
+
+—Si lo cuentan, todos empiezan por calcular qué número son.
+
+Al oírlo, Sion no pudo responder nada.
+
+El que pone precios es también quien mejor sabe lo que el precio le hace a la gente.
+
+Zahir miró por última vez hacia la línea central derrumbada.
+
+Lo que había más allá ya no era Hazran. Una línea que durante cuarenta años había hecho rodar esta ciudad estaba enterrada allá abajo, y encima empezaba a posarse una capa fina de arena. Con un día más, ya nadie sabría qué había habido allí.
+
+—Ahora toca pelear para enviar.
+Lo dijo en voz baja.
+
+En el instante en que cayeron esas palabras, Sion sintió que el pecho se le hacía otra vez más pesado.
+
+No es una pelea para aguantar. Desde ahora es una pelea para enviar por fin a alguien de dentro afuera, no, más allá de Hazran.
+
+Once.
+
+Sion no dijo el número en voz alta; lo contó otra vez solo por dentro.
+
+Y vio formarse la primera tanda.
+
+La gente se puso en fila sola. Nadie la llamó y se puso en fila; nadie la llamó y se cortó en veinte. La persona número veintiuno miró el hombro de la que tenía delante y retrocedió medio paso.
+
+Ese medio paso fue para Sion lo que más miedo le dio de todo lo que había visto hoy.
+
+Esa gente ya lo estaba contando todo.
+
+El número que Nasim había dicho que no le dijera a nadie, la gente que estaba allí ya lo estaba contando con sus propios pies.
+
+Entró el viento una vez más, y la arena posada sobre la línea central derrumbada se hizo un poco más gruesa.
 
 ---
 

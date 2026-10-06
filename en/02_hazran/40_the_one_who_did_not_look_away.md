@@ -1,222 +1,222 @@
 # Episode 40. The One Who Did Not Look Away
 
-After crossing the inner canopy, the first thing that changed was not the temperature but the grain of gazes.
+Once they were past the inner awning, what changed first was not the temperature but the grain of the gazes.
 
-On the outer-layer market, who was looking this way came first; in the inner workshop, who was evaluating came first. But here it was slightly different from both. The inner section's people did not stare openly, nor fully ignore. Instead they restrained their gazes to only what was already permitted to be seen. That controlled gaze was somehow more suffocating.
+In the outer-layer market, what came first was who was looking at them; in the inner workshop, it was who was sizing them up. Here it was a little different from both. The people of the inner section didn't stare openly, and they didn't ignore them completely either. Instead they held their gazes in check, as if they were allowed to look only at what had already been permitted. That restrained looking was, if anything, more stifling.
 
-Inside the canopy was exactly the smell from outside. Water long heated, dried herbs, frequently changed cloth, and air where metal and heat had not fully dissipated. The smell of a place that let someone stay long — without letting them be fully comfortable.
+Inside the awning it smelled just as it had from outside. Water kept warm a long time, dried medicinal herbs, cloth changed often, and air the metal and heat had never quite left. The smell of a place that kept someone for a long time, but never let them be fully at ease.
 
-A few more steps in and Sion felt this was not a simple waiting room or quarters. Behind the canopy hung like walls — small shelves, water containers, dried cloth, folded mats, sealed drums, all arranged to serve both living and surveillance simultaneously. A structure that let you live, but kept you constantly aware of where your space ended.
+A few steps further in, Sion felt that this was not just a waiting room or a lodging. Inside the awnings hung like walls stood small shelves and water drums, dried cloths, folded mats and sealed drums, and every bit of the arrangement seemed meant for living and watching at once. A structure that let you live, but kept making you aware of how far your own place went.
 
-Nahira entered ahead and cleared a few things first. Precisely — hand movements that, while pretending to open a path, were organizing what they could see and what they could not yet see.
+Nahira went in ahead and cleared a few things away first. More precisely, it was closer to the movement of hands pretending to open the way while sorting what they could see from what they must not see yet.
 
-"Stop there."
-She said low.
-"Everyone coming too deep together makes it worse."
+"Stand there,"
+she said, low.
+"If everybody comes too far in, it only gets more cramped."
 
-Seorin stopped without complaint; Sion stood beside her. Ater read the floor structure and wall layout slowly rather than widening his view first. Kael still had not fully released Luhai, and Luhai — this time without voicing complaint openly — was saying it all with his face.
+Seorin stopped without a word, and Sion stood beside her. Rather than taking in a wide view first, Ater read the structure underfoot and the layout of the walls more slowly. Kael still hadn't fully let go of Luhai, and though Luhai didn't openly complain this time, his face was saying all of it.
 
-"I said I'm really not running."
+"I said I'm really not gonna run now,"
 Luhai muttered.
 
-"Kids like you say that about three more times and then run."
-Nahira said, unbothered.
+"Kids like you say that about three more times and then run,"
+Nahira said flatly.
 
-Luhai could not argue. It was a known voice. Sion could tell from that brief reaction alone. Luhai was not seeing Nahira for the first time — or at least had met this kind of person many times. The fastest mouths shut quickest before adults who had already seen too many kids like them.
+Luhai heard that and couldn't argue. It was a voice he knew. Sion could tell from that short reaction alone. Either this wasn't the first time Luhai had seen Nahira, or at the very least Luhai had met her kind of person many times. Quick-mouthed kids shut up fastest in front of the adults who had already seen far too many kids like them.
 
-Nasim's face still smiled.
+Nasim still had his smiling face on.
 
-"Good."
-He said.
-"Let's forget the outside commotion for a moment and talk about people."
+"Good,"
+he said.
+"Now let's forget the noise outside for a bit and talk about people."
 
-Seorin received short.
+Seorin answered shortly.
 
 "We came looking for one name and one hand."
 
-"Aka."
+"Aka,"
 Nasim said.
-"And a hand that separates real from fake."
+"And a hand that sorts out the real thing."
 
-Sion found it more unsettling that it came out so easily. This person was not failing to hide the name — but pricing by who drew it out and where.
+It made Sion more uneasy that it came out so easily. This man wasn't someone who didn't hide names; he was someone who priced a hidden name by who brought it out, and where.
 
-Harun heard the exchange and did not intervene. Instead he stood near the entrance, guarding the space between outside and inside simultaneously. Not someone who created fights — but someone who defined how far a fight could spread inward.
+Harun heard the exchange and didn't step in. Instead he stood by the entrance, guarding the space between outside and inside at the same time. Not like someone who started fights, but like someone who decided how far a fight could spread inward.
 
-Nahira set down a cup of water, and only then looked at Sion.
+Only after she had set down a cup of water did Nahira look at Sion.
 
-"Who left that name."
-She asked.
+"Who left that name?"
+she asked.
 
-Sion did not hide it.
+Sion answered right away.
 
-"The reading hand."
+"Someone who reads."
 
-Nasim murmured from beside, half-smiling.
+Beside him, Nasim muttered, half laughing.
 
-"People like that always leave problems behind."
+"People like that always leave trouble behind when they go."
 
-Sion did not let that pass. It was not someone who knew Elia precisely — but the voice of someone who knew how reading hands were treated on this floor.
+Sion didn't let that slide past. It wasn't a remark that knew Elia exactly, but it was the voice of someone who at least knew how a reading hand got treated, even in a place like this.
 
-Nahira looked at Sion's face for a long time, then asked again.
+Nahira studied Sion's face for a long while, then asked again.
 
-"That person left only Aka's name?"
+"Did that person leave only Aka's name?"
 
-"Hazran too."
+"Hazran too,"
 Sion answered.
 "Just the two."
 
-Short silence.
+A short silence.
 
-That was confirmation, not explanation. Nahira was reading from those two words alone how desperate the outsiders who'd entered this far were — and how unprepared they'd been pulled in.
+That wasn't an explanation; it was a confirmation. From those two words alone, Nahira was reading how desperate these outsiders who had come this far in were, and how unprepared they had been when they were dragged here.
 
-"Reckless."
-She said low.
+"Reckless,"
+she said, low.
 
-Seorin received that immediately.
+Seorin took that up at once.
 
-"We survived, so we're here."
+"We survived, so we made it this far."
 
-Nahira moved the corner of her mouth — barely. Less a smile, more a sign that she did not dislike that kind of answer.
+The corner of Nahira's mouth moved, very slightly. Less a smile than a sign that she didn't dislike that kind of answer.
 
-Then — one canopy deeper inside swayed, very faintly.
+Just then, one of the awnings deeper inside stirred, very faintly.
 
-Not from wind.
+It wasn't the wind.
 
-Sion was about to look that way but stopped. The inside air was already teaching: in this place, looking first could be an offense. But there were movements felt even when trying not to see. Someone was close; someone was hearing every word right now; and that someone existed far more quietly than any name exchanged outside.
+Sion started to look that way, then stopped. The air in here had already taught him that this might be a place where letting your eyes go first was itself a discourtesy. But there was a kind of movement you could feel even when you tried not to look. Someone was close, someone was hearing every word that passed out here, and that someone existed far more quietly than the names that had gone back and forth outside.
 
-Luhai glanced that direction, then pulled his gaze back — very quickly. Sion did not miss that either. Luhai already knew that side. At minimum, knew not to look too long.
+Luhai flicked a glance that way, then pulled his eyes back very fast. Sion didn't miss that reaction either. Luhai already knew what was over there. At the very least, he knew he mustn't look at it long.
 
-Nasim, watching those subtle currents, said low.
+Watching those slight currents, Nasim spoke low.
 
-"Good. Then no need to talk around it anymore."
-He said.
-"Etherite is needed, Aka is being searched for, and that kid touched the ledgers."
+"Good. Then there's no need to talk around it anymore,"
+he said.
+"You need Etherite, you're looking for Aka, and that kid touched the ledger."
 
-He chin-pointed at Luhai.
+He pointed at Luhai with his chin.
 
-"So what remains is one thing. Who can distinguish the real."
+"Which leaves one thing here. Who can tell the real thing apart."
 
-When those words fell, the air behind the inner canopy shifted — barely.
+As those words dropped, the air behind the inner awning changed, very slightly.
 
-This time not only Sion felt it. Ater, Kael, Seorin — nearly simultaneously, attention shifted that direction. Even Harun moved his gaze for the briefest moment.
+This time Sion wasn't the only one who felt it. Ater, Kael and Seorin, too, showed signs of their attention shifting that way almost at once. Even Harun moved his eyes, very briefly.
 
-And the canopy's edge swayed once more — very small.
+And the edge of the awning stirred once more, very slightly.
 
-Nahira, without looking that way, said.
+Without looking that way, Nahira spoke.
 
 "You can come out."
 
-The words were short — but held both permission and caution at once. Not a forced summons. More like: if you've heard this far, now you choose.
+The words were short, but there was permission and caution in them at the same time. Not a forced summons; more like saying, *you've heard this much, so now you choose.*
 
-Sion steadied his breath, very shallow.
+Sion steadied his breath, very shallowly.
 
-The canopy's edge opened slightly, and what showed first was a hand.
+The edge of the awning opened a little, and the first thing they saw was a hand.
 
-A young hand — yet strangely little hesitation in it. Not a hand holding onto something — a hand whose body already knew the difference between what must not be touched and what could be. Then — hair-tips carrying the faintest trace of red. And last — the gaze.
+It was a small hand, but strangely little hesitation was in it. Not a hand gripping something, but a hand whose body already knew the difference between what must not be touched and what could be. Next came the tips of hair with the faintest tinge of red, and last of all, the eyes.
 
-Aka's face was quieter than expected.
+Aka's face was quieter than Sion had expected.
 
-Not visibly frightened. Not led by curiosity either. Not the expression of a child seeing the outside world for the first time — but the face of someone who had already seen so many hands and objects and lies that they reacted less. Yet within that sparse reaction, something was clearly moving. Not looking at Sion's group — but seeing the grain between the things they had brought, first.
+She wasn't visibly frightened, nor did curiosity lead her. It wasn't the look of a child seeing the outside world for the first time; it was a face that reacted less because it had already seen countless hands and things and lies. And yet, even within that small reaction, something was clearly moving. Eyes that looked not at Sion's group, but first at the grain between the things they had brought.
 
-Sion felt that gaze graze the inside of his jacket before his face, touch the fragment inside Kael's coat, and finally rest on the etherite in Luhai's hand.
+Sion felt her gaze brush the inside of his jacket before his face, touch the fragment inside Kael's coat, and finally rest on the Etherite in Luhai's hand.
 
-That sequence explained everything.
+That order explained everything.
 
-Aka saw real and fake before people.
+Aka saw the real and the fake before she saw people.
 
-Luhai murmured, almost reflexively.
+Almost by reflex, Luhai muttered.
 
-"Ah."
+"Oh."
 
-At that short sound, all gazes went briefly that way.
+At that small sound, everyone's eyes went to him for a moment.
 
-Luhai looked not embarrassed but genuinely surprised — watching Aka. The face of someone seeing, for the first time, the line traced through records and ledgers and stolen fragments standing before them in human form.
+Rather than looking embarrassed, Luhai was staring at Aka like a kid who was truly startled. It was the face of someone seeing for the first time that the line he had only followed through records and ledgers and stolen fragments was now standing in front of him in the shape of a person.
 
-Aka did not look at Luhai. Instead, very low.
+Aka didn't look at Luhai. Instead she spoke very low.
 
 "That."
 
-Who the word was for was unclear at first.
+At first it wasn't clear who she was saying it to.
 
-But the next instant, her gaze passed once more — very briefly — between the fragment inside Kael's coat and the etherite in Luhai's hand, and Sion knew at once. That was not a word calling a person. It was a word pointing at the grain both objects emitted, all at once.
+But the next moment her gaze went very briefly back and forth between the fragment inside Kael's coat and the Etherite in Luhai's hand, and Sion knew at once. It wasn't a word calling a person; it was a word pointing at the grain the two objects gave off, both at once.
 
-"Both of these shouldn't be here at the same time."
+"Neither of them should be here."
 
-The inside air went very quiet.
+The air inside went very quiet.
 
-Nasim's smile stopped; Harun moved no further; Nahira only erased her expression more.
+Nasim's smile stopped too, Harun didn't move any further, and Nahira, if anything, wiped her face even blanker.
 
-Sion felt that single line land deeper than expected.
+Sion felt that one remark go deeper than he had expected.
 
 This was not a frightened child's warning.
-It was closer to a verdict — from someone who had read the grain of this very space.
+It was closer to a verdict handed down by someone who had read the grain of this very place.
 
 Seorin asked, very low.
 
-"What shouldn't."
+"What?"
 
-Aka looked at Seorin for the first time.
+For the first time, Aka looked toward Seorin.
 
-"Too many things pretending to be dead."
-She said.
-"But those two aren't."
+"Too much is playing dead,"
+she said.
+"But not those two."
 
-She meant Kael's fragment and the etherite.
+She meant Kael's fragment and the Etherite.
 
-Sion, in that moment, understood almost physically — for the first time — why Elia had left only *Hazran* and *Aka*, with no long explanation. Not analysis but verdict. Not interpretation but distinction. This child was not someone who explained paths — but someone who cut first what was real and what was imitation, right now.
+In that moment, almost for the first time, Sion understood in his body why Elia had left only two words, **Hazran** and **Aka**, with no long explanation. Not analysis, but judgment. Not interpretation, but telling apart. This child was not someone who explained the way; she was someone who first cut away what was real right now from what was imitation.
 
-Luhai blurted, very small — genuinely without meaning to.
+Very quietly, truly without meaning to, Luhai let it slip.
 
-"So it really was real."
+"So it was real."
 
 This time Aka looked at him once.
 
-A brief yet strangely precise glance.
+It was a short look, and a strangely precise one.
 
-"You arrive late through letters."
-She said.
+"You get there late, by way of letters,"
+she said.
 
-Luhai's mouth opened, then closed.
+Luhai's mouth fell open for a moment, then closed.
 
-Sion nearly laughed. That single line made the grain between the two vivid. The one who saw first, and the one who followed late. Both heading toward the same place — just arriving differently.
+Sion nearly laughed. With that one remark, the grain between the two of them had become very clear. One who saw first, and one who followed late. They looked like two kids headed for the same place, differing only in how they arrived.
 
-Nasim exhaled, very slowly.
+Nasim let out a very slow breath.
 
-"Good."
-He said, reattaching his smile.
-"Now I see why that name gets swallowed so expensively outside."
+"Good,"
+he said, putting his smile back on.
+"Now I finally get why that name is swallowed so dearly out there."
 
-Harun, hearing that, still showed no expression. Instead, very low.
+Hearing that, Harun still showed no expression. Instead he spoke very low.
 
-"Then we move further in."
+"Then we move her further in."
 
-Nahira interrupted for the first time.
+For the first time, Nahira cut him off.
 
 "Not yet."
 
-Short silence.
+A short silence.
 
-Harun's eyes went her way.
+Harun's eyes went to her.
 
-Nahira did not step back.
+Nahira didn't back down.
 
-"Let her say what she saw first."
-She said low.
-"Force it — and the mouth closes."
+"Right now we have to let her say what she saw first,"
+she said, low.
+"Drag her, and she shuts her mouth."
 
-Sion heard that like the words of someone who knew Aka too well.
+To Sion, that sounded like the words of someone who knew Aka very well.
 
-Someone who had watched long from this inside. Someone who knew when Aka spoke — and when she went silent.
+Someone who had watched her a long time in here. Someone who knew when Aka spoke and when she shut her mouth.
 
-Aka was still not looking at Sion's group — but at the things they had brought.
+Aka was still looking not at Sion's group, but at the things they had brought.
 
-And said — very low, but unmistakably.
+And then she spoke, very low but clearly.
 
 "It's not a door."
 
-This time Sion's breath stopped first.
+This time it was Sion's breath that stopped first.
 
-## That struck at the very center of what they had been chasing all the way here.
+It was a remark that stabbed into the very middle of what they had chased all the way here.
 
 ---
 

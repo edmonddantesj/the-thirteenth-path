@@ -38,7 +38,7 @@ sino la huella de algo arrancado hondo una vez y cubierto a la fuerza.
 El daño térmico tampoco era viejo, sino relativamente reciente.
 
 Sion, al verlo,
-captó un poco cuánto omitía la palabra «volvimos» de fuera, dicha por ellos.
+captó un poco cuánto omitía decir que de verdad *habían ido y vuelto* de fuera.
 
 La máquina vieja preguntó muy bajo.
 
@@ -54,7 +54,7 @@ una sigue viva.
 
 La mirada de Sern cambió enseguida.
 
-—No es un bloqueo total.
+—¿Quiere decir que no es un bloqueo total?
 
 La primera máquina ladeó la cabeza muy levemente.
 
@@ -64,7 +64,7 @@ Esas palabras eran ásperas,
 pero no eran erróneas.
 
 Sion, dentro de esa sola frase,
-sintió cuánto este lado tomaba siempre el hecho mismo de «haber vuelto vivo» como información.
+sintió cuánto este lado tomaba siempre el hecho mismo de *haber vuelto vivo* como información.
 
 Volver con vida significa que el camino aún existe.
 Si alguien no vuelve,
@@ -188,7 +188,7 @@ Luhai seguía apoyado contra el muro con el gesto endurecido.
 
 Por primera vez preguntó sin guasa.
 
-—¿Entonces vais a salir otra vez?
+—¿Entonces van a salir otra vez?
 
 La primera máquina ni siquiera lo miró.
 

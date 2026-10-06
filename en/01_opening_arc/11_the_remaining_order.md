@@ -1,176 +1,276 @@
 # Episode 11. The Remaining Order
 
-After Elia's last words remained in the room, no one could speak immediately.
-
-**What died before the name was the sequence.**
-That single sentence was reshaping the very form of the affair they had been holding onto.
-The dead archivist, the erased name, the severed documents, the covered routes. All of it no longer looked like separate problems — it was beginning to look like fragments cut from a single structure.
-
-Sion stared down at the fragment and breathed out, very low.
+Sion looked down at the fragment and let out a breath, very low.
 
 "So it really wasn't just one name."
 
-In those words, disbelief and the scent of something he'd half-expected were mixed together.
-He had always been the type more troubled by the hand that went this far to erase a name than by the name's return itself. What Elia had just said turned that exact point into reality.
+Seorin folded her arms and swept the room once. Shelves, fragment, black coat, the quiet shadow beside it.
 
-Seorin scanned the room once, arms crossed.
-Elia's repository, the fragment in Sion's hand, the Empire man in the black coat, the quiet shadow beside him. And the fact that all of them had now entered one degree deeper into the water.
+"Now the ones who want us dead are higher up too."
 
-"Nice."
-She said low.
-"The side trying to kill us just got higher."
+Elia didn't answer. She rubbed the cut underside of the fragment once more.
 
-Elia did not respond.
-She only rubbed the fragment's cut underside once more with her fingertip.
-*Higher* was right. This was not the level of someone erasing out of hatred — it meant older languages of approval and sealing, from further above, had moved.
+Only then did Sern speak.
 
-Sern opened his mouth at last.
+"Then the question is not who signed this. It is who rewrote the signing sequence."
 
-"Then this is not a question of who signed it. It is a question of who rewrote the signing sequence."
-
-The sentence was remarkably calm.
-But that calm made it heavier.
-In that moment, Sion felt more clearly that this quiet man was not frightening in the same way he was — but frightening in an entirely different way. He caught scent; that man read structure.
+The sentence was startlingly calm.
+And that made it heavier.
+In that moment Sion felt a little more clearly that this quiet man was frightening not in a way that resembled his own, but in an entirely different way. Sion read scent; that man read structure.
 
 Ater said nothing.
 
-He was watching Elia, not the fragment.
-A person who looked lax but whose gaze had never wandered once.
-A person reading missing signatures and severed sequences, from outside the Empire Approval Bureau.
-And the unsettling irregularity he himself had sensed — this person had made it into a sentence far too naturally.
+He was looking at Elia, not the fragment. The thing he had found merely unpleasant all day long, this woman had made into a single sentence and set on the desk.
 
-For someone raised inside the language of those who close, it felt almost like an insult.
-Because in that single sentence, the possibility had opened — that the Empire's system of approval and sealing might be *not a result, but an edited result.*
+The Empire Approval Bureau guarded results. But if the results had been edited, then what it had been guarding all along was something else.
 
-Elia did not pretend not to see Ater's gaze.
+Elia didn't pretend not to notice that look.
 
 "What."
 
 Ater raised his eyes, very slowly.
 
-"You read all of that from this one fragment."
+"Did you read all that from this fragment alone?"
 
-Elia laughed brief.
+Elia laughed.
 
-"Didn't read it from just this fragment."
-She gestured vaguely at the surrounding shelves.
-"Things like this — things that couldn't quite be finished off — they keep flowing into this neighborhood."
+"Not from just this fragment."
+She waved a finger loosely at the shelves around them.
+"Things like this, things nobody managed to erase all the way, keep washing up in this neighborhood."
 
-"You mean similar cases are common."
+"You mean there are many similar cases."
 
-"'Common' is a word to use carefully."
+"You have to be careful with 'many.'"
 Elia tilted her head.
-"But the erasing hand is often similar."
+"But the hand that erases is often similar."
 
-At that, Ater's jawline hardened, barely perceptibly.
+At that, the line of Ater's jaw set, very slightly.
 
-Seorin saw it but did not cut in deliberately.
-This was not the moment for Sion to needle, nor for her.
-It was the moment to watch how far the Empire-side person would accept a language from outside his world.
+Seorin saw it and deliberately stayed out of it.
+Right now it wasn't Sion's turn to jab, and it wasn't hers.
+This was the moment to watch how much language from outside his own world the Empire man would take in.
 
-Sion was watching Ater's face receiving Elia's reading more than the reading itself.
-And thought, very briefly, to himself.
+More than Elia's reading, Sion was watching Ater's face as he heard it.
+And he thought, very briefly, to himself.
 
-He got there.
+He's come that far.
 
 Ater was still looking only at Elia.
-The question before him no longer ended simply at reclaiming one erased name.
-More precisely, it was the question of **who had designed the manner in which that name was left.**
+The question in front of him no longer ended at recovering one erased name.
+More precisely, it was about who had designed even the way that name would be left behind.
 
-He finally spoke.
+At last he spoke.
 
-"Can you also read the traces left by those who erased the sequence."
+"Can you also read the trace left by whoever erased the sequence?"
 
-No one in that room heard that question lightly.
+Sion's hand tightened. Seorin closed her eyes and opened them. Sern didn't raise his head, but his eyes moved toward Ater.
 
-Sion felt his hand tighten around the fragment.
-Seorin closed her eyes very briefly, then opened them.
-Sern did not raise his head, but his gaze too shifted, faintly, toward Ater.
+Elia looked at Ater for a long while.
 
-Even Elia did not answer immediately this time.
+A man from the closing side had asked not who signed, but who erased the sequence. Only someone who had already broken once on the inside asks that question.
 
-She looked at Ater in silence for a moment.
-A closing-type person. An authority-type person. Yet right now, this person was asking not who signed — but who erased the sequence.
-That was a question only someone who had already broken once inside could ask.
-
-Only then did Elia raise the corner of her mouth, just slightly.
+Elia lifted the corner of her mouth, just slightly.
 
 "I can read it."
-She traced the severed line below the fragment with her fingertip.
-"There are things that don't remain in documents but do remain at the scene. Access sequence numbers, seal-release rhythms, who had to stop at which step — things like that."
+She ran a fingertip along the cut line under the fragment.
+"There are things that don't stay in documents but do stay at the scene. Access order, the rhythm of a seal being released, who had to stop at which step. That kind of thing."
 
-Short silence.
+She set the fragment down on the desk, very carefully, and went on.
 
-She placed the fragment on the desk, very carefully, and continued.
+"But once you read further, you can't back out."
 
-"But the moment we read further, this stops being a fragment you brought in — it becomes an affair with all your names attached."
+Hearing that, Sion drew a breath in, very slowly.
+If until now they had been vaguely chased, from here on it was more exact.
+This wasn't a case you bit once and let go. It was the kind of thing that caught everyone at once: whoever had seen the name, whoever had heard the sequence, whoever had carried the fragment this far, and whoever decided to read it.
 
-Sion drew a long, slow breath at that.
-If before they had been vaguely pursued, from now it was more precise.
-This was not a brief affair to bite and release. Everyone who had seen the name, heard the sequence, brought the fragment this far, and decided to read it — all caught at once, in the same kind of thing.
+At some point Yona Hale had come in, and she was listening quietly by the door.
+She wasn't someone who read records, but she knew the smell of expensive danger.
+And what Elia had just said told her plainly enough that what her ship had carried in was not simple contraband.
 
-Yona Heil was listening quietly from the doorway.
-He was not someone who read records, but he knew the smell of expensive danger.
-And what Elia had just said was more than enough to make clear — what he'd carried on his ship was not simple contraband.
+Seorin was the first to bring things back to the practical.
 
-Seorin was first to bring words back to reality.
-
-"Nice. So now only the choice is left."
+"So now all that's left is the choice."
 
 Sern asked quietly.
 
-"Choice."
+"The choice."
 
 "Yeah."
-Seorin looked at Sion, at Ater, at Elia in turn.
-"Stop here — or read further and truly never go back."
+Seorin looked at Sion, at Ater, then at Elia again.
+"Stop here, or read further and really not be able to go back."
 
 The room went quiet.
 
-Ater did not answer immediately.
+Ater didn't answer right away.
 Neither did Sion.
-In truth, both had already half-decided inside — but they knew that the instant they spoke it aloud, they would truly enter the next stage.
+The truth was that both of them had already half decided, but they knew that the moment they said it out loud, they would really be stepping into the next stage.
 
-Elia did not rush the silence.
-Instead she opened the snack bag again and popped one into her mouth.
-That trivial motion strangely felt like this space's rule. Even a fragment that could overturn the world was first placed on the desk here, and only then did people open their mouths.
+Elia didn't hurry the silence.
+Instead she opened the snack bag again, took one out and bit it.
+That small motion felt, strangely, like the rule of this place. Even a fragment that could turn the world over got set down on the desk first here, and only after that did anyone open their mouth.
 
-Sion laughed first.
-Short and incredulous.
+Sion was the first to laugh.
+A short, disbelieving laugh.
 
-"Coming this far and stopping — that'd be funnier."
+"Coming this far and stopping would be the funnier thing."
 
 Seorin clicked her tongue softly.
 
-"Nice. Of course that's how you go."
+"Knew you'd say that."
 
-Ater closed his eyes briefly, then opened them.
-Kairon's words, the Approval Bureau's language, the responsibility of those who close. All of it still remained inside his body — but at the same time, the question he had just thrown could no longer be taken back.
+Then she didn't pass up her own turn.
 
-He said, quietly.
+"I'm for stopping."
 
-"We read further."
+The room went quiet. Sion turned his head.
 
-Sern said nothing, but his face was one that would remember every second it took for that answer to arrive.
-The moment his lord crossed a line he could not return from on his own — he would not forget.
+"…What?"
+
+"You heard me." Seorin didn't look at him; she looked at Elia. "If we leave the fragment here and walk out, we're just four people who saw a name. Burying four like that wouldn't even show, so nobody bothers. Read further and we become people who have to be buried."
+
+"You knew that and you still came this far?"
+
+"Because you're going."
+
+Sion couldn't answer.
+
+Only then did Seorin look at him.
+
+"I said I'm for stopping. I didn't say I'm not going. I'm always the one who says stop and you're always the one who goes, and that's why we're not dead yet. But this time I wanted to say it out loud once."
+
+"Why."
+
+"So when you regret it later, there's a record of who tried to stop you."
+
+Sion said nothing for a moment.
+
+"…Put it down that you tried."
+
+"Already did."
+
+Seorin unfolded her arms and moved half a step toward the door. Not to leave. To stand with her back to the way out.
+
+"So read."
+
+Ater closed his eyes for a moment and opened them.
+His father Kairon's words, the language of the Approval Bureau, the responsibility of those who close. All of it was still in his body, but the question he had just thrown could not be taken back either.
+
+He spoke quietly.
+
+"We will read further."
+
+Sern said nothing, but his face was that of a man who would remember every moment it had taken for that answer to come out.
+He would not forget the moment his lordship crossed, of his own will, the line he could have turned back from.
 
 Only then did Elia nod.
 
-"Good."
+"Then that's settled."
 
-She drew a thin preservation glove and a small portable reading plate from the drawer beside the desk.
+She took a pair of thin preservation gloves and a small handheld reading plate from the drawer beside the desk.
 
-"Then the real work starts now."
+"Now the real work starts."
 
-The room's air settled one more time.
+The reading plate was palm-sized and had no screen. You set a fragment on it and light rose from underneath. Elia laid the fragment on it and changed the angle twice.
 
-Outside, port noise still lived, and this alley was not entirely safe either.
-But right now, inside this small repository, the four stood before a different kind of threshold — beyond simple flight.
+"I'll look at the fire first."
 
-Jun Aster's name had returned.
-What remained was to follow who had erased the sequence before and after that name — and why that sequence had to be rewritten.
+"The fire?" Sion asked.
 
-## And that was already no longer any one person's problem alone.
+"The burned part is the most honest. Whoever burns something thinks they've burned it away, so they don't erase the burn marks."
+
+Light rose slowly from beneath the fragment. Inside the edges that had died black, a grain the eye couldn't see split apart into layers.
+
+Elia's hand stopped.
+
+It stayed stopped for a long time.
+
+"What?" Sion asked.
+
+"…Twice."
+
+"It was burned twice?"
+
+"No." Elia turned the fragment with her fingertip so the cut underside faced up. "Look at the cut face here. Where it was carved out. The edge of this cut has oxidized, the color's gone dead. Metal or panel, once it's cut the color starts dying from that moment, and to die this far takes a long time."
+
+Sern understood first.
+
+"But the burn marks are new."
+
+"Yes."
+
+Elia kept the reading plate on as she went on.
+
+"It means the hand that carved out the sequence and the hand that burned the rest didn't work on the same day. The carving was a long time ago. The burning was a few days ago."
+
+Ater asked, very low.
+
+"How long ago?"
+
+"That doesn't come out of this. Only that it's old."
+
+Sion looked down at the fragment.
+
+A few days ago someone had burned this, and that someone had followed the archivist all the way to R-12 and killed him there. That much they knew now. But the one who carved out the sequence wasn't that person.
+
+"So the one who burned it," Sion said slowly, "came to erase something he didn't even carve out himself."
+
+"That's right."
+
+"Why."
+
+Elia picked up the snack bag again.
+
+"That's the question you didn't ask earlier."
+
+The air in the room settled once more.
+
+Sern stood beside the reading plate, still looking at the cut face.
+
+"My lord."
+
+"Speak."
+
+"The years can be counted from the degree of oxidation. It is a method used in Approval Bureau seal verification."
+
+Ater looked at him.
+
+"Can it be done here?"
+
+"There is no equipment." Sern paused for a moment. "But even without it, a lower bound comes out."
+
+"A lower bound."
+
+"A value that says it has been at least this long."
+
+Sern did not reach toward the fragment. Instead he counted the layers of light rising on the reading plate with his eyes, several times. Three, four, and more below that.
+
+Up to three was a familiar value. A thickness he saw often in the Approval Bureau archives. That there were more below it meant the face had already been cut before he ever entered the archives.
+
+"Before I say it, I have one question."
+
+"Ask."
+
+"When did you first enter the Approval Bureau, my lord?"
+
+Ater did not answer.
+
+Sern did not ask again. He already knew the answer, and he knew now that it came long after the face had been cut.
+
+Outside, the noise of the port still hadn't died.
+
+Elia switched off the reading plate's light.
+
+"That's enough for today."
+
+"Why?" Sion asked.
+
+"Because if we look any more, an answer might come out."
+
+"Why is that a problem?"
+
+Elia put the fragment into a preservation box and closed the lid.
+
+"Every time an answer comes out, one more place you have to go gets decided. One came out today, so today that's enough. You can't get to two in one day."
 
 ---
 

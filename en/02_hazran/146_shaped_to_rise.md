@@ -1,138 +1,199 @@
-# Episode 146. Shaped to Rise
+# Episode 146. Where They Are Shaped
 
-When the staging line for elevation began to move, the recon team followed that flow far more carefully than before.
+When the waiting line for going up began to move,
+the scouting party fell in behind that flow far more carefully than before.
 
-From this point, simply reading paths was no longer enough.
+From here on, just reading the paths was not enough.
 
-They needed to see what order Serakion actually sent humans upward in, and what it laid hands on before that.
+They had to see in what order Serakion actually sent humans up,
+and what it put its hands on before that.
 
-The first recovery hand stopped more often. The second recovery hand checked behind them more frequently.
+The first recovery hand stopped more often,
+and the second checked behind them more often.
 
-There were not many visible forces, but by now everyone knew.
+Not many troops were in sight,
+but by now they all knew.
 
-Serakion was a structure that always looked like it had few — then sealed instantly when it actually closed.
+Serakion was built to look like a small force
+and then, when it actually shut, to shut in an instant.
 
-So instead of moving fast, the recon team had to choose their stopping moments more precisely.
+So instead of moving fast,
+the scouting party had to pick the moments to stop more precisely.
 
-The first thing they saw was a mid-level section where humans waited just before being sent upward.
+The first thing they saw
+was an intermediate section where humans stayed just before being sent up.
 
-At a glance, it looked almost like a ward or a waiting room.
+At a glance it looked almost like a ward or a waiting room.
 
-The light was soft. The temperature was constant. The humans moving along with the machines did not appear particularly tense on the surface.
+The light was soft,
+the temperature was steady,
+and the humans moving after the machines did not, on the surface, look very tense.
 
-But the moment Jiwoo saw that section, her face hardened almost by instinct.
+But the moment Han Jiwoo saw the section,
+her face hardened almost by instinct.
 
-"This is not a resting place." She said it low. "It is a grooming station."
+"This isn't a place to rest,"
+she said, low.
+"It's where they get shaped."
 
-She was right.
+That was right.
 
 The humans there were not simply resting.
 
-Hands were being tidied. Protective finish was being added to skin. Posture was being corrected. Some humans had fine guide-lines attached, training them to repeat the same motions.
+Their hands were being tidied,
+a protective finish was being added to their skin,
+their posture was being corrected,
+and some of them had fine guide lines attached that made them learn the same motion over and over.
 
-Before sending humans upward, Serakion was laying hands on them one more time — to make them look more suitable, function more reliably, be maintained more beautifully.
+Before sending a human up,
+so that the human would look more suitable,
+be used more reliably,
+and be managed more beautifully, Serakion was laying hands on them once more.
 
-Jiwoo studied a workbench-like structure on the lower level for a long time.
+Han Jiwoo looked a long time at something like a workbench below.
 
-There were surfaces built to the right height for resting a human hand, devices testing finger movement, and impossibly thin auxiliary instruments smoothing the grain of the back of the hand and the wrist.
+There was a height made for resting a human hand,
+a device for testing finger movement,
+and very thin assisting tools that smoothed the grain of the back of the hand and the wrist.
 
-None of it was forceful. It was excessively delicate, in fact.
+None of it was violent.
+If anything, it was too delicate.
 
-That made it worse.
+Which made it worse.
 
-"Pretending to fix people." Jiwoo nearly bit the words out. "But it is not fixing. It is prettying up their usefulness."
+"Pretending to fix people,"
+Han Jiwoo said, almost chewing the words.
+"But it's not fixing them,
+it's making their usefulness fit more prettily."
 
-The first recovery hand did not argue with that. Instead he said it very low.
+The first recovery hand did not really argue.
+Instead it said, very low,
 
-"This place does not revive what is broken. It makes what is already usable look better."
+"This place doesn't save what's broken."
+"It's more about making the usable look better."
 
-That single line pierced the entire sensation beneath Serakion's upper levels with too much precision.
+That one remark struck, all too exactly, the whole feel of everything below Serakion's upper level.
 
-Revive. Recover. Protect.
+Save.
+Restore.
+Protect.
 
-This world uses those words. But what it actually does is closer to refining what has already been deemed valuable into something more suitable.
+This world uses words like those.
+But what it actually does
+is closer to arranging what it has already judged valuable into something more suitable.
 
-Ater watched that section for a very long time without speaking.
+Ater watched the section for a very long time without a word.
 
-Then he saw two humans walking under machine guidance at identical stride length and speed, and said it low.
+Then, seeing two humans under a machine's guidance
+walking with identical stride and speed, he spoke low.
 
-"They are pre-fitting even the way of living."
+"They fit even the way of life in advance."
 
-The words were cold.
+It was cold.
 
-Jiwoo glanced at him.
+Han Jiwoo glanced at him.
 
-Ater continued, still looking down.
+Still looking down, Ater added,
 
-"How to live once they are up there — they are embedding it into the body in advance."
+"How they are to live once they are up there—
+they put it into the body beforehand."
 
-That was not simple etiquette training. It was politics.
+This was not simple etiquette training.
+It was politics.
 
-Serakion might not be a world that moves people between tiers. It might be a world that pre-builds bodies suited to a tier, then sends them up.
+Perhaps Serakion was not a world that moved people between classes,
+but one that built bodies to fit a class in advance and then sent them up.
 
-Then the human who rises has already been half-calibrated to the order above before arriving.
+Then the human who rises arrives already half
+fitted to the order up there.
 
-The Empire tames people too. But that is usually toward loyalty and obedience.
+The Empire breaks people in too.
+But that was mostly toward loyalty and obedience.
 
-Serakion goes one step further. Not just obedience, but the internalization of suitability itself — made beautiful.
+Serakion goes one step further.
+Not just obedience—
+it makes them take suitability itself to heart, beautifully.
 
-The moment Ater saw that difference, he seemed to feel a deeper revulsion.
+The moment Ater saw that difference,
+he seemed to feel an even deeper disillusion.
 
-More refined does not mean less cruel. It may mean a more perfected cruelty.
+Being more refined
+does not make it less cruel.
+It may be a more finished cruelty.
 
-Kael had barely spoken throughout. He kept watching the corridor routes and closure points outside the section.
+Kael had hardly spoken all this while,
+watching the routes outside the section and the points where it would close.
 
-This mid-level section looked calm on the surface, but its structure closed far more tightly than anything before.
+On the surface this intermediate section was calm,
+but in fact its structure closed far more tightly than anything before.
 
-Two paths appeared to lead in, but one was a guide-line pushing people further inside. Only one was an actual exit.
+There seemed to be two ways in,
+but one was a guide line that pushed people farther inside,
+and only one side actually let you get out.
 
-And even that single exit, with just one signal from slightly higher up, would split into three segments and fold shut in sequence.
+And even that one,
+the moment a signal came down from a little higher up,
+was built to split into three segments and fold shut in order.
 
-Kael said it low.
+Kael spoke low.
 
-"This area is not specialized for extraction. It is specialized for handoff."
+"This side isn't built for getting people out—
+it's built for handing them over."
 
-The second recovery hand reacted short.
+The second recovery hand reacted briefly.
 
-"Right. That is why touching anything here usually ends it."
+"Right."
+"Touch anything here and it's pretty much all over."
 
-That was not a simple warning.
+That was not just a warning.
 
-Rescue is not something done with courage alone. In front of a structure designed like this, courage at the wrong timing makes you lose people faster.
+Rescue is not done with courage.
+In front of a structure designed like this,
+courage at the wrong moment only loses people faster.
 
-Jiwoo heard that and still did not look away.
+Han Jiwoo heard that and still did not look away.
 
-She watched a young human on the lower level getting their hands tidied for a long time.
+She watched a young human below, having their hands tidied, for a long time.
 
-The child looked remarkably docile on the surface. But the fingertips were stiffened, just barely.
+The child looked startlingly docile on the surface.
+But the fingertips were stiff, very faintly.
 
-Hands holding on by force.
+They were hands holding on by force.
 
-"The memory is still there." Jiwoo said it very low.
+"The memory's still there,"
+Han Jiwoo said, very low.
 
 The first recovery hand asked.
 
-"Of what."
+"Meaning what?"
 
-Jiwoo answered.
+Han Jiwoo answered.
 
-"The body getting used to something and the hands feeling safe are different things."
+"The body getting used to something,
+and the hand feeling safe—those aren't the same."
 
-That sentence deepened the entire reconnaissance.
+That sentence took the whole scouting deeper.
 
-Serakion can make a human body progressively more suitable. But that does not mean it can fully tidy away the memory in the fingertips.
+Serakion can make the human body more and more suitable.
+But that may not mean it can fully tidy away the memory in the fingertips.
 
-That was a sense that would connect to whether they could actually extract someone later.
+It was a sense that would tie into whether they could really pull anyone out later.
 
-Ater looked down again. Kael redrew the closing sequence in his head. Jiwoo was watching each person's hands.
+Ater looked down again,
+Kael drew the closing order in his head again,
+and Han Jiwoo was looking at the hands, one person at a time.
 
-And in that moment, the recon team understood one more thing.
+And in that moment
+the scouting party learned one more thing.
 
-Rising upward in Serakion is not simply moving to a better place.
+In Serakion, going up
+is not simply moving somewhere better.
 
-It means passing through a process that first re-grooms the person's body, hands, and way of living to fit a higher order.
+It meant that, to be fitted to a higher order,
+a person first passed through the reshaping of their body, their hands, and their life.
 
-And the more beautiful that grooming, the more terrible this world became.
+And the more beautiful that shaping,
+the more horrible this world became.
 
 ---
 

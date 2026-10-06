@@ -26,7 +26,7 @@ No era pulida,
 no fingía estar terminada,
 y, sobre todo, era una voz que quería sacar a la gente antes de gastar tiempo en explicaciones.
 
-—Date prisa —volvió a decir aquella máquina, en voz baja—. Cuando entre la siguiente alineación, esto se cierra.
+—Dense prisa —volvió a decir aquella máquina, en voz baja—. Cuando entre la siguiente alineación, esto se cierra.
 
 Sern leyó casi al mismo tiempo las señales de alrededor.
 
@@ -123,9 +123,9 @@ Sern, que seguía leyendo las señales de alrededor, dijo muy bajo.
 
 —El rastreo vuelve a engancharse.
 
-—¿Cuánto? —preguntó Ater.
+—¿Cuánto aguanta? —preguntó Ater.
 
-—No aguantaremos mucho —respondió Sern, escueto—. Con la misma cara no se les engaña mucho tiempo.
+—No aguantará mucho —respondió Sern, escueto—. Con la misma cara no se les engaña mucho tiempo.
 
 En cuanto cayeron esas palabras,
 la máquina que había abierto el camino emitió por primera vez un ruido parecido a una risa muy corta.
@@ -183,11 +183,11 @@ Y dijo casi en un susurro.
 —Este lado imita menos.
 
 Esa frase era corta,
-pero sonó como un criterio que partía en dos a todo Serakion.
+pero sonó como un criterio que partía en dos a toda Serakion.
 
 La máquina que abría el camino al frente ya no dio ninguna explicación.
 
-No exigió que confiaran en ella,
+No exigió que confiaran en él,
 no pidió que le agradecieran,
 no reveló primero su identidad.
 

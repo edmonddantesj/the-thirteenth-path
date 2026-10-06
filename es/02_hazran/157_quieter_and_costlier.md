@@ -19,7 +19,7 @@ la amable alineación de Serakion dudó por primera vez un instante sobre qué a
 
 Ese medio compás.
 Sobre ese tiempo breve y demasiado caro
-entraron la segunda máquina de recuperación y Han Jiwoo.
+entraron la segunda mano de recuperación y Han Jiwoo.
 
 Esta vez no tiró primero.
 
@@ -50,7 +50,7 @@ El segundo niño, justo al lado, era más difícil.
 Este se había desajustado primero,
 pero por eso mismo también se había asustado primero.
 
-Cuando la segunda máquina de recuperación tendió la mano,
+Cuando la segunda mano de recuperación tendió la mano,
 el cuerpo se encogió,
 y la fila de detrás casi al instante quiso rellenar ese hueco.
 
@@ -95,7 +95,7 @@ miró, en ese instante, hacia este lado primero desde dentro de la fila.
 
 No era el objetivo que Han Jiwoo había leído primero,
 ni Ater lo había marcado,
-y para el criterio de las máquinas de recuperación, en este compás era de los peligrosos, con mucha probabilidad.
+y para el criterio de las manos de recuperación, en este compás era de los peligrosos, con mucha probabilidad.
 
 Pero ese niño, de forma extraña,
 no parecía simplemente un niño cualquiera.
@@ -143,7 +143,7 @@ sino de un tramo en el que había que sacar a la gente antes de que la sospecha 
 
 —Sáquenlos —dijo bajo.
 
-Esta vez la primera máquina de recuperación se pegó por detrás.
+Esta vez la primera mano de recuperación se pegó por detrás.
 
 Un orden de cierre más tupido que el del primer rescate,
 lo desajustó con el cuerpo casi sin romperlo.
@@ -162,7 +162,7 @@ más áspero,
 uno que antes nadie habría elegido primero.
 
 Han Jiwoo no soltó la mano del primer niño,
-y la segunda máquina de recuperación sujetó al segundo niño casi como si lo levantara en brazos.
+y la segunda mano de recuperación sujetó al segundo niño casi como si lo levantara en brazos.
 
 Los dos iban más callados que los tres que habían traído en el primer rescate.
 Pero ese silencio no era cooperación,
@@ -206,7 +206,7 @@ Kael dijo bajo.
 
 —Ahora hasta el final.
 
-La primera y la segunda máquina de recuperación sujetaron a la vez el último borde.
+La primera y la segunda mano de recuperación sujetaron a la vez el último borde.
 Retrasaron el orden de cierre,
 dejaron un ancho para que pasaran los dos niños
 y ganaron el tiempo justo para que Han Jiwoo y Ater metieran el cuerpo dentro.
@@ -239,7 +239,7 @@ Han Jiwoo no pudo decir nada.
 
 Kael,
 Ater
-y las máquinas de recuperación
+y las manos de recuperación
 sabían exactamente qué significaba este éxito.
 
 Habían sacado a dos.

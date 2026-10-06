@@ -1,268 +1,267 @@
 # Episode 131. What They Kept
 
 The next day,
-the air in this old layer was quieter than the day before
-but a little sharper.
+the air in this old layer was quieter than the day before,
+and a little clearer.
 
-The crying had lessened.
-The groans too.
-Instead, the way people looked at each other had changed.
+The crying had thinned,
+the groaning had thinned,
+and instead the way people looked at one another had changed.
 
-Everyone's face now said they knew
-this was not simply a place to hide for one day.
+Every face now said
+they had learned this was not just a place to hide for a day.
 
-Those who survive stay.
-Those who stay must eventually speak their share.
+Those who survive end up staying,
+and those who stay must, in the end, say what their share is.
 
-That seemed to be this space's way.
+That seemed to be the way of this place.
 
 In one wide inner section,
 Sion's group, the people from Hazran,
-and the humans and machines who had been in this layer for a long time gathered again.
+and the humans and machines who had been in this layer a long time gathered again.
 
 No one called it a meeting,
-but it was clearly that kind of time.
+but it was clearly that kind of hour.
 
-The old machine still stood slightly off to the side,
-as if trying not to look like the center.
+The old machine, still keeping the manner of something that did not want to look like the center,
+had stopped a little off to one side.
 
-But strangely,
-every gaze passed through it once.
+And yet, strangely,
+every gaze passed over it once in the end.
 
 It spoke first.
 
-"I have come to hear what was said yesterday."
-"What each of you brought here without losing."
+"I have come to hear what I spoke of yesterday."
+"What each of you has brought this far without losing."
 
 A short silence.
 
-No one could speak right away.
+No one could answer right away.
 
-Because everyone felt
-that the question wasn't simply about skills or supplies.
+Everyone there sensed
+that the question was not simply asking about skills or supplies.
 
 It was a more uncomfortable question.
 
-What you never abandoned to the end.
-What you managed not to let go.
-What you carried here so it wouldn't disappear.
+What they had not thrown away to the end.
+What they had never let slip.
+What they had brought along so it would not vanish.
 
-Sion felt the question strangely resembled
-the sensation that had remained inside him when he left Hazran.
+Sion felt that the question, strangely,
+resembled the sense that had stayed in him when he left Hazran.
 
-Nothing was kept fully intact.
-But it wasn't truly empty hands either.
+He had kept nothing whole.
+But that didn't mean he had truly come empty-handed.
 
 The first to speak
 was an old man from Hazran.
 
-He hesitated for a long time,
-then said, almost apologetically.
+He hesitated a long while,
+then spoke almost apologetically.
 
 "I still know how to farm."
 
 After those words,
 the space went strangely quieter.
 
-Not a grand skill.
-Not something that would help in battle right now.
+It was no great skill,
+and nothing that would help in a fight right now.
 
-But the old machine nodded without hesitation—very slightly.
+But the old machine gave a very small nod, without hesitating.
 
-"That, too, is something kept."
+"That is something kept, too."
 
-That single line
-shifted the grain of the air.
+That one line
+shifted the grain of the air a little.
 
-What was being asked here wasn't exceptionality.
-It was closer to counting broadly the kinds of things that could be kept alive.
+What was being asked here was not specialness.
+It was closer to counting, widely, the kinds of things that could be kept alive.
 
-Next, a woman who had brought two children spoke low.
+Next, a woman who had brought two children spoke, low.
 
-"I know how to put children to sleep."
-"Even when they won't stop crying—
-how to let them catch their breath without scaring them."
+"I know how to get children to sleep."
+"Even when they keep crying,
+how to help them catch their breath without being scared."
 
-Again the old machine answered brief.
+Again the old machine answered briefly.
 
 "That is needed."
 
 After that,
-words began to come out one by one.
+the words began to come out one by one.
 
-"I can patch a cracked water jug."
-"I don't know machines, but I know a little about sorting wiring."
-"I haven't forgotten how to read desert wind."
-"I know where to grip when moving the wounded."
+"I can patch a cracked water can."
+"I don't know machines, but I know a bit about sorting wiring."
+"I haven't forgotten how to read the desert wind."
+"I know where to hold the wounded when you move them."
 
-Unglamorous words.
-But precisely because of that,
-the kind of words that could hold on longer.
+Words that were nothing grand.
+But exactly because of that,
+they were the kind of words that could last longer.
 
-Jiwoo listened and gradually realized
-this question wasn't measuring people's value.
-It was a method of tracing functions and senses that hadn't vanished.
+Listening, Han Jiwoo slowly came to see
+that the question was not measuring what a person was worth,
+but feeling for the skills and senses that had not vanished.
 
 But at the same time,
-that made it a question she couldn't pass over lightly.
+that made it a question she couldn't brush past.
 
-Because when her turn came,
-she already knew what she would say.
+Because she already knew
+what she would have to say when her turn came.
 
-The old machine's gaze finally turned toward Jiwoo.
+The old machine's gaze finally turned toward Han Jiwoo.
 
-Jiwoo said nothing for a moment.
+For a moment Han Jiwoo said nothing.
 
-She looked down at her own hands.
+She looked down at her hands.
 
-Hands that had repaired countless times.
-Gripped by force.
-Touched while saying *hold on*.
+Hands that had fixed things countless times,
+held things together by force,
+touched them while telling them to hold on.
 
-And she spoke, low.
+Then she spoke, low.
 
-"Before completely giving up on something broken,
-I know the side that tries to bring it back one more time."
+"Before giving up on something broken for good,
+I know how to try once more to bring it back."
 
-Those words were short,
-but strangely stayed longer.
+It was short,
+yet strangely it stayed longer.
 
-The old machine watched her for a long time, then said.
+The old machine looked at her a long while before it spoke.
 
 "Here, that is closer to an attitude than a skill."
 
-Jiwoo narrowed her eyes slightly.
+Han Jiwoo narrowed her eyes slightly.
 
-Not praise.
-Not recruitment.
-Not classification.
+Not praise,
+not hiring,
+not sorting.
 
-But not something to brush off lightly either.
+But it wasn't something she could take lightly either.
 
-It was closer
-to the way beings who had remained here a long time recognized each other.
+If anything, it was closer
+to the way beings who had stayed here a long time recognized one another.
 
-Luhai, standing beside Jiwoo,
-paused very briefly when his turn came.
+Luhai had been standing beside Han Jiwoo,
+and when his turn came he hung back for just a moment.
 
-At first he made a face like he'd brush it off as a joke.
+At first he wore the face of someone about to play it off as a joke.
 But this time he couldn't.
 
-After a long while he let it drop.
+Only after a long while did he blurt it out.
 
-"Chasing after people until the end so I don't lose them—I can do that."
+"I can chase someone to the end so I don't lose them."
 
 A short silence.
 
-Luhai added, as if tacking it on.
+Luhai added, as if it were nothing.
 
-"Don't know if I'm good at it,
-but I try not to let go anyway."
+"Don't know if I'm any good at it,
+but anyway, I try not to lose them."
 
-This time a very small breath came from the human side.
-Not a laugh.
-But closer to the reaction of people who understood
-how rare that kind of ability was.
+This time a very small breath came from among the humans.
+It wasn't a laugh.
+It was closer to the reaction of people who understood
+how rare a kind of ability that was.
 
-Aka said nothing for a long time even when her turn came.
+Even when her turn came, Aka said nothing for a while.
 
-Sion thought she might not answer at all.
+Sion thought she might not answer again.
 
-But Aka looked once each at the old structures, the people,
-and the machines remaining here,
-then said, very quietly.
+But Aka looked at the old structures and the people,
+and at the machines that remained here, one by one,
+then spoke very quietly.
 
-"I can tell where something has gone wrong."
+"I can tell where something's lying."
 
 No one spoke right away.
 
-Aka added, a moment later.
+A little later,
+Aka added,
 
-"And where something has been closed for a long time."
+"Places shut a long time, too."
 
 The moment those words fell,
-the gaze of several machines who had been in this space for a long time
-changed, very faintly.
+the gaze of a few machines that had been in this space a long time shifted, very faintly.
 
 Sion didn't miss it.
 
-Those words, at least here,
-were not something to pass over lightly.
+Those words,
+at least here, were not the kind to pass over lightly.
 
-Sern said, brief.
+Sern said, briefly,
 "I read flows."
+And Seorin,
+after lowering her eyes a moment,
+spoke evenly.
 
-Seorin lowered her gaze for a moment,
-then spoke, composed.
+"What must not be mixed,
+I know how to keep apart to the end."
 
-"I know the side that keeps what shouldn't mix
-from mixing, to the very end."
+It was not a showy answer.
+But in that one line
+was all the time she had spent dividing and holding people, supplies, and feelings so the space would not collapse.
 
-Not flashy words.
-But in that single line,
-the time spent dividing and holding people, supplies, and emotions
-to keep a space from collapsing was embedded as it was.
+"I look first at what will hold and what will collapse,"
+Ater said.
 
-Ater said, "I see which positions hold and which collapse, first."
+Kael thought for a long while,
+then spoke, very low.
 
-Kael thought for a long time,
-then said, very low.
+"When someone has to stay standing to the end,
+I can be the one who does not go down first."
 
-"When someone has to stand to the end,
-I can take the side that doesn't collapse first."
+It was dry, the way Kael was,
+but Sion, strangely, felt it was sad.
 
-Those words were dry, like Kael.
-But Sion strangely felt them as sad.
+Someone has to be the one who holds out longest,
+and Kael had always been that one.
 
-Someone has to be the person who holds longest,
-and Kael had always been that kind.
-
-Finally the gaze came to Sion.
+At last the gaze came to Sion.
 
 Sion couldn't speak right away.
 
-Responsibility.
-Debt.
-An unfinished path.
+Responsibility,
+debt,
+a road not yet finished.
 
-All true,
-but saying them as-is in this place felt like it wouldn't quite land.
+All of it was true,
+but said here just as it was, it seemed it would not quite reach.
 
-He opened his mouth only after a long while.
+Only after a long while did he open his mouth.
 
 "When it's time to leave,
-I know the thing that wouldn't leave."
+I know when I'm not going to."
 
-Those words fell,
-and a short silence passed.
+After those words fell,
+a short silence passed.
 
-Sion felt slightly strange about what he'd said, after the fact.
+Belatedly, Sion felt that what he'd said was a little strange.
 But he didn't correct it.
 
-Because what he'd been holding until the very last in Hazran
+Because what he had held on to until the very last in Hazran
 was, in the end, that sense.
 
-When to stay.
-When to leave.
-And how much collapses when you get those wrong.
+The sense of knowing when to stay,
+when to leave,
+and how much falls apart if you get the two wrong.
 
 The old machine said nothing for a while.
 
-Then, very low.
+Then it spoke, very low.
 
 "That is often
-the last thing learned."
+the last thing to be learned."
 
-After that single line,
-Sion felt this old layer had grown a little closer than last night.
+After that one line,
+Sion felt this old layer had come a little closer than it had been the night before.
 
-It still couldn't be called trust.
+It could not be called trust yet.
 But at least,
-the fact that no one had come empty-handed was now confirmed.
+it was the hour that confirmed none of them had come empty-handed.
 
-And that confirmation
-looked like the first threshold for deciding
-what could be entrusted next.
+And that confirmation, above all,
+looked like the first threshold for deciding what could be entrusted to them next.
 
 ---
 

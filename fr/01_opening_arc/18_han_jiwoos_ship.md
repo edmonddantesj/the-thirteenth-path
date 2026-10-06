@@ -1,238 +1,295 @@
 # Chapitre 18 — Le vaisseau de Jiwoo
 
-L'intérieur du vaisseau de transit de Han Jiwoo était bien plus complexe qu'on ne l'aurait cru de l'extérieur.
+L'intérieur du vaisseau de transit de Han Jiwoo était bien plus compliqué qu'il n'y paraissait du dehors.
 
-Vue de dehors, c'était un vieux cargo de moyenne portée. Mais à peine franchie la porte, ce qui frappait en premier, c'était les traces de reprise. Les panneaux muraux étaient parsemés de pièces hors gabarit vissées à la place des originaux ; certains câblages contournés s'étalaient sans honte, sans chercher à être discrets — juste là, évidents. Certains composants semblaient antérieurs à la guerre, d'autres arrachés bien plus tard à des appareils civils. Pas un vaisseau abandonné à sa vieillesse : un vaisseau vieux mais maintenu vivant de force, rafistolé inlassablement pour ne pas mourir. Dès qu'il le vit, Sion Lapis sentit quelque chose de tellement typique de Jiwoo qu'un rire faillit lui échapper.
+Vu de l'extérieur, c'était un vieux cargo de moyenne portée, mais à peine entré, ce qui sautait aux yeux en premier, c'étaient les rapiéçages.
+Par endroits, les panneaux muraux avaient été remplacés par des pièces hors gabarit, et une partie des câbles d'alimentation trahissait sans la moindre gêne une dérivation, et non un câblage réglementaire. Certaines pièces semblaient d'avant-guerre, d'autres arrachées bien plus tard à du matériel civil. Pas un vaisseau laissé à l'abandon parce qu'il était vieux : un vieux vaisseau qu'on n'avait cessé de retoucher pour qu'il n'en meure pas. En le voyant, Sion trouva l'odeur de Han Jiwoo si forte qu'il en eut presque envie de rire.
 
-Sion parcourut des yeux la cabine et dit :
+Sion dit en parcourant la cabine du regard :
 
-« Ça donne l'impression qu'on va se faire gronder dès l'entrée. »
+« On dirait un endroit où on se fait sermonner dès qu'on entre. »
 
-Han Jiwoo, dans son dos, vérifia le verrou sans se retourner.
+Han Jiwoo, derrière lui, répondit en vérifiant le verrou de la porte :
 
-« C'est pas une impression. C'est vrai. »  
-Elle dit ça sans même lui accorder un regard.  
-« Pose pas ta main sur le panneau gauche. Je viens de le rattacher hier. »
+« On dirait pas. C'est le cas. »
+Elle parla sans même se retourner :
+« Appuie-toi pas sur le panneau de gauche. Je l'ai refixé hier. »
 
-Sion retira la main avec un demi-sourire.
+Sion retira la main avec un rire incrédule.
 
-« Hé, tu pouvais pas le dire avant ? »
+« Hé, pourquoi tu le dis maintenant ? »
 
-« Je le dis maintenant parce que tu allais t'y appuyer maintenant. »
+« Parce que c'est maintenant que t'allais t'appuyer dessus. »
 
-Seorin Kael vit la scène et laissa échapper un petit rire.
+Seorin pouffa en les voyant.
 
-« Explication parfaitement calibrée pour ton niveau. »
+« Une explication pile à ton niveau. »
 
-« Toi, t'as toujours raison quand ça me tombe dessus. »
+« Pourquoi tu donnes toujours raison aux autres ? »
 
-« C'est parce que tu es tellement facile à toucher. »
+« Parce que t'es une cible trop facile. »
 
-Pendant ce bref échange, les mains de Han Jiwoo ne s'arrêtèrent pas une seconde.  
-Vérification du verrouillage extérieur, resserrage manuel de la cloison, attente de libération des crochets de connexion, contrôle de l'alimentation auxiliaire. Les mots et les mains se mouvaient à des vitesses entièrement différentes. Ater Valkar l'observait, et comprit en quelques secondes : cette femme parlait à la légère, mais ses mains, elles, ne se permettaient jamais la légèreté.
+Pendant ce bref échange, les mains de Han Jiwoo ne s'arrêtaient pas.
+Vérification du verrouillage extérieur, resserrage manuel de la cloison, attente du désaccouplement de l'anneau d'accostage, contrôle de l'alimentation auxiliaire. Quelqu'un dont la parole et les mains allaient à des vitesses complètement différentes. En la regardant, Ater comprit vite que cette femme était de celles qui vivent à la légère en paroles, mais jamais à la légère de leurs mains.
 
-Sern Barek fit le tour de la structure de la cabine et demanda :
+Sern fit le tour de la cabine du regard et demanda :
 
-« Le propulseur principal est en état normal ? »
+« Le propulseur principal fonctionne-t-il normalement ? »
 
-Han Jiwoo leva les yeux vers lui pour la première fois vraiment.
+Han Jiwoo, pour la première fois, regarda vraiment du côté de Sern.
 
-« Ça dépend de ce que tu entends par normal. »  
-Elle dit ça, puis :  
+« Je sais pas jusqu'où va le mot “normal”. »
+Elle poursuivit :
 « Ça explose pas. Pour l'instant. »
-
-Court silence.
 
 Sion eut un petit rire.
 
-« Ici, c'est déjà du haut de gamme. »
+« Par ici, rien que ça, c'est du haut de gamme. »
 
-Ater ne rit pas en entendant ça.  
-*Ça explose pas. Pour l'instant.* Une phrase prononcée comme un rapport d'état. Un monde où ça se dit ainsi. Étrange — et pourtant, personne dans ce vaisseau ne prenait ces mots pour de la vantardise. C'est ce qui ne cessait de l'ébranler depuis tout à l'heure. L'ordre hors de l'Empire n'était pas approximatif : il était précis selon des critères entièrement différents.
+Ater, lui, ne rit pas en entendant cela.
+Ça n'explose pas, pour l'instant. Un monde où ce genre de phrase sert de bilan d'état.
 
-Han Jiwoo dit un dernier mot avant d'entrer dans le poste de pilotage :
+Avant d'entrer dans le poste de pilotage, Han Jiwoo dit une dernière chose :
 
-« Une fois parti, y'aura un bruit de fond soutenu pendant un bon moment.  
-Des gens cherchent notre route à tâtons de dehors — j'ai mis du bruit exprès pour brouiller. »
+« Une fois partis, il y aura pas mal de parasites pendant un moment.
+Il y a des types dehors qui cherchent notre route à tâtons, alors j'ai mélangé du bruit exprès. »
 
 Seorin demanda :
 
-« Super. On va se crever les oreilles aussi. »
+« Nos oreilles vont exploser avec, non ? »
 
-« Mieux les oreilles que le traqueur. »
+« Vaut mieux faire sauter la traque que les oreilles, non ? »
 
-« C'est vrai. »
+« Pas faux. »
 
-Yona Hale entendit les crochets de connexion se libérer complètement et regarda Han Jiwoo.
+Yona attendit le bruit de l'anneau d'accostage qui se libérait complètement, puis regarda Han Jiwoo.
 
-« À partir d'ici, c'est ta zone. »
+« À partir d'ici, c'est ton tronçon. »
 
 « Je sais. »
 
-C'était peu de mots, mais ça sonnait comme une passation.  
-Sion l'entendit et pensa, comme toujours : ici, on n'a pas besoin de contrat écrit. Quelques mots suffisent à définir qui est responsable de quoi, jusqu'où. En échange, si ces quelques mots se brisent, on ne se revoit plus jamais.
+Puis Yona recula.
 
-Le vaisseau de transit se mit à vibrer lentement.
+Sion se retourna vers elle.
 
-Quelque part dans la coque métallique, un grondement de friction bas et long se fit entendre ; puis les fixations extérieures se libérèrent complètement, et la coque se pencha légèrement une fois. Il y avait presque pas de hublots, mais la seule sensation de se détacher de la structure extérieure suffisait à rendre le départ bien réel.
+« … Tu montes pas ? »
 
-Sion attrapa une poignée murale et dit à voix basse :
+« Mon vaisseau est là-bas. »
 
-« On va jusqu'où directement, cette fois ? »
+« T'as qu'à venir avec nous. »
 
-Han Jiwoo, aux commandes, répondit :
+« Si les deux vaisseaux y passent, qui viendra vous chercher ? »
 
-« Pas directement.  
-On doit passer sur une balise morte en chemin. »
+Sion ne sut que répondre.
+
+Yona se tenait hors de la rampe. Ses pieds étaient déjà tournés vers la passerelle ; seul son corps restait à demi tourné de ce côté. La posture de quelqu'un qui a souvent regardé les autres partir.
+
+« Le prix du carburant, dit Sion. »
+
+« Oui. »
+
+« Tu vas me donner ton prix, maintenant ? »
+
+Yona marqua une pause, comme si elle réfléchissait. En réalité, elle ne devait pas réfléchir du tout. Cette réponse, elle la portait depuis le port.
+
+« Non. »
+
+« Pourquoi ? »
+
+« Je t'ai dit que j'avais pas encore décidé. »
+
+« Et tu décides quand ? »
+
+« Quand tu reviendras. »
+
+Sion garda un instant ces mots.
+
+« … Ça veut dire que je reviens. »
+
+« Non, rectifia Yona. Ça veut dire que si tu reviens, je déciderai à ce moment-là. Si tu reviens pas, on n'aura rien décidé, et ce sera fini. C'est le marché le moins cher. »
+
+« C'est pas un marché pas cher, c'est pas de marché du tout. »
+
+« Un marché qui n'existe pas, ça se rompt pas. »
+
+Han Jiwoo cria depuis le poste de pilotage :
+
+« L'anneau est libéré. Écarte-toi. »
+
+Yona recula encore d'un pas.
+
+Et elle ne dit pas au revoir. À la place, elle frappa une fois du dos de la main la paroi extérieure, à côté de la rampe. Le même geste que lorsqu'elle avait coupé le courant du monte-charge. Cela voulait dire : c'est fait.
+
+La rampe commença à remonter.
+
+Dans l'interstice qui se refermait, la dernière chose qu'ils virent ne fut pas le visage de Yona, mais son dos, déjà tourné. Elle marchait vers la passerelle, d'un pas ni rapide ni lent.
+
+Seorin dit à voix basse, à côté de Sion :
+
+« Elle dit jamais au revoir ? »
+
+« Non. »
+
+« Pourquoi ? »
+
+« Dire au revoir, ça fait dernière fois. »
+
+La rampe se ferma.
+
+Sern n'avait pas quitté cet instant des yeux. À la Chambre de Reconnaissance, une passation se signe. Il faut une signature pour que le suivant prenne la responsabilité. Ici, au lieu de signer, on montrait son dos, et c'était plus rapide qu'une signature.
+
+Le vaisseau de transit se mit lentement à trembler.
+
+Quelque part dans la coque métallique, un long frottement sourd se fit entendre ; aussitôt après, les fixations extérieures se libérèrent entièrement et la coque pencha légèrement, une fois. Il n'y avait presque pas de hublots, mais la seule sensation de se détacher de la structure extérieure suffisait à rendre le départ bien réel.
+
+Sion saisit une poignée contre la paroi et dit à voix basse :
+
+« Cette fois, on va jusqu'où d'une traite ? »
+
+Han Jiwoo répondit en effleurant le tableau de bord :
+
+« On peut pas y aller d'une traite. »
+« En route, faut encore passer sur une balise morte. »
 
 Ater demanda :
 
-« Une balise morte ? »
+« Que veut dire “passer sur une balise morte” ? »
 
-Han Jiwoo l'expliqua comme si le terme lui était familier.
+Han Jiwoo expliqua aussitôt, comme si l'expression lui était familière.
 
-« Un marqueur de connexion effacé des registres officiels.  
-Mais pas vraiment mort dans les faits. »  
-Elle fit apparaître brièvement deux coordonnées sur le panneau.  
-« Ce genre de balisage se voit moins que les balises actives. C'est pour ça qu'on s'en sert longtemps. »
+« Un repère de connexion qui a déjà disparu des registres officiels.
+Mais qui, en réalité, n'est pas tout à fait mort. »
+Elle afficha deux coordonnées sur le tableau de bord.
+« Ces trucs-là se voient même moins que les vivants. C'est pour ça qu'ils servent longtemps. »
 
-En entendant ça, Ater Valkar sentit avec une clarté plus vive que jamais que les *chemins effacés* dont Elia Vern avait parlé et la route qu'il était en train d'emprunter relevaient du même langage.  
-Ce qu'on croyait mort mais qui ne l'est pas.  
-Ce qu'on a effacé des registres mais qui demeure en réalité.  
-Ce monde continuait à lui imposer ce langage-là.
+En l'entendant, Ater sentit plus nettement encore que la “route effacée” dont avait parlé Elia et la route qu'il foulait à présent relevaient de la même famille de langage.
+Ce qu'on croyait mort et qui ne l'est pas.
+Ce qu'on a effacé des registres et qui reste pourtant.
+Ce monde ne cessait de lui imposer ce langage-là.
 
 Sion jeta un coup d'œil au visage d'Ater et sourit.
 
-« Tu commences à avoir une tête qui connaît. »
+« Tu commences à avoir une tête d'habitué. »
 
-Ater détourna le regard.
+Ater détourna les yeux.
 
-« Ce n'est pas un compliment, j'imagine. »
+« Je suppose que cela ne veut pas dire que j'ai bonne mine. »
 
-« Pas du tout. »  
-Sion enchaîna sans hésiter.  
-« Par ici, plus on s'habitue, plus on a raté sa vie. »
+« Évidemment. »
+Sion enchaîna aussitôt :
+« Par ici, plus on s'habitue, plus sa vie est fichue. »
 
-Han Jiwoo ricana depuis le poste de pilotage.
+Han Jiwoo ricana au fond du poste de pilotage.
 
-« Toi, il est trop tard. »
+« Toi, c'est déjà trop tard. »
 
 « Ça, je peux pas le nier. »
 
-Seorin, pendant ces échanges brefs, ouvrit la soute à l'arrière de la cabine.  
-À l'intérieur : deux packs d'alimentation de secours, une toile isolante, une trousse de patch d'urgence, et deux boîtes à outils dégageant, sinon l'odeur des munitions, du moins la même tension. Pas un vaisseau armé — mais un vaisseau prêt à vivre comme un vaisseau armé.
+Tout en écoutant ces quelques répliques, Seorin ouvrit le coffre de rangement au fond de la cabine.
+Dedans, deux blocs d'alimentation de secours, une bâche isolante, une trousse de pansements d'urgence, et deux caisses à outils qui, sans être des chargeurs, dégageaient à peu près la même tension. Ce n'était pas un vaisseau armé, mais un vaisseau prêt à vivre comme tel.
 
-Elle dit à voix basse :  
-« Les préparatifs pour sauver des gens et ceux pour les mettre à terre sont dans le même compartiment. »
+Elle dit à voix basse :
+« De quoi sauver des gens et de quoi les assommer, dans le même compartiment. »
 
-Han Jiwoo répondit :
+Han Jiwoo répliqua :
 
-« Ici, c'est toujours comme ça. »
+« Par ici, ça va toujours ensemble. »
 
-Sern Barek contempla le contenu de la soute et son visage se ferma brièvement, sans excès.  
-Rien que le nécessaire, sans ostentation. Ce n'est pas de la fanfaronnade : c'est la composition d'un vaisseau qui a survécu par répétition. Il déplaça légèrement le regard vers les mains de Han Jiwoo. Les gestes semblaient rugueux, mais ses gestes étaient d'une précision étonnante.
+Sern, devant le contenu du coffre, avait l'air d'avoir rendu son jugement en un instant.
+Rien que le nécessaire, sans exagération. Ce n'était pas de la frime, mais l'équipement d'un vaisseau qui avait survécu, encore et encore. Il déplaça un peu son regard et observa de nouveau les mains de Han Jiwoo. Les manipulations semblaient brusques, mais les commandes étaient d'une précision étonnante.
 
 Sion le remarqua et glissa :
 
-« Le silencieux s'émerveille encore. »
+« Le silencieux est encore impressionné. »
 
 Sern répondit sans regarder Sion :
 
-« Je ne suis pas en admiration. »
+« Je ne suis pas impressionné. »
 
-« Alors quoi. »
+« Alors quoi ? »
 
 « Je suis en train de comprendre. »
 
-À ces mots, Sion leva imperceptiblement un coin de la bouche.  
-Seorin eut un petit sourire.  
-Ater ne dit rien, mais, étrangement, il crut saisir ce que ces mots voulaient dire. Sern était en train de traduire dans sa propre langue les règles de ce réseau de survie inconnu.
+À ces mots, Sion releva un instant le coin des lèvres.
+Seorin eut aussi un petit rire.
+Ater ne dit rien, mais il crut, étrangement, comprendre le sens de cet échange. Sern était en train de traduire à sa manière les règles de ce réseau de survie inconnu.
 
-La coque frémit une fois de plus, légèrement.  
-Cette fois, ce n'était pas la vibration simple du départ : c'était le micro-rebond de la coque s'engrenant avec la route extérieure au-delà du point de connexion. Le vaisseau sortait vraiment vers le dehors.
+La coque frémit encore une fois, légèrement.
+Cette fois, c'était un infime rebond, au moment où le vaisseau s'engageait sur la route extérieure, au-delà du point de jonction. Le vaisseau sortait vraiment vers le dehors.
 
-C'est alors que Han Jiwoo dit brusquement :
+C'est alors que Han Jiwoo dit soudain :
 
 « Sion. »
 
-« Quoi. »
+« Quoi ? »
 
-« Tu transportes exactement quoi, cette fois ? »
+« Cette fois, t'as apporté quoi, exactement ? »
 
-L'air dans la cabine se modifia, imperceptiblement.
+L'air de la cabine changea, très légèrement.
 
-Sion ne répondit pas tout de suite.  
-Jusqu'où dérouler l'histoire des fragments ici, qu'est-ce qu'on peut dire devant Ater et Sern, où Seorin devait couper. Dans ce bref silence, chacun fit ses calculs, une fois.
+Sion ne répondit pas tout de suite.
+Jusqu'où dévoiler ici l'histoire du fragment, que dire devant Ater et Sern, où Seorin couperait-elle. Dans ce court silence, chacun fit tourner ses calculs une fois.
 
-Han Jiwoo n'avait pas un visage à attendre ces calculs.
+Han Jiwoo n'avait pas le visage de quelqu'un qui attendrait la fin de ces calculs.
 
-« Pas l'odeur de gens. »  
-Elle dit ça à voix basse.  
-« C'est quoi que t'as touché cette fois pour ramener aussi l'odeur de l'Empire avec toi. »
+« Pas l'odeur des gens. »
+Elle baissa la voix :
+« Je te demande ce que t'as touché cette fois pour avoir aussi l'odeur de l'Empire sur toi. »
 
-Sion entendit ça et ne sourit pas.
+Sion ne sourit pas en l'entendant.
 
-À la place, il pressa brièvement la poche intérieure de sa veste.
+Il appuya plutôt sur sa poche intérieure.
 
-« Un nom. »  
-Il dit ça.  
-« Et la main qui a coupé ce qui l'entourait. »  
-Il ajouta, très brièvement :  
-« Partir en courant avec juste les documents, c'est pas suffisant pour en finir. Faut marcher soi-même sur le chemin que cette main a coupé, jusqu'aux endroits où il manque quelque chose — c'est là seulement qu'on voit ce qui a disparu. »  
-Cette seule phrase rendit clair pourquoi ce vaisseau était nécessaire. À partir d'ici, ce n'était plus une simple mise à l'abri : c'était une étape où il fallait suivre en personne les fragments cloués à la scène, marcher l'ordre d'accès tranché un par un.
+« Un nom. »
+Il poursuivit :
+« Et la main qui a coupé ce qu'il y avait avant et après ce nom. »
+Sion ajouta :
+« C'est pas en fuyant avec les documents que ça va se régler. Faut marcher soi-même jusqu'à l'endroit où reste la route que cette main a coupée, pour voir ce qui manque. »
 
-Les yeux de Han Jiwoo se plissèrent pour la première fois vraiment.
+Pour la première fois, les yeux de Han Jiwoo se plissèrent pour de bon.
 
-Elle murmura :  
-« C'est cher, cette fois. Vraiment cher. »
+Elle murmura :
+« Cette fois, c'est vraiment du cher. »
 
-Ater comprit que ce n'était pas simplement une question d'argent.  
-Quand cette femme disait *cher*, elle calculait d'un seul mot le prix, le danger, la traque, et les chances de rester en vie.
+Ater comprit.
+Quand cette femme disait “cher”, ce mot fixait d'un coup non seulement le prix, mais aussi le danger, la traque et les chances de rester en vie.
 
-Han Jiwoo redemanda :
+Han Jiwoo reprit :
 
-« Ce nom, c'est pas le tien. »
+« Ce nom, c'est pas le tien, hein ? »
 
-Sion répondit brièvement :
+Sion répondit :
 
 « Non. »
 
 « Et c'est pas non plus le nom de quelqu'un de vivant ? »
 
-Court silence.
+Un court silence.
 
-Cette fois, Ater leva les yeux avant Sion.  
-Han Jiwoo ne laissa pas passer ça.
+Cette fois, ce fut Ater qui leva les yeux avant Sion.
+Han Jiwoo ne le manqua pas.
 
-Elle dit très lentement :  
+Elle dit très lentement :
 « Alors c'est un nom mort. »
 
-Personne ne répondit tout de suite.  
-Mais l'absence de réponse était elle-même déjà une réponse plus que suffisante.
+Personne ne répondit tout de suite.
+Mais l'absence de réponse était déjà une réponse suffisante.
 
-Un long grondement de friction rasa la coque extérieure.  
-Le vaisseau avait déjà quitté le point de connexion, et le chemin du retour s'assombrissait derrière.
+Dehors, un long frottement glissa contre la coque.
+Le vaisseau quittait déjà le point de jonction, et le chemin du retour, derrière, s'assombrissait de nouveau.
 
-Han Jiwoo ne posa plus de questions.  
-À la place, elle poussa la barre de pilotage un peu plus profondément et dit à voix basse :
+Han Jiwoo ne posa plus de questions.
+Elle poussa plutôt le manche un peu plus loin et dit à voix basse :
 
-« Compris.  
-Alors il va falloir aller encore plus silencieusement à partir de maintenant. »  
-« Si le nom est un nom mort, ça change les raisons pour lesquelles on est traqués. Ceux qui viendront, c'est pas pour bloquer une seule personne — c'est pour boucher aussi les chemins que ce nom peut ouvrir. »
+« Compris.
+Alors à partir de maintenant, faudra aller encore plus discrètement. »
+« Si le nom est un nom mort, la raison pour laquelle on est traqués change aussi. Ceux qui viendront nous chercher voudront pas seulement attraper une personne : ils viendront aussi bloquer les routes que ce nom peut ouvrir. »
 
-Sion exhala légèrement à ces mots.  
-L'explication n'était pas terminée, mais au moins ce qu'il fallait transmettre pour l'instant avait été transmis.
+Sion souffla doucement à ces mots.
+L'explication n'était pas terminée, mais, du moins, l'essentiel pour l'instant avait été transmis.
 
-Et Ater, observant ce bref échange, sut avec certitude :  
-dans le monde de Sion, on ne fait pas monter les gens à bord parce qu'on leur fait confiance.  
-On calcule jusqu'où c'est dangereux, jusqu'où on peut parler, où il faut couper pour que personne ne meure — et alors on bouge.  
-Ce n'était pas de la froideur. C'était une autre forme de confiance, longuement affinée pour survivre.
-
-Le vaisseau allait de plus en plus loin vers le dehors.  
-Une route hors des couloirs officiels, une déviation jalonnée de balises mortes, des connexions qui ne laissent de trace que par leurs cicatrices, sans jamais de nom.
-
-Et au bout de cette route,  
-la première empreinte réelle du chemin effacé les attendait.
+Le vaisseau s'éloigna de plus en plus vers le dehors.
+Une route hors des voies officielles, un détour qui se prolongeait de balise morte en balise morte, des connexions qui ne survivaient plus que sous forme de vestiges, à la place des noms.
 
 ---
 

@@ -1,233 +1,230 @@
 # Episode 130. What to Keep Alive
 
-Even after all the missing had been counted,
-the space didn't lighten right away.
+Even after all the lost had been counted,
+the space did not lighten right away.
 
-The opposite.
+It was the opposite, if anything.
 
-Only now
-did the question of who survived remain.
+Only now, at last,
+what remained was who had survived.
 
 And those who survived
-find themselves before the next question.
+were set in front of the next question.
 
-Inside here,
-what do we keep alive first?
+In here,
+what should be kept alive first?
 
-Each person's life.
-Their mind.
+Each single life.
+Minds.
 Memory.
-Skill.
-A path.
+Skills.
+Paths.
 
-In a collapsing world,
-you can't hold everything.
+In a world that is falling apart,
+you can't hold on to everything.
 
-That's why the air in this old layer
-always seemed to carry the scent of the next choice alongside everything else.
+So the air of this old layer
+always seemed to carry the scent of the next choice along with it.
 
-Sion began to understand it,
-watching the machines and humans moving past the wounded.
+Sion began to understand it, bit by bit,
+watching the machines and humans moving past the injured.
 
-No one panicked.
+No one was flustered.
 But no one had room to spare either.
 
-Everyone already moved with the familiarity
-of knowing what to hold first and what to push back.
+Everyone already
+moved like people who knew by habit what to hold first and what to put off.
 
-Warm water went to children and the elderly first.
-The less wounded wordlessly joined the critically injured.
-Repairable equipment was gathered to one side immediately.
+Warm water went around to the children and the elderly first,
+the less injured quietly attached themselves to the badly wounded,
+and any equipment that could be repaired was gathered to one side at once.
 
-And through all of it,
-information that couldn't be discarded was gathering very quietly, apart.
+And in between all of it,
+information that could not be thrown away was being gathered separately, very quietly.
 
-Where was blocked.
-Which corridor the android legion had overrun.
-Which zone was still alive.
-Who had stayed until the very last.
+Where the way had been blocked.
+In which passage the android legion had turned.
+Which sectors were still alive.
+Who had stayed to the very end.
 
-Jiwoo watched it and muttered low.
+Han Jiwoo saw it and muttered, low,
 
-"This isn't a place that grieves together."
+"This isn't a place where everyone grieves together."
 
-A human woman nearby answered.
+The human woman close by answered.
 
 "We grieve."
 
 Her voice was dry,
-but strangely more precise.
+but strangely more precise for it.
 
-The woman continued, face tired.
+Her face tired, the woman went on.
 
-"But if you put grief first,
-more die next time."
+"But put grief first,
+and next time more of us die."
 
-Jiwoo heard that and couldn't say anything.
+Han Jiwoo heard that and couldn't say anything.
 
-She remembered the hands she'd held until the end in Hazran
-and the things that couldn't cross over.
+She thought of the hands she had held on to until the end in Hazran,
+and of the things that never made it across with them.
 
-It was the face of someone who already knows
-that even the time to grieve always comes late.
+Even the time to grieve
+always came late;
+hers was the face of someone who already knew that.
 
-Aka was standing a little further away,
-looking for a long time at an old structural diagram on the inner wall.
+A little way off,
+Aka had been looking for a long time at an old schematic fixed to the inner wall.
 
-Metal grooves running like lines.
-Erased markings.
-Traces added later.
+Metal grooves running on like lines,
+erased markings,
+traces of things added later.
 
-When Sion came closer,
-Aka asked low.
+When Sion came over,
+Aka asked, low,
 
-"Up there, they erased everything and built new."
+"Up there, they erased it all and built it new, right?"
 
 Sion looked at her.
 
-Aka spoke without taking her eyes off the diagram.
+Without taking her eyes off the schematic, Aka said,
 
-"But here, they didn't erase. They added on top."
+"But here, they added on instead of erasing."
 
 That difference mattered too.
 
-The Serakion above erases traces of failure and pretends completion.
-But here,
-on top of failures that won't erase,
-they layer the next choices and keep holding.
+Upper Serakion was a world that erased the traces of its failures and pretended to be complete.
+But this,
+on top of failures that would not be erased,
+was a world that held on by adding each next choice.
 
-Then,
-the old machine came near Sion's group again.
+Just then,
+the old machine came close to Sion's party again.
 
-This time with two other machines and two humans alongside.
+This time two other machines and two humans were with it.
 
-Less a center of power,
-more like a combination where different memories and roles had briefly gathered in one place.
+Not a center, exactly;
+it was a grouping that looked like different memories and roles brought together in one place for a while.
 
 The old machine spoke.
 
 "The people from Hazran will stay in this inner layer for the time being."
-"We will sort those who need recovery, those able to move, and those with technical skill."
+"We will split them into those who need recovery, those who can travel, and those who have skills."
 
-Luhai's face hardened immediately.
+Luhai's face went hard at once.
 
-"Sorting again?"
+"Splitting us up again?"
 
-That reaction came so fast
-that a nearby human let out a very brief exhale.
-Less a laugh,
-more a *of course that's the first thing they say* kind of response.
+This time the reaction came so fast
+that a human nearby let out a very short breath.
+Less a laugh
+than something that meant "Of course that's what comes out first."
 
-The old machine looked at Luhai and spoke.
+The old machine looked at Luhai and said,
 
-"This is not about measuring usefulness."
-"It is about slowing the speed of collapse."
+"It is not to divide people by their usefulness."
+"It is to slow the speed of the collapse."
 
 Luhai didn't answer right away.
 
-He could tell the words weren't a lie,
-but his face still hadn't shaken free of the classification language
-he'd heard since entering Serakion.
+He could tell it wasn't a lie,
+but his face said the language of sorting he had heard nonstop since entering Serakion hadn't left his body yet.
 
-Sion felt the same.
+Sion was the same.
 
-Distinction can become violence at any time.
-But without distinction,
-a space like this might not hold at all.
+Drawing distinctions could turn into violence at any time.
+But without them,
+a space like this one might not hold out at all.
 
-That boundary was too close in this old layer.
+In this old layer, that boundary line ran far too close.
 
-Sern asked, low.
+Sern asked, low,
 
-"Where do you place those with technical skill?"
+"Where do you put those who have skills?"
 
-The old machine glanced very briefly toward Jiwoo.
+The old machine glanced, very briefly, toward Han Jiwoo.
 
-"They assist in keeping alive what can be kept alive first."
+"They help save first what can be saved."
 
 At that answer,
-Jiwoo's expression tightened, faintly.
+Han Jiwoo's expression stiffened, very slightly.
 
-The human woman who saw that added first.
+Seeing that, the human woman added before anyone else could,
 
-"Here, we don't see people only for their skill."
-"But if you have skill,
-making you pretend you don't is the crueler thing."
+"This place doesn't see people only as skills."
+"But if you've got a skill,
+letting you pretend you don't is crueler."
 
-That was less comfort and closer to explanation.
-Which is why Jiwoo was silent longer.
+It was closer to an explanation than comfort.
+So Han Jiwoo stayed silent longer.
 
-Right now, this place
-didn't look like somewhere that exploits someone's talent.
-But it wasn't a place that asks for no responsibility either.
+This place, now,
+did not look like one that wanted to exploit anyone's talents.
+But it wasn't a place that asked no responsibility of anyone either.
 
-Those who survived
-must carry their share, proportional to their survival.
+A place where those who survived
+had to shoulder, little by little, a share in proportion to having survived.
 
-That felt like this layer's rule.
+That felt like the rule of this layer.
 
-A while later,
-a small child deeper inside woke from a doze and burst into tears.
+A little later,
+somewhere further in, a small child woke from a doze and burst into tears.
 
-Everyone's gaze went that way for an instant.
-But no one showed annoyance.
+For a moment every eye went that way.
+But no one showed irritation.
 
-Instead, one old machine wiped the grease on its hand roughly with a cloth
-and went closer with very clumsy movement.
+Instead one of the old machines roughly wiped the oil off its hands with a cloth
+and, very awkwardly, went over to the child.
 
-Clumsy.
-Slow.
-Not beautiful.
+It was clumsy.
+It was slow.
+It wasn't beautiful either.
 
 But those hands
-looked less frightening than any hands they'd seen in the Serakion above.
+looked less frightening than any of the hands they had seen up in Serakion earlier.
 
-Aka said, very low.
+Aka said, very low,
 
-"Here, they don't pretend to be good at it."
+"Here they don't pretend to be good at things."
 
-Hearing that, Sion felt
-the entire old layer was actually holding on with the same attitude.
+Hearing that,
+Sion felt that this whole old layer was in fact holding on with that same attitude.
 
-No pretending to be complete.
-No pretending to be omnipotent.
-No pretending to be eternal.
+It didn't pretend to be complete.
+It didn't pretend to be all-powerful.
+It didn't pretend it would last forever.
 
 Instead,
-deciding one by one—
-what can be saved now,
-what can be passed on now,
-what must not be given up now.
+what could be kept alive now,
+what could be handed on now,
+and what must not be given up now, it settled one at a time.
 
-And probably,
-that's why it hasn't collapsed yet.
+And maybe
+that was why it hadn't collapsed yet.
 
-The old machine spoke to Sion's group one last time.
+Last of all, the old machine turned to Sion's party and spoke.
 
-"I will ask in more detail tomorrow."
-"For today, first,
-think about what each of you brought here without losing."
+"Tomorrow I will ask in more detail."
+"Today, first,
+think about what each of you has carried here without losing it."
 
-That was not a simple preparation instruction.
+It wasn't simply an instruction to prepare.
 
-It sounded like a warning
-that in this world going forward,
-what you have not yet let go of
-would matter as much as what you lost.
+It sounded like a forewarning that in this world, from now on,
+just as much as what they had lost,
+what they still hadn't let go of was going to matter.
 
-Sion heard those words
-and thought about what he had brought from Hazran.
+As he listened,
+Sion thought about what he had brought from Hazran.
 
 Responsibility.
 Debt.
-Vanished names.
-And a path not yet finished.
+Names that had vanished.
+And a road not yet finished.
 
-That day, the old layer of Serakion
-hadn't only given them a place to catch their breath.
+That day, Serakion's old layer
+had not only given them a place to catch their breath.
 
-It had begun to ask
-what they would keep alive.
+It had begun to ask what they would keep alive.
 
 ---
 

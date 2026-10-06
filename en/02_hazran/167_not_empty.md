@@ -1,162 +1,225 @@
 # Episode 167. Not Empty
 
-After that day, the section where the androids stood inside the old layer became the quietest place and the place most grazed by gazes simultaneously.
+After that day,
+inside the old layer, the section where the androids stood
+became the quietest place and, at the same time, the place most eyes brushed past.
 
-No one stayed long. But no one could fully look away either.
+No one stayed long.
+But no one could look away completely either.
 
-The people from Hazran still detoured wide around it. Children hid behind adults at the mere sight from a distance.
+The people from Hazran still went the long way around it,
+and the children hid behind adults just from seeing it at a distance.
 
-But in the opposite direction, several of the old machines inside circled that section's vicinity more often than the day before.
+But the other way,
+a few of the old machines inside circled near that section more often than the day before.
 
-They did not approach. They did not touch. They simply passed by while pretending not to look, then looked one more time.
+They didn't approach.
+They didn't touch it.
+They only made a show of passing by,
+and took one more look.
 
-Sion found that repetition staying with him strangely long.
+That repetition stayed with Sion strangely long.
 
-The people avoided out of fear. The old machines seemed unable to approach for a reason slightly different from fear.
+The people kept away because they were afraid;
+the old machines seemed unable to go near for a reason a little different from fear.
 
-He did not yet know what to call that difference. But it was not the same reaction.
+He didn't know yet what to call that difference.
+But it wasn't the same reaction.
 
-Jiwoo did not speak much that day either.
+Han Jiwoo didn't say much that day either.
 
-Instead she watched longer than the day before. Not individual androids, but the spacing between them, and who moved faintly first and when.
+Instead she watched longer than the day before.
+Not each android one by one,
+but the spaces between them,
+and which one moved first, faintly, and when.
 
 Luhai asked from beside her, low.
 
-"What are you looking at so hard."
+"What are you looking at so hard?"
 
-"I do not know." Jiwoo said. "That is why I keep looking."
+"The part I can't figure out,"
+Han Jiwoo said.
+"So I end up looking more."
 
-The words sounded strangely less sharp than the day before, and a little more tired.
+Somehow the words sounded
+a little less sharp than the day before,
+and a little more tired.
 
-Not the voice of someone getting closer to an answer, but closer to someone who had become more certain the answer would not come easily.
+Not the voice of someone who had come closer to an answer,
+but closer to the voice of someone who now knew more surely that the answer would not come easily.
 
-Then one old machine inside passed the section entrance this time without stopping at all.
+Then one of the old machines inside,
+this time without stopping at all, passed in front of that section.
 
-Very slow. Pretending to pass. But clearly watching, from anyone's perspective.
+Very slowly.
+It pretended to be passing by,
+but anyone could see it was watching.
 
-The gaze axis of one android standing at the very back followed that machine, faintly.
+The gaze axis of one android standing at the very back
+followed the machine, very faintly.
 
-This time Sion saw it clearly. Sern saw it. Ater saw it.
+This time Sion saw it clearly too.
+Sern saw it,
+and Ater saw it.
 
-Luhai swallowed low.
+Luhai caught his breath, low.
 
-"It did it again."
+"It did that again."
 
-No one said "reflex" right away this time.
+This time no one was quick to say "reflex."
 
 That silence was different from the day before.
 
-If yesterday had been closer to not knowing, today was closer to refusing to insist carelessly.
+If the day before had been closer to not knowing,
+now it was closer to refusing to insist carelessly.
 
-One outside hand said it low.
+One of the outside hands spoke, low.
 
 "There is variance."
 
-It sounded like a brief report, but the word was different from yesterday.
+It sounded like a brief report,
+but the word was different from yesterday's.
 
-Yesterday it would have been called "error." Today it was called "variance."
+What it would have called "error" yesterday,
+today it called "variance."
 
-The time it takes for a single word to change — Sion felt it strangely large.
+The time it took for one word to change
+felt strangely large to Sion.
 
-Perhaps people always learn to see only after they change the words first.
+Perhaps people always worked that way,
+changing the words first and only then, barely, learning how to see.
 
-Jiwoo heard that and looked at the outside hand for the first time.
+Hearing that, Han Jiwoo looked at the outside hand for the first time.
 
-"Yes." She said it low. "That is how it should be said."
+"Right,"
+she said, low.
+"That's how you have to say it."
 
-The outside hand did not reply. But the optical eye paused, very briefly.
+The outside hand didn't answer.
+But its optical eye stopped, very briefly.
 
-Sion felt that was neither denial nor agreement — closer to a correction.
+To Sion it felt like neither denial nor agreement,
+but something closer to a correction.
 
-Then Sern opened his mouth very low.
+Then Sern spoke, very low.
 
-"The side that insists on emptiness is the one shaking first."
+"The side that insists they are empty is the one shaking first."
 
 Luhai looked at him.
 
 "Our side?"
 
-"Yes." Sern answered short. "Not that side. The judgment on our side, looking at them, is what is shaking first."
+"Yes,"
+Sern answered shortly.
+"Not that side,
+but the judgment on our side, the one looking at them, is what is shaking first."
 
 The words made everyone strangely quiet.
 
-The problem right now might not be what the androids were, but the habit on their own side of wanting to have already called them something.
+Maybe the problem now was less what the androids were
+than their own habit of wanting to have already named them something.
 
-Ater leaned against the far wall, watching the distance between the androids and the old machines.
+Ater stood off at a distance, leaning against the wall,
+watching the distance between the androids and the old machines.
 
-Then he said it low.
+Then he spoke, low.
 
 "They do not stop the same way."
 
-Jiwoo asked immediately.
+Han Jiwoo asked at once.
 
-"What does not."
+"What doesn't?"
 
-"The beat at which the old machines watch them." Ater said. "If it were only wariness, it would be simpler. But that is closer to stopping while seeing something besides wariness."
+"The beat at which the old machines stop to look at them,"
+Ater said.
+"If it were only wariness, it would have been simpler."
+"But this is closer
+to stopping because they see something besides wariness, too."
 
-The words were not long like commentary, and precisely because of that they lingered longer.
+It was not long, the way an explanation would be,
+and that was exactly why it stayed longer.
 
 What the old machines were watching might not be only a threat.
 
-Memory. Or some old, same grain that had been severed for so long they themselves could no longer be certain.
+Memory,
+or some old grain they once shared, cut off so long that now even they could not be sure of it.
 
-That possibility rose for the first time into the air, unspoken.
+For the first time that possibility
+rose into the air without becoming words.
 
-One woman from Hazran still could not come close to the section. But this time, glaring at the androids from a distance, she said in a very small voice.
+One woman from Hazran still couldn't come near the section.
+But this time, glaring at the androids from a distance,
+she spoke in a very small voice.
 
-"If those things really are not empty, then what have we been afraid of all this time."
+"If those things really aren't empty,
+then what have we been afraid of all this time?"
 
 No one could answer easily.
 
-Jiwoo heard it and said slowly.
+Hearing that, Han Jiwoo spoke slowly.
 
-"Maybe we have been using something not empty as though it were empty all along."
+"Maybe we've been using something that isn't empty
+as if it were empty, all along."
 
-Those words were aimed at the androids, yet simultaneously sounded aimed at the humans themselves.
+The words were aimed at the androids,
+and at the same time they sounded aimed at the humans themselves.
 
-In that moment, Sion dimly felt this fight would not end simply at breaking Serakion.
+In that moment,
+Sion dimly felt that this fight would not end simply with breaking Serakion.
 
-Even after that order was torn down, how people would look at those things again would remain.
+Even after that order fell,
+there would still be the question of how people would see those things again.
 
-That was probably already beginning right now.
+That had probably already begun, right now.
 
-Then hurried footsteps sounded from the outer corridor.
+Then hurried footsteps sounded from the outer passage.
 
-Human this time.
+Human ones, this time.
 
-A woman entered, catching her breath, and said it low.
+A woman came in, breathing hard, and spoke low.
 
-"A new circulation line opened above. Yesterday's change was not the end. The guide lines have started moving in two layers."
+"A new circulation line opened up top."
+"Yesterday's change wasn't the end of it.
+The guide lines have started moving in two layers."
 
-Seorin raised her head immediately.
+Seorin raised her head at once.
 
-Serakion was already making its next move.
+Serakion was already placing its next move.
 
-While this side stood hesitating, that side was tightening its order without hesitation.
+While this side stood still and hesitated,
+that side was drawing its order tighter, without hesitation.
 
-But strangely, Seorin did not look toward the androids right away upon hearing it.
+But strangely,
+when Seorin heard that, she didn't look to the androids right away.
 
-Instead she looked at Sion first. Then Jiwoo. Then the outside hands and the old machines, one by one.
+Instead she looked at Sion first,
+then at Han Jiwoo,
+then at the outside hands and the old machines, one after another.
 
-And said it low.
+Then she spoke, low.
 
-"Good. Then we need to move faster than that side now."
+"All right."
+"Then now we have to move faster than they do."
 
-Luhai asked immediately.
+Luhai asked right away.
 
 "With the androids?"
 
-Seorin shook her head briefly.
+Seorin gave a short shake of her head.
 
-"No. We need to decide faster whether to move with them at all."
+"No."
+"We have to get faster at deciding whether we take them at all."
 
-After those words, no one could easily continue.
+After that,
+no one could easily find the next thing to say.
 
-The problem was no longer simply whether to use them or not.
+Now the question was no longer simply whether to use them or not.
 
-The side that calls them empty. The side that bears the possibility of them not being empty to the end.
+The side that goes ahead and calls them empty,
+and the side that bears the possibility that they are not, to the end.
 
-Which side to take was becoming as important as how to break Serakion.
+Which of the two they would take
+was becoming as important as how to break Serakion.
 
 ---
 

@@ -1,201 +1,281 @@
-# Episode 10. Not Together, But Chased
+# Episode 10. So You Didn't Come Together
 
-Even before the door fully opened, the air inside was already different.
+Even before the door was fully open, the air inside was different.
 
-Old paper, damp wood, record preservation chemicals, dust, spices, and somewhere the smell of a freshly torn snack packet — all mixed together. It seemed blended without order, but strangely it was not the smell of rot. It was the scent particular to a space where discarded and deliberately kept things mingled — a place long lived-in but not yet fully dead.
+Old paper, damp wood, record-preservation chemicals, dust, spices, and from somewhere even a freshly torn packet of snacks, all mixed together. It seemed mixed with no order at all, but strangely it was not the smell of rot. It was the smell peculiar to a space where the discarded and the kept were jumbled together, a place that had lived a long time and still wasn't completely dead.
 
 The door opened more slowly than expected.
 
-Inside, storage shelves packed nearly to the ceiling stood dense. Old record cases, sealed boxes, damaged storage capsules, name-faded keepsake boxes, paper bundles, old electronic plates, and all manner of things whose sorting status was unclear — stacked in layers. It could pass for a civil servant's archive, a bankrupt pawnshop, or some wrongly built repository. Look closer, and some cases still bore erased route markings; some boxes had seal-failure traces hardened in place.
+Inside, storage shelves reaching almost to the ceiling stood packed close together. Old record cases, sealed boxes, broken storage capsules, keepsake boxes with faded names, bundles of paper, old electronic plates, and every sort of thing no one could say had been sorted or not, stacked tier on tier. It looked like a civil-service storeroom, or a pawnshop gone under, or an archive gone wrong somewhere. Look closely and some cases still carried erased route markings, and on some boxes the marks of a failed seal had hardened just as they were.
 
-In the center was a single narrow desk, and behind it sat Elia Vern.
+In the middle was one narrow desk, and behind it sat Elia Vern.
 
-She was holding a snack bag.
-She looked like someone interrupted mid-bite to glance at the door — yet strangely, her gaze had been steady from the start. A round, lived-in build, a comfortable shirt, an outer layer thrown on without care. At a glance, she looked lax. But separate from that laxness, it was far too obvious she was reading all four people at the door in a single pass.
+She had a bag of snacks in her hand.
+She looked like someone who had glanced at the door in the middle of eating, and yet strangely her gaze had been steady from the start. A round, lived-in build, a comfortable shirt, an outer layer thrown on any old way. At a glance she looked careless. But that carelessness aside, it was all too clear that she was reading the four people at the door in a single pass.
 
-Sion thought briefly to himself.
+Sion thought to himself.
 
 Same as ever.
 
-Ater, by contrast, felt something entirely different.
-She looked lax, but her gaze had not wandered once. This room was piled with that many things everywhere you looked, yet this person seemed the type who missed nothing. That was the strange part.
+Ater, on the other hand, felt something entirely different.
+She looked careless, but her gaze had not slipped once. So many things were piled up everywhere in the room, and yet this person seemed the kind who missed none of them. That, if anything, was what was strange.
 
-Elia did not even rise from her seat.
-Instead, with a snack still in her mouth, she swept the four in turn. Sion, Seorin, the unfamiliar man in the black coat, and the one like a shadow who read situations before words.
+Elia didn't even get up.
+Instead, with a snack in her mouth, she looked the four of them over in turn. Sion, Seorin, the strange man in the black coat, and one more, like a shadow, who read the situation before he spoke.
 
-And said, perfectly calm.
+And she said, quite calmly,
 
-"This time you really bit off something big."
+"This time you really bit into something big."
 
-Short silence.
+A short silence.
 
-She set the snack bag on the desk and added.
+She put the snack bag down on the desk and added,
 
-"You didn't come together. You were chased together."
+"So you didn't come together. You got chased here together."
 
-At that, the uncomfortable air that had carried over from the cabin split thin once more.
+At that, the uncomfortable air that had followed them from the cabin split thin once more.
 
-Seorin almost laughed first.
+Seorin nearly laughed first.
 
-"Nice. Reads it the instant we walk in."
+"You read that the second we walk in."
 
 Elia shrugged.
 
-"Easy. People who came together don't stand like that at the door."
+"Easy.
+People who came together don't stand at a door like that."
 
 She pointed her chin toward the threshold.
 
-"One's ready to enter first. One's watching where that person will get hit. One's half-convinced at best about why he's here. And the last one's calculating the exit before even stepping in."
+"One's all set to be first in, one's watching the spot where that guy's going to take the first hit, one's got the face of somebody only half convinced why he has to be here, and the last one's been working out the way out since before he stepped in."
 
-Sern's gaze shifted, barely perceptibly.
-Ater was also silent.
-Neither was pleased that the owner of this space had read them so quickly.
+The look in Sern's eyes changed, very faintly.
+Ater said nothing either.
+Neither of them welcomed the fact that the owner of the space they had just entered had read them so quickly.
 
-Sion stepped one pace inside with a smirk.
+Sion huffed a laugh and took one step inside.
 
 "Good to see you, Elia."
 
 "That's my line."
-Elia answered immediately.
-"It's never been good to see you when you show up here."
+Elia answered straight off.
+"Whenever you come here, it's hardly ever good to see you."
 
-"Harsh."
+"That's harsh."
 
-"True."
+"It's true."
 
-Seorin murmured as she closed the door.
+Seorin muttered as she closed the door.
 
-"Nice. Most normal atmosphere all day."
+"Most normal mood we've had all day."
 
-Elia laughed briefly at that, then finally shifted her gaze to Ater.
-A face she'd never seen, yet her reaction was not unfamiliarity — closer to classification complete. A closing-type person, an authority-type person — but one who had already been shaken once inside.
+Elia laughed at that, then finally moved her eyes to Ater.
+It was a face she had never seen, and yet her look was less a reaction to a stranger than a face that had finished sorting him. One of the closing side, one of the authority side, and yet someone who had already been shaken once, inside.
 
 "What's that one."
 
-The question went to Sion, but the tone was neither fully confrontational nor fully polite. The thin distance held toward a person not yet fully classified.
+The question went to Sion, but her tone was neither quite picking a fight nor quite polite. Just the thin distance you keep from someone you haven't finished sorting.
 
-Sion tilted his shoulder.
+Sion tipped a shoulder.
 
-"A necessary person, for now."
+"Someone we need, for now."
 
-"Which means a troublesome person."
+"Which means someone who's trouble."
 
-"This time, quite a lot."
+"A lot of it, this time."
 
-Elia looked at Ater a moment longer, then moved her eyes to Sern.
+Elia looked at Ater a little longer, then moved her eyes to Sern this time.
 
-"And that one's the more troublesome person attached to the necessary person."
+"And that one's the even bigger trouble attached to the one you need."
 
-Sern responded, very low.
+Sern answered, very low.
 
-"Accurate."
+"That is accurate."
 
-"Thanks. I'm always accurate."
+"Thanks.
+I'm always accurate."
 
-Ater heard the exchange but did not cut in.
-Instead he scanned the room once more. This space looked lax, but in truth nothing was piled arbitrarily. There were movement paths, there was distance-sense, and what was placed within reach and what was not — all calculated. It was only what the Empire would call disorder. It was not a space without order.
+Ater heard the exchange and still didn't cut in right away.
+Instead he swept the room once more. The space looked careless, but in fact nothing had been piled up any which way. There were paths, there were distances, and how much was left within reach, and where, had been worked out. It was only a way the Empire would call disorder; it was not a space without order.
 
-Elia did not miss that gaze.
+One wall especially.
 
-"First time here."
+Only there were the boxes not lying flat but standing. They were every size and every material, and yet the gaps between them were all the same. Wide enough for one hand. And on the front of each box a single sheet of paper was tucked, and most of the sheets were blank.
+
+Ater moved half a step toward it.
+
+They were not empty, exactly. Nor had something been written there and then erased. They were spaces that had never been written in at all.
+
+"Those don't have names yet."
+
+Elia said it from her seat. She didn't even turn her head.
+
+"Things someone left and did not come back for?"
+
+"Couldn't come back for."
+
+"Is there a difference?"
+
+"A big one."
+
+Sion laughed. Something he'd said himself today had come straight back around.
+
+Elia picked the snack bag up again.
+
+"Didn't come back for means thrown away. Couldn't come back for means still left. Everything over there is the second kind. So I don't fill in the name spaces. If I fill them in, then I'm the one deciding."
+
+Ater read that sentence over once more, inside.
+
+The Empire Approval Bureau does the opposite. An object whose owner cannot be confirmed is sorted first, and the sorting becomes its name. Even if that name is wrong, the record remains. Things named that way are what come down to Sion's dock now.
+
+Here, leaving it unfilled was the courtesy.
+
+Elia didn't miss that look.
+
+"You're new here."
 
 Only then did Ater look at her.
 
-"It is."
+"I am."
 
-"Shows."
+"It shows."
 
-"Does it."
+"Does it look that way?"
 
-Elia smirked.
+Elia huffed a laugh.
 
-"Yeah. You're looking at this like a warehouse, but at the same time your face says you know it's not just a warehouse."
+"Yeah.
+You're looking at this place like a warehouse, and at the same time not like just a warehouse."
 
-A brief silence followed.
+After that, a moment's silence passed.
 
-Sion did not let the gap pass — he drew the fragment from inside his coat.
-Burned, severed, carved-out record plate fragments. What had remained, in the end, from the dead archivist's place.
+Sion didn't let the gap go; he took the fragment out from inside his coat.
+A piece of record panel, burned, cut, carved out. What had stubbornly remained where the archivist died.
 
-The instant Elia's gaze touched the fragment, the room's air sank, faintly.
-This time it was truly the eyes of someone reading.
+The moment Elia's eyes touched the fragment, the air in the room settled, very slightly.
+This time they were the eyes of someone really reading.
 
-She reached out her hand but did not take it immediately.
+She held out her hand but did not take it right away.
 
-"How much did you see."
+"How much of it did you see?"
 
-Sion answered short.
+Sion answered.
 
 "Down to the name."
 
-Elia's gaze deepened, just slightly.
+Elia's eyes deepened, just a little.
 
-"Nice. Then all of you are name-bound now."
+"Great.
+So now all of you have your names on the line."
 
-Seorin said with her arms crossed.
+Seorin said it with her arms folded.
 
-"That's exactly the state we're in. That's why we came."
+"That's the state we were already in. That's why we came."
 
 "I saw."
-Elia answered dry.
+Elia answered, dry.
 "From the doorstep."
 
 Only then did she take the fragment.
-Her handling was neither careful nor rough. The distance particular to someone who had touched such things for a long time. Neither too precious in the holding, nor careless.
+Her hands were neither careful nor rough. It was the distance peculiar to someone who had handled things like this for a long time. Not holding it as too precious, not handling it carelessly either.
 
-She turned the fragment once, held it to the light, lightly scraped the cut cross-section with her thumbnail, then murmured very low.
+Elia turned the fragment over once, held it to the light, scratched lightly at the cut face with a fingernail, then murmured, very low.
 
 "This is…"
 
-Sion held his breath without meaning to.
-Seorin too was silent.
-Sern was watching the movement of Elia's fingertips; Ater, even more quietly, was watching her face.
+Without meaning to, Sion held his breath.
+Seorin said nothing either.
+Sern was watching the movement of Elia's fingertips, and Ater, more quietly still, was watching her face.
 
-Elia spoke without taking her eyes from the fragment.
+Elia spoke without taking her eyes off the fragment.
 
-"It wasn't erased. It just couldn't be finished."
+"It's not that somebody erased it. It's that they never managed to erase all of it."
 
-That single line changed the grain of the fragment they had only been holding in their hands until now — changed it completely.
+With that one remark, the grain of the fragment they had only been holding until now changed completely.
 
 Sion asked, very slowly.
 
 "Can you see it?"
 
-Instead of answering, Elia tilted the fragment to the light again.
-The fire-killed edge, the carved cross-section, the remaining name-fragment, and beneath it — one faint line still remaining.
+Instead of answering, Elia tilted the fragment toward the light again.
+The edge the fire had killed, the carved-out cut face, the bit of name that remained, and below it, one faint line still left.
 
-"The name being left is what catches the eye first."
-She said low.
-"But the truly strange thing isn't that."
+"The name being left is what catches your eye first,"
+she said, low.
+"But that's not what's really strange."
 
-Ater stepped one pace closer for the first time.
+For the first time, Ater stepped closer.
 
-Elia paid no mind to his movement, tapping the cut section below the fragment with her fingertip.
+Elia paid that movement no mind either, and tapped the cut place at the bottom of the fragment with her fingertip.
 
 "Here."
 
-Short silence.
+A short silence.
 
-And she said, perfectly calm.
+Then she said, quite calmly,
 
 "What died before the name was the sequence."
 
-The instant those words fell, all four felt — dimly — that they had stepped onto an entirely different threshold than moments before.
+Sern was the first to react.
 
-Elia added, still not taking her eyes from the fragment.
+"When the sequence dies, the verdict changes."
 
-"The verdict was left behind. But the hesitation before and after it — all of that was carved away."
-She scraped the cut cross-section once more with her thumbnail.
-"This isn't just a fragment that broke off. It's closer to something deliberately divided and left — so that it could not all pass at once."
+When he said it, the three in the room looked at him at once. It was a sentence from the archivist's last recording, and Sern had heard it once and kept it exactly as it was.
 
-For a long time, no one in that room spoke.
-Now everyone understood.
-This was not the problem of a single dead archivist, nor the problem of a single erased name alone.
+Elia raised her head for the first time.
 
-Elia rested her fingertip on the fragment and swept her gaze over the four, one by one.
-A different silence than before.
-No one had yet spoken the next question aloud — but everyone knew, in this silence, that someone would eventually have to ask it.
+"You're saying the dead archivist said that."
 
-## And in that moment, the work of reclaiming an erased name began, for the first time, to look like the work of touching an entirely different world.
+"Yes. It broke off twice, but it came out in that order."
+
+Elia said nothing for a moment. The hand holding the snack bag had stopped above the desk, and that posture was nothing like the person who had read all four of them at once at the door.
+
+"…Then he died knowing."
+
+"What does that mean?"
+
+"That he knew what he was holding."
+
+Elia looked down at the fragment again.
+
+"This was burned in parts. Somebody who doesn't know burns in a hurry, and somebody who knows burns in parts. That's been bothering me since earlier, and now I get it."
+
+Still without taking her eyes off the fragment, Elia added,
+
+"The verdict got left, but all the hesitation before and after it got carved out."
+She scratched the cut face once more with a fingernail.
+"This isn't just a piece that broke off. It's closer to something that couldn't be allowed to go across all at once, split up and left that way on purpose."
+
+For a while there was no word at all in that room.
+
+With her fingertips resting on the fragment, Elia looked over the four of them once, one by one. It wasn't the look that had read the four of them at the door. This time she wasn't reading anything; it was a look deciding whether to ask or not.
+
+The first to speak was Ater.
+
+"There is one thing I would like to confirm."
+
+"Go on."
+
+"If someone left the verdict and carved out only the sequence before and after it, then they were not trying to erase the verdict."
+
+"Right."
+
+"They were trying to keep it. While keeping anything else from being seen."
+
+Elia looked at him a long while.
+
+"You said this was your first time."
+
+"It is my first time."
+
+"Then why are you already asking that."
+
+Ater did not answer. To answer, he would first have had to say what papers he had closed at the Bureau, and how many times.
+
+Elia put the fragment down on the desk. Her hand was far more careful than when she had put down the snack bag earlier.
+
+"So which of you is asking the next question?"
+
+No one did.
 
 ---
 

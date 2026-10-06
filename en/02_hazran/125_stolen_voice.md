@@ -1,224 +1,223 @@
-# Episode 125. Stolen Voice
+# Episode 125. Help from a Stolen Voice
 
-When the left corridor opened,
-Sion's group didn't even have time to judge whether it was a trap or help.
+When the left passage opened,
+Sion's party had no time even to judge whether it was a trap or help.
 
-The people from Hazran were already half-split.
-The wounded were being pushed apart.
-Children were on the verge of crying from fear.
+The people from Hazran were already half split apart,
+the injured were being pushed off to one side,
+and the children were frightened to the edge of tears.
 
-What was needed now wasn't certainty—it was direction.
+What they needed now was not certainty but a direction.
 
-Ater turned his body first.
+Ater was the first to turn.
 
-"Wounded first."
-He said, low.
+"The injured first,"
+he said, low.
 
-Kael moved immediately.
-Luhai went to the old woman who was trying not to lose her child.
-Seorin bound the scattering people back together, short and rough.
+Kael moved at once,
+Luhai went to an old woman who was trying not to lose hold of a child,
+and Seorin pulled the people who were starting to scatter back together, short and rough.
 
-Sion looked at that machine once more.
+For an instant Sion looked at that machine again.
 
-The exterior was still a Serakion guide machine.
-But the voice inside it was not.
+On the outside it was still a Serakion guide machine.
+But the voice that had come into it was not.
 
-Not smooth.
-Not performing completion.
-Above all, a voice that was pulling people out before there was time to explain.
+It was not smooth,
+it did not pretend to be finished,
+and above all it was a voice that wanted people out before there was time to explain.
 
-"Hurry."
-The machine said again, low.
+"Hurry,"
+the machine said again, low.
 "When the next alignment comes in, this closes."
 
-Sern read surrounding signals almost simultaneously.
+Almost at the same moment, Sern read the surrounding signals.
 
-"It's real."
-He said, brief.
-"Only this line is clear right now."
+"It is real,"
+he said briefly.
+"Only this line is empty right now."
 
-Jiwoo, still not fully trusting, braced one evacuee's shoulder and asked.
+Han Jiwoo, still not fully trusting it,
+braced one refugee's shoulder and asked.
 
 "Who are you."
 
-The machine turned its head, very faintly.
+The machine turned its head very slightly.
 
-"That is not important right now."
+"That does not matter right now."
 After those words,
 a very brief burst of static mixed in.
 "Getting out alive comes first."
 
 That one sentence
-sounded even stranger.
+sounded stranger still.
 
-Too rough for this world's machines.
-Too urgent.
-Too alive in its phrasing.
+For the machines of that world it was too rough,
+too hurried,
+too alive a way of speaking.
 
-Sion was certain then.
+Only then was Sion sure.
 
-At the very least, this one
-was a different grain from the ones that first received them.
+At the very least, that one
+had a different grain from the ones that had first received them.
 
-The corridor inside was darker than outside.
+Inside, the passage was darker than outside.
 But strangely,
-the crisp gloss typical of Serakion was actually less.
+the straight, even sheen peculiar to Serakion was weaker here.
 
-Not that light was lacking—
-more like a corridor that had been routed deliberately through surfaces that weren't well-polished.
+It wasn't that there was too little light;
+it was a passage that seemed to have been cut deliberately away from the well-finished surfaces.
 
-Jiwoo brushed past a wall
-and noticed one very small scratch.
+As Han Jiwoo brushed past the wall,
+she saw one very small scratch.
 
-A truly insignificant mark.
-But that trivial scratch,
-inside this perfect world, felt even more uncanny.
+It was a truly trivial mark.
+But that one petty scratch,
+inside this perfect world, felt all the more uncanny.
 
-Aka saw it and said, very low.
+Aka saw it and spoke, very low.
 
-"A hidden path."
+"It's a hiding path."
 
 Sion looked at her.
 
-Aka kept looking ahead and added.
+Aka kept her eyes ahead and added,
 
-"Not a place that was shown.
-A place that was left."
+"Not a place that's been shown.
+A place that's been left."
 
-That was precise too.
+That was accurate too.
 
-This corridor wasn't a path officially left open.
-It looked like it had been made by connecting
-the gaps Serakion paid less attention to,
-or the places it no longer bothered to keep beautiful.
+The passage looked less like a way left open officially
+than like a path pieced together out of gaps Serakion paid less attention to,
+or places it no longer kept beautiful.
 
-Luhai, bracing a gasping evacuee, swallowed a low curse.
+Luhai, holding up a refugee who was gasping for breath, swallowed a low curse.
 
-"They're helping, sure,
-but the feeling is filthy unsettling."
+"Sure, it's helping,
+but it feels damn unsettling."
 
-Seorin took it immediately.
+Seorin picked it up at once.
 
-"The most trustworthy thing in Serakion
-being a machine wearing Serakion's face inside-out—that's the filthy part."
+"That the most trustworthy thing in Serakion
+is a machine wearing a Serakion face, that's what's filthy about it."
 
-The machine that had opened the path said nothing to that.
-But after a moment,
-without turning around, it spoke low.
+At that,
+the machine that had first opened the way gave no reply.
+But a moment later,
+without even looking back, it spoke low.
 
 "That is a normal reaction."
 
-Luhai let out a breath of disbelief.
+Luhai let out a disbelieving breath.
 
-"Saying that in the middle of all this."
+"It's saying that kind of thing, now of all times."
 
-"I am used to it."
-The machine said.
+"I am used to it,"
+the machine said.
 
-A short silence.
+A brief silence.
 
-Those words, strangely,
-said more than they should have.
+Strangely, those words
+told them more, not less.
 
-This machine wasn't saving humans for the first time.
-This distrust.
-These reactions.
-It had likely been through them multiple times already.
+This machine was not rescuing humans for the first time.
+This kind of distrust,
+this kind of reaction,
+it had very likely been through many times already.
 
-Sern kept reading surrounding signals,
-then said very low.
+Sern kept reading the surrounding signals,
+then said, very low,
 
-"Tracking is reattaching."
+"Tracking has locked on again."
 
-"How long."
+"How long will it hold?"
 Ater asked.
 
-"Can't go far."
-Sern answered, brief.
-"Can't keep fooling them with the same face."
+"It will not hold for long,"
+Sern answered briefly.
+"The same face cannot keep deceiving them."
 
-When those words fell,
-the machine that had opened the path made a very brief sound that was almost like a laugh.
+As those words fell,
+the machine that had opened the way made, for the first time, a very brief noise that sounded like a laugh.
 
-Less a laugh
-and closer to a worn circuit somewhere trembling for an instant.
+It was less a laugh
+than the sound of some worn circuit trembling for a moment.
 
-"I never planned to fool them for long."
-It said.
+"I never meant to deceive them for long,"
+it said.
 
-The moment those words ended,
-Jiwoo looked at that machine again.
+The moment it finished speaking,
+Han Jiwoo looked at the machine again.
 
-The exterior was still Serakion-smooth.
+The outside was still smooth in the Serakion way.
 But the inside wasn't.
 
-The speech patterns said so.
-The urgent priorities said so.
-Above all, the first command—*take the wounded and go*—said so.
+Its way of speaking said so,
+its urgent priorities said so,
+and above all its first order, to take the injured first and go, said so.
 
-This was not a machine on the side that classifies people.
-This was a machine on the side that tries, first of all, not to let people be separated.
+That was not a machine on the side that sorts people,
+but one on the side that tries, before anything else, not to let them be torn apart.
 
-That difference was vast.
+The difference was enormous.
 
-As the corridor's end approached,
-Serakion's cold, straight light diminished gradually.
-Instead, the smell of old metal
-and the faint temperature of aged machines—something impossible to encounter on the surface of this world—
-began mixing in, very faintly.
+The closer they came to the end of the passage,
+the more the cold, straight light peculiar to Serakion thinned out.
+In its place came the smell of old metal,
+and, very faintly, the warmth of worn machines, something they had scarcely been able to sense anywhere else in this world, mixing in.
 
-Jiwoo slowed her steps for just an instant without realizing.
+Without meaning to, Han Jiwoo slowed her step for just a moment.
 
-Sion saw it immediately.
+Sion saw it at once.
 
-"What."
+"What is it?"
 
-Jiwoo didn't answer right away.
+Han Jiwoo didn't answer right away.
 
-She drew one more breath, as if catching that faint scent again.
+She drew a breath as if to catch that faint smell once more.
 
-The smell of metal that had broken and held on.
-The smell of machines that haven't been polished too well—and lie less because of it.
+The smell of metal that had been broken and had held on.
+The smell of machines not polished too well, and so lying less.
 
-And she said, very low.
+Then she spoke, very low.
 
 "For the first time…"
-She paused, then continued.
-"Since coming here, something feels like the living side."
+she stopped, then went on.
+"since we got here, this feels like the side that's alive."
 
-Aka heard that
-and closed her eyes for the briefest moment.
+Aka heard it
+and closed her eyes for just a moment.
 
-Then said, almost in a whisper.
+Then she said, almost in a whisper,
 
 "Yeah."
-"This side imitates less."
+"This side does less imitating."
 
-That sentence was short,
-but sounded like the line that divides all of Serakion.
+The sentence was short,
+but it sounded like a standard that divided all of Serakion.
 
-The machine opening the path ahead gave no more explanations.
+The machine opening the way ahead offered no more explanation.
 
-It didn't demand trust.
-Didn't ask for gratitude.
-Didn't reveal its identity first.
+It did not demand to be trusted,
+did not ask for thanks,
+did not reveal what it was first.
 
 It simply
-held the people who had been about to be split apart in one group
-and was rushing them through the gaps of this completed world.
+kept the people who had been on the verge of being split apart bound together in one mass
+and hurried them through the gaps of this finished world.
 
-Sion watched its back and thought.
+Watching its back, Sion thought.
 
-The first different machine they met inside Serakion
+The first different machine they had met inside Serakion
 had appeared in the least Serakion way possible.
 
-With a stolen voice.
-Wearing another's face.
-Pulling people out before explaining.
+With a stolen voice,
+wearing someone else's face,
+getting people out before explaining anything.
 
-And that one strange method of appearance alone
-made it clear that inside this world,
-there were still other layers not yet revealed.
+And that strange way of appearing alone
+made it clear that inside this world there was another layer not yet revealed.
 
 ---
 

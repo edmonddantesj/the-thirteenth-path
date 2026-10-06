@@ -1,114 +1,341 @@
 # Chapitre 99 — L'instant avant que quelque chose ne rompe enfin
 
-La vitesse était déjà proche de sa limite.
+À côté de la courte rayure gravée sur le tableau, Sion traça un cinquième trait.
 
-Après l'ordre de Zahir de préparer le quatrième groupe, l'intérieur de Hazran devint plus rapide, et c'est précisément pour cela que tout devint plus instable.
+Une heure.
 
-Sion le savait avant de le voir.
+Cette fois, il ne l'avait pas laissée filer. Parce qu'il l'avait gravée sur le tableau, il ne l'avait pas laissée filer. Il ne savait pas si c'était une bonne ou une mauvaise chose.
 
-Une ligne devenue trop rapide sonne différemment lorsqu'elle tremble. Le rythme des pas dans le sable se désynchronise. Le bruit des jambes du brancard raclant le bord de la rampe métallique se fait plus rugueux. Les apnées de quelqu'un deviennent plus courtes.
+Sion courut vers le couloir.
 
-Cela signifiait qu'un faux pas d'une seule personne pouvait tout faire s'effondrer.
+En chemin, il passa par l'endroit qu'avait laissé vide la cinquième file. Là où vingt personnes avaient disparu, cela ne se voyait pas. Il en restait encore cent huit.
 
-À l'avant de la quatrième ligne, quelque chose comme cela faillit se produire.
+Six voyages.
 
-Un homme qui tenait un blessé commit une erreur parce que celui devant lui s'était rapproché trop vite. L'extrémité du brancard s'inclina une fois. Quelqu'un qui les suivait tendit la main par réflexe, et toute la file faillit faire une embardée latérale.
+Tout en courant, Sion fit rouler ce chiffre dans sa tête. En six voyages, les cent huit seraient tous partis. Pour cela, le couloir devait tenir encore six fois.
 
-Sion s'y jeta.
+Il le vit en arrivant. Le couloir de droite n'était plus comme tout à l'heure.
 
-« Arrêtez ! » cria-t-il. « Arrêtez-vous maintenant ! »
+Sern s'était plaqué au-dessus d'une chose noire renversée. Ater surveillait l'angle en dessous. L'endroit où ils se tenaient tous les deux était celui où, tout à l'heure, Haroun se tenait seul.
 
-Nassim cria presque en même temps.
+Haroun était trois pas plus loin à l'intérieur.
 
-« Une section à la fois ! »
+Un endroit plus étroit. La largeur d'une seule personne. Cette largeur que Sern mesurait de la main avant le départ de Kael.
 
-Seorin soutint la civière par le bas avec son pied, plaquant le corps presque renversé contre la balustrade latérale de la coque. Luhai poussa la personne derrière avec ses deux paumes contre la poitrine, l'empêchant de se pencher davantage en avant.
+Qui se tenait là ne pouvait être aidé par personne depuis l'arrière. Une seule largeur, donc une seule personne pour y entrer. Sion comprit seulement maintenant que cela valait aussi pour celui qui bloquait.
 
-Une seule fois, de justesse, une grande bascule fut évitée.
+« Haroun. »
 
-Mais durant ces quelques secondes, la ligne de front droite s'amincit encore.
+« Te voilà ? »
 
-Haroun utilisait à peine son bras ensanglanté désormais. Le mouvement de Sern restait court et précis, mais nettement plus poussif. Ater avait réduit davantage ses mots — non pas parce qu'il y avait plus de place, mais parce que le tableau s'était rétréci au point où même les espaces pour parler devaient être préservés.
+À cette réponse, Sion s'arrêta net.
+
+Jusqu'ici, quand Sion arrivait, cet homme demandait “quoi” sans se retourner. Il n'avait jamais dit “te voilà”.
+
+« Ça fait une heure. »
+
+« Défais-le. »
+
+« Pardon ? »
+
+« Défais-le, j'ai dit. »
+
+La main de Sion ne se leva pas. Les deux fois précédentes, Haroun avait répondu “pas encore”. Les deux fois, il avait fallu se battre pour enfin le défaire.
+
+« Pourquoi vous voulez que je le défasse tout de suite, cette fois ? »
+
+« Vite. »
+
+Sion posa la main sur le nœud.
+
+Il se défit plus facilement que tout à l'heure. Le tissu était trempé et glissait. Ce qui résistait tant quand on serrait le nœud cédait sans peine dès qu'on le défaisait.
+
+« Tenez bien. »
+
+« Quoi ? »
+
+« Les débris. Il ne faut pas que vous les lâchiez. »
+
+Haroun reprit les débris de la main droite. Il ne tendit vers Sion que le bras gauche. L'angle était maladroit. Le bras ne tournait pas depuis le coude ; il le fit pivoter avec toute l'épaule.
+
+Le nœud céda.
+
+Le sang ne vint pas.
+
+Sion regarda l'endroit. Tout à l'heure, le sang était descendu jusqu'au dos de la main. Cette fois, il ne faisait que suinter lentement au fond de la plaie.
+
+« On dirait que ça s'est arrêté. »
+
+Haroun ne dit rien.
+
+« Ça s'est bien arrêté, hein ? »
+
+« Ater. »
+Haroun l'avait appelé.
+
+Ater répondit sans quitter l'angle des yeux.
+
+« J'ai entendu. »
+
+« Dis-le-lui. »
+
+Ater se tut un instant, puis parla.
+
+« Le sang coule moins quand une plaie guérit, et aussi quand les choses tournent mal. »
+
+« Et là ? »
+Ce fut Sion qui posa la question.
+
+« Là, c'est le second cas. »
+
+Il fallut à Sion un demi-temps pour comprendre ces mots.
+
+Quand il eut compris, il regarda la main de Haroun.
+
+Le dessous des ongles était sombre. Les doigts, à demi repliés, ne se dépliaient plus. Sion appuya du doigt sur le dos de cette main. L'endroit pressé blanchit, puis ne reprit pas sa couleur.
+
+Pendant qu'on le pressait, Haroun n'émit pas un son.
+
+« Vous sentez quelque chose ? »
+
+« Quoi ? »
+
+Sion ne reposa pas la question.
+
+« Pourquoi, cette fois, vous m'avez dit de le défaire tout de suite ? »
+
+Haroun répondit sans quitter l'avant des yeux.
+
+« Pour que tu voies. »
+
+« Que je voie quoi ? »
+
+« Ça. »
+
+Sion regarda de nouveau cette main. Trois doigts repliés qui ne se dépliaient plus, et un dos de main où la marque de la pression ne s'effaçait pas.
+
+« Et une fois que j'ai vu ? »
+
+« Alors tu n'auras plus besoin de venir. »
+
+« C'est vous qui m'avez dit de venir. »
+
+« Maintenant, tu n'as plus besoin. »
+
+Sion comprit ce que cela voulait dire. Et parce qu'il le comprenait, la colère monta.
+
+« Et le bras, alors ? »
+
+« Pour le bras, c'est déjà décidé. »
+
+« Ça dure depuis combien de temps ? »
+
+« Une heure. »
+
+« Pas ça. Depuis le début. »
+
+Haroun regarda enfin Sion.
+
+« Combien ? »
+
+Sion avait préparé sa réponse. Il l'avait préparée tout le long du chemin. Mais une fois la question posée, rien ne sortit.
+
+« … Je ne sais pas. »
+
+« Tu ne sais pas ? »
+
+« Je l'ai laissée filer, une fois. »
+
+L'avoir dit rendait les choses pires. “Laisser filer” sonnait plus léger que “perdre”, mais ce qui avait été perdu n'était pas à lui.
+
+« Tu en as laissé filer combien ? »
+
+« Ça non plus, je ne sais pas. »
+
+À cette réponse, Haroun retourna la tête vers le couloir.
+
+« Laisse tomber. »
+
+« Je ne laisse pas tomber. »
+
+« Laisse tomber, j'ai dit. »
+
+« Si je savais combien… »
+
+« Et si tu savais, tu ferais quoi ? »
+
+« Je t'avais dit de ne pas compter. »
+C'était toujours Haroun.
+
+« Ça, c'était pour le nombre de voyages qui restaient. »
+
+« C'est la même chose. »
+
+Sion comprit seulement alors pourquoi c'était la même chose.
+
+Qu'on compte combien de fois on pourra encore tenir, ou combien d'heures il reste au bras, une fois qu'on a compté, on sait quand viendra la dernière. Cet homme avait dit que, quand on le sait, les mains changent.
+
+« Rattache-le. »
+
+Sion enroula de nouveau le tissu. Deux tours, puis le nœud. Cette fois, il réussit du premier coup.
+
+« C'est fait. »
+
+« Une heure. »
+
+« Encore ? »
+
+« Encore. »
+
+À ces mots, Sion regarda du côté du tableau. D'ici, on ne le voyait pas.
+
+« Cette fois, je ne la laisserai pas filer. »
+
+« Tu peux la laisser filer. »
+
+« Pardon ? »
+
+« Si tu ne laisses rien filer, c'est toi qui sauras tout. »
+
+« Je n'ai pas le droit de savoir ? »
+
+Haroun resta un instant silencieux avant de répondre.
+
+« Si tu sais, il faudra que tu l'emportes. »
+
+Sion ne comprit pas ce que cela voulait dire.
+
+Il ne comprenait pas, et pourtant un froid lui parcourut le dos.
+
+« Où ça ? »
+
+« Sur le vaisseau. »
+
+Sion resta là sans pouvoir dire un mot.
+
+Jusqu'ici, quand cet homme parlait du vaisseau, il ne séparait pas ceux qui partaient de ceux qui restaient. Il venait de le faire. Et il avait placé Sion du côté de ceux qui partaient.
+
+« Moi, je… »
+
+« Va. »
+
+« Je n'ai pas fini de… »
+
+« Regarde la file. »
+
+Sion ne bougea pas.
+
+Haroun n'en dit pas davantage. À la place, il raffermit une fois sa prise sur les débris, de la main droite. Le bras gauche restait collé contre son corps.
+
+Sion resta un moment à côté de lui.
+
+Là-haut, Sern trancha quelque chose. Un son bref et aigu. Un son qu'on n'entendait pas tout à l'heure, quand il prenait deux temps. Maintenant, il tranchait en un seul.
+
+« Sern, ça va ? »
+
+« Non. »
+Sern répondit d'un mot.
+
+Ce fut tout. Cet homme qui répondait toujours que ça allait quand on le lui demandait venait de dire non et de passer à autre chose. Il n'avait plus le souffle pour une vraie réponse.
+
+Ater parla brièvement.
 
 « En haut. »
 
+Sern leva les yeux.
+
 « Maintenant. »
 
-« Retour. »
+Sern s'engagea.
 
-Trois mots suffisaient.
+« En arrière. »
 
-Mais si ces trois-là arrivent en retard, quelqu'un meurt ici immédiatement.
+Sern se retira.
 
-Le couloir de gauche était pareil.
+Trois mots. Sion se souvint que cet homme parlait d'ordinaire par phrases entières. À présent, il ne sortait plus qu'un mot à la fois.
 
-Kael tint, avec une main réaffectée à la hâte, pendant un temps presque incroyable, mais l'une des deux barrières basses qu'il avait érigées était déjà à moitié morte. Lorsque la plaque de métal résonna à nouveau fort, Kael expira brièvement.
+Sion sut alors, avec son corps, qu'il ne restait plus grand-chose à aucun des trois.
 
-« Je ne peux pas prendre le suivant. »
+« Ater. »
 
-Au moment où Sion entendit cela, son coeur se serra plus fort.
+« Oui. »
 
-La droite : Haroun qui tient en saignant. La gauche : Kael qui dit avoir atteint sa limite. Et la ligne devant la coque : impossible de s'arrêter.
+« Pourquoi ils n'arrêtent pas de frapper en haut ? »
 
-Zahir ne changea presque pas d'expression.
+Pour la première fois, Ater détacha les yeux de son angle.
 
-Aux yeux de Sion, il avait l'air moins froid que d'un homme qui avait observé jusqu'au bout.
+« Je ne sais pas. »
 
-Où cela se brisera en premier. Qui envoyer ensuite. Et après, qui faudra-t-il laisser.
+« Comment ça, tu ne sais pas ? »
 
-Un visage qui pense déjà à ces choses-là.
+« Jusqu'ici, ils n'avaient jamais frappé là-haut. »
 
-Le simple fait de voir ce visage glaça la poitrine de Sion.
+Puis il revint à son angle.
 
-Jiwoo, à l'entrée de la coque, juste avant de recevoir le quatrième groupe, serra vraiment la mâchoire cette fois.
+Sion garda cette réponse avec lui. Quelque chose accrochait, mais il ne savait pas quoi.
 
-« Un effondrement de plus et je ne peux plus les recevoir, » dit-elle à mi-voix.
+« Tu es encore là. »
+Haroun l'avait remarqué.
 
-Aka, à côté d'elle, écoutant à la fois l'extérieur et les tremblements de la coque, parla très doucement.
+« Oui. »
 
-« Ils arrivent toujours. »
+« Et tu comptes faire quoi, ici ? »
 
-Ce n'était pas du réconfort. C'était juste un fait.
+« Je ne sais pas. »
 
-Toujours en train d'arriver. Le vaisseau, les gens, le temps.
+« Alors va faire ce que tu sais faire. »
 
-Mais dès que le mot *encore* s'y attachait, cela signifiait aussi qu'il ne serait pas étrange que cela s'arrête à tout instant.
+Sion se détourna.
 
-Alors que les trois premiers du quatrième groupe se préparaient, Nassim triait à nouveau les gens de sa voix rauque.
+En se détournant, il regarda une fois encore.
 
-« Vous, en arrière. »
+La largeur où se tenait Haroun était vraiment celle d'une seule personne. À gauche, le mur effondré ; à droite, les corps noirs. Entre les deux, un homme debout, dont le bras gauche était garrotté, et sous le garrot, le sang passait mal.
 
-« Vous, maintenant. »
+Si cet homme ne se tenait pas là, c'est par cette largeur qu'ils entreraient.
 
-« Non, pleurer ralentit. Pleure en marchant. »
+Sion fit deux pas.
 
-Luhai ne répondit même pas. Il saisit la main d'un enfant et l'ourlet du manteau d'un blessé en même temps, tenant la corde. Les mains de Seorin bougeaient maintenant devant ses yeux. Sion poussait déjà son corps avant que la ligne ne puisse osciller, juste à côté d'elle.
+C'est alors qu'un bruit vint d'en haut.
 
-Tout le monde commençait progressivement à se mouvoir moins comme des personnes que comme des fonctions.
+Ce n'était pas le bruit d'un métal qu'on tranche. C'était un son grave et long, qui s'étirait : celui d'une chose longtemps écrasée, tordue jusqu'au bout, qui finit par ne plus tenir et éclate.
 
-C'était la partie la plus effrayante.
+Sion entendait ce son pour la première fois.
 
-Et à ce moment-là, un son différent de tout ce qui avait précédé vint du couloir de droite.
-
-Pas un bruit de coupe aigu. Pas un fracas de brèche.
-
-Le grincement faible et sourd de quelque chose qui avait tenu longtemps, tordu jusqu'à enfin se briser.
-
-Le visage d'Ater se contracta — très légèrement, pour la première fois.
+Pour la première fois, le visage d'Ater se figea.
 
 « Haroun ! »
 
-Sern tourna son corps presque simultanément.
+Sern pivota.
 
-À ce moment-là, Sion put le dire avant même de voir ce que c'était.
+Sion leva les yeux.
 
-Maintenant, vraiment, quelque chose était sur le point de se briser.
+La cloison de métal tendue en travers du haut du couloir pliait par le milieu.
 
-Une personne. Une ligne. Un chemin. Ou un coeur.
+Pas lentement. Elle se replia d'un coup, et ses deux extrémités s'arrachèrent des murs. De gros morceaux vinrent avec elle, là où elle était fichée, et tous les débris entassés dessous se déversèrent d'un seul bloc.
 
-Il ne le savait pas encore.
+Pas de la poussière : des blocs.
 
-Mais Hazran était arrivé juste avant.
+En dessous, c'était la largeur où se tenait Haroun.
+
+Haroun ne leva pas les yeux. Il regardait devant lui. Parce que, devant, une chose noire entrait au même instant, réglée sur ce moment-là.
+
+En face, ils avaient attendu cela. C'était pour cela qu'ils frappaient en haut depuis tout à l'heure.
+
+Sion courut.
+
+En courant, il vit plusieurs choses à la fois.
+
+Sern se jeta d'en haut vers le bas. Ater leva son arme, puis la baissa : il n'avait pas d'angle de tir. Le bloc qui tombait était déjà à une demi-paume au-dessus de la tête de Haroun.
+
+Trois pas.
+
+Trois pas, il semblait qu'ils suffiraient pour l'atteindre, et pourtant ces trois pas ne se faisaient pas.
+
+En courant, il sentit qu'il tenait quelque chose dans la main.
+
+Le tissu qu'il avait défait tout à l'heure. Le bout qui restait après qu'il l'eut rattaché. Il l'avait gardé serré dans sa main sans jamais le lâcher.
+
+Sion courut sans pouvoir le lâcher non plus.
 
 ---
 

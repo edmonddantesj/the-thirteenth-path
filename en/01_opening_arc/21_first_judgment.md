@@ -1,224 +1,344 @@
 # Episode 21. First Judgment
 
-Jiwoo did not push the hull closer.
+Han Jiwoo did not bring the hull any closer.
 
-The ship sat half-perched against the closed structure's outer wall, holding at a precarious angle — neither sliding nor retreating. Push further and it could scrape the wall; pull back even slightly and it would drift outside the reaction line Sion was reading. What was needed now was not approach but maintenance.
+Sion was still crouched low at the slit, watching the underside of the structure. Beneath a surface that looked like dead metal, the grain that had barely shown itself at the threshold a moment ago was coming back to life, very weakly. It was not a strong signal. It was closer to something asking who had come, ready to die the instant the answer was wrong.
 
-The first to accept that fact was Jiwoo, even before Sion. The ship's job was not to open a door — it was to hold a correct angle until the discrimination was complete.
+Sern counted the cycle and spoke.
 
-Sion was still crouched before the slit, watching the structure's underside. Below the surface that looked like dead metal, the grain that had barely revealed itself at the threshold was coming alive again — very faintly. Not a strong signal. Closer to something asking who had come — ready to die the instant the answer was wrong.
+"It is coming again."
 
-Sern said, counting the cycle.
+"The first and second are four."
 
-"It comes again."
-
-Ater followed immediately.
-
-"The interval between first and second holds."
-
-"The last?"
+"And the last?"
 Sion asked.
 
 Sern watched the point where the reaction cut off again and answered, very low.
 
-"Incomplete."
+"The third is three. The last one does not come."
 
-Short silence.
+Ater looked at the alignment lines left on the underside of the structure and said.
 
-Ater spoke, looking at the alignment lines remaining on the structure's underside.
+"The third will have been four as well, originally."
 
-"Originally there would have been three."
+Sion gave a very slight nod.
 
-Sion nodded, very slightly.
+"The first two are judgment."
+"The last one's confirmation."
+"But that confirmation part's half cut away."
 
-"First two are discrimination."
-"The last one is confirmation."
-"But that confirmation section is half-severed."
-
-Seorin asked, arms crossed.
+Seorin asked, arms folded.
 
 "So the conclusion is."
 
-Sion had not yet taken his eyes off the structure.
+Sion still had not taken his eyes off the structure.
 
-"If you don't approach in the correct sequence, you get cut at the front. And even if you come correctly, the last step does not close the original way."
+"Come at it in the wrong order and you get cut off at the front, and even if you come in right, the last part won't close the way it was built to."
 
-Jiwoo said short from beyond the channel.
+Han Jiwoo said over the channel.
 
-"Nasty temperament from the start."
+"Nasty temper right from the start."
 
-This was not a door that accepted whoever came. Precisely — it was a discrimination unit that severed wrong approaches first. So what they were doing now was not picking a lock. It was the work of not damaging the discrimination unit's remaining life — while making it read them as not the wrong side. Not going slowly, but stopping so as not to be wrong.
+This was not a door that took in whoever came. More precisely, it was a judgment unit that cut off wrong approaches first. So what they were doing now was not picking a lock. It was getting themselves read as not the wrong side without killing off a judgment unit that was not yet dead. Not going slowly, but closer to stopping so as not to be wrong.
 
-Sion moved his gaze along the severed grain on the structure's underside, as if tracing it, and said.
+Sion moved his eyes along the broken grain on the structure's underside as if feeling his way, and said.
 
-"Can't attach head-on."
+"We can't latch on head-on."
 
-Jiwoo asked at once.
+Han Jiwoo asked immediately.
 
 "Why."
 
-"It looks like a structure that cuts anyone who leads with authority from the start."
+"Looks like it cuts off anything that comes in pushing its authority from the start."
 Sion answered low.
-"It leaves the side that reads from an angle."
+"Leave it an angle to read us from."
 
-Ater organized the same grain in different language the instant those words fell.
+The moment that was said, Ater put the same reading into different words.
 
-"Not approval-type — evasion-type discrimination. It may be a structure that excludes direct entry and only lets through those who know to stop at the end."
+"It is not approval-type judgment but avoidance-type. It may be a structure that excludes direct entry and lets only those who know how to stop at the end survive."
 
-Seorin glanced at Sion.
+Seorin glanced over at Sion.
 
 "Does he have to say the same thing like that?"
 
-"But this time he's right."
+"This time he's right, though."
 Sion said.
 
 Sern cut in, very low.
 
-"Reaction is weakening."
+"The reaction is weakening."
 
-That single line changed the air.
+With those words the air changed.
 
-This structure was not staying there forever. It was closer to a response left like a last habit by a discrimination unit already dying. Miss it once and it might never be readable the same way again. And that meant losing the very threshold they had confirmed by coming this far.
+This reaction was not waiting for them. It was a habit something dying repeats a few last times.
 
-Seorin said short.
+Seorin spoke.
 
-"Summary. What do we do, what don't we do."
+"Sum it up. What do we do, and what don't we do."
 
-Sion answered immediately.
+Sion answered at once.
 
-"Ship holds current angle. Don't push closer, don't pull back."
+"Ship holds this angle. Don't bring it in, don't pull it back."
 
 "Holding."
-Jiwoo received, short.
+Han Jiwoo answered.
 
-"Sern keeps counting the cycle. Tell us the timing just before the reaction dies."
+"Sern, keep counting the cycle. Tell me the timing right before the reaction dies."
 
 "Understood."
 
-"Ater — look at where it was originally supposed to stop. Instead of the severed final confirmation, read how far the remaining two permit."
+"Ater, see where it was supposed to stop. In place of the last confirmation that got cut, read how far the two that are left will allow."
 
-Ater nodded brief.
+Ater nodded.
 
 "I will look."
 
 Seorin asked last.
 
-"Me?"
+"And me."
 
-This time Sion looked directly at her.
+This time Sion looked straight at her.
 
-"If I'm wrong, cut me."
+"If I'm wrong, you cut."
 
-Seorin laughed, very brief.
+Seorin laughed.
 
-"That's always been my job."
+"That's what I always do."
 
-The words were short, but enough. Now no one was in a state of not knowing what to do. Jiwoo held the ship; Sern counted the sequence; Ater read the structure; Seorin held the moment to stop; Sion connected the scene traces and the reaction's grain. Before this discrimination unit, remove any one of those five functions and passage was impossible.
+Then she added.
 
-Sion leaned toward the structure again.
+"I'll do one more thing."
 
-First reaction.
+"What."
 
-From below the dead metal surface, one very thin tremor rose.
+"I'm staying on the ship."
 
-He said, holding his breath.
+Sion turned.
 
-"Attaching now. Not head-on — from the side."
+"You're not coming?"
 
-Jiwoo moved the control by finger-joint increments only. The ship drifted aside so slowly it was nearly invisible. Not head-on — an angle that grazed outside the remaining alignment line, being read from the side. Not forcing entry, but fitting the hull into the last tolerance width this structure had left behind.
+"If all four of us go in, nobody's holding the way back." Seorin had already half turned toward the retrieval line at the back of the hull. "If something goes wrong in there, you can't get out. You get out because someone's outside to pull."
+
+"I could stay."
+
+"You're the one who has to read."
+
+Sion couldn't find an answer.
+
+"And," Seorin added, "going in was your call, and staying is mine. That much I get to call."
+
+If even one of the five dropped out, this threshold would not be crossed. Nobody said it out loud.
+
+Sion bent toward the structure again.
+
+The first reaction.
+
+From under the dead metal surface, one very thin tremor rose.
+
+Holding his breath, he said.
+
+"We latch on now. Not head-on. From the side."
+
+Han Jiwoo pushed the manual shaft only a knuckle's width at a time. The ship drifted aside so slowly it barely showed. Not head-on, but at an angle that let it be read grazing the outside of the remaining alignment lines. Not an approach that forced its way in, but one that fitted the hull into the last margin this structure had left.
 
 The second reaction came.
 
-Sern spoke immediately.
+Sern spoke at once.
 
 "Hold. Not yet."
 
-Ater, watching the severed line's end on the structure's underside, said very low.
+Ater watched the end of the broken line on the underside and said, very low.
 
-"Next — we must stop."
+"Next, we must stop."
 
-Instead of answering, Sion chased the point where the last reaction cut off, all the way to the end. The place where the third confirmation section should have closed. But it was already severed. Full confirmation was impossible. Instead, they had to match only the maximum the remaining two allowed. Go further and it was wrong; fall short and it would not be read.
+Instead of answering, Sion followed to the very end the place where the last reaction cut off. Where, by rights, the third confirmation should have closed. But it had already been cut away there. Full confirmation was impossible. Instead they had to match only up to the most the remaining two allowed. Go further and they were wrong; fall short and they would not be read.
 
-Jiwoo said, almost pressing her breath into the question.
+Han Jiwoo spoke as if pressing the question down under her breath.
 
 "Now?"
 
 "Not yet."
-Sion cut.
+Sion cut her off.
 
-Just before the first reaction died, the second became most distinct.
+The ship kept drifting. It had not stopped; it was sliding very slowly, and while it slid, the margin kept narrowing.
 
-Sern spoke almost simultaneously.
+"Han Jiwoo."
 
-"Now."
+"What."
 
-Ater overlapped.
+"How long can your arms hold?"
 
-"We must stop here."
+"Don't ask."
 
-Jiwoo's hand stopped at once.
+The hand gripping the manual shaft trembled once. The tremor went straight into the hull, and from the hull into the structure.
 
-And in that exact moment — from inside the severed ring beneath the structure, one low metallic sound hummed.
+The reaction half answered that tremor, then died back down.
 
-Not quite the sound of a door opening — closer to the sound of an old discrimination device acknowledging it would not fully reject the one who had approached.
+"That, just now," Sion said. "Once more and we're cut."
 
-Sion exhaled, very slowly.
+"I know."
 
-"We passed."
+"But we need it once."
+
+"…What?"
+
+"If it doesn't shake at all, it reads as a machine. A machine is something that hits head-on, so it gets cut." Sion did not take his eyes off it. "It has to read like a person pushing. But shake too much and it can't read us."
+
+Han Jiwoo swore, short.
+
+"So shake exactly this much and no more?"
+
+"Yeah."
+
+"How am I supposed to control that?"
+
+"You can't."
+
+Sern cut between them.
+
+"Six."
+
+Everyone went quiet.
+
+"Five."
+
+Han Jiwoo put her strength back into her arms. This time she did not try to kill the tremor. She just pushed.
+
+"Four."
+
+The first reaction began to weaken.
+
+"Three."
+
+The second rose over it. Much clearer this time than before.
+
+"Two."
+
+Ater took his eyes off the cut end of the line on the underside.
+
+"Here."
+
+"One."
+
+"Stop."
+
+Han Jiwoo's hands stopped dead.
+
+And at that exact moment, a very low metallic tone sounded inside the cut ring under the structure.
+
+It was less the sound of a door opening than the sound of an old judgment device conceding that it would not reject the one approaching outright.
+
+And inside the cut ring, one very thin line lit up.
+
+It was not bright. You could not even call it a lamp. It was whatever had been left in a long-unused circuit, turning over reluctantly, and all that light showed was the first three steps of the passage inside.
+
+Past three steps it was simply black.
+
+Sion let out a very slow breath.
+
+"We're through."
 
 Seorin asked at once.
 
-"Certain?"
+"You sure?"
 
 This time Ater answered.
 
-"The first judgment. At least that much."
+"The first judgment. That much, at least."
 
-Short silence.
+Sion was still looking into the structure.
 
-That single statement changed the air inside the hull. They had not yet entered the interior; they had not yet obtained a fragment. But one thing was clear. This path was not fully dead. And what they had just passed was not a door — it was the first confirmation line of a sequence severed long ago.
+Beyond the place where they had passed the first judgment, a different reaction surfaced this time, very faintly. Not the tremor left under the outer wall like the first one, but a deep reaction, the kind that would only show when someone touched the next grain further in.
 
-Sion was still looking at the structure's interior.
-
-Beyond the place where the first judgment had been passed — this time, a reaction unlike before surfaced, very faintly. Not the tremor remaining below the outer wall as before. A deeper response — the kind that would only appear when someone touched the next grain, further inside.
-
-His eyes changed, just slightly.
+Something in his eyes shifted, very slightly.
 
 Seorin read it first.
 
 "What."
 
-Sion said, looking into the inner darkness, low.
+Sion looked into the darkness inside and said low.
 
-"There's more inside."
+"There's an inside."
 
-Jiwoo asked from beyond the channel, short.
+Han Jiwoo asked over the channel.
 
 "Going in?"
 
 This time Sion did not answer.
 
-Instead, Ater spoke first.
+Instead Ater spoke first.
 
-"From here, it is not the ship that must look — but people."
+"From here on, people have to look, not the ship."
 
 Sern added quietly.
 
-"The reaction interval has shortened. If we do not go now, it may die again."
+"The interval between reactions has shortened. If we do not go now, it may die again."
 
-Those words meant: the reason for coming this far was now crossing into the next stage. They had passed the first judgment. Confirmed that the remaining path was not illusion. And deeper inside, the next reaction had come alive. This was not an extension of exploration — it was a present that these people would lose if they did not move now.
+Seorin let out a breath.
 
-Seorin exhaled brief.
+"Then it's time to actually get off the ship."
 
-"Nice. Then we really need to go down now."
+Sion finally took his eyes off the structure and nodded.
 
-Only then did Sion lift his eyes from the structure and nod, very brief.
+"Yeah. From here we read with our feet."
 
-"Yeah. From here, we read with our feet."
+Han Jiwoo locked the manual shaft where it was and drove in the fixing pin. She lowered her arms, but her fingers stayed curled in the shape of the shaft. She straightened them one by one with her other hand.
 
-The air inside the ship changed again at once. Jiwoo locked the hull at its current angle and checked the external access foothold and retrieval line; Seorin would stay on the ship side, holding the moment to cut and the line back. Meanwhile Sion, Ater, and Sern finished preparations to descend and verify what lay beyond the first judgment directly. Here, who went inside and who held the return position mattered as much as the passage sequence itself.
+"I'll hold the angle. But not for long."
 
-## And from deep inside the structure — like a signal that the next grain was alive — one very faint afterglow trembled again.
+"How long."
+
+"Who knows. Whether my arms go first or the ship."
+
+Seorin paid out the retrieval line and clipped it to each of the three at the waist in turn. After clipping, she gave each one a tug. Her hand went back to Ater's once more.
+
+"Take off your coat."
+
+"…Pardon?"
+
+"If that catches, it's your coat that gets pulled, not the line."
+
+Ater looked at his coat for a moment. The Valkar crest had long since been buried in dust and could not be seen. He undid the buttons, took it off and hung it on a hook on the cabin wall.
+
+"Please return this to me later."
+
+"If you come back."
+
+The line went taut, from one to the next of the three.
+
+Sion looked at Seorin one last time.
+
+"Signal?"
+
+"Two tugs, you come out. Three, I cut."
+
+"Three and we're dead."
+
+"Yeah. That's why I'm the one who decides on three."
+
+Sion didn't smile. Instead he nodded once and turned toward the gangplank.
+
+The gangplank had not originally come with this ship. It was narrow, its end ground down, and of the two points where it rested on the structure, only one was still sound.
+
+Sion put one foot on it and gave it half his weight. The plank dropped once and stopped.
+
+"It's making a noise," Seorin said from behind.
+
+"It should."
+
+"That again."
+
+"Everything's like that today."
+
+Sion put the rest of his weight on it.
+
+Deep inside the structure, a very faint afterglow trembled again.
+
+This time a little further in than before.
+
+Sion knew it was not calling him. If it had been a signal calling anyone, it would have been bright long ago.
+
+That thing was still counting.
 
 ---
 

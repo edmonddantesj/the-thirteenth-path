@@ -1,258 +1,282 @@
 # Episode 31. The Line That Would Not Let Go
 
-The first impact was not the kind trying to break the hull.
+The first impact was not trying to break the hull.
 
-It was the kind trying to destroy their remaining sense of direction first.
+It was trying to wreck what was left of their sense of direction first.
 
-Immediately after Jiwoo woke the engine rough, a pursuit round grazing the right lower side left a long, thin heat mark on the hull's outer wall. Not a direct hit. Yet the entire ship twisted once. One external pivot — barely holding until moments ago — slowed its response from that single graze alone. Take the same hit once more, and this time the turn angle would truly go off.
+Right after Han Jiwoo roughly woke the engine, a pursuit round grazed the lower right side and left a long, thin heat scar on the outer wall. Not a direct hit. Even so, the whole ship twisted once. One of the external fixing axes, which had barely been holding until a moment ago, slowed its response from that one brief graze. Take another hit like that, and this time the turning angle could really go wrong.
 
 "Good."
-Jiwoo laughed through gritted teeth.
+Han Jiwoo grinned through clenched teeth.
 "No going quietly now. Everyone grab something."
 
-Before the words finished, the hull dropped downward once, then immediately twisted sideways.
+Before she had even finished, the hull dropped once and then wrenched straight to the side.
 
-Sion grabbed the wall handle and simultaneously shoved the still-unfolded paper deeper inside his jacket. *Hazran. Aka.* The explanation was two words only. Yet strangely, those two words felt clearer than any coordinate right now. No time to think — but the destination was already decided.
+Sion caught the wall handle and in the same motion pushed the folded paper deeper inside his jacket. **Hazran**, **Aka**. Two words were all the explanation there was. And yet, strangely, those two words felt like a clearer direction right now than any coordinate.
 
-Sern said rapidly, half-pressed against the panel.
+Half pressed against the panel, Sern spoke fast.
 
-"Two behind us. One on fixed pursuit, one spreading to flank."
+"Two behind us. One is on fixed pursuit. One is spreading wide to come in."
 
-"Pincer."
-Seorin said low.
+"They want to pin us between them,"
+Seorin said, shifting her grip on the handle.
 
-"Yes."
-Sern answered short.
-"One intimidates. The other reads our evasion line."
+"Yes,"
+Sern answered, short.
+"One is there to frighten us. The other reads our evasion line."
 
-Ater added, looking at the faint approval afterecho on the wall.
+Ater looked at the faint approval resonance left on the wall and added:
 
-"The discrimination unit's reaction record has likely already been transmitted. This is closer to confirmation fire than simple chase."
+"The judgment unit's reaction record will already have gone through. This is closer to confirmation fire than a simple chase."
 
-"Wonderful."
-Jiwoo muttered.
-"Then we bolt before showing them more."
+"We really got caught good,"
+Han Jiwoo muttered.
+"Then we bolt before we show them any more."
 
-A second pursuit round passed outside.
+Outside, a second pursuit round went past.
 
-This one did not hit the hull. Instead it deliberately scraped close, leaving only heat. A warning. The leisurely, mixed-threat particular to a catching hand — *stop, or the next one goes deeper.*
+This one didn't hit the hull. Instead it swept by at close range on purpose, leaving only heat. A warning. Stop, or the next one goes in deeper—a threat laced with the ease peculiar to a catching hand.
 
-Jiwoo's expression crumpled immediately.
+Han Jiwoo's face screwed up at once.
 
-"Ah, shit. They're dropping those on purpose."
+"Ah, damn. They're trying to knock us down on purpose."
 
-The ship shook hard again. One panel above the cockpit blinked off and on; through the slit, a line of mixed dust and afterglow slanted past.
+The ship shook hard again. A panel above the pilot's seat went dark for an instant and came back, and outside the slit a single line of dust and afterglow, mixed together, slid past at a slant.
 
-Kael, through all of it, did not let go of the fragment. One hand hooked on the floor brace, the other wrapped tighter around his inner coat. The movement of someone accustomed to surviving. No unnecessary words either. Not the silence of someone unsure when to throw their body — but one who knew exactly.
+Even in the middle of all that, Kael didn't let go of the fragment. One hand hooked his body to the floor brace; the other wrapped tighter around the inside of his coat. The movements of someone used to staying alive. No unnecessary words, either.
 
-Sion asked low.
+Sion asked in a low voice.
 
-"Can't cut straight through?"
+"Can't you cut them off head-on?"
 
-"In this condition?"
-Jiwoo fired back without a smile.
-"Force one more axis out and we die before they do."
+"With it in this shape?"
+Han Jiwoo shot back, with no trace of a smile.
+"Force the axis one more time and we die before they do."
 
-Seorin cut short.
+Seorin cut in, short.
 
-"Then not a head-on fight — cut sightlines."
+"Then not a head-on fight. We cut their sight."
 
 Sern was already running the same calculation.
 
-"If we drag them into the dead cargo debris field, we can sever contact briefly. But at this angle, they enter with us."
+"If we drag them to the field of dead freighter wrecks, we can cut them off for a moment. But at this angle, they will come in with us."
 
-"Let them."
-Jiwoo said, twisting the control.
-"I just need to ram us in on a crazier line than theirs."
+"Let them come,"
+Han Jiwoo said, twisting the stick.
+"We just ram through on a crazier line than theirs."
 
-Sion steadied one short breath. The two words Elia left, the moment Sern remembered, the repository Seorin cut, and the approval line stubbornly following from outside. Everything was moving far too fast at once — but paradoxically, that also made some things simpler. No more running in a straight line. Not the fast path — but the path that breaks the enemy's calculation once.
+Sion pressed himself to the slit.
 
-Then Kael, for the first time, looked out the slit and said low.
+Outside was still black. The wreck field was supposed to be up ahead, and he couldn't see a thing.
 
-"The ones behind — military-converted ships."
+Then he saw it. The starlight was cut off in one place. The cut ran long, and its edges were ragged.
 
-Jiwoo shot back short.
+There. Sion knew how to look for where the light wasn't when he couldn't find what shone.
+
+Then Kael, looking out the slit for the first time, spoke low.
+
+"The ones behind us are converted military ships."
+
+Han Jiwoo snapped back.
 
 "You can tell by looking?"
 
-"Engine sound is different."
+"The engine sound's different,"
 Kael said.
-"One is intimidating. One intends to bite to the end. The catching hand is separate."
+"One scares you. One means to bite and hang on to the end. There's a separate catching hand."
 
-Sern asked immediately.
+Sern asked at once.
 
-"Will they follow deep into the debris field?"
+"Then will they follow us all the way into the wreck field?"
 
-Kael was silent briefly.
+Kael was silent for a moment.
 
-"They'll enter. But not deep."
-He said low.
-"Smells like the kind where the retrieval report comes before survival."
+"They'll come in. But they can't come in deep,"
+he said, low.
+"They smell like the kind who put the recovery report before staying alive."
 
-That was strangely convincing. Seorin, Jiwoo, Sion — none bothered to ask again. This kind of judgment came from the body before explanation. Right now was the time to borrow even one more sense like that.
+No one asked him to explain.
 
-Jiwoo smiled, baring teeth.
+Sion found that strange. Kael had said what kind of people those were from the engine sound alone, and no one asked him for proof.
 
-"Good. Then I'll escort them the most expensive way."
+Seorin was already asking about the next thing.
 
-The hull suddenly surged upward, then immediately pressed down-left.
+Han Jiwoo grinned, almost baring her teeth.
 
-Ater braced against the wall, swallowing a short breath. Sern did not let his gaze waver, refusing to miss the panel numbers. Sion gripped the handle tighter and looked out the slit. This was time for holding, not reading — yet his eyes kept chasing the next angle first.
+"Fine. Then I'll show them the most expensive road there is."
 
-"They're entering."
+The hull suddenly shot upward, then was pressed straight down to the left.
+
+Ater braced against the wall and swallowed a short breath. Sern did not even let his eyes waver, as if determined not to lose the numbers on the panel. Sion gripped the handle harder and watched outside the slit. This was a time for holding on, not for reading, and still his eyes kept chasing the next angle before it came.
+
+"They are coming in,"
 Sern said.
-"One more ship attaching from the right."
+"One more is closing on the right."
 
-"Fine, come."
-Jiwoo spat as if chewing.
-"From here, I decide the road."
+"Come on, then."
+Han Jiwoo spat the words out like she was chewing them.
+"From here on, I pick the road."
 
-The very next moment, the hull carved into the first outer edge of the dead cargo debris field as if scraping past.
+The very next moment, the hull dug into the first outer edge of the field of dead freighter wrecks, almost scraping it.
 
-The view through the slit changed at once. Instead of empty space's black membrane — massive cargo ship frames, long since torn and burned, swept past on both sides like grey walls. Severed loading rings, half-folded external frames, exposed engine housings layered and floating. No safe path existed. Which was precisely why it felt like the kind grey-zone people chose to survive long.
+The view outside the slit changed all at once. Instead of the empty black curtain of space, the huge frames of freighters torn apart and half burned long ago streamed past on both sides like gray walls. Severed cargo rings, half-folded outer frames, engine housings with their insides laid open hung there layer on layer. There was no safe road. Which was exactly why it looked like the road the people of the gray zones chose to survive a long time.
 
-Jiwoo laughed low.
+Han Jiwoo laughed low.
 
-"Yeah. A place like this is better."
+"Yeah. Places like this are better."
 
-One pursuit ship behind could not kill its angle in time and scraped the outer frame in a long grind. The sound of metal being ground rang briefly; its light slashed across the slit's exterior.
+One of the pursuers on their tail couldn't kill its angle in time and scraped a long line down an outer frame. The grind of metal rang out briefly, and its light slashed past outside the slit.
 
-Sern said immediately.
+Sern spoke at once.
 
-"First ship — speed reduced."
+"The first one has slowed."
 
-"Second?"
+"And the second?"
 Seorin asked.
 
-"Still coming in."
+"It is still coming in."
 
 Kael muttered low.
 
-"The catching hand."
+"That's the catching hand."
 
-Sion saw, simultaneously with those words, a different afterglow boring between frames on the right side. That was not an intimidation line. It was the line of something that would force-follow to the end, memorize evasion angles, and bite again next time.
+As he said it, Sion saw another afterglow driving in between the outer frames on the right.
 
-"Jiwoo."
-Sion called short.
-"Right side, second gap. Space that isn't dead."
+Then he tried listening. Kael had said he'd told them apart by sound.
 
-Jiwoo did not even ask back.
+He couldn't hear it. The roar inside the hull was too loud.
+
+He could see it instead. That one turned after they turned. Half a beat late every time, at the same angle every time.
+
+"Jiwoo,"
+Sion called, short.
+"Second gap on the right. There's space in there that isn't dead."
+
+Han Jiwoo didn't even ask him back.
 
 "Distance."
 
-Sern said, watching the panel.
+Sern watched the panel and spoke.
 
 "Three, two, now."
 
-Jiwoo twisted the control.
+Han Jiwoo wrenched the stick.
 
-The hull angled into the debris frame's interior as if nearly scraping. Somewhere on the left outer wall — a short collision rang but nothing broke badly. Instead, one pursuit ship that had been following could not match the angle all the way and spread wide outward.
+The hull bent into the inside of the wreck frame, nearly scraping. Somewhere on the left outer wall something struck and rang briefly, but nothing broke badly. Instead, one of the pursuers behind them couldn't hold that angle to the end and swung wide to the outside.
 
-"Good."
-Jiwoo exhaled rough.
-"Shook one."
+"One."
+Han Jiwoo let out a ragged breath.
+"Shook one off."
 
-"One remains."
+"There is still one left,"
 Sern said at once.
 
-Before those words ended, a sharper vibration swept the hull's underside.
+The words had barely ended when a sharper vibration raked the underside of the hull.
 
-This time it was not a graze. Closer to a solid hit passing through.
+This time it wasn't a graze. It was closer to a hit that took an axis on its way past.
 
-Ater barely held his body in place and said.
+Ater, barely holding himself in place, spoke.
 
-"Lower response dropping."
+"Lower response is dropping."
 
-Jiwoo's expression went rigid.
+Han Jiwoo's face went hard.
 
-"Ah, I really hate this."
+"Ah, I really hate this one."
 
-Seorin asked immediately.
+Seorin asked at once.
 
-"How long can you hold."
+"How long will it hold?"
 
-"Keep getting bit and I can't."
-Jiwoo said short.
-"From now — even while running, I need angles to keep this thing alive."
+"Not if they keep biting,"
+Han Jiwoo said, short.
+"From now on, even while we run, we have to watch for the angles that keep it alive."
 
-Sion closed his eyes briefly, then opened them. Hazran was not even in reach yet. But already that name had changed from a simple next destination into a line dividing life and death. They had to arrive. What they'd find there, what they'd lose inside — those were later problems. Reaching it alive came first.
+Sion looked at Han Jiwoo's hands.
 
-Sern, watching the panel, said very low.
+Her left hand on the stick hadn't moved for a while. Only her right hand kept touching something. Output, attitude, output again. Three times to the same place, every time.
 
-"Jiwoo."
+If it had worked the first time, she would have gone there once.
+
+Sern watched the panel, then spoke very low.
+
+"Han Jiwoo."
 
 "What."
 
-"If we keep twisting at this angle — we can skim the heat layer's exterior."
+"If you keep turning at this angle, we may graze the outside of the heat layer."
 
-Short silence.
+A short silence.
 
-Jiwoo said without a trace of laughter.
+Han Jiwoo spoke without a trace of a smile.
 
 "That's not hiding. That's falling."
 
-"I know."
+"I know,"
 Sern answered.
-"But if we continue linear escape in this state, the lower axis dies first."
+"But if we keep on a straight escape in this state, the lower axis dies first."
 
-Ater followed immediately.
+Ater picked it up right where he left off.
 
-"What is needed now is not an intact route — but the minimum structure to survive a pursuit cutoff and forced descent."
+"What we need now is not an intact route, but the minimum structure to survive losing the pursuit and a forced descent."
 
-"Sounds filthy just hearing it."
-Jiwoo muttered.
+"Sounds filthy just hearing it,"
+Han Jiwoo muttered.
 
-Kael, looking at the hull's floor this time, said.
+Kael looked toward the floor of the hull this time and spoke.
 
-"If we're going to fall — pick the side where we fall alive."
+"If you're going to fall, pick the way you fall alive."
 
-When those words ended, Seorin drew the conclusion short.
+When he was done, Seorin drew a short conclusion.
 
-"Nice. Then we loop the debris field once more, and if they don't shake — we ride it to the heat layer's edge."
+"One more loop through the wreck field. If they don't come off, we ride it out to the edge of the heat layer."
 
-Jiwoo laughed brief.
+Han Jiwoo laughed briefly.
 
-"Now that makes sense."
+"Now that finally makes some sense."
 
-But at the end of that laugh was a crack different from before. Not laughing because it was fun — but because the calculation was now set: if they did not drop, they would die sooner.
+But the end of that laugh had a different crack in it than before. Not a laugh because it was fun, but the kind that came once the math was done: if they didn't fall now, they would die sooner.
 
-Behind, pursuit-round light flared again.
+Behind them, the light of a pursuit round spread again.
 
-This time, deeper.
+This one went deeper.
 
-From somewhere in the hull's underside — a short, blunt rupture sound burst. Simultaneously the ship dropped hard, then shook as if barely gathering its posture. Three wall panels went dark at once, and from below the cockpit, Jiwoo's curse ground out like something tearing.
+Somewhere under the hull a short, dull rupture burst. At the same moment the ship dropped sharply, then shook again as if barely scooping its attitude back up. Three wall panels went dark at once, and from beneath the pilot's seat Han Jiwoo's curse came out like something being ground.
 
-"Done. No more choosing."
+"That's it. No more choosing."
 
-Sern asked immediately.
+Sern asked at once.
 
-"Critical?"
+"Is it critical?"
 
-"Past it."
-Jiwoo said through gritted teeth.
-"Now — not falling is what kills us."
+"Past it,"
+Han Jiwoo said through clenched teeth.
+"Now if we don't fall, that's what kills us."
 
-Short silence.
+A short silence.
 
-That was not exaggeration. Until now they had only ridden a dangerous line to shake pursuit. But the last impact had turned that dangerous line from an option into the only survival path.
+No one said otherwise.
 
-Sion felt the paper pressed inside his jacket once more. *Hazran. Aka.* A line he could not read yet could not lose. There are grains you must not discard even when you cannot read them. What they had grasped inside the structure just now was like that — and these two words, the same.
+Ater took his hand off the wall. He had been bracing against that spot for a while, and he let go like someone who had just learned that bracing there was no use.
 
-Seorin said, very low and solid.
+Sion took hold of the handle again. Lower than before.
 
-"Nice. We fall."
+If you're holding high when you fall, your arm goes first. Get caught by it once and you know.
 
-Ater said nothing more. Sern was already calculating the descent angle. Kael wrapped the fragment deeper inside.
+Seorin spoke very low and firm.
 
-Jiwoo twisted the control one final time.
+"We go down."
 
-"Everyone hold tight."
+Ater said nothing more. Sern was already calculating the descent angle. Kael wrapped the fragment deeper inside his coat.
+
+Han Jiwoo twisted the stick one last time.
+
+"Everyone hold on tight."
 She laughed low.
-"From here — it's not running. It's dropping."
+"From here, this isn't running. It's a drop."
 
-The hull threw itself once more — beneath the deeper debris shadow.
+The hull threw itself once more, beneath a deeper shadow of wreckage.
 
-## And below, the heat of a desert not yet visible was waiting for them.
+And below it, the heat of a desert they couldn't even see yet was waiting for them.
 
 ---
 

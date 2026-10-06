@@ -1,222 +1,221 @@
-# Episode 117. First Air
+# Episode 117. Air That Didn't Reach
 
 After the shock passed,
-what remained inside the ship was not celebration but verification.
+what was left inside the ship was not cheering but checking.
 
-No one called what just happened a miracle.
-The situation wasn't comfortable enough for that,
-and they hadn't understood enough for that.
+No one called what had just happened a miracle.
+Things weren't comfortable enough for that,
+and they didn't understand it well enough for that either.
 
-Everyone moved in the opposite direction instead.
+If anything, they all moved the other way.
 
-Jiwoo started rechecking the hull's condition.
-Sern re-read the outer surveillance and residual traces.
-Kael and Luhai swept the inner corridors first for any possible impact zones.
+Han Jiwoo went back over the hull's condition first,
+Sern reread the outer watch and the residual traces,
+and Kael and Luhai swept the inner passages first in case there was a shock zone they had missed.
 
-It was a habit of people who survive.
-The more startling something is,
+It was the kind of habit survivors have.
+The more startled you are,
 the more you check first.
 
-But the stranger thing, the more they checked,
-was that this ship looked less like it had strained and held
-and more like it had *aligned precisely once and come back*.
+But what grew stranger the more they checked
+was that the ship looked less like it had just strained to hold on
+and more like it had been *precisely aligned once, and come back*.
 
-Jiwoo stared into the opened panel for a long time,
-then said, very low.
+Han Jiwoo looked into the open panel for a long time,
+then spoke, very low.
 
-"The damage hasn't increased."
+"The damage hasn't spread."
 
-Kael turned.
+Kael looked back.
 
-"Isn't that good?"
+"That's good, isn't it?"
 
-Jiwoo couldn't nod right away.
+Han Jiwoo couldn't quite nod right away.
 
-"Less good and more…"
-She said, low.
-"It's stranger that it's intact after a reaction like that."
+"Not good, exactly…"
+she said quietly.
+"It's stranger that it came through a reaction like that in one piece."
 
-That was precise.
+That was exactly right.
 
 After a movement like that,
-at least one part of this patchwork hull should have screamed more.
-But right now the ship felt
-as though it had found its place again with unsettling quiet.
+at least one part of this patchwork hull should have been screaming louder.
+But right now the ship
+seemed to have settled back into place, strangely quietly.
 
-Sion heard those words
-but kept sensing something else.
+Even as Sion listened,
+he kept his attention on something else.
 
-A feeling that hadn't closed yet.
-The residual direction from when the ship caught hold first.
+A sense that hadn't closed yet.
+What was left of the direction the ship had caught hold of first, a moment ago.
 
-It hadn't vanished.
-Instead, from very far away,
-it continued like faint air.
+It hadn't gone.
+If anything, from very far off,
+it kept coming, like a faint air.
 
-Not a smell.
-Not light.
-But clearly,
-a grain different from Hazran's.
+It wasn't a scent.
+It wasn't light either.
+But it was clearly
+a different grain from Hazran's.
 
-Too cold.
-Too smooth.
-Too ordered.
-It felt like something untouched by human hands.
+Too cold,
+too smooth,
+so orderly
+it felt, if anything, like air no human hand had ever touched.
 
-Sion furrowed his brow slightly without meaning to.
+Without meaning to, Sion frowned a little.
 
-Seorin saw it first.
+Seorin caught it first.
 
-"Feeling something?"
+"Feel something?"
 
-Sion hesitated briefly, then spoke.
+Sion hesitated a moment, then spoke.
 
-"We haven't arrived yet."
-He said, low.
-"But it feels like only the air came first."
+"We're not there yet,"
+he said quietly.
+"But it feels like the air's getting here first."
 
-Luhai narrowed his brow.
+Luhai's brows drew together.
 
 "Air?"
 
-Sion knew his words sounded strange, but continued.
+Sion knew it sounded strange, but he went on.
 
-"Completely different from Hazran."
-"It feels like a place where people live… but not a place shaped for people."
+"It's nothing like Hazran."
+"It's like somewhere people live… but not somewhere made to fit people."
 
-Those words couldn't explain precisely,
-but strangely, everyone could understand them.
+He couldn't explain it exactly,
+yet somehow everyone more or less understood.
 
-Aka looked directly at Sion this time.
+This time Aka looked straight at Sion.
 
 She said nothing for a moment,
-then spoke very low.
+then spoke, very low.
 
-"It might be a place that is ordered."
+"Maybe it's an orderly place."
 
 Seorin asked back.
 
 "In a good way?"
 
-Aka didn't answer immediately.
+Aka didn't answer right away.
 
-"A place that is too ordered,"
-she said, slowly,
-"sometimes feels closer to handling living things than to being alive."
+"Places that are too orderly,"
+she said slowly,
+"sometimes they're less like being alive, and more like handling what's alive."
 
-The air inside the hull cooled for just an instant.
+For a moment the air inside the hull cooled.
 
-No one asked her to explain that fully.
-But everyone could tell immediately
-that the sentence was strangely uncomfortable.
+No one asked her to explain all the way what she meant.
+But all of them
+knew at once that the sentence was strangely uncomfortable.
 
-Sern had been reading arrays the whole time.
-And after a while,
-he spoke for the first time, brief.
+Sern had been reading the arrays all the while.
+Then, a moment later,
+he spoke for the first time, briefly.
 
-"The outer reference lines have changed."
+"The outer baseline has changed."
 
-Jiwoo turned.
+Han Jiwoo turned.
 
-"Meaning what."
+"Meaning what?"
 
-Sern spoke while scrolling the screen.
+Sern spoke as he moved through the screens.
 
-"The noise readable in the orbital zone we were in before is gone."
-"The background static intervals are different,
-and the gaps left by relay networks are different too."
+"This is not the noise we were reading in our original orbital zone."
+"The spacing of the background interference is different,
+and so are the gaps the relay net leaves."
 
-That wasn't a declaration of arrival.
+It wasn't a declaration that they had arrived.
 But it meant at least one thing.
 
-The path the ship had caught hold of just now
-wasn't simply a technique to break tracking.
-There was a possibility it had pushed them into something like the entrance of an actually different zone.
+The path the ship had just caught hold of
+was possibly not just a way to cut off pursuit,
+but something that had actually pushed them toward a kind of entrance to another sector.
 
-Kael spoke low.
+Kael said quietly,
 
-"Then we're really getting closer?"
+"So are we actually closer, then."
 
-No one could easily answer yes.
+No one could easily say yes.
 
-Whether closer.
-Whether entered at an angle.
-Whether slipped into an entirely different layer—still unknown.
+Whether they were closer,
+whether they had come in at a slant,
+or whether they had slipped into another layer altogether, they didn't know yet.
 
 But at least
 it was different from the blankness right after leaving Hazran.
-A sense was beginning to form that something truly different lay ahead.
+Now a sense was starting to form that somewhere else truly lay ahead.
 
-Luhai leaned against the wall and said nothing for a long time.
+Luhai leaned his back against the wall and said nothing for a long while.
 Then he muttered, very low.
 
-"We got ripped out of Hazran,"
-"but this ship seems like it used to travel places like this."
+"We got torn out of Hazran,"
+"but this ship feels like it's always gone to places like this."
 
-That sentence was rough,
-which made it linger longer.
+It was a rough sentence,
+and that was why it stayed longer.
 
-Jiwoo couldn't argue.
-Neither could Sern.
-Or Seorin.
-Or Sion.
+Han Jiwoo couldn't argue with it.
+Neither could Sern,
+or Seorin,
+or Sion.
 
-Because everyone had been feeling the same thing for a while now.
+They had all been feeling the same thing for a while now.
 
-This ship hadn't simply fled.
-It might be closer to the truth that it had begun retracing,
-in an old way none of them knew,
-places it could originally go.
+This ship hadn't simply run.
+Maybe, in some old way they didn't know,
+it had started feeling its way back toward places it had always been able to go.
 
 Aka looked once more at the condensed spot inside the panel
-and said, very low.
+and spoke, very low.
 
-"Still far."
+"It's still far."
 
 Sion looked at her.
 
-Aka continued.
+Aka went on.
 
-"But now, we are passing through where it is not."
+"But now we're passing the places it isn't."
 
-Sern raised his eyes, very faintly.
-That was a sentence he could understand in his own way too.
+Sern raised his eyes, very slightly.
+It was a sentence that made sense in his way too.
 
-The answer is still far.
-But directions that cannot be excluded have appeared.
+The answer was still far off.
+But there was now a direction they could not rule out.
 And that was already
 a different stage from blankness.
 
-Sion released his hand from the railing and drew a slow breath.
+Sion took his hand off the rail and slowly drew in a breath.
 
-That air was still far.
-But now, clearly,
-it no longer felt like the strange world beyond Hazran.
-It felt like the air of a different order waiting for them.
+That air was still far away.
+But now it clearly
+felt less like some strange world outside Hazran
+and more like the air of a different order, waiting for them.
 
-Cold.
-Ordered.
-Beautiful, yet strangely uncomfortable.
+Cold,
+orderly,
+beautiful, and strangely uncomfortable.
 
-Still unseen,
-yet already feeling like a world that would sort people rather than welcome them.
+Not yet in sight,
+and already a world that seemed more likely to sort people than to welcome them.
 
-Sion said, low, without meaning to.
+Without meaning to, Sion said quietly,
 
 "I don't think it's a good place."
 
-Luhai answered without managing to smile.
+Luhai answered, not even managing a short laugh.
 
-"If it were good, it wouldn't have called the likes of us."
+"If it were a good place, it wouldn't have called for the likes of us."
 
-That wasn't a joke.
+It wasn't a joke.
 
-No one inside the ship laughed.
+No one on the ship laughed.
 
-The planet of the machines was still not visible.
+The planet of machines was still out of sight.
 But that world's air
-had already arrived first,
-slowly entering their lungs.
+had already arrived ahead of it
+and was slowly making its way into their lungs.
 
 ---
 

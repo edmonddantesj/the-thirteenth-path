@@ -1,160 +1,256 @@
 # Chapitre 81 — La ligne qui commença à l'intérieur du marché
 
-Lorsque le bord extérieur commence à s'effondrer, le champ de bataille se rapproche d'un seul coup.
+Le bruit avait changé.
 
-Les bruits métalliques qui venaient de l'extérieur il y a quelques instants résonnaient désormais faiblement contre les plafonds des tentes et les murs en plaques de métal à l'intérieur du marché.
+Tout à l'heure encore, il venait de dehors. À présent, le plafond des tentes vibrait avec lui. Quand on posait la main sur un mur de plaques de métal, il arrivait jusque dans la paume.
 
-Hazran était déjà plié en plusieurs couches. Mais plié ne voulait pas dire sûr. Cela signifiait que les chemins que l'ennemi pouvait suivre à l'intérieur étaient également devenus beaucoup plus proches.
+Sion s'engouffra dans le deuxième couloir intérieur du marché.
 
-Lorsque Sion s'engagea dans le deuxième couloir du marché, les premières choses qu'il aperçut n'étaient pas des gens, mais des mains.
+Ce n'étaient pas des gens qu'il voyait d'abord, mais des mains.
 
-Mains coupant les lignes de tente. Mains pliant un tissu bloquant la chaleur pour le suspendre au-dessus des couloirs. Des mains écartant les caisses de pièces pour dégager le chemin. Des mains poussant les personnes tombées plus loin à l'intérieur.
+Des mains qui coupaient les cordes des tentes, des mains qui pliaient les toiles isolantes pour les suspendre au-dessus des couloirs, des mains qui écartaient à coups de pied les caisses de pièces pour dégager le passage, des mains qui poussaient dans le dos ceux qui étaient tombés.
 
-Hazran ressemblait toujours à un marché, mais tout ce qu'il faisait était déjà une véritable guerre.
+Les mains qui coupaient étaient celles qui avaient noué ces cordes quelques jours plus tôt. Les mains qui suspendaient étaient celles qui avaient vendu ces toiles.
 
-Nassim se trouvait au centre du couloir principal, faisant tourner les gens sans s'arrêter.
+Hazran avait encore l'allure d'un marché. Les cadres des étals étaient toujours debout, et les panneaux où l'on inscrivait les prix pendaient encore. Seul ce qu'on y faisait était la guerre.
 
-« Fermez celui-ci. »
+En courant, Sion aperçut un panneau des prix. Les chiffres n'avaient pas été effacés. Devant, deux personnes transportaient non pas des marchandises, mais des plaques de métal.
 
-« Passez ça à l'intérieur. »
+Haroun dressait une nouvelle ligne dans le couloir intérieur.
 
-« Non, laisse tomber ça. Les gens d'abord! »
+Sion lisait désormais cette forme sans qu'on la lui explique. On ne serrait pas les gens. Les vides étaient plus nombreux que les pleins. On laissait exprès les couloirs étroits ouverts, et on barrait en coude les ruelles d'à côté.
 
-Les marchandises dont il aurait évalué le prix en premier un jour normal furent jetées au sol sans hésitation.
+Mais ce n'était pas comme ce qu'il avait vu dehors.
 
-Le visage de Nassim ne souriait pas. Pas de blagues.
+Dehors, on avait allongé le chemin. On les laissait entrer et on les faisait marcher longtemps. Ici, il n'y avait pas de chemin à allonger. Dans un marché, les chemins sont courts, et ils ont une fin.
 
-À la place, il y avait la vitesse d'un homme qui connaissait mieux que quiconque les gens de cette ville: ceux à qui il fallait répéter deux fois avant qu'ils bougent, ceux dont les mains tremblaient les premières quand la peur montait, ceux qui n'arrivaient pas à lâcher leurs biens.
+« Ici, on ne peut pas allonger. »
 
-Parce qu'il savait qu'il pouvait pousser plus fort.
+Sion l'avait dit comme une question.
 
-« Il faut survivre pour fixer le prochain prix! » cria-t-il d'une voix aiguë.
+Haroun répondit sans arrêter ses mains.
 
-« Les mains libres d'abord! »
+« Non. »
 
-À cette voix, un marchand hésitant finit par jeter la pochette métallique de sa poitrine et courut à l'intérieur.
+« Alors, c'est quoi, ça ? »
 
-Dans un autre couloir plus profond du marché, Haroun construisait déjà une nouvelle ligne de front.
+« On déchire. »
 
-Il n'entourait pas les gens. En fait, les espaces qu'il laissait étaient plus nombreux.
+Sion fit entrer le mot « déchirer » dans sa tête.
 
-Sion le vit et comprit aussitôt.
+Si on ne peut pas allonger, on divise. On déchire en plusieurs branches pour qu'ils ne puissent pas déferler d'un coup, et on frappe une à une, en premier, celles qui se sont séparées.
 
-Ce n'était pas une ligne à bloquer. C'était une ligne pour plier tout ennemi qui entrait.
+« Alors on gagne plus longtemps ? »
 
-Des couloirs étroits laissés volontairement ouverts. Les barrières, les décombres, les sacs de sable bas et les ruelles tournantes à côté d'eux déchiraient la formation ennemie pour l'empêcher d'affluer d'un seul coup.
+« Non. »
 
-Au sein de cette formation, Haroun donnait ses ordres bas et précis.
+Pour la première fois, Haroun regarda Sion.
 
-« Dégagez la gauche. »
+« On gagne court, et on gagne plusieurs fois. »
 
-« Ne tirez pas encore là-bas. »
+Il fallut du temps à Sion pour saisir la différence.
 
-« Lorsqu'ils entrent, coupez-les au deuxième angle. »
+Dehors, on avait gagné longtemps d'un seul coup. À l'intérieur, c'était impossible, alors on gagnait plusieurs fois un peu de temps, qu'on mettait bout à bout. Si cela cassait pendant qu'on raboutait, c'était fini là.
 
-Quiconque l'entendait le savait. C'était la voix de celui qui connaissait le mieux le combat.
-
-Plus Seorin en entendait, plus cela la dérangeait.
-
-Elle détestait ça. Mais sans cet homme pour le moment, les choses s'effondrent plus rapidement. Ce fait lui restait en travers de la gorge.
-
-Elle inspira brièvement et parla à Sion.
+Seorin arriva par derrière.
 
 « Troisième couloir intérieur. Les gens s'entassent. »
 
-Sion pivota aussitôt.
+Sion allait se retourner et s'arrêta.
 
-À son arrivée, les réfugiés et les marchandises étaient déjà entassés dans une ruelle étroite à l'intérieur du marché. Un petit enfant avait retenu ses larmes et finit par éclater en sanglots. La mère tentait de retenir les bagages d'une main et l'enfant de l'autre, le visage de quelqu'un sur le point de perdre les deux.
+Seorin ne regardait pas Haroun. On voyait qu'elle ne le regardait pas exprès.
 
-Sion écarta un paquet sans avoir le temps de réfléchir.
+« Qu'est-ce qu'il y a ? »
 
-« Laisse ça! » cria-t-il. « Les gens passent en premier! »
+« Quoi ? »
 
-La femme faillit reculer, mais le bruit du métal raclant derrière elle la fit blêmir. Elle lâcha les bagages et serra d'abord l'enfant contre elle.
+« Tu ne regardes jamais de ce côté-là. »
 
-Durant ce court instant, Sion sentit de nouveau qu'il n'était pas de Hazran. Mais il n'y avait plus de place pour rester un étranger.
+Seorin ne répondit pas tout de suite.
 
-Dans la section intérieure de la coque, Jiwoo agrippait le joint avec sa mâchoire presque fermée.
+« Tout ce que dit ce type est juste. »
 
-Aka parlait bas.
+« C'est bien, non ? »
+
+« Pourquoi il en sait autant ? »
+
+Sion se tut.
+
+Haroun était à présent l'homme le plus précis de Hazran. Où abandonner, quand se retirer, quoi laisser debout pour que ça se brise : il savait tout. Celui qui sait cela est quelqu'un qui l'a déjà fait.
+
+« Et s'il n'était pas là, maintenant ? »
+
+« Ça s'effondrerait plus vite. »
+
+Seorin l'avait dit sans détour.
+
+« C'est pour ça que je déteste ça encore plus. »
+
+Sion ne savait pas quoi dire, alors il ne dit rien.
+
+« Toi, ça doit être simple. »
+
+Seorin ajouta aussitôt :
+
+« Non. Pardon. »
+
+À ces deux mots, Sion regarda Seorin. C'était la première fois qu'il la voyait reprendre ses propres paroles.
+
+« Ce n'est pas simple. »
+
+« Je sais. »
+
+« C'est juste que moi, je ne sais pas ce qu'il y avait avant. »
+
+« C'est ça qui est simple. »
+
+Sur ce, Seorin désigna le couloir du menton.
+
+« Va. »
+
+Quand Sion arriva, la ruelle étroite était bouchée.
+
+Les gens et les bagages étaient coincés ensemble. Devant, quelqu'un avait posé debout un gros baluchon, et derrière, une bonne dizaine de personnes étaient bloquées. Un enfant qui retenait ses larmes finit par éclater en sanglots. Sa mère tenait le bagage d'une main et essayait de prendre l'enfant de l'autre, au risque de lâcher les deux.
+
+Avant même de réfléchir, Sion donna un coup de pied dans le bagage.
+
+« Laissez ça ! »
+
+Sa propre voix ne lui semblait pas la sienne.
+
+« Les gens d'abord ! Passez ! »
+
+La femme regarda Sion. Elle avait le visage de quelqu'un qui allait protester.
+
+Derrière, un raclement de métal se fit entendre.
+
+La femme lâcha le bagage et serra l'enfant contre elle. La file se dénoua et les gens passèrent.
+
+Sion regarda rouler ce qu'il avait écarté du pied.
+
+Il ne savait pas ce qu'il y avait dedans. Il ne savait pas non plus combien cela valait. Ni pourquoi cette femme l'avait porté jusqu'ici.
+
+Ce que Nassim avait dit hier, il venait de le dire lui-même aujourd'hui.
+
+Quand il l'avait entendu, c'étaient des mots justes. Dans sa propre bouche, ils étaient justes, et pourtant ils lui restaient en travers de la gorge.
+
+Celui qui les avait dits était de cette ville. Il savait à qui il fallait répéter deux fois avant qu'il bouge, qui n'arrivait pas à lâcher ses affaires, et c'était lui qui, après les leur avoir fait lâcher, se tiendrait de nouveau devant eux plus tard. Si ce marché se relevait, ce serait aussi lui qui, devant eux, fixerait de nouveau les prix.
+
+Sion n'était pas d'ici. Il ne reverrait jamais cette femme, et il ne verrait pas non plus les étals d'ici se relever.
+
+C'est pour cela que ces mots étaient plus faciles à dire pour lui.
+
+Ce n'est qu'après les avoir dits que Sion comprit que cela avait été facile. En les disant, il ne l'avait pas su.
+
+La femme, l'enfant dans les bras, fit environ trois pas, puis se retourna une fois. Pas vers le bagage : vers Sion.
+
+Sion reçut ce regard sans pouvoir dire un mot.
+
+Au bout du couloir, quelque chose de noir apparut.
+
+Pour la première fois, Sion le vit de près.
+
+De loin, c'était une ligne. Ici, ce n'en était plus une.
+
+Cela avait la taille d'un homme. C'était le pire. Il y avait des épaules, des bras, des genoux, si bien qu'on ne cessait de chercher par où cela ressemblait à un humain.
+
+Mais cela ne marchait pas. Un humain qui marche fait passer son poids d'un côté à l'autre. Cette chose ne le faisait pas. Ce qui devait plier pliait exactement au moment voulu, et ne se préparait en rien avant de plier.
+
+Là où aurait dû se trouver un visage, rien ne se reflétait.
+
+Luhai recula d'un pas.
+
+Sion savait que ce n'était pas de la peur, mais le corps qui avait agi en premier. Ses propres pieds étaient déjà à moitié partis en arrière.
+
+Il regarda derrière lui.
+
+Les gens qui venaient de passer étaient encore dans le couloir. La femme à l'enfant tournait au troisième coude.
+
+Sion avança.
+
+La peur n'avait pas disparu. Il avança avec elle.
+
+La main de Haroun s'abaissa.
+
+Derrière l'abri de gauche, deux tireurs firent feu en même temps, et une courte plaque à onde de choc enfouie sous le couloir explosa et tordit de force l'équilibre de celle de devant.
+
+Sern s'engouffra dans l'ouverture.
+
+Il entra presque collé au sol, lui entailla l'arrière du genou et ressortit aussitôt. Il mit moins de temps à ressortir qu'à entrer.
+
+La chose noire plia une fois.
+
+« Maintenant. »
+
+La voix d'Ater venait de derrière.
+
+« L'accouplement de droite. »
+
+Le tireur à côté de Haroun toucha ce point.
+
+Cette fois, elle tomba pour de bon. En tombant, elle racla le mur du couloir, et la toile accrochée au mur tomba avec elle.
+
+Sion expira.
+
+Derrière, une deuxième passa par-dessus.
+
+Elle enjamba celle qui était tombée sans glisser une seule fois sur ce qu'elle piétinait. Son pied se posa sur la toile qui venait de tomber, et elle ne corrigea son angle que d'autant que la toile glissait.
+
+Même à l'intérieur du marché, cela ne se rompait pas.
+
+La deuxième avança encore de trois pas, puis dévia dans la branche de gauche. Elle était allée là où l'on avait déchiré. Du côté que Haroun avait séparé.
+
+Là-bas, le bruit reprit.
+
+Ce n'est qu'alors que Sion recula, et en reculant, il tourna la tête.
+
+Il vit la coque.
+
+Sion se figea sur place.
+
+On était dans le deuxième couloir intérieur du marché. De l'endroit où s'était tenue la chose noire jusqu'ici, Sion avait reculé de moins de vingt pas. Vingt pas derrière, il y avait le vaisseau.
+
+Sous la coque, Han Jiwoo tenait le joint d'accouplement. Elle serrait les dents. Aka, debout à côté d'elle, dit tout bas :
 
 « Ici d'abord. »
 
 « Je sais. »
 
-Jiwoo répondit sèchement.
+Han Jiwoo avait répondu rudement.
 
-« C'est la troisième fois que tu me le dis. »
+« C'est la troisième fois que tu le dis. »
 
-Mais contrairement aux mots durs, ses mains ne tremblaient pas.
+Les mots étaient rudes, mais ses mains ne tremblaient pas.
 
-Un éclat d'éthérite brillait faiblement. Sous le cadre de réception, un joint qui n'avait pas encore refroidi tremblait tout bas. Le vaisseau n'était pas entièrement vivant. Mais le métal qui faisait semblant d'être mort rendait désormais de petites réponses, comme s'il *essayait de tenir*.
+Le fragment d'éthérite s'éclaira faiblement, puis retomba. Sous le cadre de réception, le joint vibra sourdement. Le vaisseau n'était pas encore revenu à la vie. Mais on sentait sous la main que le métal, qui ne faisait jusque-là que semblant d'être mort, repoussait maintenant pour tenir.
 
-Aka observa cette réponse et parla très bas.
+Aka parla.
 
-« Un peu plus. »
+« Encore un peu. »
 
-Jiwoo laissa échapper un court souffle.
+Han Jiwoo souffla brièvement.
 
-« Un peu plus est toujours la partie la plus chère. »
+« “Encore un peu”, c'est toujours ce qui coûte le plus cher. »
 
-On aurait dit un grognement, mais c'était plutôt sa manière de dire qu'elle tiendrait jusqu'au bout.
+Malgré cela, Han Jiwoo ne retira pas ses mains. Depuis tout à l'heure, elle pressait au même endroit, et la force de sa pression ne faiblissait pas.
 
-Dehors, le bruit coupant revint.
+Sion mesura des yeux la distance entre ces deux-là et l'endroit où la chose noire venait de se tenir.
 
-Plus près cette fois.
+Ce n'était pas loin.
 
-Sern s'était dirigé vers l'intérieur et s'arrêta net.
+Jusqu'ici, que les lignes extérieures reculent, c'était l'affaire du dehors. Si elles reculaient encore et encore jusqu'ici, ce que ces deux-là tenaient entrerait lui aussi dans le même couloir.
 
-« Première percée sur le marché, » dit-il, bref. « Trois... non, quatre. »
+Sion voulut ressortir son compte, puis y renonça.
 
-Ater le suivit juste derrière.
+Il en avait compté douze. Il cherchait où poser la treizième, et ne trouvait pas.
 
-« Pas la première ligne, » dit-il. « Des unités poussées depuis l'arrière. Elles ont lu la perturbation de tout à l'heure avant d'entrer. »
+Pour compter, il fallait être à distance. Il avait vu les prix monter depuis le devant des étals, la ligne noire au-delà de la couche thermique, l'autre camp abandonner son avant depuis les hauteurs.
 
-Quand Haroun entendit cela, sa voix devint plus aiguë pour la première fois.
+Maintenant, il n'était plus à distance. C'était à portée de main.
 
-« Bien, » dit-il. « Alors on les coupe ici. »
+Sion rangea son compte et regarda vers le fond du couloir.
 
-À cet instant, une forme noire apparut au bout du premier couloir tournant à l'intérieur du marché.
-
-De l'extérieur, c'était une ligne. Mais vue de l'intérieur, c'était bien plus inquiétant.
-
-De taille similaire à celle d'une personne, mais il ne marchait pas comme telle. Les articulations pliées avec trop de précision. Le corps avançait sans la moindre hésitation. La partie qui aurait dû être un visage ne portait aucune expression: c'était plutôt une surface de surveillance noire, qui ne reflétait rien.
-
-Luhai recula d'un pas au moment où il le vit.
-
-« C'est… »
-
-Il ne put finir.
-
-Sion avança son corps sans s'en rendre compte.
-
-Il avait peur. Mais derrière cette chose, il y avait encore des couloirs pleins de monde.
-
-La main de Haroun tomba.
-
-Deux tireurs de Hazran cachés derrière la barrière de gauche tirèrent simultanément. Une courte charge à onde de choc, enfouie sous le couloir, explosa et brisa de force l'équilibre du premier androïde. Dans cet espace, Sern se glissa presque au ras du sol, frappa derrière le genou sous un angle plat, puis se retira.
-
-Le premier androïde se plia violemment, une fois.
-
-Ater parla presque simultanément.
-
-« Maintenant. Accouplement côté droit. »
-
-Le tireur à côté de Haroun toucha ce point précis.
-
-Un corps noir tomba pour de bon cette fois.
-
-Mais juste derrière, la deuxième unité enjamba celle qui était tombée sans la moindre hésitation.
-
-Même à l'intérieur du marché, cette vague ne se brisa pas.
-
-Sion comprit à ce moment-là.
-
-Hazran ne défendait plus l'extérieur. Il fallait reconstruire la ligne de front, une section à la fois, à l'intérieur du marché.
-
-La guerre était déjà arrivée. Et le marché construisait maintenant, en lui-même, de nouvelles lignes de front pour survivre.
+Il fallait, à partir d'ici, tout redresser une section à la fois.
 
 ---
 

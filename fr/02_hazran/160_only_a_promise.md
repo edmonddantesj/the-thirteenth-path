@@ -83,7 +83,7 @@ Il ne fallait pas non plus, comme la deuxième fois, créer un rythme entièreme
 Il semblait vraiment qu'il suffisait d'une seule main tendue de plus
 pour extraire l'enfant.
 
-Mais Serakion, lui aussi, semblait avoir attendu cet instant.
+Mais Serakion aussi semblait avoir attendu cet instant.
 
 Une rangée arrière se replia plus tôt que prévu,
 et deux androïdes de guidage, cette fois sans même se regarder,
@@ -176,7 +176,7 @@ Ater saisit le bras de Jiwoo.
 Pas avec force —
 juste assez pour lui laisser la décision finale.
 
-Et elle murmura, très bas :
+Et il murmura, très bas :
 
 « Nous reviendrons. »
 

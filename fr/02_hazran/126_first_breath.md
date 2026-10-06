@@ -28,7 +28,7 @@ c'était de l'air qui n'était pas commandé, mais qui contenait au moins des *t
 
 Pas parfait.
 Et donc,
-plus proche du côté qui se trouve un peu moins.
+plus proche de ce qui ment un peu moins.
 
 Aka a dit, très bas.
 
@@ -58,7 +58,7 @@ même ces endroits vides et inutiles semblaient étrangement abrités.
 Parce que cela ressemblait moins à un monde qui organise les gens de manière ordonnée et les place dans
 et plutôt un espace où les choses s'étaient brisées une fois puis avaient tenu bon, chacune à sa manière.
 
-Jiwoo s'est approché d'un mur
+Jiwoo s'est approchée d'un mur
 et toucha un tuyau, lisse et corrodé, du bout du doigt, très légèrement.
 
 Une légère chaleur ancienne persistait là,
@@ -113,10 +113,10 @@ Luhai cligna des yeux une fois, bêtement.
 
 Jiwoo lui lança un regard incrédule.
 
-« …Appelle-moi midi. »
+« …Appelle-moi grande sœur. »
 
 Après un court silence,
-Luhai baissa immédiatement légèrement sa taille et la prit.
+Luhai s'inclina aussitôt légèrement et enchaîna.
 
 « Oui, patron ! »
 
@@ -124,7 +124,7 @@ Jiwoo ravala un rire malgré elle,
 et enfin, la moindre trace de quelque chose qui s'est détaché au coin de sa bouche.
 
 Aka regardait tranquillement,
-puis il se dirigea très lentement vers le côté où se trouvaient encore les vieux appareils.
+puis elle se dirigea très lentement vers le côté où se trouvaient encore les vieux appareils.
 
 Depuis qu'elle était entrée dans cet endroit,
 elle s'était arrêtée plus souvent que dans les zones de Serakion au-dessus.
@@ -148,12 +148,12 @@ Ces mots étaient courts,
 mais suffisamment pour changer le sens de tout l'espace.
 
 Il ne s’agit peut-être pas simplement d’une zone inférieure abandonnée.
-Il s’agissait plus probablement d’un endroit où la couche d’avant Serakion est devenue ce qu’elle est aujourd’hui :
+Il s’agissait plus probablement d’un endroit où subsistait une couche d’avant l’achèvement actuel de Serakion :
 d'une époque bien plus maladroite et bien moins ordonnée.
 
 Ensuite,
 la machine qui avait ouvert le chemin plus tôt
-pour la première fois, il a complètement perdu sa face de guide Serakion.
+pour la première fois, ôta complètement son visage de guide de Serakion.
 
 Une partie de la surface extérieure s'est ouverte comme si elle se libérait,
 et sous l'extérieur excessivement lisse,

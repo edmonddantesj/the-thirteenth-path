@@ -1,205 +1,268 @@
 # Episode 94. The Line Bent Before It Broke
 
-The moment the breacher unit put its weight forward for the first time,
-Sion knew in his body that this was a completely different kind from anything they'd faced.
+The black thing stepped up onto the plate Han Jiwoo had moved half a span.
 
-Not fast.
+The plate couldn't stop it. It had never been put there to stop it.
 
-But strangely,
-that made it more frightening.
+The moment the forefoot came down on it, the plate slid sideways, and the thing's weight tipped not toward the inside of the corridor but toward the collapsed wall. The wall came down. Nothing fell on the heads of the people standing behind.
 
-The android lines until now
-had been a wave that read gaps,
-followed angles,
-filled losses, and advanced.
+Only then did Sion understand the answer he had heard earlier. So I'm the one who picks where it hits.
 
-But this wasn't a wave.
+It soon righted itself.
 
-It was more like the head placed before the wave—
-made not of water but of stone.
+Then it walked again.
 
-Harun collided first.
+Harun didn't stand in front of it.
 
-When he shoved sandbag wreckage in to bend the angle,
-the breacher unit didn't slow at all—it pushed forward with its front plating as is. The low-stacked wreckage seemed to hold for an instant, then in the next moment was shoved away whole. Broken metal plates and severed wire fragments bounced off both corridor walls. Even the sand pressed beneath the floor rang out at once.
+He dragged a whole heap of sandbag wreckage over and propped it at a slant across its line of advance. Set square in front, it would just be shoved away. Propped at a slant, it put extra weight on one knee only.
 
-Harun clenched his jaw.
+"Sern."
 
-"Sern!"
+Sern was already going in low, down and to the left.
 
-Sern was already moving.
-He didn't go head-on.
-He drove low from the left side,
-targeting the inner knee coupling line Ater had pointed out.
+The cutting tool went precisely into the inside of the knee. Sion waited for the sound. The sound he had heard more than ten times by now, short and high, metal splitting in one stroke.
 
-The cutting tool went in precisely.
+It didn't come.
 
-But this time,
-it didn't sever the way it had until now.
+Instead a single dull grinding jumped from inside, and the black body tilted very slightly, then stood straight again.
 
-A low, dull grinding sound kicked out from inside the metal,
-and the breacher unit's body tilted only the faintest degree.
+Sern pulled out.
 
-Sern's eyes changed for an instant.
+"Two layers,"
+Ater said.
+"Inside the outer coupling there is one more reinforcement axis. Both have to be cut together before it goes down."
 
-Not working.
-No—
-not that it wasn't working,
-but one pass wasn't enough.
+"Can it be done in one?"
+Harun asked.
 
-Ater called out immediately.
+"It cannot. You go in, push, and then press again."
 
-"Double-layered! Not the outer coupling—the inner reinforcement axis must be severed together!"
+"How many beats?"
 
-That meant
-getting closer than before.
+Ater didn't answer right away.
 
-Longer.
-Deeper.
-More dangerously.
+Sion knew what that silence was counting. It looked as if he would know without counting, but he was counting anyway. Once you count, you have to say it.
 
-Harun didn't hesitate.
+"Two beats."
 
-He angled sandbag wreckage diagonally across the breacher's front again,
-bracing its weight with his whole body to twist it once.
-Not stopping it head-on—
-making more load fall on one knee.
+Harun looked toward Sern.
 
-"Now!"
+Sern started to set his shoulder against the wall, then stopped. There was no wall to lean on. The thing had brought it down as it passed.
 
-Ater fired at the upper right almost simultaneously.
-A short round grazed the breacher's upper sensor surface, shaking its gaze for the briefest instant.
-In that gap Sern went under again.
+Sion saw the movement stop halfway.
 
-Deeper this time.
+"The dust?"
+Sern asked.
 
-The cutting tool passed the first coupling line.
-The instant it reached the inner reinforcement axis,
-a sharp fracture sound kicked from the black body's underside.
+Ater looked to the end of the corridor.
 
-The breacher unit's left leg buckled decisively once.
+"It has nearly all settled."
 
-But that wasn't the end either.
+Sion didn't know why that answer mattered to Sern, and then, half a beat later, he did.
 
-It was less built to fall
-and more built to keep pushing even in a collapsed state.
-The unit pressed forward with one side buckled,
-and the sandbag wreckage Harun had braced finally half-burst away.
+Until now, Sern had cut and then vanished into the dust. He had gotten out in the short stretch while the other side lost him. With the dust settled, he would stay in plain view even after the cut.
 
-In that moment,
-Sion almost saw the picture of it actually reaching the hull.
+Going in took two beats, and now coming out would have to happen in the open.
 
-The inside of his spine went cold.
+"I will go,"
+Sern said.
 
-"Harun!"
-He shouted without meaning to.
+"That will not do,"
+Ater said.
+
+Sion looked at the two of them. It was the first time Ater had cut Sern off.
+
+"Two beats will not do,"
+Ater said.
+"I said so myself."
+
+"There was dust then."
+
+"Which is exactly why not."
+
+"If not now, that thing reaches the hull."
+
+"I know."
+
+Only then did Harun cut in.
+
+"I'll go in."
+
+Ater turned his head toward Harun.
+
+"You cannot."
+
+"I can hold two beats too."
+
+"You do not use a cutting tool."
+
+"I press with my body."
+
+"And while you press, who watches that line?"
 
 Harun didn't answer.
 
-Instead he pressed his body lower,
-holding the collapsing angle from straightening all the way through the corridor.
-Those few seconds
-were saving a few more people on the hull line behind.
+Sion knew that silence. How many times today already. It wasn't the silence of having no answer; it was the silence of knowing that once you opened your mouth, you would have to do what you said.
 
-Nasim, holding the second group, shouted for the first time in a voice genuinely mixed with fury.
+"I cannot raise the barriers,"
+Ater said.
+"Neither can Sern. They stand only in the sequence you laid them."
 
-"Get them up faster!"
-He screamed in his cracked voice.
-"It's coming down over there!"
+"They all blew earlier."
 
-Those words were an order
-and nearly a scream.
+"Three remain."
 
-Luhai's hand slipped lifting the stretcher leg.
-Seorin caught it immediately and reset the angle.
-Sion ran one more time between the corridor and the ramp, kicking away wreckage that could trip feet.
+Harun looked down the corridor. He had the face of a man counting with his eyes where the three were.
 
-Inside,
-Jiwoo was reading the hull's trembling through her palm.
+Then he went back to the wreckage.
 
-"At this level it holds."
-She said, low.
-"But one big hit more and there's no answer."
+Sern looked at Ater.
 
-Aka, listening outward,
-murmured very low.
+"Then why do you stop me?"
 
-"It bends one more time."
+Ater didn't answer right away.
 
-Sion didn't fully understand that either.
-But Ater comprehended immediately.
+Sion couldn't read anything in that face. This man's face rarely changed. But now it looked less like it wasn't changing and more like he was keeping it from changing.
 
-"Harun, not yet!"
-He shouted.
-"It will push again. It uses force twice before it fully collapses!"
+"I cannot make you a way out,"
+Ater said.
 
-The warning was fast,
-but the breacher's second press came almost at the same time.
+That was the reason.
 
-Dragging its buckled left leg,
-it threw its entire body forward again.
-This time, more than crushing force,
-the will to simply flatten the path to the end was more vivid.
+Sern heard the answer and nodded once.
 
-Harun took it head-on.
+"Then do not make one."
 
-His body was shoved back hard.
-The sandbag wreckage half-burst and flew behind him.
+And he went in.
 
-Sern tried to drive in immediately,
-but Ater shouted first.
+At the same moment Harun shoved the wreckage. The slanted sandbags bit into the black thing's left knee, and it threw its upper body forward to push the weight off.
 
-"Not below—behind!"
+In that instant, everything landed on one knee.
 
-Sern changed direction almost on instinct.
-Not the front coupling—
-he drove deep into the reinforcement axis behind the buckled left leg.
-And this time he didn't pull the cutting tool out.
-He pressed it all the way through.
+"Now!"
 
-A sharp metal fracture sound
-rang out clearly this time.
+The cutting tool went in. Once. Sern twisted his wrist and pushed it further. Twice.
 
-The breacher unit's weight collapsed for one decisive instant.
-The forward center of gravity wrenched hard to the side.
+Something broke inside. A different sound from before. Not high, but low. The sound of something thick snapping.
 
-In that gap Harun shoved wreckage back in with his remaining strength.
-Ater drove two short rounds in rapid succession into the upper body's inner gap.
+The black thing's left leg buckled.
 
-One black mass of weight
-finally tilted sideways in the middle of the corridor and stopped.
+And that wasn't the end.
 
-Not fully destroyed.
-But at the very least,
-it had failed to open the path all the way to the hull right now.
+It didn't fall; it pushed forward from where it had sunk. It had been built to keep pushing even with a leg gone.
 
-The air on Hazran's side came alive for one beat.
+The sandbag wreckage burst.
 
-But even that surviving beat
-couldn't turn into joy.
+Sion saw it burst. A metal plate split in two, one half striking the corridor wall and bouncing off, and Harun was on the inside of it.
 
-The moment Harun stepped half a pace back,
-a dark-red line spread late from his left arm.
+"Harun!"
 
-Sion saw it
-and felt his heart sink as if it dropped straight down.
+Harun didn't step back. If he stepped back, the thing would straighten its angle at once. He forced his body in among the burst wreckage and took the remaining half on his left shoulder.
 
-Whether it was shallow,
-or deep—
-he didn't know yet.
+Sern was still inside.
 
-But clearly,
-this had not been held without cost.
+Seeing that, Sion felt his feet carry him forward. Ater blocked him with an arm.
 
-The second group's stretcher crossed into the hull in that gap.
+"Remain here."
 
-People had pulled out
-one more time, for real.
+"He's not coming out."
 
-And Sion understood.
+"He will."
 
-The time Hazran was buying now
-was becoming a price paid more and more clearly in blood.
+Then Ater put two short rounds high on its upper body. He hadn't fired to break it. Its front tipped upward once, and in that once, the space beneath it opened.
+
+Sern rolled out from under it.
+
+It was open ground. No dust. Sion saw the other side see him.
+
+Sern didn't get up; he rolled sideways twice where he was. Then he stood. He stood and took two steps toward the wall, but there was no wall there either.
+
+Sion stepped in front of him.
+
+Sern paused, then put a hand on Sion's shoulder.
+
+The weight came.
+
+Far more of it than he had expected. Sion braced his legs. This was how much the man had been putting on walls all along.
+
+"Thank you,"
+Sern said.
+
+"Don't talk."
+
+"Why is that?"
+
+"Use it for breathing."
+
+Sern gave a short laugh. Half of it leaked out as sound.
+
+Still taking the weight, Sion looked back.
+
+The third line still stood at the foot of the ramp. No one had gone up.
+
+They couldn't. If the hull door opened while the corridor was open, that thing would follow them all the way inside. So even with all twenty gathered and standing there, no new mark went on the tally board.
+
+The person at the front looked toward Sion. A questioning face, but the mouth stayed shut.
+
+Sion shook his head.
+
+The person faced front again. No anger, no sinking to the ground. Just stood in the same spot as before.
+
+Sion didn't count that line. If he counted, he would have to count the other side too, the way Seorin had taught him earlier, and right now he had no hands to spare for that.
+
+The black thing had stopped in the middle of the corridor, tilted on its side. Not fully broken. Not able to rise again either. Like that it blocked half the corridor, and whether that helped this side or hurt it, no one knew yet.
+
+Harun came out from the wreckage.
+
+He shifted his grip on his weapon with his right hand and didn't use his left.
+
+Sion didn't notice at first. He noticed when Harun walked over to the board and drew a mark. Until now, Harun had drawn them with his left hand.
+
+This time he drew it with his right. The weapon tucked under his arm.
+
+"Harun."
+
+"What."
+
+"Your left arm."
+
+"It's not cut off."
+
+"That's not what I mean."
+
+Harun didn't answer; he looked at the board.
+
+"How many left?"
+
+Sion looked at the board. Two marks. The third line hadn't lifted off yet.
+
+"Nine runs."
+
+"Nine."
+
+Harun repeated the number once, then turned back toward the corridor.
+
+As he turned, something dark red had run down under his left sleeve to the wrist. A drop fell from his fingertip. The moment it touched the sand, it was gone. The settled dust drank it first.
+
+Sion looked at the spot.
+
+Until a while ago, the dust hanging over this floor had let nothing stay. Now the dust had settled, so a wet mark would stay as it was. But that mark, too, was soon gone.
+
+Sern took his hand off Sion's shoulder.
+
+"Let us go."
+
+"Where?"
+
+"His arm needs binding first."
+
+Sion looked at Sern's side. It was wet there too.
+
+"What about you?"
+
+"I use my right hand."
+
+They both knew that wasn't an answer. Sern knew it when he said it, and Sion knew it as he followed.
 
 ---
 

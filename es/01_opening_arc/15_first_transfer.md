@@ -1,216 +1,289 @@
 # Capítulo 15 — El primer transbordo
 
 La capa de acceso exterior era mucho más silenciosa que el interior de la ciudad portuaria neutral.
-En otro tiempo había sido una zona de transbordo gris donde se separaba y embarcaba la carga de desecho, los envíos no oficiales y la gente empujada fuera de los registros; por eso las balizas muertas y las líneas de acceso vivas siempre andaban pegadas unas a otras.
+En otro tiempo había sido una capa de transbordo gris donde la carga de desecho, los envíos no oficiales y la gente empujada fuera de los registros cambiaban de nave; por eso las balizas muertas y las líneas de acceso vivas siempre andaban pegadas unas a otras.
 
-Silencioso no quería decir tranquilo.
-Más bien lo contrario. Justo porque había poca gente, cada movimiento se oía con más claridad. El chirrido metálico de un remolcador de carga que pasaba a lo lejos, el temblor de una línea de energía a punto de apagarse, en algún sitio una mampara que se cerraba con retraso. Si el interior del puerto ocultaba algo bajo el ruido, este lado ocultaba algo bajo el silencio.
-
-La puerta del montacargas de acero se abrió del todo y un aire frío se coló dentro.
-Sion salió el primero, y tras él fueron saliendo, por orden, Seorin, Sern y Ater. Yona salió el último y rozó una vez más el panel del montacargas. La tenue luz de encendido se apagó, y la puerta de acero volvió a cerrarse, quieta, como una estructura muerta.
-
-—Bien.
-Yona lo dijo en voz baja.
-—A partir de aquí es de verdad fuera del puerto.
+Que fuera silencioso no quería decir que fuera tranquilo.
+Más bien al contrario. Como había poca gente, cada cosa que se movía se oía mejor. El chirrido metálico de un remolcador de carga que pasaba a lo lejos, el temblor de una línea de energía a punto de apagarse, el golpe de una mampara que se cerraba con retraso en alguna parte. Si el interior del puerto tapaba algo con ruido, este lado lo escondía con silencio.
 
 Sion miró alrededor.
-Capa de acceso exterior, la llamaban, pero eso también era solo media verdad. Ni zona oficial de pasajeros ni un completo cementerio de desecho. Una franja intermedia. Antiguos puentes de transbordo abandonados hacía mucho y unas cuantas líneas de acceso vivas unidas a la fuerza. Los carteles estaban descoloridos, la mitad de las luces muertas, y las planchas de acero bajo los pies parecían gastadas no por el paso de la gente, sino por el viento y el polvo.
+La llamaban capa de acceso exterior, pero eso también era verdad solo a medias. Ni zona oficial de pasajeros ni cementerio de desechos del todo: una franja intermedia. Un espacio donde unos puentes de transbordo abandonados hacía mucho y unas cuantas líneas de acceso vivas estaban unidos a la fuerza. Los letreros estaban descoloridos, la mitad de las luces muertas, y las planchas de acero bajo los pies no parecían gastadas por el paso de la gente, sino por el viento y el polvo.
 
 Seorin murmuró a su lado.
 
-—Estupendo. No es sitio para vivir.
+—No es sitio para que viva nadie.
 
-—Por eso es un punto de transbordo.
-Yona replicó.
+—Por eso es donde se cambia de nave.
+Yona le replicó.
 
-Sern ya recorría con la mirada la estructura de alrededor.
-Líneas de vigilancia arriba, vías vacías abajo, rastros de conexiones de energía de emergencia, marcas de pisadas recientes. Esta zona era menos enrevesada que el cuerpo principal del puerto, pero a cambio, si se leía mal, no había dónde esconderse.
-
-Ater asimilaba aquel paisaje con un paso de retraso.
-Estaba fuera de la ciudad portuaria neutral y, aun así, seguía siendo parte de la ciudad. No: más bien era la sombra que queda cuando una ciudad se desprende de las partes de las que no quiere responder. Un camino que no dejaría ni una línea en los registros oficiales y que, sin embargo, alguien seguía usando. Esa contradicción se le quedaba enganchada en los ojos.
+Sern ya estaba recorriendo con la mirada la estructura de alrededor.
+Las líneas de vigilancia de arriba, las vías vacías de abajo, los rastros de conexiones de energía de emergencia, las huellas de pies recientes. Esa zona era menos enrevesada que el cuerpo principal del puerto, pero, a cambio, si se leía mal, no había dónde esconderse.
 
 Yona señaló con la barbilla las vías oscuras de delante.
 
 —Por allí.
 
-A lo lejos, encajada en la larga sombra entre dos cascos abandonados, se ocultaba una pequeña lanzadera.
-Ni vistosa ni nueva. Se parecía más a una lanzadera de carga que había aguantado mucho tiempo. Las marcas exteriores estaban medio borradas, y el número de matrícula tenía huellas de retoques deliberados. Era la cara de una nave que había sobrevivido fingiendo no ser ni legal ni ilegal.
+A lo lejos, dentro de la larga sombra encajada entre dos naves muertas, se escondía una pequeña lanzadera de enlace.
+No era vistosa ni parecía nueva. Se parecía más bien a una lanzadera de carga que había aguantado mucho tiempo. Las marcas exteriores estaban medio raspadas, y el número de matrícula tenía huellas de haber sido repintado a propósito. Era la cara de una nave que había durado mucho fingiendo no ser ni legal ni ilegal.
 
 Sion la miró y preguntó.
 
 —¿Esa?
 
 —Sí. El primer transbordo.
-Yona respondió corto.
-—Hasta aquí puedo llevarlos; no más allá. Desde ahí los pasan a la línea exterior del cúmulo estelar.
+Yona le contestó.
+—Con esta los llevo yo hasta el siguiente punto de acceso, y allí los paso a la línea exterior que va hacia el cúmulo.
 
-Seorin frunció el ceño.
+Seorin torció el gesto.
 
 —No me gusta.
 
-—Las naves que gustan no vienen a sitios como este.
-dijo Yona.
+—Las naves que gustan no vienen a estos sitios.
+Eso dijo Yona.
 
-Ater preguntó en voz baja.
+Ater preguntó con calma.
 
-—¿Quién pilota la nave?
+—¿Quién pilota la nave del cúmulo?
 
 Yona no respondió enseguida a esa pregunta.
-En lugar de eso, miró una vez a Sion. Cuando Sion asintió muy levemente, solo entonces abrió la boca.
+En lugar de eso, miró una vez a Sion. Solo cuando Sion asintió muy levemente abrió la boca.
 
 —El nombre todavía no lo digo.
-Lo dijo seco.
-—Elia abrió el punto de acceso; el nombre de después, dijo que lo oirían allí.
+Ella lo dijo con sequedad.
+—Elia abrió hasta el punto de acceso, y dijo que el nombre de después lo oyeran allí.
 
-Sion soltó una risa torcida.
+Sion soltó una risita.
 
 —Sigues sin fiarte de nadie hasta el final.
 
-—Por eso todavía no estoy muerto.
+—Por eso sigo viva.
 
-Pasó un silencio breve.
+Corrió un breve silencio.
 
 En ese momento, desde lejos, una vibración muy baja recorrió las vías.
-No era una gran nave imperial. Tampoco un carguero civil. Algo más ligero, más rápido: la velocidad del que viene a buscar.
+No era una gran nave de estilo imperial. Tampoco un carguero civil. Era algo más ligero, más rápido: la velocidad de quien viene a buscar.
 
 Sern fue el primero en levantar la cabeza.
 
-—Se han pegado.
+—Se nos han pegado.
 
-Seorin se volvió al mismo tiempo.
+Seorin se volvió a mirar atrás al mismo tiempo.
 
 —¿Por arriba?
 
 —Por ahora, por el flanco.
-Sern respondió corto.
-—No es una nave de control, es una nave de rastreo. La han soltado más rápido que una persecución normal.
+Sern le contestó.
+—No es una nave de puesto de control, sino de búsqueda. La han desplegado más rápido que un rastreo reglamentario.
 
-Yona se tragó un juramento.
+Yona se tragó una maldición.
 
-—Rápidos.
-Esas palabras significaban algo peor que una simple persecución. Estaban más cerca de ser la señal de que alguien ya había detectado que este camino muerto volvía a pisarse.
+—Qué rápido.
+Eso significaba algo peor que una simple persecución. Estaba más cerca de ser la señal de que alguien ya había notado que este camino muerto volvía a pisarse.
+
+—¿Es del mismo lado que el tipo que subimos hace unos días? —preguntó Sion.
+
+—No lo sé —dijo Sern.
 
 Sion miró alternativamente la lanzadera, las vías en la oscuridad y la vibración a su espalda.
-A esas alturas las opciones eran sencillas. Si esperaban, se pegaban; si corrían, quizá lograban el transbordo. El problema era que los cuatro no se decidirían al mismo ritmo. Y si aquí se retrasaban un solo tiempo, no era solo perder la nave: el nombre de la nave del primer transbordo y el punto de acceso mismo quedarían manchados a la vez. Y entonces era muy probable que las demás líneas de aproximación al camino muerto se fueran cerrando una tras otra.
+Si aquí pisaban mal un solo compás, no era solo perder la nave. El nombre de la nave a la que iban a cambiar y el propio punto de acceso quedarían manchados a la vez, y entonces las líneas de acceso que aún vivían en esta capa muerta se cerrarían una tras otra. Lo que gente como Yona había tardado diez años en construir se cortaría en una noche.
 
-Ater dijo, corto.
+Su cuerpo se inclinó hacia delante antes que él. Era la postura que le salía en el muelle cuando tenía que agarrar algo a toda prisa.
+
+Ater tomó la palabra.
 
 —Démonos prisa en embarcar.
 
-Seorin lo recogió al instante.
+—No se puede.
 
-Seorin soltó una risa burlona.
-—En estos momentos sí que hablas rápido.
+Era Sern. Era la primera vez en el día que cortaba de frente las palabras de Su Excelencia.
 
-—Porque ahora hay que ser rápidos.
+—La razón.
 
-Sion sonrió de medio lado al oírlo.
-Este tipo era sin duda insoportable en circunstancias normales, pero del tipo que, cuando había prisa, se torcía de golpe hacia la prisa. Eso, la verdad, era un poco útil.
+—Son diez pasos —dijo Sern sin mirar hacia la lanzadera—. Hasta allí hay diez pasos; corriendo, cuatro segundos. El hueco en que esta capa queda vacía después de pasar el foco de búsqueda es más corto.
 
-Sern ya había pasado al paso siguiente.
+—¿Cuántos segundos?
 
-—El orden de embarque mejor que sea Sion, Seorin, Su Excelencia y yo.
+—Los he contado. Tres.
 
-Yona arqueó una ceja.
+Yona soltó una maldición muy baja.
 
-—¿Por qué?
+—¿Y entonces qué hacemos?
 
-—Los dos primeros tienen que leer enseguida la estructura interior de la nave, y Su Excelencia conviene que asegure la visión desde el centro. Yo cortaré el movimiento que se pegue al final.
+—No nos movemos.
 
-Sion soltó una risa corta.
+Sion volvió la cabeza hacia Sern.
 
-—Eh, esto sí que empieza a parecer un reparto de papeles.
+—¿Que nos quedemos aquí de pie, ahora?
 
-Seorin cortó de inmediato.
+—No de pie, sino detenidos —dijo Sern, todavía sin mirar atrás—. El foco de búsqueda no busca personas. Busca lo que se mueve. Entre las naves muertas de esta capa hay cientos de formas de pie, y si solo una se mueve, solo queda esa.
 
-—No te emociones. Yo todavía lo odio.
+Seorin lo recogió medio compás después.
 
-—Yo también.
+—…Es verdad.
 
-Ater apoyó esas palabras con una naturalidad pasmosa.
+—¿Está de acuerdo?
 
-Aquella frase dejó pasar una risa breve.
-Muy corta, pero de las que solo salen entre gente que se mantiene pegada para sobrevivir. No porque estuvieran cómodos, sino de esas que salen cuando, si uno no se ríe ahí, todo se pone tan rígido que más bien podría quebrarse.
+—No me gusta, pero es verdad.
 
-Yona se movió el primero, a la cabeza.
-El paso entre las sombras de los cascos abandonados era estrecho, y las planchas de acero bajo los pies estaban levantadas a trechos. Según quién las pisara, el sonido cambiaba. Él escogía con precisión solo las partes que sonaban menos.
+Y entonces agarró a Sion del brazo. No para impedirle avanzar: era una mano que cargaba el peso para pegarle los pies al suelo.
 
-Sion lo seguía justo detrás y dijo en voz baja.
-
-—La forma de andar de ese tipo es insoportablemente exacta, mires cuando mires.
-
-Seorin se rio un poco.
-
-—¿Eso es un cumplido?
-
-—Lo detesto, pero lo reconozco.
-
-A su espalda, la vibración volvió a crecer.
-Esta vez se vio también una luz fina que rozaba la superficie de la vía metálica. La distancia era de verdad muy poca.
-
-Sern dijo sin mirar atrás.
-
-—Aprieten el paso.
-
-Yona respondió de inmediato.
-
-—Si aprieto ahora, hace ruido.
-
-—Si no aprieta, se pega un ruido más grande.
-
-—Sí, en eso tienes razón.
-
-Hasta la lanzadera quedaban ya una decena de pasos.
-Corto si se quiere, pero con la persecución detrás, esa clase de distancia se siente más larga.
-
-Sion tomó aire una vez y cubrió los últimos pasos casi deslizándose.
-En el instante en que apoyó la mano en la pared exterior de la lanzadera, el frío del metal se le transmitió como hielo. Bajo la palma vivía el temblor pesado, propio de las lanzaderas viejas. No era una nave muerta. Aquel hecho lo tranquilizó un poco y, por extraño que pareciera, lo inquietó aún más.
-
-La rampa estaba solo medio bajada.
-Sion saltó primero dentro y recorrió el interior con la mirada. Estrecho, pero de estructura simple. Dos compartimentos delante, una bodega de carga detrás, salida de emergencia a la izquierda. No era una nave para llevar mucha gente, sino para pasar rápido lo necesario.
-
-—¡Vamos!
-
-Hizo una seña con la mano enseguida.
-
-Seorin subió la segunda, y luego Ater fue tras ella.
-Sern miró atrás hasta el final y al cabo posó la mano en la rampa.
-
-En ese instante, entre la oscuridad de detrás, un haz de luz de rastreo se extendió largo.
-
-—¡Confirmado!
-
-La voz que gritaba no estaba muy lejos.
-
-Sern miró una vez en esa dirección y, sin demora, se metió dentro.
-Yona bajó al instante el cierre manual de la rampa, y la pared exterior de la lanzadera empezó a cerrarse con un temblor.
-
-Justo antes de que el metal encajara del todo, fuera, algo rozó la pared exterior del casco.
-Era el sonido de una persecución que había llegado un paso tarde y pasaba de largo rascando. No significaba simplemente que hubiera sido por un pelo. Estaba más cerca de querer decir que alguien acababa de darse cuenta de que en esta capa de transbordo muerta había también una línea de movimiento viva.
-
-Todos contuvieron la respiración.
-
-Y al momento siguiente,
-el motor de la lanzadera resonó una vez, bajo, desde lo más hondo.
-
-La nave que había estado quieta empezó a moverse con vida.
-
-Sion, con la mano apoyada en una pared sin respaldo, sonrió muy brevemente.
-
-—Bien.
-
-Seorin preguntó recobrando el aliento.
+—Sion.
 
 —¿Qué?
 
-—Que ahora sí que vamos de verdad.
+—Tienes los talones levantados.
 
-Aquellas palabras parecían lanzadas a la ligera, pero dentro de la nave nadie las oyó a la ligera.
+Sion se miró los pies. Era verdad: los tenía levantados.
 
-Lejos de la ciudad portuaria neutral, hacia el cúmulo estelar exterior.
-Tras un nombre borrado, siguiendo el primer fragmento de un camino cortado.
+En el instante en que los bajó, llegó la primera luz.
 
-Ahora, de verdad, era el momento en que avanzar se había vuelto más inmediato que volver atrás.
+El foco de búsqueda pasó mucho más despacio de lo que esperaban. Barrió el costado de una nave muerta, barrió por debajo de un puente de transbordo cortado, llegó hasta el borde de la sombra en que estaban las cinco personas y, justo delante, se detuvo un instante.
+
+Se detuvo.
+
+Nadie respiraba.
+
+Sion veía todo lo que había dentro de esa luz. El polvo flotando, las marcas de agua sobre la plancha de acero, el borde de la luz que había llegado a medio palmo de la punta de sus pies. Medio palmo. Cerrar los ojos habría sido mejor, pero los ojos no se le cerraban.
+
+La luz volvió a moverse.
+
+Pasó.
+
+—Dos —dijo Sern muy bajo.
+
+—¿Dos qué? —susurró Yona.
+
+—Pasa dos veces más. Con este ángulo barre tres veces.
+
+—¿Y eso cómo lo sabes?
+
+—Lo usa el Imperio.
+
+Llegó la segunda luz.
+
+Esta vez el ángulo era bajo. Vino rozando la plancha de acero bajo los pies, y las sombras de las cinco personas se alargaron sobre la pared exterior de la nave muerta que tenían detrás. Sion vio su propia sombra temblar en la pared. Temblaba aunque él no se movía. Como la luz se movía, la sombra se movía.
+
+Ater habló muy bajo.
+
+—¿Las sombras no importan?
+
+—No importan. Todas las sombras tiemblan —dijo Sern, con la voz igual de baja—. Lo raro es que no tiemblen.
+
+La segunda también pasó.
+
+Seorin seguía agarrando el brazo de Sion. Tenía fuerza en la mano, pero no era la fuerza de sujetar a Sion, sino la que usaba para no moverse ella misma.
+
+Sion lo sabía. Ella, por naturaleza, era mejor corriendo. La que estaba en la postura que peor le iba, ahí, era Seorin.
+
+Antes de que llegara la tercera luz, Yona soltó una frase.
+
+—Se me duermen las piernas.
+
+—Aguante.
+
+—Estoy aguantando.
+
+Llegó la tercera.
+
+Esta vez venía de frente. Pasó partiendo con exactitud el espacio entre la lanzadera y las cinco personas, y en ese instante la pared exterior de la lanzadera quedó expuesta entera a la luz. Las marcas raspadas, el número de matrícula repintado, la rampa medio bajada.
+
+Sion pensó en qué juzgarían los de allá al ver aquello.
+
+Una nave muerta. Un casco abandonado, aparcado con la rampa sin cerrar. En esta capa hay unos cuantos más así.
+
+La luz se detuvo un momento sobre la lanzadera y pasó de largo hacia un lado.
+
+Y se alejó.
+
+Al cabo de un buen rato, la vibración de las vías de detrás se apagó. Después no se oyó nada.
+
+Yona fue la primera en soltar el aire. Solo al soltarlo se dio cuenta de que lo había estado conteniendo.
+
+—¿Se fueron?
+
+—Se fueron.
+
+—¿Por qué se fueron?
+
+Solo entonces Sern se volvió a mirar atrás.
+
+—Porque no se movió nada.
+
+Seorin soltó el brazo de Sion. Donde lo había soltado quedaban marcas de la mano.
+
+—Esto es la primera vez.
+
+—¿El qué?
+
+—Sobrevivir sin huir.
+
+Sion se miró el brazo. Las marcas de cinco dedos seguían blancas.
+
+—Me hiciste daño al agarrarme.
+
+—Si no te agarro, corrías.
+
+—No iba a correr.
+
+—Los talones.
+
+Sion cerró la boca.
+
+Ater, a su lado, habló muy bajo.
+
+—Yo cerré los ojos las tres veces.
+
+Los tres lo miraron a la vez.
+
+—…¿Se pueden cerrar?
+
+—Se pueden —respondió Sern—. Los párpados no hacen sombra.
+
+—Podría habérmelo dicho antes.
+
+—No me lo preguntó, Excelencia.
+
+Sion no dijo nada. El corazón le seguía latiendo, pero no era un corazón que hubiera corrido y se hubiera parado, sino uno que solo había latido sin servir para nada. Eso era más duro.
+
+Yona se sacudió las piernas y caminó hacia la lanzadera.
+
+—Ahora sí, subamos. Despacio.
+
+Esta vez nadie se dio prisa.
+
+La rampa solo estaba medio bajada. Sion subió primero y recorrió el interior con la mirada. Estrecho, pero de estructura simple. Dos compartimentos delante, una bodega de carga detrás, salida de emergencia a la izquierda. No era una nave para llevar a mucha gente, sino para pasar rápido solo lo necesario.
+
+—Vengan.
+
+Hizo una seña con la mano.
+
+Subieron Seorin, Ater y Sern, por ese orden. Yona, la última, bajó el cierre manual de la rampa.
+
+Hasta el ruido del metal al encajar sonó tan despacio como aquella luz.
+
+El motor de la lanzadera retumbó una vez, bajo, desde muy hondo.
+
+Sion, con la mano apoyada en una pared sin respaldo, se rio.
+
+—Sern.
+
+—Dígame.
+
+—Lo de antes. Lo de contar tres.
+
+—Sí.
+
+—¿Y si te hubieras equivocado?
+
+Sern no respondió durante un momento.
+
+—Si me hubiera equivocado, esta conversación no existiría.
+
+—…Qué insufrible.
+
+—Sí.
+
+La nave que había estado detenida empezó a moverse, viva.
 
 ---
 

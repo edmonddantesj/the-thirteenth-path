@@ -50,7 +50,7 @@ Le combat ne pouvait plus être le même, parce que les conditions du champ de b
 
 Ater demanda le premier, à voix basse :
 
-« Tu vas le mettre devant ? »
+« Vous allez le mettre devant ? »
 
 Tout le monde réagit un peu vivement à cette question. Han Jiwoo leva la tête, et Sion retint brièvement son souffle.
 

@@ -66,7 +66,7 @@ L'une continuait de surveiller les lignes de garde au loin, et une autre, quand 
 
 Tous ces mouvements étaient si naturels que Sion ressentit soudain de la tristesse à l'idée que cette scène ne pourrait pas durer.
 
-Serakion reviendrait forcément. Et la prochaine fois, il viendrait avec beaucoup plus de précision, beaucoup plus de cruauté.
+Serakion reviendrait forcément. Et la prochaine fois, ce serait avec beaucoup plus de précision, beaucoup plus de cruauté.
 
 Ater revint et dit bas :
 

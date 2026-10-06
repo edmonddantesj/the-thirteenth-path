@@ -1,31 +1,46 @@
 # Chapitre 33 — Le prix pour entrer
 
-Le silence qui suivit le crash ne dura pas longtemps.
+Le silence qui suivit l'atterrissage forcé ne dura pas longtemps.
 
-Tandis que Han Jiwoo arrachait le panneau moteur pour l'examiner, Seorin s'occupa d'abord de purifier l'air à l'intérieur de la coque, et Sern lisait les flux de vent et de chaleur au-dehors. Ater vérifia jusqu'où les traces d'approbation restantes avaient cessé de répondre, et Kael, sans avoir posé son fragment une seule fois au sol, se contentait de fixer l'extérieur par la fente. Avoir survécu ne signifiait pas que c'était fini — ce qui commençait maintenant, c'était de déterminer quel prix il faudrait payer pour bouger.
+Sern, le front collé à la fente, regarda longuement dehors.
 
-Sion, adossé à la paroi de la coque, toucha une fois de plus le papier à l'intérieur de sa veste.
+« Là-bas, il y a une épave à moitié ensevelie. »
 
-*Hazran*
-*Aka*
+« Et alors ? »
+La question de Han Jiwoo vint du fond du panneau moteur.
 
-Les deux mots restaient toujours sans explication. En revanche, ils ne ressemblaient plus à une direction, mais à un devoir. La seule certitude était que cela se trouvait quelque part sur cette planète — qui c'était, ce que c'était, pourquoi Elia avait laissé ce nom, tout cela demeurait inconnu. Et pourtant, étrangement, cela ressemblait davantage à un objectif clair. Un seul nom ne suffisait pas, mais c'était le genre de fil qu'on ne pouvait pas abandonner.
+« Nous sommes plus petits qu'elle. »
 
-Han Jiwoo, le buste presque entièrement enfoui dans le panneau, dit :
+Le bruit qui venait de l'intérieur du panneau s'arrêta.
 
-« Magnifique. »
-Elle marmonna à voix basse.
-« Vraiment magnifique. C'est cassé avec une élégance rare. »
+« Ça prendrait combien de temps ? »
 
-Seorin enchaîna aussitôt.
+« Je l'ignore. »
+Sern poursuivit :
+« Il faut d'abord voir de quel côté souffle le vent. »
 
-« Tu peux le sauver, oui ou non. »
+Sion, en l'entendant, regarda vers la fente. Dehors, il faisait clair et il ne se passait rien. Personne aux trousses, personne qui tirait ; mais ici, à rester immobile, on finissait recouvert.
 
-Han Jiwoo ne répondit pas pendant un long moment, puis, après avoir décollé quelque chose d'un coup sec à l'intérieur, elle se dégagea enfin. Au bout de ses doigts, un fragment de ligne de réponse carbonisé.
+Sion, adossé à la paroi de la coque, ne faisait encore rien.
 
-« Le sauver, oui, c'est possible. »
-Elle dit.
-« Mais il ne redécollera jamais en l'état. Un axe est au bord de la mort, et deux plateaux de sustentation auxiliaires ne répondent plus correctement. Sans éthérite de bonne qualité, ce vaisseau finira en cercueil ici même. »
+**Hazran**
+**Aka**
+
+Les deux mots restaient toujours sans explication. En revanche, ils ne ressemblaient plus à une direction, mais à un devoir. La seule certitude, c'était que cela se trouvait quelque part sur cette planète ; qui c'était, ce que c'était, pourquoi Elia avait laissé ce nom, rien de tout cela n'était encore connu. Et pourtant, étrangement, cela restait comme un but plus net. Un seul nom ne suffisait pas, mais c'était le genre de fil qu'on ne pouvait pas jeter.
+
+Han Jiwoo, le buste presque entièrement enfoui dans le panneau, marmonna :
+
+« Génial, vraiment. C'est cassé avec une élégance rare. »
+
+Seorin enchaîna aussitôt :
+
+« Tu peux le sauver, oui ou non ? »
+
+Han Jiwoo ne répondit pas pendant un long moment ; ce n'est qu'après avoir détaché quelque chose d'un coup sec, à l'intérieur, qu'elle se dégagea. Au bout de ses doigts, un morceau de ligne de réponse carbonisé.
+
+« Le sauver, oui. »
+Elle continua :
+« Mais tel quel, il ne redécollera jamais. Un axe est allé jusqu'au bord de la mort, et les deux plateaux de sustentation auxiliaires répondent en retard. Si on ne trouve pas de l'éthérite correcte, ce truc-là finira en cercueil ici. »
 
 Un bref silence.
 
@@ -33,25 +48,29 @@ Sion demanda :
 
 « Il en faut combien ? »
 
-« Ce n'est pas une question de quantité, mais de qualité. »
-Han Jiwoo répondit du tac au tac.
-« Du vrai, pas du faux. Et dans cet état, de la poudre ne suffira pas. Il faut du matériau dont la veine est encore vivante pour recoudre tout ça. »
+« Pas beaucoup. »
+Han Jiwoo avait répondu du tac au tac.
+« Un morceau qui tient dans la main, ça suffit. Mais pas de la poussière raclée à droite et à gauche. Il faut un bloc. »
+
+Elle jeta par terre le morceau de ligne de réponse qu'elle tenait au bout des doigts.
+
+« Et un qui réagit encore. Un bloc complètement mort, on peut toujours le brancher, on retombera une fois de plus. »
 
 Ater dit à voix basse :
 
-« Êtes-vous en mesure de faire la différence. »
+« Êtes-vous capable de faire la différence ? »
 
 Han Jiwoo laissa échapper un souffle qui ressemblait à un ricanement.
 
-« Si c'est moi qui regarde, j'ai un instinct à peu près fiable, mais dans un endroit comme Hazran, les arnaqueurs sont sûrement plus nombreux que le reste. »
+« Quand je regarde, j'ai à peu près le flair, mais dans un endroit comme Hazran, il y aura sûrement plus de types qui vendent du toc que d'honnêtes. »
 
 Sern ajouta calmement :
 
-« Autrement dit, il faut trouver la marchandise, et aussi une main qui ne triche pas. »
+« Autrement dit, il nous faut trouver la marchandise, et aussi une main qui ne trompe pas. »
 
-Sion, au bout de cette phrase, sentit le papier à l'intérieur de sa veste de façon plus nette encore.
+Sion entendit ces mots se raccrocher à ce qu'il portait sur lui.
 
-Une main qui ne triche pas.
+Une main qui ne trompe pas.
 Quelqu'un capable de distinguer le vrai du faux.
 Un seul nom laissé par Elia.
 
@@ -61,142 +80,139 @@ Seorin regarda Sion.
 
 « Ça se recoupe. »
 
-Sion hocha brièvement la tête.
+Sion hocha brièvement la tête, lui aussi.
 
-« En effet. »
+« On dirait. »
 
 Kael, entendant cela, détourna pour la première fois les yeux de la fente.
 
-« Il y a un endroit spécifique qui vend de l'éthérite ? »
+« Il y a un endroit où on vend de l'éthérite ? »
 
-Han Jiwoo roula une épaule.
+Han Jiwoo étira une épaule.
 
-« Des endroits qui en vendent, il doit y en avoir. La question, c'est si du vrai s'y trouve. »
+« Des endroits qui en vendent, il y en a sûrement. La question, c'est de savoir si la vraie s'y trouve. »
 
-Sern, scrutant le panneau côté extérieur, dit :
+Sern, en parcourant le panneau tourné vers l'extérieur, dit :
 
-« La trace de chaleur la plus proche se situe au nord-est. Ce n'est pas un grand établissement, mais des traces de commerce itinérant s'y superposent. »
+« La trace de chaleur la plus proche est au nord-est. Ce n'est pas un grand établissement, mais des traces de commerce itinérant s'y superposent. »
 
 Ater poursuivit :
 
-« Il y a aussi des marques au-delà du groupe d'épaves. Ce n'est pas de l'érosion naturelle — cela ressemble davantage à une ligne de passage répétée. »
+« Il y a aussi des marques qui sortent du groupe d'épaves. Ce n'est pas l'érosion du vent : cela ressemble davantage à une ligne de passage répétée. »
 
 « Ça sent le marché. »
-Han Jiwoo dit.
+Ce fut Han Jiwoo qui le dit.
 
-Seorin ne tira pas de conclusion immédiate. Au lieu de cela, elle regarda un instant le sable et les ombres d'ossatures à travers la fente, puis demanda :
+Seorin ne conclut pas tout de suite. Elle regarda un moment le sable et les ombres d'ossatures derrière la fente, puis demanda :
 
 « Et les poursuivants ? »
 
 Sern répondit brièvement :
 
-« Le contact visuel a été perdu juste après la traversée de la couche thermique. Cela dit, il serait hasardeux de considérer qu'ils nous ont entièrement perdus. »
+« Le contact visuel a été coupé juste après la traversée de la couche thermique. Il serait toutefois difficile d'affirmer que nous les avons entièrement perdus. »
 
 « Évidemment. »
-Seorin dit à voix basse.
+Seorin lui coupa la parole.
 « On est tombés vivants, et eux l'ont vu. »
 
 Kael ajouta posément :
 
-« Ils ne pourront pas descendre tout de suite. Mais ils chercheront nos traces. »
+« Ils ne pourront pas descendre tout de suite. Mais ils chercheront des traces. »
 
-Sion regarda de nouveau par la fente. Les ombres d'épaves à demi ensevelies, les rafales de sable qui balayaient les intervalles, les carcasses de métal encore brûlantes. Hazran ne ressemblait pas à une destination — plutôt à un lieu qui pouvait aussi bien faire durer ce qui avait survécu que le faire pourrir plus vite.
+Sion regarda de nouveau par la fente. Les ombres des épaves à demi ensevelies, les rafales de sable qui balayaient les intervalles, les carcasses de métal où la chaleur restait encore brûlante. Hazran ressemblait moins à une destination qu'à un lieu qui pouvait aussi bien faire durer ce qui avait survécu que le faire pourrir plus vite.
 
-Seorin résuma brièvement.
+Seorin trancha en peu de mots :
 
-« Bien. On bouge. »
+« Alors on bouge. »
 
 « Maintenant ? »
-Han Jiwoo demanda.
+Han Jiwoo renvoya la question.
 
 « Maintenant. »
-Seorin trancha.
-« Si on reste là à tout démonter sur ce vaisseau, on ne fera qu'épaissir nos traces. On prend le nécessaire et on cherche le marché d'abord. »
+Seorin coupa court.
+« Si on reste assis à éplucher l'état de ce vaisseau, les traces ne feront que s'épaissir. On prend juste le nécessaire et on cherche d'abord le marché. »
 
-Han Jiwoo ravala son mécontentement d'un claquement de langue, mais ne protesta pas. En vérité, elle le savait mieux que quiconque. La chaleur du moteur, l'axe brisé, la coque brûlante — on aurait voulu y mettre les mains avant que ça refroidisse, mais avant cela, il fallait trouver de quoi survivre.
+Han Jiwoo fit claquer sa langue comme on ravale un mécontentement, mais ne protesta pas. À vrai dire, elle le savait mieux que quiconque. La chaleur du moteur, l'axe brisé, la paroi brûlante : elle aurait voulu y mettre les mains avant que tout refroidisse, mais il fallait d'abord trouver de quoi survivre.
 
 Ater demanda calmement :
 
-« Peut-on se permettre de laisser le vaisseau vide. »
+« Pouvons-nous laisser le vaisseau sans personne ? »
 
 Cette fois, Kael parla le premier.
 
-« Pas entièrement. »
+« Pas complètement. »
 
 Un bref silence.
 
 Seorin le regarda.
 
-Kael, serrant davantage le fragment contre lui, dit :
+Kael, serrant le fragment plus près contre lui, dit :
 
-« Ici, même si ça a l'air abandonné, c'est justement ce qui est abandonné qu'on dépouille en premier. »
+« Ici, ça a beau avoir l'air abandonné, c'est justement ce qui est abandonné qu'on dépouille en premier. »
 
 Han Jiwoo eut un petit rire.
 
-« Pas mal. Tu dis exactement ce que je pense. »
+« Tu dis la même chose que moi. »
 
-Sion, au bout de ce bref échange, dessina naturellement le tableau. Si tout le monde partait, le vaisseau restait sans défense ; si tout le monde restait, personne ne trouverait rien. Quelqu'un devait rester, et quelqu'un devait s'enfoncer à pied.
+Seorin les regarda l'un après l'autre, puis répartit les rôles :
 
-Seorin semblait être arrivée à la même conclusion.
+« Sion et moi, on y va. Han Jiwoo et Sern, vous restez. »
 
-« Sion et moi, on y va. »
-Elle dit la première.
-« On repère le marché, on cherche des traces d'Aka, et on voit en même temps pour l'éthérite. »
+« Je viens aussi. »
+Ater le dit simplement.
+« S'il reste des échos d'approbation sur le marché, je les verrai le premier. »
 
-Han Jiwoo dit aussitôt :
+Seorin hocha brièvement la tête.
 
-« Moi, je reste. »
+« Moi, je ne reste pas. »
+Cette fois, c'était Kael.
 
-Ce n'était pas tant une proposition qu'une déclaration.
+Seorin, alors seulement, se tourna vers Kael.
 
-« Si on laisse ce vaisseau comme ça, c'est vraiment la fin. Il faut remettre les lignes de réponse, et colmater au moins provisoirement les parties arrachées. »
+« Alors laisse ça ici. »
 
-Sern réfléchit un instant, puis dit :
-
-« Dans ce cas, il vaut mieux que je reste aussi. C'est moi qui ai mémorisé les lignes d'approche, et il faut surveiller en continu si la poursuite se raccroche. »
-
-Ater regarda Seorin avant même de regarder Sion.
-
-« J'irai avec vous. »
-
-Seorin demanda brièvement :
+La main de Kael glissa à moitié sous son manteau, puis s'arrêta.
 
 « Pourquoi ? »
 
-« S'il reste des résonances d'approbation sur le marché, je serai le premier à les percevoir. Et s'il s'agit de trouver une main capable de distinguer le vrai du faux, je serai plus précis dans les questions à poser. »
+« Tu sais ce que c'est, l'endroit où on va. »
+Seorin poursuivit :
+« Là-bas, on met un prix sur tout ce qui se voit. Une fois le prix fixé, il reste collé, et ce qui porte un prix, on a déjà décidé qui l'emporterait. »
 
-Sion pensa que ce raisonnement n'avait rien de faux.
+Kael ne répondit pas.
 
-Restait alors Kael.
+« Si tu le laisses ici, Han Jiwoo le gardera. »
 
-Après un bref silence, Kael parla le premier.
+« Si elle en est capable. »
+Kael le dit sans détour.
 
-« Je ne reste pas. »
+Han Jiwoo voulut répliquer, puis se tut. Celle qui connaissait le mieux l'état du vaisseau ne pouvait pas contester ces mots.
 
-Han Jiwoo haussa un sourcil.
+Un bref silence.
 
-« Et si le vaisseau se fait piller ? »
+« Alors emporte-le. »
+Seorin le dit, puis ajouta :
+« Mais sache une chose avant de partir. »
 
-« Toi toute seule, tu le défendras mieux. »
-Kael dit posément.
-« Mais là-bas, pour flairer ce qui a une odeur de fragment, je serai peut-être plus rapide. »
+« Quoi ? »
 
-Ces mots ne sonnaient pas comme de la vantardise. Ni Sion, ni Seorin, ni Ater ne le contredit. Cet homme avait déjà, à plusieurs reprises, montré des signes d'avoir traqué des fragments semblables. Sur un marché, pour évaluer le prix d'une information, esquiver les regards et suivre les pistes à l'odeur, il pouvait clairement être utile.
+« Si tu le laisses ici, il peut se faire dépouiller ; si tu l'emportes, il recevra un prix. Dans les deux cas tu le perds, mais pas à la même vitesse. »
 
-Han Jiwoo claqua doucement de la langue.
+Kael laissa longtemps ces mots sans réponse.
 
-« Bon. Du coup il ne reste plus que moi et Sern. »
+Puis il enfonça le fragment une fois de plus sous son manteau. Plus profondément que tout à l'heure.
 
-« Un problème ? »
-Seorin demanda.
+« Je l'emporte. »
 
-« Non. »
-Han Jiwoo répondit sèchement.
-« Par contre, quand vous revenez, vous avez intérêt à avoir quelque chose dans les mains. »
+Sion regarda cette main. Tout à l'heure, c'était une main qui serrait ; à présent, c'était une main qui cachait.
 
-Sion sortit le papier de l'intérieur de sa veste et le déplia une fois de plus. *Hazran*, *Aka*. Une faible rafale de sable s'infiltra jusqu'à l'intérieur, faisant frémir le bord du papier.
+Han Jiwoo fit claquer sa langue, tout bas.
 
-Kael, observant la scène, demanda :
+« Mais en revenant, ramenez au moins quelque chose dans les mains. »
+
+Sion sortit le papier de l'intérieur de sa veste et le déplia une fois de plus. **Hazran**, **Aka**. Une faible rafale de sable s'infiltra jusqu'à l'intérieur et fit frémir le bord du papier.
+
+Kael, qui regardait, demanda :
 
 « Ce nom, c'est bien une personne ? »
 
@@ -208,54 +224,66 @@ Ater ajouta à voix basse :
 
 « Mais pour l'instant, mieux vaut partir du principe que c'en est une. »
 
-Kael ne posa pas d'autre question. En revanche, une infime lueur changea dans son regard. Quand une odeur de fragment se greffait sur un seul nom, l'expression d'une personne se transformait d'une certaine manière — Sion eut le sentiment, dans ce bref instant, de l'avoir déjà vu plusieurs fois.
+Kael ne posa pas d'autre question. Seul son regard changea, très légèrement. Quand une odeur de fragment s'attachait à un nom, le visage des gens changeait d'une certaine façon ; Sion, dans ce bref instant, eut l'impression de l'avoir déjà vu plusieurs fois.
 
 Les préparatifs ne prirent pas longtemps.
 
-Seorin prit d'abord de l'eau, de la toile filtrante et des éclats de balises de déplacement, avant toute arme. Ater rassembla un lecteur portatif encore fonctionnel et les fragments de registres d'approbation restants. Sion ne glissa à l'intérieur que le papier et un équipement minimal. Kael, le fragment toujours serré contre lui, repérait déjà la ligne la plus courte vers l'extérieur.
+La première chose que prit Seorin, ce ne fut pas une arme, mais de l'eau.
 
-Han Jiwoo, sortant un patch provisoire pour la paroi extérieure de la coque, marmonna.
+Sion trouva cela bizarre et la regarda.
 
-« Bon. Allez-y. Moi, je m'occupe de maintenir ce cadavre en vie. »
+« Ici, on ne meurt pas d'une balle. »
+Seorin le dit en répartissant deux bidons sur ses épaules.
+« On meurt de ne plus pouvoir marcher. »
 
-Sern examinait déjà un passage sans empreintes au-delà de la fente.
+Puis elle en tendit un à Sion. Quand il le prit, il était plus lourd que prévu.
 
-« La ligne de déplacement vers le nord-est est accessible à pied. Toutefois, mieux vaut longer les ombres des ossatures plutôt que traverser le sable à découvert. »
+« C'est lourd. »
+
+« Le jour où il deviendra léger, c'est là que ça posera problème. »
+
+Han Jiwoo, sortant un patch provisoire pour la paroi extérieure de la coque, marmonna :
+
+« Allez-y. Moi, je tiens ce cadavre pour qu'il ne meure pas. »
+
+Sern examinait déjà, derrière la fente, le côté où il n'y avait pas d'empreintes.
+
+« La ligne de passage du nord-est est accessible à pied. Toutefois, mieux vaut suivre les ombres des ossatures que le sable à découvert. »
 
 Seorin hocha la tête.
 
-« D'accord. On suit les ombres. »
+« On suit les ombres. »
 
-Quand la porte de la coque s'ouvrit entièrement, la chaleur de Hazran se rua à l'intérieur.
+Quand la porte de la coque s'ouvrit entièrement, la chaleur de Hazran s'engouffra à l'intérieur.
 
-C'était une chaleur radicalement différente de celle qu'on percevait à l'intérieur du vaisseau. Pas une chaleur mécanique — plutôt comme si la planète elle-même expirait un souffle longuement chauffé. Les odeurs de sable, de métal calciné, d'huile ancienne et de vent desséché montèrent toutes en même temps.
+Rien à voir avec la chaleur qu'on sentait à bord. Pas une chaleur de machine : plutôt comme si la planète elle-même exhalait tel quel un souffle longuement chauffé. Les odeurs de sable, de métal brûlé, de vieille huile et de vent desséché montèrent toutes à la fois.
 
-Sion, posant son premier pas au-dehors, marqua une infime pause.
+Sion, posant le premier pied dehors, s'arrêta un très bref instant.
 
-Le sable sous ses pieds n'avait rien de doux — c'était plutôt une cendre mêlée de poussière métallique. Au loin, des épaves à demi ensevelies se dressaient au-dessus du désert comme des côtes de bêtes mortes, et entre elles, des traces de passages humains répétés serpentaient faiblement. Hazran n'était pas un endroit vide. C'était plutôt un lieu où tant de choses avaient été abandonnées qu'il ne laissait même pas les gens y être abandonnés longtemps.
+Le sable sous ses pieds tenait moins du sable doux que d'une cendre mêlée de poussière métallique. Au loin, des épaves à demi ensevelies se dressaient au-dessus du désert comme les côtes de bêtes mortes, et entre elles, des traces de passages humains répétés s'étiraient faiblement. Il y avait tant de choses abandonnées ici qu'on n'y laisserait sans doute pas longtemps les gens à l'abandon.
 
 Kael descendit le premier.
 
-« Pas mal. »
-Il dit à voix basse.
 « Ça sent le vivant. »
 
-Han Jiwoo, depuis l'intérieur de la coque, renvoya aussitôt.
+Han Jiwoo, depuis l'intérieur de la coque, renvoya aussitôt :
 
 « Moi, cette phrase ne me plaît pas du tout. »
 
-Seorin, sans répondre, regarda droit devant.
+Seorin, sans répondre, regarda devant elle.
 
 « On y va. »
 
-Sur ce seul mot, les quatre s'engagèrent vers les ombres des épaves.
+Sur ce seul mot, les quatre se mirent en marche vers les ombres des épaves.
 
-Derrière eux, un vaisseau pas tout à fait mort encore, et les deux qui restaient pour le maintenir en vie.
-Devant eux, l'éthérite, une certaine Aka dont ils ne possédaient que le nom, et un marché où nul ne savait qui fixerait le prix en premier.
+Derrière eux, un vaisseau pas encore tout à fait mort, et les deux qui restaient pour le retenir.
+Devant eux, l'éthérite, une Aka dont ils n'avaient qu'un nom, et un marché où personne ne savait qui voudrait le premier fixer un prix.
 
-Hazran ne leur souhaita pas la bienvenue.
+Hazran ne leur fit pas bon accueil.
 
-C'était plutôt un lieu qui semblait dire : ceux qui entrent à pied paient d'abord.
+En marchant, Sion jeta un regard vers Kael. Le devant de son manteau était plus plat que tout à l'heure. Ce qu'il avait enfoncé plus loin se voyait moins du dehors.
+
+Personne n'avait encore annoncé de prix, et pourtant ils avaient déjà payé une fois.
 
 ---
 

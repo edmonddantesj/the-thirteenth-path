@@ -1,181 +1,324 @@
 # Capítulo 76 — La ciudad lo oyó antes que nadie
 
-Hazran conoce el peligro antes con el oído que con la vista.
+Sion no oyó nada.
 
-Sion sintió de verdad esa certeza por primera vez
-aquella madrugada, antes incluso de que amaneciera.
+Eso fue lo primero que supo Sion aquella madrugada.
 
-No fue que alguien lo avisara a gritos.
-Tampoco sonó ninguna alarma.
+Fuera todo estaba en calma. Las cuerdas de las tiendas se rozaban con el viento de vez en cuando, desde el desguace sonaba a ratos una plancha de metal, y la señal corta que enviaba la nave de vigilancia del canal llegaba con regularidad. Igual que ayer.
 
-En cambio, las pequeñas cosas que de costumbre se encadenaban con naturalidad
-empezaron a desajustarse de un modo apenas perceptible.
+Pero toda la gente de Hazran se movía de otra manera.
 
-El sonido del viento que sacudía el borde de la tienda llegó medio compás tarde,
-el ritmo con que vibraba la placa metálica del lado de la línea de retorno se quedó hueco una vez,
-y la señal corta que enviaba la nave de vigilancia, a lo lejos en el canal, era tan regular que resultaba más bien ajena.
+Sion se quedó en mitad del callejón y lo vio.
 
-La ciudad seguía en silencio todavía.
-Pero que ese silencio fuera distinto al de ayer
-ya lo sabían quienes habían vivido mucho tiempo dentro de Hazran.
+No había alboroto ni nadie corría. En cambio, los pasos se habían vuelto más rápidos, las palabras más cortas, y las manos que tensaban las cuerdas de las tiendas apretaban más. Alguien llevó los bidones de agua hacia dentro, y alguien retiró las piezas caras que había dejado expuestas en el puesto.
 
-Nasim fue el primero en borrar la sonrisa.
+Nadie dijo «guerra».
 
-Él era de los que, cuanto más inquietos, antes sonreían.
-Pero ahora ocurría lo contrario. Pasaba deprisa entre las tiendas sin sostenerle la mirada a nadie demasiado tiempo, y revisó dos veces el canal que daba la vuelta por el fondo del mercado. Para un forastero apenas se notaría la diferencia, pero cualquiera de Hazran lo sabe. Cuando a ese hombre se le va primero la sonrisa, es que el aire ya se ha dado la vuelta una vez.
+Pero la ciudad entera parecía a punto de decirlo.
 
-Harún también levantó la cabeza desde el lado de la línea de retorno.
+Sion buscó primero a Nasim.
 
-Aún no había llegado ningún informe.
-Pero quien ha vivido mucho tiempo el combate lo sabe. Hay una presión que el cuerpo lee antes que la vista. La sensación no de que alguien se acerque, sino de que alguien está plegando el campo de batalla hacia este lado.
+Nasim estaba revisando por segunda vez el canal del fondo del mercado.
 
-Harún llamó enseguida a dos personas de cerca.
+—¿Pasa algo?
 
-—Volvemos a mirar el canal exterior —dijo—.
-No miren solo con los ojos; lean también la capa térmica.
+—Todavía no.
 
-La orden fue corta.
-Pero esa voz ya traía un filo más que el de ayer.
+—Pero todos…
 
-Y en el interior,
-fue Aka la primera en detenerse.
+—Yo también soy uno de ellos.
 
-Han Jiwoo, que ajustaba una pieza en la mano, la miró de inmediato.
-Sion también siguió el final de esa mirada.
+Después de decir eso, Nasim miró hacia Sion. No sonreía.
 
-Aka, sin decir nada,
-no miraba hacia el molde receptor que acababa de fijar, sino hacia afuera.
+A Sion eso le pareció raro. Ese hombre, cuanto más inquieto estaba, antes sonreía. Había sido así desde que lo conoció.
 
-Más exactamente,
-era una cara que escuchaba más que veía.
+—¿Por qué no sonríe?
 
-Sion preguntó muy bajo.
+—Si sonrío, no veo el precio.
+
+—¿El precio?
+
+Nasim levantó el mentón hacia los puestos.
+
+—Hasta ayer, ahí el cordón térmico iba a tres la unidad. Esta mañana, a cuatro la unidad.
+
+—Ha subido.
+
+—No. No ha subido.
+
+Sion no entendió esas palabras.
+
+—El que vende no ha subido el precio.
+Lo dijo Nasim.
+—El que compra ha pagado más.
+
+Solo entonces lo entendió Sion.
+
+No era que el precio hubiera subido, sino que la gente tenía prisa. Nadie había dicho en voz alta que tenía prisa, pero había salido primero en el precio.
+
+—¿Y entonces qué es lo que viene?
+
+—No lo sé.
+
+Nasim volvió hacia el canal.
+
+—Pero todavía no ha entrado nada y el precio ya está raro.
+
+Sion se quedó allí mirando los puestos.
+
+Los objetos con precio seguían igual. Cordones térmicos, retazos de tela aislante del calor, fundas para odres de agua. Eran las cosas de la tienda donde, unas tardes atrás, Seorin había regateado.
+
+Entonces, aquel precio era un precio para regatear. Hoy no.
+
+Si el que compra no regatea, ese precio ya no es un precio. Sion lo supo hoy por primera vez.
+
+Había oídos que sabían escuchar los precios.
+
+Harún estaba del lado de la línea de retorno.
+
+Cuando Sion llegó, ya estaba mandando a dos personas fuera.
+
+—Hay que volver a mirar el canal exterior.
+Lo dijo Harún.
+—No miren solo con los ojos; lean también la capa térmica.
+
+Los dos se fueron. Al irse, uno dejó un bidón de agua. Harún lo empujó con el pie y lo arrimó a la pared.
+
+Sion vio ese gesto. No lo había tirado; le había asignado un sitio. Ese hombre, en ese momento, le asignaba un sitio a cada cosa que pasaba.
+
+—¿Ha llegado algún informe?
+
+—No.
+
+—Entonces, ¿por qué…?
+
+—El cuerpo lo lee primero.
+
+Sion pensó que esa respuesta era vaga. Pero la cara de Harún no lo era.
+
+—¿Y qué se lee?
+
+Harún no respondió un momento y miró hacia fuera.
+
+—Cuando viene gente, viene empujando de frente.
+
+—Sí.
+
+—Lo que viene ahora viene plegándose.
+
+—¿Plegándose?
+
+—Alguien está plegando el campo de batalla hacia este lado.
+
+Sion entendió la mitad de esas palabras. Esa mitad le bastó para que se le enfriara la espalda.
+
+Después, Harún miró hacia la capa térmica.
+
+—Ahora está fina.
+
+—¿La capa térmica?
+
+—Se ha enfriado durante la noche y está fina. Cuando salga el sol, se hará gruesa.
+
+—¿Y que sea gruesa es bueno?
+
+—Para nosotros.
+
+Harún no explicó más. Era de los que, en el tiempo de explicar, mandaban a una persona más.
+
+Sion fue hacia dentro.
+
+Aka estaba de pie junto al casco.
+
+Han Jiwoo, a su lado, había dejado de ajustar piezas y tenía las manos quietas.
+
+Aka no miraba a ninguna parte. Más exactamente, no tenía cara de mirar, sino de escuchar.
+
+Sion preguntó en voz baja.
 
 —¿Oyes algo?
 
 Aka no respondió enseguida.
 
-Aquel silencio, más que pensamiento,
-estaba cerca del lado que oye demasiados desajustes a la vez.
+No tardaba por estar pensando. Tenía la cara de quien escoge entre demasiadas cosas que le entran a la vez.
 
-—El sonido antes de tocar —dijo en voz baja.
+—El sonido de antes de tocar.
 
-Sion no lo entendió de inmediato.
-Pero el rostro de Han Jiwoo se endureció primero.
+—¿Qué es eso?
 
-Aka siguió hablando un poco más despacio.
+—Todavía no ha llegado.
 
-—Todavía no ha llegado —dijo—.
-Pero el camino ya está presionado.
+Lo dijo Aka.
 
-Con esas palabras,
-Sion sintió también como un vacío en la palma de la mano.
+—Pero el camino se hunde antes.
 
-No era que algo hubiera entrado directamente.
-Pero la presión que empujaba hacia este lado desde afuera
-ya estaba tocando antes el camino, el aire y el ritmo.
+Sion se guardó esa frase en la cabeza.
 
-Han Jiwoo soltó una maldición muy baja.
+Todavía no ha llegado, pero el camino se hunde. Quería decir que el peso aún no había llegado, pero el sitio adonde iba a llegar ese peso ya se hundía de antemano.
 
-—No es buena señal.
+—¿Es uno? ¿Son muchos?
 
-Aka negó brevemente con la cabeza.
+Esta vez Aka respondió un poco más rápido.
 
-—Lo falso toca primero —dijo—.
-Lo verdadero carga peso por detrás.
+—Lo falso toca primero.
 
-En el momento en que Sion oyó eso,
-le volvió la sensación de la víspera, cuando la noche de Hazran le había parecido tan hermosa que sintió que terminaría más rápido.
+—¿Lo falso?
 
-Ahora venía el lado que termina.
-Aún no se veía su figura,
-pero la ciudad ya escuchaba esa mano.
+—Lo verdadero pone el peso detrás.
 
-Cuando salió afuera,
-Hazran había cambiado, sin duda.
+Con esas dos frases, a Sion se le cortó la respiración una vez.
 
-La gente aún no armaba alboroto.
-Pero los pies se habían vuelto más rápidos,
-las palabras más cortas,
-y las manos que tensaban las cuerdas de las tiendas apretaban más fuerte que de costumbre.
-Alguien movió los bidones de agua más hacia adentro,
-y alguien retiró con disimulo las piezas caras que había sacado al borde del mercado.
+Lo que llega primero es lo que toca, y lo que viene detrás es lo que pone el peso. Si crees que lo de delante es lo verdadero y solo miras adelante, lo de atrás entra tal cual.
 
-Nadie decía la palabra «guerra».
+—¿Entonces lo de delante no hace falta contarlo?
 
-Pero la ciudad entera
-hacía el gesto del instante anterior a llevarse esa palabra a la boca.
+—Hay que contarlo.
 
-Zahir ya estaba afuera, de pie.
+—¿Por qué?
 
-Esta vez no estaba sentado.
-Tampoco era el que esperaba, como ayer.
+—Mirando lo de delante sabes cuándo viene lo de atrás.
 
-Tras recorrer despacio todo el mercado con la mirada,
-miró alternativamente hacia Nasim y hacia Harún.
+Sion oyó esa respuesta dos veces. Una al oírla, y otra al volver a darle vueltas dentro de la cabeza.
 
-—¿Lo oyeron? —preguntó.
+No hay que ignorar lo falso. Contando lo falso sale cuándo viene lo verdadero. El tiempo que gasta el que engaña era justo el tiempo que podía usar el engañado.
 
-Harún respondió primero.
+Sion quiso anotarlo, pero no tenía dónde.
+
+—¿Por qué yo no lo oigo?
+
+Sion lo dijo sin darse cuenta.
+
+Solo entonces Aka miró hacia Sion.
+
+—No has vivido aquí.
+
+—¿Y si vives mucho tiempo se oye?
+
+—Ellos lo oyen porque han vivido mucho aquí.
+
+—¿Y tú?
+
+Aka no respondió a esa pregunta.
+
+Sion no preguntó más. Ahora sabía que a esa niña había preguntas que no se le podían hacer.
+
+Han Jiwoo, a su lado, dejó lo que tenía en la mano.
+
+—Yo oigo una cosa.
+
+—¿El qué?
+
+—Ahí abajo.
+
+Sion no entendió qué quería decir.
+
+—Pon la mano bajo el casco.
+
+Sion puso la mano. No le llegó nada.
+
+—No llega nada.
+
+—A mí tampoco.
+
+—Entonces…
+
+—Ayer sí llegaba.
+
+Con esa respuesta, Sion apartó la mano.
+
+Quería decir que hasta ayer algo giraba bajo esta ciudad y esta mañana ya no giraba. Hasta para darse cuenta de que algo se había detenido hacía falta una mano.
+
+—¿Y yo qué hago?
+
+Aka se quedó un momento callada y luego habló.
+
+—Cuenta.
+
+—¿El qué?
+
+—Lo que dicen los que oyen.
+
+Sion se quedó mucho rato con esa respuesta.
+
+Quería decir que el que no oye puede juntar lo que dicen los que oyen. Oír quizá no se aprendiera, pero contar podía hacerlo desde ya.
+
+Ese día, por primera vez, Sion hizo un sitio dentro de su cabeza.
+
+Un precio, el que dijo Nasim. Un pliegue, el que dijo Harún. Un hundimiento, el que dijo Aka.
+
+Las tres venían de sitios distintos, pero las tres señalaban hacia el mismo lado.
+
+Sion no podía explicar cómo era el mismo lado. Pero, aunque no pudiera explicarlo, sí podía ponerlas una al lado de la otra.
+
+Al ponerlas una al lado de la otra, el centro quedaba vacío. Nadie había dicho todavía qué iba en ese hueco.
+
+Sern entró desde fuera.
+
+—Se han solapado tres señales fuera del canal.
+Lo dijo en voz baja.
+—Una es de confirmación, otra es la nave de vigilancia, y otra…
+
+Ahí se detuvo un momento.
+
+—Es demasiado regular.
+
+Ater lo recogió enseguida.
+
+—Es cosa de máquinas, entonces.
+
+Con ese breve intercambio, a Sion se le heló la espalda.
+
+Todavía no se veía la figura. Pero ya tenía nombre.
+
+Aka murmuró muy bajo.
+
+—No era sonido de gente.
+
+No era una explicación, sino una confirmación.
+
+La ciudad lo oyó primero,
+Aka lo oyó primero,
+y ahora hasta tenía nombre.
+
+Zahir estaba de pie fuera del mercado.
+
+El hombre que siempre esperaba sentado delante de la partida estaba hoy de pie en mitad del camino y recorrió una vez con la mirada todo el mercado.
+
+—¿Lo oyeron?
+
+Harún respondió.
 
 —Sí.
 
 Nasim también habló, sin rastro de sonrisa.
 
-—Aún no ha entrado, pero el precio ya está raro.
+—Todavía no ha entrado nada y el precio ya está raro.
 
-Zahir asintió de manera apenas perceptible.
+Hubo un asentimiento muy leve.
 
 —Entonces vienen.
 
-Una conclusión corta.
+Ante esas palabras, nadie aplazó más la confirmación.
 
-Pero en el momento en que cayó esa frase,
-ya nadie aplazó la certeza.
+En cuanto cayó esa frase, la ciudad empezó a cambiar de forma.
 
-Harún volvió a mover enseguida a la gente del lado de la línea de retorno,
-y Nasim empezó a pasar la voz a los comerciantes del fondo del mercado. Que estrechen el canal, que retiren lo caro, que plieguen las tiendas ligeras, que dejen aposta más vacíos los pasos exteriores. Hazran no se reunía como un ejército regular. En cambio, la ciudad entera empezó a transformarse en «la forma de aguantar».
+No era una formación. Hazran no era un ejército regular y no sabía hacer esas cosas. En cambio, estrechó los canales, plegó las tiendas ligeras, recogió lo caro y dejó a propósito más vacíos los pasos exteriores.
 
-Sion, viendo aquel cuadro, tragó saliva muy brevemente.
+Al ver que vaciaban, Sion se preguntó al principio por qué lo hacían.
 
-Hasta ayer era tiempo de quedarse.
-Hoy todavía es antes del comienzo.
-Pero ya se movían manos que preparaban el final.
+Si dejas un sitio vacío, el otro lado viene por ahí. Los hacían venir y elegían ese sitio.
 
-Entonces se acercó Sern.
+A Sion le pareció extraño. Porque nunca había visto una manera de luchar en la que uno mismo decide de antemano dónde va a detener al otro.
 
-Estaba más callado que de costumbre,
-y por eso justamente parecía más apremiado.
+Sion se quedó allí y miró hacia donde salía el sol.
 
-—Se solaparon tres señales fuera del canal —dijo en voz baja—.
-Una es de confirmación, otra es la nave de vigilancia, y otra…
+Todavía no había salido. La capa térmica seguía fina.
 
-Sern se detuvo muy brevemente.
+Sion sumó eso también a las tres.
 
-—Demasiado regular.
+Un precio, un pliegue, un hundimiento y, además, una capa térmica fina.
 
-Ater recogió esas palabras de inmediato.
-
-—Es del lado de las máquinas.
-
-En el momento en que Sion oyó ese breve intercambio,
-sintió que la base de la espalda se le enfriaba.
-
-La figura aún no se ve.
-Pero ahora ya tiene nombre.
-
-La máquina.
-
-—No era sonido de personas —murmuró Aka muy bajo, como si hubiera oído esas palabras.
-
-Aquello, más que una explicación, era una confirmación.
-
-La ciudad lo oyó primero,
-Aka lo oyó primero,
-y ahora también la gente empezaba a llegar a la misma conclusión.
-
-La madrugada de Hazran ni siquiera había amanecido del todo,
-y la ciudad entera ya estaba preparando el lugar al que llegaría la guerra.
+Ya eran cuatro.
 
 ---
 

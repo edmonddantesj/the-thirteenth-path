@@ -1,171 +1,274 @@
 # Episode 75. The Reports That Moved Before the War
 
-At the very moment Hazran's night was at its most beautiful, different calculations had already begun beyond it.
+When Hazran's night was at its most beautiful, outside, a different calculation was already running.
 
 A few days earlier.
 
-The Empire's report chamber was a place where order came before sound.
+The Empire's report room was a place where order came before sound.
 
-Footsteps on the metal floor did not linger long. Authorization markers floating on the walls did not glow more than necessary. Everything was precise. Everything was restrained. And that made it feel colder.
+Footsteps on the metal floor did not linger, and the approval markers floating on the wall panels were no brighter than they needed to be. Everything was clear and everything was pressed down. That made it colder.
 
-A man sat at the far end of a long table.
+At the end of a long table sat a man.
 
-He did not look particularly old. But he could not be called young either. What showed first was not the posture of someone who had sat long receiving orders, but someone who had sat long giving them.
+He did not look old. Nor was he young. His posture was not that of someone who had sat a long time taking orders, but of someone who had sat a long time giving them.
 
-The one delivering the report did not speak at length.
+The one making the report kept it short.
 
-"The last sighting of the Valkar heir's pursuit line was on the outskirts of Hazran."
+"The Valkar heir's track was last picked up on the outskirts of Hazran."
 
-Even when those words landed, the man did not react immediately.
+The man did not react at once.
 
-Instead, he looked for just a moment at one frozen marker on the table. A single line that had wavered and stopped. A single coordinate erased and recaptured. He seemed the kind who could read who had moved and how, without looking too long.
+Instead he looked for a moment at one stopped marker on the table. A line that had wavered and then stood still, a coordinate that had been erased and caught again. His were eyes that could read who had moved how without looking long.
 
-"Confirmed?"
-He asked.
+"Is it certain."
 
-The voice was low. Not the slightest rush.
+"Not yet,"
+the reporter answered.
+"But the detour traces the heir left overlap with the way the sealed approval line was approached."
 
-"Not yet."
-The reporter answered.
-"But the detour traces the heir left overlap with the approach pattern to a sealed authorization line."
+The man's expression did not change.
 
-The man did not change expression even as those words concluded.
+"He moved believing he could open it again."
 
-"So they moved believing it could be opened again."
-He said low.
+Those words were not meant for the reporter. They sounded like something a man who had known someone a long time had long been saying to that someone.
 
-That sentence was not aimed at the reporter. It sounded like something he had known for a long time, said to someone for a long time.
+A moment of silence.
 
-A brief silence.
+"Not to a living approval line,"
+he added, very coldly.
+"He will have been drawn to remains pretending to be alive."
 
-He added, very cold.
-
-"Not a living authorization line. They were likely drawn to residue pretending to be alive."
-
-The reporter could not answer. Because it was not a question but a verdict.
+The reporter could not answer. It was not a question but a judgment.
 
 The man pushed the coordinate on the table once with his fingertip.
 
 Hazran.
 
-The name did not linger long in the air. But the temperature inside the report chamber shifted by the faintest degree.
+The name did not hang long in the air. But the temperature of the report room changed, very slightly.
 
-"Let them be seen from outside the field of vision first."
-He said.
-"Do not rush. What has not been closed will try to open itself further."
+"Put it on record,"
+he said.
 
-The order carried no explanation. But it was the kind of words anyone who had worked beneath him long enough would understand immediately.
+The record officer opened an entry.
 
-No direct word to capture. No direct word to kill. Yet more ominous than either.
+In the place-name field he wrote Hazran. In the classification field, unapproved settlement, outer reaches; in the size field, unknown; and in the remarks below, low recovery value.
 
-Because it meant: see to the end who was there, who held what, who was reaching for what threshold again—before acting.
+The name was written correctly. Most of the rest was empty.
 
-And when that judgment concluded, there was no name yet. But a gaze that had already begun tilting toward Hazran had unmistakably formed.
+That was the moment Hazran first had a name in the Empire's records. Until then the city had not been on the list.
 
-The same few days earlier, the Alliance's report line was far louder than the Empire's.
+The man looked at the entry for a moment, then spoke.
 
-The sound of a door opening was louder. Who was blaming whom was immediately obvious. Reports always arrived alongside someone's irritation.
+"Have it watched first, from outside its line of sight."
 
-The side that had lost track of Sion's party at Hazran was no different.
+"Do we only attach a tail."
 
-"We lost them."
+"Do not hurry,"
+he said.
+"What has not closed tries to open further on its own."
 
-The one who said it hardened his own face even as the words left his mouth.
+The order came with no explanation. But it was the kind anyone who had worked under him long would understand at once.
 
-The woman standing before him was silent for a long time.
+There was no word of capturing, no word of killing.
 
-She looked like an entirely different kind of person from the man in the Empire's report chamber. Someone who, even while seated, could throw her body forward at any instant. Someone for whom speed came before decision. Someone more accustomed to seizing than waiting.
+That was worse.
+
+It meant he would watch to the end who was there, who held what, who was about to lay a hand on which threshold again, and decide after that.
+
+The reporter asked one last thing.
+
+"How far does clearance authority in the outer reaches go."
+
+The man did not take that question in one go.
+
+"Why use the word clearance."
+
+"That's the field classification."
+
+"Then leave it as it is,"
+he said.
+"The field judges."
+
+The reporter opened one more field. The scope-of-discretion field.
+
+There he wrote field discretion.
+
+No one in the room moved. Everyone knew what those two words meant.
+
+If no one decides, the one who gave the order disappears.
+
+After checking that field, the man rose from his seat.
+
+"Go in."
+
+He spoke as he walked toward the door.
+
+"Nothing that came out of here has been decided."
+
+That was how the record would have it.
+
+When that judgment was done, there was not yet any operation with a name. But a gaze leaning toward Hazran had clearly come into being.
+
+---
+
+Those same few days earlier, the Alliance's report ship was far noisier than the Empire's.
+
+Doors opened loudly, it showed at once who was blaming whom, and reports always came in together with someone's irritation.
+
+The ones who had lost Sion's party at Hazran were no different.
+
+"They got away."
+
+The man who said it went stiff in the face even as the words left his own mouth.
+
+The woman sitting across from him said nothing for a long while.
+
+Her hair was gray. From a distance it looked as if it had gone white with age, but her face was young.
+
+She was the quietest person in the room. While everyone talked, she alone kept her fingertips on the report and did not move.
+
+She was a different kind from the man in the Empire's report room, and yet the same in a different way. His was the posture of one who had given orders; hers was the posture of one waiting for information to settle.
 
 "Hazran?"
-She asked back.
+she asked back.
 
 "Yes."
 
-"Why would they go in there."
+"Why go in there."
 
-That was less anger and closer to incomprehension. Hazran yielded much, but enter wrong and the calculations stretched long.
+It was less anger than incomprehension. Hazran had much to gain, but go in wrong and the calculation dragged on.
 
-The reporter answered immediately.
+"Most likely for the special metal supply,"
+the reporter answered.
 
-"High probability it's for special metal supply. And—"
-He paused.
-"It overlaps with the rumors about that market girl."
+Then he stopped once.
 
-Only then did the woman's gaze shift by the smallest degree.
+"And it overlaps with the rumor about the market girl."
+
+Only then did the woman's fingertips leave the report.
 
 "Aka?"
-She said.
 
-The reporter nodded shortly.
+The reporter gave a short nod.
 
-This time there was no hesitation.
+A few people in the room started to move at once. Talk of launching an infiltration ship came from here and there.
 
-"Prepare to deploy."
-She said.
-"Launch the infiltration line first. Once the interior is confirmed, immediate recovery."
+The woman did not stop it. Instead she said nothing at all.
 
-The moment that order dropped, the air in the room moved at once.
+Because she said nothing, the room went quiet on its own.
 
-The Alliance was fast in matters like this. When what mattered was not right or wrong, but whether it could be seized now.
+"Wait."
 
-But when preparations were roughly halfway up, another report cut in very quickly.
+"If we don't go in now, we'll lose them."
+
+"We already lost them,"
+she said.
+"Rush after you've lost something and the price goes up."
+
+The preparations got about halfway up and stopped.
+
+Then another report came in.
 
 "The Empire side is looking in the same direction."
 
 The woman raised her head.
 
-"Confirmed?"
+"Sure?"
 
-"No confirmed main force movement yet. But the authorization surveillance lines and deployment signals overlap toward the Hazran outskirts. And—"
+"Not as far as main-force movement. But approval surveillance lines and deployment signals overlap toward the outskirts of Hazran."
+
 The reporter lowered his voice further.
-"There is a possibility that part of the android corps will be released alongside."
 
-This time the air in the room stopped for a different reason.
+"And part of the android legion may be let loose with them."
 
-The Alliance despised the Empire. But separate from that hatred, they knew well what the Empire's android corps meant.
+The air in the room stopped again, this time with a different meaning.
 
-Hands that made others bleed instead of bleeding themselves.
+The Alliance hates the Empire. But hatred aside, it knows well what the Empire's android legion means.
 
-The woman did not think long. She was not the kind who deliberated. But this particular judgment was vile precisely because it was fast.
+Hands that make others bleed instead of bleeding themselves.
 
-"Then we don't go all the way inside."
-She said.
+The woman heard that and stayed silent a long while.
 
-The reporter asked carefully.
+No one in the room pressed her. They all knew that when this person waited, the waiting was worth its price.
+
+The judgment that came after was quiet, and because it was quiet, it was all the more vile.
+
+"Then we don't go all the way in."
 
 "Withdrawal?"
+the reporter asked carefully.
 
-"No."
-She cut.
+"No,"
+she cut in.
 "We wait."
 
 A short silence.
 
-She added, perfectly composed.
+"No need for us to bleed for it, is there."
 
-"No need to spill our blood when we don't have to."
+No one in the room could argue.
 
-No one in the room could argue with those words.
+Because they had all already done the same calculation. If the Empire's androids went in first and churned Hazran up, the Alliance only had to clean up after. Less risk, and the recovery all theirs.
 
-Because everyone was already running the same calculation. If the Empire's androids went in first and churned Hazran, the Alliance only needed to clean up afterward. Less risk. Just collect what survived.
+Someone twisted the corner of his mouth, very slightly; someone pretended not to hear and just straightened papers.
 
-Someone twisted the corner of their mouth by the smallest degree. Someone pretended not to hear and shuffled documents.
+One of the reporters spoke, very carefully.
 
-The woman spoke last.
+"Some of our people are inside too."
+
+The woman stopped at that.
+
+"How many."
+
+"We don't know exactly. Two broker ships are inside Hazran."
+
+"Pull them."
+
+"Now?"
+
+"Now."
+
+Then she added nothing more.
+
+The reporter asked nothing more.
+
+No one counted again how many would be left inside.
+
+The woman chose knowing that. That was worse than before.
+
+The woman spoke one last time.
 
 "Let Hazran tear itself apart."
-She said.
+
+Then she added,
+
 "We pick only what survives."
 
-When that order dropped, nothing had yet befallen Hazran.
+---
 
-The scrap market still had its lanterns lit. People were still smiling beneath the evening light. Sion's party was still holding onto those few frames of brief breath.
+When that order came down, nothing had yet befallen Hazran.
 
-But outside, someone had already decided to watch them to the end. And someone else had decided to lean on that decision to save their own blood.
+The scrap market had its lamps lit, people were laughing under the evening light, and Sion's party was holding on to the short breath they had finally gotten after days.
 
-War always begins before the first shot.
+Han Jiwoo did not take her hands off the work under the hull, Aka was sitting in front of the receiving frame, and Seorin was watching the scrap market from the railing. Luhai was counting the day's take in front of the price board, believing those prices would still be good tomorrow.
 
-What arrives first is not troops, but the calculation of who will shift responsibility onto whom.
+That night in Hazran, no one looked outside. There was no reason to look. This was a city where the inside had always been more dangerous.
+
+Outside, two things had already been decided. One side had decided to watch to the end, and the other had decided to lean on that decision to spare its own blood.
+
+War always starts before the gunfire.
+
+What arrives first is not troops but the calculation of who will push the blame onto whom.
+
+Inside that calculation, Hazran was written down as a single name.
+
+A name written only in the place-name field, with the rest left empty.
+
+That name did not last long.
+
+A few days later, when the same hand corrected the same field, what went in was not the city's name but another word.
+
+A city that began by giving a name ended, in the records outside, on the side of losing one.
 
 ---
 

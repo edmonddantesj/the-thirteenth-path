@@ -1,195 +1,238 @@
 # Episode 85. The Moment the Heartline Closed
 
-The order to cut the central market line
-was crueler when it actually began to move than when it fell as words.
+When they heard it in words, it was one line.
 
-The people of Hazran were never the kind
-to stare at something crumbling for long.
+Once hands started moving, it wasn't.
 
-When what to abandon is decided, they don't cling.
-When what to save is decided, they don't hesitate.
+The second binding plate came out of the central pillar, and the people beside it cleared the spot where the power cable would be cut. Clearing it took time. Too much was hung on the cable, and it had to be taken down piece by piece.
 
-But this time was different.
+Much of what they took down could still be used.
 
-Because the central market line wasn't just a road.
-It was the trunk where everything had passed—
-who sold what and for how much,
-who fought with whom,
-who lit which tent every night.
+Sion watched what those people took down. Awning cloth, knotted cord, the boards prices had been written on, a hook someone had hung to light a lamp at night. No one kept any of it as they took it down. They set it on the floor and left it.
 
-Having to close it with their own hands
-was, for the market's people, close to squeezing shut a vein inside their own body.
+The people of Hazran didn't hold on to things once it was settled that they would be thrown away.
 
-Still, the hands didn't stop.
+But this time their hands were late, now and then.
 
-Kael tore out the binding plates beneath the central column one by one.
-The people beside him cleared the space where the power conduit would be severed. Nasim scanned the last remaining cargo and people together, swallowing curses. Luhai had already gone and come back twice, shoving the remaining people on the west line further inside.
+Sion kept going back and forth between the west corridor and the inside.
 
-Sion moved between the west corridor and the inner corridor at nearly a run.
+Who had gotten out, who hadn't moved yet, whose ankles were caught by their baggage. He counted with his eyes, pushed with his hands, and a few times carried people over himself.
 
-Whether someone had been missed.
-Who still hadn't moved.
-Who was caught by luggage at the ankle.
-He counted with his eyes,
-pushed with his hands,
-sometimes lifted and carried himself.
+"Is everyone here?"
 
-"Everyone through?"
-He asked, gulping air.
-Nasim answered immediately.
+Sion asked, out of breath.
+
+Nasim answered right away.
 
 "Two more."
 
-"Where."
+"Where?"
 
-"End of the west tents."
+"The end of the west tents."
 
-Sion heard that and turned his body again.
+Hearing only that, Sion turned.
 
-Behind him, Seorin spoke low.
+Behind him, Seorin spoke.
 
-"I'm coming."
+"I'm coming with you."
 
-Not permission. Not confirmation.
-Just the fact that she was already going to run with him.
+It wasn't a question. She was already running.
 
-The two slid to the west end almost at a sprint.
+The west end was already empty.
 
-There, an old man still remained,
-and a young merchant holding a small metal box to his chest.
-The old man couldn't use his legs properly.
-The young merchant couldn't let go of the box to the end.
+A stall frame had toppled, and a tent hung half taken down. It was a place people had passed through not long ago. A water bag lay burst on the floor, and the wet patch hadn't dried yet.
 
-Seorin drew her edge first.
+At the end of it, two were left.
 
-"Drop it."
+One was an old person. Their legs didn't work properly, and they stood leaning a hand on the wall, and the hand on the wall was shaking. Sion didn't know whether it shook from fear or from standing too long.
 
-The young merchant clenched his teeth.
+The other was a young merchant, holding a small metal box close. The merchant stood beside the old person but wasn't helping them stand. Both hands were on the box.
 
-"I can't. This is—"
+Seorin was the first to put an edge on it.
 
-"If you die, that box is done too."
-Seorin cut him off.
+"Leave that."
 
-But the man's eyes only wavered.
-His hands didn't come away.
+The young merchant clenched their teeth.
 
-Sion looked at that face and knew instantly.
-Cursing wouldn't solve this.
+"I can't. This is…"
 
-He swallowed a short breath and said.
+"If you die, that box is done too,"
+
+Seorin cut in.
+
+Sion looked at that face.
+
+The eyes wavered, but the hands wouldn't come off. It wasn't that fear kept them from letting go. They knew the fear and still wouldn't let go.
+
+Sion thought of the baggage he had kicked away yesterday.
+
+That woman had carried the child three steps, then looked back. Not toward the baggage. Toward Sion. That look was still with him.
+
+It had been the right thing to say. It was right, and still the look stayed.
+
+Sion swallowed once.
 
 "I'll carry it."
 
-The young merchant stared at him blankly.
+The young merchant looked at Sion blankly.
 
-"Move yourself first."
+Seorin looked toward Sion too. Her face said *what do you think you're doing*, but she didn't stop him.
+
+"Just get moving first,"
+
 Sion said.
-"If you're alive later, you can curse me out then."
 
-That line landed, strangely.
+"If you're still alive later, curse me then."
 
-The young merchant finally let go of the box.
-Seorin snatched it and tossed it back. Sion pulled the old man's arm and braced the body. All three turned inward almost at once.
+The young merchant let go of the box.
 
-That moment,
-the signal from Harun's side rose in the distance.
+Sion took it. Only after he took it did he know. He had expected it to be heavy, but it was light.
 
-Last call.
+Something that light, and the merchant hadn't been able to let go of it.
 
-Zahir was standing directly before the central line.
+Sion knew it wasn't about price. Things worth a lot aren't light.
 
-He didn't urge anyone to flee.
-He didn't weep.
-He didn't explain further.
+Seorin snatched the box and threw it behind them. She threw it toward the inside. The box rolled into the corridor.
 
-He only looked like a man
-watching to the very end
-as this city closed its own heart with its own hands.
+"Don't run carrying it,"
 
-"Now."
-He said, low.
+Seorin said.
 
-Kael tore out the last binding plate.
-The power conduit was severed at the point Ater had marked. A low metallic hum spread long beneath the central floor. The coupling frames holding both sides lost strength at the same time. The market tents, bridging plates, and light jetty structures resting above them collapsed downward one beat late.
+"Throw it ahead and pick it up later."
+
+Sion hooked the old person's arm over his shoulder. The old person was lighter than he'd thought. Nothing in Sion's hands today had been heavy.
+
+The three of them ran for the inside.
+
+As they ran, he saw Harun's signal go up.
+
+It was the last one.
+
+Zahir stood in front of the central line.
+
+He didn't step back and he didn't hurry anyone. He was a man standing there to watch to the very end as this city closed itself with its own hands.
+
+Sion looked at his profile as he ran.
+
+Zahir was the highest person in this city. He sat with the board in front of him; he didn't set prices, but he was where prices got set; and he had never once raised his voice.
+
+He wasn't raising it now either.
+
+Sion thought it was because this man had watched this city longer than anyone. He would have seen the central market line go up, and seen it grow. The one who had watched it longest had said to close it.
+
+And he hadn't gone back without watching it close.
+
+"Now,"
+
+Zahir said, low.
+
+Kael tore off the last binding plate. The power cable was cut where Ater had pointed.
+
+A low rumble spread long beneath the floor.
+
+The coupling frames that had held both sides lost their strength at the same time.
+
+There was one beat.
+
+During that beat, Sion saw nothing collapse. What had been holding it up was gone, but what sat on top stayed where it was. It had rested there so long it seemed to remember where it rested.
+
+Then it came down.
+
+The tents came first. The bridge plates followed. The pier structure came last, and it was the biggest.
 
 The sound was loud.
 
-Not an explosion.
-But crueler for it.
+It wasn't the sound of something bursting. That made it worse. A burst ends all at once, but this didn't end. Even after the big pieces came down, small things kept falling, and what fell brought down again what had piled up below.
 
-It was the sound of things that had passed through human hands for so long,
-had prices set on them for so long,
-had let laughter and curses pass through for so long—
-all settling down at once.
+It was the sound of things that had passed through people's hands for a long time, had prices put on them for a long time, had laughter and curses pass over them for a long time, all sinking down at once.
 
-The central market line closed.
+The powder rose.
 
-Sion turned to look back
-and felt something strange empty out inside his chest.
+What had come out earlier, when the two binding plates ground against each other, was nothing. This time it was ground out all at once from the whole length of the collapse.
 
-The spot where a road had clearly existed just moments before
-was now simply an uncrossable gap.
+It pushed up from the floor. It went up and didn't come down.
 
-A few tents left behind on the west side tilted downward and vanished.
-Beyond them, the android line that had been entering had to shift direction for an instant.
+The day's heat was still there. The powder rode on top of it and spread wide, and as it spread it turned the whole upper corridor hazy.
+
+Sion saw that because of it, the far side couldn't be seen.
+
+He knew what was on the far side, but he couldn't see it. Until a few days ago, his eyes had reached all the way there.
+
+The central market line had closed.
+
+What had been a road a moment ago had become a place no one could cross.
+
+A few tents left in the west tilted down and vanished. The black line coming in beyond them had to turn its direction once.
 
 Harun didn't miss that gap.
 
-"Take the right angle!"
-He shouted.
-"If they want to cross, make them go around!"
+"Take the right angle! If they want to come over, make them go around!"
 
-The gap made by abandoning half the market
-bought real time for the first time.
+The gap made by giving up half the market bought time for the first time.
 
-But on the faces of the people watching that time being bought,
-loss surfaced before relief.
+But there was no relief on the faces watching that time.
 
-Nasim looked at the collapsed central line once
-and closed his eyes, very briefly.
+Nasim looked once at the collapse and closed his eyes briefly.
 
-The man who would normally have been first to set a price on anything
-couldn't say a word this time.
+Sion looked at that face. This was a man who put a price on everything first. He was the one who had worked out that war was coming because heat-shedding cord had gone from one for three to one for four. He was also the one who had said to throw prices away.
 
-Luhai didn't smile either.
-He stared blankly at the place where the roads he'd been running through were now severed,
-then exhaled something that was almost a curse.
+Now he wasn't putting a price on anything.
 
-Seorin said nothing more.
+Only then did Sion understand.
 
-She glanced once at Sion, who was still supporting the old man,
-then immediately looked back.
+Putting a price on something means knowing what it's worth, and if you know what it's worth, you also know how much you've lost. He wasn't putting a price on it now because he didn't want to count.
 
-Because it wasn't over yet.
-Because the real beginning might be starting right now.
+A few days ago this man had said it. Fear always raises prices first. Prices move first, and people move after.
 
-In the inner section,
-Jiwoo heard that collapsing sound too.
+Now prices didn't move at all. There was nothing left to put them on.
 
-The joint beneath her hand trembled briefly.
-The ship, too, seemed to know what had happened outside—
-it let out one low groan.
+Luhai looked at the place where the road he used to run had been cut, and let out a very small breath.
 
-Aka said, very quietly.
+Seorin said nothing.
 
-"It closed."
+She looked once toward Sion, who was holding up the old person, and then right away looked back behind them. It wasn't over yet.
 
-Jiwoo didn't answer.
+Inside, the coupling under Han Jiwoo's hands trembled briefly.
 
-Instead she held back one trembling breath
-and pressed her hands harder.
+The ship let out one low groan.
 
-Because the reason this ship needed to come alive
-had just become one more thing clearer.
+Aka spoke quietly.
 
-Hazran had just
-truly closed its own heartline to survive.
+"It's closed."
 
-And from that moment on,
-this battle was no longer simple defense.
-It was becoming a fight to send someone, in the end,
-beyond the broken heart.
+Sion looked at the box that had rolled into the corridor.
+
+No one had picked it up. Its owner hadn't picked it up yet either. Moving the old person had kept the merchant's hands full, and even once they were free, the merchant didn't go toward the box.
+
+Sion picked it up.
+
+He picked it up and handed it to the young merchant.
+
+The merchant took it and held it close again. Holding it, the merchant looked at Sion once, but said nothing about thanks.
+
+Sion didn't wait for it.
+
+He was the one who had said the words earlier anyway. He had said that if the merchant was still alive later, they could curse him then. The merchant was alive now and had earned the right to curse him, but didn't.
+
+Sion looked at his own hands.
+
+Yesterday he had kicked away someone's baggage with these hands. Today he had carried someone's baggage with them.
+
+Both were to get people moving. Kicking it yesterday had been right, and carrying it today had been right.
+
+But yesterday that woman had looked back, and today this one didn't.
+
+Sion knew where that difference came from.
+
+There are times when it's right to make someone throw away what's worth a lot, and times when it's right to carry what's worth nothing. Choose the first and that person loses themselves; choose the second and you lose time.
+
+Today there had been time left. They had bought it by closing the central line.
+
+Sion looked at the collapse.
+
+The powder was still floating, and the far side couldn't be seen.
+
+The baggage he had kicked away yesterday would still be over there. There was no crossing to it now.
 
 ---
 

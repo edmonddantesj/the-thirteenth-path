@@ -1,179 +1,324 @@
 # Episode 76. The City Heard It Before Anyone Saw It
 
-Hazran knows danger by ear before eye.
+Sion heard nothing.
 
-Sion learned that for the first time, properly, before that dawn had even broken.
+That was the first thing Sion learned that dawn.
 
-No one shouted a warning.
-No alarm sounded.
+Outside it was quiet. The tent lines brushed in the wind now and then, a metal plate rang every so often from the scrapyard, and the short signals from the watch boats on the waterways came at a steady pace. The same as yesterday.
 
-Instead, the small things that normally flowed in natural sequence began to slip out of alignment—just barely.
+And yet the people of Hazran were all moving differently.
 
-The wind rattling the tent edges came half a beat late. The rhythm of the metal plates along the return line skipped once. The short signals from the distant waterway watch line were too regular, and that uniformity itself felt wrong.
+Sion stood in the middle of the alley and watched it.
 
-The city was still quiet.
-But the people who had lived long inside Hazran already knew: this quiet was different from yesterday's.
+There was no uproar, no one running. Instead feet had quickened, words had shortened, and the hands tightening tent lines pulled harder. Someone moved water jugs further in; someone took back the expensive parts set out on a stall.
 
-Nasim was the first to stop smiling.
+No one said war.
 
-He was the kind of man who smiled faster the more anxious he got. But now it was the opposite. He cut through the tent corridors without holding anyone's gaze, checked the inner market waterway twice. To an outsider's eye, nothing looked different. But anyone from Hazran knew. When that man's smile drops first, the air has already turned once.
+And yet the whole city seemed about to say it.
 
-Harun raised his head from the return line.
+Sion looked for Nasim first.
 
-No report had come in yet.
-But anyone who had lived through enough combat knew. There was a pressure the body reads before the eyes do. Not the sense of someone approaching—the sense of someone folding the battlefield toward you.
+Nasim was checking the waterway inside the market for the second time.
 
-Harun called two nearby personnel immediately.
+"Is something going on?"
 
-"Check the outer waterways again."
-He said.
-"Don't just look. Read the heat layers too."
+"Not yet."
 
-The command was short.
-But there was already one more edge in that voice than yesterday.
+"But everyone's…"
 
-And deeper inside,
-Aka stopped first.
+"I'm one of them."
 
-Jiwoo looked up from the part she'd been fitting, eyes going straight to her.
-Sion followed that gaze.
+Then Nasim looked over at Sion. He did not smile.
 
-Aka said nothing.
-She wasn't looking at the receiving frame they'd just bonded—she was looking outward.
+That struck Sion as strange. The more uneasy this man was, the sooner he smiled. He had been like that since they first met.
 
-More precisely,
-it was the face of someone listening, not looking.
+"Why aren't you smiling?"
 
-Sion asked, very low.
+"If I smile, I can't see the price."
 
-"You hear something?"
+"The price?"
 
-Aka didn't answer right away.
+Nasim lifted his chin toward a stall.
 
-That silence was less like thinking and more like hearing too many misalignments at once.
+"Till yesterday, heat-shedding cord over there was one for three. This morning it's one for four."
 
-"The sound before contact."
-She said, low.
+"So it went up."
 
-Sion didn't understand immediately.
-But Jiwoo's expression hardened first.
+"No. It didn't go up."
 
-Aka continued, slower.
+Sion did not understand.
 
-"It hasn't arrived yet."
-She said.
-"But the roads are already being pressed down."
+"The seller didn't raise the price,"
+Nasim said.
+"The buyers paid more."
 
-At those words,
-Sion felt something drain from his hands.
+Only then did Sion get it.
 
-Nothing had physically entered.
-But it meant the pressure pushing inward from outside was already touching the roads, the air, the rhythms first.
+The price had not gone up; people had gotten anxious. No one had said aloud that they were anxious, but it showed in the price first.
 
-Jiwoo cursed under her breath.
+"Then what's coming?"
 
-"That doesn't sound good."
+"Don't know."
 
-Aka shook her head briefly.
+Nasim went back toward the waterway.
 
-"The fake touches first."
-She said.
-"The real one loads weight from behind."
+"But nothing's come in yet, and the prices are already off."
 
-The moment Sion heard that,
-he remembered the feeling from last night—that Hazran's evening was so beautiful it seemed like it would end sooner.
+Sion stayed where he was and looked at the stall.
 
-Now the ending side was coming.
-Its shape wasn't visible yet,
-but the city was already hearing its hand.
+The priced goods were still there. Heat-shedding cord, scraps of heat-blocking cloth, covers for water bags. Things from the shop where Seorin had haggled a few evenings ago.
 
-When they stepped outside,
-Hazran had clearly changed.
+Back then those prices had been prices to haggle over. Today they were not.
 
-No one had raised a commotion yet.
-But feet moved faster.
-Words got shorter.
-Hands tightening tent lines pulled harder than usual.
-Someone moved water containers further inside.
-Someone quietly gathered the expensive parts they'd set out beyond the market edge.
+When buyers stop haggling, the price is no longer a price. Sion learned that for the first time today.
 
-No one said the word *war*.
+There was such a thing as an ear that knew how to listen to prices.
 
-But the entire city was making the gesture of a body about to.
+Harun was over by the return lines.
 
-Zahir was already standing outside.
+When Sion got there, he was already sending two people out.
 
-He wasn't sitting this time.
-He wasn't a man waiting, as he had been yesterday.
+"Look at the outer waterway again,"
+Harun said.
+"Don't just use your eyes. Read the heat layer too."
 
-He swept his gaze slowly across the whole market once, then looked between Nasim and Harun.
+The two went. As they went, one of them left a water jug behind. Harun pushed it with his foot and set it against the wall.
 
-"You heard it."
-He said.
+Sion watched that movement. It had not been thrown aside; it had been given a place. That man was giving a place to everything that passed him right now.
 
-Harun answered first.
+"Has a report come in?"
+
+"No."
+
+"Then why…"
+
+"The body reads it first."
+
+Sion thought that answer was vague. But Harun's face was not vague.
+
+"What does it read?"
+
+Harun did not answer for a moment and looked outside.
+
+"When people come, it pushes in from the front."
+
+"Right."
+
+"What's coming now comes folding."
+
+"Folding?"
+
+"Someone's folding the battlefield this way."
+
+Sion half understood that. As far as he understood it, his back went cold.
+
+Then Harun looked toward the heat layer.
+
+"It's thin right now."
+
+"The heat layer?"
+
+"It cooled overnight, so it's thin. When the sun's up it thickens."
+
+"So thick is good?"
+
+"For us."
+
+Harun explained no further. He was the kind who would send one more person out in the time it took to explain.
+
+Sion went inside.
+
+Aka was standing beside the hull.
+
+Han Jiwoo, next to her, had stopped in the middle of fitting parts, her hands gone still.
+
+Aka was not looking at anything. More exactly, hers was not a looking face but a listening one.
+
+Sion asked low.
+
+"Hear something?"
+
+Aka did not answer right away.
+
+She was not slow because she was thinking. It was the face of someone sorting through too much coming in at once.
+
+"The sound before it reaches."
+
+"What's that."
+
+"It's not here yet,"
+
+Aka said.
+
+"But the path gets pressed down first."
+
+Sion put that sentence in his head.
+
+It was not here yet, but the path was being pressed down. The weight had not arrived yet, but the place it would come to was being pressed down in advance—that was what it meant.
+
+"Then is it one? Or a lot?"
+
+This time Aka answered a little faster.
+
+"The fakes touch first."
+
+"Fakes?"
+
+"The real ones hang their weight from behind."
+
+At those two short phrases, Sion's breath caught once.
+
+What comes first is the side that touches; what comes after is the side that puts its weight on. If you think the front is the real thing and only watch the front, the back walks straight in.
+
+"Then I don't have to count the ones in front?"
+
+"You have to count them."
+
+"Why."
+
+"You have to watch the front to know when the back is coming."
+
+Sion heard that answer twice. Once while hearing it, once while turning it over again in his head.
+
+You must not ignore the fakes. Only by counting the fakes do you find out when the real ones come. The time the deceiving side spends was exactly the time the deceived side could use.
+
+Sion wanted to write it down, but he had nothing to write on.
+
+"Why can't I hear it."
+
+Sion said it without meaning to.
+
+Only then did Aka look toward Sion.
+
+"You didn't live here."
+
+"So if you live here long, you hear it?"
+
+"Those people hear it because they lived here long."
+
+"And you."
+
+Aka did not answer that question.
+
+Sion asked no more. He knew now that there were questions this child could not be asked.
+
+Beside them, Han Jiwoo set down what was in her hand.
+
+"I can hear one thing."
+
+"What?"
+
+"Down there."
+
+Sion did not know what she meant.
+
+"Put your hand under the hull."
+
+Sion put his hand there. Nothing came.
+
+"Nothing's coming."
+
+"Nothing for me either."
+
+"Then…"
+
+"Yesterday it came."
+
+At that answer, Sion took his hand away.
+
+It meant something had been turning under this city until yesterday, and this morning it was not. Even noticing that something had stopped took a hand.
+
+"Then what do I do."
+
+Aka was quiet a moment, then spoke.
+
+"Count."
+
+"Count what."
+
+"What the people who can hear say."
+
+Sion held on to that answer for a long time.
+
+It meant someone who cannot hear only has to gather what the hearers say. Hearing might not be learnable, but counting he could do starting now.
+
+That day, for the first time, Sion made a space in his head.
+
+One price, from Nasim. One folding, from Harun. One pressing-down, from Aka.
+
+All three came from different places, yet all three pointed the same way.
+
+Sion could not explain how they were the same way. He could not explain it, but he could set the three side by side.
+
+When he set them side by side, the middle was empty. No one had yet said what would go into that empty space.
+
+Sern came in from outside.
+
+"Three signals beyond the waterway have overlapped,"
+he said, low.
+"One is for confirmation, one is a watch boat, one is…"
+
+There he paused for a moment.
+
+"It is too regular."
+
+Ater picked it up at once.
+
+"Machines, then."
+
+At that short exchange, a chill ran down Sion's spine.
+
+Nothing could be seen yet. But it had a name now.
+
+Aka muttered, very low.
+
+"It wasn't a people sound."
+
+It was not an explanation but a confirmation.
+
+The city heard it first,
+Aka heard it first,
+and now it even had a name.
+
+Zahir was standing outside the market.
+
+The man who always sat waiting in front of the board was standing today in the middle of the road, and swept his eyes once over the whole market.
+
+"Did you hear."
+
+Harun answered.
 
 "Yes."
 
-Nasim, his face stripped of any humor, spoke.
+Nasim spoke too, without a trace of a smile.
 
-"Nothing's come in yet, but the prices are already off."
+"Nothing's come in yet, and the prices are already off."
 
-Zahir gave the faintest nod.
+A head nodded, very slightly.
 
-"Then it comes."
+"Then it is coming."
 
-A short conclusion.
+At those words, no one held out for more confirmation.
 
-But the moment those words fell,
-no one deferred certainty any longer.
+The moment it was said, the city began to change its shape.
 
-Harun immediately moved the return line personnel again. Nasim began passing word to the merchants deeper in the market. Narrow the waterways, store the valuables, fold the light tents, deliberately clear sections of the outer corridors. Hazran didn't assemble like a standing army. Instead, the entire city began shifting into a shape that holds.
+It was not assembling. Hazran was no regular army and did not know how to do such things. Instead it narrowed the waterways, folded up the light tents, took the expensive things back, and emptied the outer passages more on purpose.
 
-Sion watched it and swallowed one short breath.
+Seeing the emptying, Sion at first wondered why they were emptying them.
 
-Until yesterday, it had been time to stay.
-Today hadn't started yet.
-But already, the hands preparing for the end were moving.
+Leave a place empty, and the other side comes that way. They were making them come, and choosing the place.
 
-Then Sern approached.
+To Sion it looked strange. Because he had never once seen a way of fighting where you decided for yourself where you would hold the line.
 
-He was quieter than usual,
-which made it feel more urgent.
+Sion stood there and looked toward where the sun would rise.
 
-"Three signals overlapped outside the waterway."
-He said, low.
-"One for verification, one from the watch line, one…"
+It had not risen yet. The heat layer was still thin.
 
-Sern paused for the briefest moment.
+Sion put that in with the three as well.
 
-"Too regular."
+One price, one folding, one pressing-down, and one thin heat layer.
 
-Ater took that immediately.
-
-"The machine side, then."
-
-The instant Sion heard that short exchange,
-a cold sensation sank down his spine.
-
-The shape still wasn't visible.
-But now it had a name.
-
-Machine.
-
-Aka, as if she had heard,
-murmured very low.
-
-"It was not a human sound."
-
-That was less explanation than confirmation.
-
-The city heard first.
-Aka heard first.
-And now the people were arriving at the same conclusion.
-
-Hazran's dawn had not yet fully broken,
-and already the entire city was making room for war to arrive.
+That made four.
 
 ---
 

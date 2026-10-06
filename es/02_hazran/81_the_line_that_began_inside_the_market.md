@@ -1,207 +1,256 @@
 # Capítulo 81 — El frente que empezó dentro del mercado
 
-Cuando el perímetro empieza a ceder,
-el campo de batalla se acerca de golpe.
+El sonido cambió.
 
-El sonido de metal que hasta hacía un momento llegaba desde fuera
-ahora hacía vibrar levemente el techo de lona y las paredes de placas metálicas del mercado.
+Hasta hacía un momento venía de fuera. Ahora retumbaba también el techo de las lonas. Al apoyar la mano en una pared de planchas de metal, llegaba hasta la palma.
 
-Hazran ya estaba plegada en varias capas.
-Pero estar plegada no significaba estar a salvo.
-Solo significaba que el camino por el que el enemigo podía seguirte hasta el fondo
-también se había acercado.
+Sion se lanzó al segundo pasillo del interior del mercado.
 
-Cuando Sion se lanzó al segundo pasillo del interior del mercado,
-lo primero que vio no fueron las personas, sino las manos.
+Lo primero que vio no fueron las personas, sino las manos.
 
-Manos que cortaban las cuerdas de las lonas,
-manos que doblaban la tela aislante del calor y la colgaban sobre el pasillo,
-manos que apartaban a patadas las cajas de piezas para despejar el camino,
-manos que empujaban hacia dentro a quien se había caído.
+Manos que cortaban las cuerdas de las lonas, manos que doblaban la tela aislante del calor y la colgaban sobre el pasillo, manos que apartaban a patadas las cajas de piezas para despejar el camino, manos que empujaban la espalda de quien se había caído.
 
-Hazran seguía teniendo aspecto de plaza de mercado,
-pero lo que hacía ya era por completo una guerra.
+Las manos que cortaban eran las que hacía unos días habían atado esas cuerdas. Las manos que colgaban eran las que vendían esa tela.
 
-Nasim, en plena mitad del pasillo central, no dejaba de mover gente.
+Hazran todavía tenía aspecto de mercado. Los armazones de los puestos seguían en pie, y las tablillas donde apuntaban los precios aún colgaban. Solo lo que hacían era guerra.
 
-—Esto ciérralo.
-—Eso pásalo hacia dentro.
-—No, eso déjalo. ¡Las personas primero!
+Mientras corría, Sion vio una tablilla de precios. Los números seguían allí, sin borrar. Delante, dos personas no movían mercancía, sino planchas de metal.
 
-Los objetos por los que cualquier otro día habría regateado el precio
-hoy se arrojaban al suelo sin la menor vacilación.
+Harún estaba levantando una línea nueva en el pasillo interior.
 
-En la cara de Nasim no había sonrisa.
-Tampoco bromas.
+Sion ya leía esa forma sin que se la explicaran. No pone a la gente apretada. Deja vacíos más sitios. El pasillo estrecho lo deja abierto a propósito y quiebra el callejón de al lado.
 
-Pero a cambio
-tenía la velocidad de quien conoce a la gente de esta ciudad mejor que nadie.
-Quién necesita que se lo digan dos veces para moverse,
-a quién, en cuanto se asusta, le empiezan a temblar las manos,
-quién no es capaz de soltar sus cosas.
+Pero era distinto de lo que había visto fuera.
 
-Como lo sabía,
-podía empujar con más fuerza.
+Fuera alargaban el camino. Dejaban entrar y hacían caminar mucho. Aquí no había camino que alargar. El mercado tiene caminos cortos y tiene un final.
 
-—¡Hay que sobrevivir para volver a poner precio! —gritó con dureza—. ¡Primero saquen las manos!
+—Aquí no se puede alargar, ¿no?
 
-Ante esa voz,
-un comerciante que dudaba acabó arrojando la bolsa de metal que llevaba en el pecho y corrió hacia dentro.
+Lo preguntó Sion.
 
-En otro pasillo del interior del mercado,
-Harún ya estaba armando un frente nuevo.
+Harún respondió sin detener las manos.
 
-No colocaba a la gente apretada.
-Al contrario, dejaba vacíos muchos más sitios.
+—No.
 
-Sion lo vio y lo entendió enseguida.
+—¿Entonces esto qué es?
 
-Esto no era una línea para frenar,
-sino una línea para obligar a torcerse al enemigo que entraba.
+—Es desgarrar.
 
-El pasillo estrecho lo dejaba abierto a propósito,
-y usaba el biombo improvisado de al lado, los escombros, el parapeto bajo y el callejón que se quebraba para desgarrar al enemigo y que no pudiera empujar todo de una vez.
+Sion se metió en la cabeza la palabra «desgarrar».
 
-Dentro de eso, Harún daba órdenes muy bajas y precisas.
+Si no se puede alargar, se divide. Se desgarra en varios ramales para que no puedan entrar empujando de una vez, y se golpea uno por uno, empezando por lo que se ha separado.
 
-—Vacíen la izquierda.
-—Ahí todavía no disparen.
-—Si entran, se corta en el segundo ángulo.
+—¿Entonces se gana más tiempo?
 
-A ojos de cualquiera,
-era la voz de alguien que conocía el combate mejor que nadie.
+—No.
 
-Cuanto más lo oía Seorin, más incómoda se ponía por dentro.
+Harún miró a Sion por primera vez.
 
-No le gustaba.
-Pero ahora mismo, sin ese hombre, todo se vendría abajo más rápido.
-Ese hecho se le atragantaba una y otra vez.
+—Se gana poco y se gana muchas veces.
 
-Tras acompasar la respiración un instante, le dijo a Sion:
+A Sion le costó un rato entender la diferencia.
 
-—Tercer pasillo del interior, se está acumulando gente.
+Fuera se ganaba mucho de una sola vez. Dentro, como eso no se puede, se ganan trozos cortos muchas veces y se van uniendo. Si se corta mientras se unen, ahí se acaba.
 
-Sion giró el cuerpo de inmediato.
+Seorin llegó desde atrás.
 
-Cuando llegó,
-en el callejón estrecho del interior del mercado ya se habían atascado a la vez los evacuados y las cosas.
-Un niño pequeño que aguantaba el llanto acabó rompiendo a llorar,
-y su madre, sujetando con una mano el equipaje y tratando con la otra de abrazar al hijo, tenía la cara de quien va a perder las dos cosas.
+—Tercer pasillo interior. Se amontona gente.
 
-Sion, sin tiempo siquiera para pensar, apartó un bulto de una patada.
+Sion iba a girar el cuerpo y se detuvo.
 
-—¡Tiren esto! —gritó—. ¡Que pasen las personas primero!
+Seorin no estaba mirando hacia Harún. Se notaba que no lo miraba a propósito.
 
-La mujer quiso protestar por un instante,
-pero el chirrido de metal que se oyó a su espalda le dejó la cara blanca.
-Al final soltó el equipaje y abrazó primero al niño.
+—¿Qué te pasa?
 
-En ese breve instante,
-Sion volvió a sentir que él no era de Hazran.
-Pero al mismo tiempo,
-ahora no había ni un hueco para ser un forastero.
+—¿Qué de qué?
 
-En la sección del casco, en el interior,
-Han Jiwoo sujetaba la junta casi con los dientes apretados.
+—Llevas todo el rato sin mirar hacia allá.
 
-Aka dijo en voz baja:
+Seorin no respondió enseguida.
 
-—Aquí primero.
+—Todo lo que dice ese tipo es correcto.
 
-—Ya lo sé —respondió Han Jiwoo con dureza—. Es la tercera vez que lo dices.
+—¿Y eso no es bueno?
 
-Pero, al contrario que sus palabras ásperas,
-las manos no le temblaban.
+—¿Por qué sabe eso tan bien?
 
-El fragmento de eterita brillaba apenas,
-y la junta que aún no había alcanzado a enfriarse, bajo el molde receptor, vibraba bajo.
-El barco no había revivido del todo.
-Pero el metal que solo fingía estar muerto
-ahora, sin duda, empezaba a devolver poco a poco una respuesta de aguante.
+Sion cerró la boca.
 
-Aka, mirando esa respuesta, dijo muy bajo:
+Harún era ahora la persona más precisa de Hazran. Dónde abandonar, cuándo retirarse, qué dejar en pie para que se rompa: lo sabía todo. Quien sabe eso es alguien que ya lo ha hecho antes.
 
-—Un poco más.
+—¿Y si ahora él no estuviera?
 
-Han Jiwoo soltó el aire un instante.
+—Se vendría abajo más rápido.
 
-—Lo de «un poco más» es lo más caro.
+Eso dijo Seorin.
 
-Esas palabras sonaban a queja,
-pero en realidad se acercaban más a decir que iba a sujetarlo hasta el final.
+—Por eso me molesta más.
 
-Fuera volvió a oírse un sonido de corte.
+Sion no supo qué decir y no dijo nada.
 
-Esta vez más cerca.
+—Para ti será cómodo.
 
-Sern, que entraba hacia dentro, se detuvo en seco.
+Seorin lo dijo y enseguida añadió algo más.
 
-—Es la primera entrada dentro del mercado —dijo brevemente—. Tres. No, cuatro.
+—No. Perdona.
 
-Ater llegó justo detrás.
+Al oír esas dos frases, Sion miró a Seorin. Era la primera vez que la veía recoger sus propias palabras.
 
-—No es la primera fila —dijo—. Son individuos empujados desde atrás. Los metieron justo después de leer la perturbación.
+—Cómodo no es.
 
-Cuando Harún lo oyó,
-por primera vez le salió una voz un poco más afilada.
+—Lo sé.
 
-—Bien —dijo—. Entonces se corta aquí.
+—Es solo que yo no sé qué hubo antes.
 
-En ese momento,
-al final del primer pasillo que se quebraba dentro del mercado, una forma negra se dejó ver.
+—Eso es lo cómodo.
 
-Vista desde fuera había sido una fila.
-Pero vista desde dentro
-resultaba mucho más desagradable.
+Dicho eso, Seorin alzó la barbilla hacia el pasillo.
 
-Tenía un tamaño parecido al de una persona,
-pero no caminaba como una persona.
-El instante en que las articulaciones se doblaban era demasiado exacto,
-y la forma en que el cuerpo avanzaba no tenía la menor vacilación.
-La parte que debería parecer un rostro no era una expresión,
-sino algo más cercano a una superficie de vigilancia negra que no reflejaba nada.
+—Ve.
 
-Luhai, en el instante en que lo vio,
-retrocedió de verdad un paso.
+Cuando Sion llegó, el callejón estrecho estaba atascado.
 
-—Eso es… —no logró terminar la frase.
+La gente y los bultos se habían trabado juntos. Delante, alguien estaba poniendo de pie un hato grande, y detrás se apretaban diez y pico personas. Un niño que aguantaba el llanto rompió a llorar. Su madre sujetaba el bulto con una mano e intentaba abrazar al niño con la otra, y parecía a punto de perder las dos cosas.
 
-Sion, sin darse cuenta, movió el cuerpo hacia delante.
+Antes de pensar, Sion apartó el bulto de una patada.
 
-Tenía miedo.
-Pero detrás de él aún quedaba el pasillo de la gente.
+—¡Esto hay que dejarlo!
+
+Su propia voz no le parecía suya.
+
+—¡Que pasen primero las personas!
+
+La mujer miró a Sion. Tenía cara de ir a protestar.
+
+Detrás sonó un chirrido de metal.
+
+La mujer soltó el bulto y abrazó al niño. La fila se deshizo y la gente pasó.
+
+Sion vio rodar lo que había apartado de una patada.
+
+No sabía qué llevaba dentro. Tampoco cuánto valía. Ni por qué aquella mujer lo había cargado hasta aquí.
+
+Lo que Nasim había dicho ayer, hoy lo había dicho él.
+
+Al oírlo, era lo correcto. Dicho con su propia boca, aun siendo correcto, se le atragantaba.
+
+Quien lo había dicho era de esta ciudad. Alguien que sabe a quién hay que decírselo dos veces para que se mueva, que sabe quién no puede soltar sus cosas, y que después de hacérselas soltar volverá a estar delante de esa persona. Alguien que, si este mercado volvía a levantarse, también volvería a poner precios delante de ella.
+
+Sion no era de aquí. No volvería a ver a aquella mujer, y tampoco vería levantarse otra vez estos puestos.
+
+Por eso a Sion le resultaba más fácil decirlo.
+
+Que le había resultado fácil, Sion lo supo después de decirlo. Al decirlo no lo sabía.
+
+La mujer, con el niño en brazos, dio unos tres pasos y miró una vez atrás. No hacia el bulto, sino hacia Sion.
+
+Sion recibió esa mirada y no pudo decir nada.
+
+Al final del pasillo salió algo negro.
+
+Sion lo vio de cerca por primera vez.
+
+De lejos era una fila. Aquí no era una fila.
+
+Era del tamaño de una persona. Eso era lo peor. Tenía hombros, tenía brazos, tenía rodillas, y uno no dejaba de buscar en qué se parecía a una persona.
+
+Pero no caminaba. Una persona, al caminar, pasa el peso de un lado al otro. Aquello no lo pasaba. Lo que se doblaba se doblaba con exactitud cuando tenía que doblarse, y antes de doblarse no hacía ninguna preparación.
+
+Donde tendría que estar la cara no se reflejaba nada.
+
+Luhai retrocedió un paso.
+
+Sion supo que no era miedo, sino algo que el cuerpo había hecho primero. Sus propios pies también estaban medio vueltos hacia atrás.
+
+Miró atrás.
+
+La gente que acababa de pasar seguía dentro del pasillo. La mujer con el niño en brazos estaba doblando el tercer recodo.
+
+Sion fue hacia delante.
+
+No era que el miedo hubiera desaparecido. Fue con el miedo encima.
 
 La mano de Harún bajó.
 
-Los dos tiradores de Hazran ocultos tras el biombo improvisado de la izquierda dispararon a la vez,
-y una placa de sobrepresión corta, enterrada bajo el pasillo, estalló y torció a la fuerza el equilibrio del primer androide.
-En ese hueco, Sern se metió casi deslizándose
-y, en un ángulo bajo, cortó por detrás de la rodilla y salió.
+Desde detrás de la pantalla improvisada de la izquierda, dos tiradores dispararon a la vez, y una placa de sobrepresión corta enterrada bajo el pasillo estalló y torció a la fuerza el equilibrio del de delante.
 
-El primer androide se quebró sin duda una vez.
+Sern se metió en ese hueco.
 
-Ater habló casi al mismo tiempo:
+Entró casi pegado al suelo, le rajó la parte de atrás de la rodilla y salió tal cual. Tardó menos en salir que en entrar.
 
-—Ahora. La unión derecha.
+La cosa negra se dobló una vez.
 
-El tirador al lado de Harún acertó justo en ese punto.
+—Ahora.
 
-Un cuerpo negro, esta vez, cayó de verdad.
+La voz de Ater llegó desde atrás.
 
-Pero justo detrás,
-un segundo individuo, sin la menor vacilación, pasó por encima de él.
+—La unión derecha.
 
-Dentro del mercado también
-aquella ola no se cortaba.
+El tirador junto a Harún acertó en ese punto.
 
-Sion lo supo en ese instante.
+Esta vez cayó de verdad. Al caer arañó la pared del pasillo, y la tela que colgaba de la pared cayó con él.
 
-Ahora Hazran no defendía el exterior,
-sino que tenía que rehacer el frente, casilla a casilla, dentro del mercado.
+Sion soltó el aire.
 
-La guerra ya había entrado adentro.
-Y el mercado, ahora,
-para sobrevivir, empezaba a armar un frente nuevo desde su propio interior.
+Por detrás pasó el segundo.
+
+Pasó pisando al caído y ni una vez resbaló al pisar. Los pies fueron sobre la tela que acababa de caer, y corrigió el ángulo solo lo que la tela se deslizaba.
+
+Tampoco dentro del mercado se cortaba.
+
+El segundo entró tres pasos más y se torció hacia el ramal izquierdo. Fue hacia donde lo habían desgarrado. Había ido hacia el lado que Harún había dividido.
+
+Allí volvió a oírse un sonido.
+
+Solo entonces Sion retrocedió, y al retroceder volvió la cabeza.
+
+Se veía el casco.
+
+Sion se quedó helado allí.
+
+Esto era el segundo pasillo del interior del mercado. Desde donde se había parado la cosa negra hasta aquí, Sion no había retrocedido ni veinte pasos. Y veinte pasos detrás estaba el barco.
+
+Bajo el casco, Han Jiwoo sujetaba la junta. Tenía los dientes apretados. Aka estaba a su lado y habló muy bajo.
+
+—Aquí primero.
+
+—Lo sé.
+
+Han Jiwoo lo recogió con brusquedad.
+
+—Es la tercera vez que lo dices.
+
+Las palabras eran bruscas, pero las manos no le temblaban.
+
+El fragmento de eterita se iluminó levemente y volvió a apagarse. La junta bajo el molde receptor vibró, baja. El barco aún no había revivido. Pero el metal que solo fingía estar muerto ahora empujaba para aguantar, y eso se notaba en las manos.
+
+Aka habló.
+
+—Un poco más.
+
+Han Jiwoo soltó el aire, corto.
+
+—El «un poco más» es lo más caro.
+
+Aun así, Han Jiwoo no apartó las manos. Llevaba un rato apretando el mismo punto, y la fuerza con que apretaba no disminuía.
+
+Sion midió con los ojos la distancia entre esas dos y el sitio donde acababa de pararse la cosa negra.
+
+La midió y no era mucha.
+
+Hasta ahora, que la línea de fuera retrocediera era asunto de fuera. Si seguía retrocediendo y retrocediendo hasta llegar aquí, lo que esas dos sujetaban también quedaría dentro del mismo pasillo.
+
+Sion fue a sacar lo que contaba y lo dejó.
+
+Había contado hasta doce. Buscaba dónde poner la decimotercera y no lo encontraba.
+
+Para contar había que estar lejos. La subida de los precios la había visto delante de los puestos; la fila negra, más allá de la capa térmica; al otro lado abandonando lo de delante, desde arriba.
+
+Ahora no estaba lejos. Estaba al alcance de la mano.
+
+Sion dejó de contar y miró hacia el fondo del pasillo.
+
+Desde aquí había que volver a levantar, casilla a casilla.
 
 ---
 

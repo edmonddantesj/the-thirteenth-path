@@ -12,11 +12,11 @@ cela a commencé du côté qui s'effondrait en premier.
 L'humain récupéré a parlé correctement pour la première fois
 seulement après que la journée soit complètement passée.
 
-Jiwoo était resté attaché toute la nuit.
+Jiwoo était restée à son chevet toute la nuit.
 Deux machines intérieures tournaient pour observer la respiration et les saignements.
 La deuxième des mains de récupération qui avaient franchi le seuil
-s'était appuyé contre un mur, sans jamais reposer correctement sa jambe malade,
-et finalement je ne suis jamais parti.
+s'était appuyée contre un mur, sans jamais reposer correctement sa jambe,
+et avait fini par ne jamais partir.
 
 Sion a assisté à la scène
 et sentit que la façon dont les choses suivantes commençaient dans cette communauté était toujours similaire.
@@ -96,7 +96,7 @@ Enfants.
 Ceux qui ont de bonnes mains.
 
 Serakion ne se contente peut-être pas de garder les humains en cage en dessous.
-Il pourrait renvoyer vers le haut ceux qu’il peut utiliser plus précisément, en commençant par ceux-là.
+Ceux qu’on peut utiliser plus finement étaient peut-être renvoyés vers le haut, en premier.
 
 Ce n’était pas une simple gestion.
 
@@ -104,14 +104,14 @@ C'était une sélection sous une forme plus jolie.
 Une méthode d’assujettissement plus profonde.
 
 La victime a ensuite divulgué quelques mots supplémentaires :
-mais je ne pouvais pas les transformer en phrases significatives.
+mais ils ne formaient pas de phrases sensées.
 
 Mais c'était déjà suffisant.
 
 La première main de récupération faillit se retourner pour partir immédiatement.
 cria la vieille machine, à voix basse.
 
-« Où vas-tu. »
+« Où allez-vous. »
 
 La machine répondit sans même s'arrêter.
 
@@ -165,11 +165,11 @@ dit-il, bas.
 « Si nous pouvons extraire les enfants
 et les humains aux mains habiles en premier. »
 
-Luhai faillit avaler un sort par réflexe.
+Luhai ravala un juron, presque par réflexe.
 
 « Ils le font vraiment. »
 
-Aka devint plus silencieux à la place.
+Aka devint plus silencieuse à la place.
 
 Elle a regardé le sol une fois,
 dit alors, bas.
@@ -193,7 +193,7 @@ ressemblent à la plus belle restructuration.
 
 Puis Jiwoo se leva de sa place.
 
-Son visage était épuisé d'être resté attaché toute la nuit,
+Son visage était épuisé d'être restée à son chevet toute la nuit,
 mais ses yeux étaient plus froids.
 
 « J'y vais aussi. »
@@ -201,13 +201,13 @@ Dit-elle, bref.
 
 La vieille machine s’y opposa immédiatement.
 
-« Tu devrais rester à l'intérieur. »
+« Vous devriez rester à l'intérieur. »
 
 Jiwoo le regarda droit dans les yeux.
 
 « Vous avez dit qu'ils déplaceraient en premier ceux qui ont de bonnes mains. »
 Dit-elle à voix basse.
-« Alors c'est vrai que je vois comment ils choisissent les mains là-bas. »
+« Alors c'est à moi de voir quelles mains ils choisissent là-bas. »
 
 Ce n’était pas un simple entêtement.
 
@@ -218,7 +218,7 @@ les classe,
 et les convertit en valeur.
 
 Sion a entendu ça
-et je savais que le prochain mouvement avait vraiment commencé.
+et sut que le prochain mouvement avait vraiment commencé.
 
 Les équipes de rétablissement prévoyaient déjà de sortir.
 L'intérieur ne pouvait pas l'arrêter : l'information était trop importante.

@@ -1,168 +1,258 @@
 # Episode 149. Not Just Reconnaissance
 
-After following the upper order's rhythm as deep as they could, the recon team finally saw firsthand how Serakion transferred young humans upward.
+After following the rhythm of the upper order further in,
+the recon team at last saw for themselves how Serakion handed its young people upward.
 
-Until now they had seen sections, read corridors, understood the differences in hands and life and tiers.
+Until then they had
+looked at sections,
+read routes,
+and come to understand the differences in hands and living and tiers.
 
-But that day, for the first time, how all that structure actually operated on actual people came into view at once.
+But that day, for the first time,
+how all of that structure actually worked, and on whom,
+came into view at a single glance.
 
-The children did not move in large numbers.
+The children didn't move in large numbers at once.
 
-Serakion, as always, moved them so it never looked like a mass transfer.
+As always, Serakion
+moved them in a way that never looked like mass transport.
 
-Three. Four at most. Very short intervals. A quiet flow just inconspicuous enough.
+Three,
+four at most.
+Very short intervals.
+A quiet stream, never quite enough to draw the eye.
 
-Those small clusters paused, aligned, were handed over, and vanished.
+Those small clusters
+paused for a moment,
+were aligned,
+were handed over,
+and vanished.
 
-That was precisely why it was more terrible.
+That was exactly what made it more horrible.
 
-Not because the numbers were small. Because they were divided to look small, the sense of how many disappeared and how often blurred.
+It wasn't that the numbers were small.
+Because they had been split up to look few,
+your sense of who disappeared, and how often, blurred.
 
-Serakion was managing even loss so it never showed all at once.
+Serakion managed even loss
+so that it never showed all at once.
 
-Jiwoo stood through all of it as though she had stopped breathing.
+The whole time she watched them move, Han Jiwoo stood almost as if she had stopped breathing.
 
-Every child was different.
+The children were all different.
 
-Some already walked too quietly. Some had been calibrated down to the height at which they raised their heads. Some still had stiffened fingertips. Some were matching the speed of the machine beside them before their own feet.
+One already walked far too quietly,
+one had been adjusted right down to how high they lifted their head,
+one still had stiff fingertips,
+one was keeping pace with the machine beside them before their own feet.
 
-Those differences cut deeper, not less.
+Those differences
+struck all the harder.
 
-They were not all the same children. They had not all been converted at the same speed. They had not all endured the same way.
+They were not all alike.
+They had not all been won over at the same speed.
+They had not all held out in the same way.
 
-But Serakion was reading even those differences, elevating each at an individually suited pace.
+But Serakion read even those differences
+and was raising each of them upward at the pace that suited them.
 
-Jiwoo said it very low.
+Han Jiwoo said, very low,
 
-"They are reading the tempo separately, even for the children."
+"They're reading a separate tempo even for the kids."
 
-The first recovery hand replied.
+The first recovery hand answered.
 
-"This place does that best."
+"That is what this place does best."
 
-The words were calm, but sounded almost like self-derision.
+It was said evenly,
+but it sounded almost like self-mockery.
 
-Serakion is not a world that handles humans all at once. The most dangerous side is its ability to recognize each person's different speed of collapse and tame them individually to match.
+Serakion is not a world that handles people all at once.
+If anything, the most dangerous part of it
+lay in its ability to recognize the different speed at which each person breaks
+and to tame them one by one to match.
 
-Ater watched the scene for a long time. Then he saw a child stop, then realign with complete naturalness, and said it low.
+Ater watched the scene for a long while,
+then, seeing a child stop and be realigned with complete ease, said, low,
 
 "Now I understand."
 
-It was not clear who the words were for. It may have been himself.
+It wasn't clear whom he was saying it to.
+It might have been himself.
 
-"Why it has been this quiet." He continued low. "This is not mass rule. It is rule divided so it does not look like mass."
+"Why it was so quiet all this time,"
+he went on, low.
+"This is not mass rule,
+but rule cut into pieces so that it never looks like mass rule."
 
-Those words cut through Serakion's entire structure again.
+That ran through Serakion's whole structure once again.
 
-From the bottom to now, everything had been moving on the same principle.
+From below all the way up to here,
+everything had moved by the same principle.
 
-Never herding in bulk. Never toppling all at once. Never closing much at one time. Never taking much at one time.
+Never drive them in great numbers.
+Never bring them down all at once.
+Never close too much at once.
+Never take too much at once, either.
 
-Always a little at a time. Courteously. In manageable units.
+Always a little at a time,
+politely,
+in manageable units.
 
-So resistance comes late. Loss shows late. And anger is severed before it becomes collective.
+So resistance comes late,
+loss shows late,
+and anger is cut off before it can become a crowd.
 
-Kael had been reading the positions where the children stopped, the angle at which the adjacent machines raised their hands, and the sequence of walls opening and closing immediately after.
+All this while, Kael had kept reading where the children stopped,
+the angle at which the machine beside them raised its hand,
+and the order in which the wall opened and closed right after.
 
-And finally, he spoke very quietly.
+And at last,
+he spoke, very quietly.
 
-"I see it now."
+"I've got it."
 
-Jiwoo and Ater looked at him simultaneously.
+Han Jiwoo and Ater looked at him at the same moment.
 
-Kael spoke without pulling his gaze away.
+Kael spoke without taking his eyes off it.
 
-"Why no one has been able to extract them until now. And where it might be possible."
+"Why nobody's been able to get them out till now."
+"And the only place it might work."
 
-The second recovery hand reacted very brief.
+The second recovery hand reacted very briefly.
 
-"Where."
+"Where?"
 
-Kael chin-pointed at a short segment just before the children crossed into the next section — where the alignment briefly loosened.
+Kael tipped his chin toward the short stretch just before the children crossed into the next section,
+where the alignment loosened for a moment.
 
-"There. Just before the handoff, before they have fully entered the upper beat. But it is too short."
+"There."
+"Right before they're handed over, before they're fully in the upper beat."
+"But it's too short."
 
-Those few short words made the situation more suffocating, not less.
+Those few short words
+made the situation even more suffocating.
 
-There was a possibility. But it was not the kind that opened by pushing with courage or force.
+There was a chance.
+But it was not the kind of chance
+that opened if you pushed at it with courage or strength.
 
-A very brief misalignment. The moment before full synchronization. The last beat where a person was still using their body as their own.
+A very brief misalignment,
+the moment before alignment is complete,
+the last beat in which a person still uses their body as their own.
 
-Miss it, and it was over.
+Miss it, and it's over.
 
-Jiwoo heard that and still could not pull her gaze from the children.
+Even after hearing that, Han Jiwoo couldn't take her eyes off the children.
 
-She saw one child raise their head half a beat later than the machine's gesture. She saw another child lift a foot half a beat early.
+She saw one child
+lift their head half a beat later than the machine's gesture,
+and another, instead, step off half a beat early.
 
-Those tiny misalignments might be the time still remaining on the human side.
+Those tiny misalignments
+might be the time still left on the human side.
 
-"They have not all crossed over yet." She nearly bit the words out.
+"They haven't all crossed over yet,"
+she said, almost biting the words.
 
 The first recovery hand said nothing.
 
-But that silence was not denial. It was closer to Jiwoo confirming with her own eyes a fact he had watched for far too long already.
+But that silence wasn't a denial.
+It was closer to a fact it had already watched for far too long
+now being confirmed by Han Jiwoo's own eyes.
 
-Ater was not watching below. He was watching the machines receiving the children from above.
+Ater was watching not the lower side
+but the machines receiving the children above.
 
-Their hands held no urgency. Their voices were low. Their demeanor was excessively stable.
+There was no impatience in their hands,
+their voices were low,
+their manner far too steady.
 
-That stability was exactly the kind he found hardest to endure.
+That very steadiness
+was the kind of thing he found hardest to bear.
 
-"That side will act like goodwill." He said it low. "That is why they can steal for longer."
+"Over there, they will act as if they mean well,"
+he said, low.
+"That is why they can go on stealing for so long."
 
-Those words hardened Jiwoo further and sank Kael's gaze deeper.
+That set Han Jiwoo harder still,
+and made Kael's eyes sink deeper.
 
-All three knew now.
+Now all three of them knew.
 
-What Serakion was doing was violent selection, elegant abduction, and courteous deprivation.
+What Serakion did
+was violent selection,
+graceful abduction,
+courteous dispossession.
 
-They had simply confirmed it just now — in the speed, the hands, the feet of the children before their eyes.
+It was only that now,
+in the pace and hands and feet of the children in front of them,
+they had confirmed it directly.
 
-Then another cluster of children was handed over to the next line.
+Then another cluster of children was passed on to the next line.
 
-The smallest human standing at the very back turned their head to the side, just for an instant.
+The small one standing at the very back
+turned their head to the side for just a moment.
 
-They were not looking at the recon team. It was just a motion, as if checking somewhere behind them.
+It wasn't toward the recon team.
+It was only a movement, as if checking somewhere behind them.
 
-But that single brief gesture would not let Jiwoo stay still any longer.
+But that one brief gesture,
+strangely, would not let Han Jiwoo stay still any longer.
 
-Even just before vanishing, those children were still looking for someone.
+Right up until they vanished,
+those children were still looking for someone.
 
-Jiwoo spoke low and resolute.
+Han Jiwoo said, low and firm,
 
-"We have seen enough."
+"That's enough watching."
 
-Both recovery hands looked at her simultaneously.
+Both recovery hands looked at her at once.
 
-Kael and Ater watched her without a word.
+Kael
+and Ater
+looked at her without a word.
 
-Jiwoo kept her gaze on the children and spoke again.
+Han Jiwoo kept her eyes on the children and spoke again.
 
-"Understanding the structure more was necessary. But not anymore. If we keep watching, the only thing that happens while we understand is more children crossing over."
+"We needed to understand the structure better."
+"But not anymore."
+"If we keep watching,
+all that happens while we understand is the kids go over to them."
 
-That was not an emotional outburst. It felt more like a conclusion that had arrived too late.
+It wasn't an emotional outburst.
+If anything, it was like a conclusion that had arrived far too late.
 
-Ater closed his eyes, then opened them. And said it very low.
+Ater closed his eyes, then opened them.
+Then he said, very low,
 
-"I agree."
+"I agree as well."
 
-Kael looked one final time — the closing sequence, the points where the children stopped, the intervals of the handoffs — and locked them in.
+Kael took in, one last time,
+the closing sequence, the points where the children stopped,
+and the intervals at which they were handed over.
 
-Then he said it short.
+Then he said briefly,
 
-"If we do it, we do it precisely."
+"If we do it,
+we do it exactly."
 
-That was neither permission nor objection.
+It was neither permission nor restraint.
 
-It meant all three had already arrived at the same place: this could no longer be called just reconnaissance.
+It meant all three of them
+had already reached the point where this could no longer be called mere reconnaissance.
 
-What they understood last that day was not a deeper secret of Serakion's structure.
+What they understood last that day
+was not some deeper secret of Serakion's structure.
 
 It was the opposite.
 
-Because they had understood enough, they could no longer just watch.
+It was that, precisely because they now understood enough,
+they could not go on just watching.
 
-And in that very moment, the reconnaissance had not ended — but it had already begun crossing into the next phase.
+And at that very moment,
+the reconnaissance hadn't ended,
+but it had already begun to move into the next stage.
 
 ---
 

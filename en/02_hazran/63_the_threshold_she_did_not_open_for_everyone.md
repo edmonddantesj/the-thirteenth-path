@@ -1,192 +1,252 @@
 # Episode 63. The Threshold She Did Not Open for Everyone
 
-Even after Zahir spoke of "the resolve to go further inside," no one answered immediately.
+Even after Zahir spoke of "the resolve to come further inside," no one answered right away.
 
-Sion did not mind that short silence.
+Sion didn't mind the short silence.
 
-If anything, saying "I'll go" too easily after coming this far would have looked like someone who did not understand how large the value before them was.
+If anything, coming this far and saying "We'll go" too easily would have made them look like people who didn't know how big the price hanging in front of them was.
 
-Etherite. The hull that had not died. And the words Aka would give.
+Etherite.
+A hull that hadn't died.
+And the word Aka would give.
 
-All three were needed. But none of the three were the kind you received simply by extending a hand. Zahir knew that too well, and because of it, he looked like someone who had deliberately left the final threshold.
+They needed all three.
+But none of the three was the kind you got just by holding out a hand. Zahir knew that only too well, and so he looked like a man who had left one last threshold on purpose.
 
-Sion expected Jiwoo to speak first. But unexpectedly, Seorin moved first.
+Sion had thought Han Jiwoo would speak first.
+But unexpectedly, it was Seorin who moved first.
 
-"Let's hear the conditions to the end."
-She said low.
-"This place seems fond of tacking on new terms once you're already inside."
+"Let's hear the terms all the way through first,"
+she said, low.
+"Around here, it looks like plenty of people tack on something different once you're inside."
 
-Nasim smiled at that by the faintest degree.
+Nasim heard that and smiled, very slightly.
 
-"That's why you live long, I suppose."
+"So that's how you live so long."
 
-Seorin did not look his way.
+Seorin didn't look his way.
 
-"I have no plans to live long."
-She said.
-"I just want to die less stupidly."
+"I'm not planning to live long,"
+she said.
+"I'd just like to die a little less stupid."
 
-Luhai swallowed a laugh without meaning to. Harun was still expressionless. Zahir, even after hearing all of those brief words, did not immediately attach any emotion.
+At that, Luhai swallowed a laugh before he knew it. Harun was still expressionless, and even after hearing all of those short lines, Zahir didn't lay any feeling on them right away.
 
-Instead, he said very low.
+Instead he spoke, very low.
 
-"Good."
-He said.
-"Then let me tell you what this inside demands."
+"Good,"
+he said.
+"Then I'll start with what this inside asks for."
 
-Sion naturally gripped the ember tighter at those words.
+At that, Sion's hand tightened on the ember on its own.
 
 Zahir's gaze went to it.
 
-"That ember is proof."
-He said.
-"Proof that the path has not fully died. But proof alone does not move things."
+"That ember is proof,"
+he said.
+"Proof that the path isn't completely dead. But proof alone doesn't move."
 
-Aka did not interrupt.
+Aka didn't interrupt.
 
-If anything, her face was listening to see how far Zahir would speak on her behalf.
+If anything, her face was listening to how far Zahir would speak for her.
 
-"The hull is the same."
-Zahir continued.
-"Not dead does not mean it rises. It needs etherite, it needs eyes to bridge, and it needs the word that knows where to go."
+"That hull is the same,"
+Zahir went on.
+"Not being dead doesn't mean it lifts off right away. It needs Etherite, it needs eyes to connect it, and it needs the word that knows where it has to go."
 
-Sion felt those words converging to a single point.
+Sion felt it all come down to one thing in the end.
 
-The ember. The hull. Aka.
+The ember,
+the hull,
+Aka.
 
-The three were hung separately like rewards, but in truth they were closer to a single bundle that only gained meaning when joined.
+The three hung there like separate rewards, but they were really closer to a single bundle that meant something only when joined together.
 
-Jiwoo asked quietly this time.
+This time Han Jiwoo asked quietly.
 
-"So what more do you want us to see."
+"So what else are we supposed to see."
 
-Zahir answered shortly.
+Zahir answered, short.
 
-"The inside."
+"Inside."
 
-That single word was not enough as explanation, yet strangely everyone could tell it did not refer to a simple location. A deeper compartment. More hidden records. Or perhaps the place where Aka actually read paths and grammar. Everything shown so far was merely the threshold, and seeing what truly needed bridging required going further in.
+That one word wasn't much of an explanation, but strangely everyone could tell it wasn't just naming a location. A deeper section. More hidden records. Or the place where Aka actually read the path and its grammar. What they had been shown so far was barely the threshold, and to see what really had to be connected, they would have to go further in.
 
-Sern asked very low.
+Sern asked, very low.
 
-"Does everyone enter."
+"Do all of us go in."
 
 This time, before Zahir could answer, Aka spoke first.
 
 "No."
 
-The air inside the inner space paused by the faintest degree.
+The air on the courtyard's inner side went still, very slightly.
 
-Aka's face was still quiet. But this time, within that quiet there was a clear line. Not everyone could enter together. Not everyone could see the same things. Who entered how far was, it seemed, one of the most important rules of this interior.
+Aka's face was still quiet.
+But this time there was a clear line inside that quiet. They could not all go in together. They should not all see the same thing. As if who came in, and how far, was one of the most important rules in here right now.
 
-Sion found himself looking at Aka without meaning to.
+Sion looked at Aka without meaning to.
 
-Aka looked once at the ember in Sion's hand, once at the hull on Jiwoo's side that had not died, and only then continued, very low.
+Only after Aka had looked once at the ember in Sion's hand and once at the hull that hadn't died, over by Han Jiwoo, did she go on, very low.
 
-"Let everyone in and it gets crowded again."
-She said.
-"When it gets crowded, the things pretending to die attach again."
+"If I let everyone in, it gets crowded again,"
+she said.
+"When it gets crowded, the playing dead latches on again."
 
-That sentence was short, but it contained everything about how all of Hazran had been rolling until now.
+The sentence was short, but everything about how the whole of Hazran had run until now was in it.
 
-Too many hands. Too many values. Too many false reactions.
+Too many hands.
+Too many prices.
+Too many false reactions.
 
-So at the moment the real thing had to be bridged, hands had to be reduced instead.
+So at the moment the real thing had to be connected, you had to cut the hands down instead.
 
-Seorin understood that meaning first.
+Seorin was the first to catch her meaning.
 
-"So you're saying only the hands that are needed come in."
-She said.
+"So you're saying let in only the hands you need,"
+she said.
 
-Aka nodded shortly.
+Aka gave a short nod.
 
-"The hand holding the ember."
-She said, looking at Sion.
-"The hand that sees what is dead and what is not."
+"The hand that holds the ember,"
+she said, looking toward Sion.
+"The hand that sees what's dead and what's not."
 
-This time her gaze went to Jiwoo.
+This time her gaze went to Han Jiwoo.
 
-"And the hand that will not break what is being bridged."
+"And the hand that won't break it when it connects."
 
-Jiwoo, hearing that, narrowed her eyes for the first time by the smallest fraction.
+Hearing that, Han Jiwoo narrowed her eyes, very slightly, for the first time.
 
-It did not feel like praise, nor like trust. But at minimum, it was clear that Aka saw him as more than someone who handled craft.
+It didn't sound like praise, or like trust.
+But it was clear, at least, that Aka saw her as more than someone who handled craft.
 
-Sern held his words this time.
+This time Sern held his words back.
 
-Sion felt that silence was the most Sern-like response. He would want to enter and see for himself. All the more so as someone who read structure. But his face showed he also understood, simultaneously, that right now he was not the most necessary hand.
+Sion felt that the silence was, if anything, very like Sern. He would want to go in and see too. All the more for someone who read structures. But his face said he had also realized, at the same moment, that right now he was not the hand they needed most.
 
 Kael glanced at him.
 
-"You okay?"
+"You okay."
 
-Sern answered shortly.
+Sern answered, short.
 
-"Even if I don't like it, she's right."
+"Right is right, even if I do not like it."
 
-Luhai opened his mouth, then closed it again. He must have wanted to ask to be taken along, but this time his eyes showed he understood how lightly his mouth would be valued.
+"I get that it's right."
 
-Ater looked between Zahir and Aka.
+Kael went on.
 
-He too would have wanted to enter. If the problem was tangled with paths and authorization, severed sequences and seal intervention, he might rightly feel he should be the one watching. But right now, living grammar came before records. Ater drew a very slow breath, like someone accepting that difference.
+"I asked if you're okay."
 
-"Just two?"
-He asked quietly.
+This time Sern didn't answer.
 
-This time it was not Aka but Nahira who answered.
+Hearing that short back-and-forth, Sion understood. Staying out of this meant that if anything went wrong in there, he wouldn't see it. For someone who read structures, the worst thing wasn't being wrong. It was not seeing.
 
-"Two is lean."
-She said.
-"Three starts getting crowded again."
+Luhai opened his mouth, then shut it again. He must have wanted to ask them to take him too, but this time his eyes said he'd realized how cheap a price his mouth would be counted at.
 
-Sion understood that.
+Seeing that face, Sion felt a little sorry.
 
-What was needed now was not a place for stretching explanations long, but a place for confirming whether things could truly be bridged. Which meant fewer eyes watching, fewer hands touching.
+He was the one who had hung off the stands the longest. He had watched the two teams split, been the first to bring word when the prices jumped, and he was the one who had pushed the kids in from the west side.
 
-Only then did Zahir draw the final line.
+And still he couldn't stand in the line going inside.
 
-"Sion."
-He said.
-"Jiwoo."
+Here, doing a lot didn't get you let in. They only looked at whether you were a hand needed now.
+
+Ater looked from Zahir to Aka and back.
+
+He must have wanted to go in too. If it was a problem tangled up with paths and approval, cut sequences and the seal's interference, he might well have thought he was the one who ought to look. But here and now, living grammar came before records. Ater steadied his breath very slowly, like a man accepting that difference.
+
+"Only two?"
+he asked quietly.
+
+This time it was not Aka who answered, but Nahira.
+
+Not in words.
+
+She raised her hand and spread two fingers. Then she spread a third and folded it right back.
+
+Sion watched the motion twice.
+
+Two would do. Three would not. The moment it became three, what Aka had said a moment ago would start again.
+
+Ater gave a short nod and stepped back. He asked for no further explanation.
+
+Sion found that strange. This was a man who asked for reasons put into words.
+
+Then he understood. For days Nahira had given them medicine, given them water, bound their wounds, and in all that time she had hardly said a word. Everyone in here already knew what those hands meant when they moved.
+
+Here, those hands came before words.
+
+Sion understood what she meant.
+
+What was needed now wasn't a place to stretch out explanations, but a place to check whether this could really be connected.
+Then the ones who watched and the ones who touched both had to be few.
+
+Only then did Zahir draw the last line.
+
+"Sion,"
+he said.
+"Han Jiwoo."
 
 A short silence.
 
-"Go inside."
+"You go inside."
 
-Jiwoo answered first.
+Han Jiwoo answered first.
 
-"Good."
+"Fine."
 
-Sion nodded, a little later.
+Sion nodded, a little late.
 
-The emotion that rose before words was tension. But beneath that tension, strangely, was the sensation of finally touching the threshold on Aka's side. Until now they had followed names, rumors, and boards. Starting now was the stage of actually stepping inside.
+What came before words was tension.
+But under that tension, strangely, was a sense that he was finally reaching the threshold on Aka's side for real. Until now they had followed names and rumors and boards, and from this moment on, they were actually setting foot inside.
 
-Seorin asked immediately.
+Seorin asked at once.
 
 "Then what about us."
 
-Zahir looked at her and said low.
+Zahir looked at her and spoke, low.
 
 "Wait."
 
-Seorin's expression hardened at once.
+Seorin's face set at once.
 
-But Aka laid one very quiet sentence on top of those words.
+But Aka laid one quiet line on top of his.
 
-"If you don't wait, you can't come out."
+"If you don't wait, they can't get out."
 
-When that landed, even Seorin could not fire back immediately.
+Seorin looked toward Aka.
 
-These were not words of exclusion. They were words that, within the rules of this interior, separated the people who were needed from the people who had to wait.
+"What's that supposed to mean."
+
+"If nobody's outside when the ones who went in come out."
+
+Aka broke off there, once.
+
+"Nobody knows if it's really them who came out."
+
+Seorin closed her mouth at that.
+
+A chill went down Sion's back, too. Being told to wait wasn't consideration. It meant someone had to stay outside for the ones who went in to count as having come out right.
+
+Once those words fell, even Seorin couldn't take it up right away.
+
+These weren't words of exclusion; they were words that divided, under the rules of this inside, the ones who were needed from the ones who had to wait.
 
 Sion looked at the ember in his hand, then back at Aka.
 
-Aka did not explain further. Instead, she turned and walked first into the deeper compartment behind the hull.
+Aka explained no further.
+Instead she turned and walked ahead of them into the deeper section behind the hull.
 
-Seeing that, Sion knew.
+The moment he saw that, Sion knew.
 
-This was not opening a door for someone. Aka had always been like this. She did not open the same door for everyone. Instead, only to the hand that could follow to the end—she showed the way to the next threshold.
+This wasn't opening a door for them.
+Aka had always been this way.
+She did not open the same door for everyone.
+Instead, only to the hands that could follow all the way, she showed as far as the next threshold.
 
-And right now, that threshold was finally opening.
+And now that threshold was finally opening.
 
 ---
 

@@ -6,14 +6,12 @@ el problema siguiente se volvió más nítido.
 Ahora lo que hacía falta
 no era solo qué había que romper.
 
-Era quién tomaba qué capa,
-y de qué modo podía desajustar de verdad esa estructura.
+Era **quién tomaba qué capa,
+y de qué modo podía desajustar de verdad esa estructura**.
 
 Seorin trazó nuevas líneas sobre el tablero.
 
-—Bien.
-—dijo ella—.
-Entonces repartamos ahora los papeles no por «quién hace qué bien»,
+—Bien —dijo ella—. Entonces repartamos ahora los papeles no por «quién hace qué bien»,
 sino por «quién puede romper qué capa».
 
 Cuando cayeron esas palabras,
@@ -27,9 +25,7 @@ en que si fallas mueres, y aunque tengas éxito lo de después se vuelve más co
 
 El primero en ordenar su capa fue Kael.
 
-—Yo, el eje de cierre.
-—dijo él bajo—.
-La velocidad con que arriba vuelve a leer y suturar lo de abajo,
+—Yo, el eje de cierre —dijo él bajo—. La velocidad con que arriba vuelve a leer y suturar lo de abajo,
 el lado que la retrasa.
 
 Señaló tres puntos de contacto sobre el tablero.
@@ -45,8 +41,7 @@ arriba puede fallar al leer abajo.
 
 Seorin lo ordenó como tomando nota.
 
-—Bien.
-Kael no corta el camino,
+—Kael no corta el camino,
 sino que estropea la velocidad con que el cierre vuelve a encontrar su propio compás.
 
 Kael asintió corto.
@@ -74,9 +69,7 @@ y quién solo se encarga de la forma de transmitir esa decisión.
 
 Sern puso encima una capa más fría.
 
-—La aprobación y el registro son más profundos que la superficie.
-—dijo él—.
-Si el ceremonial es el orden visible,
+—La aprobación y el registro son más profundos que la superficie —dijo él—. Si el ceremonial es el orden visible,
 la aprobación se acerca al orden que hace que ese flujo quede como algo normal.
 
 Trazó varias capas de líneas sobre el tablero.
@@ -102,7 +95,7 @@ Esta vez Seorin miró hacia las máquinas viejas.
 
 —¿Y ustedes?
 
-La primera máquina de recuperación respondió.
+La primera mano de recuperación respondió.
 
 —Nosotras, el mantenimiento interno.
 —Para que la gente no quede aplastada,
@@ -150,7 +143,7 @@ En cambio, dijo con toda serenidad.
 
 —Los que quedan dentro,
 los que corren afuera,
-y los que se les quebrará el ánimo primero a mitad.
+y aquellos a los que se les quebrará antes el ánimo a mitad de camino.
 
 —A esos tres los sostengo para que no se corten.
 
@@ -168,8 +161,7 @@ y algunos en la sala rieron un poco.
 
 Por último Seorin trazó tres grandes líneas sobre el tablero.
 
-—Bien. Entonces nuestros objetivos también son tres.
-—dijo ella.
+—Bien. Entonces nuestros objetivos también son tres —dijo ella.
 
 —Uno, mantener la línea de recuperación humana.
 —Dos, retrasar el compás de lectura y sutura de Serakion.

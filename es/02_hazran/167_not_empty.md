@@ -125,7 +125,7 @@ Han Jiwoo preguntó enseguida.
 —¿Qué cosa?
 
 —El compás con que las máquinas viejas miran eso —dijo Ater—. Si solo hubiera recelo, sería más simple.
-Pero eso
+—Pero eso
 se acerca a parar mirando algo más que el recelo.
 
 Esas palabras no eran largas como una explicación,

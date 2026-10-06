@@ -19,7 +19,7 @@ Los de buenas manos.
 Los suben arriba.
 
 Con solo esos pocos fragmentos
-quedó claro que Serakion eligía y recolocaba a los humanos con más refinamiento.
+quedó claro que Serakion elegía y recolocaba a los humanos con más refinamiento.
 
 La cuestión ahora era quién iba a ir a comprobarlo.
 
@@ -55,7 +55,7 @@ La primera mano de recuperación tampoco se opuso esta vez.
 
 La recorrió una vez con la vista y dijo corto.
 
-—Si vas lento, te dejo.
+—Si va lenta, la dejo atrás.
 
 Han Jiwoo replicó al instante.
 

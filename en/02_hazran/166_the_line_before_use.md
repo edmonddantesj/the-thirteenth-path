@@ -1,190 +1,268 @@
-# Episode 166. The Line Before Use
+# Episode 166. Before Counting Them as Strength
 
-The day after letting the androids in, the air inside the old layer grew quieter than the day before.
+The day after they took the androids in,
+the air deep in the old layer had grown quieter than the day before.
 
-But that quiet was far from stability.
+But that quiet was a long way from calm.
 
-No one approached carelessly. No one could fully demand they be thrown out either.
+No one rushed to go near them,
+and no one could bring themselves to say they should be thrown out entirely, either.
 
-Everyone looked as though they had not yet decided what to call those things.
+It was as though everyone wore the face of someone
+who hadn't yet decided even what to call those things.
 
-The people from Hazran were more overt.
+The people from Hazran were more open about it.
 
-They detoured wide around the section where the androids were kept. Children gripped adult hands harder every time they passed nearby.
+Around the sector where the androids were kept
+they took a wide detour altogether,
+and every time the children passed near it
+they gripped the adults' hands harder.
 
-Sion watched and felt again that fear always stays in the body before logic.
+Watching that, Sion felt again
+how fear always lodges in the body before logic does.
 
-It was not the kind of reaction that vanishes with an explanation attached.
+It wasn't the kind of reaction that would vanish just because someone added an explanation.
 
-Even the old machines inside paused for just a moment whenever they looked that way.
+Even the old machines inside
+paused for the briefest moment whenever they looked that way.
 
-It was hard to call it hostility. But it was even further from welcome.
+It was hard to call it hostility.
+But it was even less a welcome.
 
-The reaction looked closer to encountering something that had passed by so long ago, they no longer knew what to call it.
+That reaction
+looked closer to meeting again something so long gone by
+that even what to call it had blurred.
 
-Jiwoo had been quiet since morning.
+Han Jiwoo had said little since morning.
 
-Not because she thought her words from the day before had been too strong. If anything, she felt she had said too little.
+She didn't think what she'd thrown out the day before had been too harsh.
+If anything, she felt she hadn't said enough yet.
 
 The problem was that there was no right answer.
 
-Whether those were truly empty, or whether they wanted to believe so — no one could say for certain right now.
+Whether they were really empty,
+or whether we just wanted to believe they were,
+for now no one could say for sure.
 
-Yet if words like "usable," "unusable," "tool," "not a tool" started circulating already, too much would twist from that moment on.
+And yet if words like
+"usable," "not usable," "a tool," "not a tool"
+started going back and forth this early,
+she felt too much would go wrong from that moment on.
 
-When an outside hand entered the section again, Luhai asked first, sharp.
+When one of the outside hands came into that sector again,
+Luhai was the first to ask, sharply,
 
-"What are you trying to do today."
+"What are you up to this time?"
 
-The outside hand paused briefly. Then said it very low.
+The outside hand paused a moment.
+Then it said, very low,
 
-"We cannot just leave them standing. That side is already getting faster."
+"We cannot just leave them standing."
+"That side is already getting faster."
 
-"That is the most dangerous thing to say." Jiwoo said it low. "You say you will just check, and then you end up using them."
+"That's the most dangerous thing you can say,"
+Han Jiwoo said, low.
+"You say you're checking,
+and you end up using them."
 
-The outside hand continued immediately.
+The outside hand followed right on.
 
-"I am not saying we do not use them. But if that side pushes first and we only watch, we will be late."
+"I am not saying we should not use them."
+"But if that side pushes them at us first,
+just standing and watching will be too late."
 
-Jiwoo could not answer right away.
+Han Jiwoo couldn't answer right away.
 
-Not because there was no answer, but because answering too easily toward one side felt like falling through the gap it would open.
+Not because she had no answer,
+but because if she answered too easily one way
+she felt she would tumble straight down through that gap.
 
-Then Sion said it very low from beside her.
+Then Sion, beside her, said very low,
 
-"Right now, we have not even finished sorting what we saw."
+"Right now
+we haven't even settled what we saw."
 
-Those words did not take anyone's side. But that was why they made everyone pause.
+It wasn't a word that took anyone's side.
+But that was why it made everyone stop for a moment.
 
 He was right.
 
-They had let the androids in the day before. They had been afraid. Uncomfortable. Angry.
+The day before they had taken the androids in,
+had been afraid,
+had been uneasy,
+had been angry.
 
-But what they had actually seen after — no one had properly sorted that yet.
+But what they had actually seen after that,
+no one had properly sorted out yet.
 
-Ater stood at a distance, watching the intervals between the standing androids.
+Ater stood at a distance
+watching the intervals at which the androids stood.
 
-Sern was as quiet as the day before. One old machine lingered near the section entrance but never went inside.
+Sern was as quiet as the day before,
+and one of the old machines lingered near the entrance to that sector
+but in the end did not go in.
 
-All of those movements looked like hesitation before any judgment.
+All those movements
+looked like hesitation that came before any judgment.
 
-Sion felt strangely that this mattered more.
+Strangely, Sion felt that mattered more.
 
-The fact that no one was yet certain. That might be the last safety mechanism remaining right now.
+The fact that no one was sure yet.
+That might be the last safeguard left, right now.
 
-Then one android moved its head, very faintly.
+Just then,
+one of the androids moved its head, very faintly.
 
-No command had been given. No one had approached.
+No command had come before it.
+It was a moment when no one had gone near.
 
-Luhai raised his head immediately.
+Luhai's head came up at once.
 
-"Did you see that?"
+"You see that?"
 
-The outside hand said at once.
+The outside hand said immediately,
 
 "Reflex movement."
 
-But that label felt too easy the moment it was heard.
+But those words,
+the moment you heard them, felt all too easy.
 
-Jiwoo looked that way and said.
+Han Jiwoo looked that way and said,
 
-"You keep naming things too fast."
+"You keep putting names on things too fast."
 
-The outside hand asked short.
+The outside hand asked, short,
 
-"Then what would you call it."
+"Then what do you make of it?"
 
-Jiwoo was silent for a moment.
+Han Jiwoo was silent a moment.
 
-Then said it very carefully.
+Then she said, very carefully,
 
-"I do not know. That is what should be said."
+"We should say we don't know."
 
-After that single line, strangely, no one could argue back right away.
+After that one line,
+strangely, no one could argue back right away.
 
-Not knowing was slow. Frustrating. But in this place, right now, it also sounded like the most responsible thing to say.
+Saying you don't know was slow.
+It was frustrating.
+But here, right now,
+it also sounded like the most responsible thing to say.
 
-Then one old machine, for the first time, took one step inside.
+Just then, one of the old machines
+took a step inside for the first time.
 
-Everyone held their breath by instinct.
+Everyone held their breath, on instinct.
 
-The machine did not go all the way to the androids. It stopped roughly in the middle. And raised one hand, very slowly.
+The machine didn't go all the way up to the androids.
+It stopped about halfway.
+Then, very slowly, it raised one hand.
 
-Not attack. Not instruction. Not signal. An awkward height between all of them.
+Not an attack,
+not an instruction,
+not a signal, but an uncertain height.
 
-That posture lingered strangely long.
+That posture, strangely, stayed with them longer.
 
-The androids stood as they were. But the gaze axis of the one at the far end wavered, very faintly.
+The androids stood as they were.
+But the gaze axis of the one at the very end
+wavered, very faintly.
 
-Sern raised his eyes for the first time. Ater fixed his gaze for that moment too.
+For the first time, Sern raised his eyes.
+For that moment, Ater too held his gaze fixed.
 
-Luhai murmured low.
+Luhai muttered, low,
 
-"What was that."
+"Now what's that?"
 
-No one could explain.
+No one could explain it.
 
-The fact that it could not be explained only became more vivid.
+The fact that it couldn't be explained
+only grew sharper.
 
-One outside hand's optical eye wavered very briefly.
+One outside hand's optical eye flickered, very briefly.
 
-That looked less like a response to a threat, and more like the moment when a simple premise they had been standing on began to shake.
+It looked less like a reaction to seeing a threat
+than like the moment the simple structure it had taken for granted was shaken.
 
-Jiwoo saw it and only then let out a slightly longer breath.
+Only on seeing that
+did Han Jiwoo let out a slightly longer breath.
 
-And said.
+Then she said,
 
-"So. They should not be used carelessly."
+"That's what I mean."
+"You can't just use them carelessly."
 
-This time even Seorin did not respond immediately.
+This time even Seorin didn't take it up right away.
 
-Instead she looked across, one by one — the androids, the old machine, the Hazran people, the outside hands, and Sion's group.
+Instead she swept her eyes over the androids,
+the old machine,
+the people from Hazran,
+the outside hands,
+and Sion's party, one after another.
 
-Her face showed she knew: if anything was decided hastily here, that decision would immediately become the next standard.
+She wore the face of someone who knew, too,
+that if they settled even one thing hastily here,
+that decision would become the next standard.
 
 Only after a long while did Seorin speak.
 
 "Good."
 
-Everyone looked.
+Everyone looked her way.
 
-"We do not touch them further today. Right now, we are neither keeping them nor casting them out. Do not name them carelessly. Do not assign them a use first."
+"We don't touch it any more today."
+"For now we're not keeping them,
+and we're not casting them out."
+"Don't rush to name them,
+and don't rush to decide what they're for."
 
-Luhai asked, sounding frustrated.
+Luhai asked, as if fed up,
 
-"So we just leave them like this?"
+"So we just leave things like this?"
 
 Seorin shook her head.
 
-"No. It is not leaving them. It is enduring on the side of not calling them the wrong thing right now."
+"No."
+"We're not leaving it like this,
+we're holding out for now by not calling them the wrong thing."
 
-Those words strangely shifted the air in the room.
+Strangely, that shifted the air in the room a little.
 
-Not because an answer had been found, but because at least what should not yet be called an answer had been decided.
+Not because they had an answer,
+but because at least it was settled what they must not yet call an answer.
 
-Then a hand rushed in from outside, catching their breath.
+Just then a hand who had rushed in from outside caught its breath and said,
 
-"The upper movement has sped up. The guide line intervals changed. The closing beat is different too."
+"Movement up top's gotten faster."
+"The guide-line intervals changed,
+and the beat they block on is different too."
 
-Serakion was not waiting.
+Serakion did not wait.
 
-That side was already moving faster, and standing still like this on this side would not be possible much longer either.
+That side was already moving faster,
+and this side couldn't stay standing still like this for long.
 
-But Sion felt, precisely because of that, this slow hesitation mattered more.
+But for that very reason,
+Sion felt this slow hesitation mattered all the more right now.
 
-Because there would certainly be a moment when the need to be faster caused them to discard what should never be discarded first.
+Because there would surely come a moment when, in the name of having to be faster,
+they threw away first the very thing they must never throw away.
 
-Seorin said it short.
+Seorin said, short,
 
-"Good. Then let us hurry."
+"Good. Then let's hurry it up."
 
-Luhai asked immediately.
+Luhai asked at once,
 
 "Hurry what?"
 
-Seorin looked once at the section where the androids stood, then at the dark corridor leading toward Serakion's upper level.
+Seorin looked once at the sector where the androids were,
+then at the dark passage leading up toward Serakion's upper level.
 
-"The plan. Before that side. Starting with how far we refuse to resemble them."
+"The plan."
+"Before that side does.
+Starting with how far we refuse to become like them."
 
 ---
 

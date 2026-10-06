@@ -7,13 +7,13 @@ Serakion era, desde siempre, un mundo que se llevaba a la gente sin grandes soni
 y por eso lo primero que sacudía ese orden
 tampoco podía empezar con un sonido demasiado grande.
 
-El grupo de reconocimiento y las máquinas de recuperación
+El grupo de reconocimiento y las manos de recuperación
 se repartieron y se apostaron en el tramo justo antes de la línea de relevo acordada de antemano.
 
 Kael, en el sitio donde sujetar el orden de cierre;
 Ater, en el sitio donde crear la confusión más natural;
-Han Jiwoo y la segunda máquina de recuperación, en el sitio donde sacar a los niños;
-la primera máquina de recuperación, en el sitio donde sujetar el flujo de retorno.
+Han Jiwoo y la segunda mano de recuperación, en el sitio donde sacar a los niños;
+la primera mano de recuperación, en el sitio donde sujetar el flujo de retorno.
 
 Ya no hubo más palabras.
 
@@ -32,7 +32,7 @@ Apenas lo justo para parecer un error.
 Apenas lo justo para llamar no a la sospecha, sino al arreglo.
 
 Con ese pequeño desajuste,
-la mirada de dos máquinas de la fila delantera se cruzó exactamente una vez.
+la mirada de dos máquinas de la fila delantera se dividió exactamente una vez.
 
 Fue solo eso.
 
@@ -61,7 +61,7 @@ para que el siguiente pliegue, ocupado en volver a calcularse,
 deje por un instante un hueco.
 
 En ese momento,
-Han Jiwoo y la segunda máquina de recuperación entraron a la vez.
+Han Jiwoo y la segunda mano de recuperación entraron a la vez.
 
 La fila aún no se había derrumbado del todo.
 Pero ya no era tampoco el mismo orden de antes.
@@ -90,7 +90,7 @@ El segundo era el niño que había elegido Ater.
 Ese niño no miraba hacia arriba,
 seguía con la vista puesta hacia abajo.
 
-La segunda máquina de recuperación, con un movimiento corto, casi mecánico,
+La segunda mano de recuperación, con un movimiento corto, casi mecánico,
 le envolvió por detrás el hombro.
 
 El cuerpo del niño se endureció un instante.
@@ -98,7 +98,7 @@ El cuerpo del niño se endureció un instante.
 Pero entonces,
 Ater habló muy bajo.
 
-—No mires. Ven.
+—No mire. Venga.
 
 Esas palabras, curiosamente, hicieron efecto.
 
@@ -130,7 +130,7 @@ De ahí en adelante ya no era arreglo, sino que empezaba algo más cercano a la 
 Han Jiwoo, sin tiempo ni de maldecir,
 dobló primero el cuerpo hacia aquel niño.
 
-En ese momento la primera máquina de recuperación cortó el flujo por detrás.
+En ese momento la primera mano de recuperación cortó el flujo por detrás.
 
 Muy brevemente,
 bloqueó con el cuerpo una línea de movimiento que la alineación necesitaba para volver a cuadrarse.
@@ -141,7 +141,7 @@ ese flujo se plegó media vez.
 Esa media vez bastó.
 
 Han Jiwoo agarró al niño rápido casi abrazándolo y lo tiró hacia dentro,
-y la segunda máquina de recuperación pasó hacia atrás al segundo niño que había atrapado antes.
+y la segunda mano de recuperación pasó hacia atrás al segundo niño que había atrapado antes.
 
 El primer niño ya iba a una velocidad más de arrastre que de carrera,
 pero sin duda venía con sus propios pies.
@@ -152,7 +152,7 @@ En su lugar siguió leyendo solo el orden de cierre.
 —Ahora —dijo bajo.
 —Por el centro, no por la izquierda.
 
-La primera máquina de recuperación volvió el cuerpo según esas palabras.
+La primera mano de recuperación volvió el cuerpo según esas palabras.
 
 De ser normal, lo más natural era salir por la izquierda, según la estructura.
 Pero justo por eso,
@@ -207,8 +207,8 @@ Por eso, en vez de correr,
 crearon a la fuerza un compás en la misma dirección.
 
 Han Jiwoo no soltó la mano del primer niño,
-la segunda máquina de recuperación empujó de forma constante el hombro del segundo niño,
-y la primera máquina de recuperación, cada tanto, bloqueaba y frenaba al tercer niño para que no se adelantara demasiado.
+la segunda mano de recuperación empujó de forma constante el hombro del segundo niño,
+y la primera mano de recuperación, cada tanto, bloqueaba y frenaba al tercer niño para que no se adelantara demasiado.
 
 Y por fin,
 se vio el último borde que se pliega hacia el estrato oculto.
@@ -225,7 +225,7 @@ una sola vez.
 El pliegue que retrasó Kael,
 el desajuste que creó Ater,
 la mano que leyó Han Jiwoo
-y el flujo que aguantaron las máquinas de recuperación
+y el flujo que aguantaron las manos de recuperación
 encajaron por los pelos.
 
 Cuando los tres niños cruzaron del todo hacia dentro del estrato oculto,
@@ -235,7 +235,7 @@ Han Jiwoo seguía recobrando el aliento sin soltar aún la mano,
 Ater mantenía la mandíbula apretada por no mirar atrás,
 y Kael por fin cerró los ojos una vez y los volvió a abrir.
 
-La primera máquina de recuperación fue la primera en hablar bajo.
+La primera mano de recuperación fue la primera en hablar bajo.
 
 —Se abrió uno.
 

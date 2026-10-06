@@ -54,7 +54,7 @@ Au contraire, de très loin,
 cela a continué comme un léger air.
 
 Pas une odeur.
-Pas léger.
+Pas une lumière.
 Mais clairement,
 un grain différent de celui de Hazran.
 
@@ -122,7 +122,7 @@ Jiwoo se tourna.
 
 Sern parla en faisant défiler l'écran.
 
-« Le bruit lisible dans la zone orbitale dans laquelle nous nous trouvions auparavant a disparu. »
+« Ce n'est pas le bruit que nous lisions dans la zone orbitale où nous nous trouvions auparavant. »
 « Les intervalles statiques d'arrière-plan sont différents, et les lacunes laissées par les réseaux relais le sont aussi. »
 
 Ce n'était pas une déclaration d'arrivée.

@@ -1,69 +1,93 @@
 # Episode 66. The Shape That Could Hold a Small Flame
 
-"Now we're seeing the same thing."
+"Now you see the same thing."
 
-Even after Aka's words fell, the three did not move immediately.
+Even after Aka said it, the three of them did not move right away.
 
-Sion looked again at the cooled site on the pedestal, ember still gripped in his hand.
+Sion held the ember in his hand and looked again at the cold spot on the stand.
 
-Black. Silent. Looking as though everything was already over.
+Black,
+silent,
+a fragment that looked as if everything was already over.
 
-But the ember did not lie. Only before this did it grow less uncomfortable by the smallest degree. So that was not just a leftover shard—it was a trace that had actually passed over the same grammar.
+But the ember did not lie. Only in front of this did it grow, very slightly, less uneasy. So that was not just a leftover shard; it was the trace of something that had actually passed over the same grammar.
 
-Aka did not push it with explanation.
+Aka did not press it on them as an explanation.
 
-Instead, she pulled open a small drawer beneath the pedestal. Inside were several long thin metal strips, fibers resembling thin bonding thread, and a few half-refined etherite fragments, all neatly arranged. None of them gleamed. So plain that a first glance would miss their value entirely.
+Instead she pulled out a drawer low on the side of the stand and opened it. Inside, laid out in order, were a few long, thin metal strips, a fiber that looked like fine binding thread, and a few pieces of half-refined Etherite. None of it gleamed; it was all so plain that at first sight you would not even recognize its worth.
 
-"Do you know what you discard first?"
-Aka asked low.
+"Know what you throw out first?"
+Aka asked, low.
 
 Sion could not answer.
 
-Jiwoo spoke first.
+Han Jiwoo spoke first.
 
 "Impatience."
 
-Aka looked at him.
+Aka looked at her.
 
-And nodded, very briefly.
+Then gave one very short nod.
 
-"Yeah."
-She said.
-"Want to save it fast and you kill it first."
+"Yeah,"
+she said.
+"If you want it alive fast, you kill it first."
 
-Sion felt those words were frighteningly precise.
+Sion felt how frighteningly exact that was.
 
-Right now he wanted to put the ember straight into the hull. He wanted to press it against the cooled site and see. He wanted to confirm immediately whether it truly connected.
+He wanted to put the ember into the hull right now. He wanted to press it to the cold spot in front of him, too. He wanted to know at once whether it really connected.
 
-But that kind of desire was exactly what killed first.
+But that kind of wanting was exactly what killed first.
 
-Aka picked the cloudiest, ugliest etherite fragment from the drawer and handed it to Jiwoo.
+Sion counted the times he had been in a hurry on the way here.
 
-"This one isn't pretty."
-She said.
-"That's why it lasts."
+In the arena there had been a team whose hands went to the first light that grew big. They grabbed it and stopped, and in that instant of stopping a ship cut in from the side and sent them skidding.
 
-Jiwoo took the fragment and examined its light and grain once each.
+There had also been people who heard that prices were jumping and went out to the outer waterways first.
 
-"The inner fracturing is slow."
-She said low.
-"Even heat-stressed, it wouldn't split right away."
+Hurrying was not the mistake. Hurry, and you skip the check; and where you skip it, things that would have lived die.
 
-Aka pointed to the underside of the black fragment's edge on the pedestal.
+"Then how long do we wait?"
 
-"This is where it once touched."
-She said.
-"But it's cooled now."
+It was Sion who asked.
 
-Then she gestured with her chin toward the outer compartment where the hull waited.
+"Until it doesn't die."
+
+"And how long is that?"
+
+Aka did not answer that. The answer was different every time. Here, the side that named its price first lost, and Aka had not named anything yet.
+
+From the drawer Aka picked the murkiest, ugliest-looking piece of Etherite and handed it to Han Jiwoo.
+
+"This one isn't pretty,"
+she said.
+"So it lasts."
+
+Han Jiwoo took the piece and checked its light and its grain, once each.
+
+"The cracking inside is slow,"
+she said, low.
+"It won't split right away even if it takes heat."
+
+This time Aka pointed under the edge of the black fragment at the cold spot.
+
+"This is where it touched,"
+she said.
+"But it's cold now."
+
+Then at once she jerked her chin toward the outer section where the hull was.
 
 "That one still has a shape that can hold."
 
-In that moment, Sion dimly understood what Aka was trying to do.
+In that moment Sion dimly understood what Aka meant to do.
 
-The cooled site knew the direction. The hull had kept a body that could hold. The ember was still alive.
+The cold spot knows the direction.
+The hull has kept a body that can hold.
+The ember is still alive.
 
-So what was needed now was not bridging all three at once, but building the first receiving shape—one that would not shatter entirely even if a small flame touched it briefly.
+So what was needed now
+was not to join the three in one go,
+but to make a first receiving shape that would not die outright even if a small flame touched it for a moment.
 
 "Are you going to test it?"
 Sion asked.
@@ -72,9 +96,9 @@ Aka answered shortly.
 
 "Just a little."
 
-She placed the thin bonding thread, two small metal strips, and the cloudy etherite fragment Jiwoo had just held onto a low metal plate before the pedestal. It looked less like a finished product and more like a frame. Less a heart to cradle the ember, and more like the work of building a single palm that would not shatter the instant a small flame grazed past.
+On the low metal plate in front of the stand she set the thin binding thread, two small metal strips, and the murky piece of Etherite she had just handed over. It looked closer to a frame than to a finished thing. It looked less like making a heart to hold the ember than like making a single palm that would not shatter first when a small flame brushed past.
 
-Jiwoo murmured very low, watching.
+Watching it, Han Jiwoo murmured very low.
 
 "A receiving frame."
 
@@ -84,121 +108,151 @@ Aka nodded.
 
 This time she looked at Sion.
 
-"Lower it just a little."
-She said.
+"Lower it just a little,"
+she said.
 "Don't let it touch."
 
 Sion held his breath.
 
-Even extending his hand forward felt strangely tense. The ember had always existed only inside his hand. This was the first time he was sending it outward by someone else's measured distance.
+Just reaching his hand out made him strangely tense. The ember had always been in his own hand and nowhere else. This was the first time he had let it out, by a distance someone else named.
 
-He lowered his hand very slowly.
+Sion could count how many hands had tried to take it from him in the arena. Those few days had taught him one thing. He did not let go of this.
 
-The ember was still quiet. But as it drew closer above the receiving frame, the thin bonding thread on the metal plate trembled faintly first. The cloudy etherite fragment's inner grain caught light very slowly.
+Now he was being told to do the opposite. Not to let go, but to hold it out.
 
-Nothing spiked. Nothing surged.
+Sion knew with his hands how different those two were. He had to leave the grip as it was and straighten only his arm.
 
-Instead, by the smallest degree, a change occurred—as though living things were easing each other's discomfort.
+Sion lowered his hand very slowly.
 
-"There."
-Aka said low.
+The ember stayed quiet.
+But the closer it came above the receiving frame, the more the thin binding thread on the metal plate trembled first, faintly. The grain inside the murky Etherite took on light, very slowly.
+
+It did not spark.
+It did not flare up either.
+
+Instead, very faintly, a change came, as if two living things were easing each other's discomfort.
+
+"There,"
+Aka said, low.
 
 Sion stopped his hand.
 
-Jiwoo watched the scene barely breathing.
+Han Jiwoo was watching with her breath almost stopped.
 
-"Go further and it dies?"
-She asked low.
+"If it goes further, does it die?"
+she asked, low.
 
-Aka was silent for a beat before answering.
+Aka was silent a moment before she answered.
 
 "For now."
 
-Those two words were larger than they should have been.
+Those two words were, if anything, bigger.
 
-Not yet. But someday, it might go further.
+Not now.
+Which meant that someday it might go further.
 
-Sion held the ember still in his hand at that distance. The receiving frame trembled very faintly, and the cloudy etherite's inner grain grew a little clearer. A truly small reaction. Enough that a careless glance would see nothing happening at all.
+At that distance Sion held the ember still. The receiving frame trembled very weakly, and the grain inside the murky Etherite grew a little clearer. It was a truly small reaction. Small enough that a careless glance would see nothing happening at all.
 
-But all three could tell.
+But all three of them could tell.
 
-This was the first time.
+This was the first.
 
-Not opening a door. Not lifting a hull. Not creating a magnificent light.
+Not opening a door,
+not lifting the hull,
+not making some great light.
 
-Just the first moment when a small flame did not die before another shape, and that shape did not immediately collapse.
+Just the first moment a small flame did not die in front of another shape, and that shape did not collapse at once either.
 
-Aka said very low.
+Aka spoke very low.
 
-"See."
-She said.
-"It doesn't die."
+"Look,"
+she said.
+"It isn't dying."
 
-Sion felt a strange dryness in his throat at those words.
+For some reason the words made Sion's throat feel dry.
 
-So small that it was, in fact, more certain.
+It was so small that it was all the more certain.
 
-False reactions were always large and vivid. Fooling people required being noticeable. But the first reaction of something truly connecting was this quiet.
+Sion did not look away. If he did, he did not know whether he would see it again.
 
-Jiwoo exhaled before Sion this time.
+Sion wondered whether he could ever explain this scene to anyone later.
 
-"We need to grow this."
-She said.
+What would he even tell Seorin? If he said the binding thread trembled a little and the grain inside a stone got a little clearer, that was the end of it. To the one listening, it would sound as if nothing had happened.
+
+To someone who had not seen it here, this was no proof.
+
+Only then did Sion understand once more why Aka did not show it to just anyone. It was not that she hid it. It was that even when she showed it, most people saw nothing.
+
+This time Han Jiwoo let out her breath before Sion did.
+
+"So this is what we have to grow,"
+she said.
 "But get the order wrong and it's over again."
 
 Aka answered shortly.
 
 "Yeah."
 
-Then she touched one corner of the receiving frame with her fingertip and added.
+Then she touched one corner of the receiving frame with a fingertip and added:
 
-"That's why your hands are needed."
+"That's why I need your hands."
 
-Those words had been expected from the start, yet they landed strangely heavier.
+He had expected it from the start, and still it sounded strangely heavier.
 
-Sion felt they were not said to Jiwoo alone. Jiwoo's hands were the ones that made structure hold. His own hands were the ones that carried the ember without killing it.
+Sion sensed it was not said to Han Jiwoo alone.
+Han Jiwoo's hands made a structure hold; his own hands carried the ember along without letting it die.
 
-Aka had already said multiple times that one alone was not enough.
+Aka had already said, more than once, that one of the two alone would not do.
 
-Jiwoo picked up the cloudy etherite fragment again and examined its grain.
+Han Jiwoo lifted the murky piece of Etherite again and checked its grain.
 
-"Got more of the same material?"
-She asked.
+"Got any more of the same material?"
+she asked.
 
-"A little."
+"A little,"
 Aka answered.
 "Not much."
 
 "Then we can't afford more mistakes."
 
-This time Aka smiled by the faintest degree.
+This time Aka smiled, just barely.
 
 "Now you're scared."
 
-Jiwoo smiled shortly too.
+Han Jiwoo gave a short laugh too.
 
-"This kind of thing is always scarier."
-She said.
-"Big things—you see the failure right away. Small things, you might not know you've killed it until it's already gone."
+"This kind of thing's scarier,"
+she said.
+"When something big fails you see it right away, but a small one, you might not know until you've killed it."
 
-Sion could say nothing because those words were too precise.
+Sion could not say a word; it was too exact.
 
-The ember in his hand was the same. Handle it carelessly and it might cool silently at some moment. But hold it right, and it could make a shape thought dead hold on again.
+The ember in his own hand was like that too.
+A thing that, handled carelessly, might go quietly cold at any moment.
+A thing that, held right, could make a shape thought dead hold again.
 
-Aka looked in turn at the cooled site on the pedestal, the small receiving frame on the metal plate, and the ember in Sion's hand.
+Aka looked in turn at the cold spot on the stand, the small receiving frame on the metal plate, and the ember in Sion's hand.
 
-"One thing left."
-She said low.
+"Only one thing left,"
+she said, low.
 
-Sion asked.
+Sion asked her.
 
-"What."
+"What?"
 
 Aka answered very shortly.
 
-"Deciding where to place it first."
+"Deciding where to stake it first."
 
-With those words, it became clear that saving the hull was not simple repair but the work of choosing the real priority.
+Sion knew why that came last.
+
+The material was settled, and they had set up the frame once. But there was not much of the same material. Stake it in one place and you could not stake it anywhere else.
+
+They could stake it first on the ship lifting off, or first on it not breaking, or first on the people inside not getting hurt.
+
+All three were right. They could not do all three.
+
+It was not a matter of repair. It was choosing what to keep alive first.
 
 ---
 

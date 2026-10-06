@@ -1,31 +1,20 @@
 # Capítulo 107 — Los que deben irse y los que deben cerrar
 
-Después de que Zahir dijera «ya no compro más»,
-dentro de Hazran cayó un silencio muy breve.
+Se oyó volver el barco.
 
-Ese silencio no era duda.
-Era lo contrario.
+Era un sonido vacío. Sion ya conocía la diferencia. Cargado de gente, suena aplastado; vacío, suena ruidoso. De todo lo que había aprendido en Hazran, era lo que parecía más inútil y, al mismo tiempo, lo más exacto.
 
-Era un silencio en el que todos,
-a la misma velocidad,
-habían comprendido que de verdad había llegado el momento
-de decir quién se iba y quién cerraba.
+Los ocho alzaron la cabeza al oírlo. Los ocho miraron hacia el mismo lado, pero ninguno se movió hacia la rampa. La fila que no habían hecho en todo el día seguían sin hacerla ahora.
 
-Sion notó enseguida que el aire había cambiado.
+Zahir se acercó a la parte delantera del casco.
 
-Hasta hacía un instante,
-todos se aferraban cada uno a su sitio,
-buscando como fuera la forma de aguantar un poco más.
+Harún venía detrás de él. Nasim, a su lado. Nahira estaba de pie junto a Aka.
 
-Pero en el momento en que Zahir trazó la línea,
-esa batalla terminó.
+Solo entonces miró Sion a Nahira.
 
-Lo que hacía falta a partir de ahora
-no era la forma de aguantar más,
-sino separar a los que se enviaba hasta el final
-de los que cerraban hasta el final.
+Desde la carrera de la brasa hablaba cada vez menos. Tampoco ahora miraba la fila ni el pasillo: solo miraba la respiración de Aka.
 
-Zahir giró despacio la mirada hacia el grupo de Sion.
+El grupo se reunió delante del casco.
 
 Sion,
 Seorin,
@@ -33,106 +22,68 @@ Han Jiwoo,
 Kael,
 Sern,
 Ater,
-y Aka.
+Aka y Luhai.
 
-Aka no estaba sola.
+Sion intentó contar cuánto hacía que los ocho no estaban así, juntos en un mismo sitio, y lo dejó. Si contaba, sabría cuánto tiempo llevaban sin verse.
 
-Nahira estaba de pie justo a su lado.
-
-Desde la carrera de la brasa, ella, que cada vez hablaba menos y se le pegaba como una sombra,
-incluso ahora estaba más cerca de Aka que nadie.
-Como quien, antes que la fila de evacuación o el frente,
-vigila primero el aliento y la mirada de Aka.
-
-Solo con esa imagen,
-a Sion, de un modo extraño, esta escena le pesó más.
-
-Hazran de verdad
-sostenía a Aka a la vez como persona
-y como fragmento.
-
-Zahir habló muy bajo.
+Zahir habló en voz baja.
 
 —Forasteros.
 
-Con esa sola palabra,
-el aire alrededor volvió a quedar en silencio.
-
-Harún,
-Nasim,
-Luhai,
-y los que sostenían la línea delante del casco,
-todos miraron hacia allá a la vez.
-
-Zahir continuó.
+El aire se quedó en silencio.
 
 —Gracias por salvar a Hazran.
 
-Esa frase no sonó como un saludo de forma.
-Más bien, por salir tan tarde,
-por eso mismo se clavó más como algo sincero.
-
 Sion no pudo responder.
 
-Porque no esperaba oír esas palabras en este momento.
+Esta ciudad había perdido hoy a ochenta y ocho personas, se le había derrumbado entero el interior y había abandonado el pasillo por su propia mano. Y aun así les daba las gracias por salvarla.
 
 Zahir siguió hablando sin apartar la mirada.
 
 —Lo que pasó aquí lo cierra Hazran.
 Ustedes, lleven nuestro fragmento y sigan adelante.
 
-En el instante en que Sion oyó esas palabras,
-sintió que algo dentro del pecho se hundía sin duda.
+En el instante en que oyó esas palabras, Sion sintió que algo, en algún lugar del pecho, se le hundía sin remedio.
 
-Ahora estaba confirmado.
+Ya era definitivo.
 
-No éramos los que se quedan.
-Éramos los que Hazran empuja afuera hasta el final.
+No somos los que se quedan. Somos los que Hazran empuja hacia fuera hasta el final. Y precisamente por eso parecía que los pies no se le iban a despegar del suelo.
 
-Pero justo por esa verdad,
-al contrario, parecía que los pies no se le iban a despegar.
+Seorin no dijo nada.
 
-Seorin tampoco dijo nada.
+Era de las que, en un momento así, parecían ir a responder la primera y con dureza, pero esta vez fue al revés. Tenía la cara de quien mantiene la boca cerrada a propósito, porque, si la abre, algo quedará decidido de verdad.
 
-Ella, que siempre parecía ser la primera en reaccionar con dureza en un momento así,
-esta vez fue al contrario.
-Tenía una cara cerrada a propósito,
-como si abrir la boca fuera a confirmar de verdad algo.
+Han Jiwoo detuvo las manos en la entrada del casco. Kael volvió despacio la cara, que miraba hacia la izquierda. Sern y Ater también bajaron un poco la mirada.
 
-Han Jiwoo también detuvo las manos a la entrada del casco.
-Kael giró despacio la cara que miraba hacia el pasaje de la izquierda,
-y Sern y Ater bajaron la mirada de forma mínima.
+Nahira sujetó muy despacio la muñeca de Aka.
 
-Nahira sujetó la muñeca de Aka muy lentamente.
+Era una mano que ni tiraba ni soltaba.
 
-Era una mano que ni tiraba
-ni soltaba.
+Zahir recobró el aliento un instante y volvió a hablar.
 
-Una mano que sujetaba a quien se iba,
-y que ya sabía que al final tenía que dejarla ir.
-
-Zahir, tras tomar aire muy brevemente,
-volvió a hablar.
-
-—Busquen el planeta de esas máquinas que esta vez nos volvieron locos —dijo.
+—Busquen el planeta de esas máquinas que esta vez nos volvieron locos.
+Eso dijo.
 —Ese es el camino por el que ustedes viven, y el camino por el que los fragmentos de nuestra Hazran siguen viviendo.
 
-Esas palabras no eran un simple ruego.
-Estaban casi a medio camino entre un testamento y una orden.
+En el instante en que oyó esa frase, Sion lo supo.
 
-En el instante en que Sion oyó esa frase,
-supo que Hazran ahora no solo les permitía escapar,
-sino que les confiaba algo.
+Esta ciudad no les estaba permitiendo escapar: les estaba confiando algo. Estaba enviando con ellos lo que ella misma no había podido cerrar.
 
-La rabia de esta ciudad,
-las heridas de esta ciudad,
-una parte de la puerta que esta ciudad nunca llegó a cerrar,
-los estaba cargando sobre ellos.
+Y cuando cayeron esas palabras, Ater y Sern se miraron.
 
-Zahir, por último, dijo muy bajo.
+Fue muy breve. Una mirada que nadie habría visto de no ser por Sion.
 
-—Luhai también va —añadió bajo.
-—Tú tampoco eres una de las manos sobrantes de aquí.
+Esos dos venían del Imperio. Si alguien aquí sabía mejor que nadie de qué manos habían salido aquellas cosas negras, eran ellos dos.
+
+Ater no dijo nada. Zahir tampoco preguntó.
+
+A Sion aquel silencio le pareció extraño. Los dos eran de los que ya sabían la respuesta.
+
+Zahir habló en voz baja por última vez.
+
+—Luhai también va con ustedes.
+Lo añadió.
+—Tú tampoco eres una mano que se queda aquí.
 
 Luhai se quedó rígido un momento.
 
@@ -140,91 +91,59 @@ Zahir habló sin retirar la mirada.
 
 —A Hazran la cerramos nosotros.
 
-Zahir cerró los ojos una vez y los abrió. Y justo antes de darse la vuelta, añadió muy breve:
+Después cerró los ojos una vez y volvió a abrirlos. Justo antes de darse la vuelta, añadió algo breve.
 
 —Si son ustedes, es posible.
 
-Esas palabras, de un modo extraño,
-no sonaron a consuelo.
+Aquellas palabras no sonaron a consuelo. Más que a confianza, sonaron a veredicto.
 
-Más que a confianza,
-sonaron a un veredicto de que ahora tenía que ser así.
+Y la mirada de Zahir fue hacia Aka.
 
-Y la mirada de Zahir
-fue por fin hacia Aka.
-
-Él estuvo callado un momento muy breve.
-
-Dentro de ese corto silencio
-parecía estar todo:
-cómo Hazran había sostenido a Aka hasta ahora,
-cómo la había protegido,
-y cómo ahora tenía que dejarla ir.
-
-Zahir habló.
+Guardó silencio un momento. Parecía que en ese breve silencio cabía entero cómo Hazran había sostenido a Aka hasta entonces.
 
 —Aka.
 
-Aka no respondió.
-Solo alzó la mirada.
+Aka no respondió. Solo alzó la mirada.
 
-La mano de Nahira se apretó de forma mínima.
+La mano de Nahira apretó apenas un poco más.
 
-Zahir, muy bajo,
-casi por primera vez con una voz humana, dijo:
+Zahir habló en voz baja, casi por primera vez con voz de persona.
 
 —Gracias por todo este tiempo.
 
-Cuando esas palabras cayeron,
-Sion sintió que el aire alrededor se desmoronaba de forma mínima.
+Cuando cayeron esas palabras, el aire alrededor se desmoronó de forma casi imperceptible.
 
-Luhai bajó primero la cabeza,
-y Nasim, sin soltar una sola maldición, solo apretó fuerte los labios.
-Harún, a lo lejos, cerró los ojos y los abrió.
-Seorin volvió un poco la cara,
-y Han Jiwoo agarró con más fuerza la baranda de la entrada del casco.
+Luhai fue el primero en bajar la cabeza. Nasim, sin soltar ni una maldición, solo apretó los labios. Harún, a lo lejos, cerró los ojos y volvió a abrirlos. Seorin giró un poco la cara, y Han Jiwoo agarró con más fuerza la baranda.
 
-Nahira al final no dijo nada.
+Nahira, hasta el final, no dijo nada.
 
-Pero la mano que sujetaba
-se soltó muy despacio.
+Pero la mano que la sujetaba se soltó muy despacio.
 
-Con esa sola escena,
-Sion supo, al contrario, con más claridad.
+Con esa sola imagen, Sion lo supo con más claridad.
 
-Esto no era una simple orden.
-Era el momento en que Hazran soltaba a Aka.
+Aquello no era una orden: era dejarla ir.
 
-Sion dijo bajo.
+Sion habló en voz baja.
 
-—Nosotros también deberíamos quedar…
+—Nosotros también deberíamos quedarnos…
 
-Esas palabras no llegaron al final.
-
-Porque Zahir las cortó con mucha firmeza.
+No llegó a terminar.
 
 —No.
 
-Una respuesta corta y clara.
+Zahir lo cortó.
 
-—Los que cerramos somos nosotros —dijo.
+—Los que cierran somos nosotros.
+Lo dijo.
 —Ustedes no son los que aguantan hasta el final y luego embarcan. Ustedes son los que se van.
 
-Esas palabras golpearon de frente el pecho de Sion.
+Sion recibió esas palabras de frente.
 
-Cierto.
-Esta era la frase que hacía falta ahora.
+Eran ciertas. Por eso dolían.
 
-Quién se queda,
-quién embarca.
-Quién cierra la puerta,
-quién tiene que salir más allá de esa puerta.
+Seorin preguntó tarde, en voz baja.
 
-Ya no se podía dejar borroso.
-
-Seorin, muy tarde, preguntó bajo:
-
-—¿Es en serio?
+—¿Lo dices en serio?
 
 Zahir respondió enseguida.
 
@@ -232,69 +151,161 @@ Zahir respondió enseguida.
 
 Con esa sola frase bastaba.
 
-Ya nadie podía objetar.
-
 Zahir levantó una mano.
 
 —Embarquen a los forasteros.
 
-En el instante en que cayó esa orden,
-dentro de Hazran empezó a moverse otra vez.
+Nasim fue el primero: soltó un aliento parecido a una maldición y empujó con brusquedad el hombro de Sion.
 
-Pero este movimiento era distinto al de hasta hacía un momento.
-Ahora no era una evacuación vaga,
-sino un movimiento que claramente empujaba al grupo de Sion hacia el casco.
+—Vete.
+Eso dijo.
+—No me hagas decirlo también aquí.
 
-Nasim soltó primero un aliento parecido a una maldición
-y empujó con dureza el hombro de Sion.
+Sion le agarró esa mano.
 
-—Ve —dijo.
-—No me hagas decirlo aquí también.
+—Antes dijo que los ocho eran lo más caro.
 
-Luhai al principio miró atrás por reflejo.
-Como quien quiere confirmar hasta el final
-si era de los que debían quedarse.
+—Eso lo dijo Zahir.
 
-Pero las palabras de Zahir aún quedaban en el aire.
-Tú tampoco eres una de las manos sobrantes de aquí.
+—¿Y es verdad?
 
-Luhai solo entonces tragó un aliento muy breve,
-y, pegándose hacia Aka, dijo bajo:
+Nasim se pasó la mano por el cuello una vez y respondió.
 
-—Ve —dijo con una cara que no podía sonreír.
-—Vámonos juntos.
+—Lo es. Pero yo no puedo ponerle precio.
 
-Nahira esta vez empujó la espalda de Aka muy brevemente.
+—¿Por qué?
 
-No hubo palabras.
-Pero esa mano lo decía con claridad.
+—Porque si se lo pongo, me tengo que quedar yo.
 
-Ve.
-Yo te mando.
-Así que ve.
+Luhai miró atrás por reflejo. Como quien quiere comprobar si es de los que deben quedarse.
 
-Seorin soltó el aliento un tiempo tarde,
-y Han Jiwoo despejó más espacio en la entrada.
-Kael ya volvía desde la izquierda,
-y Sern y Ater, aun mordiendo el afuera,
-ahora volvían de vez en cuando la mirada hacia los que debían llevar hasta el final.
+Pero las palabras de Zahir seguían en el aire. Tú tampoco eres una mano que se queda aquí.
+
+Luhai tragó aire un instante y se arrimó a Aka.
+
+—Ve.
+Lo dijo con una cara que no conseguía sonreír.
+—Vamos juntos.
+
+Nahira empujó muy brevemente la espalda de Aka.
+
+No hubo palabras. Esa mano lo decía con claridad.
+
+Ve. Soy yo quien te envía. Así que ve.
 
 A Sion no se le despegaban los pies.
 
-Pero ahora ya
-no era una etapa en la que no despegarlos significara no ir.
+Pero ya no estaban en una etapa en la que no despegarlos permitiera no ir.
 
-Hazran los enviaba en persona.
-Entonces había que ir.
+Han Jiwoo gritó desde dentro del casco.
 
-Porque ese era el orden que esta ciudad fijó por última vez.
+—¡¿Cuántos son?!
 
-Y Sion supo.
+—Dieciséis.
 
-Desde este momento,
-la despedida ya no era un aviso.
+—Con dieciséis, la izquierda no se hunde.
 
-De verdad había empezado.
+Esa respuesta, de un modo extraño, le sirvió de consuelo. En todo el día habían cortado, contado y repartido a la gente por culpa del peso, y en esta última vez no había nada que cortar.
+
+Sion dio medio paso hacia la rampa y se detuvo.
+
+Los ocho seguían sin moverse.
+
+—¿Ellos también?
+Lo preguntó Sion.
+
+—Suban.
+Lo dijo Zahir.
+
+Uno de los ocho alzó por fin la cabeza.
+
+—¿Nosotros?
+
+—Dije que suban.
+
+—Nosotros…
+
+—Las manos que cavaron hasta el final no son manos que se quedan aquí.
+
+Quien había hablado no pudo decir nada. Entre dos levantaron a uno que estaba sentado a su lado.
+
+Los ocho se movieron hacia la rampa. Manos con los nudillos despellejados se agarraron a la baranda.
+
+Sion los iba contando mientras subían, y la mano se le detuvo.
+
+Ocho, más los ocho del grupo, eran dieciséis.
+
+Entonces los que se quedaban aquí eran cuatro.
+
+Sion giró la cabeza.
+
+Estaba Zahir. Estaba Harún. Estaba Nasim. Estaba Nahira.
+
+Eran cuatro.
+
+Solo entonces supo Sion que el número que había trazado hoy en la tablilla estaba mal.
+
+—No eran ocho.
+
+Zahir no respondió.
+
+—Antes dijo que se quedaban ocho.
+
+—Los ocho suben.
+
+—Entonces los que se quedan…
+
+—Cuatro.
+
+Ante esa sola palabra, Sion no pudo decir nada.
+
+Los que habían hecho esta ciudad eran cuatro. Los que habían dado nombre al lugar que encontraron eran cuatro, y los que se quedaban ahora también eran cuatro.
+
+Sion fue hacia la tablilla.
+
+En el extremo derecho estaba la raya que había trazado antes. La había trazado para decir ocho.
+
+Sion trazó ahí, con la uña, cuatro más. Como no había forma de borrar el ocho, sin más trazó cuatro al lado.
+
+Y después supo que esa era la forma equivocada. Los ocho suben. Los que se quedan son cuatro.
+
+Era un número que no había forma de borrar y que no debía quedar ahí.
+
+Sion frotó la tablilla una vez con la palma. No se borró. Tampoco se había borrado antes, cuando la frotó Nasim.
+
+Así que lo dejó.
+
+En la tablilla quedaron, uno junto a otro, diez trazos, cinco, ocho y cuatro.
+
+Si más adelante alguien veía esta tablilla, nadie sabría qué números eran esos.
+
+Sion lo estaba pensando cuando supo también que más adelante no habría nadie para ver esta tablilla.
+
+Antes de ir a la rampa, pasó por delante de Harún.
+
+Harún no dijo nada.
+
+Sion habló primero.
+
+—Una hora.
+
+Solo entonces Harún miró a Sion.
+
+—¿Qué?
+
+—¿Ya no hace falta que cuente?
+
+Harún tardó un buen rato en responder.
+
+—Cuenta.
+
+—¿Por qué?
+
+—Allí también habrá cosas que contar.
+
+Sion se quedó con esa respuesta y siguió de largo.
+
+Mientras pasaba, empezó a contar. No sabía qué contaba.
 
 ---
 

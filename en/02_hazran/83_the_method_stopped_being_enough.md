@@ -1,165 +1,226 @@
 # Episode 83. The Method Stopped Being Enough
 
-Knowing how to break them
-had clearly mattered.
+The next line stood at the end of the corridor.
 
-It was true that the first front line inside the market had bound the wave for at least a beat,
-and for the first time, something like *it's not entirely hopeless* flickered in the eyes of Hazran's people.
+Sern saw it and drew a short breath.
 
-But a battlefield
-is not a place that grows kind because you gained one hope.
+"The spacing is changing."
 
-It was the opposite.
+Sion didn't know what had changed, so he looked again.
 
-From the moment a method was found,
-the other side began reading that method faster.
+Earlier, four had come in at the same spacing. This time the front two and the one behind were each slightly out of line. The middle one stood off to one side as well.
 
-Sern noticed it first.
+Out of line didn't mean scattered. They were out of line on purpose.
 
-When the next line appeared at the end of the corridor again,
-he swallowed a breath that was almost a curse.
+Only then did Sion understand. It meant they would not let the same spot be struck twice.
 
-"Intervals changed."
-He said, low.
+Harun asked.
 
-Ater saw it too.
+"How much has it changed?"
 
-The units coming in this time weren't the same even four-line formation.
-The front two and rear one were subtly staggered,
-and the center axis was slightly offset.
+"Enough,"
 
-It meant they wouldn't allow the same position to be struck twice.
-
-Ater spoke, cold.
-
-"They learned."
-
-Harun asked, short.
-
-"How much."
-
-"Enough."
 Ater answered.
-"From now on, the reading side must be faster."
 
-That also meant
-the methods Ater and Sern pointed out alone would no longer be enough.
-Shoot precisely.
-Clear precisely.
-Hold precisely.
-One beat late,
-and this time, the other side comes in first.
+"Now the reading side has to be faster."
 
-And it did.
+Sion understood what that meant.
 
-The first new unit deliberately lowered its body.
-It tucked the side where the coupling axis had been further inward,
-and instead pushed its left shoulder line forward, stealing the eye.
+Until now, it had been enough for Ater to say where to hit. Now, even after hearing it, they couldn't be late. Knowing and doing it in time had split apart.
 
-One Hazran shooter fired reflexively at that side.
+Sion had seen that split once already this morning. When the line passing water bags in front of the storehouse had stopped, everyone had known they had to stop, but their hands were a beat late and one bag rolled away.
 
-It wasn't a miss.
-But it wasn't the core either.
+That time it was a water bag.
 
-That instant the rear unit drew a long cutting beam through the opened gap,
-and one of the metal barriers beside the corridor was severed whole.
+Here, if they were a beat late, what rolled away would not be a water bag.
 
-Two merchants holding the line toppled backward simultaneously.
-One barely got up.
-The other was cut deep below the arm.
+The first one lowered itself as it came in.
 
-Blood splashed across the tent lines.
+It hid the rib line further inside and pushed its left shoulder out first instead.
 
-Luhai went white watching it.
+A shooter fired at that side.
 
-Nasim turned his body toward them immediately.
+It hit. The shoulder caved in.
 
-"Pull them inside!"
-He shouted.
-"Don't stand there!"
+It wasn't the core.
 
-But before his voice reached,
-the next unit was already halfway in.
+Through the angle opened by the shot, the one behind drew a long cutting line in. One of the metal screens beside the corridor was cut away whole.
 
-Sern threw his body almost on reflex.
+The two people holding it fell backward together. One got up and one didn't.
 
-Again he stepped off the low-scattered wreckage,
-driving toward the coupling axis. But unlike before, the other side didn't open up fully. The unit twisted its body and deliberately deflected Sern's blade toward the shoulder line, and that tiny error delayed the second strike.
+The underside of an arm had been cut deep.
 
-Ater called out immediately.
+Blood spattered onto a tent cord and spread down along it. Until yesterday, that cord had tied up a stall awning. The blood ran down the cord, gathered at a knot, and dripped from the knot.
+
+The fallen person made no sound. Instead they pressed the cut with their good hand, but pressed in the wrong place, and blood kept coming out between the fingers. The person beside them took that hand away and gripped higher up. Only after that grip did the flow below the pressed spot ease.
+
+Sion had never seen that order before. You didn't press the cut; you gripped above it. The people here knew that.
+
+Luhai's face went white.
+
+Nasim twisted toward them.
+
+"Pull back inside! Don't stand there!"
+
+Before his voice reached them, the next one was halfway in.
+
+Sern threw himself forward.
+
+He stepped on the low-lying wreckage and drove in toward the rib line. He went in exactly the way he had before.
+
+The thing did not open up for him the way it had before.
+
+It twisted its body and let the tip of Sern's blade slide off toward its shoulder. Where the blade slid, a very short span of time opened, and the second cut came that much late.
 
 "Back!"
 
-Sern pulled out one beat late.
+Ater shouted.
 
-The cutting beam passed that instant,
-and the cloth at his side tore in a long line.
+Hearing it, Sion felt his throat tighten.
 
-Not deep.
-But it bled.
+Earlier, Ater had only said the name. "Sern." That had been enough. This time he shouted, and that meant it was late enough to need shouting.
 
-Sion's heart dropped the moment he saw it.
+Sern pulled out.
 
-Sern didn't look like the kind of person this happened to.
+He pulled out a beat late.
 
-No—
-precisely because he was that kind of person, it was more frightening.
+The cutting line went past.
 
-Even someone like him gets cut when he's one beat late.
+The cloth at Sern's side tore in a long line. Beneath the tear it gaped, and the spot there soaked through.
 
-Harun changed his judgment immediately.
+It wasn't deep. But the cloth soaked quickly along the tear. You could see how fast it was soaking.
+
+Sion's breath stopped.
+
+He had never seen this man get cut. He had never seen him be late either. Until yesterday, Sern had been someone who spent less time getting out than going in.
+
+Even a man like that got cut if he was late once.
+
+Sern didn't look at his own side. He pressed it once with his hand and went straight on to looking at the next angle.
+
+Sion wanted to do it the way he had just seen. He had only just learned that you grip above the cut, not the cut itself.
+
+But a side had no above. With an arm you could grip toward the shoulder, but the torso had nowhere higher to grip. Sion realized he couldn't use what he'd learned here and lowered his hand.
+
+Maybe Sern saw that. He spoke once, briefly.
+
+"I am fine."
+
+It meant this was not the time to look.
+
+Ater fired.
+
+That struck Sion as strange, so he looked toward Ater.
+
+This man didn't shoot. He said where to shoot, decided who had to go, called when to pull out. He was not someone who used what he held in his hand.
+
+Now he was shooting.
+
+Sion looked at Ater's face. It was the same as before.
+
+The same face, but different hands.
+
+If this man was shooting, it meant he was short of people to give orders to. When you're short of people to order, the one who orders does it himself. Doing it himself meant he watched less, and watching less meant he couldn't catch who would be late next.
+
+Sion knew why that was bad, and still he couldn't tell Ater not to shoot. There was no hand to shoot there in his place right now.
+
+Harun changed his call.
 
 "Pull two shooters back."
-He said.
-"Cut with closer hands."
 
-That was a costly order for Hazran's side too.
-It meant reducing long-range response
-and holding at closer distance, more dangerously.
+Someone beside him asked back.
 
-But right now, precision came first.
+"If we pull them, who holds over there?"
 
-Kael threw two metal hooks immediately.
-Sion caught one.
-Without time to think, he hooked it onto a column fragment beside the corridor. One of Harun's people drove the other hook into the opposite side and pulled wire taut, and a low improvised cutting line hung across the middle of the corridor.
+"We cut with the hands up close."
 
-Harun shouted.
+At that, Sion's breath caught once.
+
+Shooting from far off was safe, and you got hit less. Going close was accurate, and you died. Right now accuracy came first, so he had chosen the side that died.
+
+Kael threw two metal hooks.
+
+One came toward Sion.
+
+Sion caught it.
+
+After catching it he tried to think why he had, and couldn't. His hand had caught it first.
+
+"Hook it to the pillar!"
+
+Someone shouted.
+
+Sion ran to the wreck of a pillar beside the corridor.
+
+He had to find somewhere to hook it first. The top of the wreck was thin and looked like it would snap if pulled, and the bottom was half buried in collapsed stone. Between the two, Sion found a spot where bent rebar stuck out and hooked onto it.
+
+He gave it one pull. It didn't come loose.
+
+On the opposite side, someone else drove in the second hook. As the wire between them pulled taut, a line hung low across the middle of the corridor.
+
+It was at knee height.
+
+Looking at the line, Sion understood why it was at knee height. Those things climbed over the fallen ones, and when they stepped over, their weight went onto the front foot. Catch the loaded foot and they fell.
+
+It was the same thing Sern had said yesterday. Because the other side was precise, you knew in advance where its feet would go.
+
+After hooking the line, Sion looked at his own hands.
+
+Until now, what Sion had done was gather, count, and run. Yesterday he had kicked away someone's baggage, and today he had strung a line to trip one of those things.
 
 "Push it in now!"
 
-Two people from Nasim's side shoved torn tents and broken sandbags in all at once.
-The moment the front unit stepped on the wreckage, Sern went low again, scored the ankle coupling, and pulled out.
+Harun's voice rang out.
 
-This time a short round fired by Ater struck the inner right line almost simultaneously.
+Two people shoved torn tent cloth and broken sacks in all at once. The front one stepped on the wreckage, and stepping on it sent its weight forward.
 
-The first unit collapsed.
-One behind it lost balance and caught on the wire.
+The foot carrying that weight caught on the line.
 
-But through all of it,
-the third did not stop.
+It was the line Sion had strung.
 
-Even when Hazran knew the method,
-the wave was still pushing forward, trusting its numbers.
+The front one pitched forward. While it pitched, Sern went in low, cut the ankle coupling, and got out. This time he wasn't late.
 
-Nasim dragged the wounded merchant back and cursed low.
+Ater's shot lodged in the inner right side.
 
-"This isn't a trade floor, this is genuine madness…"
+The first one collapsed. One of the ones behind lost its balance too and caught on the line along with it.
 
-The words came out so late
-they sounded more sincere.
+Sion watched it go over.
 
-More blood appeared inside the market.
-More metal plates were severed.
-The method Ater and Sern had pointed out was no longer an answer you only needed to know—
-it was becoming a calculation you had to stake your life on every single time to get right.
+It was the line he had strung.
 
-Sion understood, there in the center of it.
+He wasn't glad.
 
-War, from a certain point,
-pushes people past where method alone can hold.
+Watching it collapse, what Sion thought about wasn't that it had gone over. It was how many people it had taken to make that work just now. Two people on two hooks, two people pushing in the wreckage, Sern going in low, Ater shooting, Harun deciding it. Seven people had piled on to bring down one.
 
-And Hazran was stepping
-into exactly that moment right now.
+On the other side, even when one went over, the ones behind just came on. Nobody piled on.
+
+The third did not stop and climbed up over them.
+
+It climbed up stepping on the one caught on the line, and where it stepped its foot slipped once and caught right away. The line Sion had strung had become something for those things to step on.
+
+Ater had said that once you used something, it worked less the second time. That had come within minutes.
+
+Nasim spat out a low curse as he dragged the wounded person back.
+
+"This isn't a market deal, it's real madness."
+
+The words came late. Coming late, they sounded more sincere.
+
+Sion looked at the corridor.
+
+Until a little while ago, it had seemed enough just to know where to hit. Finding that spot, and seeing this city make it work for the first time, had both happened only a little while ago.
+
+Today the man who knew that spot best had been late and got cut. A man who didn't shoot was shooting. The people who had been firing from far off had come close, and the closer they came, the more people there were to be cut next.
+
+Holding them off with what they knew was over.
+
+From here on, the people who knew had to pull it off in time, every time, and to pull it off in time they had to go closer every time. The closer they went, the more often they were late.
+
+Late once, and you got cut, and the one who got cut was later the next time.
+
+Sion opened the hand that had held the hook. A red line ran across his palm where the cord had dug in.
+
+He was looking at it when the next one came in at the end of the corridor.
 
 ---
 

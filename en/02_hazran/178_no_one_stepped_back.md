@@ -1,124 +1,197 @@
 # Episode 178. No One Stepped Back
 
-While the last android stood alone, everyone inside the old layer knew this fight could no longer be left to that one being.
+While the last android stood alone,
+everyone in the old layer knew that this fight
+could no longer be left to him alone.
 
-Too much had already been placed on that single body. The positions of the vanished androids. The children's faces. The old machine's sacrifice. And the waves that had not yet ended.
+Too much had already been loaded onto that one body.
+The places of the other androids who had vanished,
+the children's faces,
+the old machine's sacrifice,
+and the wave that still wasn't over.
 
-If that being was to survive, from here everyone had to hold together.
+If that being was going to survive,
+from now on everyone had to hold together.
 
 Seorin moved first.
 
-"Close the left gap." She said it low and fast. "The front is held. We cut the sides."
+"Close the left gap,"
+she said, low and fast.
+"He's got the front. We cut the flanks."
 
-The words sounded less like a command and more like confirmation that everyone had finally reached the same conclusion.
+It sounded less like an order
+than like confirmation that everyone had finally reached the same conclusion.
 
-Ater began re-reading the upper structures and corridor spacing. Sern stopped his work organizing the rear and turned his gaze toward reading the rhythm of the front line instead.
+Ater began reading the structure overhead and the spacing of the lines of movement again,
+and Sern stopped the hands that had been putting the rear in order
+and turned his eyes this time to reading the rhythm of the front.
 
-The old machines were not standing back either.
+The old machines were not hanging back either.
 
-They were no longer in the position of testing or observing the android. Now, clearly, they were entering the same line.
+They no longer stood only where they could test or observe the android.
+Now, unmistakably,
+they were stepping onto the same line.
 
-One caught a Serakion unit sliding through the right gap and snapped its legs first. Another body-blocked a unit trying to flank behind the children and shoved it into the wall.
+One of them got there first and broke the leg of a Serakion unit sliding in through the right-hand gap,
+and another caught, with its own body, a unit trying to circle around behind the children and shoved it toward the wall.
 
-Their movements were not young or sharp. But they held a heavy, unhurried precision that only beings who had endured for a long time could possess.
+Their movements weren't young or sharp.
+But they had a precision only beings who had endured a long time could have,
+heavy, and never late.
 
-The Hazran people were no longer only retreating either.
+The Hazran people were no longer only falling back, either.
 
-No one recklessly charged the front line. But pulling children further inside, moving the wounded, blocking gaps in collapsed structures, catching those who fell — all of it now moved with clear intent.
+Of course no one threw themselves recklessly into the middle of the front.
+But pulling the children further in,
+moving the wounded,
+plugging the gaps in the collapsed structures,
+catching whoever was falling,
+all of it had begun to move with a clear will.
 
-Sion watched and felt this battlefield was finally shifting from one being's solitary stand into a place where everyone was holding on to keep from losing something.
+Watching it,
+Sion felt the battlefield finally changing from *one being's lonely stand*
+into *a place where everyone held on so as not to lose something*.
 
-And at the center, still, stood the last android.
+And at the center of it, still,
+was the last android.
 
-He was already nearly breaking down.
+He was already all but falling apart.
 
-The remaining shoulder axis kept grinding. One optical eye wavered as though it would go dark any moment. The short mouth line on the face remained like barely a faint scar.
+What was left of his shoulder axis kept grinding,
+one optical eye flickered again and again as if about to go out,
+and the short mouth line left on his face remained only as a faint scar.
 
-But even so, he was still holding the front.
+And even so,
+he was still holding the front.
 
-Serakion's force now pushed units in all at once, as though making a final breach.
+Serakion's legion, as if staking everything on one last breakthrough,
+began driving in its units all at once.
 
-Three from the front. Two from the sides. One late from an upper structure.
+Three in front.
+Two on the left and right.
+And, late, one from the structure overhead.
 
-Pressure that would be difficult to bear even in perfect condition.
+It was pressure that would have been hard to handle even in a body in working order.
 
-But this time, he was not alone.
+But this time,
+he wasn't alone.
 
-One old machine grabbed a unit entering from the left and fell together to the floor. Seorin precisely severed the center of an enemy that slipped through a gap. Ater kicked a collapsed structure and diverted the path of a unit dropping from above.
+One of the old machines grabbed a unit coming in from the left and went down to the floor with it,
+Seorin cut the core of an enemy that had slipped through the gap, cleanly,
+and Ater kicked a piece of collapsed structure aside and threw off the path of the unit dropping from above.
 
-And in that brief gap, the last android moved.
+And in that short opening,
+the last android moved.
 
-He did not engage all three in the front at once. Instead, after a very brief check behind, he broke the axis of the one unit most able to reach the children first.
+He didn't take on the three in front all at once.
+Instead, after a very brief look behind him,
+he first broke the axis of the one unit that could most quickly drive through toward the children.
 
-Then he twisted and shoved the second unit into the wreckage of the first. The last one he took with his own body, pushing it straight into the wall.
+Then he turned and rammed the second unit into the wreckage of the first,
+and took the last one on his own body, driving it straight into the wall.
 
-The crash echoed loud.
+The collision rang out loud.
 
-The recoil nearly buckled his knee. One optical eye seemed to go fully dark.
+With the recoil his knee nearly buckled,
+and one of his optical eyes seemed to go out completely.
 
-The children held their breath. Jiwoo stepped half a stride forward without thinking.
+The children caught their breath.
+Han Jiwoo, too, took half a step forward without meaning to.
 
-But this time he did not fall.
+But this time he didn't fall.
 
-Instead he braced against the wall and steadied his body, re-aligning the one remaining optical eye to the front.
+Instead he pushed himself upright again as if bracing on the wall,
+and with the one optical eye he had left, took aim at the front again.
 
-The moment Sion saw that, something like a shiver ran up his spine.
+The moment he saw it,
+Sion felt something like a shiver run up his spine.
 
-That was no longer residual output from a simple machine. That was truly, genuinely, the will to remain to the end.
+That was no longer just a machine's leftover output.
+That was, truly,
+a will to remain to the very end.
 
-Serakion's force was reaching its limits too.
+Serakion's legion was now showing its limits too.
 
-The front line kept breaking. The flow from the rear was no longer as smooth as the start. Because of the resistance the old machines, the people, and the last android had created together, the entire corridor had begun to tangle.
+The front line kept breaking,
+and the flow pushing in from behind wasn't as smooth as at the start.
+Because of the resistance the old machines and the people
+and the last android had built together,
+the whole line of movement began to tangle.
 
-Sern spoke for the first time almost in a shout.
+For the first time, Sern spoke almost in a shout.
 
-"Now! It is breaking!"
+"Now!"
+"It is breaking!"
 
-The moment those words fell, Seorin and two old machines closed the left and right gaps simultaneously. Ater fully collapsed the upper structure so the drop line could no longer be used.
+The moment the words fell,
+Seorin and two of the old machines closed the left and right gaps at the same time.
+Ater brought the structure down completely so the drop line overhead could no longer be used.
 
-And at the front, the last android remained.
+And at the front
+stood the last android.
 
-Two Serakion units threw themselves in one final time.
+Two Serakion units came in one last time, almost hurling themselves.
 
-He no longer dodged. He did not run.
+He didn't dodge anymore.
+He didn't run either.
 
-He simply planted his body at the front, took both units to the end, and used his nearly destroyed arm and shoulder together to wrench both their centers downward.
+He simply set his body at the front,
+took both units all the way,
+and with his nearly broken arm and shoulder together bent their cores downward.
 
-Metal tore. Light burst. And finally, the flow from the front was severed.
+Metal tore.
+Light burst.
+And at last,
+the flow at the front was cut.
 
-It went quiet so suddenly that no one could believe it right away.
+It went quiet so suddenly
+that no one could quite believe it.
 
-Whether it was truly over. Whether the next line was still coming. No one could move.
+Was it really over,
+or was the next line still coming?
+No one could bring themselves to move.
 
-The last android stood in the center of that silence for a long time.
+The last android kept standing there for a while, even in the middle of that quiet.
 
-As though his body had not yet accepted the fighting was done. As though, before the wave that had broken before him, he needed to confirm the beings remaining behind first.
+As if his body couldn't yet accept that the fight was over.
+As if, before the wave that had broken in front of him,
+he had to check on those left behind him first.
 
-He turned back, very slowly.
+Very slowly, he looked back.
 
-Crying children. People gasping as though they might collapse. Old machines barely pulled from the front line. And Jiwoo, who had never let go of her gaze.
+The crying children.
+The people gasping as if they might collapse.
+The old machines that had barely pulled away from the front.
+And Han Jiwoo, who had never once let her eyes leave him.
 
-Only after looking at each one, as though confirming, did his body waver for the first time, heavily.
+Only after he had looked at them as if checking each one,
+did his body shake hard for the first time.
 
-Sion swallowed his breath. One child cried out almost in a scream.
+Sion caught his breath.
+A child cried out, almost a scream,
 
-"No..."
+"No…"
 
-But he did not fully collapse.
+But he didn't go all the way down.
 
-One knee touched the floor first. One remaining hand pressed against the metal ground.
+One knee touched the floor first,
+and his one remaining hand braced against the metal floor.
 
-That posture did not look like defeat. It was closer to a being that had held to the very end, only now setting down its own weight.
+That posture didn't look like defeat.
+It was closer to a being who had held on to the end
+only now, barely, setting down his own weight.
 
-Jiwoo saw it and could no longer hold back her tears.
+Watching it, Han Jiwoo couldn't hold back her tears any longer.
 
 Because everyone knew.
 
-What had finally stopped this fight was not the strength of the last android alone.
+What had finally brought this fight to a stop
+was not only the strength of that one last android.
 
-It was the choice of everyone who decided not to step back.
+It was the choice of everyone who had decided not to step back.
 
-And precisely because of that, the last being was able to survive.
+And that was exactly why
+that last being could survive too.
 
 ---
 

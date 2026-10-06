@@ -79,11 +79,11 @@ Sern, casi a la vez, dijo bajo.
 
 Una máquina vieja preguntó.
 
-—¿Exacto?
+—¿Exactamente?
 
 Sern habló como siguiendo el flujo de las señales.
 
-—Dijeron que había cambiado de una disposición de defensa a una para acorralar.
+—¿No dijeron ustedes que había cambiado de una disposición de defensa a una para acorralar?
 —Si no es simple contención,
 sino un traslado de reselección hacia el nivel superior, la explicación cuadra.
 
@@ -151,7 +151,7 @@ siente que, si no se mueve ya, es tarde.
 Entonces,
 Sion intervino por primera vez.
 
-—¿Qué hay que comprobar?
+—¿Dónde hay que comprobar?
 
 Todas las miradas fueron un momento hacia él.
 

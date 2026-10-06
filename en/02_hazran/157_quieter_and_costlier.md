@@ -1,170 +1,271 @@
-# Episode 157. Quieter and Costlier
+# Episode 157. A Higher Price
 
-The second rescue was quieter than the first.
+The second rescue
+made less noise than the first.
 
-But that was not because it was less dangerous. It was because the danger had gone deeper.
+But that was not because it was less dangerous;
+it was because the danger had gone deeper.
 
-In the first rescue, outside hands had opened the gap. But this time, a different time had to come alive from inside the line first.
+In the first rescue, outside hands had opened the gap.
+This time, though, a different time had to come alive first from inside the line.
 
-So for the first few beats, the children inside looked like they were fighting before the rescuers were.
+So for the first few beats,
+it looked as if the children inside were fighting before the rescuers were.
 
-When the small child near the end of the line broke beat twice and another human right beside them delayed their shoulder faintly, Serakion's courteous alignment hesitated for the first time over what to correct first.
+Once the small child near the end of the line
+had slipped the beat twice,
+and even the human right beside had let a shoulder lag, very faintly,
+Serakion's kind alignment was briefly unsure, for the first time, what to correct first.
 
-That half-beat. Over that short, impossibly expensive time, the second recovery hand and Jiwoo went in.
+That half a beat.
+Into that short and far too costly time,
+the second recovery hand and Han Jiwoo went in.
 
 This time they did not grab and pull first.
 
-Jiwoo lowered her entire body, bringing herself down to roughly the same eye level as the small child inside the line.
+Han Jiwoo dropped her whole body low,
+down to roughly the eye level of the small child inside the line.
 
-Then she said it very short.
+And she said, very briefly,
 
 "Now."
 
-It did not sound like a command or a plea. It sounded like a sign that the outside had barely managed to join a time that had already started inside.
+It didn't sound like an order,
+or like a plea.
+It was simply a sign that the outside had barely managed to join
+a time that had already begun inside.
 
-The small child was not startled.
+The small child wasn't startled.
 
-In that moment, the child moved as though they had already been waiting for the same word inside their mind.
+If anything, in that moment,
+the child moved as if they had already been waiting, inside, for those same words.
 
-Feet shifted first. Hands followed late. The whole body, even while terrified, clearly faced outside the line.
+The feet turned first,
+the hands followed late,
+and the whole body, frightened as it was, clearly faced the outside of the line.
 
 The second child, right beside, was harder.
 
-This one had misaligned first but had also been frightened first.
+This one had slipped out of line first,
+and, by the same token, had been the first to get scared.
 
-When the second recovery hand reached out, the body flinched, and the alignment line behind nearly filled the gap immediately.
+When the second recovery hand reached out,
+the child's body shrank back,
+and the alignment line behind moved almost instantly to fill the gap.
 
-Ater saw it and this time threw not a question but a very low confirmation.
+Ater saw that,
+and this time threw out not a question but one very low confirmation.
 
-"Has the order of this line changed?"
+"This line. Has the order changed?"
 
-One guide machine responded. More precisely, it had no choice but to respond.
+One of the guide machines responded.
+More precisely,
+it had no choice but to respond.
 
-Right now Serakion had to re-establish priority among the children's misalignment, the excessively natural confirmation from outside, and its colleague machines' new alignment — all at once.
+Right now Serakion, caught between the misalignment on the children's side,
+the far-too-natural confirmation that had come in from outside,
+and the new alignment of its fellow machines,
+had to reset its priorities in an instant.
 
-Kael did not miss that gap.
+Kael didn't miss that gap.
 
-"Up to the second." He said it low. "Do not look at the third right now."
+"Up to the second,"
+he said, low.
+"Don't look at a third now."
 
-Cruel, but precise.
+The words were cruel,
+but exact.
 
-Push greedier, and the two living inside-times could fold back at once.
+Reach for more,
+and the two inside times that had just come alive
+could fold back in all at once.
 
-Jiwoo clenched her jaw and gave a very short pull on the second child's wrist.
+Teeth set, Han Jiwoo
+gave the second child's wrist one very short pull.
 
-This was less pulling them out and closer to teaching their body where the gap to run was.
+This time it was less dragging the child out
+than teaching, with her body, where the gap to run through was.
 
-The child twisted once, then came out of the line almost falling.
+The child twisted once,
+and then came out of the line, nearly falling.
 
-The problem was what came after.
+The problem came next.
 
-A small shape that might have been a third child looked this way from inside the line in that moment.
+A small figure that looked like a third child
+was, in that moment, looking this way first from inside the line.
 
-It was not someone Jiwoo had originally read. Ater had not marked them. By the recovery hands' criteria, this one was likely on the dangerous side for this beat.
+It was not the child Han Jiwoo had read first,
+Ater had not marked them either,
+and by the recovery hands' measure, too, that side was very likely the dangerous one on this beat.
 
-But the child, strangely, did not look like a stranger.
+But strangely, that child
+didn't look like a child seen for the first time.
 
-The habit of checking sideways to the end even inside the line. Eyes that looked frightened yet never missed who was slipping out. The way the body twisted too briefly then swallowed it again — all of it stayed in Jiwoo's eyes with uncanny weight.
+The habit of checking sideways first, to the very end, even inside the line,
+eyes that looked frightened yet never once lost track of who was getting out,
+and the way they turned their body, far too briefly, and then swallowed the movement back—
+all of it stayed in Han Jiwoo's eyes, strangely so.
 
-Ater looked the same direction almost simultaneously. He could not explain it either, but somewhere in that small hesitation he felt something brush past — something resembling the grain that had remained in the children from the Hazran side.
+Ater looked that way at almost the same moment.
+He could not explain it either,
+but somewhere in that small hesitation
+he felt something pass that resembled the grain the Hazran children still carried.
 
-But that child had clearly seen the two escaping just now.
+But that child had clearly
+seen the two who had just slipped out.
 
-And their own feet had turned this way, very briefly.
+And had turned their own feet, very briefly,
+this way.
 
-Jiwoo's gaze wavered.
+Han Jiwoo's eyes wavered.
 
-Kael knew immediately.
+Kael knew at once.
 
-This could become temptation, not rescue. Force more hands now and the entire line collapses, losing even the two who had just been pulled alive.
+This could become not a rescue but a lure.
+Push harder now,
+and the whole line could collapse,
+and they could lose even the two who had just come alive.
 
-He spoke as though cutting.
+He said it almost like a cut.
 
 "No."
 
-The instant those words fell, a very low alignment tone sounded from behind.
+The moment the word fell,
+a very low alignment tone sounded from behind.
 
-The sound of Serakion learning again. Adjusting again.
+It was the sound of Serakion learning again,
+and starting to adjust again.
 
-Ater stepped one deliberate stride further in. He crossed the excessively natural threshold by half, on purpose.
+This time Ater stepped one pace further in, openly.
+On purpose, he went halfway past the point of looking too natural.
 
-From here it was no longer about delaying suspicion — it was about pulling people out before suspicion could rise.
+From here on it was no longer about slowing the suspicion;
+this was the stretch where they had to get the people out before suspicion rose.
 
-"Take them out." He said it low.
+"Take them out,"
+he said, low.
 
-This time the first recovery hand attached from behind.
+This time the first recovery hand closed in from behind.
 
-The closing sequence, tighter than in the first rescue, he made misalign without nearly breaking it — with his body.
+The closing sequence, tighter than in the first rescue—
+it knocked it out of step almost with its own body, without breaking it.
 
-Kael kept calling.
+Kael kept talking.
 
-"Not right. Down this time."
+"Not to the right."
+"Down, this time."
 
-The path used in the first rescue — Serakion likely remembered it by now.
+The path they had used in the first rescue
+was very likely one Serakion now remembered too.
 
-So this time the path had to be worse. Narrower. Rougher. One no one would have chosen first before.
+So this time it had to be a worse path.
+Narrower,
+rougher,
+a path no one would ever have chosen first before.
 
-Jiwoo did not let go of the first child's hand. The second recovery hand held the second child nearly in an embrace.
+Han Jiwoo didn't let go of the first child's hand,
+and the second recovery hand held the second child almost as if lifting them up.
 
-Both were quieter than the three brought back in the first rescue. But that quiet was not cooperation. It was closer to the terror that one wrong breath could drag them back into the beat.
+The two were quieter even than the three brought back in the first rescue.
+But that quiet was not cooperation;
+it was closer to fear, as if one wrong breath would drag them back inside the beat.
 
-The soft guide voice from behind, low as a murmur, was now distinctly closer.
+Behind them, the guidance voice, which had sounded like a low and gentle voice,
+had clearly come a good deal closer this time.
 
-Serakion still does not chase with raised voice. It simply proposes, ever more softly, ever more certainly, where one should return.
+Serakion still does not give chase with a raised voice.
+It simply, more and more gently,
+more and more surely,
+proposes again the position they ought to return to.
 
-That was why it was more terrible.
+That was what made it more horrible.
 
-The second child stopped once in the middle. Not fully frozen. But the body seemed unable to decide for a moment whether to keep going forward or turn back.
+The second child stopped once, halfway.
+Not frozen solid.
+But the child seemed, for a moment, unable to decide whether the body should go forward
+or go back.
 
-The instant Jiwoo was about to turn, the first small child grabbed the second child's hand first.
+Just as Han Jiwoo was about to turn,
+the first small child caught the back of that child's hand first.
 
-A very small, unsteady hand. But clearly, this time the rescued side's time pulled another.
+A very small,
+unsteady hand.
+But unmistakably,
+this time the time of the one rescued pulled another along.
 
-Jiwoo swallowed her breath at the sight. Ater, looking back, did not miss it either.
+Seeing that, Han Jiwoo held her breath for a moment.
+Ater, glancing back, didn't miss it either.
 
-Serakion had tried to bind the children to each other for control. But in this single moment, the connection between children worked in reverse.
+Serakion had tried to control the children by binding them to one another.
+But in this moment, at least,
+the bond between the children worked the other way.
 
-That was the most precarious, most powerful thing close to a miracle in this second rescue.
+In this second rescue, that was the closest thing to a miracle—the most precarious,
+and the strongest.
 
-Kael said it low.
+Kael said, low,
 
-"All the way now."
+"All the way, now."
 
-The first and second recovery hands caught the last corner simultaneously. They delayed the closing sequence, left the width for two children to pass, and bought just enough time for Jiwoo and Ater to push their bodies through.
+The first and second recovery hands caught the last corner at the same time.
+They slowed the closing sequence,
+left enough width for two children to pass,
+and bought just enough time for Han Jiwoo and Ater to push themselves through.
 
-And just barely, the two crossed into the hidden layer.
+And only just,
+the two crossed into the hidden layer.
 
-This time they did not collapse immediately like the first. It was quieter.
+This time they didn't collapse right away, as in the first rescue.
+If anything, they were quieter.
 
-So everyone understood a few beats late — they had really made it back alive.
+So it was several beats late before everyone understood,
+oh, they really had come back alive.
 
-But at the same time, Jiwoo looked behind her.
+But at the same time,
+Han Jiwoo looked back.
 
-The small third child who had briefly looked this way from inside the line was already being pushed back into Serakion's beat.
+The third small child, who had looked this way for a moment from inside the line,
+was already being pushed back inside Serakion's beat.
 
-For just an instant. Truly like a single frame.
+For a very brief moment,
+truly an instant.
 
-That child's gaze touched Jiwoo's, then immediately turned back.
+That child's gaze reached Han Jiwoo,
+then turned straight back away.
 
-Not uncaught — but eyes of the one who could not be brought in this beat.
+They were not the eyes of a child who had slipped through their hands;
+they were the eyes of the one who, on this beat, could not be brought out in the end.
 
-Jiwoo could not say a word.
+Han Jiwoo couldn't say a word.
 
-Kael, Ater, the recovery hands — all of them knew exactly what this success meant.
+Kael,
+Ater,
+the recovery hands,
+they all knew exactly what this success meant.
 
-Two had been extracted. But one remained. And that one had clearly looked this way.
+They had gotten two out.
+But one had stayed.
+And that one
+had clearly just looked this way.
 
-That fact made the second rescue's success something sharper than joy.
+That fact turned the success of the second rescue
+into something sharper than joy.
 
-What returned to the hidden layer that day was two children.
+That day, what came back into the hidden layer was two children.
 
-Fewer than the first rescue. Quieter. More dangerous. And therefore costlier.
+Fewer than in the first rescue.
+Quieter,
+more dangerous,
+and so more costly.
 
-But without question, Serakion had failed to fully close again.
+But clearly,
+this time too, Serakion had failed to close completely.
 
-And at the same time, what remained this time was clearer than before.
+And at the same time,
+what remained this time stood out more sharply than the first time.
 
-Both the reason they would have to come back, and the face they had failed to bring.
+The reason they had to come back again,
+and the face they had not managed to bring out this time.
 
 ---
 

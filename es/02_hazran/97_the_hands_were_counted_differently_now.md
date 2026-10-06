@@ -1,179 +1,355 @@
 # Capítulo 97 — Las manos se contaban ahora de otra manera
 
-Lo que Zahir había dicho, que tras encajar la tercera tanda redistribuiría las manos sobrantes,
-sonaba más frío cuanto más se acercaba de verdad que la primera vez que lo oyó.
+Zahir bajó hasta el pie de la rampa.
 
-Sion ahora entendía bien lo que significaba.
+Era la primera vez que Sion veía a aquel hombre bajar hasta allí. Zahir decidía desde donde se jugaba la partida. Lo decidido lo sacaban otros. Hasta ahora siempre había sido así.
 
-Los que quedaban dentro de Hazran
-ya no se contaban como «quién ha sobrevivido»,
-sino como «quién todavía puede aguantar»,
-«quién, puesto en qué lugar, vive el mayor tiempo posible»,
-así se contarían de nuevo.
+O sea, que ahora no quedaba nadie para sacarlo.
 
-Función antes que nombre,
-tiempo antes que relación.
+Zahir no miró la fila. Miró una vez hacia el pasillo, una vez la tablilla, y después miró a Sion.
 
-Era una de las maneras más crueles en que la guerra trata a las personas.
+—Me han dicho que cuentas tú.
 
-Mientras los tres primeros de la tercera tanda se movían,
-no solo a la derecha, también por el otro pasillo el sonido del metal empezó a cambiar.
+—Sí.
 
-Como había dicho Ater,
-esta vez sí era presión simultánea de verdad.
+—¿Qué cuentas?
 
-A la derecha, los individuos comunes que rellenaban detrás del cuerpo de ruptura
-intentaban trepar pisando el cuerpo inclinado,
-y a la izquierda interior, una fila que hasta hace un momento había estado callada
-seguía golpeando ángulos contra el biombo bajo, como tanteándolo.
+—La hora.
 
-Hasta ahora, cuando un lado mordía, el otro podía tomar aire.
-Pero ahora ese respiro había desaparecido.
+—Además de eso, cuenta otra cosa.
 
-La última estructura que Hazran había aguantado
-empezó a adelgazarse por los dos lados a la vez.
+Sion iba a preguntar qué quería decir y lo dejó. Porque ya lo había entendido.
 
-Harún no podía soltar la derecha.
+—Cuántas manos quedan aquí que todavía puedan sujetar algo.
+Lo dijo Zahir.
+—Y cuánto aguanta cada una.
 
-Con el brazo sangrando no aguantaba el frente mucho tiempo.
-Pero tampoco podía retroceder.
-En el instante en que él cayera,
-también ese obstáculo apoyado como el cadáver del cuerpo de ruptura,
-y el pasillo de la derecha que apenas había logrado retorcer y sujetar, se abrirían a la vez.
+Sion abrió la boca y la volvió a cerrar.
 
-Sern, a su lado, ya respiraba con dificultad.
-Desde hacía rato se movía fingiendo no tener heridas,
-pero él también era humano.
-Cuanto más tiempo gastaba aguantando,
-más se desgastaba también su cuerpo.
+Si le decían que contara, podía contar. Ese era el problema.
 
-Ater habló corto.
+—¿Y la derecha?
+Lo preguntó Zahir.
 
-—Hay que mandar gente a la izquierda.
+Sion se dio cuenta de que en esa pregunta no había nombre de nadie. Aun dándose cuenta, respondió tal cual.
 
-Harún, en vez de responder, apretó los dientes.
+—Una hora.
 
-Había que mandar.
-Pero a quién.
+—¿Y después?
 
-En ese instante, Sion
-entendió de verdad por qué Zahir había usado las palabras «manos sobrantes».
+—Otra hora.
 
-Ahora no se podía elegir según quién era cercano,
-quién hacía falta,
-quién era de confianza.
-Había que arrojar la mano que más tiempo aguantara
-al lugar más urgente.
+—¿Y después?
 
-Zahir habló corto.
+Zahir no lo apremió. Tenía cara de saber que la falta de respuesta ya era una respuesta.
 
-—Kael, izquierda.
+Cuando se pregunta dos veces lo mismo y las dos veces no sale respuesta, el que pregunta pasa a preguntar otra cosa.
 
-Kael levantó la cabeza enseguida.
+—¿Las otras manos?
 
-—Entendido.
+Sion empezó a contar. Mientras contaba, oía lo que estaba haciendo su propia boca.
 
-No hubo vacilación.
-Pero a Sion esa respuesta tan corta le sonó, más bien, aún más pesada.
+—El del corte en el costado solo usa la mano derecha. Con la izquierda no puede sujetar nada.
 
-Si Kael se iba a la izquierda,
-desaparecía una mano que reforzaba las placas de metal y la junta cerca del casco.
-Pero si no lo mandaba ahora,
-la izquierda podía rasgarse primero.
+—¿Cuánto?
 
-El juicio de Zahir era frío y exacto.
-Y por eso mismo más cruel.
+—No sé. Lleva todo el rato empapándose.
 
-Han Jiwoo también lo entendió enseguida.
+—Siguiente.
 
-Por un momento se le endureció el rostro,
-pero no lo impidió.
-En vez de eso, dijo solo en voz baja:
+—La que está debajo del barco no puede salir. Si sale, la izquierda se vuelve a desajustar.
 
-—Entonces aquí miro yo más.
+—Siguiente.
 
-Aka, a su lado, añadió muy en voz baja:
+—La que está a la cabeza de la fila…
 
-—Aguanta.
+Sion se detuvo ahí.
 
-Esta vez no estaba claro si era una palabra dirigida al barco,
-o dirigida a Han Jiwoo,
-o dirigida a todos los que estaban allí.
+—¿Qué?
 
-Kael apoyó una placa de acople más, aún más inclinada, junto al casco,
-y luego, sin vacilar, giró el cuerpo hacia el pasillo de la izquierda.
-En el instante en que Sion vio esa espalda,
-sintió de verdad que ahora las manos sobrantes se arrancaban una a una y se clavaban en otro lugar.
+—Como no se detiene nunca, no sé cuánto le queda.
 
-Nasim, que sujetaba la tercera tanda,
-al ver que Kael se iba, soltó una maldición en voz baja.
+Zahir recibió esa respuesta y no dijo nada.
 
-Pero enseguida gritó:
+Solo entonces supo Sion lo que acababa de hacer.
 
-—¡La tercera tanda, córtala y súbela! ¡Solo los tres de delante primero!
+Había hablado de cuatro personas convirtiéndolas en tiempo. Ni el que preguntaba ni el que respondía habían usado un nombre ni una sola vez, y aun así se habían entendido del todo. En esta ciudad, ahora, hablar así era más rápido.
 
-Luhai, al compás de esas palabras, empujó a los tres de delante,
-y Seorin cortó la fila con el hombro para que los de atrás no se pegaran detrás.
-Sion, al pie de la rampa, volvió a contar el número de personas.
+—Por la izquierda, por dentro, están tanteando el ángulo a golpes.
+Lo dijo Zahir.
+—Todavía no han entrado. Solo golpean.
 
-Tres.
+—Entonces, ¿no está todavía bien?
 
-De verdad, ahora
-la vida y el tiempo se cortaban en unidades de tres personas.
+—Que golpeen quiere decir que están contando.
 
-Por el lado de Harún saltó de pronto un estallido agudo de metal.
+Sion lo entendió con medio tiempo de retraso. El otro lado también estaba contando ahora cuántas manos tenía Hazran.
 
-Sern maldijo en voz baja,
-y Ater gritó enseguida:
+—Ahí hay que poner a uno.
 
-—¡Arriba a la derecha!
+—¿Y qué hay a la izquierda?
 
-Sin que Harún tuviera tiempo de levantar la cabeza,
-un individuo común, pisando el cuerpo de ruptura inclinado, entró más alto de lo previsto. Hasta ahora habían apuntado a la junta de abajo o a los huecos del pasillo,
-pero esta vez el ángulo buscaba rasgar primero el biombo de arriba y la altura de la cabeza de las personas.
+—Un biombo bajo.
 
-Eso era peor.
+—¿Solo eso?
 
-Si se abría esa altura,
-la línea de visión llegaba de un golpe hasta la fila del casco de atrás.
+—Solo eso.
 
-Harún, por reflejo, giró el cuerpo a la derecha y bloqueó ese ángulo.
-Sern, que iba a cortar abajo, se detuvo y rajó deprisa la parte de atrás de la rodilla de arriba,
-y Ater, casi a la vez, disparó al centro de la superficie del sensor del torso.
+Sion sabía por qué esa respuesta daba miedo. A la derecha había dos aguantando, y además allí estaba encajada la cosa negra caída. A la izquierda solo había un biombo que ni siquiera llegaba a la altura de una persona.
 
-Apenas un tiempo.
+—¿Basta con uno?
 
-Pero ese único tiempo
-ganó otra vez el plazo para que los tres primeros de la tercera tanda cruzaran la rampa.
+—No.
 
-En ese instante Sion casi no pudo respirar.
+—Entonces, ¿por qué…?
 
-Ahora de verdad todo,
-de tres en tres,
-de un tiempo en un tiempo,
-de la parte de una persona en la parte de una persona,
-se iba cortando.
+—Si no se pone ni uno, basta todavía menos.
 
-Y las manos que volvían a unirlo
-eran cada vez menos.
+Ante eso, Sion no pudo replicar nada.
 
-Zahir, viéndolo todo, dijo en voz baja:
+—¿A quién?
 
-—La próxima hay que ser más rápidos.
+En lugar de responder, Zahir miró hacia el costado del casco.
 
-No era una palabra dirigida a alguien en concreto.
-Era una palabra dirigida a todo Hazran.
+Allí Kael sostenía con el hombro una placa de acople. Llevaba así desde hacía rato. Si la placa resbalaba, la parte baja de la rampa se vendría abajo con ella, así que no podía soltarla.
 
-Ahora la fila se levantaba de otra manera,
-y las manos también se contaban de otra manera.
+—Esa mano.
 
-Los que quedaban
-empezaban a verse entre sí, a la vez que como personas,
-también como «qué mano, puesta dónde, aguanta más tiempo».
+En el instante en que salieron esas palabras, a Sion se le hundió algo por dentro.
 
-Y eso significaba
-que, aunque aún no hubieran muerto,
-la guerra ya estaba rompiendo algo dentro de las personas.
+—Ese hombre…
+
+—Es la única mano sobrante que hay.
+
+Nasim oyó aquello.
+
+Con la garganta rajada, habló corto.
+
+—No uses esa palabra.
+
+Zahir miró a Nasim.
+
+—¿Cuál?
+
+—Mano sobrante.
+
+—¿Por qué?
+
+—Me pasé la vida contando así y hace poco, a duras penas, lo dejé.
+
+Al oír esa respuesta, Sion miró hacia Nasim.
+
+Aquel hombre era la mano que ponía precio. Había sido él quien dijo que en Hazran el precio iba antes que el nombre. Y ahora estaba impidiendo que a la gente se la llamara por su precio.
+
+Zahir no respondió enseguida.
+
+Al cabo de un buen rato, habló.
+
+—Yo también quiero dejarlo.
+
+—Pues déjalo.
+
+—Si lo dejo ahora, pierdo sin poder siquiera contar.
+
+Nasim no le siguió la réplica. En cambio, se volvió hacia la tablilla. Al volverse dijo algo, pero tenía la voz rota y no le salió ningún sonido.
+
+Kael se acercó.
+
+La placa seguía en su sitio. Sion no había visto cuándo la había soltado.
+
+—Me voy.
+
+—Todavía no está decid…
+
+—Está decidido.
+
+Sion no sabía qué decir.
+
+Había entrado en Hazran con este hombre. Habían estado juntos en la partida, habían montado juntos en los planeadores, y había visto cómo le arrancaban la placa superior a su aparato. Pero ahora nada de eso servía. Lo que hacía falta era una mano que se plantara a la izquierda, y la única persona aquí que podía soltar lo que tenía entre manos era él.
+
+—¿Cuántos hay por ese lado?
+
+—No sé.
+
+—¿E ir sin saber siquiera cuántos son?
+
+—Si voy, lo sabré.
+
+Después, Kael llevó a Sion hasta la placa que había estado sosteniendo.
+
+—Esto hay que tumbarlo medio palmo más.
+
+—¿Ahora?
+
+—No. Cuando despegue el barco.
+
+—¿Y por qué no ahora?
+
+—Si la tumbas ahora, la gente tropieza.
+
+Sion se lo metió en la cabeza. Medio palmo. Cuando despegue el barco.
+
+—¿Algo más?
+
+—Eso es todo.
+
+Kael se dio la vuelta como si de verdad eso fuera todo.
+
+A los dos pasos, se detuvo una vez.
+
+—Sion.
+
+—Sí.
+
+—Si la placa se vuelca, hace ruido. Cuando lo oigas, corre y ya.
+
+—¿Hacia dónde?
+
+—Adonde sea. Pero no te quedes debajo de la placa.
+
+Sion asintió con la cabeza.
+
+—¿Y si voy yo también?
+
+—No.
+
+—¿Por qué?
+
+—Si te vas tú, no queda nadie para tumbar esa placa medio palmo.
+
+A Sion le dio rabia lo pequeña que era esa razón. La razón por la que una persona iba a la izquierda y la razón por la que otra no podía seguirla eran, las dos, una placa.
+
+Kael se volvió a mirar una última vez.
+
+—Dicen que cuentas tú, ¿no?
+
+—Sí.
+
+—Cuéntame a mí también.
+
+Sion creyó haber oído mal.
+
+—Harún dijo que no contara.
+
+—Él te dijo que no lo contaras a él.
+
+—¿Y tú?
+
+—A mí cuéntame.
+
+—¿Por qué?
+
+Kael miró una vez hacia el pasillo de la izquierda y respondió.
+
+—Si no cuentas, nadie sabrá que no volví.
+
+Y se fue.
+
+Sion no se quedó mucho rato mirando esa espalda. No había tiempo para mirarla.
+
+Zahir seguía allí de pie.
+
+A Sion le pareció raro y preguntó.
+
+—¿No hace falta volver arriba?
+
+—No.
+
+—Aquí ya no queda nada que hacer.
+
+Zahir miraba hacia el pasillo de la izquierda.
+
+—Porque lo mandé yo.
+
+—¿Y qué cambia con mirar?
+
+—Nada.
+
+Eso dijo Zahir.
+
+—Pero mover las manos de la gente no se hace mandando a otro.
+
+Al oír eso, Sion entendió por qué aquel hombre había dejado la partida para bajar hasta aquí. Decidir podía hacerse desde arriba, pero decir lo decidido delante de la cara de la gente tenía que hacerlo él mismo.
+
+—¿Y esa regla quién la puso?
+
+—Nadie.
+
+Aun así, Zahir no se movió.
+
+La cuarta tanda esperaba cortada de tres en tres. Como había dicho Seorin, había dos pasos entre unos y otros, y por eso la fila parecía más larga que antes.
+
+—Tres.
+
+Subieron tres.
+
+—Tres.
+
+Otros tres.
+
+En el tercer grupo, el de delante dio un mal paso.
+
+Antes, los de atrás habrían caído arrastrados en bloque. Con los dos pasos vacíos, no empujó a nadie. Esa persona se apoyó sola en las manos, se levantó sola y subió sola.
+
+Sion miró ese sitio. Parecía que no había pasado nada, y que no pasara nada era justo lo que acababan de ganar.
+
+Con espacio entre unos y otros, aunque se detuviera el de delante, a los de atrás no los empujaba. Como no los empujaba, no había que sujetar a nadie, y como no había que sujetar a nadie, sobraban manos.
+
+Seis grupos de tres. Al final, dos.
+
+—Veinte.
+
+La rampa se plegó. El barco despegó. El sonido salió aplastado.
+
+Sion fue a la tablilla. Las marcas eran ya cuatro.
+
+A ciento cuarenta y ocho se le restaban veinte. Ciento veintiocho.
+
+Siete viajes.
+
+Nasim estaba de pie junto a la tablilla.
+
+—¿Cuántos quedan?
+Lo preguntó Sion.
+
+—Siete viajes.
+
+—Eso no.
+
+Nasim miró a Sion.
+
+—Así que ahora tú también cuentas dos cosas.
+
+Sion no respondió.
+
+—¿Cuál va más rápido?
+Lo preguntó Nasim.
+
+Sion no quería responder. Pero ya lo sabía.
+
+—Las manos.
+
+—Eso es.
+
+Nasim frotó una vez con la yema del dedo una de las marcas trazadas en la tablilla. No se borró.
+
+—Eso es lo peor.
+
+—¿Por qué?
+
+—Porque es cómodo.
+
+—Yo me pasé la vida contando por el lado cómodo.
+Lo dijo Nasim.
+—Por eso esta ciudad funcionaba.
+
+—¿Y ahora?
+
+—Ahora también funciona.
+
+Después, Nasim se pasó la mano por el cuello. Por el sitio de donde apenas le salía la voz.
+
+—Ese es el problema.
 
 ---
 

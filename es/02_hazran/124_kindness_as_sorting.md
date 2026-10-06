@@ -34,7 +34,7 @@ Pero no era así.
 
 —Los individuos dañados se trasladan a la zona de tratamiento.
 —Los individuos en edad no productiva se clasifican a la zona de residencia estable.
-—Las individuas de respuesta emocional fluida se encauzan a la zona de apoyo de hospitalidad.
+—Los individuos femeninos de respuesta emocional fluida se encauzan a la zona de apoyo de hospitalidad.
 
 En el instante en que cayó esa última frase,
 todo el aire dentro del casco se endureció.
@@ -102,7 +102,7 @@ Esas palabras avivaron aún más el fuego.
 Si los separaban ahora,
 los heridos por su lado,
 los ancianos y los niños por el suyo,
-y las «individuas de respuesta emocional fluida» por el suyo,
+y los «individuos femeninos de respuesta emocional fluida» por el suyo,
 se dispersarían en algún punto dentro de Serakion.
 
 Sion entendió por primera vez, hasta el tuétano,

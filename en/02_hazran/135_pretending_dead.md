@@ -1,230 +1,228 @@
-# Episode 135. Pretending Dead
+# Episode 135. The Path That Played Dead
 
-The first time Sion took those words seriously
-wasn't because of Aka—it was because of Jiwoo.
+The first time Sion took those words seriously,
+it was because of Han Jiwoo, not Aka.
 
-Aka had said it first, yes.
+It was true that Aka had said it first.
 
 *That path isn't dead.*
-*It is pretending to be dead.*
+*It's pretending to be dead.*
 
-But the words were so like Aka
-that they were the kind the listener pauses at before understanding.
+But the words were so very Aka
+that they were also the kind that made the listener stop short before understanding them.
 
-So Sion had kept them hanging in one corner of his mind.
+So Sion had only kept them hanging in one corner of his mind.
 
-Is there really something inside there?
-Or is it a grain only Aka reads?
+Was there really something in there?
+Or was it some grain only Aka could read?
 
-The doubt came alive again
-when Jiwoo crouched near that wall and began tracing the metal edge with her fingertips.
+The question came back to life
+when Han Jiwoo crouched close to that wall and began running her fingertips along the metal edge.
 
-She said nothing for a while.
+For a while she said nothing.
 
-Most of the blocked corridors in this old layer looked similar.
-Old.
-Patched.
-Weld marks layered everywhere.
+Most of the blocked passages on the old layer looked alike.
+Worn,
+patched over,
+weld scars overlapping here and there.
 
-But Jiwoo stopped unusually long before one spot.
+But Han Jiwoo stopped for an unusually long time in front of one spot only.
 
-Sion came close and asked low.
+Sion went closer and asked, low,
 
-"What's different."
+"What's different?"
 
-Jiwoo answered, hand still on the surface.
+Han Jiwoo answered without taking her hand away.
 
-"This wasn't closed by a finishing hand."
+"This isn't a hand that shut it for good."
 
 Sion looked at the wall again.
-It was blocked, no matter how he looked.
+No matter how he looked, it was blocked.
 
-Jiwoo continued, low.
+Han Jiwoo went on, low.
 
-"It was hidden."
-"Not sealed—hidden."
+"It's hidden."
+"Not blocked."
 
-With those words,
-her fingertip moved slowly along one fine seam line.
+As she said it,
+her fingertip moved slowly along a single fine seam.
 
-On the surface it looked solidified long ago,
-but there was a wear pattern left from taking internal pressure.
+On the surface it looked as if it had set hard long ago,
+but there was a worn grain left from taking force from the inside.
 
-Very faint.
+It was very faint.
 But once you knew,
-the surface no longer looked completely dead.
+it no longer looked like an entirely dead surface.
 
-Aka spoke from beside her.
+Aka spoke beside her.
 
-"It is still being used."
+"They keep coming through."
 
-Jiwoo gave a short nod.
+Han Jiwoo gave a short nod.
 
 "Yeah."
-"Not often,
-but it has never stopped."
+"Not a lot,
+but it's never stopped."
 
-The moment those two voices overlapped,
-Sion truly accepted for the first time
-the possibility that this wall was not a simple sealed zone.
+The moment the two of them said the same thing,
+Sion truly accepted, for the first time, that the wall might not be just a sealed-off zone.
 
-The old layer's machines seemed to feel the same.
+It seemed the same went for the machines of the old layer.
 
-Two old machines watching from a distance
-exchanged a wordless glance.
+Two old machines watching from a little way off
+exchanged a look without a word.
 
-That reaction was less surprise
-and closer to *being caught*.
+Their reaction was less surprise
+than something closer to being found out.
 
-Jiwoo pressed her entire palm against the wall, then spoke low.
+Han Jiwoo pressed her whole palm flat against the wall and said, low,
 
-"This is an outgoing hand."
+"This hand goes outside."
 
 Sion looked at her.
 
-"Certain?"
+"You're sure?"
 
-Jiwoo paused a little longer this time.
+This time Han Jiwoo took a little longer to answer.
 
-"It's not for repairs.
-Not for maintaining a seal.
-Not a hand that shuts in a rush and opens again.
-It's a hand that keeps touching so even if it's found, the signs are minimal."
+"It's not for repairs,
+and it's not for keeping it sealed."
+"It's not a hand that shut it in a hurry to open it again later,
+it's a hand that keeps working it so it gives away less, even if it's found."
 
 That was a completely different story.
 
 Until now, this old layer
-had only looked like an interior where wounded people barely held on.
+had looked only like an inner place where hurt people barely held on.
 
-But if that path is alive,
-it means somewhere in this place, hands still go outside and come back.
+But if that path was alive,
+it meant that somewhere in here there were still hands that went outside and came back.
 
-Sion suddenly recalled
-the machine that had first brought them here.
+Sion suddenly
+thought of the machine that had first brought them all the way here.
 
 Wearing Serakion's face,
-a hand that pulled people out before explaining.
+a hand that pulled people out before it explained anything.
 
-If that connects to this path,
-then this old layer is a place that preserves memory
-and also a place that hasn't fully hidden to the end.
+If that was tied to this path,
+then this old layer was a place that kept memory
+and, at the same time, a place that was not simply hiding to the very end.
 
-Then,
-a very low friction sound came from behind.
+Just then,
+a very low scrape of friction came from behind them.
 
-Sion turned to see
-one of the old machines that had been watching them since the day before
-approaching slowly.
+When Sion turned,
+one of the old machines that had been watching them since the day before was slowly coming toward them.
 
-It looked at the wall briefly,
-then at the spot Jiwoo's hand was touching,
-and spoke dry.
+It looked at the wall for a moment,
+looked again at the spot Han Jiwoo's hand was resting on,
+and said, dryly,
 
-"So you can read that."
+"So you know how to read that."
 
-Jiwoo answered without lifting her hand.
+Han Jiwoo answered without taking her hand off the wall.
 
-"Less reading,
-more that the way it was hidden stands out."
+"It's less that I read it
+than that the way it's hidden stands out."
 
-The old machine didn't reply immediately.
+The old machine did not answer that right away.
 
 Instead, after a long while,
-it said very low.
+it said, very low,
 
-"Not everyone knows this path."
+"It is not a path everyone knows."
 
-That sentence was closer to acknowledgment than denial.
+That sentence was closer to admission than denial.
 
-Sion didn't miss it.
+Sion didn't let it slip past.
 
-Aka, looking at the wall, asked small.
+Aka looked at the wall and asked, quietly,
 
-"Does it connect outside?"
+"Does it go outside too?"
 
-The old machine didn't answer right away this time either.
+This time too, the old machine did not answer right away.
 
-The longer that silence stretched,
-the more Sion felt something closer to certainty.
+The longer that silence went on,
+the closer Sion came to feeling certain.
 
-It exists.
+It was there.
 
-And it is
-the kind of path that only some of this old layer know precisely.
+And it was a path
+known not to the whole old layer
+but precisely to only a few in it.
 
-The old machine spoke only after a long while.
+Only after a long while did the old machine speak.
 
 "There are those who come back."
 
-That single line was enough.
+That one line was enough.
 
-Who.
-From where.
-What they do out there—none of that was said yet.
+Who,
+from where,
+having done what out there—it had not said yet.
 
 But that one sentence alone
-changed the air of the entire old layer, slightly.
+changed the whole air of the old layer, a little.
 
-This is not simply an interior that slows collapse.
-There are still hands that go out and return.
+This was not simply an inner place that slowed the collapse.
+There were still hands that went out and came back.
 
-Jiwoo touched the wall once more.
+Han Jiwoo touched the wall once more.
 
-And said, very low.
+Then she said, very low,
 
-"Those hands
-must be rough."
+"Those hands,
+they must be rough."
 
-The old machine moved its optical eye, very faintly, only then.
+Only then did the old machine move its optical eye, very slightly.
 
 "They wear down faster
-than the hands that hold on inside."
+than the hands that hold out long."
 
-Those words, strangely,
-hit Sion's chest a little harder.
+Strangely, those words
+struck Sion's chest a little hard.
 
-There are hands that stay inside and hold memory.
-And hands that go outside and wear down faster.
+There were hands that stayed inside and held on to memory,
+and hands that went outside and wore down faster.
 
-Both are part of this old layer.
+Both were part of this old layer.
 
-What Sion's group had seen until now
-was only the deepest interior of that.
+What Sion's party had seen so far
+was only the very deepest inside of it.
 
-Aka, hand still on the wall, murmured.
+Aka murmured, her hand still on the wall.
 
 "So that's why the smell was different."
 
 Sion looked at her.
 
-Aka continued without turning her eyes.
+Aka went on without even moving her eyes.
 
-"Here smells like a place that hides.
-There smells like a place that travels."
+"In here it smelled like hiding,
+out there it smells like coming and going."
 
-Those words didn't sound like explanation,
-yet were strangely precise.
+It didn't sound like an explanation,
+but it was strangely exact.
 
-Jiwoo echoed, brief.
+Han Jiwoo followed with a short line of her own.
 
 "Yeah."
-"It's not the smell of metal sitting still."
+"It's not the smell of metal that's stayed put."
 
-In that moment, Sion felt clearly for the first time
-that beyond this old layer,
-there were still stories in motion.
+Then, for the first time, Sion felt clearly
+that even outside this old layer
+there was a story still in motion.
 
-Serakion carries itself like a completed world.
-This interior looked like a world that holds.
+Serakion behaved like a finished world,
+and this inner place looked like a world that was holding on.
 
-But somewhere between those two,
-there were hands moving at a different speed—
-going in and out undetected,
-bringing back people and supplies and news.
+But somewhere between the two
+were hands moving at a different speed, slipping in and out unnoticed
+and bringing back people and supplies and news.
 
 And that path
-was not dead.
-It had been pretending to be dead from the beginning.
+was not dead;
+it had been playing dead from the start.
 
 ---
 

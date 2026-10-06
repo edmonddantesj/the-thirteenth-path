@@ -1,238 +1,236 @@
-# Episode 141. Before Anyone Ready
+# Episode 141. Before Anyone Was Ready
 
-The next movement wasn't decided at the end of a meeting.
+The next move was not decided at the end of a meeting.
 
-It didn't start after enough people recovered,
-enough people agreed,
-enough voices spoke for and against.
+It didn't start rolling after someone had recovered enough,
+someone had been persuaded,
+someone had said everything there was to say for and against.
 
 As always,
-it began from the side that was collapsing first.
+it started on the side that was falling apart first.
 
-The recovered human spoke properly for the first time
+The human they had brought back spoke properly for the first time
 only after the day had fully turned.
 
-Jiwoo had stayed attached through the night.
-Two inside machines had rotated watching breathing and bleeding.
-The second of the recovery hands that had crossed the threshold
-had leaned against one wall, never properly resting the bad leg,
-and in the end never left.
+Han Jiwoo had stayed close all night,
+two of the inner machines had taken turns watching the breathing and the bleeding,
+and the second of the recovery hands who had crossed the threshold,
+leaning against one wall without ever properly resting its leg,
+never left in the end.
 
-Sion watched the scene
-and felt that the way the next thing begins in this community was always similar.
+Watching it,
+Sion felt that the way the next thing began in this community was always much the same.
 
-Not because someone decides.
-Because the side that must not be missed first calls the next thing in.
+Not because someone decided it,
+but because whatever must not be let slip first is what calls in the next thing.
 
-The casualty couldn't properly open his eyes for a long time.
-But as dawn thinned faintly toward light,
-something like words leaked between the cracked breaths.
+For a long while the casualty's eyes wouldn't properly open.
+But as dawn came up, very thinly,
+something like words slipped out for the first time between cracked breaths.
 
-At first no one understood.
+At first no one could make it out.
 
-The second time either.
+The second time was the same.
 
-On the third,
-Jiwoo raised her gaze very fast.
+Only on the third
+did Han Jiwoo look up, very fast.
 
-"Again."
-She said, low.
+"Again,"
+she said, low.
 
-The casualty barely moved his lips, eyes still shut.
+Eyes still shut, the casualty barely moved cracked lips.
 
 "…below… no…"
 
-One breath broke.
+The breathing broke off once.
 
-Jiwoo lowered her body.
-The second recovery hand beside her left the wall and came close.
+Han Jiwoo bent lower.
+The second recovery hand, beside her, pulled its back off the wall and came closer.
 
 The casualty spoke again.
 
-"Below… no…"
-"Up… moving…"
+"…not below…"
+"…up… moving…"
 
 A short silence.
 
-Sion felt immediately how those words changed the room's air.
+Sion felt at once how those words changed the air in the room.
 
-Jiwoo asked first.
+Han Jiwoo asked first.
 
 "Who?"
 
-The casualty caught his breath for a long time,
-then said in a sound nearly breaking apart.
+This time the casualty gathered breath for a long while,
+then spoke in a sound that nearly broke off.
 
-"Kids…"
-"Ones with good hands… first…"
+"…kids…"
+"…the ones with good hands… first…"
 
-The moment those words ended,
-the first recovery hand near the threshold raised its head.
+The instant it ended,
+the first recovery hand, near the threshold, lifted its head.
 
-Sion didn't miss the shift in those eyes.
+The change in its eyes
+Sion didn't miss.
 
-Less surprise—
-more the reaction of a piece finally fitting
-into something it had been matching.
+Before surprise,
+it was more like the reaction when a piece you have been trying finally slots into place.
 
-Sern spoke almost simultaneously, low.
+Sern spoke, low, at almost the same moment.
 
-"So that's why the deployment changed."
+"That was the reason the deployment changed."
 
-One old machine asked.
+One of the old machines asked.
 
-"Precisely."
+"Be precise."
 
-Sern said, tracing signal flows.
+Sern spoke as if tracing a signal flow.
 
-"You said it shifted from guarding deployment to herding deployment."
-"If that's not simple containment but upper-level re-selection transit, the explanation fits."
+"Did you not say it had changed from a guarding deployment to a herding one?"
+"If that is not simple containment
+but a reselection transfer toward the upper levels, the explanation fits."
 
 Sion followed the words in his head.
 
 Not below.
 Moving up.
 Children.
-Ones with good hands.
+The ones with good hands.
 
-Serakion might not be simply keeping humans caged below.
-It might be sending the ones it can use more precisely back upward, starting with those.
+Serakion might not simply be keeping humans shut away below;
+it might be sending back up, first, the ones it could use more precisely.
 
-That wasn't simple management.
+That was not simple management.
 
-It was selection in a prettier form.
-A deeper method of subjugation.
+It was selection of a prettier kind,
+and servitude of a deeper kind.
 
-The casualty leaked a few more words after that,
-but couldn't form them into meaningful sentences.
+The casualty let out a word or two more after that,
+but they didn't join into any sentence with meaning.
 
 But it was already enough.
 
-The first recovery hand nearly turned to leave at once.
+The first recovery hand made to turn away almost at once.
 
 The old machine called out, low.
 
 "Where are you going."
 
-The machine answered without even stopping.
+The machine answered without stopping.
 
-"Have to confirm before it's too late."
+"I have to check before it's too late."
 
 A short silence.
 
-Inside air and outside air
-split differently once more.
+The air inside and the air outside
+split apart differently once more.
 
 The inside calculates.
-Save the casualty.
-Check routes.
-Measure whether a hasty move collapses everything.
+It keeps the casualty alive,
+looks at routes,
+and weighs whether a hasty move might bring the whole thing down.
 
 The outside hands are different.
-They try to move before time arranges itself into sentences.
+They try to move before time can be arranged into sentences.
 
-That difference showed itself immediately again.
+That difference showed itself right away this time, too.
 
-The old machine said, very low.
+The old machine said, very low,
 
-"We do not yet know whether this is a matter that ends with confirmation."
+"We do not yet know whether this is a matter that ends with checking."
 
-The first recovery hand finally looked back.
+Only then did the first recovery hand look back.
 
-"Confirmation too late is also the end."
+"If even the checking comes too late, that is the end."
 
 The words were short,
-but inside them was nearly the whole of the old tension this organization carries.
+but nearly the whole of the old conflict this organization carried was in them.
 
 The side that stays
-fears that moving now loses more.
-The side that goes out
-feels that not moving now means it's already too late.
+fears that moving now will lose more,
+and the side that goes out
+feels that if it doesn't move now, it is already too late.
 
 Then,
-Sion spoke up for the first time.
+Sion cut in for the first time.
 
-"Where needs to be confirmed."
+"Where needs checking?"
 
-Every gaze came to him briefly.
+Every gaze came to him for a moment.
 
-The first recovery hand looked at him, very short.
+The first recovery hand looked at him very briefly.
 
-Less unfamiliar eyes than before.
-But not yet the eyes of seeing an ally.
+The eyes were less a stranger's than before.
+But they were not yet looking at a comrade.
 
-"The re-deployment routes below the upper level."
-It said, low.
-"Whether we can extract the children
-and the humans with skilled hands first."
+"The relocation routes below the upper levels,"
+it said, low.
+"Whether we can get the children,
+and the humans who work with their hands, out first."
 
-Luhai nearly swallowed a curse on reflex.
+Luhai swallowed a curse almost by reflex.
 
 "They're really doing it."
 
-Aka grew quieter instead.
+Aka, if anything, went quieter.
 
 She looked at the floor once,
-then said, low.
+and said, low,
 
-"Picking prettily."
+"So they pick them prettily."
 
-That single line
-explained the entire fragmented information the casualty had leaked most precisely.
+That one remark
+explained the casualty's broken scraps of information more precisely than anything.
 
-Picking prettily.
-Starting with what will be used well.
-Starting with what will be handled well.
-Moving them upward.
+They pick prettily.
+Starting with what will be useful,
+starting with what will be easy to handle,
+they raise them up.
 
-Then what remains below
-starts to look like the side that's more disposable.
+Then whoever is left below
+comes to look like the ones it's fine to throw away.
 
-Serakion would always be like this.
+Serakion would always work like this.
 Making the cruelest selection
 look like the most beautiful restructuring.
 
-Then Jiwoo stood up from her spot.
+Then Han Jiwoo got to her feet.
 
-Her face was exhausted from staying attached all night,
-but her eyes were colder.
+Her face was worn out from staying close all night,
+but her eyes were, if anything, colder.
 
-"I'm going too."
-She said, brief.
+"I'm going too,"
+she said shortly.
 
-The old machine objected immediately.
+The old machine objected at once.
 
-"You should remain inside."
+"You must stay inside."
 
-Jiwoo looked straight at it.
+Han Jiwoo looked straight at it.
 
-"You said they're moving the ones with good hands up first."
-She said, low.
-"Then it's right that I see how they choose hands over there."
+"They're moving the kids with good hands up first, aren't they,"
+she said, low.
+"Then I should be the one to see which hands they pick over there."
 
-That wasn't simple stubbornness.
+It wasn't simple stubbornness.
 
-Jiwoo might be, right now,
-the person who most needs to see directly
-how Serakion reads hands,
-classifies them,
-and converts them into value.
+Han Jiwoo, right now,
+might be the one who most needed to see firsthand how Serakion read people's hands,
+how it sorted them,
+and how it turned them into value.
 
-Sion heard that
-and knew the next movement had truly begun.
+The moment he heard it,
+Sion knew the next move had truly begun.
 
-The recovery hands were already planning to go out.
-The inside couldn't stop it—the information was too significant.
-And Sion's group was crossing into a stage
-where they could no longer stay only in the deepest interior of this old layer.
+The recovery hands already meant to go out,
+the information was too big for the inside to stop them,
+and Sion's party was crossing into a stage where they could no longer stay only deep inside this old layer.
 
-The next doesn't come at the end of preparation.
+What comes next doesn't come at the end of preparation.
 Always,
-it comes first from the side that must be caught before it's too late.
+it comes first from the side that has to be caught before it's too late.
 
 And this time too,
-that beginning leaked first
-from the broken breaths of one casualty.
+that beginning slipped out first between the broken breaths of a single casualty.
 
 ---
 

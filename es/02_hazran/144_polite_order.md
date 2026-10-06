@@ -113,8 +113,8 @@ Ater estuvo muy largo rato sin hablar.
 Entonces, de pronto,
 mirando una de las zonas de abajo, dijo bajo.
 
-—El Imperio te hace arrodillar por miedo.
-—Aquí te hacen acostumbrarte para que tú mismo guardes tu sitio.
+—El Imperio pone de rodillas a la gente por miedo.
+—Aquí la acostumbran para que cada uno guarde su sitio por sí mismo.
 
 Aquello pareció un murmullo para sí mismo,
 y por eso era más real.

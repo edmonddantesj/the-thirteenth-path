@@ -305,7 +305,7 @@ ordenado,
 hermoso pero sin consideración,
 solo ahora, muy tarde, hubiera puesto delante un nombre propio.
 
-Aka, con una voz que apenas se alcanzaba a oír, leyó ese nombre una vez tras él:
+Aka, con una voz que apenas se alcanzaba a oír, repitió una vez ese nombre:
 
 —Serakion.
 

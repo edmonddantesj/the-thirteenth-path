@@ -1,171 +1,167 @@
 # Chapitre 39 — Le souffle qu'elle cachait
 
-Le chemin où Haroun les avait menés n'avait pas la même texture que le marché de la couche extérieure ni que les ateliers intérieurs.
+Le chemin par lequel Haroun les menait n'avait le grain ni du marché de la couche extérieure ni des ateliers intérieurs.
 
-Plus ils s'enfonçaient, plus le nombre de gens diminuait, et à la place c'était le silence de chaque secteur qui s'affirmait davantage. Si, dans la couche extérieure, les regards qui feignaient de ne pas voir venaient en premier, ici, c'était la discipline de ne véritablement pas regarder qui prévalait. Les mains qui passaient ne faisaient pas semblant de ne pas les voir — elles avaient inscrit dans leur corps qu'il ne fallait vraiment pas regarder. Et cela, paradoxalement, était encore plus suffocant.
+Plus ils s'enfonçaient, moins il y avait de monde, et plus, en revanche, le silence de chaque secteur se faisait net. Si, dans la couche extérieure, ce qui venait d'abord était des yeux qui feignaient de ne pas voir, ici, ce qui venait d'abord était une discipline : ne pas regarder du tout. Les mains qui passaient ne faisaient pas semblant de ne pas les voir ; leurs gestes avaient appris, jusque dans le corps, qu'il ne fallait vraiment pas regarder. C'était justement ce qui coupait le souffle.
 
-Nassim marchait toujours en tête avec un visage souriant, mais à présent ses mots s'étaient raréfiés. Haroun, du début à la fin, ne s'était pas retourné une seule fois. En revanche, rien que son dos suffisait à imposer une pression qui dictait jusqu'où il fallait suivre.
+Nassim marchait toujours devant, le visage souriant, mais il parlait moins à présent. Haroun, du début à la fin, ne s'était pas retourné une seule fois. Son dos suffisait pourtant à exercer une pression d'un genre particulier, celle qui fixait jusqu'où il fallait suivre.
 
-Luhai s'était carrément tu à mi-chemin. Moins par peur que comme un enfant qui avait appris trop vite qu'ici, à l'intérieur, les yeux survivaient plus longtemps que la bouche. Pourtant il ne s'était pas entièrement assagi. Sion avait surpris à plusieurs reprises le regard de Luhai balayant rapidement les marques sur les murs, les conteneurs verrouillés, les mains des gens qui entraient et sortaient. Cet enfant ne se cachait pas — il mémorisait plus profondément.
+Luhai, à partir de la moitié du chemin, s'était tu complètement. Moins par peur que comme un enfant qui avait appris trop vite qu'ici, à l'intérieur, les yeux survivaient plus longtemps que la bouche. Il ne s'était pas tout à fait assagi pour autant. Plusieurs fois, Sion vit le regard de Luhai balayer à toute vitesse les marques sur les parois, les bidons verrouillés, les mains de ceux qui entraient et sortaient. Ce gamin ne se cachait pas. Il mémorisait, plus profondément.
 
-Ater ne faisait que lire très brièvement les structures en passant. C'était quelqu'un qui, dans le marché ou les ateliers, déchiffrait les traces ; mais ici, à l'intérieur, il semblait au contraire s'efforcer de ne pas trop regarder. Comme quelqu'un qui savait que certains lieux sont tels que les observer suffit à ce que l'autre vous repère en premier.
+Ater ne lisait les structures qu'il croisait que très brièvement, en passant. Lui qui, au marché ou à l'atelier, observait les traces, semblait ici, au contraire, s'efforcer de ne pas trop en voir. Comme quelqu'un qui savait qu'il est des lieux où il suffit de lire pour que l'autre vous remarque le premier.
 
-Sion s'efforçait de ne pas toucher le papier à l'intérieur de sa veste. *Hazran*, *Aka*. Désormais ces deux mots ne lui semblaient plus être une direction, mais une échelle mesurant à quel point il s'était enfoncé. Il était venu chercher un nom, et voilà qu'il s'était laissé entraîner d'abord à l'intérieur des prix, des mains et des disciplines qui entouraient ce nom.
+Sion s'efforçait de ne pas toucher le papier dans la poche intérieure de sa veste. **Hazran**, **Aka**. Ces deux mots ne lui faisaient plus l'effet d'une direction, mais d'une échelle qui mesurait jusqu'où il s'était enfoncé. Il était venu chercher un nom, et c'était à l'intérieur des prix, des mains et des règles qui entouraient ce nom qu'il s'était d'abord laissé entraîner.
 
-Et dans ces brefs silences, Seorin ralentit très légèrement le pas.
+Et entre ces brefs silences, Seorin ralentit le pas, à peine un instant.
 
-Pour un observateur quelconque, on aurait dit qu'elle avait simplement réajusté son appui. Mais Sion le comprit aussitôt. Seorin ne s'était pas arrêtée — elle avait repris son souffle une fois pour ne pas s'arrêter. Les doigts de sa main droite s'étaient repliés puis dépliés l'espace d'un instant, et la ligne de sa mâchoire s'était imperceptiblement durcie avant de se relâcher.
+Aux yeux de n'importe qui, elle n'avait peut-être fait que reprendre appui. Mais Sion le sut tout de suite. Seorin ne s'était pas arrêtée : elle avait repris son souffle une fois, justement pour ne pas s'arrêter. Les doigts de sa main droite se replièrent et se déplièrent l'espace d'un instant, et la ligne de sa mâchoire se durcit imperceptiblement avant de se relâcher.
 
-C'était le genre de fatigue que deux phrases suffisaient à résumer.
+C'était une fatigue de celles que deux phrases suffisent à dire.
 
-Le souffle de quelqu'un qui espérait que personne n'avait vu, mais qui avait déjà décidé de ne pas s'effondrer quand même.
+Le souffle de quelqu'un qui aurait voulu que personne ne voie, mais qui avait déjà décidé de ne pas s'effondrer.
 
-Sion ne dit rien. Dans ces moments-là, pour Seorin, faire semblant de n'avoir rien vu valait mieux que toute consolation.
+Sion se garda bien de dire quoi que ce soit. Dans ces moments-là, avec Seorin, faire semblant de ne rien voir valait mieux que consoler.
 
-Seorin retrouva son allure comme si rien ne s'était passé.
+Seorin reprit l'allure comme s'il ne s'était vraiment rien passé.
 
-Et elle dit très bas :
+Puis elle dit, très bas :
 
-« L'odeur change, devant. »
+« Devant, l'odeur change. »
 
-Kael releva légèrement la tête en entendant cela.
+Kael releva un peu la tête en l'entendant.
 
 « De l'eau. »
-Il dit brièvement.
+Il avait parlé brièvement.
 « Et des remèdes. »
 
-Nassim lança depuis l'avant, d'une voix teintée d'amusement :
+Devant, Nassim lança, d'une voix où perçait un rire :
 
-« Bon nez. »
+« Vous avez du nez, dites donc. »
 
-Sion le perçut alors seulement.
+Sion le sentit seulement alors, lui aussi.
 
-Sous les odeurs de métal, de graisse, de chaleur et de poussière, une autre texture commençait à se mêler. L'odeur d'une eau longuement chauffée, le parfum ténu d'herbes antiseptiques, et l'odeur sèche d'un espace où les draps étaient fréquemment changés. Pas un atelier ni un entrepôt, mais l'odeur d'un lieu conçu pour que quelqu'un y séjourne longtemps.
+Sous les odeurs de métal et de graisse, de chaleur et de poussière, un autre grain commençait à se mêler. L'odeur d'une eau longtemps chauffée, celle, ténue, d'herbes désinfectantes, et l'odeur sèche d'un lieu où l'on changeait souvent les toiles. Ni un atelier ni un entrepôt : l'odeur d'un endroit où l'on garde quelqu'un longtemps.
 
-Quand le couloir tourna une dernière fois, le secteur intérieur se dévoila.
+Quand le couloir tourna une dernière fois, le secteur intérieur apparut.
 
-C'était une zone close, ceinte de hautes parois d'épaves et de couches superposées de bâches. Rien de particulièrement somptueux. Fidèle à Hazran, c'était toujours brut et fonctionnel, avec des toiles aux coutures apparentes et des plaques de métal rapportées en pleine vue. Mais il y avait une différence nette avec la couche extérieure et les ateliers intérieurs. Ici, on ne faisait pas que tenir bon — on dissimulait, on protégeait, on gérait quelque chose.
+Une zone fermée, cachée derrière de hautes parois d'épaves dressées et des tentures superposées. Rien de vraiment fastueux. À la manière de Hazran, c'était toujours brut et pratique ; on voyait les coutures des toiles et les plaques de métal rapportées. Mais quelque chose différait nettement de la couche extérieure et des ateliers intérieurs. Ici, on ne se contentait pas de tenir : on cachait quelque chose, on le protégeait, on en prenait soin.
 
-Sion le comprit au premier regard.
+Sion le comprit au premier coup d'œil.
 
-Ce lieu ne servait pas seulement à entreposer des marchandises.
+Ce n'était pas un endroit où l'on ne gardait que des marchandises.
 
 Haroun s'arrêta.
 
-Devant une ouverture qu'on hésitait à appeler porte, mais qui était gardée comme telle. De part et d'autre, au lieu de gardes ostensibles, se tenaient des gens qui avaient suspendu leur travail en feignant de travailler. Ils avaient l'air de ne pas regarder, mais en réalité c'étaient des yeux qui enregistraient tout — qui entrait, qui sortait.
+Ils étaient devant une entrée qu'on aurait hésité à appeler une porte, mais qu'on gardait comme une porte. De part et d'autre, au lieu de gardes affichés, se tenaient des gens qui faisaient mine de travailler, les mains immobiles. Des yeux qui faisaient semblant de ne pas voir, mais qui, en réalité, enregistraient tout : qui entrait, qui sortait.
 
 Nassim se retourna.
 
 « Bien. »
-Il dit doucement.
-« À partir d'ici, les expressions coûtent plus cher que les paroles. »
+Sa voix était douce.
+« À partir d'ici, une expression coûte plus cher qu'une parole. »
 
-Luhai marmonna à voix basse :
+Luhai marmonna tout bas :
 
-« Alors toi, tu es déjà en faillite. »
+« Alors toi, t'es déjà en faillite. »
 
-Kael lui enfonça aussitôt le coude dans les côtes.
+Kael lui donna aussitôt un petit coup de coude dans les côtes.
 
 « Silence. »
 
-Mais cette fois, même Nassim avait un visage qui ne parvenait pas à retenir son rire. Ce qui ne voulait pas dire qu'il relâchait la bride. Au contraire, c'était quelqu'un habitué à dissiper juste un peu la tension de cette façon, puis à resserrer encore davantage.
+Mais cette fois, même Nassim avait le visage de quelqu'un qui ne pouvait pas retenir un rire. Il ne relâcha pas la bride pour autant. Au contraire, c'était un homme habitué à disperser un peu la tension de cette manière, pour mieux la resserrer ensuite.
 
-Haroun envoya un signal très bref vers l'intérieur.
+Haroun adressa un signal très bref vers l'intérieur.
 
-La toile s'écarta, et ce qui apparut d'abord ne fut pas une personne mais un regard.
+La toile intérieure s'écarta, et ce qui sortit en premier ne fut pas une personne, mais un regard.
 
-Différent des yeux des gens des ateliers. Calculateur et vigilant de la même manière, mais plus proche d'un regard qui vérifiait d'abord. Des yeux qui, avant de voir qui entrait, observaient ce que les arrivants portaient et à quoi ils réagissaient.
+Il n'était pas comme les yeux des gens de l'atelier. Il calculait et se méfiait de la même façon, mais il tenait plutôt, d'abord, de la “vérification”. Des yeux qui, avant de voir qui entrait, regardaient d'abord ce qu'on apportait et à quoi on réagissait.
 
-Sion, à l'instant où il sentit ce regard, eut l'impression que le papier dans sa veste était soudain devenu plus lourd.
+Au moment où ce regard se posa sur lui, Sion retint de force sa main, qui allait se porter vers sa veste.
 
-*Aka*
+C'était cela que ces yeux regardaient. Non pas ce qu'on apportait, mais où allait la main.
+
+**Aka**
 
 Un nom se rapprochait enfin du réel.
 
-Sous l'ombre de la bâche intérieure, une femme se tenait debout.
+Dans l'ombre de la tente intérieure se tenait une femme.
 
-Elle n'était pas très âgée, mais elle avait le visage de quelqu'un qui avait tenu longtemps dans ce secteur. Des vêtements où l'utile passait avant l'ornemental, des yeux qui voyaient d'abord qui était blessé, mais en même temps des lèvres qui jaugeaient d'abord qui franchirait la ligne. Sion le comprit d'instinct. Cette personne n'était pas une simple main au service des autres. C'était la main qui organisait les gens de l'intérieur et réglait qui pouvait aller jusqu'où.
+Elle n'était pas vieille, mais elle avait le visage de quelqu'un qui avait longtemps tenu dans ce secteur. Une tenue où l'utile passait avant l'ornement, des yeux qui regardaient d'abord qui était blessé, et en même temps des lèvres qui jaugeaient d'abord qui allait franchir la ligne. Sion le sut d'instinct. Cette femme n'était pas une simple main au service des autres. C'était la main qui tenait en ordre les gens de l'intérieur et réglait qui pouvait aller jusqu'où.
 
 C'était Nahira.
 
-Nassim prit la parole le premier.
+Nassim parla le premier.
 
-« C'était un peu bruyant, dehors. »
-Il dit en souriant.
-« Mais du coup, on a ramené quelques curiosités. »
+« Ça a été un peu bruyant, dehors. »
+Il souriait en le disant.
+« Mais grâce à ça, quelques choses amusantes sont entrées avec nous. »
 
-Nahira ne réagit pas immédiatement à ces mots. Elle balaya d'un seul regard le groupe de Sion et Luhai, et s'arrêta un bref instant sur le fragment d'éthérite dans la main de Luhai. Puis sur l'intérieur de la veste de Kael, et jusqu'à la doublure de la veste de Sion. Elle ne regardait pas de façon trop ostensible, et c'est précisément pour cela que c'étaient les yeux de quelqu'un qui avait vu davantage.
+Nahira ne réagit pas tout de suite. Elle balaya d'un seul regard le groupe de Sion et Luhai, et s'arrêta brièvement, pour finir, sur le fragment d'éthérite dans la main de Luhai. Puis sur le creux du manteau de Kael, et jusqu'à la doublure de la veste de Sion. Elle ne regardait pas trop ouvertement, et c'était justement le regard de quelqu'un qui en voyait davantage.
 
 « Tous à l'intérieur ? »
-Elle demanda d'une voix basse.
+La question était basse.
 
 Haroun répondit brièvement :
 
 « Tous. »
 
-Nahira laissa échapper un souffle très court. Non pas de fatigue, mais un souffle plus proche de la résignation de quelqu'un qui savait qu'à ce stade, ils finiraient par arriver jusque-là.
+Nahira expira un souffle très court. Pas de fatigue : un souffle plus proche de la résignation, celui de quelqu'un qui savait que, à ce point-là, ils finiraient de toute façon par arriver jusqu'ici.
 
 « Bien. »
-Elle dit.
-« Au moins, ça évitera qu'on en parle encore plus dehors. »
+Elle ajouta :
+« Au moins, ils ne feront plus de bruit dehors. »
 
-En entendant cela, Seorin demanda très bas :
+Seorin, l'entendant, demanda très bas :
 
-« C'est plus calme, à l'intérieur. »
+« C'est moins bruyant, à l'intérieur ? »
 
-Nahira regarda Seorin vraiment pour la première fois.
+Nahira regarda Seorin vraiment, pour la première fois.
 
 « En apparence. »
-Elle répondit.
+Ce fut toute sa réponse.
 
-C'était une phrase courte, et pourtant Sion sentit qu'elle lui restait étrangement longtemps. La voix de quelqu'un qui admettait trop facilement que l'intérieur était plus silencieux que l'extérieur, mais que cela ne signifiait pas la paix.
+Une phrase courte, et pourtant Sion sentit qu'elle lui restait étrangement longtemps. C'était la voix de quelqu'un qui admettait bien trop facilement que l'intérieur était plus calme que le dehors, sans que cela veuille dire qu'on y était en paix.
 
-Nassim ajouta légèrement :
+Nassim ajouta d'un ton léger :
 
 « De l'éthérite, un nom, un gamin qui lit les registres. »
-Il dit.
-« Aujourd'hui, les visiteurs pèsent leur poids, non ? »
+Il poursuivit :
+« Ils pèsent leur poids, les visiteurs, aujourd'hui, non ? »
 
-Le regard de Nahira s'assombrit de façon infime.
+Le regard de Nahira s'assombrit, très légèrement.
 
 « Ce nom-là, ne le prononce pas à la légère, même ici. »
-Elle dit à voix basse.
+Elle avait parlé bas.
 
 Luhai marmonna :
 
-« Tout le monde dit la même chose. »
+« Tout le monde dit que ça. »
 
-Cette fois, personne ne répliqua.
+Cette fois, personne ne releva.
 
-Et ce bref silence n'en était que plus net. Même à l'intérieur, Aka n'était pas un simple nom de personne. Sion, en l'entendant, sentit que le poids penchait davantage du côté d'un Aka non pas flottant en rumeur dans la couche extérieure, mais directement géré de l'intérieur.
+Ce bref silence n'en était que plus net. Même ici, à l'intérieur, Aka n'était pas simplement le nom de quelqu'un. En l'entendant, Sion sentit le poids pencher davantage d'un côté : Aka n'était pas une rumeur flottant dans la couche extérieure, mais quelqu'un dont on prenait soin, directement, à l'intérieur.
 
-Nahira s'effaça.
+Nahira s'écarta.
 
 « Entrez. »
-Elle dit.
-« Mais une fois dedans, les choses ne tourneront pas dans l'ordre de vos questions. »
+Elle reprit :
+« Mais une fois entrés, les choses ne tourneront plus dans l'ordre de vos questions. »
 
-Sion trouva que ces mots sonnaient presque comme un avertissement.
+Pour Sion, ces mots sonnaient presque comme un avertissement.
 
-Ils n'entraient pas pour poser des questions —
-ils entraient pour être classés dans l'ordre intérieur.
+Ils n'entraient pas pour poser des questions. Ils entraient pour être rangés dans l'ordre de l'intérieur.
 
-Haroun franchit le seuil en premier, Nassim suivit. Luhai tenta de résister un instant, mais lorsque Kael tira imperceptiblement sa main, il finit par avancer. Ater grava une dernière fois en silence la structure intérieure dans ses yeux, et Seorin franchit la ligne la première, comme si de rien n'était.
+Haroun entra le premier, Nassim le suivit. Luhai voulut résister un instant, mais quand Kael tira très légèrement sur sa main, il finit par avancer. Ater emplit une fois encore ses yeux de la structure intérieure, sans un mot, et Seorin, comme si de rien n'était, franchit la ligne la toute première.
 
-Sion les suivit à l'intérieur et songea.
+Sion entra à leur suite.
 
-Ce qu'il verrait ensuite
-ne serait ni le marché,
-ni les entrepôts,
-ni le tumulte bon marché et bruyant de la couche extérieure.
+Passé le seuil, les sons changèrent. Dans la couche extérieure, ce qui portait le plus fort, c'étaient les voix qui criaient des prix ; ici, il n'y en avait pas. On entendait parler, mais aucun chiffre.
 
-Sans doute
-verrait-il d'un peu plus près comment un nom se gérait non pas comme une personne mais comme un prix,
-et pourquoi Elia n'avait laissé, sans la moindre explication, que les deux mots *Hazran* et *Aka*.
-Il s'en approcherait, ne serait-ce qu'un peu.
+Sion y pensait en marchant. Ici, on ne fixe pas les prix à voix haute.
 
-Quelque part là-dedans,
-Aka se trouvait.
+Si on ne les fixe pas à voix haute, celui qui n'a pas entendu ne le saura jamais.
+
+Quelque part, là-dedans, se trouvait Aka.
 
 ---
 

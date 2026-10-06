@@ -1,126 +1,191 @@
 # Episode 179. No Longer a Thing
 
-The quiet that came after the battlefield was severed felt unfamiliar before it felt like relief.
+The quiet that came after the fighting broke off
+felt strange before it felt like relief.
 
-Perhaps because they had stood too long inside the sounds of tearing metal and screams, inside dust and shards of light, the place where the waves had suddenly stopped felt more unsettling.
+Maybe because they had stood too long in the shriek of tearing metal and the screaming,
+in dust and splinters of light,
+the place where the wave had suddenly stopped felt more unsettling, not less.
 
-Was it truly over. Was the next line not coming. No one spoke first. Everyone inside the old layer held their breath.
+Was it really over?
+Wasn't the next line still coming?
+No one could be the first to speak,
+and everyone in the old layer held their breath.
 
-In the center of that quiet, the last android remained with one knee on the floor.
+In the middle of that quiet,
+the last android stayed where he was, one knee on the floor.
 
-He had not fully collapsed. But he no longer looked able to stand as before.
+He had not collapsed completely.
+But he no longer looked able to stand the way he had before.
 
-The remaining shoulder axis was badly twisted. One optical eye had nearly lost its light, wavering only intermittently. The short mouth line on the face was so faint it looked ready to vanish at any moment.
+His remaining shoulder axis was badly twisted,
+one optical eye had nearly lost its light and only flickered now and then,
+and the short mouth line on his face was so faint it looked ready to vanish at any moment.
 
-But strangely, that figure no longer looked like cold wreckage to anyone.
+And yet, strangely,
+to no one did he look like cold wreckage anymore.
 
-Jiwoo moved first.
+Han Jiwoo moved first.
 
-Seorin glanced at her as though to stop her, but this time did not.
+Seorin looked her way as if to stop her,
+but this time she didn't.
 
-Jiwoo approached very slowly — the way one approaches a wounded living thing that must not be startled.
+Han Jiwoo went toward the last android very slowly,
+the way you would approach a wounded creature
+you must not startle.
 
-The children had not stopped crying, but they were no longer running. Even through tears, they kept watching the place where he was.
+The children still couldn't stop crying,
+but they no longer ran.
 
-The Hazran people. The old machines. Sion's group. No one spoke first.
+If anything, even while they cried,
+they kept looking toward where he was.
 
-That was not simple silence.
+The Hazran people,
+the old machines,
+Sion's party,
+not one of them could be the first to say anything.
 
-It was the silence of having just come through a shared battlefield, and still no one had decided what word to use for that being.
+It was not simple silence.
 
-Jiwoo stopped right in front of him.
+Having just come through a battlefield together,
+it was the silence of people who had not yet decided
+what words to call that being by.
 
-And very slowly, raised her hand.
+Han Jiwoo stopped right in front of him.
 
-The last android's optical eye wavered faintly. A tremor small enough to wonder if he was still on guard.
+Then, very slowly,
+she raised her hand.
 
-But he did not pull away. He did not withdraw his body.
+The last android's optical eye shook faintly.
+A tremor so small it made you wonder for an instant whether he was still on guard.
 
-Jiwoo's hand finally touched the undamaged side of his face surface, very carefully.
+But he did not draw back.
+He did not pull his body away.
 
-It was not warm. It did not feel like human skin, of course.
+In the end Han Jiwoo's hand,
+very carefully, touched the undamaged surface at the side of his face.
 
-But the residual heat of a war just passed, and something like internal vibration not yet gone dark — those reached her fingertips, very faintly.
+It was not warm.
+Of course it was nothing like human skin.
 
-Jiwoo swallowed her breath at the sensation.
+But the leftover heat of a war that had only just passed,
+and something like an inner vibration that had not yet died out,
+reached her fingertips, very faintly.
+
+Han Jiwoo caught her breath at the feel of it.
 
 Alive.
 
-The word did not leave her mouth. But inside her it rang too clearly.
+The word did not leave her mouth,
+but inside her it rang far too clearly.
 
-From behind, one child paused between sobs and asked very small.
+Behind her, a child stopped mid-sob and asked, very small,
 
-"...Are you okay?"
+"…Are you okay?"
 
-The question did not expect an answer. It was simply the kind of thing that comes out, too naturally, in front of someone who is hurt.
+The question did not expect an answer.
+It was simply what comes out, so naturally,
+in front of someone who is hurt.
 
-And precisely because of that, Sion's chest went tight.
+And precisely because of that,
+Sion's chest went tight.
 
-No one was treating that being like an object anymore. No one was looking at it as salvage or a functional unit.
+No one was treating that being like an object anymore.
+No one was looking at him as a salvage item or a functional unit.
 
-There was no name yet. No one had dared to define what that being was.
+There was no name yet.
+No one yet dared to define what that being was.
 
-But the way it was being treated had already changed completely.
+But already,
+the way they treated him had changed completely.
 
-One old machine watched the scene from a short distance. Its optical eye still held a tired light, but the distance that had been there before seemed no longer to remain.
+One of the old machines was watching the scene from a little way off.
+Its optical eyes still held a tired light,
+but the distance it had kept before no longer seemed to be there.
 
-Sion watched and suddenly realized.
+Watching it, Sion suddenly understood.
 
-It was not only the last android that had changed.
+It was not only the last android who had changed.
 
-Everyone looking at him had already come to a place they could not return from.
+Everyone looking at him
+had also come to a place they could not go back from.
 
-Seorin said it very low.
+Seorin said, very low,
 
-"Sort out the rear. Start with the living."
+"Clear up the rear."
+"The living first."
 
-The words were necessary, and so everyone began to move.
+The words were needed,
+and so everyone began to move.
 
-Laying the wounded down. Checking gaps in collapsed structures. Setting perimeters on the remaining corridors. Hands moving children further inside became busy again.
+Laying the wounded down,
+checking the gaps in the collapsed structures,
+posting a watch toward the remaining routes,
+moving the children farther inside: hands got busy again.
 
-But even in the midst of that, gazes kept returning to the last android.
+But even in the middle of it,
+eyes kept turning back toward the last android.
 
-He was still kneeling.
+He was still braced on one knee.
 
-As though he could not yet fully understand the gazes pouring onto him. As though until just now there had been only the battlefield, and suddenly the time after it had been placed before him.
+As if he could not yet fully understand
+the eyes pouring onto him now.
+As if until a moment ago there had been only the battlefield,
+and now the time after it had suddenly been set down in front of him.
 
-Then the child who had said "it must hurt" approached Jiwoo's side, very carefully.
+Then
+the child who had said "must be hurting" earlier
+came, very carefully, all the way to Han Jiwoo's side.
 
-The steps had not fully shed their fear. But they did not stop.
+The steps had not quite shaken off their fear.
+But they didn't stop.
 
-The child's hand still bore faint traces of dirt from when they had drawn faces before the battle.
+On the child's hand there were still a few smudges of the dirt from drawing faces before the battle.
 
-The child hesitated for a long time. Then, with nearly trembling fingertips, traced over the fading mouth line on the last android's face — as though smoothing it back.
+After hesitating a long while,
+the child, with fingertips that were almost trembling, traced over the faded mouth line on the last android's face once, as if stroking it.
 
-The short line that had looked ready to vanish glowed faintly once more.
+That short line, which had been about to fade away,
+glowed again, very faintly.
 
-A truly small response. Weak enough to doubt your own eyes.
+It was a truly small response.
+So weak you almost doubted your eyes.
 
 But no one there missed it.
 
-The child stopped breathing. Jiwoo could not even close her eyes, watching.
+The child stopped breathing,
+and Han Jiwoo watched the scene without even being able to close her eyes.
 
-The last android raised his head, very slowly. Truly, very slowly.
+The last android, very slowly,
+truly very slowly, raised his head.
 
 And looked at the child.
 
-What that gaze meant — no one could say yet.
+What that look meant,
+no one could say yet.
 
-Gratitude. Confirmation. Simply following the light.
+Gratitude,
+confirmation,
+or only following the light.
 
 But at least one thing was clear.
 
-This was no longer a reaction happening between an object and a person.
+This was no longer a reaction passing between a thing and a person.
 
-That fact bound the breath of everyone remaining inside the old layer once more, carefully.
+That fact
+bound the breathing of everyone left in the old layer together, carefully, one more time.
 
-Sion watched and exhaled very slowly.
+Watching the sight, Sion let out a breath, very slowly.
 
-It was not over yet. The wounds this fight had left, and the larger fight still to come, were certainly still ahead.
+It wasn't over yet.
+The wounds this fight had left,
+and the bigger fight still to come, were surely still there.
 
-But at least right now, here, one thing had become certain.
+But at least for now,
+one thing had become clear here.
 
-No one had yet called him by a name. But no one could treat him as a thing any longer.
+No one had called him by a name yet,
+but no one could treat him like a thing anymore.
 
 ---
 

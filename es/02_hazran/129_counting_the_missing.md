@@ -225,7 +225,7 @@ En cambio,
 miró largamente cómo la máquina vieja iba anotando despacio, uno tras otro, los números y los nombres de los recién llegados.
 
 Este no es un lugar que recuerde a la gente con belleza.
-Es un lugar que primero cuenta con exactitud lo que se ha perdido.
+Es un lugar donde primero se pierde con exactitud.
 
 Y quizá,
 solo así sea un lugar capaz, después, de recordar de verdad.

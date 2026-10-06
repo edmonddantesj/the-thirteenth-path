@@ -1,135 +1,149 @@
 # Episode 72. The Distance That Had Always Been There
 
-The alley Luhai had been leading them through split into two forks at some point.
+At some point the alley Luhai had been leading them down split in two.
 
-One was brighter and noisier. Spices and water, thin ornaments, the slack sound of a worn instrument tangled together, pulling people forward. The other was darker. Small lanterns hung at intervals, and the shadows of tent covers swaying in the wind were deeper.
+One way was brighter and louder. Spices and water, thin trinkets, the sound of a tired instrument all tangled together and kept pulling people forward. The other way was darker. Only small lamps hung here and there, and the shadows of tents swaying in the wind ran deeper.
 
-Luhai looked between the two, then said casually.
+Luhai looked from one to the other, then spoke as if it were nothing.
 
-"I'll take another lap over there."
+"I'm gonna go do one more lap over there."
 
-Seorin asked immediately.
+Seorin asked at once.
 
 "Why alone."
 
-"If I'm between you two, it's too obvious."
+"If I'm stuck between you two, it's too obvious,"
 Luhai said.
 
-Sion faltered, and Seorin narrowed her eyes at once.
+Sion froze for an instant, and Seorin narrowed her eyes straight away.
 
-"Are you insane."
+"You out of your mind?"
 
-Luhai smiled.
+Luhai laughed.
 
-"If not, never mind."
-He said, stepping back.
-"The water seller alley over there's faster for me anyway. I'll loop around and catch up."
+"Fine, if not,"
+he said, backing off.
+"Anyway, I'm quicker in the water sellers' alley over there. I'll do a lap and catch back up."
 
-The words sounded like a joke, but he did not bolt. If anything, he deliberately kept it light to make his exit less awkward for the two left behind.
+He said it like a joke, but he did not slip away as if fleeing. If anything, he had passed it off lightly on purpose, so that the gap he left would not feel awkward.
 
 Seorin clicked her tongue.
 
-"Only sharp where it doesn't matter."
+"Only quick on the uptake about that kind of thing."
 
-Sion did not bother to respond.
+Sion kept his mouth shut, for no particular reason.
 
-After Luhai disappeared, the alley air genuinely changed a little.
-
-Nothing had happened, yet a different kind of silence settled—unlike what had been there before.
+Once Luhai was gone, the air in the alley really did change a little. Nothing had happened, yet a silence settled that was different from before.
 
 Sion and Seorin walked side by side.
 
-Walking close was something they had always been used to. They had run together many times. Passed through the same ports. Watched the same people with the same wariness.
+Walking close together was nothing new. They had run together often, gone through the same ports, kept watch on the same people.
 
-But right now, each footstep, each brush of a collar at that distance, each stretch of not speaking—all felt more vivid than before.
+But now a single footstep,
+the distance at which a collar brushed,
+the time they spent not speaking, all came through more sharply than before.
 
-Things that had always been there, passed over because they were too familiar, were becoming sharper beneath the evening light.
+A feeling that the things he had always walked past because they were familiar were growing sharper, if anything, under the evening light.
 
 Seorin spoke first.
 
-"That face again."
+"There's that face again."
 
-Sion asked without looking sideways.
+Without looking to the side, Sion asked.
 
 "What face."
 
-"The one that's dying to follow something it sees, but pretends it doesn't notice."
+"The one where you see something and you're dying to go after it, but you're trying not to let on."
 
-Sion nearly smirked at that.
+Sion almost snorted at that.
 
-"I have a face like that?"
+"I've got a face like that?"
 
-"You do."
+"You do,"
 Seorin said.
 "Since way back."
 
 Since way back.
 
-Those short words lingered strangely long.
+That short phrase stayed with him oddly long.
 
-Only then did Sion look at her once.
+Only then did Sion look at her.
 
-Seorin was walking, eyes ahead. The indifferent face she always wore. But that indifference seemed to say, more than anything, just how long she had been watching all these expressions from beside him.
+Seorin was walking with her eyes ahead. The same indifferent face as always. But that indifference seemed, if anything, to say all the better how long she had been beside him, watching every one of those faces.
 
-On one side of the alley sat a small shop made of thin cloth layered several times over. Each time the wind grazed it, glass fragments and metal threads between the layers swayed very faintly. Inside hung thin heat-dissipation cords for the wrist, scraps of heat-blocking cloth, water pouch covers, and small accessories that looked useless at first glance but carried the worn marks of being carried for a long time.
+On one side of the alley stood a small shop made from thin cloth laid in many layers. Each time the wind brushed it, bits of glass and metal thread stirred very faintly between the layers. Inside hung thin heat-shedding cords to tie around the wrist, scraps of heat-shield cloth, covers for water pouches, and small trinkets that looked useless at a glance but carried the wear of being carried a long time.
 
-Seorin paused her stride for a moment.
+Seorin stopped for a moment.
 
-Sion found that unexpected and looked at her.
+That was unexpected, and Sion looked at her.
 
-"Why."
-He asked.
+"Why,"
+he asked.
 
-"No reason."
-Seorin answered vaguely.
-"These things don't break easy."
+"No reason,"
+Seorin answered, offhand.
+"These don't break easily."
 
-She said it that way, but Sion felt her gaze was not simply pricing the goods.
+That was what she said, but Sion felt her eyes were not just on the price of the goods.
 
-Things that lasted long. Things that did not snap easily. Things that stayed in the hand.
+Things that last long. Things that do not easily snap. Things that stay a long time in the hand.
 
-Seorin had always been the kind of person who noticed those things faster.
+Seorin had always been someone who spotted things like that faster.
 
-The shop owner glanced at the two of them, then immediately hung a merchant's smile.
+The shopkeeper was working with his hands where he sat. He had a bundle of cord on his knee and was cutting the sound parts out of old pieces and joining them with new knots. His fingertips were thick and his nails short. On the inside of his right index finger, the place where the thread ran had been pressed so long it had hardened white.
 
-"Pick together and it lasts longer."
-He said.
-"The goods in this alley are good for that sort of thing."
+He glanced at the two of them, then at once put on a merchant's smile.
 
-Sion turned his head immediately. Seorin answered with ice.
+"Two people choosing together, it lasts,"
+he said.
+"The goods in this alley suit that sort of thing."
 
-"Don't pitch your lines at just anyone."
+Sion turned his head away at once, and Seorin answered very coldly.
 
-The shop owner was not fazed at all.
+"Don't hang that line on just anybody."
 
-"Didn't pitch to just anyone."
-He said evenly.
-"This sort of thing—the eyes speak first."
+The shopkeeper did not bend at all.
 
-Sion found the words grating for no reason and shut his mouth tighter.
+"I did not hang it on just anybody,"
+he said calmly.
+"With this sort of thing, the eyes tell you first."
 
-Seorin stared at the merchant for a long moment, then rather than avoiding it, stepped one pace further inside.
+That grated on Sion for no reason, and he kept his mouth shut all the more.
 
-She picked up one thin heat-dissipation cord of the simplest shape. No glittering decoration. The color was nearly dead. But the knot section looked strangely solid.
+Seorin looked at the merchant a long while, then, instead of backing off, stepped one pace further in.
 
-"How much."
-She asked.
+And she picked up the plainest thin heat-shedding cord there was. No shiny decoration, its color nearly dead, but the knot looked strangely solid.
 
-The merchant named a price. Seorin scoffed immediately.
+"How much,"
+she asked.
 
-"Even thieves aren't that blatant."
+The merchant named a price, and Seorin snorted at once.
 
-The merchant smiled.
+"Even thieves aren't that open about it."
 
-"A hand that knows."
+The merchant laughed.
 
-Sion listened to that exchange and nearly let a laugh slip without meaning to.
+"That's a hand that knows."
 
-Even haggling, Seorin's personality showed in strange ways. No unnecessary words. Touching only what was needed. Short sentences, but striking precisely at the line the other side could hold.
+He brought the price down a little. Then he turned the cord over and showed them the inside of the knot.
 
-The price came down considerably.
+"Look here. Do you know why you need a wrist cord in Hazran?"
 
-Seorin wound the cord around her hand once, then suddenly held it out toward Sion.
+Seorin did not answer. The merchant went on, untroubled.
+
+"Grab metal bare-handed in the daytime and your hand sticks to it. So you would wear gloves. But wear gloves and your fingertips lose their feel. So people here leave the hand bare and wrap only the wrist. Heat gets in fastest at the wrist."
+
+Hearing that, Sion looked at his own wrist without meaning to. Why it had kept burning ever since he came into Hazran had just been explained.
+
+"So these things do not need to be pretty,"
+the merchant said.
+"Once one snaps, your wrist cooks that day. So in this alley, the thing that looks least likely to sell sells best."
+
+Only then did Seorin give a very short nod. She did not knock the price down any further.
+
+That surprised Sion a little. When Seorin haggled, she stabbed exactly at how far the other side would hold. But just now she had left a spot she could have stabbed, and had not stabbed it.
+
+Seorin wound the cord around her hand to try it, then suddenly held it out to Sion.
 
 "You wear it."
 
@@ -137,33 +151,92 @@ Sion blinked.
 
 "Why me."
 
-"You're always losing things."
+"You lose stuff all the time."
 
-She said it so matter-of-factly that Sion could not argue back immediately.
+She said it so matter-of-factly that Sion could not argue right away.
 
-It was not even wrong. Small tools, binding cords, thin tags—Seorin knew better than anyone that he was the one who tended to drop them.
+It was not wrong, either. Small tools, binding ties, thin tags: Seorin knew better than anyone that he was the one who tended to drop things like that.
 
-When Sion reluctantly took it, Seorin said as though it were nothing.
+When Sion took it, reluctantly, Seorin spoke as if it were nothing much.
 
-"At least hold onto that one for a while."
+"At least hang on to that one for a while."
 
-Those words sounded like they were just about the object. But strangely, Sion felt they did not land on the object alone.
+It sounded like it was only about the thing. But oddly, to Sion it did not sound as if it caught on the thing alone.
 
-The merchant looked between the two of them and smiled, very thin.
+The merchant looked from one to the other, and this time he added nothing. He lowered his hands to the bundle of cord on his knee instead and went on with the knot he had been making.
 
-"See."
-He murmured.
-"Told you it wasn't pitched at just anyone."
+Sion watched those hands for a moment. The thick fingertips were repeating the same motion, wind the thread twice and pull once, in exactly the same beat. These were hands making things to sell not today but tomorrow and the day after.
 
-Seorin did not even respond this time. Instead, she looked once at the cord in Sion's hand, turned, and walked deeper into the alley.
+Sion wound the cord around his wrist. The knot would not tie on the first try. On the second it barely did.
 
-Sion stood there for a moment.
+Then he looked at Seorin's wrist.
 
-The thin cord in his hand was nothing special. Not expensive. Not rare. Not something whose absence would cause immediate crisis.
+It was bare.
 
-But strangely, he felt that single small cord would stay with him longer than the entire evening bazaar.
+"What about you,"
+he said.
 
-Like a distance that had always been there—only now becoming visible.
+Seorin answered without even looking his way.
+
+"What about me."
+
+"Your wrist cooks too."
+
+"I don't lose things."
+
+"That's not what I meant."
+
+Only then did Seorin look at Sion. Her expression did not change, but her answer came half a beat late.
+
+"Buy two for the price of one and that isn't haggling, it's pity,"
+she said.
+"Did you see that man's hands? He can't make many in a day."
+
+Sion knew that answer was about half the real reason. And he knew the other half would not come out even if he asked.
+
+So he went another way. He turned toward the merchant and asked.
+
+"The parts you cut away just now. What do you do with them?"
+
+The merchant's hands stopped.
+
+"I use only the sound parts and throw away the rest."
+
+"Then please let me have one at the throwaway price."
+
+The merchant looked at Sion for a moment. Then he picked one short scrap out of the bundle on his knee and held it out. All its color was gone and it was short, too; once it had gone around a wrist there would barely be enough left to tie a knot.
+
+"This will last half a year. Past that, I cannot promise."
+
+"Half a year is enough."
+
+Sion took it and held it out to Seorin.
+
+Seorin looked at it a long time. Then she took it.
+
+"Cheap thing."
+
+"Yeah."
+
+"Then fine."
+
+She did not wind it on there and then but put it in her pocket. Instead, seeing that the knot on Sion's wrist was loose, she caught the end with one hand and pulled it once more.
+
+"If you don't do it like this, it comes undone in a day."
+
+Then she turned and walked on, deeper into the alley.
+
+Sion stood where he was for a moment.
+
+The thin cord on his wrist was nothing much. Not expensive, not rare, not something whose absence would be a disaster right away.
+
+No, one of those was wrong. He had just heard that without it, a wrist cooked.
+
+And in Seorin's pocket there was one that would last half a year.
+
+Strangely, he had a feeling those two would stay with him longer than this whole evening's Bazaar.
+
+Like a distance that had always been there and was only now coming into view.
 
 ---
 

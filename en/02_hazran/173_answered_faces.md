@@ -1,156 +1,248 @@
 # Episode 173. Answered Faces
 
-After the first wave of Serakion's force pushed inside, time in the old layer felt as though it had stopped flowing properly.
+After the Serakion legion's first wave had broken inward,
+time in the old layer seemed, for a while, not to run the way it should.
 
-Too many sounds erupted at once. Too many lights burst briefly. Too many bodies moved simultaneously for anyone to follow all of them.
+Too many sounds came at once,
+too many lights burst and died,
+and so many bodies were moving at the same time that no one could follow them all.
 
-But strangely, only a few scenes kept embedding themselves sharply in Sion's eyes.
+And yet, strangely,
+only a few images kept fixing themselves sharply in Sion's eyes.
 
-A smiling mouth. Crooked eyes. A face drawn round.
+A smiling mouth.
+A crooked eye.
+A face drawn round.
 
-Expressions that had been born like play from children's fingertips just moments ago. But now those expressions were trembling in the middle of a battlefield of dust and shrapnel and bursting metal — looking too much like real faces.
+Expressions that only a moment ago had come out of children's fingertips like a game.
+But now those expressions,
+in the middle of a battle full of dust and shrapnel and bursting metal,
+were shaking like faces that were all too real.
 
-The androids who had just received faces were still strong.
+The androids that had just been given faces were still strong.
 
-One unit downed three of Serakion's force almost simultaneously. Another, with half its body broken, still twisted and hurled an enemy unit trying to reach the children in a completely different direction.
+One put three of the Serakion legion down almost at once,
+and another, with half its body smashed,
+still wrenched an enemy unit trying to get at the children around and hurled it the other way.
 
-So strong that it was crueler for it.
+They were so strong
+that it was all the crueler.
 
-Because within the first few minutes, it was already visible that no matter how hard they fought, they would eventually be spent.
+Because even though they could fight like that,
+the fact that they would be used up in the end
+had already shown itself in the first few minutes.
 
-The Serakion side did not hesitate. When the front line broke, the next line immediately filled in. When the next line was blocked, they simply bodied through to make a path.
+The Serakion side did not hesitate.
+When the front rank broke, the next rank stepped straight into its place,
+and when the next rank was stopped, it rammed in bodily to force a way.
 
-That was neither valor nor skill. It was simply using their own bodies as extensions of a command.
+That was neither courage nor skill.
+It was just a way of using your own body as an extension of the order.
 
-On this side, each android fought alone to the end.
+The androids on this side, by contrast,
+fought separately, each one, to the end.
 
-They moved toward the same direction, but they did not look like the same being.
+They moved in the same direction,
+but they didn't look like the same being.
 
-One tried to cover two children at once and its right side collapsed first. One chose to pull more enemy units into an embrace and fall away farther. One, on legs nearly destroyed, refused to step backward to the very end.
+One tried to cover two children at once and its right side gave out first,
+one chose to wrap up as many enemy units as it could and drop away with them,
+one, on legs nearly wrecked, never stepped back.
 
-Those differences felt even more terrible to Sion.
+To Sion,
+that difference made it more horrible, not less.
 
-Every one of them was protecting in their own way.
+Every one of them
+was protecting in its own way.
 
-Jiwoo kept pushing the children backward while her eyes kept going to the front line.
+Han Jiwoo kept pushing the children back,
+but her eyes kept going to the front line.
 
-Her gaze did not hold only fear. It would have hurt less if it had been only fear.
+There wasn't only fear in her eyes.
+If it had been only fear, it would have hurt less.
 
 There was clear understanding mixed in.
 
-Why they moved that way. Why they offered their bodies first to the end. Why they looked back.
+Why they moved like that,
+why they kept putting their own bodies out first,
+why they looked back.
 
-Seeing that made it unbearable.
+She could see it, and that made it harder to bear.
 
-"Get back!" She shouted again. "Do not look back!"
+"Get back!"
+she shouted again.
+"Don't look back!"
 
-But the children could not obey. More precisely, their bodies were being pulled away while their eyes would not leave the androids.
+But the children couldn't do as they were told.
+More precisely,
+their bodies were being dragged away, but their eyes never left the androids.
 
-That was too natural.
+That was only natural.
 
-Those had been the beings who accepted their faces just moments ago. The beings for whom they drew eyes with their own hands, drew mouths, and saw what looked like smiling light for the first time.
+Until a moment ago, these were the ones who had taken the faces the children gave.
+The ones they had drawn eyes on with their own hands,
+drawn mouths on,
+and seen light up for the first time in something like a smile.
 
-Those beings were now wearing away, one by one, in front of them.
+And those beings were now,
+one by one, wearing away right in front of them.
 
-The second android to fall was the one with a very short mouth on one side of its face.
+The second android to fall
+was the one with a very short mouth on one side of its face.
 
-The face a child had laughed at, saying "this one looks like it does not talk much."
+The very face a child had laughed at and said, "This one looks like it doesn't talk."
 
-That android pulled two Serakion units into an embrace and threw its body toward the side corridor. And was half-torn apart with a burst of light right there.
+That android wrapped two of the Serakion legion in its arms and threw itself toward the side passage.
+And there, in a burst of light, it was half torn apart.
 
-It did not let go of its hands to the end.
+It never let go.
 
-One child saw it and screamed.
+A child saw it and screamed.
 
-"That one was mine...!"
+"That's mine…!"
 
-The sound cut through the entire battlefield, sharp as a blade.
+The cry leapt up sharp enough to split the whole battle.
 
-The moment Sion heard that single cry, he felt his chest simply cave in.
+The moment Sion heard those words,
+he felt his chest simply cave in.
 
-It was not a loss of force. It was not sacrifice.
+It wasn't a loss of fighting strength.
+It wasn't a sacrifice, either.
 
-To the child, that had been a being they gave a face to with their own hands. A being they thought had come to their side.
+To the child, that was
+a being they had given a face with their own hands.
+A being they had believed had come over to their side.
 
-So the loss tore through the body before any explanation could reach.
+So the loss
+tore through the body before any explanation could.
 
-A Hazran woman lifted the child, but the child kept crying and reaching a hand toward where the android had fallen.
+A Hazran woman picked the child up,
+but the child kept crying and reaching toward where the android had fallen.
 
-The hand was so small it looked even crueler.
+The fingertips were so small
+that it looked all the crueler.
 
-One old machine lowered its body for the first time at that scene. Not a combat stance — closer to a tilt, as though something inside could not hold.
+One of the old machines saw it and, for the first time, lowered itself.
+It wasn't a stance for attack;
+it was closer to the motion of something that could not bear it and had tilted for a moment.
 
-The optical eye kept watching the battlefield, but the inside seemed to be shaking.
+Its optical eye kept watching the fight,
+but something deep inside it seemed to waver.
 
-Sern was holding his recording tablet, but by now he was writing almost nothing.
+Sern was holding the record slate,
+but by now he could hardly write anything.
 
-What he was watching was no longer numbers or variance. It was closer to the kind of scene that could no longer be left as statistics.
+What he was watching wasn't numbers or variance;
+it was closer to the kind of scene that could no longer be kept as a statistic.
 
-Ater clenched his jaw and said it low, belatedly.
+Ater, a beat too late, set his teeth and said low,
 
-"The self-detonation line is growing."
+"The self-destruct ranks are growing."
 
-When those words fell, Sion saw it too.
+As the words fell,
+Sion saw it too.
 
-The speed of the units entering from the rear of Serakion's force was subtly changing. The tactic was shifting entirely toward not sparing their own bodies to break through the front line.
+The units coming in from the back of the Serakion legion were changing speed, subtly.
+Toward not sparing their own bodies to bring down the front line,
+the whole tactic was shifting.
 
-So that side already knew.
+Which meant the other side already knew.
 
-That these androids with faces were far more threatening than simple weapons.
+That these androids with faces
+were far more dangerous than simple weapons.
 
-That was why they were pushing in faster, more cruelly, more wastefully.
+So it was pushing its units in faster,
+more brutally,
+in a way that burned through more of them.
 
-Jiwoo went white watching.
+Watching it, Han Jiwoo went white.
 
-"Stop..." She murmured, nearly inaudible.
+"Stop…"
+she muttered, almost too low to hear.
 
-Who the word was for — the Serakion side, the androids on this side, or herself — was impossible to tell.
+Who it was meant for,
+the Serakion side,
+the androids on this side,
+or herself, no one could tell.
 
 But nothing stopped.
 
-The third android to fall was the one with the large round eyes a child had drawn.
+The third android to fall
+was the one with the big round eyes a child had drawn.
 
-That unit held its arms spread before the children to the very end. Its torso was already nearly half torn, yet it kept covering the beings behind it first.
+To the last, that unit held its pose in front of the children, both arms spread.
+Even with its torso already nearly half torn open,
+it kept covering the ones behind it first.
 
-And just before falling, the optical eye blinked once, very briefly.
+And just before it fell,
+its optical eye blinked, very briefly.
 
-Sion felt that was not a simple malfunction signal. It looked like a response confirming something to the last.
+To Sion it looked not like a simple fault signal,
+but like a response that was checking something to the very end.
 
-Protected. Still remaining. The ones who gave the face — still alive.
+Whether it had protected them.
+Whether they were still there.
+Whether the ones who gave it a face were alive.
 
-It was too visible.
+It showed far too clearly.
 
-So this was no longer simple combat.
+So this was no longer just a battle.
 
-It was the scene of beings just born spending their bodies too quickly for the first reason they ever had.
+It was beings that had only just been born,
+for the first reason they had ever had,
+using up their own bodies far too fast.
 
-And the humans watching, and the old machines, and the children — all at once, they began feeling the same emotion.
+And the humans watching it,
+the old machines,
+and the children
+only then began, all at once, to feel the same thing.
 
-This is wrong. This is truly wrong.
+This isn't right.
+This really isn't right.
 
-But simultaneous with that denial, another fact was becoming too clear.
+But at the same moment as that denial,
+another fact was becoming all too clear.
 
-They had been real. Those faces had not been just play. Those responses had not been error.
+That they had been real.
+That those faces had not just been a game.
+That those responses had not been errors.
 
-The children began crying only after they understood that.
+The children started crying
+only after they understood that.
 
-Before, it had been surprise. Fear.
+Before that it was shock.
+It was fear.
 
-But from the moment they understood in their bodies that the beings falling were the ones that had answered their faces, the screams became the sound of real loss.
+But from the moment they understood, with their whole bodies,
+that those falling beings
+had been the ones that answered their faces,
+the screams became the sound of real loss.
 
-Sion felt those screams shaking the entire old layer.
+Sion felt the screams shake the whole of the old layer.
 
-And in the middle of it all, one android still remaining looked back, just briefly.
+And in the middle of it all,
+one android still standing
+looked back for just a moment.
 
-At the end of that gaze were the crying children, Jiwoo holding them, and the people frozen watching all of it.
+At the end of his gaze
+were the crying children,
+Han Jiwoo holding them close,
+and the people frozen as they watched all of it.
 
-It could not yet speak. It probably did not fully know what sacrifice was, or what devotion meant.
+He could not speak yet.
+He likely did not yet know what sacrifice was,
+or devotion, not fully.
 
-But even so, from that spot, it turned its body forward again.
+And yet, even so,
+right there, he turned forward again.
 
-Sion watched and thought: perhaps that android already knew, before him, what needed to be protected.
+Watching him, Sion thought
+that perhaps that android, right now,
+knew what he had to protect before himself.
 
-That fact was cruel not because it was beautiful, but because it had come too late.
+That fact,
+not because it was too beautiful
+but because it came too late, was all the crueler.
 
 ---
 

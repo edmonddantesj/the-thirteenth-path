@@ -1,210 +1,281 @@
-# Chapitre 10 — Pas ensemble, mais traqués
+# Chapitre 10 — Vous n'êtes pas venus ensemble
 
-Avant même que la porte soit tout à fait ouverte, l'air de l'intérieur était différent.
+Avant même que la porte ne soit tout à fait ouverte, l'air de l'intérieur était déjà différent.
 
-Vieille odeur de papier, bois légèrement humide, produit de conservation pour les archives, poussière, épices, et par-dessus tout ça, une odeur fraîche de sachet de biscuits qu'on vient d'ouvrir. Un mélange sans ordre apparent — et pourtant, curieusement, pas d'odeur de pourriture. L'odeur propre aux espaces où l'abandonné et le conservé se côtoient : ces endroits qui ont longtemps vécu, sans être tout à fait morts.
+Odeur de vieux papier, de bois humide, de produits de conservation pour archives, de poussière, d'épices, et même, venue d'on ne savait où, celle d'un sachet de biscuits qu'on venait d'ouvrir — tout cela mêlé. Un mélange sans ordre, semblait-il, et pourtant, curieusement, rien qui sente le pourri. C'était l'odeur propre aux espaces où l'abandonné et le conservé se confondent : un lieu qui avait longtemps vécu, sans être encore tout à fait mort.
 
 La porte s'ouvrit plus lentement qu'on ne l'aurait cru.
 
-À l'intérieur, des étagères de rangement montaient presque jusqu'au plafond, serrées les unes contre les autres. De vieilles boîtes d'archives, des caisses scellées, des capsules de stockage endommagées, des coffrets d'effets personnels dont les noms avaient passé, des liasses de papier, de vieilles tablettes électroniques, et toutes sortes d'objets dont on n'aurait su dire s'ils avaient été classés ou non — empilés couche après couche. Ça ressemblait à une salle de dépôt administrative, ou à une maison de prêt sur gage en faillite, ou à une archive qui aurait mal tourné quelque part. En regardant de près, certaines boîtes portaient encore des balises de route effacées, et certaines caisses gardaient figées les traces de tentatives de scellement qui avaient échoué.
+À l'intérieur, des étagères de rangement serrées montaient presque jusqu'au plafond. De vieux boîtiers d'archives, des caisses scellées, des capsules de stockage endommagées, des coffrets d'effets personnels aux noms pâlis, des liasses de papier, de vieilles tablettes électroniques, et toutes sortes de choses dont on n'aurait su dire si leur classement était terminé ou non, empilées couche sur couche. On aurait dit une salle de dépôt administrative, ou un mont-de-piété en faillite, ou une archive qui aurait mal tourné quelque part. En regardant de près, certains boîtiers portaient encore des marques de route effacées, et sur certaines caisses, les traces de scellements ratés avaient durci telles quelles.
 
-Au centre, un étroit bureau. Et derrière ce bureau, Elia Vern.
+Au milieu se trouvait un bureau étroit, et derrière lui était assise Elia Vern.
 
-Elle tenait un sachet de biscuits dans la main.
-On aurait dit qu'elle était en train de grignoter et qu'elle avait levé les yeux vers la porte — et pourtant, chose étrange, son regard n'avait pas vacillé une seule fois depuis le début. Silhouette ronde et familière, chemise décontractée, veste jetée sur les épaules sans façon. À première vue, l'air de rien. Mais indépendamment de cette désinvolture, il était on ne peut plus clair qu'elle était en train de lire les quatre personnes sur le seuil, d'un seul tenant.
+Elle tenait un sachet de biscuits à la main.
+Elle avait l'air de quelqu'un qui s'était interrompu en plein grignotage pour regarder vers la porte, et pourtant, étrangement, son regard, lui, n'avait pas flotté une seconde depuis le début. Une silhouette ronde et bien vivante, une chemise confortable, une veste enfilée n'importe comment. À première vue, elle avait l'air négligée. Mais indépendamment de ce laisser-aller, il était trop évident qu'elle lisait d'un seul coup les quatre personnes plantées devant la porte.
 
-Sion eut une brève pensée intérieure.
+Sion pensa, en lui-même :
 
-Toujours pareil.
+Toujours la même.
 
-Ater, lui, ressentit quelque chose d'entièrement différent.
-L'air de rien — mais le regard, lui, ne dérivait jamais. Avec autant d'objets empilés partout dans la pièce, cette femme était du genre à ne rien manquer. C'était ce qui le dérangeait, justement.
+Ater, lui, ressentit tout autre chose.
+Elle avait l'air négligée, mais son regard ne tournait jamais à vide. Avec autant d'objets entassés partout dans la pièce, cette femme semblait être de celles qui ne laissent rien échapper. C'était justement ce qui était étrange.
 
-Elia ne se leva pas.
-Elle mit un biscuit dans sa bouche et, tout en mâchant, parcourut les quatre visiteurs l'un après l'autre. Sion. Seorin. L'inconnu au manteau sombre. Et le dernier — une ombre qui lisait la situation avant même de parler.
+Elia ne se leva même pas.
+Un biscuit à la bouche, elle parcourut plutôt les quatre visiteurs l'un après l'autre. Sion, Seorin, l'inconnu au manteau noir, et un dernier, comme une ombre qui lisait la situation avant les mots.
 
-Puis elle dit, avec un calme total :
+Puis elle dit, très posément :
 
-« Vous avez mordu gros, cette fois. »
+« Cette fois, vous avez vraiment mordu gros. »
 
-Silence bref.
+Un bref silence.
 
-Elle posa le sachet sur le bureau et ajouta :
+Elle posa le sachet de biscuits sur le bureau et ajouta :
 
-« Vous n'êtes pas venus ensemble. Vous avez été traqués ensemble. »
+« Vous n'êtes pas venus ensemble. C'est ensemble qu'on vous a chassés jusqu'ici. »
 
-Cette phrase fendit une nouvelle fois, finement, la tension qui traînait depuis la cabine du vaisseau.
+À ces mots, la gêne qui les suivait depuis la cabine se fendit encore une fois, finement.
 
-Seorin fut la première à réprimer un sourire.
+Seorin faillit être la première à rire.
 
-« Bien. Tu lis ça dès l'entrée. »
+« Tu lis ça dès qu'on entre. »
 
 Elia haussa les épaules.
 
 « C'est facile.
-Des gens qui viennent ensemble, ça ne se tient pas comme ça devant une porte. »
+Des gens venus ensemble ne se tiennent pas comme ça devant une porte. »
 
-Elle indiqua le seuil d'un coup de menton.
+Elle désigna le seuil du menton.
 
-« L'un est prêt à entrer en premier. Un autre surveille l'endroit où le premier pourrait prendre un coup. Le troisième n'est toujours qu'à moitié convaincu d'avoir quelque chose à faire ici. Et le dernier calcule déjà la sortie avant même d'être entré. »
+« Il y en a un qui est prêt à entrer le premier, une qui surveille l'endroit où il prendra le premier coup, un autre qui n'est encore qu'à moitié convaincu de devoir venir ici, et le dernier qui calcule déjà la sortie avant même d'être entré. »
 
-Le regard de Sern changea, imperceptiblement.
-Ater, lui aussi, se tut.
-Ni l'un ni l'autre n'appréciait que la maîtresse des lieux les ait lus aussi vite.
+Le regard de Sern changea, très imperceptiblement.
+Ater ne dit rien non plus.
+Que la maîtresse des lieux où ils venaient d'entrer les ait lus si vite ne plaisait ni à l'un ni à l'autre.
 
-Sion entra d'un pas à l'intérieur, avec un sourire en coin.
+Sion eut un petit rire et fit un pas à l'intérieur.
 
-« Salut, Elia. »
+« Content de te voir, Elia. »
 
-« C'est moi qui devrais dire ça. »
-Elia répondit sans une hésitation.
-« Chaque fois que tu viens ici, ça ne me fait pas vraiment plaisir. »
+« Ça, c'est à moi de le dire. »
+Elia avait répliqué aussitôt.
+« Et chaque fois que tu viens ici, je n'ai pas souvent de quoi être contente. »
 
-« C'est dur à entendre. »
+« T'es dure. »
 
 « C'est la vérité. »
 
-Seorin referma la porte derrière elle et murmura :
+Seorin murmura en refermant la porte :
 
-« Bien. Aujourd'hui, l'ambiance est presque normale. »
+« L'ambiance la plus normale de la journée. »
 
-Elia eut un bref sourire à ces mots, puis déplaça enfin son regard vers Ater.
-C'était un visage inconnu — et pourtant sa réaction n'était pas celle de la surprise, plutôt celle de quelqu'un qui vient de finir de classer. Un homme du côté fermé. Du côté de l'autorité. Mais qui a déjà été ébranlé, une fois, de l'intérieur.
+Elia en rit, puis tourna enfin les yeux vers Ater.
+Un visage qu'elle voyait pour la première fois, et pourtant son expression tenait moins de la surprise que d'un classement déjà fait. Un homme du côté de ceux qui ferment, du côté du pouvoir, mais quelqu'un qui avait déjà vacillé une fois, de l'intérieur.
 
-« Lui, c'est qui. »
+« Et lui, c'est quoi ? »
 
-La question s'adressait à Sion, mais le ton n'était ni hostile ni tout à fait poli. Juste la mince distance qu'on garde avec quelqu'un qu'on n'a pas encore entièrement classé.
+La question allait à Sion, mais le ton n'était ni tout à fait une provocation ni tout à fait poli. Juste la mince distance qu'on garde avec quelqu'un qu'on n'a pas fini de classer.
 
-Sion inclina légèrement l'épaule.
+Sion pencha l'épaule.
 
 « Pour l'instant, quelqu'un de nécessaire. »
 
-« Ce qui veut dire : quelqu'un d'embêtant. »
+« Autrement dit, quelqu'un d'embêtant. »
 
-« Un peu plus qu'à l'habitude. »
+« Cette fois, pas qu'un peu. »
 
-Elia regarda Ater encore un moment, puis porta les yeux sur Sern.
+Elia regarda encore un moment Ater, puis porta les yeux sur Sern.
 
-« Et l'autre, c'est le plus embêtant accroché au nécessaire. »
+« Et celui-là, c'est le plus embêtant, collé au nécessaire. »
 
-Sern répondit, très bas :
+Sern répondit très bas :
 
-« Précis. »
+« C'est exact. »
 
 « Merci.
-Je suis précise de nature. »
+Je suis toujours exacte. »
 
-Ater avait entendu l'échange sans y entrer.
-Il parcourut encore une fois la pièce du regard. L'espace avait l'air négligé — mais à y regarder de près, rien n'était entassé au hasard. Il y avait une logique de circulation, une logique de distance, un calcul sur ce qu'on gardait à portée de main et ce qu'on reléguait en retrait. Ce que l'Empire aurait appelé désordre n'était que ça : une autre forme d'ordre.
+Ater avait écouté l'échange sans y intervenir.
+Il parcourut plutôt la pièce du regard une fois de plus. L'espace avait l'air négligé, mais en réalité rien n'y était entassé au hasard. Il y avait des passages, des distances, un calcul de ce qu'on laissait à portée de main, et jusqu'où. C'était seulement une manière que l'Empire aurait appelée désordre ; ce n'était pas un espace sans ordre.
 
-Elia ne manqua pas ce regard.
+Un pan de mur, surtout.
 
-« C'est ta première fois ici. »
+Là seulement, les boîtes n'étaient pas couchées mais debout. Tailles différentes, matières différentes, et pourtant l'espacement était partout le même. De quoi y glisser une main. Et sur la face avant de chaque boîte était glissée une feuille, presque toujours vierge.
 
-Ater leva les yeux vers elle.
+Ater fit un demi-pas vers ce mur.
+
+Ce n'était pas vierge. Ce n'était pas non plus quelque chose d'écrit puis d'effacé. C'étaient des cases où rien n'avait jamais été écrit.
+
+« Ça, c'est ce qui n'a pas encore de nom. »
+
+Elia l'avait dit de sa place. Sans même tourner la tête.
+
+« Des choses déposées que personne n'est venu reprendre ? »
+
+« Que personne n'a pu venir reprendre. »
+
+« Y a-t-il une différence ? »
+
+« Une grosse. »
+
+Sion rit. Ce qu'il avait dit lui-même aujourd'hui lui revenait tel quel.
+
+Elia reprit le sachet de biscuits.
+
+« Ce que personne n'est venu reprendre, c'est jeté. Ce que personne n'a pu reprendre, ça reste encore. Tout ce qui est là, c'est le second cas. Alors je ne remplis pas la case du nom. Si je la remplis, c'est moi qui décide. »
+
+Ater relut la phrase une fois de plus, en lui-même.
+
+La Chambre de Reconnaissance impériale faisait exactement l'inverse. Un objet dont le propriétaire n'était pas confirmé était d'abord classé, et le classement devenait son nom. Même si ce nom était faux, l'archive restait. Et c'étaient les choses ainsi nommées qui descendaient à présent jusqu'au dock de Sion.
+
+Ici, ne pas remplir était une politesse.
+
+Elia ne laissa pas échapper ce regard.
+
+« Toi, c'est ta première fois ici. »
+
+Alors seulement Ater la regarda.
 
 « En effet. »
 
 « Ça se voit. »
 
-« C'est si visible. »
+« Cela se voit à ce point ? »
 
-Elia eut un sourire en coin.
+Elia eut un petit rire.
 
 « Oui.
-Tu regardes ça comme un entrepôt — et en même temps, tu ne le vois pas seulement comme un entrepôt. »
+Tu regardes cet endroit comme un entrepôt, et en même temps tu ne le vois pas seulement comme un entrepôt. »
 
-Un instant de silence s'installa après ces mots.
+Après ces mots, un bref silence s'installa.
 
-Sion saisit l'ouverture et sortit le fragment de l'intérieur de son manteau.
-Un fragment de tablette d'archives — brûlé, tranché, évidé. Ce qui avait survécu à l'endroit où l'Archiviste était mort.
+Sion saisit l'ouverture et sortit le fragment de sous sa veste.
+Un fragment de tablette d'archives, brûlé, tranché, évidé. Ce qui avait fini par rester, là où l'Archiviste était mort.
 
-Au moment où le regard d'Elia se posa sur le fragment, l'air de la pièce se tassa, imperceptiblement.
-Ce n'était plus le même regard. C'était celui de quelqu'un qui lit vraiment.
+Au moment où le regard d'Elia se posa sur le fragment, l'air de la pièce s'affaissa imperceptiblement.
+Cette fois, c'étaient les yeux de quelqu'un qui lisait vraiment.
 
-Elle tendit la main — sans saisir, pas encore.
+Elle tendit la main, sans le prendre tout de suite.
 
-« Tu en as vu combien. »
+« Tu en as vu jusqu'où ? »
 
-Sion répondit court :
+Sion répondit.
 
-« Jusqu'aux noms. »
+« Jusqu'au nom. »
 
 Le regard d'Elia se fit un peu plus profond.
 
 « Bien.
-Alors vous êtes tous les quatre dans l'affaire jusqu'au nom, maintenant. »
+Alors maintenant, vous avez tous votre nom en jeu. »
 
-Seorin, les bras croisés :
+Seorin dit, les bras croisés :
 
-« C'est justement pour ça qu'on est là. »
+« C'est justement pour ça qu'on est venus. »
 
-« Je sais. »
-Elia répondit sans affect.
-« Je vous ai vus depuis la porte. »
+« Je l'ai vu. »
+La réponse d'Elia fut sèche.
+« Dès la porte. »
 
-Elle prit le fragment, enfin.
-Ses mains n'étaient ni précautionneuses ni brutales. La distance propre à quelqu'un qui a longtemps manipulé ce genre de chose. Sans surenchérir sur la valeur de l'objet. Sans le traiter à la légère non plus.
+Alors seulement elle prit le fragment.
+Son geste n'était ni précautionneux ni brutal. La distance propre à quelqu'un qui manipulait ce genre de choses depuis longtemps. Sans le tenir pour trop précieux, sans le traiter n'importe comment.
 
-Elle retourna le fragment, l'inclina vers la lumière, gratta légèrement la section tranchée avec l'ongle. Puis elle murmura, très bas :
+Elia retourna le fragment, l'exposa à la lumière, gratta légèrement de l'ongle la section tranchée, puis murmura très bas :
 
-« C'est… »
+« Ça… »
 
-Sion retint sa respiration sans s'en rendre compte.
-Seorin se tut.
-Sern observait les doigts d'Elia. Ater, plus silencieux encore, regardait son visage.
+Sion retint son souffle sans s'en rendre compte.
+Seorin non plus ne disait rien.
+Sern regardait le bout des doigts d'Elia, et Ater, plus silencieux encore, regardait son visage.
 
-Elia, les yeux toujours fixés sur le fragment, dit :
+Sans quitter le fragment des yeux, Elia dit :
 
-« Ce n'est pas quelqu'un qui a effacé. C'est quelqu'un qui n'a pas eu le temps d'effacer complètement. »
+« Ce n'est pas quelqu'un qui l'a effacé. C'est quelqu'un qui n'a pas réussi à tout effacer. »
 
-À ces seuls mots, le grain du fragment qu'ils portaient depuis tout ce temps changea entièrement de nature.
+Ces seuls mots changèrent entièrement la texture du fragment qu'ils n'avaient fait jusque-là que tenir entre leurs mains.
 
 Sion demanda, très lentement :
 
 « Tu vois quelque chose ? »
 
-Au lieu de répondre, Elia inclina de nouveau le fragment vers la lumière.
-Le bord calciné. La section évidée. L'éclat de nom qui restait. Et en dessous, une ligne, faible, qui subsistait encore.
+Pour toute réponse, Elia inclina de nouveau le fragment vers la lumière.
+Le bord mort sous le feu, la section évidée, l'éclat de nom qui restait, et en dessous une ligne, faible, qui subsistait.
 
-« Ce qui frappe d'abord, c'est le nom qui reste. »
-Elle dit ça, bas.
+« C'est le nom resté qui saute aux yeux en premier. »
+Elle l'avait dit à voix basse.
 « Mais ce qui est vraiment étrange, ce n'est pas ça. »
 
-Ater s'approcha d'un pas — le premier pas qu'il faisait vers elle.
+Ater, pour la première fois, fit un pas de plus vers elle.
 
-Elia, sans lui accorder la moindre attention, tapota du bout de l'ongle la section tranchée en bas du fragment.
+Sans prêter attention à ce mouvement non plus, Elia tapota du bout du doigt la partie tranchée, en bas du fragment.
 
 « Là. »
 
-Silence bref.
+Un bref silence.
 
-Puis elle dit, avec le même calme total :
+Puis elle dit, très posément :
 
 « Ce qui est mort avant le nom, c'est l'ordre. »
 
-À l'instant où ces mots tombèrent,
-les quatre sentirent confusément qu'ils venaient de franchir un seuil entièrement différent de celui d'avant.
+Ce fut Sern qui réagit le premier.
 
-Elia, les yeux encore fixés sur le fragment, ajouta :
+« Si l'ordre meurt, le verdict change. »
 
-« Le jugement est là — mais tout ce qui hésitait avant et après, ça a été évidé. »
-Elle gratta une nouvelle fois la section tranchée.
-« Ce n'est pas un fragment qui s'est brisé par accident. C'est plus proche de quelqu'un qui a délibérément séparé ce qui ne devait pas passer en entier. »
+À ces mots, trois regards dans la pièce se tournèrent vers lui en même temps. C'était une phrase de la dernière voix de l'Archiviste ; Sern l'avait entendue une seule fois, et l'avait gardée telle quelle.
 
-Dans la pièce, plus personne ne parla pendant un long moment.
-Et maintenant, tous le savaient.
-Ce n'était pas l'affaire d'un seul Archiviste mort, ni celle d'un seul nom effacé.
+Elia releva la tête pour la première fois.
 
-Elia, le bout des doigts posé sur le fragment, parcourut les quatre visiteurs l'un après l'autre.
-Un silence d'une autre nature que tout à l'heure.
-Personne n'avait encore prononcé la question suivante —
-mais chacun savait que quelqu'un finirait par la poser.
+« L'Archiviste mort a dit ça ? »
 
-Et à cet instant,
-retrouver un nom effacé
-commença pour la première fois à ressembler vraiment
-à toucher un autre monde.
+« Oui. Coupé deux fois, mais dans cet ordre-là. »
+
+Elia resta un moment sans rien dire. La main qui tenait le sachet de biscuits s'était arrêtée au-dessus du bureau, et dans cette posture, elle ne ressemblait plus du tout à celle qui, tout à l'heure, avait lu les quatre d'un seul coup devant la porte.
+
+« …Alors il est mort en sachant. »
+
+« Que voulez-vous dire ? »
+
+« Qu'il savait ce qu'il tenait. »
+
+Elia baissa de nouveau les yeux sur le fragment.
+
+« Ça a été brûlé en plusieurs fois. Celui qui brûle sans savoir brûle à la hâte ; celui qui sait brûle en plusieurs fois. Ça me travaillait depuis tout à l'heure, maintenant je comprends. »
+
+Sans quitter le fragment des yeux, Elia ajouta :
+
+« Le verdict est resté, mais toutes les hésitations d'avant et d'après ont été évidées. »
+Elle gratta encore une fois de l'ongle la section tranchée.
+« Ce n'est pas juste un éclat qui s'est cassé. Ça ressemble plutôt à quelqu'un qui a délibérément laissé en morceaux ce qui ne devait pas passer d'un seul bloc. »
+
+Dans la pièce, personne ne dit rien pendant un long moment.
+
+Le bout des doigts posé sur le fragment, Elia parcourut du regard les quatre visiteurs, l'un après l'autre. Ce n'étaient plus les yeux qui les avaient lus devant la porte. Cette fois, ils ne lisaient rien : ils choisissaient s'il fallait poser une question ou non.
+
+Ce fut Ater qui parla le premier.
+
+« J'aimerais vérifier une chose. »
+
+« Vas-y. »
+
+« Si l'on a laissé le texte du verdict et évidé seulement l'ordre d'avant et d'après, ce n'est pas qu'on voulait effacer le verdict. »
+
+« Exact. »
+
+« C'est qu'on voulait le garder. Tout en empêchant de voir autre chose. »
+
+Elia le regarda longuement.
+
+« Tu disais que c'était ta première fois. »
+
+« C'est ma première fois. »
+
+« Alors pourquoi tu poses déjà cette question ? »
+
+Ater ne répondit pas. Pour répondre, il aurait d'abord fallu dire quels dossiers il avait clos à la Chambre de Reconnaissance, et combien de fois.
+
+Elia posa le fragment sur le bureau. Une main bien plus prudente que lorsqu'elle avait posé le sachet de biscuits, tout à l'heure.
+
+« Alors, la question suivante, qui d'entre vous la pose ? »
+
+Personne.
 
 ---
 

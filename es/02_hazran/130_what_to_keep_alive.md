@@ -53,7 +53,7 @@ Han Jiwoo lo miró y murmuró bajo.
 
 Una mujer humana que estaba cerca respondió.
 
-—Sí dolemos.
+—Sí nos duele.
 
 Aquella voz era seca,
 pero, extrañamente, más exacta.
@@ -116,7 +116,7 @@ Luhai endureció el gesto de inmediato.
 Esta vez la reacción fue tan rápida
 que un humano cercano soltó un soplo brevísimo.
 Más que risa,
-era una reacción parecida a un «cómo no, lo primero que dice».
+era una reacción parecida a un *cómo no, lo primero que dice*.
 
 La máquina vieja habló mirando a Luhai.
 

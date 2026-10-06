@@ -29,7 +29,7 @@ Pero los ojos se les iban todo el tiempo hacia los androides.
 
 Han Jiwoo, sin girarse, dijo muy bajo.
 
-—Da miedo, ¿verdad.
+—Da miedo, ¿verdad?
 
 Uno de los niños asintió un poco.
 

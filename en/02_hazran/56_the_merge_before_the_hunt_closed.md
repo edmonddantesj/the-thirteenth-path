@@ -1,93 +1,96 @@
 # Episode 56. The Merge Before the Hunt Closed
 
-The moment they broke out from beneath the dark frame, Jiwoo's skiff and Kael's glider settled onto nearly the same outer line at almost the same time.
+The moment they came out from under the dark frame, Han Jiwoo's skiff and Kael's glider set themselves onto the same outer line almost at once.
 
-Not exactly the same path.
+It was not exactly the same path.
 
-Jiwoo's side, having scraped up from beneath the dead slope, was lower and rougher. Kael's side, descending from the wide detour line, joined a little further out. But the distance between them was now close enough for voices to reach. Two teams that had crossed different zones throughout the race were, for the first time, truly on the same line.
+Han Jiwoo's side was lower and rougher, having scraped its way up from the bottom of the dead slope, and Kael's side had come in a little further out, having come down from the wide bypass. But the distance between them was now close enough for voices to carry. Two teams that had come through different sections during the race were, for the first time, truly on the same line.
 
-Sion felt his breath shorten for no particular reason in that moment.
+In that moment Sion felt his breath go short for no good reason.
 
-Now there were more people. Which meant more roads to live—but also a bigger board.
+Only now were there more of them.
+Which meant,
+more ways to live,
+but also a bigger board.
 
 Kael spoke first.
 
-"Made it."
+"We made it."
 
-Jiwoo answered without looking back.
+Han Jiwoo answered without looking back.
 
-"Barely."
+"Not yet."
 
-Sern was looking farther than the distance between the two teams. Eyes calculating how far down the collapse line from above was descending, which line the dark-red glider was re-joining on, and when the hands from outside the arena would reach this lower line.
+Sern was looking further out than the distance between the two teams. His were eyes calculating how far down the collapse line above would reach, on which line the dark-red glider would close in again, and when the hands outside the arena would reach this lower line.
 
-"Now is the right time to merge."
-He said low.
-"But clustering up immediately slows us down."
+"Now is the right time to join up,"
+he said, low.
+"But if we bunch together right away, we will be slower."
 
 Kael asked shortly.
 
-"Then."
+"Then?"
 
-"Move together, but don't overlap on one line."
+"We go together, but let us not overlap on one line,"
 Sern answered.
-"Jiwoo's team opens ahead. We brace from half a beat outside."
+"Han Jiwoo's pair opens the way ahead, and we brace from half a beat outside."
 
-Jiwoo, hearing that, glanced sideways for the first time.
+Hearing that, Han Jiwoo glanced to the side for the first time.
 
 "Not bad."
 
-Short words. But Sion heard them strangely loud. For Jiwoo to accept someone else's calculation on a board like this meant, at minimum, the line Sern was reading right now was trustworthy.
+It was a short remark. But to Sion that one word sounded strangely loud. On a board like this one, Han Jiwoo taking someone else's calculation on the spot meant, at the very least, that the line Sern was watching right now was one to trust.
 
-Sion wrapped the ember tighter in his hand.
+Sion closed his hand tighter around the ember.
 
-Sern's eyes, Kael's craft, Jiwoo's piloting—all of it was now beginning to move around this single ember. Not as a scoreboard won from the race, but as a formation for getting the hand holding the real thing out alive.
+Sern's eyes, Kael's craft, Han Jiwoo's piloting—all of it had begun to move with this one ember as its reference. Not as a score sheet taken off the race board, but as a formation for getting the hand that held the real thing out alive.
 
-Behind, the dark-red glider was recovering its line.
+Behind them, the dark-red glider was recovering its line again.
 
-Experienced, undeniably. It had lost the flow twice and still had not fully died. One side panel was torn off and the rear rider's shoulder had shaken badly, but the front pilot held the line to the end. Only now it was no longer the leisurely pursuit from the start. The team holding the ember had doubled, and it was the one that had to decide which to tear into first.
+It was seasoned, all right. It had lost the flow twice already and still hadn't died outright. One of the glider's panels had been torn off and the rider behind had been thrown hard by the shoulder once, but the lead pilot held onto the line to the end. Only, it was no longer the one tailing them at its leisure as it had at the start. The teams around the ember had grown to two, and now it was the one that had to decide which to tear into first.
 
-"They'll bite Jiwoo's team first."
-Sern said low.
+"They will bite Han Jiwoo's pair first,"
+Sern said, low.
 
-Kael asked the reason immediately.
+Kael asked why at once.
 
 "Because the ember's there?"
 
-"That, and also."
+"That is part of it,"
 Sern answered.
-"Our glider is more about enduring than seizing, so there's less payoff in smashing us right now."
+"Our glider is built to hold rather than to snatch, so there is less to savor in breaking it right now."
 
-Kael laughed shortly.
+Kael gave a short laugh.
 
-"You're even calculating payoff."
+"You're weighing taste now?"
 
-"They are."
+"They weigh it."
 
-Before those words finished, the dark-red glider's nose drove deeper from outside to inside. The direction said it would bite the side with the ember first.
+Before he had even finished, the dark-red glider's nose dug in deeper, from outside to inside. It meant to chew through the side with the ember first.
 
-Sion said at once.
+Sion spoke at once.
 
-"Incoming."
+"It's coming."
 
-Jiwoo answered shortly.
+Han Jiwoo's answer was short.
 
-"I see."
+"I see it."
 
-The outer line ahead was still far from clean.
+The outer line ahead was still anything but neat.
 
-The line that had come through the dead slope kept breaking and reconnecting, with metal fragments and vitrified debris from collapses above scattered across patches. They had not fully left the arena, nor were they properly outside—it felt like a line forcibly stitched together at the edge of a Hazran-style board. Not an escape route someone built on purpose, but lines originally left for recovery and maintenance, now being forced to life.
+The line past the dead slope kept breaking off and picking up again, and here and there it was strewn with metal pieces and glassy shards that had fallen from above. They were not fully out of the arena; it was like a line forced together just inside the edge of a Hazran board. It was closer to a line left for recovery and maintenance and forced back into use now than to an escape route anyone had made on purpose.
 
-That was why it read even more like Jiwoo.
+So it read all the more like Han Jiwoo.
 
-Not a good road, but a road everyone else had discarded as not-a-road—wrung for one more use to the end.
+Not the hand that takes the good path, but the hand that uses, one more time and to the end, the path everyone else threw out as no path at all.
 
-"Splits in two ahead."
+"It splits in two up ahead,"
 Sion said.
-"Right is clean—suspicious. Down left is dirty but connected."
+"The right's clean, so it's suspicious. The lower left's dirty, but it goes through."
 
-Jiwoo took the lower left immediately.
+Han Jiwoo bit straight into the lower left.
 
-Almost simultaneously, Sern spoke to Kael.
+Almost at the same moment, Sern spoke to Kael.
 
 "We take the upper right."
 
@@ -95,81 +98,128 @@ Kael asked at once.
 
 "You said it was suspicious."
 
-"That's why we check it."
+"That is why we look at it,"
 Sern answered.
-"Jiwoo's team is carrying. We confirm."
+"Han Jiwoo's pair carries, and we check."
 
-Only then did Kael press the glider's nose upward without argument.
+Only then did Kael press the glider's nose up without a word.
 
 The two teams split once more.
 
-But this time it was not the separation of the race, where they drifted apart. It was a split that shared the same purpose, only dividing roles.
+But this time they had not fallen apart the way they had in the race. It was a split with one purpose, where only the roles were divided.
 
-Sion felt the difference immediately.
+Sion felt the difference at once.
 
-Until now, each team had been enduring its own board. From here, they had become something closer to a two-layered defense line centered on the same real thing.
+Until a moment ago they had been teams each holding out on their own board; from now on they were closer to a two-layer line of defense with the same real thing at its center.
 
-That flow was being read from the stands too.
+Up in the stands, that flow was being read too.
 
-Luhai stared down with a face near madness. Seorin traced the angle of the two teams' split with her gaze instead of words. Ater was looking farther still, at which line the hands from outside the arena would descend on.
+Luhai stared down with a face like he was about to lose his mind, and Seorin, instead of speaking, followed with her eyes the angle at which the two teams had split.
+Ater was looking further out than that, at the line where the hands outside the arena would come down on them.
 
-"Look at them splitting."
+"So that's how they split it,"
 Luhai said.
 "This isn't a race at all anymore."
 
-Seorin answered very low.
+Seorin answered, very low.
 
-"Now it's finally a real board."
+"Only now is it a proper board."
 
-Ater understood what she meant.
+Ater thought he knew what she meant.
 
-A race had rules that cut people. But a board recalculated from the point of where the real thing entered. What was moving below had become the latter.
+In a race, the rules cut people.
+But a board starts its count over from where the real thing has gone.
+What was moving down there now had become the latter.
 
-Nasim was still organizing. Harun had grown even quieter. Zahir had not moved to the end. Yet all three now had their gazes fixed on the lower outer line. Not eyes watching a race result—eyes watching how far the one carrying the real thing could go.
+Nasim was still tidying up, and Harun, if anything, had gone quieter. Zahir did not move to the end. And yet all three had their eyes fixed on the lower outer line now. Not eyes watching for the result of a race, but eyes watching how far whoever held the real thing could get.
 
-Aka was the same.
+Aka was different.
 
-Half-hidden in front of Nahira, Aka's eyes seemed to be looking not at Jiwoo's team's hand but at where the two teams would meet again after splitting. Those were not the eyes of a race spectator. They were the eyes of someone who knew what line the hand holding the real thing would ultimately be pushed onto.
+While the three watched the lower outer line, Aka was looking at where the two teams had split. Not the spot where they split, but the empty space that had opened up after they split.
 
-Right then, a short metal burst cracked from the upper-right line Kael's team had climbed onto.
+"Do they meet again there?"
 
-Kael's glider did not stop. But beneath the floor that had looked too clean, a thin plate lifted and scraped past the glider's front. Sern had been right. A suspicious line. Not simply a good road—a maintained line someone had deliberately left for recovery.
+Seorin looked over at Aka.
 
-"Figures."
-Kael said low.
+"Meet where?"
 
-Sern was already looking at the next thing.
+"They split up."
 
-"Not dead."
-He said.
-"But ride this long and we get caught. Drop back down now."
+Aka pointed down. Her fingertip pointed not at where the two craft were, but at the empty line ahead of them.
 
-Kael forced the glider to scrape the upper-right line only briefly, then angled to rejoin Jiwoo's team on the lower line.
+"Do they meet again there?"
 
-In that moment, the dark-red glider hesitated briefly over which to bite first.
+Seorin followed the line with her eyes.
 
-Jiwoo's team was carrying the ember. Kael's team had become the outer line shielding it.
+The angle Han Jiwoo's pair was taking and the angle Kael's pair was coming down at overlapped up ahead. Right now neither had got that far, so there was nothing there.
+
+"Looks like they will."
+
+Seorin said it low.
+
+"But they shouldn't meet there."
+
+Hearing that, Ater looked at the same line.
+
+If the two teams overlapped at one point, the hunters would not have to chase them separately. They would only have to block one spot.
+
+"Why shouldn't they?"
+
+Aka asked.
+
+No one answered right away. Not because there was no answer, but because the answer was a bad one.
+
+Just then, a short burst of tearing metal sprang from the upper right line Kael's pair had climbed onto.
+
+Kael's glider did not stop. But beneath the floor that had looked too clean, a thin plate lifted up and scraped once across the glider's front as it passed. It was as Sern had said. It was a suspicious line. Not simply a good path, but a tidied line someone had left for recovery on purpose.
+
+"Thought so,"
+Kael said, low.
+
+Sern was already looking at what came next.
+
+"We are not dead,"
+he said.
+"But if we ride here long, we will be caught. Go back down at once."
+
+Kael forced the glider lower, scraping the upper right line only briefly, and made an angle to drop back down onto the lower line on Han Jiwoo's side.
+
+In that moment, the dark-red glider hesitated briefly over which side to bite first.
+
+Han Jiwoo's pair held the ember, and Kael's pair was becoming the outer line wrapped around that ember.
 
 A structure where neither could be left alone.
 
-Seeing that brief hesitation, Sion drew a slightly larger breath for the first time.
+Seeing that brief hesitation, Sion breathed a little deeper for the first time.
 
-Good. Now they're the ones with the dilemma.
+Good.
+Now they had to think too.
 
-Jiwoo would not miss that moment.
+There was no way Han Jiwoo would miss that moment.
 
-She dug deeper along the dead outer lower line and dropped the skiff one more level. It looked almost like a fall, but Sion knew now. Jiwoo was someone who survived by looking like she was falling. She was the one who turned the angle others saw as collapse into a living surface at the last instant.
+She dug deeper into the dead lower outer line and dropped the skiff down once more. It looked almost like a crash, but Sion knew by now. Han Jiwoo was someone who survived by looking as if she were about to fall. Someone who, at the last moment, turned the angle everyone else saw as collapse into a surface that was alive.
 
-"Hold on."
-She said shortly.
+"Hold on,"
+she said shortly.
 
-Sion, instead of answering, pulled the ember deeper against his chest.
+Instead of answering, Sion hugged the ember in deeper.
 
-Behind, the dark-red glider closed in again. To the side, Kael and Sern's glider was setting its angle to rejoin from below. Above, the hands from outside the arena were catching the escape line's scent more and more.
+Behind them the dark-red glider closed in again,
+beside them Kael and Sern's glider took an angle to rejoin below,
+and above, the hands outside the arena were beginning to catch the scent of the breakaway line more and more.
 
 And Sion knew.
 
-What came next was not a simple merge. From here on, the two teams carrying the real thing had to decide how to run together.
+What came next was not a simple merge.
+From now on, the two teams holding the real thing had to decide how to run together.
+
+Sion looked once at the empty line ahead.
+
+The two craft were set to overlap up there. If they overlapped, they would go together. If they went together, blocking one spot would catch them both.
+
+Sion did not know that someone in the stands had seen it first.
+
+He knew one thing. That it had to be decided before they overlapped.
 
 ---
 

@@ -1,178 +1,162 @@
 # Chapitre 5 — Le seuil et le nom
 
-La passerelle R-12 se dressait comme une route scellée depuis longtemps — faite pour repousser les gens dès le premier pas.
+Comme il sied à une voie fermée depuis longtemps, la passerelle d'accès aux vestiges R-12 était dressée, dès l'abord, pour repousser les gens.
 
-Les balises officielles étaient éteintes depuis belle lurette. À leur place s'accumulaient plusieurs couches de marquages de barrage provisoires. Accès interdit. Structure instable. Risque de contamination des archives résiduelles. N'importe lequel de ces avertissements suffisait à faire rebrousser chemin — mais Sion, lui, avait souvent constaté que plus il y avait de panneaux, plus il fallait regarder à l'intérieur.
+Les balises officielles étaient éteintes depuis longtemps ; à leur place, des marquages de barrage provisoires s'étaient collés en plusieurs couches. Accès interdit, structure instable, risque de contamination des archives résiduelles. N'importe laquelle de ces mentions suffisait à faire rebrousser chemin, mais Sion avait souvent constaté que plus ce genre de panneaux s'accumulait, plus il fallait regarder loin à l'intérieur.
 
-Sur le flanc du verrou, une égratignure récente.
+Les traces sur le loquet extérieur, il les avait déjà lues tout à l'heure. Ce que Sion regardait à présent, c'était ce qu'il y avait derrière.
 
-Pas une porte restée longtemps fermée — une porte que quelqu'un avait forcée depuis peu, puis refermée.
-
-Sion passa le bout des doigts sur le grain du métal, puis s'accroupit aussitôt.
+Quand il se baissa et glissa le bout des doigts dans la rainure, il sentit un second loquet engagé. Bien plus grossier que celui de l'extérieur. Il n'était pas là à l'origine : on l'avait ajouté après coup.
 
 « Le verrouillage extérieur est mort. »
 
 Seorin demanda dans son dos :
 
-« Bonne nouvelle ? »
+« C'est bon signe ? »
 
-« Non. Quelqu'un l'a remis provisoirement de l'intérieur. »
+« Non. Quelqu'un l'a refermé provisoirement de l'intérieur. »
 
-« Super, encore mieux. »
+« C'est encore pire. »
 
-Sion expira brièvement.
+Sion expira.
+À l'intérieur de la rainure du verrou se mêlaient deux éraflures de calibres différents. L'une était la trace d'un outil d'ouverture bon marché, du genre qu'on trouve côté port ; l'autre était bien plus précise. Toutes deux voulaient dire qu'on avait tenté d'ouvrir cette porte. Et l'une des deux, sans aucun doute, était entrée.
+Moins une main venue simplement se cacher qu'une main qui, faute d'avoir pu emporter d'un coup tout ce qui restait à l'intérieur, avait refermé pour tenir.
 
-À l'intérieur de la rainure du verrou se mêlaient deux types d'égratignures de calibres différents. L'une avait la texture d'un outil d'ouverture bas de gamme, du genre qu'on trouve du côté des docks. L'autre était bien plus précise. Toutes deux signifiaient que quelqu'un avait tenté d'ouvrir cette porte. Et l'une des deux, manifestement, y était parvenue.
+Il sortit de sa poche de récupération une fine tige d'accès et l'enfonça dans la rainure du verrou.
+Seorin élargit aussitôt son champ de vision. La rambarde en contrebas, la passerelle de l'étage supérieur, jusqu'à l'objectif de surveillance mort fixé au mur latéral. Tous deux entraient à présent dans la zone où les mots se raréfiaient.
 
-Moins des mains cherchant simplement à se cacher — plutôt des mains qui n'avaient pas pu tout emporter en une seule fois, et avaient refermé pour tenir.
-
-Il sortit de sa poche de récupération une fine tige d'accès et l'inséra dans la rainure du verrou.
-
-Seorin élargit aussitôt son champ de vision alentour. La rambarde en contrebas, la passerelle de jonction à l'étage supérieur, l'objectif de surveillance mort fixé au mur. Tous deux entraient dans une zone où les mots se faisaient rares.
-
-Du métal intérieur remonta une vibration infime au bout des doigts.
-
-Ce qui semblait mort n'avait pas encore tout à fait refroidi.
+Du fond du métal, une vibration infime remonta jusqu'au bout de ses doigts.
+Le circuit qu'il croyait mort n'avait pas encore tout à fait refroidi.
 
 « Et si ça s'ouvre ? »
 
+La question venait de Seorin.
+
 Sion répondit sans lever la tête :
 
-« S'il y a quelqu'un de vivant dedans, on commence par les gens. Sinon, on cherche les archives. »
+« S'il y a quelqu'un de vivant dedans, on s'occupe d'abord de la personne. Sinon, on cherche d'abord les archives. »
 
-« Et si les deux ? »
+« Et s'il y a les deux ? »
 
-« Alors ça devient encore plus embêtant. »
+« Là, ça deviendra encore plus pénible. »
 
-Clic.
+Clac.
 
 Un premier loquet intérieur céda.
-
-Puis, dans un son métallique très bas, la porte s'écarta de deux phalanges. Dans l'interstice s'échappa une odeur de vieille poussière, mêlée à quelque chose d'autre, de familier.
+Puis, avec un son métallique très bas, la porte s'écarta d'environ deux phalanges. Par l'interstice s'échappa, avec l'odeur de vieille poussière, une autre odeur, familière.
 
 Une odeur de brûlé.
 
-Sion et Seorin échangèrent un regard simultané.
+Sion et Seorin échangèrent un regard au même instant.
+C'était de la même famille que l'odeur qu'ils avaient captée tout à l'heure sur l'objet récupéré. Ancienne mais pas tout à fait morte : l'odeur que laisse une trace effacée exprès.
 
-C'était dans la même famille que ce qu'ils avaient perçu sur les objets récupérés tout à l'heure. Vieille, mais pas tout à fait morte — l'odeur que laisse une trace volontairement effacée.
+Au moment où Sion allait pousser la porte davantage, une voix tomba de la rambarde d'en haut.
 
-Au moment où Sion allait pousser la porte un peu plus, une voix tomba de la rambarde du dessus.
-
-« Arrêtez-vous. »
+« Arrêtez-vous là. »
 
 Tous deux levèrent les yeux en même temps.
 
-Deux silhouettes se tenaient à l'extrémité des ombres de la passerelle supérieure.
+Deux hommes se tenaient au bout de l'ombre de la passerelle supérieure.
+Un manteau noir, et un demi-pas derrière lui, l'autre. Les deux qu'ils avaient croisés de loin à la couche d'amarrage étaient venus jusqu'ici. Sion comprit du même coup qu'ils ne s'étaient pas une seule fois égarés en chemin.
 
-L'un était un homme en manteau noir. L'autre, un demi-pas derrière lui, lisait d'abord l'espace environnant. Une démarche qui n'était ni celle des dockers, ni des courtiers, ni des vigiles civils. Trop ordonnée. L'air de gens arrivés ni trop tôt ni trop tard.
+Seorin jura à voix basse.
 
-Seorin jura tout bas.
+« La voilà, l'odeur d'ennuis encore pires. »
 
-« Parfait. Ça sent encore plus les emmerdes. »
-
-Sion garda la main sur la porte et leva les yeux.
+Sion leva les yeux sans ôter la main de la porte.
 
 « C'est pas l'Office des Routes Extérieures de l'Alliance. »
 
-« Je vois aussi. »
+« Ça, je le vois aussi. »
 
-L'homme sur la rambarde supérieure avança d'un pas.
+L'homme à la rambarde supérieure fit un pas en avant.
+Le visage que révéla l'éclairage du port était trop net. Au point de jurer avec l'air de cette ville. Mais c'était exactement dans cette mesure qu'il donnait l'impression d'un homme resté longtemps debout au sein de l'ordre.
 
-À la lumière des docks, son visage était d'une netteté excessive — trop déplacée pour cette ville. Mais c'était précisément ce qui donnait l'impression d'un homme ayant longtemps vécu dans l'ordre.
+Ater Valkar baissa les yeux vers eux et dit :
 
-Ater Valkar regarda en bas et dit :
+« Cette porte relève à présent de la ligne de vérification de la Chambre de Reconnaissance impériale. »
 
-« Cette porte est actuellement sous la ligne de vérification de la Chambre de Reconnaissance impériale. »
+Sion rit à ces mots.
 
-Sion laissa échapper un bref sourire.
+« La ligne de vérification arrive en retard. »
 
-« La ligne de vérification est en retard. »
+Le regard de Sern se planta aussitôt sur lui.
+Le ton était léger, mais l'homme devant la porte avait déjà lu plus de la moitié du verrou. Pas un simple ouvrier de chantier.
 
-Le regard de Sern se porta aussitôt sur lui.
+Ater regarda Sion un instant, puis porta aussi son regard sur Seorin, debout à côté de lui.
+L'un lisait d'abord les traces, l'autre voyait d'abord le point où les gens cèdent. L'impression entrevue de loin ne l'avait pas trompé.
 
-Le ton était léger, mais l'homme devant la porte avait déjà lu plus de la moitié du dispositif de verrouillage. Pas un simple technicien de chantier.
+« Vous êtes de l'Office des Routes Extérieures de l'Alliance ? »
 
-Ater observa Sion un moment, puis déplaça son regard vers Seorin à ses côtés.
+Cette fois, Sion ne répondit pas tout de suite.
+Il regarda tour à tour l'obscurité dans l'entrebâillement de la porte, puis le manteau noir sur la rambarde d'en haut.
 
-L'un lisait les traces en premier, l'autre repérait d'abord les points de rupture chez les gens. Une disposition qui confirmait l'impression entrevue de loin.
+S'il donnait ici son affectation, elle entrerait dans les registres de l'Empire. Un agent de terrain planté sur place avec une demande rejetée à la main, un assistant qui n'existait que sur le papier. Ces deux lignes ne mettraient pas longtemps à remonter jusqu'à l'Office.
 
-« Vous appartenez à l'Office des Routes Extérieures de l'Alliance ? »
-
-Cette fois, Sion ne répondit pas immédiatement.
-
-Il jeta un regard vers l'obscurité dans l'interstice de la porte, puis un autre vers le manteau noir en haut.
-
-« La Chambre de Reconnaissance impériale, alors. »
+« Vous, c'est la Chambre de Reconnaissance impériale, on dirait. »
 
 « Répondez à la question. »
 
 La voix de Sern était basse, mais tranchante.
 
-Seorin s'interposa aussitôt :
+Seorin intervint aussitôt.
 
-« Bien.
-Vous arrivez en retard, vous vous plantez devant la porte et vous commencez par l'interrogatoire. »
+« Super.
+Vous arrivez en retard, et à peine devant la porte, vous commencez par l'interrogatoire. »
 
 Sern la regarda.
-
 Seorin ne détourna pas les yeux.
 
-« Cet endroit est actuellement une zone fermée. »
+« Ce lieu est actuellement une zone fermée. »
 
-« On sait lire aussi. »
+« On sait lire, nous aussi. »
 
-« Et vous tentiez quand même d'entrer. »
+« Et vous avez tout de même voulu entrer, après l'avoir lu ? »
 
-« Vous êtes bien là, vous. »
+« Vous êtes bien venus, vous aussi. »
 
-Bref silence.
+Un bref silence.
 
-En quelques mots échangés, Sion lisait déjà rapidement le grain des deux silhouettes en hauteur.
+Ces quelques mots avaient suffi à Sion pour parcourir rapidement le grain des deux hommes d'en haut.
+Celui qui parlait devant employait la langue de l'autorité. Celui de derrière était plus dangereux encore. Le genre à lire les mouvements avant les ordres. Aucun des deux n'était à sa place dans cette ville, et c'est ce qui les rendait d'autant plus suspects.
 
-Celui qui parlait en face utilisait le langage de l'autorité. Celui de derrière était plus dangereux. Le genre à lire les mouvements avant les ordres. Ni l'un ni l'autre n'était à sa place dans cette ville — ce qui les rendait d'autant plus suspects.
+Ater reprit la parole.
 
-Ater reprit la parole :
+« Des traces de chaleur récentes ont été détectées derrière la porte.
+L'ouvrir sans précaution serait dangereux. »
 
-« Des traces de chaleur récentes ont été détectées à l'intérieur de la porte.
-L'ouvrir sans précaution serait risqué. »
-
-Sion, à ces mots, renifla à nouveau ce qui s'échappait de l'interstice.
-
-Brûlé, vieille poussière, une légère touche d'ozone. Et, très ténue, une chaleur corporelle pas encore tout à fait dissipée.
+À ces mots, Sion capta de nouveau l'odeur qui filtrait par l'entrebâillement.
+Le brûlé, la vieille poussière, une légère touche d'ozone. Et, très ténu, un air semblable à une chaleur de corps pas encore tout à fait retombée.
 
 « Raison de plus pour ouvrir vite. »
 
-Le regard d'Ater se modifia, imperceptiblement.
+Le regard d'Ater changea, très légèrement.
 
-« Sur quelle base. »
+« Sur quelle base dites-vous cela ? »
 
-Sion leva les yeux vers lui, droit dans les siens.
+Cette fois, Sion leva la tête et le regarda droit dans les yeux.
 
-« Quelqu'un était là.
-C'est pas vieux. »
+« Quelqu'un était dedans.
+Et pas il y a longtemps. »
 
-L'air sur la rambarde supérieure s'immobilisa un instant.
+Sur la rambarde d'en haut, l'air s'arrêta un instant.
+Sern réagit avant Ater.
 
-Sern réagit avant Ater :
-
-« Pourquoi ce jugement ? »
+« Pourquoi en jugez-vous ainsi ? »
 
 « L'odeur de brûlé est fraîche.
-La poussière n'est pas seulement morte à l'intérieur — elle a été repoussée une fois vers l'extérieur aussi.
-Et surtout — »
+La poussière, elle, n'est pas juste retombée à l'intérieur : elle a été repoussée encore une fois vers l'extérieur.
+Et surtout— »
 
-Sion s'arrêta une seconde, puis frappa du bout des doigts le bord de la porte.
+Sion s'interrompit un instant, puis tapota le bord de la porte du bout des doigts.
 
-« Quelqu'un a refermé le verrou de l'intérieur.
-Qu'on soit face à quelqu'un en fuite ou quelqu'un qui se cache, ça veut dire qu'il était vivant. »
+« Quelqu'un a reverrouillé de l'intérieur.
+Que ce soit quelqu'un en fuite ou quelqu'un de caché, ça veut dire qu'il était vivant. »
 
-Seorin, intérieurement, avait l'air de penser *bon, c'est reparti* — mais elle ne l'arrêta pas.
+Seorin fit une tête qui disait *c'est reparti*, mais ne l'arrêta pas. Quand il parlait sur ce ton, Sion se trompait rarement.
 
-Quand il parlait sur ce ton, Sion avait rarement tort.
-
-Ater garda les yeux baissés, un instant de silence.
-
-Le raisonnement sur le terrain était juste. Ce qui posait problème, c'était que l'homme qui le formulait était bien trop rapide pour quelqu'un de terrain. Un opérationnel de l'Office des Routes Extérieures pouvait lire des traces — mais là, il travaillait presque à l'odorat.
+Ater, les yeux toujours baissés vers eux, se tut le temps d'une mesure.
+Le jugement de terrain en lui-même était fondé. Le problème, c'était que l'homme qui le formulait était bien trop rapide, même pour quelqu'un de terrain. Un agent de l'Office des Routes Extérieures de l'Alliance pouvait lire des traces, certes. Mais à ce niveau-là, il jugeait presque à l'odeur.
 
 Sern demanda à voix basse :
 
@@ -180,164 +164,173 @@ Sern demanda à voix basse :
 
 Ater répondit sans détourner le regard :
 
-« Je descends. »
+« Nous descendons. »
 
-Seorin plissa les sourcils à ces mots.
+À ces mots, Seorin fronça les sourcils.
 
-« Parfait.
-Maintenant on est quatre à ouvrir gentiment la porte ensemble ? »
+« Et maintenant, on ouvre la porte gentiment à quatre ? »
 
 Sion marmonna :
 
-« Encore moins réjouissant. »
+« Ça, c'est encore pire. »
 
-Il ne fallut pas longtemps à Ater et Sern pour descendre au niveau inférieur.
+Il ne fallut pas longtemps à Ater et à Sern pour arriver au niveau inférieur.
+Vu de près, Ater était un homme encore plus nettement ordonné que vu d'en haut. Manteau noir, gants impeccables, yeux calmes. À l'inverse, Sion paraissait plus débraillé, et Seorin plus tranchante.
 
-Vu de près, Ater était encore plus nettement ordonné que vu d'en haut. Manteau noir, gants impeccables, yeux tranquilles. Sion, à l'inverse, était plus débraillé — et Seorin paraissait plus tranchante.
+On aurait dit des gens de deux mondes opposés, plantés devant la même porte.
 
-Des gens de deux mondes exactement opposés, réunis devant la même porte.
-
-Quand Sern s'approcha le premier pour examiner le dispositif de verrouillage, Sion se décala d'un demi-pas pour lui bloquer le passage.
+Quand Sern s'approcha le premier pour examiner le verrou, Sion se décala d'un pas et demi sur le côté pour lui barrer le passage.
 
 « C'est moi qui regardais ça en premier. »
 
-Le regard de Sern se fit mince.
+Le regard de Sern s'amincit.
 
-« Et c'est pourquoi vous n'avez pas encore réussi à l'ouvrir. »
+« Et c'est pour cela que vous ne l'avez pas encore ouverte ? »
 
-Seorin s'interposa aussitôt.
+Seorin intervint aussitôt.
 
-Elle fit claquer sa langue.
+« On peut l'ouvrir, on ne l'a pas fait. S'il y a quelqu'un dedans, la vitesse à laquelle on ouvre la porte, c'est la vitesse à laquelle on le tue. »
 
-Sion sourit légèrement.
+Sern ne répliqua pas. Il se contenta de regarder de nouveau le verrou. Un loquet était déjà défait.
 
-« C'est ça, les gens bien rangés — ils ont toujours les mots bien propres. »
+Sion eut un petit rire.
 
-Ater observa les deux un moment, puis dit très bas :
+« Les gens bien rangés, ça parle toujours joliment. »
 
-« Pour l'instant, l'intérieur prime sur les mots. »
+Ater les regarda un instant tour à tour, puis dit très bas :
 
-Cette seule phrase détendit légèrement l'air.
+« Pour l'instant, l'intérieur passe avant les mots. »
 
-C'était le langage de l'autorité — mais au moins, le langage d'un homme qui n'avait pas l'intention de prolonger inutilement la dispute.
+Cette seule phrase remit un peu d'ordre dans l'air.
+C'étaient les mots de quelqu'un qui mettait son autorité en avant, mais au moins ceux d'un homme qui n'avait pas l'intention de faire traîner une dispute inutile.
 
-Sion regarda la porte, puis Ater, puis la porte encore.
+Sion regarda un moment la porte, puis Ater, puis de nouveau la porte.
 
-« …D'accord.
-Mais si elle s'ouvre, c'est moi qui évalue l'intérieur en premier. »
+« …J'ouvre.
+Mais c'est moi qui juge l'intérieur en premier. »
 
-Sern allait répliquer, mais Ater prit la parole avant lui :
+Sern s'apprêtait à répliquer aussitôt, mais Ater parla avant lui.
 
-« Accordé.
-En échange, si des archives apparaissent, mon côté les examine aussi. »
+« Très bien.
+En contrepartie, si des archives apparaissent, mon côté les examine aussi. »
 
 Seorin marmonna :
 
-« On se partage déjà le gâteau avant même d'avoir ouvert. »
+« Ça se partage déjà le gâteau. »
 
-Sion fit semblant de ne pas entendre et se retourna vers la porte.
+Sion fit mine de ne pas entendre et se retourna vers la porte.
+Sern, cette fois, recula d'un pas et se plaça de façon à lire les alentours et les présences au-delà de la porte. Étrangement, les quatre étaient réunis pour la première fois, et chacun se tenait déjà là où il devait se tenir.
 
-Sern, cette fois, recula d'un pas et se positionna pour lire les présences alentour et au-delà de la porte. Étrangement, ils étaient réunis pour la première fois — et pourtant chacun se tenait déjà à sa place naturelle.
-
-Sion réintroduisit la tige d'accès profondément dans le verrou.
-
-De l'autre côté, Ater sortit son terminal de poignet et réveilla provisoirement le circuit défaillant. Quand la vieille architecture d'approbation et l'outil d'ouverture de terrain s'emboîtèrent de force, une vibration irritée se propagea dans le dispositif de verrouillage.
+Sion renfonça la tige d'accès profondément dans le verrou.
+Cette fois, de l'autre côté, Ater sortit son terminal de poignet et réveilla provisoirement le circuit agonisant. Quand la vieille structure d'approbation et l'outil d'ouverture de terrain s'emboîtèrent de force, une vibration nerveuse se propagea dans le verrou.
 
 « Vraiment, cette combinaison me plaît pas du tout. »
 
-Seorin murmura.
+Seorin marmonnait entre ses dents.
 
-Sern répondit presque simultanément :
+Sern enchaîna presque en même temps :
 
-« Sentiment partagé. »
+« Je partage cet avis. »
 
-Ils se regardèrent brièvement.
+Ils se regardèrent un instant.
+Ce bref échange de regards suffit à leur apprendre, à l'un comme à l'autre, que l'adversaire n'était pas commode.
 
-Ce seul échange de regards suffit à tous deux à comprendre que l'autre n'était pas à prendre à la légère.
-
-Clic.
-
-Cette fois, deux loquets intérieurs cédèrent ensemble.
+Clac.
+Cette fois, deux loquets intérieurs cédèrent d'un coup.
 
 La porte s'ouvrit lentement.
 
 L'intérieur était plus sombre que prévu.
+Un couloir d'accès effondré, des câbles sectionnés, de vieux étuis à archives éparpillés au sol, et, le long des murs, des traînées de suie noire. Quelqu'un avait tenté ici de brûler des archives, ou les avait brûlées avant de partir, ou les deux.
 
-Un couloir d'accès effondré, des câbles sectionnés, de vieilles boîtes à archives éparpillées sur le sol, et le long des murs des traces de suie noire. Quelqu'un avait cherché ici à brûler des archives, ou les avait brûlées avant de partir — ou les deux.
+Sion fit le premier un pas à l'intérieur.
+La poussière qui touchait la pointe de ses pieds ne semblait pas encore tout à fait retombée.
 
-Sion entra le premier d'un pas.
+Seorin couvrit aussitôt ses arrières, et Ater et Sern entrèrent à leur suite, côte à côte.
 
-La poussière sous ses pieds ne semblait pas encore tout à fait retombée.
-
-Seorin couvrit aussitôt ses arrières, et Ater avec Sern entrèrent à leur suite.
-
-Au fond du couloir, devant la porte entrebâillée de la salle de conservation, quelque chose était affalé contre le mur.
+Tout au fond du couloir, devant la porte entrouverte de la salle de conservation, quelque chose gisait, affaissé au sol.
 
 C'était une personne.
 
-Tous s'arrêtèrent en même temps.
+Tous s'immobilisèrent en même temps.
 
 Sion s'approcha le premier.
-
-Une vieille veste de travail, une épaule où le sang avait séché, une main tenant des éclats de capsule de stockage brisée. Mais la respiration avait cessé. Le visage était à moitié calciné, et aux commissures des lèvres restait un filet de sang séché.
+Une vieille veste de travail, une épaule au sang figé, dans une main les éclats d'une capsule de stockage brisée. Mais il ne respirait plus. Le visage était à moitié noirci, et au coin des lèvres restait un trait de sang séché.
 
 Seorin dit très bas :
 
 « Trop tard. »
 
-Ater, avant même le corps, regarda le sol autour.
+Sion regarda encore une fois l'épaule raidie. Le sang avait séché, noir. La tiédeur qui filtrait par l'entrebâillement ne venait pas de ce corps.
 
-Des traces de traîne, des marques de genoux, la trace d'une tentative ratée de refermer la porte en hâte. Pas une simple scène de meurtre — quelqu'un avait cherché jusqu'au bout à laisser quelque chose.
+« C'est pas lui qui a verrouillé. »
 
-Un endroit où quelqu'un avait emporté, où quelqu'un avait laissé, où quelqu'un avait ensuite tenté d'enfouir ce qui restait.
+Ater regarda le sol autour avant le corps lui-même.
+Des traces de traînée, des marques de genoux, les traces d'une tentative ratée de refermer la porte en hâte. Ce n'était pas une simple scène de meurtre : c'était l'endroit où quelqu'un avait tenté jusqu'au bout de laisser quelque chose.
+C'était aussi un endroit où quelqu'un avait emporté, où quelqu'un avait laissé, et où quelqu'un avait tenté d'enfouir de nouveau ce qui restait.
 
-Sern parcourut du regard l'intérieur de la salle de conservation et dit brièvement :
+Sern parcourut des yeux l'intérieur de la salle de conservation, puis dit :
 
-« Pas encore entièrement vidée. »
+« Elle n'a pas encore été entièrement vidée. »
 
-Sion s'apprêtait à extraire précautionneusement les éclats de capsule de la main du mort quand il s'arrêta.
+Sion s'apprêtait à retirer avec précaution les éclats de capsule de la main du mort quand il s'arrêta.
+Sous les éclats, les doigts étaient pleins de cendre noire.
+Ce n'était pas une main qui avait touché le feu, mais une main qui avait serré jusqu'au bout une archive sur le point de brûler.
 
-Sous les éclats, les doigts étaient couverts d'une épaisse couche de cendres noires.
-
-Pas une main qui avait touché le feu — **une main qui avait tenu jusqu'au bout une archive au bord de se consumer**.
-
-Et sous cette main, sur le sol, un mince fragment de plaque d'archive réfléchissait faiblement la lumière.
+Et sous cette main, un mince fragment de tablette d'archive tombé au sol renvoyait très faiblement la lumière.
 
 Sion le ramassa.
 
-Phrase tronquée, bords calcinés, ligne de signature entaillée.
-
-Mais cette fois, il en restait davantage qu'avant.
+Une phrase tronquée, des bords tués par le feu, une ligne de signature découpée.
+Et cette fois, il en restait plus qu'avant.
 
 Le regard d'Ater tomba lui aussi sur le fragment.
-
 Seorin et Sern retinrent leur souffle en même temps.
 
-Au centre du fragment, entre les flammes et les entailles du couteau,
+Au centre du fragment, entre les flammes et les entailles de lame,
+quelques lettres d'un nom qu'on n'avait pas réussi à effacer tout à fait.
 
-quelques lettres d'un nom qui n'avait pas pu être entièrement effacé.
+**… Jun Aster…**
 
-**… Jun Aste…**
+À cet instant, tout l'air du couloir sembla s'arrêter d'un bloc.
 
-À cet instant, tout l'air du couloir sembla s'arrêter d'un coup.
+Tous les quatre connaissaient ce nom.
 
-Sion resta longtemps les yeux fixés sur le fragment dans sa main, sans un mot.
+L'homme de la septième salle de consultation de la Chambre de Reconnaissance impériale, comme celui qui fouillait les rebuts d'un dock extérieur de l'Alliance, connaissait ce nom. C'était le propre des noms brûlés : personne ne les prononçait, et personne ne les oubliait.
 
-Seorin ne dit rien non plus.
+Seulement, ils ne le connaissaient pas de la même manière.
 
-Sern releva très lentement la tête, et Ater ne put détacher les yeux de ce court fragment de nom.
+Sern regarda d'abord Ater. Son Excellence s'était figé.
 
-Ce nom qu'on croyait effacé
+Puis il regarda les deux autres, ceux d'en bas.
 
-avait resurgi depuis le dernier refuge de l'Archiviste mort
+Et il vit ce qui clochait.
 
-sans avoir pu finir de brûler.
+Jusqu'ici, chaque fois qu'ils trouvaient quelque chose, ces deux-là s'étaient regardés. Devant le verrou. Quand la porte s'était ouverte. Quand ils avaient vu le corps. Brièvement, comme pour vérifier, à chaque fois.
 
-Et à cet instant précis,
+Cette fois, non.
 
-quelque part dans la salle de conservation, un dispositif de conservation automatique émit un son très bas en s'éveillant.
+Sion ne regardait que le fragment. Seorin se tenait la tête à demi tournée vers le mur, ni vers le fragment ni vers le corps. L'écart entre eux s'était creusé d'un demi-pas depuis tout à l'heure, et lequel des deux avait bougé, Sern lui-même ne l'avait pas vu.
 
-Comme si ce n'était pas encore terminé.
+Sern se rappela la ligne apparue ce matin sur le pupitre de consultation.
+
+Composition par peuple : 373.
+
+Ce qu'il y avait derrière ce nombre, les documents de la Chambre de Reconnaissance ne le disaient pas.
+
+« Excellence. »
+
+« Je sais. »
+
+Ater répondit sans quitter le fragment des yeux.
+
+« C'est un nom que nous avons effacé, nous aussi. Et pourtant, ce sont eux qui sont plus silencieux que nous. »
+
+Un nom que l'on croyait effacé,
+depuis la dernière place de l'Archiviste mort,
+était revenu sans avoir fini de brûler.
+
+Quelque part au fond de la salle de conservation, un dispositif de conservation automatique s'éveilla avec un son très bas.
 
 ---
 

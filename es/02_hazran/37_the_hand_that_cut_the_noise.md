@@ -1,229 +1,266 @@
 # Capítulo 37 — La mano que cortaba el ruido
 
-Cuando Harún entró en el callejón, el alboroto que aún quedaba en la capa exterior del mercado no se apagó del todo y, sin embargo, dejó de moverse en torno a este centro.
+Cuando Harún entró en el callejón, el alboroto que quedaba en la capa exterior del mercado no se apagó del todo, pero ya no pudo seguir moviéndose en torno a ese punto.
 
-Alguien todavía respiraba hondo, alguien se tragaba un insulto, alguien murmuraba que el precio se le había escapado, pero todo ese ruido parecía ser empujado fuera del campo de visión de Harún. No caminaba especialmente despacio, ni su paso tenía nada de amenazante a propósito. Simplemente había entrado, y era la clase de mano ante la cual nadie se atrevía a adelantarse el primero.
+Alguien todavía respiraba fuerte, alguien se tragaba un insulto, alguien murmuraba que se le había ido el precio, y todos esos sonidos daban la sensación de quedar empujados fuera del campo de visión de Harún. No caminaba especialmente despacio, ni su paso era amenazante a propósito. Solo había entrado, y era la clase de mano ante la que nadie se atrevía a adelantarse el primero.
 
-Sion lo entendió en el instante en que lo vio.
+Sion lo supo en el instante en que lo vio.
 
-Si Nasim era el rostro que ponía los precios y filtraba los caminos,
-este era la mano que decidía quién podía seguir abriendo la boca aquí y quién tenía que cerrarla.
+Si Nasim era la cara que ponía precios y filtraba caminos, este era la mano que decidía quién podía seguir hablando aquí y quién tenía que cerrar la boca.
 
-Harún se detuvo solo después de dar dos pasos dentro del callejón.
+Harún no se detuvo hasta haber dado dos pasos dentro del callejón.
 
-El brazo que asomaba bajo la tela negra era más bien seco pero firme, y conservaba intactas las marcas de un largo roce con la arena y el calor. La cara no sonreía ni mostraba ira. En cambio, un solo barrido de la mirada bastaba: eran ojos que medían primero cuánto de peligroso era cada uno.
+El brazo que asomaba bajo la tela negra era más bien delgado, pero recio, y conservaba tal cual las marcas de haber sido arañado mucho tiempo por la arena y el calor. La cara no sonreía ni mostraba enfado. En cambio, eran unos ojos que, con solo barrerlos una vez, medían antes que nada quién era peligroso y cuánto.
 
-Su mirada se posó primero en el fragmento que Luhai tenía en la mano.
-Luego en la mano de Kael,
-luego en Sion,
-y por último en Seorin.
+Lo primero en lo que se posó esa mirada fue el fragmento en la mano de Luhai.
+Después, la mano de Kael,
+después, Sion,
+y, por último, Seorin.
 
-Ater incluso había reducido la respiración, esperando las siguientes palabras.
+Ater, conteniendo incluso la respiración, esperó lo que se dijera a continuación.
 
 Harún abrió la boca.
 
 —Suelta.
 
-Una voz breve y baja.
+Era una voz breve y baja.
 
-Kael no aflojó la presión de inmediato.
+Kael no aflojó la mano de inmediato.
 
-—¿A quién? —preguntó.
+—¿A quién?
+Él lo preguntó.
 
-Breve silencio.
+Un breve silencio.
 
-Fuera del callejón, alguien ahogó un aliento. Nasim mantuvo intacto su rostro sonriente, pero los ojos se le bajaron un instante muy breve hacia Kael. No era una conversación divertida: era la clase de comienzo que la gente de la capa exterior de Hazran prefería no ver demasiado tiempo.
+Fuera del callejón, alguien contuvo el aliento sin hacer ruido. Nasim mantuvo intacta la cara sonriente, pero su mirada se posó un instante muy breve en Kael. Aquello no era una conversación divertida, sino la clase de comienzo que la gente de la capa exterior de Hazran preferiría no ver por mucho tiempo.
 
-Harún, en vez de responder, miró una vez la mano de Kael que sujetaba la muñeca de Luhai.
+Harún, en lugar de responder, miró una vez la mano de Kael que sujetaba la muñeca de Luhai.
 
-—Por ahí —dijo.
+—Empieza por ahí.
+Lo dijo él.
 
-Kael entornó los ojos. Sion leyó en esa cara breve que este hombre no era de los que esquivan un enfrentamiento; era más bien de los que observan hasta el final quién cruza la línea primero y luego juzgan. Lo mismo en la estructura, y lo mismo en el callejón hacía un momento. Kael no retrocedía con facilidad. Pero tampoco chocaba de bruces como un necio. Era de los que solo se mueven después de ver una línea más.
+Kael entornó los ojos. En esa cara breve, Sion volvió a sentir que ese hombre no era de los que esquivan una pelea, sino de los que miran hasta el final quién cruza primero la línea y entonces juzgan. Había sido así dentro de la estructura, y también en el callejón hacía un momento. Kael no retrocede con facilidad. Pero tampoco choca de frente como un tonto. Es de los que se mueven en cuanto ven una sola línea más.
 
-Seorin se interpuso la primera.
+Seorin se metió primero.
 
-—No fuimos nosotros quienes lo recogimos primero —dijo en voz baja—. Pero quién reconoció el verdadero entre los falsos, eso ya lo ha visto todo el mundo.
+—No fuimos nosotros los que lo recogimos primero.
+Lo dijo en voz baja.
+—Pero quién reconoció primero lo verdadero que estaba mezclado entre lo falso, eso ya parece que lo ha visto todo el mundo.
 
-La mirada de Harún se deslizó hacia ella.
+La mirada de Harún se fue hacia ella.
 
 —¿Y?
 
-—Y no hay razón para ponerle un precio a punta de cuchillo aquí afuera —respondió Seorin—. Por un valor así, al menos habría que aclarar quién desuella a quién antes de movernos.
+—Y que no hay por qué ponerle precio a cuchillo aquí afuera.
+Seorin lo respondió.
+—Con un precio así, ¿no habría que dejar claro, al menos, quién le saca qué a quién antes de moverse?
 
-Nasim dejó escapar al lado una risa muy leve. El tono en sí era áspero, pero esa risa delataba que había captado que Seorin, en vez de lanzarse de frente contra Harún, había arrojado sus palabras según la lógica de este mundo.
+Nasim soltó al lado una risa muy leve. El sabor de las palabras era áspero, pero era la risa de quien se había dado cuenta de que Seorin, en lugar de lanzarse directamente contra Harún, había tirado sus palabras con la lógica de este suelo.
 
 Aun así, Harún no cambió de expresión.
 
-—Todos hablan igual —dijo—. La mano que agarra lo verdadero siempre cree que se entera antes que los demás.
+—Eso dicen todos.
+Lo dijo él.
+—La mano que agarra lo verdadero siempre cree que lo supo primero.
 
-Luhai soltó de inmediato al oír eso.
+Al oír eso, Luhai lo soltó enseguida.
 
-—Pues yo me enteré primero.
+—Es que yo lo supe primero.
 
-La mano de Kael se cerró un punto más.
+La mano de Kael volvió a apretar un poco.
 
-—La boca —dijo en pocas palabras.
+—La boca.
+Lo dijo corto.
 
-—Que duele —replicó Luhai de un tirón—. Te he dicho que no me escapo.
+—Que duele.
+Luhai se lo soltó con rabia.
+—Te digo que no me voy a escapar.
 
-—Acabas de decir lo mismo —murmuró Sion.
+—Eso mismo dijiste hace un momento.
+Sion lo murmuró.
 
-Esa breve réplica aflojó un punto el aire del callejón. No del todo, pero al menos el momento en que todos estaban suspendidos de un único filo de hoja parecía haber pasado. Harún pareció notar también ese cambio mínimo. No por eso aflojó. Era más bien de los que cortan la situación con un frío aún más vivo.
+Con esa breve frase, el aire del callejón se aflojó apenas un poco. No se había soltado del todo, pero al menos parecía haber pasado el momento en que todo colgaba de un solo filo. Harún también pareció notar ese cambio mínimo. Pero no por eso aflojó. Era más bien de los que ordenan la situación con todavía más frialdad.
 
-—El fragmento —dijo mirando a Luhai—. Dámelo.
+—El fragmento.
+Lo dijo mirando hacia Luhai.
+—Dámelo.
 
-La cara de Luhai se endureció de golpe.
+Con esas palabras, la cara de Luhai se endureció de golpe.
 
-Hasta entonces la irritación y la fanfarronería iban primero, pero esta vez afloraba la verdadera cautela que las cubría. No era un asunto que se zanjara perdiendo unas monedas y ya está: al menos este niño lo sabía de antemano.
+Hasta entonces, por delante iban la irritación y la fanfarronería, pero esta vez asomó la alerta de verdad que había debajo. Aquello no era un problema que se acabara con perder unas monedas; eso, al menos, ese chico ya lo sabía.
 
-—No —dijo en voz baja.
+—No.
+Lo dijo en voz baja.
 
-Los párpados de Harún se bajaron con un movimiento imperceptible.
+Los párpados de Harún bajaron de forma casi imperceptible.
 
-Sion percibió en ese instante exacto de dónde crecía el peligro. No de los gritos que enflan, sino más bien de cuando solo quedan palabras demasiado cortas. En este suelo, las manos de verdad peligrosas se movían siempre así.
+En ese instante, Sion sintió con exactitud por dónde crecía el peligro. No cuando suben los gritos, sino, al contrario, cuando solo quedan palabras demasiado cortas. En este suelo, las manos de verdad peligrosas siempre se mueven así.
 
-Kael puso sus palabras primero.
+Kael fue el primero en poner sus palabras encima.
 
-—Si se lo arrancamos de las manos sin más, hará más ruido todavía.
+—Arrancárselo de la mano a este ahora mismo solo va a hacer más ruido.
 
 Harún lo miró.
 
 —¿Y?
 
-—Propongo que decidamos quién mira el precio primero —dijo Kael con calma—. Todos están mirando, justo ahora.
+—Que decidamos quién mira primero el precio.
+Kael lo dijo con calma.
+—Ahora mismo, aquí, todos están mirando.
 
-Al final de esas palabras, Harún barrió por primera vez los alrededores una vez más.
+Al final de esas palabras, Harún, por primera vez, volvió a mirar a su alrededor.
 
-La gente apostada fuera del callejón, los oídos que fingían no ver nada pero lo oían todo, el comerciante que un instante antes se desgañitaba gritando que era de verdad, los ojos de la capa exterior que recordaban la mano que había tocado mal. Harún podía tratar con indiferencia a la gente de la capa exterior, pero tenía la cara de quien sabe que un alboroto propagado hasta ese punto no se puede cortar sin dejar rastro.
+La gente de pie fuera del callejón, los oídos que hacían como que no veían pero lo oían todo, el comerciante que hasta hacía nada gritaba que era de verdad, los ojos de la capa exterior que recordarían quién había puesto la mano donde no debía. Era la cara de alguien que podía no darle importancia a la gente de la capa exterior, pero que sabía que un alboroto tan extendido no se podía cortar sin dejar rastro.
 
-Nasim se interpuso con suavidad.
+Nasim se metió con suavidad.
 
-—Si nos aferramos demasiado tiempo aquí afuera, solo sube el precio —dijo—. Y la lengua de ese crío se hará todavía más larga.
+—Si lo retenemos demasiado tiempo aquí afuera, solo se dispara el precio.
+Lo dijo él.
+—Y la lengua de ese chico se va a alargar todavía más.
 
-Luhai replicó de inmediato.
+Luhai le contestó en el acto.
 
-—Es larga de base.
+—Ya es larga de por sí.
 
-Esta vez incluso Sion estuvo a punto de no contener la risa. El propio Ater bajó brevemente los ojos y pareció recobrar el aliento un instante. Un chiquillo cuya boca salía antes que todo lo demás, hasta en un momento así. Y eso encajaba extrañamente bien con la manera en que le habían puesto el nombre de Luhai.
+Esta vez hasta Sion estuvo a punto de no aguantarse la risa. Incluso Ater bajó la mirada un instante, como si recobrara el aliento. Un chico al que, aun en un momento así, la boca se le adelantaba. Eso encajaba extrañamente bien con la manera en que se le había pegado el nombre de Luhai.
 
-Harún no se rió.
+Harún no se rio.
 
-En cambio, dijo muy bajo:
+En lugar de eso, habló muy bajo.
 
-—Lo que te llevaste al huir, lo sé.
+—¿Sabes qué es lo que te llevaste al huir?
 
-Luhai guardó silencio un instante.
+Luhai se quedó callado un momento.
 
-—A medias —lo soltó—. No, dos tercios.
+—A medias.
+Lo dijo así, a secas.
+—No, dos tercios.
 
-Sion parpadeó casi por reflejo. La misma respuesta que antes. Pero la cara de Harún no la había tomado por simple fanfarronería.
+Sion parpadeó casi por reflejo. Era la misma respuesta de antes. Pero Harún tenía la cara de quien no la había oído solo como una fanfarronada.
 
-—Explícalo —dijo.
+—Explícate.
+Lo dijo él.
 
-Luhai, todavía retenido por la mano de Kael, movió los ojos de un lado a otro. Eran los ojos de quien calcula qué decir para salir vivo y qué decir para que lo despojen al momento.
+Luhai, aun sujeto por la mano de Kael, movió los ojos de un lado a otro. Eran los ojos de quien calcula qué decir aquí para salir vivo y qué decir para que se lo quiten en el acto.
 
-—Se hacía demasiado el muerto entre los falsos —dijo—. Cuando es así, en general es una de dos. O es de verdad, o alguien lo escondió a propósito.
+—Entre las falsas se hacía demasiado el muerto.
+Lo dijo él.
+—Cuando pasa eso, normalmente es una de dos. O es de verdad, o alguien lo escondió a propósito.
 
-Harún no respondió de inmediato.
+Harún no respondió enseguida.
 
-Nasim dejó escapar una risita en su lugar.
+En su lugar, Nasim soltó una risa leve.
 
-—Decididamente, la lengua es larga.
+—Lo dicho: la lengua, larga.
 
-—Es lo justo, lo que digo —soltó Luhai.
+—Pero tengo razón, ¿no?
+Luhai lo soltó a secas.
 
-Esta vez Harún miró no a Luhai, sino a Sion.
+Esta vez Harún no miró a Luhai, sino hacia Sion.
 
-—Ustedes también vinieron por eso.
+—¿Ustedes también vinieron a ver eso?
 
-Sion no vaciló.
+Sion no vaciló ni un momento.
 
-—Necesitamos eterita —dijo—. Nuestro barco está a punto de morir.
+—Necesitamos eterita.
+Lo dijo él.
+—Nuestro barco está a punto de morir.
 
-—Y por eso buscan ese nombre también —dijo Harún.
+—Y por eso buscan también ese nombre.
+Harún lo dijo.
 
-Breve silencio.
+Un breve silencio.
 
 Sion no preguntó de qué nombre hablaba.
 
 Aka.
 
-Harún ya lo sabía. Aquí, las manos que leían el hecho mismo de que se ocultaba un nombre eran más rápidas que las que lo ocultaban.
+Harún ya lo sabía. Aquí, la mano que leía el hecho mismo de que se ocultaba un nombre era más rápida que la que lo ocultaba.
 
-Seorin dijo muy bajo:
+Seorin habló muy bajo.
 
-—Vimos cómo le taparon la boca al crío ahí afuera, y vimos cómo este mercado se traga ese nombre.
+—Vimos cómo reaccionaron ahí afuera tapándole la boca a una criatura, y vimos cómo este mercado se traga ese nombre.
 
-Harún entornó los ojos un punto ante esas palabras.
+Al oír eso, Harún entornó los ojos de forma muy leve.
 
-—Por eso llegan tarde —dijo.
+—Por eso es todavía más tarde.
+Lo dijo él.
 
-Sion sintió esa frase aterrizar con más precisión que la sensación fugaz al fondo del callejón un poco antes. Tarde no significaba que el tiempo hubiera pasado. Estaba más cerca de: han tocado demasiadas cosas a la vez. La eterita, Aka, Luhai, y este alboroto en pleno corazón de la capa exterior del mercado. Ya no podía reducirse al asunto de cuatro forasteros y un ratero.
+Sion sintió que esa frase le entraba con más precisión que la sensación que le había rozado un momento antes al fondo del callejón. Que fuera tarde no se debía a que hubiera pasado el tiempo. Se acercaba más a querer decir que ya habían tocado demasiadas cosas a la vez. La eterita, Aka, Luhai y, encima, ese alboroto estallado en plena capa exterior del mercado. Ya no era algo que pudiera reducirse al problema de cuatro forasteros y un ratero.
 
-Nasim sacó la conclusión con gran suavidad.
+Nasim cerró la conclusión con mucha suavidad.
 
-—Bien. Entonces, en vez de seguir regateando aquí afuera, vayamos a ver los precios dentro.
+—Bien. Entonces dejemos de regatear aquí afuera y veamos el precio dentro.
 
-Kael, al oír eso, miró a Harún.
+Al oír eso, Kael miró a Harún.
 
 —¿Nosotros también?
 
-Harún respondió muy brevemente.
+Harún respondió muy breve.
 
 —Todos juntos.
 
-El comerciante se interpuso entonces, despavorido.
+Solo entonces se metió el comerciante, apurado.
 
-—Esperen, eso es m—
+—Espere, eso es mi…
 
-La mirada de Harún lo rozó una vez, y el comerciante no pudo terminar la frase.
+Bastó que la mirada de Harún lo rozara una vez para que el comerciante no pudiera terminar la frase.
 
-Esa breve escena bastaba. Quién podía discutir los precios en la capa exterior de Hazran y quién tenía que cerrar la boca. Harún era de los que zanjan eso con el silencio antes que con las palabras.
+Con ese breve momento bastaba. Quién podía hablar de precios en la capa exterior de Hazran y quién tenía que cerrar la boca. Harún era de los que lo decidían con ese silencio más que con palabras.
 
-Luhai se tragó un pequeño insulto.
+Luhai se tragó un insulto en voz baja.
 
-—Ah, qué mala suerte.
+—Ah, qué mala suerte, de verdad.
 
 Nasim sonrió.
 
-—No —dijo—. Es a partir de aquí donde la suerte se separa.
+—No.
+Lo dijo él.
+—Es a partir de aquí donde se reparte la suerte.
 
-Kael solo aflojó un poco la presión sobre la muñeca de Luhai después de un largo rato. No lo había soltado. Era simplemente el grado de fuerza en que ambos sabían que, aun escapando, no llegaría hasta el callejón de la capa exterior.
+Kael tardó un buen rato en aflojar un poco la fuerza sobre la muñeca de Luhai. No lo había soltado. Era solo una fuerza con la que los dos sabían que, aunque saltara, ya no llegaría ni a los callejones de la capa exterior.
 
 Seorin se movió antes que Sion.
 
-—Vamos —dijo en voz baja—. De todos modos, todo lo que preguntemos aquí de más terminará filtrándose afuera.
+—Vamos.
+Lo dijo en voz baja.
+—De todos modos, por más que preguntemos aquí, todo se va a filtrar afuera.
 
-Sion sintió que tenía razón.
+Sion también sintió que tenía razón.
 
-Un fragmento auténtico de eterita,
-un nombre —Aka—,
-una mano de lengua rápida —Luhai.
+Un fragmento verdadero de eterita,
+un nombre llamado Aka,
+una mano de boca rápida llamada Luhai.
 
-En el instante en que esas tres cosas se anudaron en el mismo lugar, Hazran ya no tenía intención de dejarlos tirados en el suelo de la capa exterior.
+Desde el momento en que esas tres cosas se enredaron en el mismo lugar, Hazran ya no tenía intención de dejarlos simplemente en el suelo de la capa exterior.
 
-Harún giró sobre sus talones.
+Harún se dio la vuelta.
 
-No hacia la línea de sombra que llevaba de vuelta fuera del callejón, sino hacia un pasaje oscuro que se hundía más adentro del mercado. Nasim seguía sonriendo a su lado, y los mirones les despejaron el camino con una naturalidad perfecta.
+No hacia la línea de sombra que volvía hacia fuera del callejón, sino hacia un pasaje oscuro que llevaba más adentro del mercado. Nasim seguía sonriendo a su lado, y los que miraban les despejaron el camino con una naturalidad excesiva.
 
-Sion, justo antes de internarse en ese pasaje, se volvió una sola vez.
+Justo antes de entrar en ese camino, Sion se volvió una sola vez.
 
-El mercado de la capa exterior seguía ruidoso. Pero ahora ese ruido ya no parecía su asunto: evocaba más bien el residuo dejado en la estela de su asunto. El ruido de un mercado donde todos sabían que el precio verdadero iba a fijarse a partir de ahora en el interior.
+El mercado de la capa exterior seguía siendo ruidoso. Pero ahora ese ruido ya no parecía asunto suyo, sino el residuo que quedaba allí por donde su asunto había pasado. Un ruido en el que todos sabían que el precio de verdad se pondría, a partir de ahora, ahí dentro.
 
-Y en algún punto de ese interior,
-Aka estaría también.
+Y en algún lugar de ese interior estaría también Aka.
 
-Sion presionó una vez más el papel dentro de su chaqueta.
+Sion repasó todo aquel día.
 
-`Hazran`
-`Aka`
+En esa ciudad no había nadie que hubiera dicho ese nombre en voz alta.
 
-Las dos palabras seguían sin explicación.
+En la capa exterior le habían tapado la boca a una criatura. Harún, aun sabiéndolo, solo había dicho «ese nombre», y Nasim ni siquiera lo había sacado.
 
-En cambio, ahora se iba volviendo claro.
+No lo decían, y a sabiendas.
 
-Este nombre no era de los que se zanjan al encontrarlos,
-sino de los que te devoran crudo si los encuentras mal.
+Si un nombre no se conoce, se puede preguntar. Un nombre que todos conocen y nadie pronuncia no tiene a quién preguntarse. En el momento en que preguntas, el que pregunta queda marcado.
+
+Sion contó cuántas veces había dicho él ese nombre en la capa exterior.
+
+Dos.
+
+Ese nombre no era de los que se acaban con encontrarlos.
+
+Era de los que, si los buscas mal, te tragan tal cual.
 
 ---
 

@@ -62,7 +62,7 @@ Il ne lâcha pas jusqu'au bout.
 
 Un enfant hurla :
 
-« Mais c'était le mien... ! »
+« Mais c'était le mien… ! »
 
 Le cri traversa le champ de bataille avec une netteté aiguë.
 
@@ -102,7 +102,7 @@ C'est pourquoi Serakion les poussait plus vite, plus cruellement, par une métho
 
 Han Jiwoo devint livide.
 
-« Arrêtez... » murmura-t-elle presque sans voix.
+« Arrêtez… » murmura-t-elle presque sans voix.
 
 À qui parlait-elle ? À Serakion, aux androïdes de ce côté, ou à elle-même ? Personne ne pouvait le dire.
 
@@ -150,7 +150,7 @@ Et pourtant, il tourna de nouveau son corps vers l'avant.
 
 En le voyant, Sion pensa que cet androïde savait peut-être déjà, avant lui, ce qu'il fallait protéger.
 
-Ce fait était d'autant plus cruel qu'il n'était pas beau seulement, mais trop tardif.
+Ce fait était plus cruel encore, non parce qu'il était trop beau, mais parce qu'il venait trop tard.
 
 ---
 

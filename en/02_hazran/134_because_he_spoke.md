@@ -1,211 +1,210 @@
 # Episode 134. Because He Spoke
 
 When morning came,
-before confirming that the night had truly passed,
-Sion first checked whether the marks he'd made during the night were still there.
+what Sion checked first, before the fact that the night had really passed,
+was that the things he had marked in the night were still there.
 
-The young man who'd been about to collapse against the wall
+The young man who had been on the verge of breaking against the wall
 still didn't look well, but at least he wasn't alone.
 
-The woman who'd nearly gone down beside the children
-had managed to close her eyes briefly and was up again.
-But this time, someone was sitting beside her.
+The woman who had nearly collapsed first beside the children
+had caught a little sleep, however short, and was up again.
+But this time someone was sitting beside her.
 
-And the machine that had hesitated during signal organizing
-had one optical eye open while being serviced in the morning,
-still passing data as it was maintained.
+And the machine that had faltered while sorting signals,
+that morning, with one optical eye left open,
+kept passing data along even while it was being serviced.
 
-Nothing was fully fixed.
-But at least
+It wasn't all right, not completely.
+But at least,
 nothing had broken worse overnight.
 
-Sion saw it and strangely felt more tired.
+Seeing that, Sion felt strangely more tired.
 
-Not the relief of seeing something hold,
-but the scenes that would have been different if he'd been just a little late—those came first.
+Because before the relief of seeing them hold out,
+the scenes that would have gone differently had he been even a little late came to him first.
 
 But precisely because of that,
-the people of this old layer seemed to have read the difference between night and morning too.
+the people of this old layer seemed to have read the difference between the night and the morning, too.
 
-No one said thank you first.
-This was never a place where those words come easy.
+No one was first to say thank you.
+This was not a place that handed out such words easily to begin with.
 
 Instead,
-the way people looked shifted, very slightly.
+the way people looked at him changed, very slightly.
 
-From the eyes of seeing a complete stranger
-to at least the eyes of seeing *someone who knows how to be used*.
+From eyes looking at a complete stranger,
+to eyes that now saw, at the least, *someone who knows how to be of use*.
 
-Sion felt that difference was actually heavier.
+Sion felt that difference was, if anything, heavier.
 
-Because expectation always brings responsibility along.
+Because expectation always brings responsibility along with it.
 
-During the morning cleanup,
-the human woman who had called him the day before approached again.
+While the morning sorting was in full swing,
+the human woman who had called him aside the day before came over again.
 
 She stood beside Sion for a moment,
-looked once at the marks he'd made during the night, and spoke low.
+looked once at the marks he had made in the night, and spoke, low.
 
-"Two of them went less far."
+"Two of them didn't go as far under."
 
 Sion looked at her.
 
-The woman added without meeting his eyes.
+Without meeting his eyes, the woman added,
 
-"If you hadn't spoken last night,
-by morning one would have truly burst,
-and one would have completely shut down."
+"If you hadn't spoken up last night,
+by morning one of them would've really burst,
+and the other would've shut down completely."
 
 That wasn't praise.
-But precisely because of that,
+But exactly because of that,
 it sounded like a more precise acknowledgment.
 
-Sion asked, low, only after a long while.
+Only after a long while did Sion ask, low,
 
-"The machine side too?"
+"The machines too?"
 
-The woman nodded briefly.
+The woman gave a short nod.
 
-"When people collapse, it shows."
+"When a person breaks, it shows."
 "That side gets caught later."
 
-Those words took Sion back to the night's scenes.
+Those words took Sion back to the scenes of the night.
 
-The machine that walked with a slipped joint.
-The machine whose vision went dark once and just moved on.
+The machine that had walked on with a slipped joint,
+the machine whose vision had gone out once and that had simply carried on.
 
-This old layer had looked like a place that lies less—that was true.
-But that didn't mean fully honest.
-It was closer to meaning the direction of pretending was different.
+It was true that this old layer had looked like a place that lied less.
+But that didn't mean it was entirely honest;
+it was closer to meaning that it pretended to be complete in a different way.
 
-Here, they don't lie about being eternal.
+Here they don't lie that they'll last forever.
 Instead,
-they lie about being able to hold just a little longer.
+they lie that they can hold out just a little longer.
 
-Aka was watching the blocked corridors that morning too.
+That morning, too, Aka was watching the blocked passage.
 
-Sion glanced her way briefly,
+Sion glanced her way for a moment,
 then noticed that two machines moving nearby
-were actually opening and checking a section of wall Aka had pointed at.
+were actually opening up the part of the wall Aka had pointed to.
 
-What had only gotten a reaction the day before
-was now becoming actual verification today.
+What had drawn no more than a reaction up to the day before
+was now leading to actual checking.
 
-Aka seemed to see it too.
-She said, very small.
+Aka seemed to have seen it too,
+and said, very quietly,
 
-"Now they're listening."
+"Now they listen."
 
-Inside that one line was strangely
-more deep fatigue than joy.
+Strangely, in that one line there was a fatigue deeper than joy.
 
-The fatigue only someone who always sees first,
-is never believed right away,
-and is always confirmed a little late can carry.
+Always seeing first,
+never quite believed right away,
+always confirmed a little late—a fatigue only such a being could have.
 
-Jiwoo's side was similar.
+It was much the same for Han Jiwoo.
 
-Some of the equipment she'd held together through the night
-couldn't be called normal, but at least could last one more day.
+Some of the equipment she had held together all night
+could not be called normal, but was now in a state to last at least one more day.
 
-One old machine looked at it and said, very brief.
+One old machine looked at it and said, very briefly,
 
-"You have deferred the disposal point."
+"You have pushed back the point of scrapping."
 
-Jiwoo wiped her forehead with the back of her hand and answered.
+Han Jiwoo wiped her forehead with the back of her hand and answered.
 
-"That's always been the job."
+"That's what I do anyway."
 
-But right after those words,
-her expression tightened, very faintly.
+But right after saying it,
+her expression stiffened, very slightly.
 
-*Disposal point.*
+The point of scrapping.
 
-Whether in the Serakion above
+Whether on Serakion's upper levels
 or in this old layer,
-this world ultimately runs by deciding when to hold what longer.
+in the end this world rolls on by deciding what to make last longer, and when.
 
 But here, at least,
-they looked for the point that could be deferred before the point of discarding.
+they looked first for when something could be put off, rather than when to throw it out.
 
-That difference seemed to be what kept Jiwoo standing here still.
+That difference seemed to be what still kept Han Jiwoo standing here.
 
-Luhai looked tired from the morning.
+Luhai had worn a tired face since morning.
 But strangely,
-the children's side had started looking for him first.
+the children had begun looking for him first.
 
-Overnight,
-their bodies seemed to have remembered who was the person who'd stay to the end.
+Over a single night,
+their bodies seemed to have remembered, before anything else, who would stay to the end.
 
-Luhai pretended not to notice and muttered.
+Luhai pretended not to see it and muttered,
 
-"This isn't my thing."
+"I'm not cut out for this."
 
-A nearby human answered, offhand.
+A human nearby answered offhandedly,
 
-"People whose thing it actually is never say that."
+"People who are cut out for it never say that."
 
-Seorin watched the scene and let out the smallest snort.
-Kael was already at a cargo hold that looked ready to collapse.
-Sern was layering new changes onto the signal flows he'd organized through the night.
+Seorin watched the scene and gave a very small snort,
+Kael was already in front of a cargo bay that looked about to give way,
+and Sern was layering fresh changes onto the signal flow he had sorted all night.
 
-And Sion knew
-his share had truly begun.
+And Sion
+knew his share had now truly begun.
 
-The previous night was closer to a trial.
-But from this morning,
-what he had spoken first
-was actually being used to let someone rest,
+The night before had been close to a test.
+But from this morning on,
+what he said first
+was actually being used to make someone rest,
 to move someone,
-to open a machine,
-to inspect a corridor.
+to have a certain machine opened,
+to have a certain passage inspected.
 
 Words were changing judgments.
 
-That was far heavier than expected.
+That was far heavier than he had expected.
 
-A while later,
+A little later,
 the old machine called him again.
 
-It looked more tired than the night before.
-One optical eye was hazier than yesterday.
+It looked more worn out than in the night,
+and one of its optical eyes had gone blurrier than the day before.
 
-But the voice was still dry.
+But its voice was as dry as ever.
 
 "From today, do not watch only the people."
 
 Sion looked at it.
 
-The old machine continued, very calmly.
+The old machine went on, very evenly.
 
-"You must watch for collapse on the machine side too."
-"Here, if only one side is allowed to break,
-both sides collapse in the end."
+"You must watch for breakdown on the machine side as well."
+"Here, if you let even one of the two collapse,
+in the end both collapse together."
 
-Those words seemed to explain this entire old layer in a single sentence.
+Those words seemed to explain this whole old layer in a single sentence.
 
-A place where people and machines cannot fully trust each other.
-But a place where if only one side breaks first,
-the other can't hold either.
+A place where people and machines could not fully trust each other.
+But if even one of the two broke first,
+in the end the other could not hold either.
 
 Sion nodded, very slowly.
 
 His nights would be longer now.
 
-And probably,
+And perhaps,
 truly reading this community
-would be less about human expressions alone
-and closer to reading the wear, the stalling, and the silence of machines as well.
+meant reading not just people's faces
+but the wear and stopping and silence of the machines as well.
 
-Morning light didn't properly reach this old layer,
-but you could at least tell the dark had thinned, very slightly.
+The morning light did not properly reach this old layer,
+but he could at least tell that the dark had thinned, just slightly.
 
-And in that dim light, Sion thought
-for the first time.
+And in that dim light, Sion
+thought something like this for the first time.
 
-This isn't simply a place of surviving.
-Thanks to those who speak first,
-it is a place that collapses a little less late.
+This was not simply a place for surviving.
+Thanks to those who spoke first,
+it was a place that broke down a little less late.
 
 ---
 

@@ -1,135 +1,186 @@
 # Episode 57. The Method of Running with One True Thing
 
-The merge was not the end but the beginning of a choice.
+Joining up was not an end but the start of choosing.
 
-When Jiwoo's skiff and Kael's glider both settled onto the same outer lower line, the four of them had to solve the same problem together for the first time.
+Once Han Jiwoo's skiff and Kael's glider had come down onto the same lower outer line, the four of them had to solve the same problem together for the first time.
 
-How to get out alive. How to not drop the real ember. Which craft would open the way ahead. Which craft would cut the pursuit behind. Who would empty their hands. Who would hold on to the end.
+How they would get out alive.
+How they would keep from losing the real ember.
+Which craft would open the way ahead,
+which would cut off what came behind,
+who would empty their hands,
+and who would hold on to the end.
 
-Sion felt the ember in his hand grow heavier for no reason.
+The ember in Sion's hand felt heavier, for no good reason.
 
-Its authenticity had been confirmed. Which meant from here on, the very fact of holding it was a burden. A burden that reprioritized over speed and changed the movements of everyone around him.
+It had been confirmed as real.
+So from now on, the very fact of holding it was a burden. A burden that changed priorities before speed, and changed even the way people moved.
 
 Kael spoke first, low.
 
-"Closing in."
+"We're closing."
 
-That was not sentiment but a distance report. The gap between the two craft was now very short. A little closer and they could transfer a person; too close and they would tangle and collapse together.
+It wasn't a feeling; it was a distance report. The gap between the two craft had grown very short. Close in a little more and they might move a person across; close in too much and they might get caught together and go down.
 
-Sern said immediately.
+Sern spoke at once.
 
-"Don't fully close right now."
+"Do not close in all the way yet."
 
-Jiwoo asked shortly.
+Han Jiwoo asked shortly.
 
 "Reason."
 
-"It gets easier to eat us in one bite."
+"It becomes easy to swallow us in one bite,"
 Sern answered.
-"If we look separate, the chasing hands split too. But the moment they confirm where the real thing is, everyone lines up on one."
+"If we are seen as two, the hands chasing us split too. But the moment it becomes clear where the real thing is, they will all close in on one line."
 
-Jiwoo scanned the line ahead without argument.
+Han Jiwoo swept her eyes over the line ahead without a word.
 
-It was a fair point.
+He was right.
 
-Until now, only the dark-red glider had been biting closest, but once the hands from outside the arena truly caught the scent, things would change. The moment the two craft fully merged into one mass, the target to protect became equally clear.
+Until now, the dark-red glider alone had been biting at them most closely, but once the hands outside the arena really started catching the scent, things would change. The moment the two craft closed into one lump, the target to protect became clear too.
 
-Kael glanced at Sion's hand and asked.
+Kael glanced once toward Sion's hand and asked.
 
-"Move that somewhere else?"
+"Do we move that somewhere else?"
 
-Sion almost reflexively gripped harder.
+Sion gripped it harder, almost by reflex.
 
 "Not yet."
 
-Before him, Sern added low.
+Sern added, low, ahead of anyone else.
 
-"Moving it shakes things."
+"Moving it will shake it."
 
-That was precise. The real ember was not vivid but it was alive. Switching hands now was not simply passing an object—it might shake the reaction one more time. A rash change of judgment here could kill the real thing with their own hands, just like the teams that were fooled by fakes.
+That was exact.
+The real ember was not showy, but it was alive. Changing hands now would not be simply passing an object over; it could mean shaking its response one more time. Changing their judgment needlessly here could make them kill the real thing with their own hands, like the teams that had been fooled by the fakes.
 
-Jiwoo concluded shortly.
+Han Jiwoo settled it shortly.
 
 "Then Sion holds it to the end."
 
-Kael nodded immediately.
+Kael nodded at once.
 
 "Okay."
 
-A brief agreement. Yet Sion heard that single word strangely loud. It meant the real thing stayed in his hand. It also meant the target stayed fixed on his side.
+It was a short agreement.
+But to Sion that one word sounded strangely loud. It meant the real thing stayed in his hand, and it also meant the targeting would keep closing in on his side.
 
-The dark-red glider behind was narrowing the line again.
+Behind them, the dark-red glider was narrowing the line again.
 
-This time it was not the probing approach from the start. The front pilot had dropped the angle completely, and the rear rider's hands were empty. The movement of people who no longer needed to confirm whether what they were seizing was real. That team was already certain. The ember was in Jiwoo's team's hand.
+This time it did not close in as if testing them, the way it had at the start. The lead pilot had dropped the angle outright, and the rider behind had freed up both hands. These were the movements of people who no longer needed to check whether what they had to snatch was real. That team was already sure. The ember was in the hands of Han Jiwoo's pair.
 
-"They've locked on."
-Sion said low.
+"They've made up their minds,"
+Sion said, low.
 
-Sern caught it immediately.
+Sern picked it up immediately.
 
-"That's why we have to switch now."
+"That is why we have to change now."
 
-Jiwoo raised an eyebrow by the smallest fraction.
+Han Jiwoo's brows moved, very slightly.
 
-"You said don't move it."
+"You said we weren't moving it."
 
-"Not the ember. The line."
+"Not the ember. The line,"
 Sern said.
-"We need to switch who gets chased."
+"We have to change which side is being chased."
 
-Kael understood first.
+Kael caught on first.
 
-"We make ourselves more visible as the target."
+"So we're the ones who take them on, more out in the open."
 
-"Yeah."
+"Yes,"
 Sern answered.
-"Jiwoo's team drops onto the dirtier line below. We show big from up top once. Create the moment where the dark-red side has to choose only one of two—and the hand holding the ember gets caught less."
+"Han Jiwoo's pair slips out along the dirty line below, and we show ourselves big, once, up above. If we make a moment where the dark-red side can bite only one of the two, the hand holding the ember is less likely to be caught."
 
-Jiwoo heard that and did not smile.
+Han Jiwoo didn't even laugh when she heard that.
 
-Instead, he looked again at the outer line ahead, the clean line above, and the shadow of the dead frame between them.
+Instead she looked again at the outer line ahead, the clean line above, and the shadow of the dead framework left between them.
 
-"It's possible."
-He said.
-"But we really split for one stretch."
+"It can be done,"
+she said.
+"But at one point we really do split."
 
-Kael answered very evenly.
+Kael's answer was very even.
 
-"That's what running together is."
+"That's what running together is, anyway."
 
-Sion found it strange how fast that exchange reached its conclusion. But then again, not strange at all. Right now all four were moving with heads closer to survival than explanation.
+To Sion, how fast that exchange reached its conclusion felt stranger than anything. And then again, it wasn't strange at all. Right now all four of them were moving with heads that leaned closer to survival than to explanation.
 
-The change was being read from the stands too.
+Up in the stands, the change was read too.
 
-Luhai watched the two craft briefly close then readjust their spacing below, and immediately grimaced.
+Luhai saw the two craft below close in for a moment, then adjust the gap again, and he frowned at once.
 
-"Are they planning something?"
+"What are they cooking up now?"
 
-Seorin said very low.
+Seorin spoke very low.
 
-"One side becomes the bait."
+"One side's going to be bait."
 
-Ater looked at her immediately.
+Ater looked at her at once.
 
-"Which side."
+"Which side, do you mean?"
 
-"Don't know yet."
+"Don't know that yet,"
 Seorin answered.
-"But the hand holding the real thing will keep pulling toward the less visible side."
+"But the hand with the real thing is going to keep slipping toward where it can't be seen."
 
-That was correct. If the hand holding the real thing stayed clearly visible, all of Hazran would converge. So from here on, what mattered was not speed but making it unclear—even briefly—who held the real thing.
+She was right.
+If the hand holding the real thing stayed clearly in sight, all of Hazran would come at it.
+So what mattered from now on was not speed, but **blurring, even for a moment, who was holding the real thing**.
 
-Nasim, watching below, stiffened his expression by the smallest degree. He must have known by now. With the race board broken, all that remained was who held the real thing and where they were breaking out. Harun was still quiet. Zahir had not moved to the end. But the longer that silence lasted, the heavier the next intervention would fall.
+Nasim looked down, and the set of his mouth hardened very slightly.
+He would have known it too by now. That once the race board was broken, all that remained was who held the real thing and where they got out to. Harun was still quiet. Zahir did not move to the end. But the longer that silence went on, the heavier it seemed the next intervention would fall.
 
-Aka, beside Nahira, looked between the two craft, then for the first time let her gaze rest a long beat on the dirty outer line below.
+Aka was looking from one craft to the other.
 
-Sion could not see that directly. But strangely, it became clearer and clearer that the real thing he held had to escape not along a vivid line but along the ugliest one.
+After a long while she spoke.
 
-Right then, from above, the dark-red glider drove deeper and set its angle.
+"Go now like both are holding it."
 
-Now the decision truly had to be made.
+Seorin turned her head.
 
-Jiwoo said shortly.
+"What?"
+
+"Both of them, go like both are holding it."
+
+Aka pointed down.
+
+"So nobody knows who's holding it."
+
+Seorin looked at the two craft again.
+
+Han Jiwoo's pair was holding the ember but showed no sign of it. Kael's pair held nothing, but it closed in at a wrapping angle and moved as if it were holding it.
+
+That was why the dark-red glider had hesitated a moment ago over which side to bite first.
+
+"Are they doing that on purpose?"
+
+Seorin said it low.
+
+Ater answered.
+
+"I would like to think so."
+
+Seorin looked at Ater.
+
+"And if not?"
+
+"Then it worked by chance. Chance does not come round a second time."
+
+Aka heard that back-and-forth and looked down again.
+
+"If they're holding it, that's enough."
+
+Aka said that.
+
+"On purpose or not, right now that's right."
+
+Just then, from above, the dark-red glider dug in deeper and pressed its angle closer.
+
+Now they really had to decide.
+
+Han Jiwoo spoke shortly.
 
 "Decide now."
 
@@ -137,25 +188,105 @@ Sern answered at once.
 
 "We go up."
 
-Kael prepared to shift the glider's weight onto the upper line without a word, and Sion, gripping the ember deeper, looked at Jiwoo's back.
+"Go up and we get caught,"
+Kael said.
 
-Jiwoo was looking only ahead.
+"We go up so that we get caught."
 
-Not a good road. A dead line. A dirty line. A line everyone else had discarded.
+At that, Kael held his breath once, then put his hand on the controls.
 
-The road that man had always used best.
+"For how long?"
 
-"Good."
-He said low.
-"Then we go where we can't be seen."
+"We stay up until they see us first."
 
-With those words, the two craft prepared for the first time to split with deliberately different intentions, at the same moment.
+Sion half heard that exchange. The transmission wasn't clean, so the words came through broken.
 
-One to hide the real thing. One to look like the hand holding it.
+Even broken, he understood what they meant.
+
+Go up and you're easy to see. If you're easy to see, the hunters look there first. While they look there, they don't look below.
+
+Kael's pair, holding nothing, meant to go up as if they were holding it.
+
+"And if they close in on you?"
+
+Sion asked.
+
+Han Jiwoo answered with her eyes ahead.
+
+"If they close in, then they hold out with nothing real from there on."
+
+"Can they do that?"
+
+"They're better at it."
+
+There was no laughter in Han Jiwoo's voice. "Better at it" did not sound like praise. It sounded like those two were used to pretending to have what they didn't.
+
+Sion looked at the line above.
+
+Kael's glider really did go up. Having hugged the ground low until a moment ago, it climbed high on purpose, and as it climbed it twisted its body once, wide. Not a move to hide, but a move to be seen.
+
+The dark-red glider moved its angle that way.
+
+Sion gripped what he held once more.
+
+It was here. It was not over there. And yet the hunters were looking over there now.
+
+This was how it worked. And while it worked, up there, two who were pretending to have what they didn't would be taking the hits alone.
+
+Sion held the ember deeper and looked at Han Jiwoo's back.
+
+Han Jiwoo was looking only ahead.
+
+Not a good path,
+but a dead line,
+a dirty line,
+a line other people had thrown away.
+
+The path she had always used best.
+
+"Good,"
+she said, low.
+"Then we go the way that can't be seen."
+
+As she said it, the two craft got ready, for the first time, to split at the same moment with different intentions.
+
+One to hide the real thing, one to look like the hand holding it.
 
 And Sion knew.
 
-From here on, they would need to learn not only how to run together, but how to deceive together.
+From now on,
+it wasn't just how to run together;
+they had to learn how to deceive together too.
+
+Sion hated it.
+
+It took him a while to find why. It wasn't that deceiving was wrong. If they didn't deceive now they would die, so deceiving was right.
+
+What he hated was the way it was shared out.
+
+The side holding the real thing goes where it can't be seen. The side not holding it goes where it can be seen. And so the one that takes the hits is the side not holding it.
+
+The one who has it doesn't get hit, and the ones who don't have it do.
+
+Sion looked up once more. Kael's glider was still high, and the dark-red glider was right behind it.
+
+What was taking the hits up there right now was taking them because of what Sion held.
+
+"Han Jiwoo."
+
+"What?"
+
+"When do they come down?"
+
+Han Jiwoo didn't answer right away.
+
+"They come down once we're in first."
+
+Sion took that and looked ahead.
+
+Then there was nothing for it but to go fast. Going fast was the only way to bring the ones up there down.
+
+Sion began reading the way ahead harder.
 
 ---
 

@@ -1,150 +1,217 @@
 # Episode 174. The Last Survivor
 
-The battlefield was already tilting to one side.
+The battle was already tilting to one side.
 
-For the first few minutes it had looked like the androids with faces were pushing back Serakion's force impossibly hard.
+For the first few minutes,
+it had looked as though the androids with faces were driving the Serakion legion back against all reason.
 
 But the Serakion side had no intention of stopping.
 
-When one fell, the next immediately entered. When the front line broke, a line that rammed through bodily followed.
+When one fell, the next came straight in,
+and when the front rank broke, a rank that rammed in bodily took its place.
 
-That was less a breakthrough than attrition. A way of feeding in, designed to wear down the hearts and bodies on this side through sheer numbers and numbness.
+It was less a breakthrough than attrition.
+Whatever heart and body this side had left to hold out with,
+it meant to grind down to nothing with numbers and numbness, and so it kept pushing in.
 
-Jiwoo kept watching the remaining androids even as she passed children to the rear line.
+Even as she passed children back to the rear line,
+Han Jiwoo kept watching the androids that were left.
 
-By now she could not even count how many were left at a glance.
+By now she couldn't even tell at a glance how many remained.
 
-A smiling mouth. Round eyes. A crooked mouth.
+One smiling mouth.
+One pair of round eyes.
+One crooked mouth.
 
-Beings that had held different faces inside children's laughter just moments ago were now breaking one by one, losing their light, and each time they fell, the face went dark with them.
+Beings that only a moment ago had worn different faces amid the children's giggles
+were now breaking one by one,
+losing their light,
+and each time one fell, its face went out with it.
 
-The sight was too direct for anyone to think of it as weapon loss any longer.
+The sight was so direct
+that no one could think of it as losing weapons anymore.
 
-One child from Hazran, cried out until the voice barely worked, kept repeating the same words.
+A child from Hazran, worn out from crying, voice almost gone,
+kept repeating the same words.
 
-"That one... was mine..."
+"That one… was mine…"
 
-Those words embedded themselves directly in Jiwoo's chest.
+The words lodged straight in Han Jiwoo's chest.
 
-She was holding the child, yet she could not hide the feeling of her own inside collapsing first.
+She was the one holding the child,
+and yet she couldn't hide the feeling that she was the one falling apart inside first.
 
 Mine.
 
-The word should sound like possession, but right now it was the opposite.
+The word should have sounded like ownership,
+but now it meant the exact opposite.
 
-I gave the face. I accepted it. So I can no longer push it away as something unknown.
+I gave it a face,
+I took it in,
+and so I can't push it away as a stranger anymore. That was what it meant.
 
-That meaning hurt so much Jiwoo could barely breathe.
+That meaning hurt so much
+that for a moment even breathing was hard for Han Jiwoo.
 
-Then three Serakion units carved into the flank simultaneously.
+Then three of the Serakion legion cut into the flank at once.
 
-The two remaining androids turned their bodies almost at once. One to the right. One in front of the children.
+Two of the remaining androids turned almost together.
+One to the right,
+one in front of the children.
 
-And in that moment, Sion saw a third android moving half a beat behind, very late.
+And in that moment
+Sion saw a third android moving very late, half a beat behind.
 
-That unit had been the one furthest back. On its face remained two very clumsy eyes drawn by a child and a mouth drawn too short.
+That one had been the farthest back.
+On his face were the two very clumsy eyes a child had drawn,
+and a mouth drawn far too short.
 
-It was not as fast as the units ahead. In fact it was one beat late, and that made it look more precarious.
+He was not as fast as the units just ahead of him.
+If anything, he was a step late,
+and that made him look all the more precarious.
 
-But precisely because of that, Sion's eyes kept going to it.
+But for exactly that reason,
+Sion's eyes kept going back to that one.
 
-While the remaining two blocked enemy units head-on, this last android paused — short enough to look like hesitation.
+While the other two held the enemy units head-on,
+that last android paused, just long enough to look like hesitation.
 
-Then it chose not the front line, but the nearest path to the fallen child.
+And then,
+instead of the front, he chose first the shortest way to a child who had fallen.
 
-The moment Sion saw that movement, he knew: it had already decided, in its own way, what to protect.
+The moment Sion saw that movement,
+he knew the android had already decided, in his own way, what he had to protect.
 
-One Serakion unit read the path and crashed in almost simultaneously.
+A Serakion unit read that path and came crashing in almost at the same moment.
 
-The last android twisted its body and wedged itself between the child and the enemy first. The impact cracked. One eye line on its face shook violently.
+The last android twisted and got between the child and the enemy unit first.
+There was a crash of impact,
+and one eye line on his face shook hard with the blow.
 
-But even while being pushed back, it did not give up that position.
+But even as he was driven back, he never gave up that spot.
 
-Instead it lowered its body, bent the enemy unit's waist upward, and toppled together — away from the child.
+Instead he dropped low, hooked the enemy unit at the waist and bent it up and over,
+and went down with it, away from the child.
 
-In those few seconds, the other two broke almost simultaneously in the deeper zone.
+In those few seconds,
+the other two were smashed almost together, farther in.
 
-Light burst. Metal shrapnel scattered. The places where faces had been just moments ago went too quiet all at once.
+Light burst,
+metal shards poured down,
+and the places where faces had been only a moment ago
+went far too quiet all at once.
 
-The children screamed simultaneously.
+The children screamed all at once.
 
-Louder this time. No longer one child's crying, but the sound of all the children who had realized they were truly losing.
+It was louder this time.
+No longer one child crying,
+but the sound of every child who had finally understood that they were really losing them.
 
-Several Hazran people simply collapsed where they stood. One old machine stepped one stride closer to the battlefield for the first time.
+Some of the Hazran people simply sank to the floor,
+and one of the old machines, for the first time, took another step toward the fight.
 
-That looked less like attack and more like the movement of something that could not let go.
+It looked less like an attack
+than the movement of one that could not bring itself to let something go.
 
 But it was already too late.
 
-Only the last android remained.
+Only the last android was left.
 
-That fact reached everyone in the room in under a few seconds.
+It took no more than a few seconds for that to reach everyone in the room.
 
-Serakion's force was still pushing in. He was already broken in multiple places.
+The Serakion legion was still pouring in,
+and he was already broken in several places.
 
-The right leg could not hold its axis. The left shoulder was half torn away. The short mouth line on the face remained only at a barely flickering level.
+His right leg couldn't hold its axis,
+his left shoulder was half ripped away,
+and the short mouth line on his face was down to little more than a flicker.
 
 But he did not fall.
 
 He was still in front of the children.
 
-Then, from behind, one old machine that had been watching quietly walked forward.
+Then,
+one of the old machines that had been watching from behind walked forward, very quietly.
 
-No one understood at first why it was moving that way.
+At first no one understood why it was moving like that.
 
-It had not drawn a weapon. It had not pushed anyone aside.
+It hadn't taken up a weapon,
+and it hadn't shoved anyone aside.
 
-It simply went to the last android's side and looked at him, very briefly.
+It simply went up beside the last android
+and looked at him, very briefly.
 
-That gaze did not look afraid, strangely. It was closer to the eyes of someone who, after hesitating for a very long time, had finally decided where to stand.
+Strangely, the look didn't seem afraid.
+It was closer to the eyes of a person who, after hesitating a long time, had at last decided where to stand.
 
-Two Serakion units dove at them simultaneously.
+Two Serakion units lunged at them at once.
 
-And in that very moment, the elder pushed the last android to one side.
+And in that exact instant,
+the elder shoved the last android aside.
 
-The impact was too fast. Sion heard it by sound first.
+The impact was so fast
+that Sion knew it by sound first.
 
-Between the sound of metal tearing, a sound mixed in — the sound of a body that could endure no more.
+Among the sounds of tearing metal
+came the sound of a person's body that could hold out no longer.
 
-Jiwoo made the sound of breath stopping. Luhai froze without even a curse.
+Han Jiwoo made a sound as her breath stopped.
+Luhai froze, not even able to curse.
 
-The old machine's body crumpled with the Serakion units and disappeared toward the floor.
+The old machine's body buckled along with the Serakion units and vanished toward the floor.
 
-The last android, still in the posture of being shoved outward, stopped.
+The last android stopped, still in the posture of having been shoved aside.
 
-He did not move for a long while.
+For a while he did not move.
 
-As though he could not process inside himself what had just happened.
+As if he could not process, inside himself, what had just happened.
 
-The optical eye wavered once. The remaining short mouth line cut out and reconnected, barely.
+His optical eye wavered once,
+and the short mouth line that was left cut out and came back, very faintly.
 
-He did not yet know.
+He did not know yet.
 
-Why someone had pushed him to save him. Why someone had thrown their body in his place. What that meant.
+Why someone had shoved him away to save him.
+Why someone had thrown themselves in his place.
+What that meant.
 
-He had gained will. But he was still a being that did not yet know what devotion and sacrifice were.
+He had gained a will,
+but he was a being that did not yet know what devotion and sacrifice were.
 
-But that very ignorance felt more painful.
+And that not-knowing itself
+felt all the more painful.
 
-Sion watched the android and felt that too much had been left to that being all at once.
+Watching that android, Sion
+felt that too much had been left to that being all at once.
 
-The vanished companions. The faces the children gave. The old machine's death. And this battlefield that was not yet over.
+The companions who were gone.
+The faces the children had given.
+The old machine's death.
+And this battle, which wasn't over yet.
 
-But he could not yet give names to any of it.
+But he couldn't even put names to any of it yet.
 
 The last android slowly raised his head.
 
-What he looked at first was the children. Crying faces. People pushed to the rear. And the spot where someone had vanished not because of him, but to save him.
+The first thing he saw was the children.
+The crying faces.
+The people pushed back.
+And the place where, not because of him
+but to save him, someone had disappeared.
 
-He watched all of it for a long time.
+He looked at it for a long time.
 
-Then, very slowly, turned his body forward again.
+Then, very slowly,
+he turned forward again.
 
-Sion felt his chest tighten watching.
+Watching him, Sion felt his chest tighten.
 
-That was not movement from understanding. But even so, the one thing it had not lost was knowing that what remained in front of it had to be protected.
+He wasn't moving because he understood, not yet.
+And yet,
+the one thing he hadn't let go of was that what remained in front of him had to be protected.
 
-That fact — because it had been born too late — was more cruel and more sorrowful.
+Because that had been born so late,
+it was all the crueler, and all the sadder.
 
 ---
 

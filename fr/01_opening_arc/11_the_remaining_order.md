@@ -1,176 +1,276 @@
 # Chapitre 11 — L'ordre restant
 
-Les dernières paroles d'Elia laissèrent la pièce en suspens, et personne ne trouva les mots pour enchaîner.
+Sion baissa les yeux sur le fragment et expira, très bas.
 
-**Ce qui est mort avant le nom, c'est l'ordre.**
-Cette seule phrase venait de remodeler la forme même de l'affaire qu'ils s'étaient efforcés de tenir ensemble.
-L'archiviste mort, le nom effacé, les documents tronqués, les routes recouvertes — tout cela cessait d'être une série de problèmes distincts pour ressembler, soudain, à autant de fragments découpés à l'intérieur d'une même structure.
+« C'était pas qu'un problème de nom, finalement. »
 
-Sion baissa les yeux sur le fragment. Il expira très doucement.
+Seorin, les bras croisés, fit une fois le tour de la pièce du regard. Les étagères, le fragment, le manteau noir, l'ombre silencieuse à côté.
 
-« Évidemment que c'était pas qu'un seul nom. »
+« Ceux qui veulent nous tuer viennent de monter d'un cran, eux aussi. »
 
-Il y avait dans ce constat un mélange d'incrédulité et d'une odeur de chose pressentie depuis longtemps.
-Il avait toujours été davantage préoccupé par la main qui avait voulu effacer ce nom avec autant d'acharnement que par le simple fait qu'il soit revenu. Ce qu'Elia venait de dire rendait cette intuition réelle.
+Elia ne répondit pas ; elle frotta encore une fois la partie tranchée, en bas du fragment.
 
-Seorin croisa les bras et parcourut la pièce du regard.
-Le dépôt d'Elia, le fragment entre les mains de Sion, l'homme de l'Empire dans son manteau sombre, et l'ombre silencieuse à ses côtés. Puis le fait qu'eux tous venaient de s'enfoncer encore un peu plus dans les eaux noires.
+Sern prit alors la parole.
 
-« Bien. »
-Elle dit cela doucement.
-« Les gens qui veulent nous tuer viennent de monter d'un cran. »
+« Dans ce cas, la question n'est pas de savoir qui a signé, mais qui a réécrit l'ordre des signatures. »
 
-Elia ne répondit pas.
-Elle se contenta de faire glisser le bout des doigts une nouvelle fois sur la coupe inférieure du fragment.
-Monter d'un cran — c'était juste. Ce n'était plus quelqu'un qui avait effacé par antipathie ; c'était plus haut, plus ancien, le langage même de l'approbation et du scellé qui s'était mis en mouvement.
-
-Sern prit la parole à son tour.
-
-« Alors ce n'est pas une question de qui a signé, mais de qui a réécrit l'ordre des signatures. »
-
-La phrase tomba avec une froideur déconcertante.
-Et c'est précisément pour ça qu'elle pesait plus lourd.
-Sion sentit à cet instant, avec une netteté un peu plus grande qu'avant, que cet homme silencieux n'était pas redoutable de la même façon que lui — mais d'une façon entièrement différente. Lui, il flairait. L'autre, il lisait la structure.
+La phrase était d'un calme étonnant.
+Et c'était pour cela qu'elle pesait plus lourd.
+À cet instant, Sion sentit un peu plus nettement que cet homme silencieux n'était pas redoutable d'une manière qui lui ressemblait, mais d'une manière tout autre. Lui lisait les odeurs ; l'autre lisait la structure.
 
 Ater ne dit rien.
 
-Il regardait Elia, pas le fragment.
-Une femme qui semblait négligente, et dont le regard ne dérivait jamais.
-Quelqu'un qui, en dehors du circuit d'approbation de l'Empire, lisait des signatures manquantes et des ordres tranchés.
-Et ce que lui-même venait de percevoir comme une anomalie dérangeante, cette personne l'avait transformé en phrase avec une aisance presque naturelle.
+Il regardait Elia plus que le fragment. Ce qu'il n'avait fait que ressentir comme un malaise toute la journée, cette femme en avait fait une phrase et l'avait posée sur le bureau.
 
-Pour quelqu'un élevé dans le langage de celui qui ferme, c'était presque une offense.
-Parce que cette seule phrase venait d'ouvrir la possibilité que ce que l'Empire avait toujours protégé — la chaîne de l'approbation et du scellé — ne soit pas un résultat, mais un résultat monté de toutes pièces.
+La Chambre de Reconnaissance impériale protégeait les résultats. Mais si le résultat avait été monté, alors ce qu'elle avait protégé jusque-là changeait de nature.
 
-Elia ne fit pas semblant d'ignorer le regard d'Ater.
+Elia ne fit pas semblant d'ignorer ce regard.
 
-« Quoi. »
+« Quoi ? »
 
-Ater leva les yeux très lentement.
+Ater leva les yeux, très lentement.
 
-« Vous avez pu lire tout cela rien qu'avec ce fragment ? »
+« Vous avez lu tout cela rien qu'avec ce fragment ? »
 
-Elia eut un bref sourire.
+Elia rit.
 
-« C'est pas que ce fragment qui m'a permis de lire ça. »
-Elle désigna vaguement les étagères alentour d'un geste de la main.
-« Dans ce coin, les choses qu'on n'a jamais réussi à effacer entièrement — elles continuent à affluer. »
+« C'est pas seulement en regardant ce fragment que j'ai lu ça. »
+Elle désigna vaguement du doigt les étagères autour.
+« Dans ce coin, ce genre de choses qu'on n'a jamais fini d'effacer arrive sans arrêt. »
 
-« Vous voulez dire qu'il y a de nombreux cas similaires. »
+« Vous voulez dire qu'il existe de nombreux cas semblables ? »
 
-« Nombreux, faut faire attention avec ce mot. »
-Elia inclina la tête.
-« Disons plutôt que la main qui efface, elle, se ressemble souvent. »
+« Avec “nombreux”, faut faire attention. »
+Elia pencha la tête.
+« Par contre, la main qui efface se ressemble souvent. »
 
-À ces mots, la mâchoire d'Ater se figea imperceptiblement.
+À ces mots, la ligne de la mâchoire d'Ater se raidit imperceptiblement.
 
-Seorin le remarqua mais choisit de ne pas intervenir.
-Ce n'était pas le moment pour Sion de porter l'estocade, ni pour elle non plus.
-C'était le moment d'observer jusqu'où un homme de l'Empire pouvait recevoir un langage qui venait de l'extérieur de son monde.
+Seorin le vit, mais choisit de ne pas s'en mêler.
+Ce n'était ni le tour de Sion de piquer, ni le sien.
+C'était le moment de voir jusqu'où un homme de l'Empire accepterait une langue venue d'en dehors de son monde.
 
-Sion regardait moins le verdict qu'Elia avait rendu que le visage d'Ater en train de l'entendre.
-Et il pensa en lui-même, très brièvement :
+Sion regardait moins la lecture qu'Elia venait de rendre que le visage d'Ater en train de l'entendre.
+Et il pensa, très brièvement :
 
-*Il est arrivé là.*
+Il en est arrivé là.
 
-Ater continuait à fixer Elia.
-La question devant lui ne se limitait plus à retrouver un nom effacé.
-Plus précisément : **qui avait conçu jusqu'à la façon dont ce nom devait subsister**.
+Ater ne regardait toujours qu'Elia.
+La question devant lui ne s'arrêtait plus à retrouver un nom effacé.
+Plus exactement, il s'agissait de savoir qui avait conçu jusqu'à la manière dont ce nom subsisterait.
 
-Il ouvrit finalement la bouche.
+Il ouvrit enfin la bouche.
 
-« Pouvez-vous aussi lire les traces de ceux qui ont effacé l'ordre ? »
+« Pouvez-vous aussi lire les traces laissées par ceux qui ont effacé l'ordre ? »
 
-Personne dans cette pièce ne prit cette question à la légère.
+La main de Sion se crispa. Seorin ferma les yeux, puis les rouvrit. Sern ne leva pas la tête, mais son regard seul glissa vers Ater.
 
-Sion sentit ses doigts se serrer sur le fragment.
-Seorin ferma les yeux une fraction de seconde, puis les rouvrit.
-Sern ne leva pas la tête, mais son regard se déplaça imperceptiblement vers Ater.
+Elia regarda longuement Ater.
 
-Même Elia n'avait pas répondu d'emblée.
+Un homme du côté de ceux qui ferment avait demandé non pas qui avait signé, mais qui avait effacé l'ordre. Ce genre de question, seul la pose quelqu'un qui s'est déjà effondré une fois de l'intérieur.
 
-Elle le regarda un moment en silence.
-Un homme du côté de celui qui ferme. Un homme du côté du pouvoir. Et pourtant, ce qu'il venait de demander, c'était non pas qui avait signé, mais qui avait effacé l'ordre.
-Ce genre de question — seul quelqu'un qui s'était déjà effondré en lui-même une fois pouvait la poser.
+Le coin des lèvres d'Elia se releva à peine.
 
-Le coin de la bouche d'Elia se releva légèrement.
+« Les lire, oui, je peux. »
+Du bout des doigts, elle suivit la ligne tranchée sous le fragment.
+« Il y a des choses qui ne restent pas dans les documents, mais qui restent sur place. L'ordre d'accès, le rythme des levées de scellé, qui devait s'arrêter à quel rang, ce genre de choses. »
 
-« On peut lire ça, oui. »
-Elle fit courir le bout des doigts sur la ligne tranchée au bas du fragment.
-« Les documents ne gardent rien — mais le terrain, si. L'ordre d'accès, le rythme des levées de scellé, là où quelqu'un devait s'arrêter à telle ou telle étape. »
+Elle posa le fragment sur le bureau avec beaucoup de soin et poursuivit.
 
-Un silence bref.
+« Mais à partir du moment où on lit plus loin, on ne peut plus reculer. »
 
-Elle posa le fragment sur le bureau avec un soin extrême, puis continua.
+En l'entendant, Sion inspira très lentement.
+Jusque-là, ils étaient poursuivis de manière vague ; à partir de maintenant, ce serait plus précis.
+Ce n'était pas une affaire qu'on mordait un instant pour la lâcher. C'était le genre d'affaire où celui qui avait vu le nom, celui qui avait entendu l'ordre, celui qui avait apporté le fragment jusqu'ici, et celui qui décidait de le lire se retrouvaient tous pris d'un seul coup.
 
-« En échange, le moment où on lit plus loin, c'est plus seulement le fragment que t'as apporté. Ce sont vos noms qui entrent dans l'affaire. »
+Sans qu'on sache quand elle était entrée, Yona Hale écoutait en silence, près de la porte.
+Elle n'était pas de celles qui lisent les archives, mais elle connaissait l'odeur d'un risque qui coûte cher.
+Et ce qu'Elia venait de dire suffisait à lui faire comprendre que son navire n'avait pas transporté de la simple contrebande.
 
-Sion l'entendit et inspira très lentement.
-Jusque-là, ils étaient poursuivis de manière vague ; maintenant, les choses devenaient plus précises.
-Ce n'était pas une affaire qu'on pouvait mordre puis lâcher. Celui qui avait vu le nom, celui qui avait entendu parler de l'ordre, celui qui avait apporté le fragment jusqu'ici, et celui qui déciderait de lire — tous se retrouvaient embarqués d'un seul coup dans le même filet.
+Ce fut Seorin qui, la première, ramena la conversation vers le concret.
 
-Yona Hale écoutait en silence depuis le côté de la porte.
-Il n'était pas quelqu'un qui lisait les archives, mais il connaissait l'odeur d'un danger qui coûte cher.
-Et ce qu'Elia venait de dire lui disait assez clairement que ce qu'ils avaient embarqué n'était pas de la simple contrebande.
+« Alors il ne reste plus qu'à choisir. »
 
-Seorin fut la première à ramener les choses au concret.
+Sern demanda calmement :
 
-« Bien. Alors il reste plus qu'à choisir. »
-
-Sern demanda tranquillement.
-
-« Choisir. »
+« Choisir ? »
 
 « Ouais. »
-Seorin regarda tour à tour Sion, puis Ater, puis Elia.
+Seorin regarda tour à tour Sion, Ater, puis de nouveau Elia.
 « Soit on s'arrête ici, soit on lit plus loin et on ne revient vraiment plus. »
 
 La pièce se tut.
 
-Ater ne répondit pas immédiatement.
+Ater ne répondit pas tout de suite.
 Sion non plus.
-En vérité, tous les deux avaient déjà fait leur choix à moitié dans leur for intérieur — mais ils savaient que le dire à voix haute, c'était franchir le seuil suivant pour de vrai.
+En vérité, tous deux avaient déjà à moitié décidé au fond d'eux ; mais ils savaient qu'au moment où ils le diraient à voix haute, ils passeraient vraiment à l'étape suivante.
 
 Elia ne pressa pas ce silence.
-Elle rouvrit le sachet de biscuits et en sortit un qu'elle porta à sa bouche.
-Ce geste anodin produisit un effet étrange, comme s'il fixait la règle de cet espace. Même les fragments qui retournent le monde finissent ici par être posés sur un bureau, et ce n'est qu'après que les gens ouvrent la bouche.
+Elle rouvrit plutôt le sachet de biscuits, en sortit un et le mit entre ses dents.
+Ce petit geste, étrangement, ressemblait à la règle même de ce lieu. Même un fragment capable de renverser le monde, ici, on le posait d'abord sur le bureau, et ce n'est qu'ensuite que les gens ouvraient la bouche.
 
-Sion sourit le premier.
-Un rire court, incrédule.
+Ce fut Sion qui rit le premier.
+Un rire bref, incrédule.
 
-« S'arrêter maintenant qu'on est là, ce serait encore plus absurde. »
+« S'arrêter maintenant qu'on est arrivés jusqu'ici, ce serait encore plus ridicule. »
 
-Seorin claqua la langue légèrement.
+Seorin fit claquer sa langue.
 
-« Bien. Je savais que t'allais dire ça. »
+« Je savais que tu dirais ça. »
+
+Puis elle ne laissa pas passer son tour.
+
+« Moi, je suis pour qu'on s'arrête. »
+
+La pièce se tut. Sion tourna la tête.
+
+« …Quoi ? »
+
+« Tu as entendu. » Seorin ne le regardait pas ; elle regardait Elia. « Si on laisse le fragment ici et qu'on sort, on n'est que quatre personnes qui ont vu un nom. Quatre comme ça, les enterrer ou pas, ça ne se remarque même pas, alors personne ne se donnera la peine. Si on lit plus loin, on devient des gens qu'il faut enterrer. »
+
+« Tu le savais, et t'es quand même venue jusqu'ici ? »
+
+« Parce que toi, tu y vas. »
+
+Sion ne trouva rien à répondre.
+
+Alors seulement Seorin le regarda.
+
+« J'ai dit que j'étais pour qu'on s'arrête, pas que je n'y allais pas. Moi, je suis toujours celle qui veut s'arrêter, toi, toujours celui qui y va, et c'est pour ça qu'on n'est pas encore morts. Mais cette fois, je voulais le dire à voix haute, au moins une fois. »
+
+« Pourquoi ? »
+
+« Pour que le jour où tu le regretteras, on sache qui a essayé de te retenir. »
+
+Sion resta un moment sans rien dire.
+
+« …Note que tu as essayé. »
+
+« C'est déjà fait. »
+
+Seorin décroisa les bras et fit un demi-pas vers la porte. Pas pour sortir : pour se placer dos à la sortie.
+
+« Alors lis. »
 
 Ater ferma les yeux un instant, puis les rouvrit.
-Les paroles de Kairon, le langage du circuit d'approbation, la responsabilité de celui qui ferme. Tout cela résidait encore dans son corps — mais la question qu'il venait lui-même de poser, il ne pouvait plus la reprendre.
+Les paroles de son père Kairon, la langue de la Chambre de Reconnaissance, la responsabilité de celui qui ferme. Tout cela restait encore dans son corps, mais la question qu'il venait de poser lui-même, il ne pouvait déjà plus la reprendre.
 
 Il dit calmement :
 
-« Je vais lire davantage. »
+« Je vais lire plus loin. »
 
-Sern ne dit rien, mais il avait le visage de quelqu'un qui allait graver dans sa mémoire le temps qu'il avait fallu pour parvenir à cette réponse.
-À quel moment Son Excellence avait franchi de lui-même la ligne sans retour — il n'oublierait pas.
+Sern ne dit rien, mais il avait le visage de quelqu'un qui garderait en mémoire tout le temps qu'il avait fallu pour que cette réponse vienne.
+À quel moment Son Excellence avait franchi de lui-même la ligne du retour, il ne l'oublierait pas.
 
-Elia hocha la tête.
+Alors seulement Elia hocha la tête.
 
-« Bien. »
+« Bon, ça me va. »
 
-Elle ouvrit le tiroir à côté du bureau et en sortit une paire de gants de conservation fins et une petite tablette de lecture portable.
+Elle sortit du tiroir, à côté du bureau, une paire de gants de conservation fins et une petite tablette de lecture portative.
 
-« Alors le vrai travail commence maintenant. »
+« Alors, le vrai travail commence maintenant. »
 
-L'air de la pièce s'alourdit une nouvelle fois.
+La tablette tenait dans la paume, et n'avait pas d'écran. On y posait le fragment, et la lumière montait par-dessous. Elia y posa le fragment et changea deux fois l'angle.
 
-Dehors, le bruit du port ne mourait toujours pas, et cette ruelle n'était pas complètement sûre.
-Mais dans ce petit dépôt, les quatre personnes se tenaient au seuil d'une autre espèce de franchissement — quelque chose qui dépassait une simple fuite.
+« Je commence par le feu. »
 
-Le nom de Jun Astel était revenu.
-Ce qu'il restait à faire, c'était de remonter jusqu'à celui qui avait effacé l'ordre avant et après ce nom, et de comprendre pourquoi cet ordre avait dû être réécrit.
+« Le feu ? » demanda Sion.
 
-Et ce n'était déjà plus l'affaire d'une seule personne.
+« L'endroit brûlé, c'est le plus honnête. Celui qui brûle croit avoir tout fait disparaître, alors il n'efface pas les marques de brûlure. »
+
+La lumière monta lentement sous le fragment. À l'intérieur du bord noirci et mort, un grain invisible à l'œil nu se sépara en couches.
+
+La main d'Elia s'arrêta.
+
+Elle resta longtemps arrêtée.
+
+« Quoi ? » demanda Sion.
+
+« …Deux fois. »
+
+« Ça a été brûlé deux fois ? »
+
+« Non. » Elia fit pivoter le fragment du bout des doigts pour amener la partie tranchée vers le haut. « Regarde la section, ici. L'endroit évidé. Le bord de cette section s'est oxydé, la couleur est morte. Métal ou surface de tablette, dès que c'est coupé, la couleur commence à mourir, et pour qu'elle meure à ce point-là, il faut longtemps. »
+
+Ce fut Sern qui comprit le premier.
+
+« Pourtant, les marques de brûlure sont récentes. »
+
+« Ouais. »
+
+Sans éteindre la tablette, Elia poursuivit.
+
+« Ça veut dire que la main qui a évidé l'ordre et celle qui a brûlé le reste n'ont pas travaillé le même jour. L'évidage, c'était il y a longtemps ; la brûlure, il y a quelques jours. »
+
+Ater demanda, très bas :
+
+« Il y a combien de temps ? »
+
+« Ça, ce truc-là ne le dit pas. Il dit juste que c'est vieux. »
+
+Sion baissa les yeux sur le fragment.
+
+Quelques jours plus tôt, quelqu'un avait brûlé ceci, puis avait poursuivi l'Archiviste jusqu'à R-12 et l'y avait tué. Ça, désormais, il le savait. Mais ce n'était pas cette personne qui avait évidé l'ordre.
+
+« Alors celui qui a brûlé, » dit lentement Sion, « il est venu effacer quelque chose qu'il n'avait même pas évidé lui-même. »
+
+« C'est ça. »
+
+« Pourquoi ? »
+
+Elia reprit le sachet de biscuits.
+
+« Ça, c'est la question que tu n'as pas posée tout à l'heure. »
+
+L'air de la pièce retomba encore une fois.
+
+Debout près de la tablette, Sern continuait de regarder la section.
+
+« Excellence. »
+
+« Parlez. »
+
+« On peut compter les années au degré d'oxydation. C'est la méthode employée pour la vérification des scellés à la Chambre de Reconnaissance. »
+
+Ater le regarda.
+
+« Est-ce faisable ici ? »
+
+« Nous n'avons pas l'équipement. » Sern marqua une pause. « Mais même sans lui, on peut obtenir une borne inférieure. »
+
+« Une borne inférieure. »
+
+« Une valeur qui dit : au moins ce temps-là. »
+
+Sern ne tendit pas la main vers le fragment. Il compta plutôt des yeux, plusieurs fois, les couches de lumière montées de la tablette. Trois, quatre, et plus encore en dessous.
+
+Jusqu'à trois, c'était une valeur familière. Une épaisseur qu'il voyait souvent dans les archives de la Chambre de Reconnaissance. Qu'il y en ait davantage en dessous signifiait que cette section était déjà coupée avant même qu'il n'entre aux archives.
+
+« Avant de vous le dire, permettez-moi une question. »
+
+« Je vous en prie. »
+
+« Quand êtes-vous entré pour la première fois à la Chambre de Reconnaissance, Excellence ? »
+
+Ater ne répondit pas.
+
+Sern ne demanda rien de plus. Il connaissait déjà la réponse, et il savait aussi, désormais, qu'elle tombait bien après le moment où la section avait été coupée.
+
+Dehors, le bruit du port ne mourait toujours pas.
+
+Elia éteignit la lumière de la tablette.
+
+« Ça suffit pour aujourd'hui. »
+
+« Pourquoi ? » demanda Sion.
+
+« Si je continue, j'ai peur qu'une réponse sorte. »
+
+« Et c'est un problème ? »
+
+Elia rangea le fragment dans une boîte de conservation et en referma le couvercle.
+
+« Chaque fois qu'une réponse sort, il y a un endroit de plus où vous devez aller. Aujourd'hui, il en est sorti une ; pour aujourd'hui, ça suffit. Deux destinations fixées, vous ne pourrez pas les faire en une journée. »
 
 ---
 

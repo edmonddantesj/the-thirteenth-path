@@ -2,47 +2,51 @@
 
 Cuando el sol empezó a inclinarse, el mercado de chatarra empezó a sacar una cara del todo distinta a la del día.
 
-Sion, al principio, hasta dudó un momento de si era el mismo lugar.
+Al principio, Sion hasta dudó un momento de si era el mismo lugar.
 
-La Hazran del día era primero calor, polvo de metal y deslumbre. El viento azotaba la orilla de las lonas antes que la cara de la gente, y los restos de casco estaban más cerca de la amenaza que de la sombra. Pero cuando el sol rojo bajó y la superficie de las planchas de metal, antes ardientes, empezó a enfriarse poco a poco, todo lo que de día parecía solo áspero empezó a cumplir otra función.
+La Hazran del día era, antes que nada, calor, polvo de metal y deslumbramiento. El viento azotaba el borde de las lonas antes que la cara de la gente, y los restos de las naves muertas estaban más cerca de la amenaza que de la sombra. Pero cuando el sol rojo fue bajando y la superficie de las planchas de metal, antes ardientes, empezó a enfriarse poco a poco, todo lo que de día solo parecía áspero empezó a cumplir otra función.
 
-Las finas láminas de metal que colgaban sobre las lonas daban un sonido muy leve cada vez que las rozaba el viento, y la tela aislante del calor, antes rasgada, brillaba más bien como una delgada membrana roja al recibir la luz del atardecer. Lo que de día parecía solo un esqueleto de casco roto, en la hora que cruzaba hacia la noche se volvía pilar para colgar lámparas, se volvía muro de resguardo, se volvía señal a la entrada de un callejón.
+El metal, al enfriarse, hacía ruido. Las planchas que se habían dilatado durante el día se encogían, y aquí y allá, por los callejones, saltaba un chasquido corto: tac, tac. Los primeros días, cada vez que sonaba, Sion volvía la cabeza. Ahora ya no la volvía. En Hazran, los sonidos peligrosos no son tan regulares.
 
-El montón de metal que de día arrancaban y cargaban afuera, al caer la tarde se alzaba de nuevo como el esqueleto del mercado.
+Al irse el calor, la arena que había pasado todo el día posada en una capa fina sobre todas las cosas se asentó hacia abajo. Solo cuando bajó aquella capa de gris pardo volvieron a asomar las lonas pintadas de rojo, los trozos de vidrio y la marca que habían dejado unas manos en algún asa frotada durante mucho tiempo.
 
-Sion soltó un respiro muy pequeño al verlo.
+Las finas láminas de metal que colgaban sobre las lonas daban un sonido levísimo cada vez que las tocaba el viento, y la tela aislante del calor, antes rasgada, brillaba en cambio como una tenue membrana roja al recibir la luz del atardecer. Lo que de día parecía solo el esqueleto de un casco roto, en la hora en que se pasaba a la noche se volvía poste para colgar lámparas, se volvía mampara, se volvía señal a la entrada de un callejón.
 
-Hazran era más hermosa de lo que pensaba.
+El montón de metal que de día se arrancaba y se acarreaba, alzado de nuevo al caer la tarde como el armazón del mercado.
 
-Claro que no era una belleza recta y limpia. Tenía rastros de remiendo, tenía la veta del desgaste, era una luz hecha a duras penas con lo que había sobrevivido aquel día.
+Sion, al verlo, soltó un suspiro muy pequeño.
 
-Pero justo por eso se quedaba uno mirando más rato.
+No era una luz recta y limpia. Tenía rastros de remiendo, tenía la veta del desgaste; era una luz hecha a duras penas entre las cosas que habían sobrevivido aquel día.
 
-Luhai, como si hubiera esperado esa reacción, habló yendo en cabeza.
+Pero justo por eso uno se quedaba mirándola más rato.
 
-—Si solo ves el día, sales perdiendo —dijo sonriendo—. El bazar de verdad abre cuando el sol se muere un poco.
+Luhai, como si hubiera estado esperando esa reacción, se adelantó y habló.
 
-Seorin habló justo al lado.
+—Si solo ves el día y te vas, sales perdiendo.
+Lo dijo sonriendo.
+—El bazar de verdad abre cuando el sol se ha muerto un poco.
+
+Seorin habló justo a su lado.
 
 —Hablas como si fueras el dueño.
 
 Luhai se encogió de hombros.
 
-—Aunque no sea el dueño, sí puedo ser alguien que lo quiere.
+—No seré el dueño, pero puedo ser alguien a quien le gusta, ¿no?
 
-Lo soltó a la ligera, pero, por extraño que fuera, no sonó a palabra hueca.
+Lo soltó a la ligera, pero, por raro que fuera, no sonó a palabra vacía.
 
-Sion lo rumió un momento y al final preguntó.
+Sion le dio vueltas y al final preguntó.
 
 —¿Qué es lo que tanto te gusta?
 
-Luhai, antes de responder, echó una mirada alrededor.
+Antes de responder, Luhai echó un momento una mirada alrededor. Tenía la cara de quien no entiende por qué le preguntan algo tan obvio.
 
-Tenía la cara de quien no entiende por qué le preguntan algo tan obvio.
+—Todos ven esto como un vertedero.
+Luhai lo dijo.
+—Pero lo que de verdad vale suele esconderse en sitios así.
 
-—Todos ven esto como un basurero —dijo—. Pero lo de verdad valioso suele esconderse en sitios así.
-
-Señaló con la barbilla una lona cercana. Dentro había algo, especias o hierbas secas no se sabía, apilado en capas en cuencos poco hondos, y al lado unas lamparillas que parecían hechas fundiendo de nuevo trozos de vidrio roto guardaban una luz roja y azul. Un poco más adentro había placas de adorno hechas estirando finas láminas de metal comido por el calor, y un trozo de brújula vieja que parecía más caro que el precio del agua, y piezas de máquina que a primera vista parecían chatarra pero cuyo precio quien sabe volvería a mirar.
+Señaló con la barbilla una lona cercana. Dentro, cosas que no se sabía si eran especias o hierbas secas se apilaban por capas en cuencos poco hondos, y al lado unas lamparillas que parecían hechas fundiendo otra vez trozos de vidrio roto guardaban una luz roja y azul. Un poco más adentro había placas de adorno hechas estirando finas láminas de metal comido por el calor, trozos de brújulas viejas y piezas de máquina que a primera vista parecían chatarra, pero que quien entendiera volvería a mirar empezando por el precio.
 
 Luhai siguió hablando.
 
@@ -50,103 +54,144 @@ Luhai siguió hablando.
 
 Sion, al oírlo, volvió a mirar el mercado.
 
-Era cierto.
+Tenía razón.
 
-De día, la misma lona parecía solo un punto de trato. Pero ahora cada callejón tenía un ritmo escondido. En algún sitio temblaba bajo un sonido parecido al de un instrumento de cuerda pequeño, en algún sitio un vendedor de agua llamaba a la gente golpeando taza contra taza de fino metal. Un leve olor a incienso y a fruta seca, el olor del metal al enfriarse y el del polvo se mezclaban entre sí, y, por extraño que fuera, ninguno quedaba del todo desplazado.
+De día, la misma lona parecía solo un puesto de trato. Pero ahora cada callejón tenía un ritmo escondido. En algún sitio temblaba bajo un sonido parecido al de un pequeño instrumento de cuerda; un leve olor a incienso y a fruta seca, el olor del metal al enfriarse y el del polvo se mezclaban entre sí, y, por raro que fuera, ninguno quedaba del todo desplazado.
 
-Este no era un sitio que fingía ser hermoso. Más bien parecía un sitio donde lo que había sobrevivido, al caer la tarde, recuperaba su luz de a poco.
+Este no era un sitio que fingiera ser hermoso. Parecía, más bien, un sitio donde lo que había sobrevivido recuperaba, al caer la tarde, su luz poco a poco.
 
-Hoy no se movían del todo en grupo.
+El aguador estaba a la entrada del callejón.
 
-Para recoger lo que hacía falta no había más remedio que separar los caminos. Han Jiwoo seguía aún adentro, ajustando con Aka la lista de materiales, y Kael se había escabullido primero hacia donde había metal del revestimiento y piezas de repuesto. Ater y Sern dieron la vuelta por otro callejón, a comprobar los movimientos de la línea de retorno y del lado de Harún, y hasta dónde volvía a apretar el orden hoy la mano de Zahir.
+Sostenía dos tazas finas de metal entre los dedos y las hacía chocar, tac, tac, para llamar a la gente. Aquel sonido, más que un pregón, se parecía al de alguien que mide el tiempo. El bidón que tenía detrás era viejo, pero la junta de la tapa la habían cambiado por una nueva, y en el costado había marcas trazadas a mano. Eran rayas: hasta dónde había vendido hoy, y a partir de dónde ya no vendía.
 
-Al final, quienes caminaban juntos ahora por este callejón eran Sion y Seorin, y Luhai, que se había metido con naturalidad por su propio pie.
+Luhai, con soltura, tomó una de las tazas.
 
-Seorin dijo en voz baja.
+—¿Cuánto hoy?
 
-—¿Por qué sigues pegado a nosotros tan campante?
+El aguador dijo el precio. Luhai arrugó la cara al instante.
 
-Luhai se rio.
+—Ha subido desde ayer.
 
-—A estas alturas, si ando solo, resulto más sospechoso.
+—Ayer no soplaba el viento.
 
-—Sospechoso ya lo eras de antes.
+Sion, al oír esa respuesta, se detuvo un momento. El precio no había subido por una persona, sino por el viento. Si sopla el viento, la arena se mete por la junta del bidón; si hay que cambiar la junta, eso mismo se le suma al precio. Aquí el tiempo que hace se sienta directamente en medio del regateo.
 
-—Eso lo admito.
+Seorin preguntó corto, a su lado.
 
-Sion, oyendo el ir y venir de los dos, dejó escapar una risita.
+—¿Dos tazas?
 
-Luhai, como si hubiera calculado hasta esa reacción de Sion, fue en cabeza aún más animado.
+El aguador volvió a decir el precio, y Seorin le rebajó exactamente una muesca. Ni más ni menos. El aguador soltó una risa corta.
 
-—Por aquí —dijo—. Por fuera no parece gran cosa, pero el callejón de adentro es lo de verdad.
+—No es tu primera vez en Hazran.
 
-El callejón al que los llevó era un sitio que de día, al pasar, se habría tomado por un simple pasadizo detrás de una lona plegada y se habría dejado atrás. Pero apenas unos pasos hacia dentro, se escondía un bazar mucho más hondo y silencioso que el de fuera.
+—Sí que lo es.
+Lo dijo Seorin.
+—Pero no es mi primer bidón.
 
-Por arriba, tela fina y red de metal se superponían tapando el cielo a medias, y entre ellas la luz roja que caía se mezclaba con la luz de las lamparillas y dejaba manchado el suelo del callejón. A ambos lados se apretaban tiendas pequeñas hechas remendando trozos de tela y paneles de metal, y entremedio se mezclaban agua, incienso, vidrio, hierbas medicinales, piezas, abalorios y placas grabadas viejas.
+A eso el aguador no contestó. En cambio, llenó la taza. Era una taza mellada. Un lado del borde se había roto hacía mucho, y para beber había que poner la boca por el otro lado.
+
+Sion tomó aquella taza y, por primera vez, supo lo seco que había estado todo el día. El agua estaba tibia y sabía a hierro. Aun así, mientras le bajaba por la garganta, no pensó en nada más.
+
+—Aquí el agua es lo más honrado que hay.
+Luhai lo dijo después de vaciar su taza.
+—No se puede engañar con ella. En cuanto la bebes, lo sabes.
+
+Sion devolvió la taza vacía y se quedó largo rato con aquellas palabras.
+
+Que en una ciudad que le pone precio a todo hubiera una cosa cuyo precio no se puede falsear.
+
+Al darse la vuelta, un gesto conocido, al otro lado del callejón, se le quedó prendido en la vista.
+
+Una mujer tiraba del brazo de un niño para ponerlo detrás de sí. No era tanto tirar como una mano que casi lo plegaba hacia dentro. Sion conocía aquella mano. El primer día que entraron en Hazran, cuando el niño se quedó mirando a los forasteros, la madre le arrastró el brazo y lo metió detrás de su espalda: era aquella mano. Entonces la madre le había dicho al niño: «No mires. Si te enredas por mirar a los forasteros, lo primero que te rebajan es tu precio.»
+
+Hoy aquella mano llegó un poco tarde.
+
+El niño vio primero a Sion y, esta vez, no apartó los ojos enseguida. Solo retrocedió medio paso cuando la mano de su madre le tocó el brazo, y aun así siguió con la cabeza vuelta hacia aquí.
+
+Sion no levantó la mano. Si saludaba, el precio de aquel niño podía bajar de verdad.
+
+En cambio, le sostuvo la mirada un instante muy breve y siguió de largo.
+
+—¿Lo conoces?
+Lo preguntó Luhai.
+
+—No.
+Lo dijo Sion.
+—Pero lo vi el primer día.
+
+—Entonces sí lo conoces.
+
+Sion no contestó. No sabía bien si eso era conocerlo. Solo sabía que en esta ciudad había empezado a ver dos veces a la misma persona. Cuando llegó, todo era una sola masa. Ahora las caras se iban desprendiendo una a una.
+
+—Por aquí.
+Luhai lo dijo.
+—Por fuera no parece gran cosa, pero el callejón de dentro es el de verdad.
+
+El callejón al que los llevó era un sitio que, de pasar por él de día, uno habría tomado por un simple pasadizo detrás de una lona plegada y lo habría dejado atrás. Pero bastaron unos pasos más hacia dentro para encontrar escondido un bazar mucho más hondo y silencioso que el de fuera.
+
+Arriba, tela fina y red de metal se superponían y tapaban medio cielo, y entre ellas la luz roja que caía se mezclaba con la de las lamparillas y dejaba manchado el suelo del callejón. A ambos lados se arrimaban tiendas pequeñas hechas cosiendo trozos de tela y paneles de metal, y entre unas y otras se revolvían agua, incienso, vidrio, hierbas medicinales, piezas, abalorios y viejas placas grabadas.
 
 Sion, al ver aquello, se quedó un momento sin palabras.
 
-Era el mismo sitio que el mercado de chatarra que veía de día, y a la vez un sitio del todo distinto.
+Era el mismo mercado de chatarra que veía de día y, a la vez, un sitio del todo distinto.
 
 Luhai se encogió de hombros.
 
-—Mira —dijo—. No presumo en vano.
+—¿Ves? No presumo por nada.
 
 Seorin le echó una mirada de reojo.
 
-—Para llevar un día aquí, hablas mucho.
+—Para llevar un día viéndolo, hablas muy fuerte.
 
-Luhai esta vez no se rio enseguida.
+Esta vez Luhai no se rio enseguida. En cambio, habló un poco más bajo.
 
-En su lugar habló un poco más quedo.
-
-—Justo por llevar un día, hay cosas que se ven mejor —dijo—. La gente de fuera ve esto solo como un sitio sucio, ruidoso y peligroso. Pero hasta en un sitio así hay cosas que no se tiraron y se guardaron hasta el final.
+—Justo por ser un día, hay cosas que se ven más.
+Luhai lo dijo.
+—La gente de fuera solo ve esto como un sitio sucio, ruidoso y peligroso. Pero hasta en un sitio así hay cosas que nadie tiró y que se guardaron hasta el final, ¿no?
 
 Miró, al fondo del callejón, una lona donde habían colgado como una vela un trozo de vidrio medio roto.
 
-—A mí me gustan esos sitios.
+—A mí esos sitios me gustan.
 
-Aquella palabra era mucho más sincera de lo que esperaba.
+Aquello era mucho más sincero de lo esperado.
 
-Sion, en el instante en que lo oyó, creyó entender un poco por qué Luhai se enorgullecía de este lugar.
+Sion, al oírlo, creyó entender un poco por qué Luhai estaba orgulloso de este lugar.
 
-Hazran no es un sitio recto. Pero para volver a escoger el valor verdadero de entre lo desechado, quizá fuera un sitio más honesto que cualquier otro.
+Hazran no es un sitio recto. Pero, para volver a escoger el precio verdadero de entre lo desechado, quizá fuera un sitio más honrado que cualquier otro.
 
-Seorin también oyó aquello, pero esta vez no se burló enseguida.
+Seorin también lo oyó, pero esta vez no se burló enseguida. En cambio, habló en voz baja.
 
-En su lugar dijo en voz baja.
+—Sí que es un sitio para presumir.
 
-—Sí que es para presumir.
+Luhai abrió un poco más los ojos al oírlo, y enseguida se rio.
 
-Luhai abrió los ojos un poco al oírlo, y enseguida se rio.
-
-—Vaya, oírlo de tu boca vale mucho.
+—Vaya, oírlo de tu boca le sube mucho el precio.
 
 —No lo recuerdes mucho tiempo.
 
-—Qué dura eres.
+—Qué cruel.
 
-Sion, viendo a los dos darse réplica así, tuvo de pronto el presentimiento de que este rato quedaría más tiempo de lo que pensaba.
+Sion, viendo a los dos lanzarse réplicas así, tuvo de pronto el presentimiento de que este rato iba a quedarse más tiempo del que pensaba.
 
-La luz roja de antes de que el sol se fuera del todo, las lámparas bajo las lonas remendadas, el callejón donde lo que había sobrevivido, al caer la tarde, recuperaba de a poco su cara, y Luhai, mostrándolo como un orgullo.
+La luz roja de antes de que el sol se fuera del todo, las lámparas bajo las lonas remendadas, una taza de agua tibia cuyo precio no se podía falsear, los ojos del niño cruzados por segunda vez, el callejón donde lo que había sobrevivido recuperaba poco a poco su cara al caer la tarde, y Luhai, que lo enseñaba todo como un orgullo.
 
-Antes de partir, parecía una escena que solo podía llevarse consigo quien no se hubiera limitado a cruzar el lugar, sino que al menos una vez lo hubiera mirado de verdad.
+Quien solo pasara por aquí no podría llevarse esto. Sion lo pensó y lo miró una vez más.
 
-Y en medio de todo aquello, Sion oyó el sonido de un paso muy cercano a su lado.
+Y en medio de todo aquello, Sion oyó el sonido de un paso muy cerca, a su lado.
 
 Era Seorin.
 
-Era una distancia que siempre había conocido. Pero hoy, por extraño que fuera, la sentía más nítida que de día.
+Era una distancia que siempre había conocido. Pero hoy, por raro que fuera, la sentía más nítida que de día.
 
-Una distancia que, por familiar, había dejado pasar sin reparar en ella. Pero bajo la luz del atardecer, una distancia que se sentía como si hasta a esa familiaridad pudiera ponérsele un nombre más.
+Una distancia que, por familiar, había dejado pasar sin pensar. Pero bajo la luz del atardecer, una distancia que parecía poder recibir un nombre más, incluso en esa familiaridad.
 
-Sion miró al frente sin más.
+Sion miró solo al frente, sin motivo.
 
 Seorin no dijo nada.
 
-En su lugar, la luz de una lamparilla de vidrio que oscilaba al fondo del callejón le rozó un instante el perfil al pasar.
+En cambio, la luz de una pequeña lámpara de vidrio que oscilaba al fondo del callejón le rozó un instante el perfil al pasar.
 
-Sion la vio, y no logró apartar la mirada enseguida.
+Sion lo vio y no logró apartar la mirada enseguida.
 
 ---
 

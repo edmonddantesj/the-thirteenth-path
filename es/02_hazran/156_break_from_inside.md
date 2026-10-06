@@ -18,7 +18,7 @@ Por eso esta vez tenía que ser distinto.
 No romper desde fuera,
 sino desajustar primero, de forma mínima, desde dentro.
 
-El grupo de reconocimiento y las máquinas de recuperación ya no vigilaban juntos el antes y el después de la línea de relevo, como antes.
+El grupo de reconocimiento y las manos de recuperación ya no vigilaban juntos el antes y el después de la línea de relevo, como antes.
 Al contrario, se repartieron más separados.
 
 Kael volvió a leer la estructura de cierre,
@@ -67,7 +67,7 @@ Han Jiwoo dijo muy bajo.
 
 Ater preguntó sin mover la mirada.
 
-—¿Seguro?
+—¿Está segura?
 
 Han Jiwoo respondió.
 
@@ -85,7 +85,7 @@ pisa por primera vez el compás de otra manera.
 El problema era
 quién lo haría y cómo.
 
-La segunda máquina de recuperación preguntó bajo.
+La segunda mano de recuperación preguntó bajo.
 
 —¿Hay que tocarlo?
 
@@ -138,7 +138,7 @@ Justo antes de la tercera parada,
 fue en ese instante.
 
 Un niño pequeño, en vez de levantar la cabeza,
-miró la izquierda demasiado brevemente.
+miró a la izquierda demasiado brevemente.
 
 Podía decirse incluso que era un error sin sentido.
 Fue de verdad tan fugaz
@@ -181,7 +181,7 @@ Han Jiwoo dijo casi como un soplo.
 
 —Ya viene.
 
-La segunda máquina de recuperación cambió enseguida de postura.
+La segunda mano de recuperación cambió enseguida de postura.
 
 Todavía no tocaba la fila.
 Pero, para poder entrar en cualquier momento,
@@ -200,7 +200,7 @@ Entonces,
 otro humano que estaba justo al lado de aquel niño
 aflojó el hombro de forma de verdad mínima.
 
-Aquello no parecía el error de un niño adoctrinado.
+Aquello no parecía el error de un niño contagiado.
 Más bien,
 estaba más cerca de quien, al ver el desajuste de delante,
 retrasó también su propio cuerpo un poco.
@@ -234,7 +234,7 @@ Kael dijo bajo.
 —Ahora sí.
 
 En el instante en que cayeron esas palabras,
-la segunda máquina de recuperación entró.
+la segunda mano de recuperación entró.
 Han Jiwoo se movió casi a la vez.
 
 Este rescate no fue, como el primero, una forma de arrancar de golpe desde fuera de la fila.

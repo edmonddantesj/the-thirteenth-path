@@ -49,9 +49,9 @@ Pero justo por eso
 pinchaba donde nadie podía esquivar.
 
 Hasta ahora la gente
-lo había visto fuerte,
-lo había visto extraño,
-lo había visto cambiar.
+los había visto fuertes,
+los había visto extraños,
+los había visto cambiar.
 
 Pero ese niño, por primera vez,
 vio a ese ser como «alguien que puede doler».

@@ -1,198 +1,222 @@
 # Episode 62. The Inside She Finally Showed
 
-After the courtyard settlement ended, the people did not scatter immediately.
+The courtyard settlement was over, but people did not scatter right away.
 
-The opposite, in fact.
+If anything, the opposite.
 
-The bigger a board had flipped, the later Hazran's people moved. They waited until they had fully seen who had truly lost, who held the real thing, who would grip the next stake—only then did they lift their feet. So even after Zahir said "compensation will be settled inside," the courtyard air did not loosen easily.
+The harder a board had flipped, the slower the people of Hazran moved. Who had really lost, who was holding the real thing, who would hold the next stake—they watched all of it to the end before they took a step. So even after Zahir said "The reward is settled inside," the air in the courtyard did not ease.
 
-Those words were permission and a line drawn at once.
+The words were permission, and a line drawn at the same time.
 
-The people who could enter further inside, and the people who had to stand and watch from here—split.
+They meant the ones who could go further inside would split here from the ones who had to stand and watch from this far.
 
-Harun said nothing. Nasim did not attach a joke this time either. Luhai looked desperate to speak, but true to a kid who knew he could be cut the instant he pushed in, he bit his teeth once and held. Seorin was reading the distances between Zahir, Aka, and Nahira again before any of the surrounding reactions.
+Harun said nothing.
+Nasim didn't tack on a joke this time either. Luhai looked like he was dying to talk, but like a kid who knew he could be cut off the moment he really butted in, he bit down once and held it. Seorin, ahead of the reactions around her, was reading the distance between Zahir, Aka and Nahira again.
 
-Sion had not yet let go of the ember in his hand.
+Sion still hadn't let go of the ember in his hand.
 
-It no longer felt like a trophy brought from the arena. It was closer to a key testing how far he could carry it. The very low, tenacious heat kept pulsing inside his palm.
+It no longer felt like a trophy brought back from the arena. It was closer to a key that tested how far he could carry it in. A very low, stubborn heat kept up its pulse in his palm.
 
-Zahir said shortly.
+Zahir spoke, short.
 
 "Inside."
 
-At that single word, only Harun, Nahira, and two hands draped in black cloth moved. Not attaching an excessive number of people seemed to be another rule. As though bringing the real thing inside required fewer witnesses than spectators.
+At that one word, only Harun and Nahira moved, along with two hands from the inside wrapped in black cloth. Not sending too many people seemed to be a rule as well. As if carrying the real thing in called for fewer witnesses than onlookers.
 
 "How far?"
-Seorin asked low.
+Seorin asked, low.
 
-Zahir answered without looking at her.
+Zahir answered without even looking at her.
 
-"As far as I choose to show."
+"As far as I show."
 
-Seorin's face said she did not like that answer, but she did not press further. She already knew that what mattered in Hazran's interior was not extracting more words first, but seeing how far they actually showed.
+Seorin's face said she didn't like the answer, but she didn't ask again. She already knew that here, inside Hazran, what mattered now wasn't wringing more words out first, but watching how far they would actually show.
 
-The inner corridor was quieter than the compartment they had passed through before the race.
+The inner passage was quieter than the section they had walked through before the match.
 
-The outside heat and sand smell thinned, replaced by the closer scent of long-polished metal, dry herbs, and moisture-free cloth. The smell of a space that let someone stay long without letting them feel safe. Sion thought of the tent interior where he had first seen Aka. But this was deeper. A living space that was also a hidden compartment. A place that rested people, isolated them, and only admitted hands that had passed the test—closer to a true interior.
+The heat and the sand smell of outside thinned, and the smells of long-polished metal, dried herbs and cloth with no damp in it came closer. It was the smell of a space that let someone stay a long time but never let them relax too easily. Sion thought of the inside of the tent where he had first seen Aka. But this went deeper than that. A living space, and a hidden section at the same time. An inside closer to the kind that let people rest, kept people apart, and let in only the hands that had passed the test.
 
-Luhai could not hold back and murmured very quietly.
+Luhai finally couldn't hold it in and muttered, very quietly.
 
-"Wow, they're actually letting us in."
+"Wow, they're really letting us in."
 
-Nasim said without smiling this time.
+Nasim spoke, and this time he didn't laugh.
 
-"No one decided to let you in yet."
+"Nobody's decided yet to let you in too."
 
-Luhai's mouth shut immediately.
+Luhai's mouth shut at once.
 
-From that short scene alone, Sion could tell. The people going inside now were not simple companions—they were only the hands directly connected to the board's result. The hand that held the real ember, the hands that brought it back alive, and the hand that would judge the result.
+That short exchange was enough for Sion to see it. The ones going inside now weren't just tagging along; they were only the hands tied directly to the result of the board just played. The hand that held the real ember, the hand that had kept that ember alive and brought it back, and the hand that would judge the result.
 
-Kael was still spare with words. Instead, he kept watching the inner wall surfaces, the entry structure, the positions of Harun's people's hands. The race being over did not mean wariness was dead. His were the eyes of someone whose body knew that quiet stretches like this could be more dangerous.
+Kael still said little. Instead he kept watching the inner walls, the way the entrances were built, where Harun's people kept their hands. The match being over didn't mean the guard was dead. If anything, his were the eyes of someone whose body knew first that a quiet stretch like this could be more dangerous.
 
-Sern was watching something different.
+Sern was looking at something else.
 
-The inner structure itself.
+The structure of this inside itself.
 
-Who stayed where for how long, which doors were for living, which for storage, which side held water and herbs and which carried a stronger metal smell. A calculating person always read a space this way. Not to plan an escape later, but to distinguish right now which compensation was only words and which actually existed.
+Who stayed where for long, which doors were for living and which for storage, where the water and herbs were and where the smell of metal ran thicker. People who calculate always read a space this way. Not to escape later, but to sort out first which rewards were only words and which actually existed.
 
-At the end of the corridor, Zahir stopped.
+At the end of the passage, Zahir stopped.
 
-Before him lay a half-revealed new compartment.
+Ahead of him lay a new section, half in view.
 
-A space seen for the first time, but Sion knew instantly. This was not a waiting room, a workshop, or a public board like the courtyard. The inside of the inside. The true interior that Zahir did not casually admit outsiders to.
+Sion had never seen the space before, but he knew at once. This was no waiting room, no workshop, no open board like the courtyard. The inside of the inside. The real inside, where Zahir did not let outsiders in lightly.
 
-And suspended within it was a hull, half-disassembled.
+And inside it hung a hull, half taken apart.
 
-Not just a stripped-down derelict skeleton, to be precise.
+To be exact, it wasn't just the bare skeleton of a wreck.
 
-The hull was fundamentally different in grain from the desert skiffs and gliders. Longer, the frame thinner, the outer skin half-peeled but the original form still alive. Extension plate structures like folded fins rather than wings. Thrust fixtures oriented differently from desert hover devices. And etherite bonding traces patched in here and there.
+It was a hull of a different grain from the desert skiffs and gliders. It was longer, its frame thinner, and its skin was half stripped away, but its original shape had not died yet. An extension structure more like folded fins than wings, thrust mounts set in a different direction from desert hover gear, and here and there the traces of Etherite patched into the joins.
 
-Jiwoo's eyes changed completely for the first time.
+Han Jiwoo's eyes changed completely for the first time.
 
-Not the eyes of a pilot looking at a craft. The eyes of someone who had realized a craft thought dead was not entirely dead yet.
+This time they weren't a pilot's eyes looking over a craft, but the eyes of someone who had recognized that a craft she thought was dead was not completely dead yet.
 
-He stepped forward almost by reflex.
+She took a step forward, almost by reflex.
 
-"This is..."
+"This…"
 
-He could not finish.
+She couldn't finish.
 
-Sion stopped breathing too.
+Sion stopped breathing, too.
 
-This was not a simple reward. Not a metal trade to be closed with a bit of etherite. This was an object on the level of wagering an entire next-stage means of travel.
+This was not a simple reward.
+Not a metal deal that ended with a little Etherite, but a thing on a level you could stake the whole next means of travel on.
 
-Luhai could not keep his mouth shut this time either.
+This time Luhai couldn't keep his mouth shut either.
 
-"Wow."
-He said with genuine awe.
-"You had this hidden inside?"
+"Wow,"
+he said, in real awe.
+"They hid this in here?"
 
-Harun spoke shortly at last.
+Only then did Harun speak, briefly.
 
-"It is not yet complete."
+"It isn't finished yet."
 
-Jiwoo caught that immediately.
+Han Jiwoo took that up at once.
 
 "But it's not dead."
 
-Zahir watched that reaction and moved the corner of his mouth by the smallest degree.
+Zahir watched her reaction and moved the corner of his mouth, very slightly.
 
-"You know how to look."
-He said.
+"You know how to look,"
+he said.
 
-Jiwoo answered without taking her eyes off it.
+This time Han Jiwoo answered without taking her eyes off it.
 
-"A hand that mistakes this for scrap doesn't survive this far."
+"Hands that mistake something like this for junk don't live long enough to get here."
 
 A short silence.
 
-Nasim smiled faintly at last.
+Only then did Nasim smile, very faintly.
 
-"Good."
-He said.
-"Now the deal finally looks human."
+"Good,"
+he said.
+"Now the deal's finally starting to look human."
 
-Sion disliked those words, but could not deny them. This was clearly no small reward.
+Sion didn't like those words, but he couldn't deny them. This was clearly no small reward.
 
-Then Aka walked out toward the hull for the first time.
+Then, for the first time, Aka walked out toward the hull.
 
-Very quiet steps. But strangely, inside this interior, those few steps felt like they carried more meaning than Zahir's words. Aka went close to the hull's side, did not raise her hand, and simply steadied her breath once from very near.
+Very quiet steps.
+But strangely, in here, those few steps seemed to mean more than Zahir's words. Aka went right up beside the hull, and without raising a hand, simply steadied her breath once, very close to it.
 
-Then she said, low.
+Then she spoke, low.
 
-"This one has not yet begun to imitate a door."
+"This one doesn't mimic a door yet."
 
-Sion heard those words as something strangely like reassurance.
+Oddly, the words reached Sion like reassurance.
 
-Not a complete door. But at least it meant: not a lie.
+Not a complete door.
+But at least not a lie.
 
-Aka looked at the ember in Sion's hand this time.
+This time Aka looked at the ember in Sion's hand.
 
-"Without that, it won't last long."
-She said.
-"But that alone won't be enough to leave."
+"Without that, it won't go far,"
+she said.
+"But that alone won't get it up, either."
 
-"What else is needed?"
-Sion asked immediately.
+"What else does it need?"
+Sion asked at once.
 
-Aka paused briefly.
+Aka paused for a moment.
 
-"Someone to bridge."
-She said.
+"Someone to connect it,"
+she said.
 
-Sion knew that did not mean simple technical labor.
+Sion knew she didn't simply mean a technician.
 
-There was the ember. There was the hull that had not died. But joining the two would not simply open a path. Someone was needed to bridge the grammar between them.
+There was an ember,
+there was a hull that hadn't died,
+but sticking the two together wouldn't open a path.
+It needed someone to connect the grammar between them.
 
-Sern asked very low.
+Sern asked, very low.
 
 "Is that you?"
 
 Aka looked at him.
 
-A short, quiet gaze.
+A short, quiet look.
 
-"Not me alone."
-She said.
-"But if I don't watch, they'll kill it again."
+"Not by myself,"
+she said.
+"But if I don't watch, someone kills it again."
 
-The moment those words fell, everything they had dragged from the courtyard felt as though it connected at once.
+Sion caught on that one word.
 
-The fake door. The imitation remembering a door. The proof that the path had not fully died. And the hull before them now—not yet dead.
+Again.
 
-What was needed now was the hand that could see this, bridge it, and keep it from dying.
+It meant it had been killed once. She didn't say who had killed what, or when. She had no intention of saying.
 
-Zahir spoke only after listening to the entire exchange.
+Sion started to ask, then didn't. In a place they had been let this far into, there were things you could ask and things you couldn't, and this felt like the second kind.
 
-"Compensation is three things."
-He said.
-"Etherite. That hull. And the words that child will give."
+The moment those words fell, every line he had dragged in from the courtyard seemed to connect at once.
+
+The fake door.
+The mimicry that remembered a door.
+The proof that the path was not completely dead.
+And now, right in front of him, a hull that was not dead yet.
+
+What they needed now
+were hands to see this,
+connect it,
+and keep it from dying.
+
+Zahir heard the exchange all the way through before he spoke, low.
+
+"The reward is three things,"
+he said.
+"Etherite. That hull. And the word that child will give you."
 
 Luhai nearly swallowed his breath.
 
-"Wow, they're actually laying down everything."
+"Wow, he's really staking all of it."
 
-Seorin did not smile this time.
+This time Seorin didn't smile.
 
-Because it was too large. At this scale, it was not a reward but closer to an entire next arc wagered on the board.
+Because it was too big.
+At this size it wasn't a reward; it was closer to a board with the whole road ahead staked on it.
 
-Zahir's gaze shifted back to Sion, Jiwoo, Kael, and Sern.
+Zahir's gaze moved back to Sion, Han Jiwoo, Kael and Sern.
 
-"But none of the three are free."
-He said.
+"But none of the three comes free,"
+he said.
 
-Sion found those words welcome, if anything.
+If anything, Sion was glad to hear it.
 
-Right. Hazran would never end by simply giving things away. That was more like Zahir.
+Right.
+Hazran was never going to end things by just handing them over.
+That was more like Zahir.
 
 "What's left?"
 Sion asked.
 
-Zahir answered very low.
+Zahir answered, very low.
 
-"The resolve to go further inside."
+"The resolve to come further inside."
 
-With that single sentence, it became clear that even this interior space was still only a threshold.
+With that one line, it became clear that even this inner space was still only a threshold.
 
 ---
 

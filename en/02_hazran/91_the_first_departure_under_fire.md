@@ -1,199 +1,274 @@
 # Episode 91. The First Departure Under Fire
 
-After the order to board the first group dropped,
-Hazran no longer made *people who would soon leave*.
+Once the word came to load the first line, Hazran stopped making people who were about to leave.
 
 It began making people who were actually leaving.
 
-The difference was vast.
+The difference was large.
 
-Until just now, they were still one mass.
-Afraid together.
-Holding together.
-Waiting for the next moment together.
+Until a moment ago they had still been one mass. A mass that was afraid together, held on together, and waited together for the next moment. But from the instant the first foot went up the hull's ramp, the people split in two.
 
-But from the instant the first foot stepped onto the hull's ramp,
-people split in two.
+Those who went, and those who stayed.
 
-Those who go,
-and those who stay.
+Sion saw it from far too close.
 
-Sion saw it from too close.
+At the hull's entrance, Han Jiwoo drew a line with her hand.
 
-Luhai pushed one child up first.
-Seorin lifted one end of a stretcher and aligned it with the ramp.
-Nasim shoved back a person trying to spill out of the line, shouting in his cracked voice.
+"Seven up to here."
 
-"Don't stop!"
+Seven went up.
 
-That was for the entire boarding line,
-and it sounded like something he was telling himself too.
+"Stop."
 
-Can't stop.
-The moment you stop,
-the time of the people holding behind you dies with it.
+They stopped. Seven stood on the ramp, and below, thirteen waited. The gap between was about three seconds, but to Sion it was much longer.
 
-Jiwoo received hands at the hull entrance with her jaw nearly clenched shut.
+Because during those three seconds he watched the faces of the people standing below change. The seven who had gone up already belonged to the other side, and the thirteen who hadn't still belonged here. A border that lasted three seconds.
 
-"One at a time!"
-She called, low.
-"Don't push—one at a time!"
+"Next seven."
 
-The hull wasn't fully alive yet.
-The ramp was makeshift.
-The entrance coupling wasn't perfect.
-If too many crowded at once,
-the ship might fail to hold before anything else.
+They went up.
 
-Aka stood beside her, listening to the flow of people and the hull's trembling together.
+"Stop."
 
-"Second one, fast."
-She said, low.
-"Third one, slow."
+Aka had her palm pressed to the hull's outer wall, listening to all of it.
 
-At first the meaning didn't land,
-but Jiwoo understood at once.
+"The left's heavy."
 
-The second stretcher needed to go up faster.
-The third group needed a brief pause.
-Because the weight and vibration the ship absorbed at once were different each time.
+"How heavy?"
+Han Jiwoo asked.
 
-Jiwoo shouted immediately.
+"About two people."
 
-"Second one now, first!"
+"Then load the last six on the right."
 
-At that single line,
-Sion felt again that Aka wasn't counting people—
-she was listening to the order the ship could bear.
+"Mm."
 
-The first two children went inside the hull.
-One wounded person followed up behind.
-One slow elder barely cleared the ramp with two people bracing him.
+Listening to that short exchange, Sion understood what Aka was doing right now.
 
-Those few short seconds
-felt strangely long.
+Earlier, with the scrap, they had only weighed the total. People were different. When people are afraid, they bunch to one side. So the weight doesn't sit in the middle. Aka was listening for where on the ship people's fear was pressing.
 
-They were really being sent.
+The last six went up on the right.
 
-That fact
-was heavier, not lighter.
+"Twenty,"
+Han Jiwoo said.
 
-Harun kept his back to all of it,
-still holding the right corridor.
+Then she touched the joint once with the back of her hand. It made no sound.
 
-The android side had started reading what was happening now.
-The moment they recognized the congestion before the hull wasn't simple panic
-but the flow of an actual departure,
-their pressure grew more persistent.
+"It held."
 
-Sern spoke, brief.
+At those two words, Sion felt the strength go out of his legs.
 
-"Speed increasing."
+Held meant it hadn't broken, not that it was fine. Sion knew the difference now. Three days in Hazran taught you at least that much.
 
-Ater took it immediately.
+On the ramp, the last person to go up looked back.
 
-"They have seen the boarding."
+No one had told them not to look back. Luhai had said that to the children earlier, but there were no children here now, and no one can tell a grown adult to look only ahead.
 
-The instant those words fell,
-two black units entering the right corridor narrowed their angle more aggressively than before. The front unit accepted loss and pushed straight toward the sandbags. The rear unit layered a cutting beam behind its shadow.
+That person looked for a long time.
 
-Harun saw it and stepped one pace further forward.
+Toward the collapsed central line, the direction where the alley they had lived in would have been, somewhere beyond it. Now a single grey-brown layer had settled over everything, and you couldn't even tell where anything was.
 
-In that moment,
-Sion truly wanted to stop him.
+Then they went inside.
 
-But the words wouldn't come.
+Nasim drew a mark on the board.
 
-Because without that one step,
-several of the people climbing behind might not make it up at all.
+"Twenty out."
 
-Harun spoke low.
+"So what's left?"
+Sion asked.
 
-"Sern, below."
+"A hundred and eighty-eight."
 
-Sern dropped his body instantly.
-Ater fired half a beat early at the upper right.
-The instant one black unit's gaze bent that way for the briefest moment,
-Harun shoved sandbag wreckage in from the front.
+Sion turned the number over once in his head. Twenty gone from two hundred and eight. For the first time it had gone down.
 
-Force to kill the momentum.
+"So ten runs left."
 
-The android didn't stop.
-But the angle from that collision
-had clearly been thrown off.
-In that gap Sern scored the lower coupling and pulled out.
-Ater drove a short round into the priority axis immediately after.
+"Yeah,"
+Nasim said.
+"Ten."
 
-One black body collapsed, half-blocking the corridor.
+Then he went straight off to line up the next row. He knew better than anyone that this was no time to celebrate.
 
-But the second climbed over it again.
+And eleven were left.
 
-Sion clenched his teeth.
+Of the thirty-one who had crossed the thirty roofless steps together earlier, twenty had boarded and eleven hadn't.
 
-Endless.
-It truly seemed endless.
+Sion looked at those eleven.
 
-Even so,
-those beats that seemed endless
-were pushing one more person at a time into the hull above.
+None of them made a sound. They didn't push, they didn't grab at anyone, they didn't ask why not me. They just stood at the bottom of the ramp and looked up.
 
-Nasim turned back and shouted.
+One of them raised a hand. Didn't wave it, just raised it. There must have been someone they knew up there.
 
-"First group done!"
+From above, a hand came up too.
 
-Those words weren't joy.
-They were the signal to pull the next group.
+That was all.
 
-Luhai confirmed all three children were up, then immediately turned back
-and pulled the next people's hands.
-Seorin set one stretcher down and went straight to the second.
-Sion snapped a short line caught under the ramp, clearing the path so no one would trip.
+Sion watched those two hands recognize each other, and then he watched the ramp fold up as well.
 
-And right then,
-a cutting beam grazed past the lower hull wall.
+The ship lifted.
 
-The edge of the coupling plate Kael had propped up kicked hard,
-and several metal fragments bounced across the ground before the hull.
+Not high. About two hand-spans off the ground. Like that, it slid out sideways into the shadow of the collapsed western alley, and from there on it couldn't be seen.
 
-Jiwoo's face went white.
+The eleven who were left stood exactly where they were.
 
-"It can't come any closer."
-She said, low.
+Sion went over.
 
-That wasn't a request.
-It was nearly a warning.
+"You're next."
 
-If the hull takes more hits,
-the departure line that just opened dies.
-Then everything held until now ends too.
+He regretted it as soon as he said it. Because he remembered what Nasim had said earlier. We'll see about that when we get there.
 
-Zahir heard that,
-and probably reached his conclusion faster than anyone.
+"Really?"
+someone asked.
 
-He spoke, very low,
-but this time in a voice that had no room left to retreat.
+Sion didn't lie.
 
-"Attach the second group."
+"I don't know."
 
-The moment Sion heard that,
-his heart dropped.
+The person who had asked didn't get angry at that answer. If anything they looked a little easier. Here, it seemed, not being lied to counted as comfort.
 
-The first group had barely climbed up,
-and the second already had to go—
-that was how little time was left.
+"But is it all right to stand here?"
+another asked.
 
-Under fire,
-Hazran's first departure began like that.
+"No,"
+Sion said.
+"Get in under the roof."
 
-Just a few people.
-But the single fact that those few were truly beginning to cross to the outside
-pressed down harder on the shoulders of those who remained.
+The eleven moved. About eleven steps back. Then they stopped again. They went no farther in.
 
-Everyone knew now.
+Sion didn't push them any further. Those people didn't want to step back from a place where they could see the ramp.
 
-Someone would actually leave.
-And someone would have to stay here,
-buying time until that leaving was done.
+It was strange. This was a good thing, but the feeling of good didn't come. Twenty people had just vanished from here. They had vanished alive, but vanished was still vanished.
+
+Beside him, Han Jiwoo spoke low.
+
+"It has to come back."
+
+"Come back?"
+
+"Yeah."
+
+"How far does it go?"
+
+"It drops them behind the heat layer and comes back."
+
+Only then did Sion understand that this ship had to make eleven round trips. Load, go, empty, come back, load again.
+
+"How long does one take?"
+
+Before answering, Han Jiwoo looked at the sky for a moment.
+
+"Going's short. Coming back's shorter."
+
+"Then why are you looking at the sky?"
+
+"…"
+
+She didn't answer and lowered her hands to the ramp again.
+
+Sion knew without asking. She was measuring which was faster right now, the speed of the settling dust or the speed of the ship's round trips.
+
+Outside, metal scraped again.
+
+It was from Harun's side. It meant the other side had seen the ship lift too.
+
+Aka spoke with her eyes closed.
+
+"It got faster."
+
+"What did?"
+Han Jiwoo asked.
+
+"Outside."
+
+"Then we have to get faster too."
+
+"Then the left gets heavier."
+
+For a moment Han Jiwoo said nothing.
+
+"I'll handle that."
+
+"You can't,"
+Aka said.
+
+"Then what do we do?"
+
+"Not twenty a run. Eighteen."
+
+Han Jiwoo's hands stopped.
+
+"With eighteen, eleven runs won't finish it."
+
+"Mm."
+
+"It's twelve."
+
+"Mm."
+
+At that one sound, Sion's back went cold.
+
+This ship had just finished one run of eleven. And the very next moment, the number of runs it needed had become twelve. It had gained one and the count had gone up by two.
+
+"Then the time—"
+
+"I know,"
+Han Jiwoo said.
+
+"Then can't you go with twenty?"
+
+"If we do, the left goes first."
+
+"Then what do we do?"
+
+Only then did Han Jiwoo look at Sion.
+
+"I'll fix the left."
+
+"Now?"
+
+"While the ship's coming back."
+
+Sion knew what that meant. In the short gap while the ship dropped people off and came back, Han Jiwoo meant to take the left joint in her hands and set it again. With no one to help, no lights, and no one keeping the time for her.
+
+"Want me to help?"
+
+"You line people up outside,"
+she said.
+"That's helping."
+
+Sion turned away.
+
+As he turned he looked back once, and Han Jiwoo had already pushed half her body in under the hull.
+
+The first thing Sion did once he was outside was count.
+
+How many were standing in the second line. Whether it came to twenty. If it didn't, where to fill it from.
+
+He understood it as he counted. Counting people was Nasim's job, and right now he was the one doing it. Nasim had been out of sight for a while. A man whose voice was completely gone couldn't be used to line people up.
+
+The second line was eighteen.
+
+Sion saw it was two short and stood still for a moment.
+
+To fill it, he only had to take two from those eleven. Those people had already crossed the thirty roofless steps, they were standing closest, and earlier they had even raised a hand in greeting.
+
+Sion went over to them.
+
+"Two."
+
+That was all he said. If he added any other explanation, he felt all eleven would call out their own names.
+
+Two came out of the eleven. Sion didn't see who decided. They must have already settled the order among themselves.
+
+The two who came out walked off, and the nine who were left closed up the space again.
+
+Sion walked with his back to those nine.
+
+The twenty standing in this line now would take the next ship. Behind them were nine, and behind those, a hundred and some. And all of it hung on one person working with her hands under the ship right now.
+
+Ten runs.
+
+Sion counted the number again. It could be ten, or it could be twelve. And the one deciding the difference was that person under the ship, with her hands.
 
 ---
 

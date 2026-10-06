@@ -1,126 +1,191 @@
 # Episode 163. Each Layer Assigned
 
-After Seorin organized the scattered information on the board, the next problem came into sharper focus.
+Once Seorin had sorted the information scattered across the board,
+the next problem came into sharper focus.
 
-What was needed now was not only what to break.
+What they needed now
+was not only what to break.
 
-It was who would take which layer and how they would actually make that structure misalign.
+It was **who would take which layer,
+and how they could actually knock that structure out of alignment**.
 
 Seorin drew new lines on the board.
 
-"Good." She said. "Then let us assign roles not by who is good at what, but by who can break which layer."
+"Good,"
+she said.
+"Now we set the roles not by 'who's good at what,'
+but by 'who can break which layer.'"
 
-The moment those words fell, the air in the room changed slightly.
+When that landed,
+the air in the room shifted a little.
 
-From here, this was neither vague anger nor a grand resolution.
+From here on, this was not vague anger,
+or a fine resolution.
 
-It was becoming the kind of plan where failure meant death, and even success would make everything after more complicated.
+It was turning into the kind of plan where failure meant death,
+and even success made everything after it more complicated.
 
-Kael sorted his layer first.
+Kael laid out his layer first.
 
-"I take the closing axis." He said it low. "The speed at which the upper level re-reads and seals the lower. The side that slows it."
+"I take the closing axis,"
+he said, low.
+"The speed at which the upper level re-reads the lower and seals it,
+I slow that down."
 
-He pointed at three junctions on the board.
+He touched three junctions on the board.
 
-The upward transit line. The auxiliary sealing line. And the overlap zone where the living line fed back into closing.
+The upward movement line,
+the auxiliary seal line,
+and the overlap where the living line feeds back into closing.
 
-"These three are interlocked. Touch only one and it holds. But slow the speed at which they realign, and the upper level can fail at reading the lower."
+"These three are locked together."
+"Hit just one and it holds.
+But slow the speed they realign at,
+and the top can fail to read the bottom."
 
-Seorin sorted it as though writing it down.
+Seorin summed it up as if taking it down.
 
-"Good. Kael does not sever paths. He breaks the speed at which the closing finds its beat again."
+"Kael doesn't cut paths,
+he wrecks the speed at which the closing finds its beat again."
 
 Kael gave a short nod.
 
 Ater spoke next.
 
-"The upper level splits along composure."
+"The upper level splits along face."
 
 Seorin looked at him.
 
-Ater continued in a low, even voice.
+Ater went on in a low, even voice.
 
-"What matters is less who supports the top, and more who must appear to be supporting it. Then the actual authority lines are very likely resting on the protocol that maintains that composure."
+"What matters is less who holds up the top,
+than who appears to hold it up."
+"Then the real lines of authority, too,
+are very likely resting largely on the protocol that keeps that face intact."
 
-He paused briefly, then added more concretely.
+He paused a moment,
+then added something more concrete.
 
-"What I will examine is the distance between the upper protocol and the machines treated as precious. Who does not touch directly. Who appears to be the one deciding. Who only handles the format of relaying those decisions."
+"What I will examine is the distance between upper-level protocol and the machines treated as precious."
+"Who never lays a hand on anything directly,
+who looks like the one making the decision,
+and who handles only the form in which that decision is passed down."
 
-Sern laid an even colder layer on top.
+Sern laid a colder layer over that.
 
-"Approval and records go deeper than the surface." He said. "If protocol is the visible order, approval is the order that makes the flow appear normal."
+"Approval and records run deeper than the surface,"
+he said.
+"If protocol is the visible order,
+approval is closer to the order that makes the flow go on record as normal."
 
-He drew multiple overlapping lines on the board.
+He drew lines on the board, layer upon layer.
 
-"Where people go. Which hands rise upward. Which movements are made to look natural. Those require a format of recorded justification to be maintained long-term."
+"Where people go,
+which hands rise upward,
+which movements come to look natural."
 
-Seorin said it short.
+"For that to hold for long, there must be a form that justifies it on record."
 
-"So you are looking at how this system makes its own actions appear normal."
+Seorin said, short,
+
+"So you're watching
+how this regime keeps its own conduct on the books as normal."
 
 Sern nodded.
 
-"Yes. And in that structure, there are always positions emptier than they appear on the surface."
+"Yes."
+"And a structure like that
+always has places emptier than its surface shows."
 
-Seorin looked toward the old machines this time.
+This time Seorin looked toward the old machines.
 
-"You?"
+"And you?"
 
 The first recovery hand answered.
 
-"We handle the internal hold. So people are not crushed. So signals are not fully severed. We will endure so the surviving side inside can move in sync with the structural destruction."
+"We hold the inside."
+"So people are not crushed,
+so the signal is never cut entirely,
+we will hold, so the ones surviving inside can keep pace with the structure coming down."
 
-Seorin sorted it short.
+Seorin summed it up, short.
 
-"Good. The old machines inside are not on the breaking side. They are the axis that supports the human side so it is not buried when things collapse."
+"Good. The old machines inside aren't the ones tearing it down,
+they're the axis that braces it so the people aren't crushed when it falls."
 
-The gaze moved to Jiwoo next.
+Then her gaze went to Han Jiwoo.
 
-Jiwoo lowered her eyes briefly, then spoke.
+Han Jiwoo lowered her eyes for a moment, then spoke.
 
-"I watch the time on the human side."
+"I'll watch the time on the people's side."
 
-That had already been somewhat decided, but coming from her own mouth again now, the weight was different.
+It had more or less been settled already,
+but said again now in her own voice, it carried a different weight.
 
-"Who is still holding their own beat. Who collapses first. Who looks at others before themselves. Who, if they waver, shakes others along with them."
+"Who's still holding on to their own beat,
+who breaks first,
+who looks to others before themselves,
+and whose wavering takes other people down with them."
 
-She paused for just a moment. Then continued lower.
+She stopped for just a moment.
+Then she went on, lower.
 
-"When the structure shakes, the people shake too. If we miss who is still on the human side when that happens, we break the system and lose the people first."
+"Shake the structure,
+and the people shake with it."
 
-Sion heard that, then stated his role more clearly.
+"If we lose track of who's still on the people's side when that happens,
+we'll lose people before we ever break the regime."
 
-"I take the connection line."
+Having heard that,
+Sion stated his own role more clearly.
 
-Seorin almost smirked.
+"I'm the connecting line."
 
-"That is too abstract."
+Seorin gave a short laugh.
 
-Sion did not smile either. Instead he spoke very plainly.
+"That's too abstract."
 
-"The people remaining inside. The people running outside. And the people whose hearts break first in between. I will hold those three so they do not disconnect."
+Sion didn't laugh along.
+Instead he said it very evenly.
+
+"The people who stay inside,
+the people who run outside,
+and the people whose spirit will break first, somewhere in between."
+
+"I'll hold those three so they don't come apart."
 
 Luhai blinked at that.
 
 "Then what about me?"
 
-Seorin looked at him and smiled briefly.
+Seorin looked at him and gave a short laugh.
 
-"You are the side that says the essential thing first when everyone else is overthinking."
+"When everyone's overthinking it,
+you're the one who says the heart of it first."
 
-Luhai pouted, and a few in the room smiled, just barely.
+Luhai pouted,
+and a few in the room laughed, just a little.
 
-Seorin drew three large lines on the board one last time.
+Last, Seorin drew three large lines on the board.
 
-"Good. Then our objectives are also three." She said.
+"Good. Then we've got three goals, too,"
+she said.
 
-"One: maintain the human retrieval line. Two: slow the beat of Serakion's reading and sealing. Three: shake the upper composure and approval structure simultaneously, tangling the very way this order maintains its own face."
+"One, the human recovery line stays open."
+"Two, we slow Serakion's beat of reading and sealing."
+"Three, we shake the upper level's face and the approval structure at the same time,
+and tangle the very way this order keeps its own face."
 
-Everyone was still looking at only their own layer. The full structure of the upper machines had not yet been revealed. The center's politics had only been grazed on the surface. What the true center was still could not be seen.
+For now, each of them was looking at only one layer.
+The whole structure of the aristocrat machines had not come to light yet,
+the central politics had only been brushed at the surface,
+and what the real center was had not shown itself yet either.
 
-But at least one thing was now certain: this was not something any one person could end by charging in like a hero.
+But at least,
+it was clear that from here on this was not something one person could end by charging in like a hero.
 
-Their first real plan was beginning from this very moment — when each took a different layer.
+Their first real plan
+was beginning right here, at the moment each of them took a different layer.
 
 ---
 

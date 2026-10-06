@@ -1,182 +1,227 @@
 # Episode 20. Threshold of What Remains
 
-Han Jiwoo's ship sat half-perched against the outer wall of the closed structure.
+Han Jiwoo's ship hung half-latched against the outer wall of the sealed structure.
 
-Precisely speaking, it was less docking than forcing the hull into the gap between a severed outer wall and the remaining connection ring. A slight angle off and it would scrape and slide; pull too far back and they would lose the reaction zone Sion was reading entirely. The ship was not attached to the structure — it was holding on to keep from collapsing.
+To be exact, it was less a docking than a hull forced into the gap between a severed outer wall and a connection ring that had survived. Let the angle slip a little and it could scrape along the wall and slide off; pull back too far and it could lose the very reaction zone Sion was reading. The ship was not attached to the structure. It was holding on so as not to come apart.
 
-Sion crouched near the hull's side slit, looking out.
+Sion was bent low near the slit in the side of the hull, looking out.
 
-This place was neither fully interior nor fully exterior space. Between the severed outer wall and the half-collapsed corridor, a maintenance field that should have died long ago still barely remained. Thin and cold but breathable air, an external junction where one wrong step would drop you straight outside, and beyond that — the shadow of a semi-open structure continuing inward. The threshold of a closed transfer point floating in space, not yet fully able to die.
+This place was neither fully indoors nor fully open space. Between the severed outer wall and the half-collapsed passage, a sustaining field that should have died long ago was still barely holding. A layer of air, cold and thin but breathable all the same; an outer junction where one wrong step looked like it would drop you straight out into the void; and beyond it, the shadow of a half-open structure running inward. It looked like the threshold of a sealed transfer point adrift in space that had not yet managed to die completely.
 
-Seorin said, leaning against the inner wall.
+Seorin spoke, leaning against the inner wall of the hull.
 
-"Your face says you're not happy to see this."
+"From your face, you're not exactly glad to see it."
 
-Sion answered without pulling his gaze.
+Sion answered without taking his eyes off it.
 
-"How could I be. Something thought dead that's only half-alive is always more troublesome."
+"Why would I be. Something you thought was dead turning out half alive is always more trouble."
 
-A low noise passed through the close-range sealed channel.
+A low burst of static passed once over the close-range sealed channel.
 
-Each time the metal layers between the structure's outer wall and the hull overlapped, Jiwoo's local channel picked up that kind of micro-cut. Not long-range communication — limited to briefly connecting those remaining on the ship and those about to go outside, like now.
+Every time the metal layers of the structure's outer wall and the hull overlapped, the local channel Han Jiwoo had set up picked up small dropouts like that. It was not a channel that reached far. Briefly linking the people who stayed with the ship and the people who would go outside, just as now, was the most it could do.
 
-Jiwoo's voice came through.
+Han Jiwoo's voice came in.
 
-"Push the hull angle more and it'll scrape."
+"Bring the hull in any closer and we scrape."
 
-Sion said immediately.
+Sion answered at once.
 
-"This is the limit. Push further and we're dead."
+"This is the limit. Push more and we're dead."
 
-Ater came beside Sion and examined the severed alignment lines on the structure's outer wall. The metal had been cut once long ago, then patched over and killed again afterward. This had not been closed from the start. Someone had tried to block this path, and someone else had left it not quite dead. The layering was so clear it was ominous.
+Ater came up beside Sion and studied the severed alignment lines on the structure's outer wall. The metal had been cut once long ago, and afterward patched over and killed a second time. It had not been a sealed structure from the beginning. Someone had tried to block this path, and someone else had left it not quite dead. The difference between those layers was so sharp it was ominous.
 
-Sern moved his gaze as if reading the external load distribution, and said low.
+Sern moved his eyes as if reading the load distribution on the outside, and spoke low.
 
-"The outer wall holds. The problem is inside. If the reaction is alive, the side that dies first when touched wrong is likely the interior."
+"The outer wall will hold. The problem is the interior. If the reaction is alive, the interior is also the likelier to die first if it is touched wrong."
 
 Ater added, very low.
 
-"This may not be a structure that opens doors — but one that selects who approaches."
+"It may not be a structure for opening a door, but one that chooses who approaches."
 
-At that, Sion narrowed his eyes briefly.
+At that, Sion narrowed his eyes.
 
-Beyond the slit, in the darkness below the severed ring, one very faint tremor was rising. Too regular to be dead metal reflection; too weak to be a living guide line. Not a signal calling someone to come — closer to a response still verifying, until the last moment, who had the qualification to reach here.
+Beyond the slit, in the dark below the severed ring, a very faint tremor was rising. Too regular to be the reflection off dead metal, too weak to be a live guide line. It was less a signal calling someone to come than a reaction trying, to the very last, to confirm who had the right to come this far.
 
-Jiwoo opened the external view slightly more.
+Han Jiwoo opened the external view a little wider.
 
-Severed bridges, twisted cables, closed dock rings, and nearly buried in the darkness behind them — one small fixed structure remaining. At first glance it looked like a discarded access component. But look closely and the core connection points remained to a suspicious degree. Not collapsed by explosion or decay — it looked as if everything around the critical parts had been cut away while leaving them intact.
+A broken bridge, twisted cables, a sealed dock ring, and behind them, almost buried in the darkness, one small fixed structure. At first glance it looked like a discarded access fitting. But looked at closely, only its core connections were strangely intact. It had not fallen apart in an explosion or a collapse; it looked as if someone had kept the important part and cut away everything around it.
 
 Sion said, very low.
 
 "That's it."
 
-Jiwoo received, short.
+Han Jiwoo picked it up.
 
-"Yeah. The first remaining marker."
+"Yeah. The first marker still standing."
 
 Sern spoke at once.
 
-"It was severed."
+"It was cut."
 
-Ater, looking at the same point, opened his mouth.
+Ater looked at the same point and spoke.
 
-"Most likely this was an auxiliary discrimination unit that used to screen access to the outer transfer point."
+"Most likely it was an auxiliary judgment unit that screened access to the outer transfer point."
 
-Seorin grimaced.
+Seorin frowned.
 
-"Nice. So it's not just a door."
+"So it's not just a door."
 
-"Right."
+"Right,"
 Sion said.
-"If it opened with a casual approach, it would've been killed long ago."
+"If it opened for anyone who pulled up alongside, it'd be dead already."
 
-That connected precisely to why they had come this far. The name fragment Elia had read did not point only to one man's false conviction. It had left behind the sense that the path that name was supposed to reach had been severed whole, somewhere. And the structure before them now was very likely the first scene proving that severed path had actually existed.
+Touch it wrong and what was left of the reaction would die, leaving them holding one fragment and nothing after it.
 
-Meaning this was not simple ruin exploration.
-
-If they properly read the remaining reaction here, they could obtain the first physical evidence that the Jun Aster affair did not end at the incineration of one person. Conversely — touch it wrong and the remaining reaction dies, the first fragment line severs with it. Worse, the discrimination unit's final response could leak to the external pursuit net.
-
-Seorin asked short.
+Seorin asked.
 
 "Going in?"
 
-Jiwoo lowered the hull angle just slightly more and answered.
+Han Jiwoo brought the hull angle down a fraction more and answered.
 
-"Can't attach directly. Below that structure there's still one live catch-point. Need to check that first."
+"Can't latch on right away. There's still one live catch point under that structure. Have to check that first."
 
-"Chance of a trap."
+"The likelihood of a trap."
 Sern asked.
 
 "High."
-Jiwoo answered, unbothered.
+Han Jiwoo answered as if it were nothing.
 "But trap or not, if we don't look there, there's no next."
 
-Short silence.
+A short silence.
 
-They could turn back. But then the reason for coming this far would be severed along with them. Pull back without looking at this threshold, and the chance of ever proving that the name fragment, the coordinate, and the dead marker's reaction were all part of the same affair — likely lost forever.
+They could turn back. But then the reason they had come this far would be cut away with it.
 
-Sion pressed over his inner pocket once.
+Sion pressed once on the outside of his inner pocket.
 
-The fragment where Jun Aster's name remained. And the first trace of the erased path that had led them here. If the two were truly part of the same affair, the structure before them now might be the place like a first sentence connecting them.
+The fragment where Jun Aster's name remained. And the remnant traces of the erased path that had led them here. If the two really were parts of the same incident, the structure in front of them now might be something like the first sentence joining them.
 
-Jiwoo kept the ship not fully stopped — drifting, very slow.
+Han Jiwoo did not stop the ship completely; she let it drift, very slowly.
 
-Stopping completely could trip external surveillance. This area was a dead path, but not a completely empty one. Depending on who read the markers first, the path could open or die.
+Stopping could actually get them caught by outside surveillance. This area was a dead path, but not an entirely empty one. It was a place where a path opened or died depending on who read the markers first.
 
 Ater said quietly.
 
-"There would be an approach sequence."
+"There must be an approach sequence."
 
-Jiwoo heard that and smirked.
+Hearing that, Han Jiwoo gave a quick sidelong smile.
 
-"Of course. That's why we didn't come head-on."
+"Probably. That's why we didn't come in head-on."
 
-Ater continued, gaze fixed.
+Ater went on, his view fixed.
 
-"That structure is a residual ring that originally guided dock approach. But the guide line's core was killed — only the auxiliary alignment section left. Someone cut it so that only those who knew could approach."
+"The core of the guide line was killed and only the auxiliary alignment section was left. It was cut so that only those who knew could latch on."
 
-The cabin went quiet for a moment.
+At that, Sion looked at Ater once.
 
-Sion heard that and looked at Ater once. He himself saw grain first; that one saw structure first. But right now, the two were converging on the same answer to a strange degree.
+Seorin spoke.
 
-Sern added low.
+"So it wants to filter you before it lets you in."
 
-"Then that residual ring is likely not an entry device — but a discrimination device."
+"Which means pull up any old way and you're dead."
+This time it was Sion, not Han Jiwoo, who answered.
 
-Seorin said short.
+When that was said, the air inside the hull changed again.
 
-"Nice. So it screens before letting you in."
+Han Jiwoo took one hand off the controls and said.
 
-"Meaning a casual approach kills you."
-This time it was Sion, not Jiwoo, who received.
+"Then here's how we go. I hold the ship's angle, Sion reads the traces first. Sern, work out the structural sequence. Ater, figure out what approach logic that thing originally ran on. Seorin, if anything odd shows up, cut it right away."
 
-When those words fell, the air inside the hull changed again.
+Seorin laughed.
 
-What they were about to do was not simple approach. It was the work of not damaging the remaining reaction — while making the discrimination unit read them as not the wrong side. Not going slowly — closer to stopping in order not to be wrong.
+"Now it actually feels like work."
 
-Jiwoo lifted one hand from the control and said.
+Sion bent closer to the slit.
 
-"Good. Then here's how we go. I hold the ship's angle. Sion reads the trace first. Sern calculates the structural sequence. Ater figures out what the original approach logic was. Seorin — if an anomaly signal hits, cut immediately."
+The structure's surface was almost dead, but not entirely. Below the severed guide line, one very faint reaction still remained. Not waiting for someone to read it, but checking whether it was being read correctly.
 
-The directive was short, and strangely natural. No one had ever declared who was leader — yet in this scene, everyone knew that was the best arrangement right now.
-
-Seorin laughed, very brief.
-
-"Now this feels like real work."
-
-Sion leaned closer to the slit.
-
-The structure's surface was nearly dead — but not completely. Below the severed guide line, one very faint reaction still remained. Not waiting to be read by someone — a response verifying whether it was being read correctly.
-
-Ater saw that pattern and very slowly held his breath.
+The moment Ater saw that pattern, he very slowly held his breath.
 
 "This is…"
 
-Sern shifted his gaze at once.
+Sern's eyes went to him at once.
 
-"Do you recognize it."
+"Do you recognize it?"
 
-Ater said, a few seconds later, in a low and stiff voice.
+A few seconds later, Ater spoke in a low, hard voice.
 
-"It resembles Empire-style closure logic, but is not entirely the same. It is older."
+"It resembles Empire-style closure logic, but it is not quite the same. It is older."
 
-The instant those words fell, Sion saw — on the structure's underside — one very faint marking-like scratch. It could have been a trace-reader notation; it could have been something older still. Too worn to be certain — but at least one thing was clear.
+Sern asked at once.
+
+"How old?"
+
+"That is not a value I can give."
+
+"Is there approval logic you do not know, my lord?"
+
+Ater did not answer.
+
+Sern did not ask again either. It was the third time today he had gone without an answer, and all three had pointed the same way.
+
+The moment those words were said, Sion saw a very faint scratch on the underside of the structure, something like a pattern. It might have been a Myojok mark, or something older than that. It was too worn to be sure, but at least one thing was clear.
 
 This was not an abandoned path.
-It was a path left pretending to be abandoned.
-Erased yet ultimately unable to fully die — a path deliberately made so only the remaining side could be read.
+It was a path left behind pretending to be abandoned.
 
-Jiwoo said low.
+Han Jiwoo said low.
 
-"Then we attach for real now."
+"Then now we latch on for real."
+
+Then she let go of the controls.
+
+Sion turned.
+
+"Why'd you let go?"
+
+"Can't do this with just my hands."
+
+Han Jiwoo pulled two old handles up out of the wall beside the pilot's seat. They were not part of the proper control system but manual shafts that pushed directly on the hydraulics. They were not original equipment in their original place; someone had fitted them later.
+
+"The stick puts in commands, and this pushes," she said. "Put in a command and the ship sets its own angle, and that structure can read a ship doing it on its own. It can't read a person pushing."
+
+"Why not?"
+
+"Because it isn't steady."
+
+Han Jiwoo hooked both arms over the shafts and put her weight into them.
+
+The hull began, very slowly, to tilt. It was not smooth. She pushed once, reset her grip at the wrist, pushed again. In between, the ship rocked slightly, and each time it rocked, somewhere on the outer wall metal gave a short cry.
+
+Sern heard the sound and looked up.
+
+"It is scraping."
+
+"It's supposed to."
+
+"Will the outer wall hold?"
+
+"I made sure it would," Han Jiwoo said through clenched teeth. "If you don't hear it scraping, that means it isn't latching."
+
+Sion looked at those arms. The calluses on the inside of two fingers of her left hand were biting exactly into the shaft.
+
+Sern was looking at the same place. The figure he had started to work out back at the access point and then let go was being put to use right in front of him.
 
 The ship slid forward, very slowly.
 
-As the distance between structure and hull shrank, no one inside the cabin spoke anymore. Each was reading the same threshold in their own way. Sion — the grain. Ater — the logic. Sern — the sequence. Seorin — the moment to cut. Jiwoo — the angle that kept them alive.
+As the distance between the structure and the hull closed, no one in the cabin spoke anymore.
 
-And the moment those five senses converged on a single point for the first time — the first real threshold of the erased path began opening its mouth before them, quietly.
+The reaction under the structure gave one hard shudder.
 
-## From now, the cost of failure was different too. Getting caught meant not simply running again — it meant the first scene for confirming who had severed this path would die. So this approach was not exploration. It was the first discrimination that would set the price of everything after.
+Under Sion's palm the hull shuddered with it. The same beat the marker had been counting earlier.
+
+Four. Four. Three.
+
+Much closer this time.
+
+"Hear it?" Seorin asked.
+
+"Yeah."
+
+"What's it saying?"
+
+Sion listened once more before he answered.
+
+"Nothing yet. It's watching what we do first."
 
 ---
 

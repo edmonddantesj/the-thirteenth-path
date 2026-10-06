@@ -1,216 +1,289 @@
 # Chapitre 15 — Le premier transfert
 
-La couche de transit extérieure était bien plus silencieuse que l'intérieur du port neutre.
-C'était autrefois une zone de transit grise — les cargaisons mises au rebut, les envois non officiels, les gens refoulés hors des registres — et c'est pourquoi les balises mortes et les navettes vivantes y avaient toujours coexisté côte à côte.
+La couche de jonction extérieure était bien plus silencieuse que l'intérieur de la cité portuaire neutre.
+C'était autrefois une couche de transit grise où les cargaisons au rebut, les envois non officiels et les gens repoussés hors des registres changeaient de vaisseau ; c'est pourquoi balises mortes et navettes de liaison encore vivantes y allaient toujours de pair.
 
 Silencieux ne voulait pas dire paisible.
-C'était plutôt le contraire. Précisément parce qu'il y avait peu de monde, chaque mouvement s'entendait mieux. Le grincement métallique d'un tracteur de fret qui passait au loin, le frémissement d'une ligne d'alimentation à l'arrêt imminent, quelque part une cloison qui se refermait avec du retard. Si l'intérieur du port dissimulait quelque chose sous le bruit, ici, c'est sous le silence que quelque chose se cachait.
-
-La porte de l'ascenseur en fer s'ouvrit complètement et un air froid s'engouffra à l'intérieur.
-Sion sortit le premier, suivi dans l'ordre de Seorin, Sern et Ater. Yona sortit en dernier, effleura une dernière fois le panneau de l'ascenseur. Les veilleuses ternes s'éteignirent et la porte de métal se referma, immobile, comme une structure morte depuis longtemps.
-
-« Bien. »
-Yona dit cela à voix basse.
-« À partir de maintenant, c'est vraiment l'extérieur du port. »
+C'était même le contraire. Comme il y avait peu de monde, chaque mouvement s'entendait mieux. Le grincement métallique d'un tracteur de fret passant au loin, le frémissement d'une ligne électrique sur le point de s'arrêter, quelque part une cloison qui se refermait avec retard. Si l'intérieur du port cachait quelque chose sous le bruit, ici, c'était sous le silence qu'on dissimulait quelque chose.
 
 Sion regarda autour de lui.
-Couche de transit extérieure — le mot n'était qu'à moitié juste. Ni secteur officiel passagers, ni véritable zone de rebut : une zone intermédiaire. Un assemblage forcé d'anciens passerelles de transit à l'abandon et de quelques navettes encore actives. Les panneaux indicateurs étaient délavés, la moitié des éclairages éteints, et les plaques de métal sous les pieds semblaient usées non pas par le passage des hommes, mais par le vent et la poussière.
+On parlait de couche de jonction extérieure, mais le mot n'était juste qu'à moitié. Ni zone passagers officielle ni décharge à part entière : une zone intermédiaire. Un espace où de vieilles passerelles de transit abandonnées et quelques navettes de liaison encore vivantes avaient été raccordées tant bien que mal. Les panneaux étaient délavés, la moitié des éclairages morts, et les plaques de métal sous les pieds semblaient usées non par le passage des gens, mais par le vent et la poussière.
 
-Seorin murmura à côté de lui.
+À côté de lui, Seorin murmura :
 
-« Super. Pas un endroit pour vivre. »
+« C'est pas un endroit où vivre. »
 
-« C'est pour ça que c'est un point de transfert. »
-Yona rétorqua.
+« C'est pour ça qu'on y change de vaisseau. »
+Ce fut la réplique de Yona.
 
-Sern parcourait déjà des yeux la structure environnante.
-Lignes de surveillance au-dessus, sillons vides en dessous, traces de connexions d'alimentation de secours, empreintes récentes de pas. Ce secteur était moins complexe que le bâtiment principal du port — mais en contrepartie, si on le lisait mal, il n'y aurait nulle part où se cacher.
+Sern parcourait déjà du regard la structure environnante.
+Les lignes de surveillance au-dessus, les rails vides en dessous, des traces de raccordement à l'alimentation de secours, des marques de pas récentes. Ce secteur était moins compliqué que le bâtiment principal du port, mais en contrepartie, si on le lisait mal, il n'y avait nulle part où se cacher.
 
-Ater prenait un moment de retard pour assimiler le paysage.
-C'était en dehors du port neutre, et pourtant cela en faisait encore partie. Non — plus précisément, c'était comme l'ombre que laisse une ville quand elle se déleste des parties dont elle ne veut pas répondre. Une voie que rien ne consignera dans les registres officiels, mais que quelqu'un continue malgré tout d'emprunter. Cette contradiction ne cessait de l'accrocher.
-
-Yona désigna d'un mouvement de menton les sillons obscurs devant eux.
+Yona désigna du menton les rails obscurs devant eux.
 
 « Par là. »
 
-Au loin, logée dans l'ombre entre deux épaves de vaisseaux, se tenait une petite navette.
-Pas éclatante, pas neuve. Elle ressemblait davantage à une navette de fret qui avait tenu le coup longtemps. Les marques extérieures étaient à moitié effacées, et le numéro d'immatriculation portait des traces de retouches délibérées. C'était le visage d'un vaisseau qui avait survécu en s'arrangeant pour n'être ni tout à fait légal ni tout à fait illégal.
+Au loin, coincée dans une longue ombre entre deux épaves, une petite navette de liaison se cachait.
+Elle n'avait rien d'éclatant ni de neuf. Elle tenait plutôt de la navette de fret qui avait longtemps tenu bon. Les marques extérieures étaient à moitié limées, et le numéro d'immatriculation portait des traces de peinture repassée exprès. C'était le visage d'un vaisseau qui avait longtemps tenu en faisant semblant de n'être ni légal ni illégal.
 
-Sion la regarda et demanda.
+Sion la regarda et demanda :
 
 « C'est ça ? »
 
 « Oui. Le premier transfert. »
-Yona répondit brièvement.
-« Je peux vous amener jusqu'ici, pas plus loin. C'est de là qu'on vous fait passer sur la ligne extérieure vers l'amas stellaire. »
+Yona confirma.
+« Avec ça, je vous emmène jusqu'au point de jonction suivant, et là, je vous passe à la ligne extérieure côté amas. »
 
 Seorin fit la grimace.
 
 « Ça me plaît pas. »
 
-« Les bateaux qui plaisent ne viennent pas dans des endroits pareils. »
-dit Yona.
+« Les vaisseaux qui plaisent ne viennent pas dans ce genre d'endroit. »
+Ce fut la réponse de Yona.
 
-Ater demanda à voix basse.
+Ater demanda calmement :
 
-« Qui pilote ce vaisseau ? »
+« Qui pilote le vaisseau côté amas ? »
 
 Yona ne répondit pas tout de suite à cette question.
-Il regarda Sion une fois. Sion hocha la tête, très légèrement — alors seulement Yona ouvrit la bouche.
+Elle regarda plutôt Sion. Ce n'est que lorsque Sion eut hoché très légèrement la tête qu'elle ouvrit la bouche.
 
-« Je dirai pas le nom pour l'instant. »
-Il dit cela sèchement.
-« Elia a ouvert le point d'accès, et pour ce qui est du nom après ça, on vous le donnera là-bas. »
+« Le nom, je le dis pas encore. »
+Elle le dit sèchement.
+« Elia a ouvert jusqu'au point de jonction, et pour le nom d'après, elle a dit qu'on l'entendrait là-bas. »
 
-Sion eut un sourire en coin.
+Sion eut un petit rire.
 
-« T'as toujours pas confiance en personne, à ce que je vois. »
+« Elle se méfie toujours de tout le monde jusqu'au bout. »
 
-« C'est pour ça que je suis encore en vie. »
+« C'est pour ça qu'elle est pas encore morte. »
 
-Un court silence s'écoula.
+Un bref silence passa.
 
-À ce moment, une vibration très basse traversa les sillons depuis le lointain.
-Ce n'était pas un grand vaisseau impérial. Ni un cargo civil non plus. Quelque chose de plus léger, de plus rapide — la vitesse du côté de ceux qui cherchent.
+À ce moment, une vibration très basse se propagea au loin le long des rails.
+Ce n'était pas un grand vaisseau impérial. Pas non plus un cargo civil. Quelque chose de plus léger, de plus rapide : la vitesse de ceux qui viennent chercher.
 
 Sern fut le premier à lever la tête.
 
-« On est suivis. »
+« Ils sont sur nous. »
 
-Seorin se retourna en même temps.
+Seorin se retourna au même instant.
 
-« Par en haut ? »
+« D'en haut ? »
 
-« Pas encore. Par le flanc. »
-Sern répondit brièvement.
-« Ce n'est pas un vaisseau de contrôle, c'est un éclaireur de recherche. Quelqu'un qui a lâché ça plus vite qu'une traque ordinaire. »
+« Pour l'instant, par le flanc. »
+Sern précisa.
+« Ce n'est pas un vaisseau de contrôle, mais un vaisseau de recherche. On l'a lâché plus vite qu'une poursuite régulière. »
 
 Yona ravala un juron.
 
 « Ils sont rapides. »
-Ces mots signifiaient quelque chose de pire qu'une simple poursuite. C'était presque le signal que quelqu'un avait déjà détecté que cette voie morte recommençait à être foulée.
+Ces mots avaient un sens pire qu'une simple poursuite. C'était presque le signe que quelqu'un avait déjà senti que cette voie morte était de nouveau foulée.
 
-Sion regarda alternativement la navette, les sillons dans l'obscurité, et la vibration dans leur dos.
-À ce stade, les options étaient simples. Attendre, c'est se faire coincer ; courir, c'est peut-être réussir le transfert. Le problème, c'est que les quatre n'allaient pas décider au même rythme. Et si on perdait un seul temps ici, ce n'était pas juste rater le vaisseau — c'était compromettre le nom de la navette du premier transfert et le point d'accès lui-même. Dans ce cas, les autres entrées sur les voies mortes qui restaient risquaient de se fermer en cascade.
+« Le même côté que celui qui a tout brûlé il y a quelques jours ? » demanda Sion.
 
-Ater dit brièvement.
+« Je l'ignore », dit Sern.
+
+Sion regarda tour à tour la navette, les rails dans l'obscurité et la vibration derrière eux.
+Un seul temps de travers ici, et ce n'était pas seulement rater le vaisseau. Le nom du vaisseau de transfert et le point de jonction lui-même seraient salis du même coup, et alors les voies d'accès encore vivantes de cette couche morte se fermeraient l'une après l'autre. Ce que des gens comme Yona avaient mis dix ans à bâtir serait coupé en une nuit.
+
+Son corps se pencha en avant avant lui. C'était la posture qu'il prenait au dock quand il fallait attraper quelque chose en vitesse.
+
+Ater dit :
 
 « Dépêchons-nous d'embarquer. »
 
-Seorin reprit aussitôt.
+« Il ne faut pas. »
 
-Seorin eut un rire bref.
-« Dans ces moments-là, il parle vite. »
+C'était Sern. C'était la première fois aujourd'hui qu'il coupait de front la parole de Son Excellence.
 
-« Parce qu'il faut parler vite, là. »
+« La raison ? »
 
-Sion sourit légèrement à ces mots.
-Ce type était franchement insupportable en temps normal, mais dans l'urgence il basculait d'un coup vers l'urgence. Ça, il fallait bien l'admettre, c'était un peu utile.
+« Dix pas, dit Sern sans regarder vers la navette. D'ici là-bas, dix pas ; en courant, quatre secondes. Après le passage du projecteur de recherche, le moment où cette couche reste vide est plus court que cela. »
 
-Sern était déjà passé à l'étape suivante.
+« Combien de secondes ? »
 
-« Pour l'ordre d'embarquement, il vaut mieux faire Sion, Seorin, Excellence, moi dans cet ordre. »
+« Je les ai comptées. Trois. »
 
-Yona haussa un sourcil.
+Yona jura tout bas.
 
-« Pourquoi. »
+« Alors on fait quoi ? »
 
-« Les deux premiers doivent lire immédiatement la structure intérieure du vaisseau, Excellence a intérêt à maintenir une vue dégagée depuis le milieu. Moi je couperai les mouvements qui essaieront d'accrocher à l'arrière. »
+« Nous ne bougeons pas. »
 
-Sion eut un petit rire.
+Sion tourna la tête vers Sern.
 
-« Hé, ça ressemble vraiment à une répartition des rôles. »
+« Rester plantés là, maintenant ? »
 
-Seorin coupa tout de suite.
+« Il ne s'agit pas de rester debout, mais d'être à l'arrêt, dit Sern, toujours sans regarder derrière lui. Le projecteur ne cherche pas des gens. Il cherche ce qui bouge. Des formes debout entre les épaves, il y en a des centaines dans cette couche ; qu'une seule bouge, et il ne reste plus qu'elle. »
 
-« T'emballe pas. Je te supporte toujours pas. »
+Seorin enchaîna avec un demi-temps de retard.
 
-« Moi non plus. »
+« …Il a raison. »
 
-Ater dit cela avec un naturel déconcertant, posant ces mots sur les leurs.
+« Vous êtes d'accord ? »
 
-Ce mot fit passer un rire bref dans l'air.
-Très court — mais c'était la sorte de rire qui ne sort que de gens qui se retrouvent collés ensemble pour survivre. Pas parce qu'on est à l'aise, mais parce que si on ne rit pas là, on va devenir tellement rigide qu'on finira par se briser.
+« Ça me plaît pas, mais t'as raison. »
 
-Yona prit la tête de la colonne.
-Le chemin entre les ombres des épaves était étroit, et les plaques de métal sous les pieds étaient par endroits soulevées. Selon qui marchait dessus, le son changeait. Il choisissait avec précision les seuls endroits qui faisaient moins de bruit.
+Puis elle saisit le bras de Sion. Ce n'était pas une main qui l'empêchait d'avancer, mais une main qui pesait de tout son poids pour lui coller les pieds au sol.
 
-Sion le suivait de juste derrière et dit à voix basse.
+« Sion. »
 
-« La façon de marcher de ce type, c'est insupportablement précis. »
+« Quoi ? »
 
-Seorin eut un petit rire.
+« T'as les talons levés, là. »
 
-« C'est un compliment ? »
+Sion baissa les yeux sur ses pieds. Ils l'étaient vraiment.
 
-« Je le reconnais en le détestant. »
+À l'instant où il reposa les pieds, la première lumière arriva.
 
-Dans leur dos, une nouvelle vibration enfla.
-Cette fois une mince lueur apparut aussi, rasant la surface du sillon métallique. La distance était vraiment courte.
+Le projecteur passa beaucoup plus lentement que prévu. Il balaya le flanc des épaves, balaya le dessous de la passerelle de transit rompue, vint jusqu'au bord de l'ombre où se tenaient les cinq, puis s'arrêta un instant juste devant.
 
-Sern dit sans regarder en arrière.
+Il s'arrêta.
 
-« Accélérez. »
+Personne ne respira.
 
-Yona répondit aussitôt.
+Sion voyait tout dans cette lumière. La poussière en suspension, les traces d'eau sur les plaques, le bord de la lumière arrivé à un demi-empan du bout de ses pieds. Un demi-empan. Fermer les yeux aurait été plus facile, mais ses yeux ne se fermaient pas.
 
-« Si on accélère là, ça fait du bruit. »
+La lumière se remit à bouger.
 
-« Si on n'accélère pas, c'est un bruit encore plus grand qui va nous rejoindre. »
+Elle passa.
 
-« Ouais, c'est juste comme raisonnement. »
+« Deux », dit Sern tout bas.
 
-Il restait une dizaine de pas jusqu'à la navette.
-Court, à voir ainsi — mais dans une situation de poursuite, ce genre de distance se ressent étrangement plus long.
+« Deux quoi ? » chuchota Yona.
 
-Sion prit une courte inspiration et couvrit les derniers mètres en glissant presque.
-À l'instant où il posa la main sur la paroi extérieure de la navette, le froid du métal se transmit comme de la glace. La vibration lourde, caractéristique des vieilles navettes, était vivante sous sa paume. Ce n'était pas un vaisseau mort. Ce constat fut un soulagement — et bizarrement, une source d'inquiétude plus grande encore.
+« Elle repassera deux fois. À cet angle, elle balaie trois fois. »
 
-La rampe était à moitié descendue.
-Sion sauta le premier à l'intérieur et balaya les lieux. Étroit mais structure simple. Deux compartiments à l'avant, une soute à l'arrière, sortie de secours côté gauche. Ce n'était pas un vaisseau fait pour embarquer beaucoup de monde — c'était un vaisseau fait pour passer vite l'essentiel.
+« Comment tu sais ça ? »
 
-« Embarquez ! »
+« L'Empire s'en sert. »
 
-Il fit signe de la main immédiatement.
+La deuxième lumière arriva.
 
-Seorin monta en deuxième, et Ater suivit dans son sillage.
-Sern regarda dans leur dos jusqu'au bout, puis posa enfin la main sur la rampe.
+Cette fois, l'angle était bas. Elle vint en rasant les plaques sous leurs pieds, et les ombres des cinq s'allongèrent sur la paroi extérieure de l'épave derrière eux. Sion vit son ombre trembler sur la paroi. Elle tremblait alors qu'il ne bougeait pas. La lumière bougeait, alors l'ombre bougeait.
 
-À cet instant, depuis l'obscurité derrière eux, un faisceau de lumière de recherche s'étira longuement.
+Ater dit tout bas :
 
-« Là ! »
+« Les ombres ne posent pas de problème ? »
 
-La voix qui criait n'était pas très loin.
+« Aucun problème. Toutes les ombres tremblent, dit Sern d'une voix tout aussi basse. C'est celle qui ne tremblerait pas qui serait étrange. »
 
-Sern regarda dans cette direction une fraction de seconde, puis se jeta sans hésiter à l'intérieur.
-Yona verrouilla aussitôt la rampe manuellement, et la paroi extérieure de la navette se mit à vibrer en se refermant.
+La deuxième passa aussi.
 
-Juste avant que le métal s'emboîte complètement, quelque chose à l'extérieur ripa contre la coque.
-C'était le bruit d'une poursuite qui avait manqué son coup d'une fraction de seconde. Pas simplement l'avoir échappé belle — cela signifiait davantage que ça : quelqu'un venait de comprendre qu'il y avait dans cette couche de transit abandonnée un vaisseau en mouvement, bien vivant. Et que la voie morte n'était plus si morte.
+Seorin tenait toujours le bras de Sion. Sa main serrait fort, mais ce n'était pas une force pour retenir Sion : c'était la force qu'elle dépensait pour ne pas bouger elle-même.
 
-Tous retinrent leur souffle.
+Sion le savait. Seorin, d'ordinaire, était meilleure à la course. Ici, celle qui tenait la posture qui lui convenait le moins, c'était Seorin.
 
-Puis, l'instant d'après,
-le moteur de la navette gronda une fois, sourdement, depuis ses entrailles.
+Avant que la troisième lumière n'arrive, Yona lâcha un mot.
 
-Le vaisseau qui était immobile se mit à vivre.
+« J'ai des fourmis dans les jambes. »
 
-Sion, la main plaquée contre la paroi nue, sourit très brièvement.
+« Supportez-le. »
 
-« Bien. »
+« Je supporte. »
 
-Seorin reprit sa respiration et demanda.
+La troisième arriva.
 
-« Quoi. »
+Cette fois, de face. Elle passa exactement entre la navette et les cinq, et à cet instant, la coque de la navette, prise dans la lumière, apparut tout entière. Les marques limées, le numéro repeint, la rampe à moitié descendue.
 
-« On y va pour de vrai, maintenant. »
+Sion pensa à ce que ceux d'en face allaient conclure en voyant cela.
 
-Ces mots avaient été lancés légèrement — mais dans la cabine, personne ne les entendit légèrement.
+Un vaisseau mort. Une épave laissée là, rampe ouverte. Il y en avait encore plusieurs comme ça dans cette couche.
 
-En dehors du port neutre, vers la ligne extérieure de l'amas stellaire.
-À la poursuite d'un nom effacé, sur la première trace d'une route tranchée.
+La lumière s'attarda un instant sur la navette, puis glissa de côté.
 
-C'était le moment, vraiment, où aller de l'avant était devenu plus immédiat que revenir en arrière.
+Puis elle s'éloigna.
+
+Longtemps après, la vibration s'apaisa sur les rails derrière eux. Ensuite, plus aucun bruit.
+
+Yona fut la première à expirer. Ce n'est qu'après avoir expiré qu'elle comprit qu'elle avait retenu son souffle.
+
+« Ils sont partis ? »
+
+« Ils sont partis. »
+
+« Pourquoi ils sont partis ? »
+
+Sern se retourna enfin.
+
+« Parce que rien n'a bougé. »
+
+Seorin lâcha le bras de Sion. Là où elle l'avait tenu restait la marque de sa main.
+
+« C'est bien la première fois. »
+
+« Quoi ? »
+
+« Survivre sans fuir. »
+
+Sion baissa les yeux sur son bras. La marque de cinq doigts y restait encore, toute blanche.
+
+« Tu m'as fait mal. »
+
+« Si je t'avais pas tenu, tu courais. »
+
+« J'aurais pas couru. »
+
+« Les talons. »
+
+Sion se tut.
+
+À côté de lui, Ater dit tout bas :
+
+« J'ai fermé les yeux les trois fois. »
+
+Les trois autres le regardèrent en même temps.
+
+« …En avais-je le droit ? »
+
+« Vous l'aviez, répondit Sern. Les paupières ne projettent pas d'ombre. »
+
+« Vous auriez pu le dire plus tôt. »
+
+« Vous ne l'aviez pas demandé, Excellence. »
+
+Sion ne dit rien. Son cœur battait encore ; il ne s'était pas arrêté après une course, il avait seulement battu sans servir à rien. C'était plus dur.
+
+Yona secoua ses jambes et se dirigea vers la navette.
+
+« On monte, maintenant. Doucement. »
+
+Cette fois, personne ne se pressa.
+
+La rampe n'était descendue qu'à moitié. Sion monta le premier et parcourut l'intérieur du regard. Étroit, mais d'une structure simple. Deux places à l'avant, une soute à l'arrière, la sortie de secours à gauche. Ce n'était pas un vaisseau fait pour embarquer beaucoup de monde, mais pour faire passer vite l'essentiel.
+
+« Venez. »
+
+Il fit un signe de la main.
+
+Seorin, Ater et Sern montèrent dans cet ordre. Yona, en dernier, abaissa le verrou manuel de la rampe.
+
+Le bruit du métal qui s'emboîtait vint, lui aussi, aussi lentement que cette lumière tout à l'heure.
+
+Le moteur de la navette gronda une fois, sourdement, dans ses profondeurs.
+
+Sion, une main appuyée contre la paroi nue, sourit.
+
+« Sern. »
+
+« Oui. »
+
+« Tout à l'heure. Quand tu comptais jusqu'à trois. »
+
+« Oui. »
+
+« Si tu t'étais trompé, on aurait fait comment ? »
+
+Sern ne répondit pas tout de suite.
+
+« Si je m'étais trompé, cette conversation n'aurait pas lieu. »
+
+« …T'es insupportable. »
+
+« Oui. »
+
+Le vaisseau qui était à l'arrêt se mit à vivre.
 
 ---
 

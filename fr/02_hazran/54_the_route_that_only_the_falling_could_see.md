@@ -1,192 +1,201 @@
 # Chapitre 54 — La route que seuls ceux qui tombaient voyaient
 
+À partir de l'instant où la partie cessa d'être une course, la façon de survivre changea elle aussi.
 
-À partir de l'instant où le plateau cessa d'être une course, la façon de survivre changea elle aussi.
+Sion le sut avec son corps avant de le savoir avec sa tête.
 
-Sion le comprit par le corps avant de le comprendre par la tête.
+L'esquif de Han Jiwoo ne suivait déjà plus la ligne de course : il raclait l'extérieur de la ligne d'effondrement. La ligne de guidage rouge que les mains de retour auraient dû suivre était morte à moitié avec l'effondrement de la couche thermique, et la moitié restante était si nette qu'elle en devenait dangereuse. Ce pouvait être un appât que quelqu'un avait laissé en vie exprès. Han Jiwoo abandonna purement et simplement ce genre de ligne. Elle ne prenait pas un chemin vivant, mais une ligne qui n'apparaissait qu'un bref instant, du côté qui était en train de s'effondrer.
 
-L'esquif piloté par Han Jiwoo ne longeait déjà plus la ligne de course mais griffait l'extérieur de la ligne d'effondrement. Les lignes de guidage rouges que les mains de retour auraient dû emprunter à l'origine étaient mortes de moitié avec l'effondrement de la couche de chaleur, et la moitié restante était trop propre — dangereusement propre. Quelqu'un les avait peut-être laissées en vie exprès, comme un appât. Han Jiwoo avait purement et simplement abandonné ces lignes-là. Au lieu de prendre un chemin vivant, elle empruntait les lignes qui n'apparaissaient que brièvement, là où tout était en train de s'effondrer.
+C'est pour cela que c'était plus dangereux, et c'est pour cela que c'était plus juste.
 
-C'est pour cela que c'était plus dangereux,
-et c'est pour cela que c'était plus juste.
+À demi appuyé sur le marchepied arrière, le corps baissé, Sion serra la braise dans sa main.
 
-Sion, le corps à demi appuyé sur le marchepied arrière, serra la braise dans sa main.
+La vraie braise vivait toujours, basse et tenace. Elle ne scintillait pas comme le faux, mais, pareille à un pouls planté au creux de sa paume, elle continuait de pousser sa présence vers le haut. Sion savait d'autant plus, avec son corps, que s'il se la faisait prendre, c'était fini. Le moyen de trouver de l'éthérite, le prochain fil qui les relierait à Aka, la chose vraie la plus sûre qu'ils pouvaient tenir au milieu de ce désert : tout reposait sur cette seule braise.
 
-La vraie braise vivait encore, basse et tenace. Elle ne scintillait pas comme une contrefaçon, mais continuait à pousser sa présence vers le haut, pareille à un pouls fiché au creux de la paume. C'est pourquoi Sion savait dans son corps, plus que jamais, que s'il la perdait, c'en serait fini. Le moyen de se procurer de l'éthérite, la prochaine ligne de connexion vers Aka, la seule chose véritablement réelle qu'ils pouvaient tenir au milieu de ce désert — tout reposait sur cette unique braise.
+Derrière, l'engin rouge sombre se colla à eux.
 
-Derrière eux, un engin de glisse rouge sombre se rapprocha.
+L'équipe championne de l'an passé les talonnait comme des gens qui, même s'ils perdaient la course, refusaient de perdre la partie. La main qui avait saisi la fausse braise avait glissé une fois, mais le pilote avant restait chevronné. Plus la couche thermique se tordait, plus il se collait au contraire à la ligne extérieure, lisant avec eux la ligne que l'esquif de Han Jiwoo n'avait d'autre choix que de prendre pour survivre.
 
-Les champions en titre de l'année précédente collaient à eux comme des gens qui, même s'ils perdaient la course, refusaient de perdre le plateau. La main qui avait saisi la fausse braise avait glissé une fois, mais le pilote à l'avant restait chevronné. Plus la couche de chaleur se tordait, plus il se plaquait vers la ligne extérieure, lisant en même temps la ligne que l'esquif de Han Jiwoo n'avait d'autre choix que d'emprunter pour survivre.
-
-« Ils continuent d'arriver. »
-dit Sion à voix basse.
+« Ils continuent de venir. »
+Sion avait parlé bas.
 
 « Regarde. »
-répondit Han Jiwoo brièvement.
-« Est-ce qu'ils nous suivent, ou est-ce qu'ils nous poussent dans un endroit d'où on ne peut plus sortir. »
+Han Jiwoo avait répondu d'un mot.
+« S'ils nous suivent, ou s'ils nous poussent là où on ne pourra plus sortir. »
 
 Sion balaya de nouveau l'arrière du regard.
 
-L'engin de glisse rouge sombre ne se contentait pas de coller à leur vitesse. Faisant mine de marcher sur leurs talons, il tuait peu à peu l'angle. S'il avait eu l'intention de simplement arracher la braise, il aurait foncé plus vite. Ce qu'il faisait là ressemblait davantage à une main qui comptait coincer l'esquif de tête dans un goulet sans issue, puis le cueillir ensuite.
+L'engin rouge sombre ne se contentait pas de coller à leur vitesse. Tout en faisant mine de leur marcher sur les talons, il leur tuait peu à peu l'angle. S'il avait seulement voulu arracher la braise, il aurait foncé plus vite. Ce qu'il faisait là ressemblait plutôt à une main qui voulait pousser l'esquif de tête dans un goulet sans issue, pour l'attraper ensuite.
 
 « La deuxième. »
-dit Sion.
-« Ils nous poussent dans un étroit. »
+Sion précisa :
+« Ils nous poussent dans un coin étroit. »
 
-Han Jiwoo eut un bref éclat de rire.
+Han Jiwoo eut un rire bref.
 
-« Pas étonnant qu'ils aient été champions. »
+« C'est sans doute comme ça qu'ils ont gagné. »
 
-Sur ces mots, l'esquif dérapa soudain vers l'extérieur.
+Sur ces mots, l'esquif glissa soudain plus loin vers l'extérieur.
 
 Le cœur de Sion tomba d'un bloc.
 
-Devant eux, rien ne ressemblait à un chemin. Le sol vitrifié était à moitié soulevé, et la distorsion de chaleur rendait illisibles les dénivellations du terrain. Aucune équipe habituée à rester à l'intérieur des lignes de course n'aurait jamais choisi cette voie.
+Devant, rien ne ressemblait à un chemin. Le sol vitreux était à moitié soulevé, et la distorsion de la chaleur rendait même les dénivelés difficiles à lire. Une équipe qui n'avait jamais roulé qu'à l'intérieur de la ligne de course ne l'aurait jamais choisie.
 
-Mais Han Jiwoo, elle, la choisit.
+Mais Han Jiwoo, elle, choisit justement celle-là.
 
-Avant d'être acculé au goulet,
-prendre les devants et filer par là où il n'y avait pas de chemin.
+Avant de se faire acculer au goulet, filer d'abord par là où il n'y a pas de chemin.
 
-L'engin de glisse rouge sombre tenta aussitôt de suivre.
+L'engin rouge sombre tenta aussitôt de suivre.
 
-À cet instant, un éclat de métal enfoui sous le sol extérieur jaillit violemment. L'esquif de Han Jiwoo avait déjà réduit sa vitesse et tint bon de justesse, mais l'engin de glisse derrière eux avait un angle d'entrée plus prononcé. Sous sa coque, un bruit de rupture bref et tranchant éclata, et le nez de l'engin se souleva imperceptiblement.
+À cet instant, un éclat de métal caché sous le sol extérieur sauta violemment. L'esquif de Han Jiwoo avait déjà tué sa vitesse et tint de justesse, mais l'engin derrière avait un angle d'entrée plus profond. Sous sa coque éclata un bruit de rupture bref et tranchant, et son nez se souleva très légèrement.
 
-Il ne s'effondra pas entièrement.
-Mais il avait perdu un demi-temps.
+Il ne s'effondra pas complètement.
+Mais il perdit un demi-temps.
 
-Sion comprit aussitôt combien ce mince décalage pesait lourd.
+Sion sut aussitôt combien ce petit décalage pesait.
 
 « Bien. »
-dit-il à voix basse.
+Il l'avait dit à voix basse.
 
 « C'est pas encore le moment de se réjouir. »
-répondit Han Jiwoo.
+Han Jiwoo continua :
 « Regarde devant. »
 
 Le terrain devant eux était pire encore.
 
-Les lignes extérieures menant hors de la zone des braises sous la couche de chaleur n'avaient jamais été conçues pour le retour : c'étaient des lignes de maintenance, de récupération, de déviation d'urgence, bricolées bout à bout. Métal, sol vitrifié et couches de sable à demi calciné s'imbriquaient si étroitement qu'un seul faux appui pouvait soulever l'appareil tout entier ou, à l'inverse, le planter dans le sol comme aspiré vers le bas.
+Les lignes extérieures qui sortaient de la zone des braises de la couche thermique n'étaient pas faites, à l'origine, pour le retour : c'étaient des lignes d'entretien, de récupération et de contournement d'urgence, raccordées tant bien que mal. Structures métalliques, sol vitreux et couches de sable brûlé puis refroidi s'imbriquaient, si bien qu'à la moindre mauvaise prise, l'appareil pouvait se soulever tout entier ou, au contraire, se planter dans le sol comme aspiré.
 
-Sion ne cherchait plus un chemin ; il devait choisir, parmi les lignes en train de s'effondrer, celle qui tiendrait encore une fois.
+Sion ne cherchait plus un chemin : il devait choisir, parmi les lignes en train de s'effondrer, celle qui tiendrait encore une fois.
 
 À droite, c'était trop propre.
-Peut-être une ligne laissée exprès pour la récupération.
-En face, c'était large, mais en dessous la chaleur bouillonnait avec trop de violence.
-En bas à gauche, sous l'ombre d'une rambarde brisée, une bande sale se prolongeait.
+Peut-être une ligne que quelqu'un avait laissée exprès pour la récupération.
+En face, c'était large, mais en dessous la chaleur bouillonnait trop fort.
+En bas à gauche, sous l'ombre d'une rambarde rompue, une bande sale se prolongeait.
 
 « En bas à gauche. »
-dit Sion aussitôt.
+Sion l'avait dit aussitôt.
 « Sous l'ombre de la rambarde. »
 
-Han Jiwoo appuya sans hésiter dans cette direction.
+Han Jiwoo appuya dans cette direction sans hésiter.
 
-Le dessous de l'esquif racla avec un grincement bas et des étincelles jaillirent brièvement. La plaque de sustentation droite glissait d'un demi-temps à chaque impulsion, presque à l'agonie, mais Han Jiwoo exploitait précisément ce retard pour corriger le centre de gravité. Ce n'était pas l'appareil qui tenait ; c'était le pilotage qui tenait à la place de l'appareil.
+Le dessous de l'esquif racla bas et des étincelles jaillirent brièvement. La plaque de sustentation droite, comme sur le point de mourir, cédait d'un temps à chaque poussée, mais Han Jiwoo calculait au contraire ce retard pour régler le centre de gravité. Ce n'était pas l'appareil qui tenait d'abord ; c'était le pilotage qui tenait à la place de l'appareil.
 
-Au nord, Kael et Sern descendaient en décrivant un arc plus large.
+Au nord, Kael et Sern redescendaient en décrivant un arc plus large.
 
-Plutôt que de coller d'emblée au groupe de Han Jiwoo, ces deux-là avaient d'abord pris une ligne de contournement plus large, à l'extérieur des lignes effondrées. Sern avait vu le bref ralentissement de l'engin rouge sombre, et il voyait aussi vers où Han Jiwoo filait à présent. Mais suivre le même chemin signifiait se faire prendre tous les deux. Il fallait au contraire prendre un détour plus ample pour créer un angle de convergence ultérieur.
+Plutôt que de coller d'emblée au groupe de Han Jiwoo, ces deux-là avaient d'abord pris un contournement plus large, à l'extérieur des lignes qui s'effondraient. Sern avait vu le bref retard de l'engin rouge sombre, et il voyait aussi par où Han Jiwoo s'échappait maintenant. Mais suivre le même chemin, c'était se faire prendre tous ensemble. C'était en faisant un détour un peu plus large qu'on trouverait l'angle pour les rejoindre plus tard.
 
-« Tu peux les rejoindre ? »
-demanda Kael.
+« On peut les rejoindre ? »
+Kael avait posé la question.
 
-Sern balaya rapidement du regard le flux d'effondrement devant eux et les dénivellations du terrain en contrebas.
+Sern balaya rapidement des yeux le flux de l'effondrement devant eux et le relief du terrain en contrebas.
 
 « Pas tout de suite. »
-dit-il.
-« Mais eux aussi finiront par descendre. Si on descend les premiers, on peut se retrouver. »
+Sern poursuivit :
+« Mais eux aussi finiront par descendre. Si nous descendons les premiers, nous pourrons les retrouver. »
 
-Kael, sans un mot de plus, abaissa le nez de l'engin de glisse.
+Sans un mot de plus, Kael abaissa encore le nez de l'engin.
 
-L'appareil qu'on aurait cru pataud se révélait précieux dans ces moments-là. Lent à virer sec, mais une fois lancé avec du poids, il mordait le sol et tenait bon. Incapable de prendre les lignes brillantes, il était fait pour griffer jusqu'au bout l'extérieur d'un terrain en train de s'effondrer.
+L'appareil qu'il avait cru seulement pataud se révélait bon dans ces moments-là. Lent à virer sec, mais une fois le poids posé, il mordait le sol et tenait. Incapable de suivre les lignes brillantes, il était fait pour racler jusqu'au bout l'extérieur d'un terrain qui s'effondre.
 
-Dans les gradins, ce qui se passait ressemblait de moins en moins à une course et de plus en plus à un chaos.
+Les tribunes ressemblaient déjà moins à une arène qu'à une pagaille.
 
-Quelques parieurs serraient encore leurs tickets dans le poing, s'efforçant de voir cela comme une compétition, tandis que les démonteurs et les hommes armés avaient lu la situation bien plus vite et se repliaient. Luhai, à demi descendu de la balustrade, s'était collé aux côtés de Seorin.
+Quelques parieurs serraient encore leurs tickets de mise et s'efforçaient de regarder cela comme une course, tandis que les démonteurs et les hommes armés, eux, avaient lu la situation bien plus vite et se repliaient. Luhai, à demi redescendu de la balustrade, se colla à côté de Seorin.
 
-« C'est quoi la priorité maintenant ? »
-demanda-t-il.
-« La braise, ou sortir les gens. »
+« Maintenant, c'est quoi d'abord ? »
+Puis il précisa :
+« La braise, ou sortir les gens ? »
 
-Seorin lisait simultanément la ligne où le groupe de Han Jiwoo et le groupe de Kael se séparaient, l'angle de reprise de l'engin rouge sombre, et la vitesse de déplacement de trois ombres à l'extérieur de la couche de chaleur.
+En bas, Seorin lisait d'un seul coup la ligne où les groupes de Han Jiwoo et de Kael se séparaient, l'angle que l'engin rouge sombre reprenait, et la vitesse à laquelle trois ombres se déplaçaient hors de la couche thermique.
 
 « Les deux. »
-dit-elle brièvement.
-« La main qui tient la braise ne doit pas mourir, et il ne faut pas non plus perdre de vue où cette main se dirige. »
+Elle l'avait dit brièvement.
+« La main qui tient la braise ne doit pas mourir, et il ne faut pas perdre de vue où cette main s'en va. »
 
-Ater, à côté d'elle, portait le regard plus loin encore.
+À côté d'elle, Ater regardait plus loin.
 
-Ce n'était pas seulement les gens du côté de Haroun. Dès l'instant où le plateau s'était brisé, d'autres mains, à l'extérieur de l'arène, avaient commencé à bouger. Des mains qui dévoraient l'information, des mains qui cherchaient à intercepter le vrai, des mains qui restaient cachées tant que la réaction de Zahir ne serait pas visible. Au moment où cette unique braise dépassait la valeur d'un score de course, tout Hazran commençait à flairer l'odeur.
+Il n'y avait pas que les gens de Haroun.
+Dès l'instant où la partie s'était brisée, d'autres mains, hors de l'arène, s'étaient mises à bouger. Des mains qui se nourrissent d'informations, des mains qui veulent intercepter le vrai, des mains qui restent cachées tant qu'elles n'ont pas vu la réaction de Zahir. Au moment où cette seule braise devenait une valeur plus grande que les points de la course, tout Hazran commençait à flairer l'odeur.
 
-Nassim recula enfin d'un pas. Non par fuite, mais pour mettre de l'ordre. Si ce plateau avait déjà échappé au contrôle des organisateurs, ce qui restait à faire était de calculer à qui imputer les dégâts et quelle valeur reporter au plateau suivant. Zahir, en revanche, ne bougea pas de sa place jusqu'au bout.
+Nassim recula enfin d'un pas. Ce n'était pas une fuite, mais une mise en ordre. Si cette partie avait déjà échappé au contrôle des organisateurs, il ne restait plus qu'à calculer à qui imputer les dégâts et quelle valeur faire passer à la partie suivante. Zahir, en revanche, ne bougea pas de sa place jusqu'au bout.
 
-Ce silence échappait à Sion,
-mais il parvenait largement à Seorin et à Ater.
+Ce silence, Sion ne pouvait pas le voir, mais il pesait assez pour Seorin et Ater.
 
-Cet homme n'avait pas encore abandonné ce plateau.
-Simplement, il était plus près du côté de ceux qui regardent jusqu'où les choses se dégraderaient.
+Cet homme n'avait pas encore abandonné cette partie.
+Il était plutôt en train de regarder jusqu'où il se dégraderait.
 
-Aka se trouvait toujours auprès de Nahira.
+Auprès de Nahira, Aka ne regardait pas l'intérieur de l'arène.
 
-Mais à présent, elle ne regardait plus l'intérieur de l'arène.
-Elle observait vers où filait la main qui tenait la braise,
-et quelles mains se collaient à cette main.
+Elle regardait par où s'en allait la main qui tenait la braise, et quelles mains se collaient à cette main.
 
-Sion ne pouvait pas le voir directement, et pourtant, à cet instant, il sentait confusément qu'Aka ne se contentait pas d'observer le résultat de la course. Quiconque savait dans quelle main le vrai était tombé se mettrait ensuite à regarder qui chercherait à briser cette main.
+« Après, c'est la main. »
 
-C'est alors que la ligne extérieure devant eux s'affaissa une fois de plus, brutalement.
+Luhai se retourna.
 
-La ligne qu'ils suivaient sous l'ombre de la rambarde gauche se rompit d'un coup, et la couche de verre en dessous se fendit. Han Jiwoo, au lieu de jurer, ravala brièvement son souffle et braqua l'esquif presque à la verticale pour basculer son poids sur un cadre métallique mort du côté opposé. L'appareil tout entier trembla violemment, et Sion serra les bras plus fort pour ne pas lâcher la braise dans sa main.
+« Quoi ? Quelle main ? »
 
-L'engin de glisse rouge sombre se rapprocha de nouveau.
+Aka ne répondit pas.
 
-Cette fois, c'était un angle qui visait ouvertement à bloquer la route.
+« La main de qui ? »
+
+Pas de réponse.
+
+Luhai allait redemander quand un bruit venu du terrain lui fit retourner la tête. Le bruit était fort et pressant, plus pressant que ce qu'il voulait demander.
+
+Pendant ce temps, Aka regardait toujours au même endroit.
+
+Là, il ne se passait encore rien. Les mains qui allaient s'y coller ne s'y étaient pas encore collées, et tant qu'elles ne l'étaient pas, personne ne les voyait.
+
+Dans la tribune, une seule personne regardait cela.
+
+Et cette personne-là ne pouvait pas descendre sur le terrain.
+
+À cet instant précis, la ligne extérieure devant eux s'affaissa encore une fois, violemment.
+
+La ligne qu'ils suivaient sous l'ombre de la rambarde gauche se rompit d'un coup, et la couche de verre en dessous se fendit. Han Jiwoo, au lieu de jurer, ravala brièvement son souffle, braqua l'esquif presque à l'arrêt et fit passer son poids sur un cadre métallique mort, du côté opposé. Tout l'appareil résonna d'un grand coup, et Sion serra les bras plus fort pour ne pas lâcher la braise.
+
+L'engin rouge sombre se colla de nouveau à eux.
+
+Cette fois, c'était un angle qui visait ouvertement à leur barrer la route.
 
 « Ils arrivent. »
-dit Sion.
+Sion l'avait dit sans détour.
 
-Han Jiwoo, cette fois, ne répondit pas brièvement.
+Cette fois, Han Jiwoo ne répondit pas brièvement.
 
-Au lieu de cela, il écouta une vibration de l'esquif puis dit.
+Elle écouta plutôt une fois la vibration de l'esquif, puis parla :
 
-« Si on se laisse accrocher, on meurt. Si on décroche, on vit. »
+« Si on se laisse coller, on meurt. Si on décroche, on vit. »
 
-Ces mots s'adressaient autant à Sion
-qu'à lui-même, comme une conclusion qu'il se donnait.
+Ces mots s'adressaient à Sion, mais ils ressemblaient aussi à une conclusion qu'elle se donnait à elle-même.
 
-L'instant d'après,
-devant le goulet où l'engin rouge sombre tentait de les coincer, Han Jiwoo ne s'enfonça pas plus vers l'intérieur.
+L'instant d'après, devant le goulet où l'engin rouge sombre voulait les arrêter, Han Jiwoo, au contraire, ne s'enfonça pas plus vers l'intérieur.
 
-Il prit vers le bas.
+Elle prit vers le bas.
 
-La pente morte en contrebas de la périphérie, tordue par la chaleur, qui ne ressemblait presque pas à un sol.
-Une ligne qu'aucune main de course n'emprunterait.
-Mais à présent, ce n'étaient plus des mains de course — seulement des mains qui devaient survivre.
+Une pente morte sous la périphérie tordue par la chaleur, qui ne ressemblait presque pas à un sol.
+Une ligne qu'aucune main de course ne prendrait.
+Mais à présent, une ligne que prennent seules, non plus les mains de course, mais les mains qui doivent survivre.
 
 Sion eut le souffle coupé.
 
-« On peut prendre ça ? »
+« On peut passer par là ? »
 
-Han Jiwoo dit brièvement.
+Han Jiwoo répondit brièvement :
 
-« Maintenant, il le faut. »
+« Maintenant, il faut que ça passe. »
 
-L'esquif glissa vers la pente morte en contrebas comme s'il tombait.
+L'esquif glissa vers la pente morte en contrebas, comme s'il tombait.
 
-Derrière eux, l'engin de glisse rouge sombre hésita un instant.
-Chevronnés ou pas, cette ligne était de celles qu'on ne choisissait pas dans le cadre d'une course.
+Derrière, l'engin rouge sombre eut un bref moment d'hésitation.
+Si aguerrie que fût l'équipe, c'était une ligne qu'on ne choisissait pas pendant une course.
 
-En cette fraction de seconde,
-l'engin de Kael et Sern commença à descendre depuis la large ligne de contournement en surplomb.
+Dans cette fraction de seconde, l'engin de Kael et Sern commença à descendre depuis le large contournement, plus haut.
 
-Deux lignes différentes
-convergeaient enfin vers le même bas-côté extérieur.
+Deux lignes différentes se dirigeaient vers le même bas de la périphérie.
 
-Et Sion comprit.
+Sion traça des yeux le point où ces deux lignes se rencontraient. Loin, très loin hors de la ligne de course.
 
-À partir de maintenant, il ne s'agissait plus de rejoindre la course,
-mais de gens portant le vrai et cherchant la sortie
-qui se rassemblaient sur la même ligne de fuite.
+Là-bas, personne ne comptait.
 
 ---
 

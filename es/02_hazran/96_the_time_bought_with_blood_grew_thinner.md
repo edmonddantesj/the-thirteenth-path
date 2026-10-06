@@ -1,197 +1,311 @@
 # Capítulo 96 — El tiempo comprado con sangre se fue haciendo más fino
 
-Cuando terminó la segunda tanda,
-Hazran sin duda volvió a empujar a unas cuantas personas hacia fuera.
+Sion no perdió la cuenta ni una sola vez.
 
-Pero, en la misma medida,
-el tiempo que quedaba dentro no se hizo más grueso,
-sino al contrario, más fino.
+Contó al pasar entre la gente, contó al apartar escombros, contó incluso al comprobar las marcas de la tablilla. Los números no dejaban de rodar por dentro de su cabeza.
 
-Sion lo notó de inmediato.
+Se cumplió la hora.
 
-Cuanto más se vaciaba de gente, el lado del casco debería ir quedándose vacío poco a poco,
-pero en realidad era lo contrario.
-Sobre los hombros de los que quedaban subía ahora más carga,
-la línea se afinaba más,
-y las manos que tenían que aguantar eran menos.
+Sion fue hacia el pasillo.
 
-El tiempo comprado con sangre
-no se acumula.
+Harún estaba pegado al costado del cuerpo negro inclinado. Con la mano derecha sostenía los escombros, y el brazo izquierdo lo tenía pegado al cuerpo. Los dedos, por debajo de donde estaba atado, tenían un color más raro que antes.
 
-Cada vez que se usa, se hace más fino.
+—Ya ha pasado una hora.
 
-La sangre que corría del brazo de Harún también fue así.
+—Todavía no.
 
-La tela que le habían enrollado a toda prisa ya estaba medio empapada,
-y él ahora usaba el lado izquierdo casi solo como apoyo.
-Tal como había dicho Ater, no recibía de frente,
-sino que giraba el cuerpo y desviaba el ángulo, cambiando su movimiento hacia aguantar.
+—Sern dijo que una hora…
 
-Pero por mucho que hiciera eso,
-un cuerpo que pierde sangre no puede sostener la misma intensidad mucho tiempo.
+—He dicho que todavía no.
 
-Sern lo miraba con cara de estar mordiéndose por dentro el labio con fuerza.
-Él también estaba herido,
-y por eso lo entendía mejor.
-Que eso ya no era cosa de simplemente aguantar.
+Sion no dijo nada más.
 
-Ater redujo aún más las palabras.
+Hoy había visto muchas veces que decir algo no servía de nada. En cambio, miró una vez más esos dedos y se dio la vuelta. Al darse la vuelta, empezó a contar de nuevo. Los números que contaba a partir de pasada la hora eran distintos de los que contaba antes.
 
-Decía solo lo necesario.
+Junto a la rampa la gente estaba más apiñada que antes.
 
-—El segundo individuo de la derecha, le sacude la mirada.
-—El biombo izquierdo aguanta una vez más.
-—Harún, ahora atrás.
+La cuarta tanda esperaba de pie. No eran veinte, sino veintitantos. Desde atrás seguía llegando gente que se apretaba contra ellos, y no se distinguía si aquello era una fila o un amasijo.
 
-Entre esas palabras cortas,
-estaba tal cual lo tensa que colgaba ahora mismo la línea del frente.
+Luhai estaba a su lado, mirando la tablilla.
 
-Harún, a partir de cierto momento, casi ni respondía.
+—Sion.
 
-Solo se movía.
+—¿Qué?
 
-Eso daba más inquietud.
+—Esto es raro.
 
-Sion iba y venía entre el frente y el casco,
-y tenía que cortar a la fuerza el modo en que sus ojos se desviaban una y otra vez hacia Harún.
+—¿El qué?
 
-Si se quedaba mirando ahora a esa persona,
-aquí se cortaba la fila.
-Si la fila se cortaba aquí ahora,
-también dejaba de tener sentido que esa persona aguantara perdiendo sangre.
+Luhai señaló la tablilla. Había tres marcas. Igual que antes.
 
-Por eso él siguió moviéndose.
+—Aquí no ha subido nada desde hace rato.
 
-Contaba la siguiente fila,
-quitaba lo que enganchaba los pies,
-empujaba con el hombro para que la fila de refugiados no se cargara hacia un lado,
-y volvía a apisonar la arena bajo la rampa del casco.
+—Ya lo sé. Todavía no ha despegado.
 
-Con Seorin pasaba lo mismo.
+—No es eso.
 
-Ella ahora movía las manos antes que las palabras casi siempre.
-Giraba el hombro de alguien,
-cambiaba el ángulo de la camilla,
-sujetaba a un crío que iba a caerse,
-apartaba la carga con el pie.
+Luhai negó con la cabeza. Tenía cara de impaciencia.
 
-Pero Sion lo sabe.
+—El primer despegue y el tercero no son iguales.
 
-Que cuanto más rápidas se le volvían las manos,
-más en silencio se le iba rompiendo el ánimo, al revés.
+—¿Qué tienen de distinto?
 
-Luhai tenía la cara toda empapada por la falta de aire,
-y aun así seguía contando a la gente.
+—En el primero los subimos y ya. En el segundo hubo que arreglar el barco. En el tercero hizo falta que esa cosa se cayera.
 
-—Quedan tres.
-—dijo en voz baja—. Tres más todavía.
+Sion lo entendió con medio tiempo de retraso.
 
-Nasim, con la garganta ronca, respondió enseguida.
+—O sea.
 
-—Entonces saca a tres.
+—Lo que entra no deja de aumentar.
 
-Una frase demasiado obvia.
-Pero Hazran ahora,
-para volver real esa frase obvia,
-quemaba a la vez sangre de gente, metal y tiempo.
+Luhai golpeó dos veces la tablilla con el dedo.
 
-Han Jiwoo endureció el rostro mirando los preparativos de embarque de la tercera tanda.
+—Pero lo que sale sigue siendo veinte.
 
-El barco aún aguanta.
-Pero aguantar significaba, justo,
-que cada peso que entraba a partir de ahora
-estaba royendo ese aguante.
+Sion miró la tablilla.
 
-Aka, escuchando el temblor del casco, dijo muy bajo.
+Tres marcas. Veinte, veinte, veinte. Mirando solo la tablilla, parecía que lo mismo hubiera pasado tres veces.
 
-—La tercera no aguanta largo.
+Pero la primera vez la gente simplemente había subido andando. La segunda la había conseguido alguien que se desolló las dos manos debajo del barco. La tercera había salido de que aquella cosa negra cayera en mitad del pasillo, y en eso a dos se les había abierto la carne.
 
-Han Jiwoo preguntó de inmediato.
+—Un libro de cuentas así no funciona.
+Lo dijo Luhai.
 
-—Hasta cuánto.
+—¿Por qué?
 
-Aka cerró un momento los ojos y luego dijo.
+—Si lo que entra sube y lo que sale se queda igual, algún día ya no se puede pagar.
 
-—Cortando corto.
-—Si formas fila larga se sacude junto.
+Sion sabía de dónde venía eso. Aquel chico había visto, en los callejones de Hazran, los días en que las líneas de los libros de cuentas se movían de forma rara. Ahora miraba esta ciudad con esos mismos ojos.
 
-Es decir,
-ahora ya no se trataba de subir a más gente de una sola vez,
-sino de cortar y embarcar deprisa en bloques cortos.
+—¿Y entonces qué hay que hacer?
 
-Han Jiwoo tomó la decisión al instante.
+Luhai no respondió. Tenía cara de que eso no le tocaba a él. Aquel chico solo veía cuándo las líneas iban raras; qué hacer con ello le correspondía a otro.
 
-—¡La tercera tanda, cortar de tres en tres! —gritó—. ¡No formes fila larga!
+—Pero una cosa sí sé.
+Eso dijo Luhai.
 
-Nasim, al oír esas palabras, cambió enseguida la disposición de las filas.
+—¿Qué?
 
-—¡De tres en tres! ¡Los tres de delante, preparados!
+—El precio del siguiente ya se está pagando.
 
-La gente dentro de Hazran estaba ahora
-tan comprimida
-que ni siquiera distinguía si era una fila,
-un bloque,
-o solo un cuerpo más que iba a ser empujado hacia arriba a continuación.
+—¿De qué hablas?
 
-Pero, aun en medio de eso,
-la gente subía.
+—Todavía no ha despegado y ya lo estamos gastando.
 
-Porque tenía que ser así.
+Luhai alzó la barbilla hacia el pasillo. Allí estaba Harún, de pie.
 
-Detrás del paso de la derecha
-seguía la pelea por endurecer el cuerpo de ruptura inclinado y volverlo un obstáculo de verdad.
+—Lo que se está yendo allí ahora es el precio de la cuarta tanda. Y la cuarta tanda todavía no ha entrado en la tablilla.
 
-Sern volvió a apuntar al eje de refuerzo de atrás,
-y Ater seguía rasgando la mirada y el ángulo
-para que los individuos comunes no pudieran pisar ese cuerpo y pasar por encima.
-Harún, para que ese peso derrumbado no volviera a enderezar el paso,
-lo sujetaba retorciendo el ángulo con el brazo que le quedaba y todo el cuerpo.
+Sion le dio una vuelta a esa cuenta dentro de la cabeza.
 
-Pero Sion ahora lo veía.
+Al dársela, era peor. Era un libro de cuentas en el que se pagaba primero y la mercancía se recibía después. Y la mercancía podía no llegar nunca.
 
-El movimiento de Harún se había vuelto muy levemente más lento.
-Aguantaba una vez,
-y hasta el siguiente aguante el intervalo era un poco más largo que antes.
-Eso nadie lo dijo,
-pero en el campo de batalla era de esa clase de cambios que se ven demasiado bien.
+Seorin estaba metiendo gente desde la cabeza de la fila.
 
-Y justo entonces,
-Ater por primera vez subió un poco más la voz.
+Casi no hablaba. Las manos iban primero. Giraba hombros, cambiaba el ángulo de las camillas, agarraba de la muñeca a quien estaba a punto de caerse, apartaba bultos con el pie. Entre un movimiento y otro no quedaba ningún hueco.
 
-—Viene la siguiente presión.
+Sion, mirándola, vio una cosa.
 
-Sern habló casi al mismo tiempo.
+Seorin empujó hacia las camillas a una persona que podía caminar. Esa persona dio medio paso y se detuvo por sí sola, y solo entonces Seorin la soltó.
 
-—Esta vez no es solo la derecha.
+Fue una vez. Nadie lo vio.
 
-A Sion se le cortó el aliento.
+Sion lo vio.
 
-Entonces es peor.
-Mientras el lado de Harún ya aguantaba perdiendo sangre,
-si otro paso se sacudía al mismo tiempo,
-todo el último tramo de supervivencia junto al casco podía venirse abajo a la vez.
+—Seorin.
 
-Zahir, al oír esas palabras,
-cerró los ojos un instante y volvió a abrirlos.
+—¿Qué?
 
-En ese rostro no había vacilación.
-Pero, en cambio,
-había el cálculo de quien sabe que ya quedan muy pocos.
+—Lo de hace un momento.
 
-—Pego la tercera tanda —dijo en voz baja—. Después reubico las manos sobrantes.
+Seorin respondió sin detener las manos.
 
-En el instante en que cayeron esas palabras,
-Sion sintió que el pecho se le ponía más pesado.
+—Lo sé.
 
-«Las manos sobrantes».
+Sion no sabía cómo decir lo siguiente. Hasta hacía un rato, lo correcto había sido hacer como que no lo veía. Así había sido en el pasillo, y también al agarrar el asa de la camilla. Pero ahora, si esa persona hubiera subido en camilla, otra no habría podido subir.
 
-Ahora a la gente empezaba a contársela no por nombre ni por vínculo,
-sino también por el tiempo que le quedaba y la función que podía aguantar.
+—La próxima vez miro yo.
 
-La guerra siempre llega hasta ese punto.
+Solo entonces Seorin detuvo las manos.
 
-Y Hazran también,
-estaba ahora justo ahí.
+Miró a Sion un instante. No tenía cara de enfado.
+
+—Bien.
+
+Sion recordó cuando antes se habían repartido el asa de la camilla. Entonces Seorin no le había dado las gracias ni le había dicho que no hacía falta. Simplemente había seguido cargando.
+
+Esta vez había dicho «bien». Una palabra más.
+
+Seorin volvió a tender la mano hacia la fila.
+
+Pero esta vez fue distinto. Antes de tender la mano, miró una vez la fila entera.
+
+—Esto no sirve.
+Lo dijo Seorin.
+
+—¿El qué?
+
+—No se puede formar así de larga.
+
+—¿Por qué?
+
+—Si se tambalea la cabeza, se tambalea todo hasta el final.
+
+Seorin señaló con la mano hacia la mitad de la fila. A partir de ahí, la gente se agarraba unos a otros de los hombros.
+
+—De ahí para atrás no se sostienen sobre sus pies. Están de pie apoyándose en el de delante.
+
+Solo entonces lo vio Sion.
+
+Era verdad. Los veinte de delante estaban de pie cada uno por su cuenta, pero los de atrás estaban pegados entre sí, de pie como una sola cosa. Si uno de delante se desplomaba, los de atrás caerían en bloque.
+
+—Córtala de tres en tres.
+Lo dijo Seorin.
+
+—¿De tres?
+
+—De tres. Que no se peguen. Dos pasos de separación entre unos y otros.
+
+—Así se tarda más en subirlos.
+
+—Si se caen, se tarda más.
+
+Sion se llevó esas palabras y corrió hacia el fondo de la fila.
+
+Separarlos dos pasos también llevaba tiempo. La gente no quería despegarse. El cuerpo creía, antes que nada, que estar pegados era lo seguro.
+
+Sion los fue separando con las manos uno a uno. Mientras los separaba, les hablaba.
+
+—Dos pasos. Solo dos pasos.
+
+Los huecos que abría volvían a cerrarse. Los volvía a abrir.
+
+Una persona no se despegaba.
+
+Tenía agarrado el borde de la ropa de quien iba delante y, cuando Sion le puso la mano encima, apretó todavía más.
+
+—Hay que soltar.
+
+—No quiero.
+
+—Solo dos pasos.
+
+—A dos pasos ya no lo alcanzo.
+
+Sion entendió lo que eso quería decir. Esa persona no se agarraba por miedo a caerse. Se agarraba al instante en que el de delante subiera al barco y ella no.
+
+Sion se quedó quieto un momento.
+
+—Entonces, delante.
+
+—¿Qué?
+
+—Que pase delante, digo. Así no hace falta soltar.
+
+La persona miró a Sion una vez y pasó delante. Al pasar, soltó el borde de la ropa.
+
+La mano que había soltado no tenía adónde ir y se quedó un momento en el aire. Sion lo vio.
+
+La fila tardó mucho en quedar cortada de tres en tres.
+
+Mientras tanto, el barco no despegó.
+
+Sion volvió a mirar la tablilla. Seguía habiendo tres marcas.
+
+Ocho viajes.
+
+No había bajado nada. Pero durante ese tiempo Harún había seguido de pie, el costado de quien había dado la tela para atar había seguido empapándose, y la gente, separada dos pasos, tenía más miedo.
+
+Luhai tenía razón. Lo único que aumentaba era lo que entraba.
+
+Sion corrió al pasillo.
+
+—Harún.
+
+Harún no se volvió.
+
+—Ya ha pasado más de una hora.
+
+—¿Cuánto?
+
+—Mucho.
+
+—Exactamente.
+
+Sion dijo el número que llevaba contado. Al oírlo, Harún tendió el brazo izquierdo por primera vez.
+
+—Desátalo.
+
+Sion puso la mano en el nudo. El nudo de antes no se soltaba fácilmente. Tuvo que hurgar con las uñas.
+
+En cuanto se soltó, Harún apretó los dientes.
+
+Salió la sangre. Lo que había estado detenido brotó de golpe y le llegó a Sion hasta el dorso de la mano. Estaba caliente.
+
+—Vuelve a atarlo.
+
+—¿Ahora?
+
+—Ahora.
+
+—Si lo dejamos un poco más…
+
+—Entonces desde allí se ve.
+
+Sion no miró atrás. No le hacía falta. La fila, cortada de tres en tres, miraba hacia este lado.
+
+Sion volvió a atarlo. Dos vueltas y, tal como lo había visto antes, el nudo. La primera vez no le salió. A la segunda, sí.
+
+—Ya está.
+
+Harún probó a doblar el brazo una vez.
+
+—Una hora.
+Lo dijo él.
+
+—¿Otra vez?
+
+—Otra vez.
+
+Sion se limpió en la ropa lo que tenía en el dorso de la mano. No se iba bien.
+
+—Harún.
+
+—¿Qué?
+
+—¿Cuántas veces más hay que hacer esto?
+
+Harún respondió mientras volvía a subir la mano hacia los escombros.
+
+—Quién sabe.
+
+—¿Lo voy contando?
+
+Solo entonces Harún miró a Sion.
+
+—Eso no lo cuentes.
+
+Sion ya había oído esas palabras. El primer día, aquel hombre había dicho exactamente lo mismo. Que, si contaba, acabaría sabiendo también cuándo era la última vez.
+
+Entonces había creído que hablaba del número de viajes del barco.
+
+—¿Por qué?
+
+—Si lo sé yo, las manos me cambian.
+
+Sion iba a irse, pero se detuvo y preguntó.
+
+—¿Y yo sí puedo contar?
+
+—Tú cuenta.
+
+—¿Por qué?
+
+—Porque, si cuentas tú, yo no tengo que contar.
+
+Sion se dio la vuelta con esa respuesta a cuestas.
+
+Y volvió a contar. Lo que Harún le había dicho que no contara, no lo contó. Contó solo la hora.
 
 ---
 

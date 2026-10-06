@@ -48,13 +48,13 @@ Au contraire, tous le savaient déjà.
 
 C'était la première fissure.
 
-Serakion apprendrait forcément de cet échec. Il ne laisserait plus facilement la même faille s'ouvrir.
+Serakion apprendrait forcément de cet échec. La même faille ne s'ouvrirait plus facilement.
 
 Et c'est pour cela que ce qu'ils avaient vu ici devenait important.
 
 Sern dit très doucement :
 
-« Il faut le consigner. Pas seulement la forme du combat... les conditions du changement aussi. »
+« Il faut le consigner. Pas seulement la forme du combat… les conditions du changement aussi. »
 
 Ce n'était pas un simple rapport.
 
@@ -78,7 +78,7 @@ Alors l'enfant qui avait retracé son visage vint s'asseoir avec précaution à 
 
 Il regarda le dernier androïde et demanda tout bas :
 
-« Il... il devra encore se battre ? »
+« Il… il devra encore se battre ? »
 
 L'air de la pièce sembla s'arrêter un instant.
 

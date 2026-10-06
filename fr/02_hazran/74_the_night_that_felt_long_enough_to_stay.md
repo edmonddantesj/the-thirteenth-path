@@ -2,117 +2,226 @@
 
 La nuit de Hazran était plus calme que le jour, mais jamais légère.
 
-Quand la chaleur se retirait, les gens disaient qu'on pouvait enfin respirer. En réalité, c'était là que davantage de choses apparaissaient.
+Quand la chaleur du jour se retirait, les gens disaient qu'ils revivaient, mais en réalité, c'était à partir de là que bien plus de choses se révélaient.
 
-L'odeur du métal refroidi. La texture du sable portée par le vent. Les bruits fins de machines qu'on n'entendait pas le jour. Les négociations basses sous les tentes. Les visages de ceux qui, après avoir à peine traversé la journée, pouvaient enfin montrer leur fatigue.
+L'odeur du métal refroidi,
+le grain du sable porté par le vent,
+de minces bruits de machines qu'on n'entendait pas le jour,
+des marchandages qui se poursuivaient à voix basse sous les tentes,
+et les visages de ceux qui, ayant tout juste passé la journée, laissaient enfin voir leur fatigue.
 
-Sion n'aimait pas moins cet air nocturne.
+On disait que, plus la nuit avançait, plus la température baissait encore. Que cet endroit qui brûlait tant le jour devienne, à l'aube, assez froid pour engourdir les mains, Sion avait encore du mal à le croire. D'après Luhai, c'est pour cela que les gens de Hazran dormaient, non pas sous une couverture, mais avec à leurs pieds une plaque de métal chauffée pendant la journée. Ce qui brûlait le jour devenait, la nuit, ce qui couvre.
 
-Il restait rude, étranger, prêt à se renverser à tout moment. Pourtant, à cet instant, il donnait l'impression qu'on pouvait rester debout un peu plus longtemps.
+Cet air de la nuit ne déplaisait pas à Sion.
 
-Quand ils revinrent après un dernier tour du marché, Han Jiwoo les attendait déjà devant la tente intérieure.
+Toujours rude,
+toujours étranger,
+et même s'il semblait pouvoir se retourner à tout moment,
+étrangement, il donnait à présent le sentiment qu'on pouvait rester là debout un peu plus longtemps.
 
-Ses épaules et ses mains avaient l'air épuisées, mais ses yeux n'étaient pas morts. C'était bon signe.
+Quand ils revinrent ce jour-là après un dernier tour du marché, Han Jiwoo était déjà sortie devant la tente intérieure.
 
-Sion demanda:
+Ses épaules et ses mains avaient l'air épuisées, mais ses yeux étaient encore vifs.
 
-« Alors? »
+Sion demanda :
 
-Elle ne répondit pas tout de suite. Elle regarda les morceaux de métal déposés par Kael, les informations ramenées par Luhai, puis la petite plaque d'assemblage qu'elle tenait.
+« Alors ? »
 
-« Il y a des choses utilisables. Le problème, c'est que tout manque. »
+Han Jiwoo ne répondit pas tout de suite. Elle baissa d'abord les yeux, tour à tour, sur les morceaux de métal déposés par Kael, les bribes d'information ramenées par Luhai, et la petite plaque d'accouplement qu'elle tenait à la main ; alors seulement, elle parla.
 
-Étrangement, Sion reçut cela comme un soulagement.
+« Il y a de quoi faire. »
+Elle poursuivit :
+« Le problème, c'est que tout manque. »
 
-Manquer, ce n'était pas finir. Cela voulait aussi dire que la voie n'était pas entièrement fausse.
+« Qu'est-ce qui manque le plus ? »
 
-Aka sortit un peu plus tard.
+Han Jiwoo replia ses doigts un par un.
 
-Son visage était plus silencieux que le jour. Sion savait maintenant que ce silence n'était pas une absence de réaction, mais l'état de quelqu'un qui continuait d'entendre trop de choses.
+« Un cadre de réception de plus. Ça, avec ce que Kael a acheté, on s'en sortira. L'enveloppe, même ce qu'on a là, ça tiendra. Le problème, ce sont les surfaces d'accouplement. Il n'y en a pas une seule dont le grain corresponde vraiment. »
 
-Aka regarda les objets dans leurs mains, écouta l'information venue de l'autre côté du canal, puis dit seulement:
+« Et ça, on le trouve où ? »
 
-« À l'aube, il y a beaucoup de faux. »
+« Pas ici. »
+Han Jiwoo continua :
+« Tout ce qu'il y a ici, ce sont des objets de Hazran. Et les objets de Hazran, ce sont des choses qui se sont brisées à Hazran. Ce vaisseau-là ne s'est pas brisé ici. »
 
-Luhai demanda aussitôt:
+Sion retint un instant ces mots.
 
-« Et le vrai? »
+« Alors on peut pas le réparer ? »
 
-Aka réfléchit un instant.
+« C'est pas qu'on peut pas. »
+Han Jiwoo le dit en retournant la plaque d'accouplement.
+« On le fait tenir longtemps avec des pièces qui vont moins bien. C'est toujours comme ça, de toute façon. »
 
-« Celui qui ne brille pas d'abord. »
+Étrangement, ces mots sonnèrent pour Sion comme un soulagement.
 
-Luhai rit.
+Ça manquait. Mais cela voulait dire aussi que ce n'était pas encore fini. Et aussi que ce n'était pas un chemin entièrement faux.
 
-« Même ici, il faut se méfier de ce qui est joli. »
+Aka sortit elle aussi, un peu plus tard.
 
-Han Jiwoo marmonna:
+Son visage était plus silencieux que le jour. Mais Sion le savait désormais : ce silence n'était pas une absence de réaction, c'était l'état de quelqu'un qui continuait d'entendre beaucoup trop de choses.
 
-« C'est toujours comme ça. »
+Aka regarda une fois ce que chacun tenait à la main, écouta même l'information sur l'autre côté du canal que Luhai avait rapportée, puis dit brièvement :
 
-Seorin, qui les écoutait, regarda soudain vers le bout du marché.
+« À l'aube, il y a beaucoup de faux aussi. »
 
-Là-bas, il faisait plus sombre qu'avant. Ce n'était pourtant pas un quartier mort. De petites lumières, invisibles le jour, s'allumaient par endroits: le secteur du stade en réparation, la ligne de retour où Haroun devait encore travailler, les patrouilles des gens de Zahir qui passaient lentement sur le pourtour.
+Luhai demanda aussitôt :
 
-Hazran ne dormait pas. Elle tenait autrement pendant la nuit.
+« Et le vrai, alors ? »
 
-Ater observa ce paysage et dit doucement:
+Aka réfléchit un instant, puis dit :
 
-« Cette nuit risque d'être longue. »
+« Celui qui ne brille pas en premier. »
 
-Sern répondit court:
+À ces mots, Luhai rit.
 
-« Ce sont aussi celles qui finissent le plus vite. »
+« Même ici, finalement, faut se méfier de ce qui est joli. »
 
-Sion leva à peine les yeux.
+Han Jiwoo marmonna à voix basse :
 
-Rien ne les frappait encore. Pourtant il ne pouvait pas se détendre. Ce n'était pas exactement de la peur. Plutôt la sensation qu'une nuit trop belle resterait trop longtemps en mémoire.
+« Ça a toujours été comme ça. »
 
-Les belles nuits durent rarement.
+Kael était assis un peu à l'écart, les morceaux d'enveloppe achetés aujourd'hui posés sur les genoux. Il les laissait simplement là, et de temps en temps les pressait une fois du plat de la main.
 
-La pensée passa, et il ne la dit pas.
+Seorin, qui passait à côté, ralentit le pas.
 
-Luhai faisait tourner une brochette de fruits secs trouvée on ne savait où. Kael étalait de nouveau les plaques achetées et calculait ce qu'il fallait utiliser d'abord. Han Jiwoo s'était assise par terre et touchait sans cesse le bord de la plaque d'assemblage. Aka restait un peu à l'écart de tous.
+« C'est ce que t'as acheté aujourd'hui ? »
 
-Seorin hésita, puis fit un pas vers elle.
+« Oui. »
 
-Sion la suivit des yeux malgré lui.
+« T'as payé combien ? »
 
-Seorin arriva près d'Aka et ne parla pas tout de suite. Elle regarda simplement dehors avec elle, puis dit très bas:
+Kael donna le prix. Seorin hocha brièvement la tête. Elle ne lui dit ni qu'il aurait dû marchander, ni qu'il avait fait une bonne affaire.
 
-« Tu n'as pas non plus le visage de quelqu'un qui restera ici. »
+Puis, un temps plus tard, elle demanda. Sa voix était exactement la même qu'avant.
 
-Aka ne répondit pas aussitôt.
+« Kael d'où, tu t'en souviens toujours pas ? »
 
-Le silence ne fut ni long ni court.
+L'air s'immobilisa un très bref instant.
 
-« Pas encore. Mais je sais que si je pars, quelque chose disparaît. »
+Sion ne comprit pas tout de suite d'où venait cette question. Il savait seulement que Seorin demandait la même chose pour la deuxième fois. La première, c'était à bord du vaisseau, et Seorin avait déjà cette voix-là.
 
-Seorin ne trouva pas immédiatement de réplique.
+Kael ne retira pas les mains de la plaque de métal posée sur ses genoux.
 
-Ce qui disparaît quand on part. Cela pouvait être un lieu, une personne, ou cette nuit même.
+« Ce dont on se souvient pas, on s'en souvient pas plus en le demandant deux fois. »
 
-De loin, Sion comprit soudain pourquoi Hazran s'était inscrite si vite en lui.
+« Ça, c'est vrai. »
 
-Cette ville se tenait sur des choses faciles à perdre. Alors ce qui se trouvait un instant dans la main, la personne qui se tenait un instant à côté de soi, la lumière revenue pour un instant prenaient plus de poids.
+Seorin passa son chemin, comme quelqu'un qui n'avait jamais eu l'intention d'obtenir une réponse.
 
-Seorin finit par dire:
+Sern avait écouté en silence ce bref aller-retour, et prit l'air de compter quelque chose, tout bas. Il n'en dit rien à personne.
 
-« Alors regarde bien pendant que c'est là. »
+Seul Sion savait que quelque chose était passé entre ces deux-là, et il ne savait toujours pas quoi.
 
-Sans lever la tête, Aka répondit:
+Seorin laissa derrière elle la conversation des trois autres et regarda soudain vers le bout du marché.
+
+Là-bas, il faisait plus sombre qu'avant. Mais ce n'était pas un secteur tout à fait mort. Au contraire, de petites lumières, invisibles le jour, vivaient çà et là : du côté du terrain en remise en état, le secteur de la ligne de retour où Haroun devait encore travailler, et les abords où passaient lentement les patrouilles des gens de Zahir.
+
+Hazran ne semblait pas un endroit qui dort, mais un endroit qui, même la nuit, tenait d'une autre manière.
+
+Ater regarda ce paysage et dit doucement :
+
+« Cette nuit sera longue, il me semble. »
+
+Sern répondit brièvement :
+
+« Ce sont aussi ces nuits-là qui finissent le plus vite. »
+
+En entendant cela, Sion leva les yeux, très imperceptiblement.
+
+C'était étrange. Aucun danger ne les menaçait encore dans l'immédiat. Et pourtant, il n'était pas tout à fait rassuré.
+
+Ce n'était pas vraiment de la peur ; c'était plus proche de la sensation que cette nuit, parce qu'elle était belle, resterait plus longtemps en mémoire.
+
+Les belles nuits ne durent généralement pas.
+
+Cette pensée lui traversa l'esprit, mais Sion ne prit pas la peine de la dire à voix haute.
+
+Luhai faisait déjà tourner une brochette de fruits secs ramassée on ne savait où, et Kael étalait de nouveau les morceaux posés sur ses genoux pour calculer ce qu'il fallait employer d'abord et ce qu'il fallait remettre à plus tard. Han Jiwoo s'était carrément assise par terre et ne cessait de toucher du bout des doigts le bord de la plaque d'accouplement, et Aka se tenait un peu à l'écart, en dehors de tous ces gens.
+
+Le vent passa une fois, bas, et balaya le sable posé sur le pan des tentes. Une fine poudre recouvrit le dessus de leurs pieds, puis s'écoula aussitôt. À Hazran, même en restant immobile, on se faisait recouvrir plusieurs fois par jour.
+
+Après avoir fini sa brochette, Luhai demanda soudain :
+
+« Quand il décolle, il va où ? »
+
+Han Jiwoo répondit sans quitter la plaque d'accouplement des yeux :
+
+« Sais pas. D'abord, il faut qu'il décolle. »
+
+« Alors on décide après le décollage ? »
+
+« Si on peut décider après avoir décollé, c'est ce qu'il y a de mieux. »
+Han Jiwoo ajouta :
+« Il y a bien plus de vaisseaux qui décollent sans avoir pu décider. »
+
+Luhai rumina longtemps cette réponse.
+
+« Combien de personnes à bord ? »
+
+Cette fois, personne ne répondit tout de suite.
+
+Han Jiwoo arrêta ses mains, Sion compta les nombres qu'il était capable de compter, et Seorin écoutait seulement, sans détourner les yeux d'Aka.
+
+« Ça, c'est le vaisseau qui le décide. »
+Ce fut finalement Han Jiwoo qui répondit.
+« Pas moi. »
+
+« C'est vrai. »
+
+Luhai rit après cela. Il rit, mais avec un demi-temps de retard sur d'habitude.
+
+Et il ne demanda plus rien. C'était un moment où une question aurait obtenu une réponse, et pourtant il ne demanda pas. Un enfant qui connaît les prix sait aussi d'avance ce qu'il perdra à demander.
+
+Sion le vit, et ne laissa pas voir qu'il l'avait vu.
+
+Seorin hésita un instant, puis fit un pas vers Aka.
+
+Sion le vit et, sans raison, ne put en détacher les yeux.
+
+Même arrivée à côté d'Aka, Seorin resta longtemps sans parler.
+
+Elle regarda simplement dehors avec elle un moment, puis dit très bas :
+
+« Toi non plus, t'as pas la tête de quelqu'un qui va rester ici. »
+
+Aka ne répondit pas tout de suite.
+
+Ce silence n'était pas trop long, mais il n'était pas court non plus.
+
+« Pas encore. »
+Elle poursuivit :
+« Mais je sais que si je pars, ça disparaît. »
+
+Étrangement, Seorin ne trouva pas tout de suite quoi répondre.
+
+Ce qui disparaît quand on part. Cela pouvait être un lieu, ou une personne, ou cette nuit qui leur collait encore à la peau.
+
+En l'entendant de loin, Sion crut soudain comprendre pourquoi Hazran lui restait si vite au cœur.
+
+Cet endroit se tenait depuis toujours sur des choses faciles à perdre. Alors ce qui tombait un instant dans la main, les gens qui se trouvaient un instant à côté de soi, la lumière qui revivait un instant, tout cela paraissait plus grand.
+
+Seorin finit par dire, très brièvement :
+
+« Alors, tant que t'es là, regarde bien. »
+
+Aka répondit sans lever la tête :
 
 « Toi aussi. »
 
-Ces deux mots restèrent nets.
+Ces deux mots restèrent étrangement nets.
 
-Sion détourna les yeux.
+Sion détourna le regard.
 
-Devant lui, il y avait un vaisseau pas encore vivant. À côté, des gens avec qui il partirait. Et la nuit de Hazran, qu'il n'avait pas fini de voir.
+Devant lui, il y avait un vaisseau qui n'était pas encore tout à fait revenu à la vie,
+à côté de lui, les gens avec qui il partirait,
+et la nuit de Hazran, qu'il n'avait pas encore fini de voir.
 
-Cette nuit-là, vraiment, il semblait possible de rester un peu plus.
+Le cordon à son poignet se resserra un peu. C'était là que Seorin l'avait tiré un coup de plus, tout à l'heure.
 
-C'est pour cela qu'elle donnait l'impression de ne pas devoir finir facilement.
+Cette nuit-là au moins, il semblait vraiment possible de rester un peu plus.
+
+Et c'est pour cela, justement, qu'elle avait l'air d'une nuit qui ne finirait pas facilement.
 
 ---
 

@@ -1,138 +1,258 @@
 # Chapitre 92 — Le poids laissé à ceux qui restèrent
 
-Lorsque Zahir donna l'ordre de préparer le deuxième groupe, la première chose qui trembla à l'intérieur de Hazran ne fut pas le sol, mais les visages.
+La première file était vraiment montée.
 
-Le premier groupe était vraiment monté. Ce qui signifiait que les personnes restantes n'attendaient plus simplement. Elles se divisaient désormais plus nettement entre celles qui attendaient leur tour et celles qui devaient rester et gagner du temps jusqu'à ce que ce tour vienne.
+Une fois ces mots prononcés, l'air du dedans changea d'un cran.
 
-Sion avait l'impression que respirer cet air suffisait à l'étouffer.
+Rien qu'à respirer cet air, Sion sentait sa gorge se serrer.
 
-Les gens ne portaient plus le visage de *survivons ensemble*. Certains surveillaient ceux qui étaient déjà partis. Certains calculaient leur place dans la file qui n'était pas encore partie. Certains savaient déjà qu'ils resteraient jusqu'au bout.
+Les gens n'avaient plus le visage de ceux qui veulent simplement vivre ensemble. Certains regardaient ceux qui étaient déjà partis, certains calculaient la place qu'ils n'avaient pas encore eue, et certains savaient déjà qu'ils resteraient jusqu'au bout.
 
-Tout cela, dans le même espace, serrés contre la coque, respirant le même air — c'était étrangement cruel.
+Que tout cela respire ensemble dans le même espace, pressé contre la coque, avait quelque chose d'étrangement cruel.
 
-Nassim, la voix presque éteinte, construisait toujours la ligne du deuxième groupe.
+Sion passa entre eux en comptant la deuxième file.
 
-« Les civières d'abord ! »
+Dix-huit. Vingt. Vingt, c'est bon.
 
-« Si vous pouvez marcher, prenez du retard ! »
+Compter, c'était désormais son travail. Celui qui n'avait plus de voix ne pouvait pas aligner une file, et celui qui traçait les traits devait rester derrière à ne regarder que le tableau. Alors celui qui marchait entre les gens pour les compter, en ce moment, c'était Sion.
 
-« Vous n'êtes pas obligé d'arrêter de pleurer, mais ne lâchez pas vos mains ! »
+En comptant, il comprit. Celui qui compte finit par voir tous les visages.
 
-Il n'apaisait plus personne. Dès qu'on apaise, les choses ralentissent. Dès que les choses ralentissent, le temps de quelqu'un meurt. Il alignait donc les gens avec des mots rudes, presque comme s'il posait des bandages sur des plaies.
+Cette fois, Luhai ne restait pas près des enfants mais auprès de deux blessés.
 
-Luhai, cette fois à la place des enfants, resta à côté de deux blessés.
+L'un d'eux ne cessait de murmurer qu'il était désolé. L'autre avait perdu tant de sang que ses yeux étaient à moitié vitreux.
 
-L'un d'eux n'arrêtait pas de murmurer *désolé*. L'autre avait perdu trop de sang — les yeux à moitié vitreux.
+Le visage blême, Luhai parla pourtant d'une voix étrangement ferme.
 
-Le visage de Luhai était blanc, mais sa voix étrangement ferme.
+« Dis pas pardon. »
+Il continua.
+« Maintenant, c'est ceux qui montent qui gagnent. »
 
-« Ne dites pas désolé, » dit-il. « En ce moment, ceux qui se lèvent sont ceux qui gagnent. »
+On aurait dit les mots d'un enfant devenu adulte beaucoup trop tôt, et Sion eut un instant un pincement dans la poitrine.
 
-Ces mots sonnaient comme ceux d'un enfant qui avait grandi trop vite pour son âge. Sion sentit une brève douleur dans la poitrine.
+« Tu as appris ça où ? »
+C'était Sion qui demandait.
 
-Seorin menait le deuxième groupe, organisant directement les mains.
+Tout en rajustant sa prise sur le bras du blessé, Luhai répondit :
 
-Elle faisait avancer les plus lents, envoyait ceux qui pouvaient marcher vers l'arrière, inclinait les civières pour qu'elles correspondent à la rampe de la coque. Les mouvements étaient si précis qu'on l'aurait crue rompue à cet exercice toute sa vie.
+« J'ai pas appris. »
 
-Mais Sion le savait. Ce n'était pas de la familiarité. Elle agrippait le côté qui ne devait pas s'effondrer si fort que cela n'en avait que l'apparence.
+« Alors ? »
 
-Debout à côté d'elle, reliant la ligne, Sion aperçut brièvement sa main tremblante.
+« Moi, j'aurais voulu qu'on me le dise. »
 
-Mais Seorin ne dit rien. Et probablement seul Sion l'avait vu.
+Sion ne demanda rien de plus.
 
-Le côté de Haroun empirait.
+Combien de fois cet enfant avait-il dit pardon dans les ruelles de Hazran, et chaque fois personne ne lui avait-il dit ces mots-là ? Il avait l'impression qu'en demandant, il le saurait ; alors il ne demanda pas.
 
-Après le début du premier départ, la pression du côté des androïdes devint plus franche. Ils le savaient aussi maintenant. Poussez ici plus fort et vous pourrez secouer la file humaine et la coque ensemble.
+Seorin, en tête de la deuxième file, disposait elle-même les mains des gens.
 
-Ater parla bas.
+Elle tirait les lents vers l'avant, renvoyait derrière ceux qui pouvaient marcher, alignait l'angle des civières sur la rampe. Ses gestes étaient si précis qu'on l'aurait crue faite pour ce travail depuis le début.
 
-« Cette fois, pas de sondage. »
+Mais Sion savait. Ce n'était pas l'habitude ; elle se cramponnait si fort à l'idée de ne pas s'effondrer maintenant que c'était ainsi que cela paraissait.
 
-Sern prit aussitôt le relais.
+Tout en prolongeant la file à côté d'elle, Sion regarda le dos de sa main.
 
-« Exactement. Ils comptent percer. »
+Elle tremblait.
 
-Haroun fit un bref signe de tête.
+Ce n'était pas un grand tremblement. Les doigts de la main droite se replièrent un très bref instant, puis se tendirent ; la ligne de sa mâchoire se raidit à peine, puis se relâcha.
 
-Pas un visage surpris. Non — plutôt le visage de quelqu'un qui n'avait plus la place d'être surpris.
+Sion connaissait ce geste.
 
-Il tira les deux hommes à côté de lui plus en arrière et poussa seulement lui et Sern plus en avant. Ater resta un demi-temps derrière, continuant à lire les angles.
+Le jour où ils étaient entrés pour la première fois à l'intérieur, quand Seorin avait pris un demi-pas de retard dans le couloir, elle avait fait exactement la même chose. Sion avait fait semblant de ne pas voir. Il pensait que c'était juste. À ce genre de moment, pour Seorin, faire semblant de ne pas voir valait mieux qu'un réconfort.
 
-Sion le regarda et ne parvint plus à respirer.
+Aujourd'hui encore, c'étaient les mêmes doigts.
 
-Ce n'était plus de la défense. Cela tenait davantage du blocage temporel à même le corps.
+La seule différence, c'était que la première fois cela n'était arrivé qu'une fois, en marchant, et que maintenant elle tenait le bras de quelqu'un.
 
-« Combien de minutes, » demanda Haroun sans se retourner.
+Cette fois encore, Sion ne dit rien.
 
-La réponse de Sion vint tardivement, malgré lui.
+À la place, il saisit l'autre poignée de la civière qu'elle tenait. Le poids se partagea en deux.
 
-Parce qu'il ne voulait pas penser en minutes. Cela reviendrait à convertir en un nombre précis le temps que ces gens devaient encore attendre pour obtenir une ligne de vie supplémentaire.
+Seorin le vit et ne dit rien non plus. Ni merci, ni laisse.
 
-Il répondit quand même.
+Elle continua simplement à porter.
 
-« Le deuxième groupe a encore besoin d'un certain temps pour s'attacher. »
+Sion savait aussi que c'était le maximum dont elle était capable.
 
-Haroun dit, bref.
+« Il en reste combien ? »
+C'était Seorin qui demandait.
 
-« Alors je reste debout aussi longtemps. »
+« Cent quatre-vingt-huit. »
 
-Cette seule ligne était étrangement plus cruelle.
+« Pas ça. »
 
-Personne n'avait d'espace pour être ému, et cela se révéla être la chose la plus évidente au monde.
+Sion marqua un temps.
 
-Jiwoo vérifiait l'angle d'embarquement du deuxième groupe depuis l'entrée de la coque.
+« …Dix fois. »
 
-Comment les tremblements du vaisseau avaient changé lorsque le premier groupe était monté à bord. Jusqu'où l'accouplement avait tenu. Quel côté serait le plus dangereux lorsque la prochaine civière entrerait.
+« Ça, c'est le vaisseau. »
 
-Aka, les yeux fermés à côté d'elle, parla à voix basse.
+Seorin regardait toujours devant elle.
 
-« Cette fois, le côté gauche est plus lourd. »
+« Ici, il en reste combien ? »
 
-Jiwoo tourna aussitôt la tête.
+Sion ne sut pas répondre à cette question.
 
-« Et alors ? »
+Tout ce qu'il avait compté jusque-là, c'étaient les nombres du côté des départs. Cent quatre-vingt-huit, dix fois, vingt, sept. Rien que des nombres qui sortent. Les nombres qui restent, personne ne les avait comptés.
 
-« La civière en premier, pas à gauche, au centre, » dit Aka. « Tourner une fois, puis charger. »
+« Je les ai pas comptés. »
 
-Jiwoo cria à l'instant où ces mots tombèrent.
+« Compte-les. »
 
-« Deuxième civière de groupe, tournez-vous vers le centre ! »
+« Pourquoi ? »
 
-En regardant cela, Sion sentit qu'Aka intervenait désormais directement dans le processus d'envoi des gens. Elle ne se contentait plus d'écouter les braises, les coques et les sites refroidis — elle écoutait comment ce vaisseau avait besoin de recevoir qui, en cet instant, pour continuer à tenir.
+« Si tu ne comptes que ceux qui partent, ceux qui restent ont l'air d'une soustraction. »
 
-Cela signifiait qu'Aka devenait de plus en plus profondément liée à ce vaisseau, à ce chemin, à tout ce départ.
+À ces mots, Sion sentit son dos se glacer.
 
-Et cela frappa Sion d'une manière étrangement lourde.
+C'était vrai. Jusqu'ici, il avait soustrait les gens de deux cent huit. Ce qui restait après la soustraction n'était qu'un reste. Mais ce reste-là aussi, c'étaient des gens.
 
-Aka écoute le chemin. Jiwoo maintient le vaisseau en vie. Haroun bloque le temps. Zahir fixe l'ordre. Nassim, Seorin et Luhai poussent les gens. Lui et Kael comblent les lacunes.
+Ce jour-là, pour la première fois, Sion compta l'autre côté.
 
-Chacun faisait sa part. Mais cela rendait les choses plus claires.
+Neuf mains auprès de Haroun. Six pour déplacer les barricades. Quatre restés à côté de Nassim. Trois mains pour porter l'eau et les tissus. Et quelques-uns qui ne s'étaient rattachés à rien mais se tenaient là, décidés à ne pas partir.
 
-Parmi eux, il était fort probable que quelqu'un reste jusqu'au bout.
+Il n'arriva pas à compter exactement. Ils bougeaient sans cesse.
 
-La première civière du deuxième groupe se mit en mouvement.
+Sion sut seulement qu'ils étaient vingt et quelques.
 
-Sous la rampe de la coque, au-delà du sol où se mélangeaient sable, sang et poussière métallique, les gens montaient à nouveau une marche à la fois.
+Pendant que le vaisseau reviendrait encore dix fois, ces vingt et quelques devraient rester ici. Et personne n'avait calculé si, quand le dernier vaisseau décollerait, il y aurait de la place pour eux tous.
 
-À ce moment-là, depuis le couloir extérieur droit, un son métallique retentit — plus grave et plus lourd qu'auparavant.
+« Je les ai comptés. »
+Sion l'avait annoncé.
 
-L'expression de Sern se durcit immédiatement.
+« Combien ? »
 
-« Quelque chose d'important arrive. »
+« Vingt et quelques. »
 
-Ater regarda dans la même direction et dit très brièvement.
+En entendant cette réponse, Seorin hocha très brièvement la tête.
 
-« Oui. Ce n'est pas la ligne suivante. »
+« Alors c'est bon. »
 
-Haroun entendit cela et ne tourna pas la tête.
+« Comment ça, c'est bon ? »
 
-Mais Sion le savait.
+« Maintenant, toi aussi, tu comptes. »
 
-Le poids qui pesait sur les épaules des personnes restantes était sur le point de changer une fois de plus.
+Ce n'est que plus tard que Sion comprit ce que cela voulait dire. Elle comptait ce nombre toute seule depuis tout à l'heure. Quand on compte seul, les mains tremblent.
 
-Dès le premier départ, rester sur place ne fut jamais une simple attente.
+Du côté de Haroun, cela empirait.
 
-Il s'agissait en fait d'assumer la part de ceux qui étaient partis.
+Depuis le début du premier départ, la pression d'en face était devenue plus franche. Cela voulait dire qu'ils savaient maintenant qu'en poussant davantage ici, ils pouvaient ébranler à la fois la file des gens et la coque.
+
+Haroun fit reculer encore ses deux voisins et s'avança seul un peu plus.
+
+Sion alla vers lui.
+
+« Combien de minutes ? »
+Haroun avait demandé sans même se retourner.
+
+Sans le vouloir, Sion tarda à répondre.
+
+Parce qu'il ne voulait pas penser en minutes. Cela revenait à traduire exactement en chiffres combien de temps cet homme devait encore tenir pour qu'une file de plus survive.
+
+Il répondit pourtant.
+
+« Le vaisseau en a encore pour un moment avant de revenir. »
+
+« Alors je tiens autant. »
+
+Ces simples mots étaient étrangement plus cruels encore. Personne n'avait le loisir d'en être ému, et ils sortaient comme une évidence.
+
+Sion fit deux pas, puis se retourna.
+
+« Vingt et quelques. »
+
+Pour la première fois, Haroun tourna la tête.
+
+« Quoi ? »
+
+« Ceux qui restent ici. Au dernier vaisseau, il faudra en faire monter vingt et quelques. »
+
+Haroun l'écouta et ne répondit rien.
+
+Puis il regarda de nouveau devant lui.
+
+C'était la troisième fois aujourd'hui que Sion entendait ce silence. Une fois quand il avait demandé s'il y avait onze barricades, une fois quand il avait demandé s'ils pourraient faire monter tout le monde en onze fois, et maintenant.
+
+Les trois étaient le même genre de silence.
+
+Le vaisseau revint.
+
+En arrivant, il fit plus de bruit qu'en partant. Sion ne comprit pas ce que cela voulait dire et regarda Luhai.
+
+« Parce qu'il est vide. »
+C'était Luhai.
+« Quand il y a des gens dedans, le bruit est étouffé. »
+
+Un vaisseau vide fait plus de bruit. De tout ce qu'il avait appris à Hazran, cela semblait le plus inutile, et pourtant le plus exact.
+
+Et ce bruit, ceux qui restaient l'entendirent aussi.
+
+Sion vit plusieurs personnes, au fond de la file, lever la tête en même temps. Ce seul bruit, venu d'un endroit qu'on ne voyait pas, leur apprenait que le vaisseau était revenu vivant. Le jour où ce bruit ne viendrait pas, c'est par là aussi qu'ils l'apprendraient.
+
+Luhai courut jusqu'à la rampe et revint aussitôt.
+
+« Vingt, il paraît. »
+
+À ces mots, Sion relâcha son souffle.
+
+« Elle a réparé ? »
+
+« Elle a réparé, il paraît. »
+
+« Comment ? »
+
+« Sais pas. Elle a les deux mains écorchées. »
+
+Sion l'entendit et ne dit rien.
+
+À côté, Seorin demanda brièvement :
+
+« Pas dix-huit ? »
+
+« Vingt. »
+
+« Alors ça reste dix fois. »
+
+« Oui. »
+
+À ces mots, pour la première fois, Seorin expira, très brièvement. Moins du soulagement que le souffle de quelqu'un qui vient de vérifier qu'un calcul ne s'est pas alourdi.
+
+La deuxième file commença à monter.
+
+Sept. Stop. Sept. Stop. Six.
+
+Cette fois, Sion ne compta pas ; il regarda. Compter, il l'avait déjà fait. À présent, il regardait les visages.
+
+Parmi les vingt qui montaient, il y avait celui qui disait pardon tout à l'heure. Luhai l'avait tenu par le bras jusqu'à la rampe, et en montant, l'homme essaya encore de dire quelque chose.
+
+Luhai le coupa le premier.
+
+« Je t'ai dit de pas le faire. »
+
+L'homme sourit. Ce sourire faisait plus mal à voir que des larmes, mais il sourit quand même.
+
+La rampe se replia.
+
+Le vaisseau décolla, s'éloigna en glissant à la même hauteur que tout à l'heure et entra dans l'ombre de l'ouest.
+
+Sion regarda le tableau. Le trait qui était seul tout à l'heure était devenu deux.
+
+Cent quatre-vingt-huit moins vingt. Cent soixante-huit.
+
+Neuf fois.
+
+Sion ne prononça pas ce nombre. À la place, il recompta le nombre de l'autre côté, celui qu'il avait compté tout à l'heure.
+
+Vingt et quelques.
+
+Pendant neuf fois, ces vingt et quelques devaient rester ici. Et s'il y aurait de la place pour eux quand le neuvième vaisseau décollerait, personne, aujourd'hui, n'y avait répondu.
+
+Sion se demanda un instant s'il devait reparler de ce calcul à Seorin.
+
+Il ne le fit pas.
+
+Elle le savait déjà, elle retenait déjà, en le sachant, le tremblement de ses mains, et lui en parler maintenant n'aurait fait qu'ajouter une chose de plus à retenir.
 
 ---
 

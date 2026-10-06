@@ -1,194 +1,271 @@
 # Chapitre 25 — Le visage au-delà du coin
 
-La distance qui les séparait du prochain angle n'était pas grande.
+La distance qui les séparait de l'angle suivant n'était pas longue.
 
-C'était précisément le problème. À cette portée-là, une seule erreur suffisait — qu'on soit du côté de la traque ou de la fuite. Et ce qu'ils arpentaient n'était pas un couloir ordinaire : c'était une zone de jonction à peine maintenue entre d'anciens raccords extérieurs tranchés et une structure de jugement à demi effondrée. Un mauvais pas, et en bas ce n'était plus un chemin — c'était l'espace. Un geste de trop, et la réaction résiduelle encore présente dans les plaques mourrait avec eux.
+Le problème, c'était justement qu'elle soit courte. À cette distance, poursuivant comme poursuivi, une seule erreur et tout était fini. D'autant que ce qu'ils foulaient n'était pas un couloir intact, mais une zone frontière où d'anciens raccords extérieurs, tranchés depuis longtemps, tenaient à peine à une structure de discrimination à demi effondrée. Un pied mal posé, et en dessous ce n'était plus un chemin mais l'espace ; une main tendue de travers, et la réaction du discriminateur qui subsistait encore pouvait mourir avec.
 
-Sern dit à voix très basse :
+Sern dit très bas :
 
-« Maintenez la cadence. Trop vite, on le perd. Trop lent, aussi. »
+« Gardez l'allure. Trop vite, on le perd ; trop lentement, on le perd aussi. »
 
-Sion ne répondit pas. Il regardait devant lui.
-
-Le reflet fugace de la plaque quelques instants plus tôt était encore dans ses yeux. Ce n'était pas du matériel. Pas un éclat de métal frappé par hasard. Quelqu'un, dans cette obscurité intérieure, tenait en ce moment même le fragment le plus grand — et cherchait sa prochaine position d'arrêt.
+Sion, au lieu de répondre, regardait seulement devant lui.
 
 Ater dit à voix basse :
 
-« Le coin suivant est étroit. L'autre ne pourra pas y rester longtemps. »
+« Derrière l'angle suivant, c'est étroit. Lui non plus ne pourra pas y rester longtemps. »
 
-Par le canal fermé de proximité, Seorin répondit aussitôt :
+Par le canal de proximité, Seorin enchaîna aussitôt :
 
-« Bien. Alors ni où se cacher, ni où fuir — c'est court des deux côtés. »
+« Alors il a peu de place pour se cacher, et peu pour fuir. »
 
-« Exactement. »
-Sion dit brièvement.
-« C'est pour ça que c'est le moment le plus proche. »
+« Exact. »
+Sion poursuivit.
+« C'est pour ça que c'est maintenant qu'on est le plus près. »
 
-Par le canal, la voix de Han Jiwoo effleura la ligne, brève.
+Par la ligne de communication, la voix de Han Jiwoo passa de nouveau.
 
-« La réaction de la structure remonte encore. Traîner serait mauvais. »
+« La réaction de la structure remonte encore un coup. Faut pas que ça traîne. »
 
-Ce n'était pas une simple relance. Plus ils laissaient passer le temps ici, plus ils perdaient sur deux fronts. La main déjà passée s'éloignait, et la dernière réaction résiduelle de cette structure mourait avec elle. Alors la petite plaque dans leur poche resterait bien une pièce à conviction — mais le site auquel elle était censée se relier, lui, se fermerait.
+Devant l'angle, les trois ralentirent en même temps.
 
-Sion dit très bas :
+Sion leva la main le premier pour signaler l'arrêt. Sern s'immobilisa juste derrière lui, et Ater fit glisser son regard le long de la ligne de dégradation de la paroi. Restée du côté de la coque, Seorin aussi retenait son souffle, attendant la réaction suivante.
 
-« Raison de plus pour le saisir maintenant. »
+Le souffle, au-delà de l'angle, était toujours là. Pas rauque, mais pas tout à fait stable non plus. Moins la respiration de quelqu'un qui aurait fui longtemps que celle de quelqu'un qui, portant une chose lourde, avait tenu sans relâche avant de s'arrêter un instant.
 
-Ce n'était pas de l'impatience. C'était une conclusion. Et c'est pour cela que tous les cinq avaient fait le chemin jusqu'ici en personne. Sion pouvait lire les traces avant qu'elles ne s'effacent. Ater pouvait convertir en structure la logique de jugement qui restait. Sern tenait l'ordre et le temps entre les deux. Seorin pouvait trancher au moment où quelqu'un pousserait trop fort. Et Han Jiwoo maintenait la coque — ce vaisseau auquel tous devaient pouvoir revenir. Ce n'était pas le genre de travail à déléguer, ni à remettre à plus tard. Lire maintenant, coller maintenant — ou laisser passer. C'était la seule règle de cette scène.
-
-Les trois ralentirent ensemble devant le coin.
-
-Sion leva la main en premier pour signaler l'arrêt. Sern stoppa net derrière lui, et Ater déplaça son regard le long de la ligne d'endommagement de la paroi. Du côté de la coque, Seorin retenait son souffle par le canal, attendant la prochaine réaction.
-
-Un très court silence.
-
-Puis, de l'autre côté du coin, un souffle passa.
-
-Un souffle humain, vivant. Pas rauque — mais pas tout à fait stable non plus. Pas la respiration de quelqu'un qui aurait couru longtemps, plutôt celle de quelqu'un qui avait tenu bon en portant quelque chose de lourd, et venait juste de s'arrêter.
-
-Sion dit presque en chuchotant :
+Sion dit, presque dans un chuchotement :
 
 « Il est là. »
 
-Cette fois, pas de réponse — au lieu de cela, de l'autre côté du coin, une voix très basse tomba la première.
+Cette fois, au lieu d'une réponse, ce fut une voix très basse qui tomba la première, de l'autre côté de l'angle.
 
-« Si vous avancez encore, je serai obligé de couper aussi. »
+« Si vous avancez encore, je serai obligé de couper, moi aussi. »
 
-Les regards des trois se figèrent en même temps, et même le souffle, par le canal, s'interrompit un instant.
+Les trois regards se figèrent en même temps.
 
-La voix était basse, plus jeune qu'attendu. Mais pas une voix faible. Pas une mise en garde lancée par peur — la voix de quelqu'un qui avait calculé la ligne à trancher, et la prononçait. La voix de quelqu'un qui savait lire cette structure.
+La voix était basse, et plus jeune qu'ils ne l'auraient cru. Mais ce n'était pas une voix sans force. Pas un avertissement lâché sous l'effet de la peur : la voix de quelqu'un qui a calculé la ligne qu'il faudra vraiment trancher, avant de parler.
 
 Sion répondit :
 
 « Avec ce fragment, tu n'iras pas loin. »
 
-Un bref silence s'écoula.
+Et la voix, au-delà de l'angle, revint.
 
-Puis la voix, de l'autre côté du coin, revint.
+« Je sais. »
 
-« Je le sais. »
+Ces deux mots changèrent l'air.
 
-Ce seul mot changea l'air.
-
-Celui qui fuyait connaissait sa propre situation. Que le fragment le plus grand était instable. Qu'il ne pouvait pas sortir en sécurité avant d'avoir passé le prochain discriminateur. Que ceux qui le poursuivaient n'étaient pas de simples pisteurs — tout cela, il le savait déjà.
+Celui qui fuyait n'ignorait rien de sa propre situation. Cela voulait dire qu'il savait tout : que le plus grand fragment était instable, qu'il ne pourrait pas s'en sortir sans risque avant d'avoir passé le discriminateur suivant, et que ceux qui l'avaient suivi jusqu'ici n'étaient pas de simples pisteurs.
 
 Ater demanda très bas :
 
-« Qui êtes-vous. »
+« Qui êtes-vous ? »
 
-Cette fois la réponse ne vint pas tout de suite.
+Cette fois, la réponse ne vint pas tout de suite.
 
-À la place, sous l'ombre du bord du coin, une main descendit un bref instant, puis disparut. Une main gantée. Sur le dos, des éraflures anciennes superposées — et sur le bord de la plaque qu'elle tenait, une ligne de motif filait, fugace. Ni le gabarit de l'équipement des agents impériaux, ni la facture des outils d'opération de terrain de l'Alliance. Une main qui avait tâtonné longuement, seule, les vieux chemins à la force du poignet.
+À la place, sous l'ombre au bord de l'angle, une main descendit un très court instant, puis disparut. Une main gantée. Sur le dos, de vieilles éraflures se superposaient, et sur le bord de la plaque qu'elle tenait en dessous, une ligne de motif passa, à peine visible. Ce n'était ni le gabarit de l'équipement de la Chambre de Reconnaissance impériale, ni la facture des outils de terrain de l'Alliance. C'était la main de quelqu'un qui avait tâtonné lui-même, à la main, le long des vieux chemins.
 
 Sern dit très bas :
 
 « Il est seul. »
 
-Par le canal fermé de proximité, Seorin demanda aussitôt :
+Seorin demanda aussitôt :
 
 « Tu es sûr ? »
 
 « Oui. »
-Sern répondit brièvement.
-« Il n'y a qu'une seule réaction. »
+Sern confirma.
+« Il n'y a qu'un seul souffle. »
 
-Ce seul mot rendit la présence au-delà du coin un peu plus nette.
-
-Pas une escouade impériale. Pas une équipe de récupération de l'Alliance. Pas un courtier de fond de cale qui bougerait en groupe. Quelqu'un qui avait lu ce chemin en premier, seul, y était entré, avait mis la main en premier sur le fragment le plus grand, et tenait encore maintenant, seul, en calculant sa ligne d'évasion.
+Ces quelques mots rendirent un peu plus nette la présence au-delà de l'angle.
 
 Sion dit très lentement :
 
-« Ni l'Empire, ni l'Alliance. »
+« Pas l'Empire, et pas l'Alliance non plus. »
 
-De l'autre côté du coin, un souffle passa — presque un rire court.
+De l'autre côté de l'angle, un souffle passa, presque un rire bref.
 
-« Ces deux-là, ils auraient tiré sur les gens d'abord. »
+« Avec ces deux-là, on aurait commencé par tirer sur les gens. »
 
-Du côté de la coque, Seorin, à ce seul mot bref, devait avoir changé d'expression.
+Restée du côté de la coque, Seorin avait dû, elle aussi, changer d'expression à ces quelques mots.
 
-Ce peu suffisait. L'adversaire n'était pas venu chercher le combat. Son objectif restait du côté de la récupération et de l'évasion. Cela dit, il n'y avait pas de quoi être rassuré. C'était la main qui avait pris le fragment en premier, la main qui avait lu cette structure en premier. Une seule erreur, et ça devenait une opposition directe.
+Ces quelques mots suffisaient. L'autre n'était pas venu se battre. Son but restait plutôt de récupérer et de s'éclipser. Ce n'était pas pour autant une raison de se rassurer. Une seule erreur, et il deviendrait aussitôt un ennemi.
 
 Sion demanda :
 
-« Ce fragment, pourquoi tu l'as pris. »
+« Ce fragment, pourquoi tu l'as pris ? »
 
-Cette fois la réponse tarda un peu.
+Cette fois, la réponse tarda un peu.
 
-« Parce que si ça restait là, ça mourrait. »
+« Parce que si on le laisse, ça meurt. »
 
-« Qui. »
+« Qui ça ? »
 
 « Le fragment aussi. »
 Un bref souffle.
 « Le chemin aussi. »
 
-Cette fois, ce fut Ater qui se tut le premier.
+Sion garda ces mots un moment.
 
-Ces mots ne sonnaient pas comme une excuse. Au contraire — trop courts pour ça —, on aurait dit les paroles de quelqu'un qui avait avancé en ne tenant que cette seule conclusion depuis longtemps. Et dans cette brièveté, il était clair que cette présence n'était pas un simple voleur. Il n'était pas du genre à connaître seulement la valeur du fragment — il était de ceux qui savent aussi pourquoi ce chemin existe encore, et pourquoi il est en train de mourir.
+« S'il était resté dans la rainure, il ne serait pas mort. »
 
-Sion le sentit aussi. C'est pour cela qu'il ne put pas s'élancer plus vite. Ce qui comptait maintenant n'était pas de saisir en soi. C'était de vérifier ce que cette main savait, jusqu'où elle avait lu, et pourquoi elle avait été la première à fouler cette structure, seule.
+« Si. »
 
-À l'intérieur de la structure, une faible vibration remonta encore une fois.
+« Pourquoi ? »
 
-La voix de Han Jiwoo parvint, mêlée de parasites.
+« Tu sais à quoi elle sert, cette rainure ? » Pour la première fois, la voix au-delà de l'angle s'allongea un peu. « Tant qu'il est enfoncé dedans, la réaction n'arrête pas de le lire. Et à chaque lecture, il s'use un peu. »
 
-« Plus de temps. La réaction intérieure s'éteint encore. »
+Sern comprit aussitôt.
+
+« Le simple fait d'être lu le consume ? »
+
+« Oui. »
+
+« Combien en reste-t-il ? »
+
+« Je sais pas. Mais quand je l'ai retiré, le bord était déjà cassé. »
+
+La main de Sion se porta d'elle-même sur sa poche de récupération. Le débris pas plus grand qu'un ongle, ramassé sous la rainure, s'y trouvait.
+
+Il l'avait laissé en sachant qu'il était cassé. Pas par ignorance.
+
+« Ça, on l'a ramassé, dit Sion. »
+
+« Je l'ai jeté. »
+
+« Pourquoi ? »
+
+« Pour emporter ça aussi, il m'aurait fallu une main de plus. »
+
+À ces mots, Sern leva les yeux.
+
+Une main de plus. Cela voulait dire que, s'il y avait eu une personne de plus, il ne l'aurait pas jeté.
+
+Sion ne put pas se jeter en avant plus vite. Ce qui comptait maintenant n'était pas de l'attraper en soi. C'était de savoir ce que cette main savait, jusqu'où elle avait lu, et pourquoi elle avait foulé seule cette structure avant eux.
+
+Du fond de la structure, une vibration sourde remonta encore une fois.
+
+La voix de Han Jiwoo arriva, mêlée de parasites.
+
+« Plus de temps. Ailleurs aussi, les réactions s'éteignent. »
 
 Sern dit aussitôt :
 
 « Il faut décider. »
 
-C'était juste.
+Pousser plus loin, c'était la collision. Reculer davantage, c'était le perdre. Mais pour la première fois, poursuivants comme poursuivi savaient la même chose : plus on traînait ici, plus le chemin mourrait vite, avant tout le reste.
 
-Pousser encore, et il y aurait une collision. Reculer, et c'était perdu. Or, pour la première fois, les deux côtés — celui qui traquait et celui qui était traqué — savaient la même chose. Plus ils traînaient ici, plus le chemin mourrait en premier.
+Les yeux sur l'obscurité au-delà de l'angle, Sion dit à voix basse :
 
-Sion, les yeux dans l'obscurité au-delà du coin, dit bas :
+« Alors vérifions juste une chose d'abord. »
 
-« Bien. Alors on vérifie une chose d'abord. »
+Il reprit son souffle et poursuivit.
 
-Il reprit son souffle et continua :
+« Toi aussi, tu es venu ici à cause du nom de Jun Aster ? »
 
-« Toi aussi, tu es venu ici à cause du nom de Jun Astel ? »
+L'ombre au-delà de l'angle frémit imperceptiblement. Cette réaction n'était ni un non, ni un oui. Une chose au moins était claire : ce nom, il ne l'entendait pas pour la première fois.
 
-Cette fois le silence fut plus long.
+Et enfin, la voix basse tomba de nouveau.
 
-L'ombre au-delà du coin frémit imperceptiblement. Cette réaction n'était ni un refus, ni une confirmation. Mais une chose était certaine : ce nom, il ne l'entendait pas pour la première fois.
+« Je ne suis pas venu à cause du nom. »
+« Je suis venu parce que j'ai vu l'endroit d'où ce nom a été découpé. »
 
-Et enfin, cette voix basse tomba de nouveau.
+Sion ne put rien demander de plus.
 
-« Pas à cause du nom. »
-Un bref silence s'écoula.
-« Parce que j'ai vu l'endroit d'où le nom avait été découpé. »
+Ce fut Ater qui demanda à sa place :
 
-Ces mots étaient courts — mais suffisamment grands.
+« Où avez-vous vu ces endroits découpés ? »
 
-Sion ne put pas poser d'autre question, et Ater ne put pas enchaîner non plus. Ceux qui cherchent Jun Astel peuvent être nombreux. Mais quelqu'un qui est venu en ayant vu « l'endroit d'où ce nom avait été découpé » — c'est différent. Cela voulait dire : quelqu'un qui avait regardé la structure avant le nom, quelqu'un qui avait lu l'ordre de la coupe avant l'événement.
+« Pas à un seul endroit. »
 
-Par le canal fermé de proximité, Seorin expira très lentement.
+« Combien d'endroits ? »
 
-« Enfin, ça commence à ressembler à quelque chose. »
+Au-delà de l'angle, la réponse vint tard.
 
-La présence au-delà du coin ne répondit pas à ces mots.
+« Je les ai comptés, mais j'ai oublié. »
 
-À la place, l'instant d'après, le bord de la grande plaque qu'elle tenait se révéla un tout petit peu plus nettement dans l'obscurité. Pas une cession complète. Pas une menace non plus. Seulement : l'autre aussi n'avait pas l'intention de couper court à cet échange.
+« Et ceux dont vous vous souvenez ? »
 
-Mais à cet instant précis, plus profond dans la structure, une réaction du discriminateur s'éteignit brusquement.
+« Pourquoi cette question ? »
 
-Sern dit presque en même temps :
+Ater resta un instant sans répondre.
+
+« Pour voir s'ils recoupent ceux que j'ai moi-même fermés. »
+
+Cette fois, au-delà de l'angle, le silence dura bien plus longtemps.
+
+À côté de lui, Sion regarda Ater. Cet homme venait de dire d'abord de quel côté il était. Si l'autre, en l'entendant, reculait, la conversation s'arrêterait là.
+
+« …La Chambre de Reconnaissance ? »
+
+« Oui. »
+
+« Et pourtant, tu es là. »
+
+« Oui. »
+
+« Pourquoi ? »
+
+« Parce que je ne sais pas ce qu'il y avait parmi ce que j'ai fermé. »
+
+Au-delà de l'angle, un son très bas se fit entendre. Rire ou souffle, impossible à dire.
+
+« …Ça, c'est une raison que j'entends pour la première fois. »
+
+Seorin expira très lentement.
+
+« Enfin, ça commence à ressembler à une conversation. »
+
+La présence au-delà de l'angle ne répondit pas à ces mots.
+
+À la place, l'instant d'après, le bord de la plus grande plaque qu'elle tenait se dessina, un très court instant, plus nettement dans l'obscurité. Ce n'était pas une remise complète. Ce n'était pas une menace non plus. Cela semblait seulement dire que l'autre, lui non plus, n'avait pas l'intention de couper tout à fait cet échange.
+
+Mais à ce moment précis, plus loin au fond de la structure, une réaction du discriminateur s'éteignit brusquement.
+
+Sern parla presque en même temps.
 
 « C'est maintenant. »
 
-Nul n'eut besoin d'expliquer ce que cela signifiait. Si la décision n'était pas prise maintenant, le fragment, l'échange, le chemin — ils pouvaient tous les trois se perdre ensemble.
+Personne n'eut besoin d'expliquer ce que cela voulait dire. S'ils ne décidaient pas maintenant, le fragment, la conversation et le chemin pouvaient leur échapper tous les trois à la fois.
 
-Sion se tourna vers l'obscurité au-delà du coin et dit très bas :
+C'est alors que la ligne de récupération, à la taille de Sion, fut tirée une fois.
+
+Une seule fois.
+
+Deux tractions voulaient dire sortez, trois voulaient dire je coupe ; une seule, c'était un signal qui ne figurait pas dans l'accord.
+
+Sion ouvrit le canal, très bas.
+
+« Quoi ? »
+
+« Je suis en train de choisir entre tirer deux fois ou trois fois. » La voix de Seorin était la même que d'habitude. « Une fois, c'est pour que tu le saches. »
+
+« Qui irait prévenir qu'il est en train de choisir ? »
+
+« Il y en a une, ici. »
+
+Sion enroula une fois la ligne autour de sa main.
+
+« Encore un peu. »
+
+« Un peu, c'est combien ? »
+
+« Jusqu'à ce que je voie son visage. »
+
+Le canal resta un instant silencieux.
+
+« Ça, je ne peux pas le mesurer. »
+
+« Je sais. »
+
+« Je tire pas, quand même. Pas maintenant. »
+
+La ligne se détendit de nouveau.
+
+Sion dit très bas, en direction de l'angle :
 
 « Si tu veux fuir, c'est maintenant. »
-Sion prit un battement de souffle.
-« Sinon — montre d'abord ton visage. »
-
-Et l'ombre au-delà du coin,
-enfin, très lentement,
-commença à avancer un pied vers la lumière.
+Sion reprit son souffle, le temps d'un battement.
+« Sinon, voyons d'abord ton visage. »
 
 ---
 

@@ -1,44 +1,48 @@
-# Episode 12. First Coordinate
+# Episode 12. Coordinates of the First Fragment
 
-Elia stared at the fragment in silence for a long time.
+Before Elia had even taken her hand off the lid, Seorin spoke.
 
-The room was quiet as before, but the grain of the silence had changed entirely.
-If the silence when the door first opened was the kind spent measuring each other, this one was closer to everyone waiting only on Elia's fingertips.
-Under the old desk lamp, the severed cross-section, burned edges, and remaining name-fragment were beginning, very slowly, to reveal a different face.
+"I know you can't get to two in one day, but there's no tomorrow for us."
 
-Elia placed the fragment on the reading plate and covered it with a very thin filter membrane using her other hand.
-Faint lines spread in the air. Dead sentences, severed signature lines, record traces warped by heat. It was closer to a wound than a document. But Elia looked less like someone reading sentences — more like someone reading where the wound began.
+Elia looked at Seorin, then at the lid.
 
-Sion could not even fold his arms. He just stood.
-Seorin saw it from beside him and said, small.
+"So you want somewhere to go today."
 
-"You're holding your breath."
+"Yeah."
+
+Elia opened the box again. She set the fragment on the reading plate and, with her other hand, laid a very thin filter membrane over it.
+Faint lines rose over the reading plate. Dead sentences, a broken signature line, record residue twisted by heat. It was closer to a wound than to a document. But Elia looked like someone who read where a wound had been cut from before she read any sentence.
+
+Sion stood there, unable even to fold his arms.
+Seorin saw it from beside him and said quietly.
+
+"You're holding your breath right now."
 
 "I'm not."
 
 "Liar."
 
-Even that brief back-and-forth had no real force this time.
-Sion's gaze stayed fixed on the reading plate.
+Even that short back-and-forth had no real strength in it this time.
+Sion's eyes stayed fixed on the reading plate.
 
-Elia murmured low.
+Elia murmured, low.
 
 "It's not one fragment. It's two."
 
-Sern reacted immediately.
+Sern reacted at once.
 
 "Two."
 
 "Yeah."
 Elia answered without raising her head.
-"One sentence was erased, but the remaining traces point two directions. One toward a verdict — the other is… mm."
+"There's one erased sentence, but the traces left go two ways. One's on the verdict side, and the other… hm."
 
-She pushed up one side of the filter membrane with her finger, and a far fainter line surfaced on the reading plate. Its grain was closer to a coordinate marker than a sentence. Yet it was so incomplete that an ordinary person would have dismissed it as noise — just ten more scratches on an already scarred surface.
+When she pushed one edge of the filter membrane up with her finger, a far fainter line rose on the reading plate. Its grain was closer to a coordinate mark than to a sentence. But it was so incomplete that most people would have passed it off as noise, ten more scratches on top of the rest.
 
-"This isn't a sentence."
-Seorin said first.
+"That's not a sentence."
+Seorin said it first.
 
-"Not a sentence."
+"It's not."
 Elia answered.
 "It's a path."
 
@@ -46,171 +50,204 @@ Sion narrowed his eyes, very slowly.
 
 "A route?"
 
-"Not complete."
-Elia said, pressing the fragment again.
-"Closer to a closed path. Precisely — an erased path."
+"Not a whole one."
+Elia said it while pressing the fragment again.
+"Closer to a closed path. To be exact, an erased path."
 
-At that, Ater stepped one pace closer for the first time.
-This time his face had no room for authority or courtesy.
-A path. A closed path. An erased path. In the world of House Valkar and the Empire Approval Bureau, those words were as sensitive as a person's name.
+At that, Ater stepped closer for the first time.
+This time his face wasn't one that cared about authority or manners.
+Path. Closed path. Erased path. In the world of House Valkar and the Empire Approval Bureau, those were words as sensitive as a person's name.
 
-Elia added, perfectly calm, as if she knew that reaction well.
+Elia added, very evenly, as if she knew about that reaction too.
 
-"If only the verdict fragment remained, it wouldn't have surfaced this far. Whoever hid this didn't just sever the sentence — they severed the path along with it."
+"If only the verdict fragment had survived, it wouldn't have gone this far.
+When someone hid this, they didn't just cut the sentence. They cut the path along with it."
 
-Sern asked low.
+Sern asked, low.
 
-"You mean the path reached the archivist."
+"Do you mean that path was passed to the archivist?"
 
 Elia shrugged.
 
-"Whether it reached the archivist, or the archivist grabbed it at the end — I don't know yet. But this is not a grain that was buried by accident."
+"Whether it got as far as the archivist, or the archivist grabbed hold of it at the end, I don't know yet.
+But at least this isn't a grain that got on here by accident."
 
 The faint line on the reading plate wavered once more.
-Elia drew a smaller lens from the desk drawer and placed it over the filter membrane.
-At the severed end of the line, a marking resembling cut numbers and one old trace-reader notation briefly came alive.
+Elia took an even smaller lens from the desk drawer and set it on the filter membrane.
 
-Sion swallowed his breath.
+Then, at the end of the line, a mark that looked like a cut-off number and another notation attached beside it came to life, very briefly.
+
+Anyone could tell the number was a number.
+
+The thing beside it was another matter.
+
+The strokes were thin and curled inward at the ends. It looked like no notation used in the port now. It was an old Myojok script.
+
+Sion caught his breath.
 
 "That's…"
 
-Instead of answering, Elia removed the lens and killed the screen.
-When the faint light died, the room's air settled back into damp reality.
+Elia didn't answer. She took off the lens, pulled back the filter membrane, and switched off the light.
 
-"You can't walk around carrying all of this."
+It was fast.
 
-Seorin raised an eyebrow.
+Sion saw that speed. Until a moment ago, this woman had been studying a single fragment, changing the angle twice at a time. But the moment that script came up, she had made three moves at once.
 
-"Nice. We know that."
+"…Why'd you turn it off?"
 
-"No, not at that level."
+"Too much light damages it."
+
+"It didn't before."
+
+Elia put the lens in the drawer and closed the drawer.
+
+"Before, I was looking at a part the light can't damage."
+
+Sion didn't ask again. Asking would get the same answer, and they both knew the answer was a lie.
+
+From the other side of the room, Ater asked.
+
+"Did you read that notation?"
+
+"No."
+
+"You did."
+
+Only then did Elia raise her head. It was the second time today that she had looked anyone in this room straight in the face.
+
+"Say I did. So what."
+
+"I am not asking what it means." Ater let a beat pass. "I am asking why you will not say it now."
+
+The room went quiet.
+
+Seorin moved half a step toward Elia. The same step she had taken in front of the pipes, when she stepped in between Sern and Sion.
+
+"Ask that later."
+
+"If not now, there may be no chance to ask."
+
+"Then there isn't one."
+
+Watching that back-and-forth, Sern knew he was seeing the same thing for the third time today.
+
+When that notation surfaced, three people in this room had moved. The one who caught his breath, the one who switched off the light, the one who stepped in front of her. All three were on the 373 side of the dock roster, and all three had said nothing.
+
+Sern wrote nothing down. An Approval Bureau aide writes this kind of thing down as a matter of course.
+
+Today he did not.
+
+Elia pushed the reading plate aside and said.
+
+"You can't carry all of this around with you right now."
+
+Seorin raised her eyebrows.
+
+"We know that much."
+
+"No, it's not on that level."
 Elia raised her head.
-"What just came up isn't a simple verdict trace. It's the trace of a path someone tried to erase."
+"What just came up isn't just verdict residue. It's the residue of a path someone tried to erase."
 
-Short silence.
+The moment that landed, Sion felt the weight of the fragment he had been carrying shift, very slightly.
 
-The instant those words fell, Sion felt the weight of the fragment he'd been holding shift — barely.
-This was no longer one name's problem.
-Someone had severed not just the name, but the path that name was supposed to reach.
-And a path like that was not the kind recovered from a single document — it was the kind that only reconnected when you walked the severed scenes again.
-
-Ater lowered his gaze, very briefly, at those words.
+Ater heard it and lowered his eyes.
 The path is more dangerous.
-That sentence was too familiar to someone from the Empire Approval Bureau — yet in this moment it carried an entirely different meaning.
+That thought was all too familiar to a man from the Empire Approval Bureau, and yet in this moment it reached him with an entirely different meaning.
 
 Sern asked quietly.
 
-"How far is restoration possible."
+"How far can it be restored?"
 
-Elia did not answer immediately.
-Instead she swept the fragment, the reading plate, and the four faces in turn.
-The possibility of restoration was already expensive information on its own. Yet these four had brought something more dangerous than money.
+Elia didn't answer right away.
+Instead she ran her eyes over the fragment, the reading plate, and the four faces in turn.
+The possibility of restoration was itself expensive information. But these four had walked in carrying something more dangerous than money.
 
-"Full restoration — not yet."
-She said.
-"But the first fragment has emerged."
+"Full restoration isn't possible yet,"
+she said.
+"But the first fragment is out."
 
 Sion asked at once.
 
 "Where."
 
-Elia tapped, with her thumbnail, the short marking she had just noted at the reading plate's edge.
+Elia tapped with her fingernail the short mark she had just written on the paper beside the reading plate.
 
-"A closed transfer point in the outer cluster region. Its name has changed, and in official records it probably looks nearly dead."
-Elia added brief.
-"It used to be an auxiliary transfer point that sorted and loaded cargo and people pushed to the outside. After the war, it became a place that knew too much — so it stayed, pretending to be dead."
+"A closed transfer point out in the outer cluster.
+The name's been changed, and in the official records it'll be listed as good as dead."
+Elia added.
+"It used to be an auxiliary transfer point where cargo and people pushed out to the edges got split up and loaded. After the war it became a place that knew too much, so it stayed on pretending to be dead."
 
-Seorin muttered low.
+Seorin muttered, low.
 
-"Nice. Now we even have a destination."
+"Now we've even got a destination."
 
-"Less a destination — more a first confirmation point."
-Elia corrected.
-"You may not get an answer the moment you arrive. But at minimum, the next trace of who erased the path is very likely there."
+"Less a destination than a first place to check."
+Elia corrected her.
+"You might not get an answer the moment you get there. But at least the next trace of who erased the path is likely to be there."
 Elia tapped the reading plate with her fingertip.
-"You can carry fragments in your hand, but answers always remain more at the place the fragment was cut from."
+"You can carry a fragment around in your hand, but the answers always stay more in the place the fragment was cut from."
 
-Sion tucked the fragment back inside his coat.
-Until just now, they had been the ones running.
-But now, for the first time, there was somewhere they had to go next.
+Hearing that, Sion put the fragment back inside his coat.
+Until a moment ago they had only been running.
+But now, for the first time, there was somewhere to go next.
 
-Seorin was the fastest to notice that subtle difference.
+Seorin was the fastest to catch that slight difference.
 
-She lifted her chin slightly.
-"Now we're not just being chased."
+Seorin lifted her chin a little.
+"So now we're not just being chased."
 
-Elia smirked.
+Elia gave a short laugh.
 
-"No. Being chased is still more accurate."
-And added immediately.
-"But now you know which direction to run so you arrive less late."
+"No. Being chased is still closer to it."
+And she added right away.
+"It's just that now you know where to run so you get there less late."
 
-Yona leaned against the doorframe, arms crossed.
+Yona leaned by the door and folded her arms.
 
-"If it's the outer cluster closed transfer point, fuel costs go up."
+"Closed transfer point in the outer cluster. Fuel just went up."
 
-Sion smirked at that.
+Sion huffed a laugh at that.
 
-"Would've been disappointed if you didn't say that."
+"I'd have been hurt if you didn't say it."
 
-Ater was watching Elia quietly.
-This person was not restoring records.
-She read things that could not, in the end, be fully erased — severed paths, carved-out sequences, remaining traces. If the Empire Approval Bureau was where results were managed, this was where the hesitations and blanks cut from those results were read.
+Ater was quietly watching Elia.
 
-He said, very low.
+He spoke, very low.
 
-"If we go to that transfer point — will the next fragment emerge."
+"If we go to that transfer point, will the next fragment come out?"
 
-Elia tilted her shoulder.
+Elia tipped her shoulder.
 
-"If we're lucky."
-And added, perfectly calm.
-"If unlucky, you all get buried there too."
+"If you're lucky."
+And she added, very evenly.
+"If you're unlucky, you'll get buried out there along with it."
 
-The room went quiet for a moment.
-No one heard that as bluster. Elia was not the type to exaggerate for intimidation — she was the type to name danger at its exact value.
+Sern was the first to raise the practical question.
 
-Sern brought out the practical question first.
+"Who knows that coordinate?"
 
-"Who knows that coordinate."
-
-"Right now, me."
+"Right now, me,"
 Elia said.
-"And now, you."
+"And now you."
 
-Seorin laughed short.
+Seorin laughed.
 
-"Nice. Names on the line again."
+"Our names are on the line again."
 
 "No."
-Elia corrected.
-"From now, it's the path on the line too."
+Elia corrected her.
+"From here on, the path is on the line too."
 
-When those words fell, the room went a degree quieter.
-If until just now they had been holding an erased name, this meant they now had to follow the path that had been severed along with it.
-No one yet knew the true name of that path.
-But one thing was clear.
-The affair had now passed beyond the reinstatement of a single person — moving toward chasing erased routes and closed paths.
+Sion looked toward the reading plate once more.
 
-Elia closed the reading plate and spoke as if wrapping up.
+It was off. It had no screen, so switched off it was just a palm-sized plate. That script wasn't still inside it. The script was on the fragment, and the fragment was in his inner pocket now.
 
-"Good. Then it's time to really choose."
+Only one person in this room could read it, and she hadn't read it for them.
 
-"Choose what."
+Sion pressed the spot once through his coat.
 
-Sion asked.
-
-Elia placed the fragment at the desk's center and looked at the four in turn.
-
-"Keep running — or go chase the first fragment."
-
-Seorin already wore the face of someone who knew the answer; Sion was halfway there too.
-Sern was waiting for his lord's decision, and Ater was somewhere between them, pushing thought forward very quietly.
-
-Outside, port noise still lived, and this repository was no eternal refuge either.
-But at least in this moment, for the first time, what lay before the four was not mere survival but a direction.
-
-## And that direction was making them ask — beyond who erased the name — who had tried to erase the path as well.
+It was thin.
 
 ---
 

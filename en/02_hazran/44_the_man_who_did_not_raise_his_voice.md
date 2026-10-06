@@ -1,247 +1,258 @@
 # Episode 44. The Man Who Did Not Raise His Voice
 
-Past the shadow of the last tent cover, the inner space was wider than expected.
+Past the shadow of the last tent, the space inside was wider than expected.
 
-It was not ornate. Rather, like all of Hazran, it was closer to a place barely given form by stitching together what had been discarded and what had been kept. Half-stripped hull plating from decommissioned ships stood upright like walls, and the ceiling was draped in layer upon layer of old cargo rings and tent cloth. The floor showed traces of thin metal plates laid down to level out the iron dust and sand, and beneath the air's heat, medicinal herbs, and water smell ran a very faint, long thread of metal oil.
+It was not lavish. If anything, like all of Hazran, it was closer to a place that had barely been given a shape by joining what had been thrown away to what had been kept. Half-stripped hulk plating stood up like the walls of a room, and old cargo rings and tent cloth hung from the ceiling in layer on layer. The floor showed signs of having been leveled with thin metal plates so the iron filings and sand would not be left as they were, and in the air inside, under the heat, the medicine and the water, lay a long, very faint smell of metal oil.
 
-But this space held a different kind of power from the outer layer or the workshops.
+But this space held a different kind of power from the outer level or the workshop.
 
-Sion could tell at first glance.
+Sion could tell at first sight.
 
-This was not a place for hiding things. This was a place for deciding what went under whose hand.
+This was not a place for hiding something. It was a place for deciding what went under whose hand.
 
-Few people. Instead, the kind of order that belonged only to places not everyone could enter. Arrangement was authority, not decoration. Stillness was the rule, not sound. A place where who spoke first mattered less than who could make everyone move without speaking at all.
+There were few people. In their place was the particular order of somewhere not just anyone could enter. Placement was power instead of ornament, and stopping was the rule instead of sound. A place where it mattered less who spoke first than who could set everyone moving without bothering to speak.
 
-Harun entered without hesitation to the end, and Nasim followed half a step behind, his smile nearly gone. Luhai had been rolling his eyes, but seemed to sense instinctively that looking around too openly was not permitted in this interior—his gaze dropped more often. Kael pulled the fragment deeper against his chest. Seorin did not slow her stride. Ater's face shifted toward reading structure rather than traces.
+Harun walked in without hesitating at all, and Nasim followed half a step behind him, his smile nearly gone. Luhai's eyes kept darting, but he seemed to sense by instinct that gawking too openly in here would be a mistake, and lowered his gaze more often. Kael held the fragment in his coat closer against him, and Seorin did not slow her pace. Ater had the face of someone who had shifted his attention here from reading traces to reading structure.
 
-And in the deepest seat inside, a man sat.
+And in the deepest spot inside, a man sat alone.
 
-Zahir's impression was quieter than expected.
+Zahir gave a quieter impression than Sion had expected.
 
-When Sion first saw him, before any sense of intimidation came the dry texture of time endured. A man long carved by desert wind and heat. No trace of forced grandeur, yet the seat where he sat already looked like the center of the space. He wore layers of cloth whose red had faded, and the metal device placed near his hand was closer to utility than ornament. He was not smiling, but neither was his face openly angry. Instead, his eyes carried the look of someone who had already weighed, one by one, every value that had rolled in this far.
+When Sion first saw him, before any sense of menace, he felt the dry weight of time endured. A man worn down for a long time by desert wind and heat. There was no sign of forced finery, yet the spot where he sat already looked like the center of this space. He wore several layers of cloth whose red had faded, and the metal device set near his hand was closer to practical than decorative. He wasn't smiling, but his face wasn't openly angry either. Instead his eyes looked as if he had already weighed, once each, every value that had rolled in this far.
 
-He did not stand.
+He did not get up.
 
-That was more unsettling.
+That was what made it worse.
 
-Before this side had even finished saying who they were, he sat as though there was no need. An attitude that said: you were always the kind of value that would end up before me, and right now you are neither more nor less than that.
+They had not yet said everything about who they were, and he sat like a man who had no need for them to. As though they were a value that would end up in front of him sooner or later, and were nothing more and nothing less than that now.
 
 Harun stopped first.
 
 Nasim spoke very low.
 
-"It got a bit noisy outside."
+"It got a little noisy outside."
 
-Zahir did not answer immediately.
+Zahir did not answer right away.
 
-Instead, he moved his gaze slowly. Sion, Seorin, Ater, Kael, Luhai. Lastly, it lingered a beat longer on the etherite in Luhai's hand and the fragment in Kael's arms. There was no surprise in that gaze. What was closer was the cold interest of a man confirming that a few new pieces had arrived on a board he had already anticipated.
+Instead he moved his gaze slowly. Sion, Seorin, Ater, Kael, Luhai. Last, it stayed a moment longer on the Etherite in Luhai's hand and on the fragment in Kael's coat. There was no surprise in that look. It was closer to the cold interest of a man confirming that a few new pieces had been set on a board he had already expected.
 
-He opened his mouth for the first time.
+He spoke for the first time.
 
-"I imagine it was noisy."
+"I imagine it did."
 
-The voice was not loud.
+His voice was not loud.
 
-But that quiet voice traveled straight through the interior of the space. The voice of a man who had known too long that everyone listened without him raising the volume. This was a man who never needed to shout to assert his weight.
+But that small voice carried straight into the depths of the space. The voice of a man who had known for far too long that everyone listens without his having to make it louder. This man had no need to shout to raise his standing.
 
-From that single utterance alone, Sion could read Zahir more clearly.
+From that one line alone, Sion could read Zahir more clearly.
 
-This man did not press a space with anger. He was someone who calmly sorted the values of everything that entered his board.
+This man did not press a room down with anger. He calmly put in order the values of whatever came onto his board.
 
-And that kind of person was more frightening.
+And a man like that is more frightening.
 
 Zahir's gaze reached Luhai.
 
-"You again."
-He said.
+"You again,"
+he said.
 
-Luhai's face locked for an instant.
+Luhai's face froze for an instant.
 
-That brief reaction was enough. The two were not strangers. Luhai had been dragged before Zahir at least a few times before. That a fast-mouthed petty thief was still alive might mean Zahir had not deemed him entirely worthless.
+That short reaction was enough. Those two were not meeting for the first time. Luhai, at least, had been hauled in front of Zahir a few times. That a fast-mouthed petty thief was still alive might mean Zahir did not consider him entirely worthless.
 
-Luhai bit his lip slightly, then spoke.
+Luhai chewed his lip a little, then spoke.
 
-"This time I picked it up first."
+"This time I grabbed it first."
 
-Nasim laughed from beside him.
+Nasim laughed beside him.
 
-"The excuses never change."
+"Same old excuses."
 
-Zahir did not react to that. Instead, he asked very slowly.
+Zahir didn't react to that. Instead he asked, very slowly.
 
 "Thinking it was real."
 
-Luhai could not answer immediately.
+Luhai couldn't answer right away.
 
 That silence was already half an answer.
 
-From that short exchange alone, Sion could sense how Zahir saw Luhai. Annoying, long-mouthed, bad habits with his hands—but sometimes the kid picked up what no one else could. Too valuable to kill, too annoying to leave loose for long. That kind of value.
-
 This time Zahir's gaze went to Kael.
 
-"New face."
-He said low.
+"You're a new face,"
+he said, low.
 "But what you're holding doesn't look new."
 
-Kael did not look away.
+Kael didn't look away.
 
-"Maybe not."
-He answered shortly.
+"Maybe,"
+he answered shortly.
 
-Zahir did not hold onto the end of that answer for long. Instead, he shifted immediately to Sion.
+Zahir didn't hold on to the end of that answer for long. Instead he moved straight on to Sion.
 
-"You brought a name."
-He said.
+"You brought a name,"
+he said.
 
-Sion did not ask which name he meant.
+Sion didn't ask which name he meant.
 
 Aka.
 
-Inside here, no one even pretended to hide that name anymore. At least not before Zahir.
+In here, no one even pretended to hide that name anymore. Not in front of Zahir, at least.
 
-Sion did not hide it.
+This time Sion spoke first.
 
-"The reading hand left it."
-He said.
-"Hazran and Aka. Only those two."
+"The reading hand left it,"
+he said.
+"Hazran and Aka. Just those two."
 
 A short silence.
 
-In that silence, Sion saw Zahir reveal his interest a fraction more clearly for the first time. No large reaction, but his gaze sank one degree deeper. The reading hand. That seemed to be a phrase not easily passed over, even on this floor.
+In that silence, Sion saw Zahir show his interest a little more plainly for the first time. He didn't react much, but his gaze sank once more. The reading hand. It seemed that was a phrase no one could pass over lightly, even down here.
 
-"The reading hand."
-Zahir murmured very low.
-"Then what you brought is not curiosity."
+"The reading hand,"
+Zahir repeated, very low.
+"Then what you've brought isn't curiosity."
 
 Seorin cut in.
 
-"We need etherite to save the ship, and we need a hand that can confirm the name."
+"We need Etherite to save the ship, and we need a hand to confirm the name."
 
-"Both."
+"Both,"
 Zahir said.
-"And you couldn't get either outside."
+"And you couldn't get either one outside."
 
-"That's why we came this far."
+"So we came this far,"
 Seorin answered.
 
-Zahir moved the corner of his mouth by the smallest degree. Less a smile than satisfaction that they had reached the point faster than expected.
+The corner of Zahir's mouth moved very slightly. It was less a smile than satisfaction that they had come to the point faster than he expected.
 
-"At least you talk fast."
-He said low.
+"Quick with words, at least,"
+he said, low.
 
-He tapped the armrest of his chair once with his finger.
+He tapped the arm of his chair with a finger, just once.
 
-"Aka."
-He said.
+"Aka,"
+he said.
 "What you saw."
 
-Aka did not look at Zahir. She was still turned toward the fragment, the etherite, and the grain Sion's party had brought.
+Aka did not look at Zahir. She was still looking at the fragment and the Etherite, and at the grain Sion's party had brought in with them.
 
-"It is not a door."
-She said.
-"It is an imitation remembering a door."
+"It's not a door,"
+she said.
+"It's an imitation that remembers a door."
 
-Zahir heard that and showed no surprise. Instead, he tilted his head very slowly. The reaction of someone who had suspected a similar grain several times before, not hearing it for the first time.
+Zahir showed no surprise at that. Instead he tilted his head very slowly. It was less the reaction of someone hearing new information than of someone who had already suspected a similar grain a few times before.
 
-"So every hand that chased that thing entered wrong."
-He said low.
+"So every hand that chased that thing came in the wrong way,"
+he said, low.
 
-Aka shook her head briefly this time.
+This time Aka gave a short shake of her head.
 
-"They did not enter wrong."
-She said.
-"But if they keep believing that is a door, they will never reach the end."
+"They didn't come in the wrong way,"
+she said.
+"But if they keep believing it's a door, they can't go all the way."
 
-Sion felt that statement land heavier than the one before. They did not enter wrong. But if they believe wrong, they cannot reach the end. It was a sentence that gave hope and severance at the same time.
+Sion felt the words land heavier than before. They hadn't come in the wrong way. But if they kept believing the wrong thing, they couldn't go all the way. The words gave hope and a cut at the same time.
 
 Ater asked quietly.
 
-"Then how should we go."
+"Then how should we go?"
 
-Aka did not answer immediately.
+Aka didn't answer right away.
 
-Instead, for just a moment, she looked at Sion's face properly for the first time. That gaze felt less like eyes reading a person, and more like eyes measuring how far this person could follow a wrong door and still not break.
+Instead, very briefly, she looked properly at Sion's face for the first time. That gaze felt less like eyes reading a person than eyes measuring how far this one could follow a wrong door without breaking.
 
-"You have to separate it first."
-She said.
-"The imitation from the site."
+"That has to come apart first,"
+she said.
+"The imitation and the place."
 
-Sion felt that sentence was not yet a complete explanation, but at least it pointed clearly to what the next task was. Peel the imitation from the severed site. Without that, they could never reach the place where the real door once stood.
+Sion felt that the sentence, even if it wasn't a full explanation yet, at least pointed clearly at the next task. The imitation had to be pulled away from the place that had been cut. Otherwise they could never reach the place where the real door had been.
 
-Nasim spoke very smoothly.
+Nasim spoke very softly.
 
-"The problem is getting clearer now."
+"Isn't it clear now why it can't be solved outside?"
 
-"The ship needs saving, the imitation needs peeling, and the name is bound even deeper."
-He added with a smile.
-"By this point, isn't it obvious why this couldn't be solved outside?"
+Kael asked, very low.
 
-Kael asked very low.
+"So?"
 
-"So."
+This time Zahir answered himself.
 
-This time Zahir answered directly.
-
-"So the board has to change."
-He said.
+"So we change the board,"
+he said.
 
 A short silence.
 
-That did not sound like a simple proposal. This man was pretending to give the people in the room a choice while already moving everyone into the next stage of his method.
+That did not sound like a simple proposal. This man was pretending to give the people in the room a choice while already moving all of them on to the next step, his way.
 
 Seorin asked coldly.
 
-"What board."
+"What board?"
 
-Zahir smiled—just barely—for the first time.
+Only now did Zahir smile, very slightly.
 
-"A board that reveals who holds the real thing in Hazran."
-He said.
-"Outside, everyone just talks."
+"The board that sorts out which hands in Hazran hold the real thing,"
+he said.
+"Outside, everyone just runs their mouth."
 
-Luhai grimaced slightly.
+Luhai's face screwed up a little.
 
-"Sounds filthy just hearing about it."
+"That's a board where a lot of people die."
 
-Zahir looked at him once and said.
+Zahir looked at him once and spoke.
 
-"And yet you always crawl your way up from there."
+"And yet you always crawl back up out of it."
 
-Luhai could not retort.
+Luhai had no answer.
 
-Even from that short exchange, Sion could tell. Zahir remembered people not by their names but by how they survived on which board. That was why he had not killed Luhai. That was why he was not putting a blade to their throats right now either. He looked at value first. Then decided where to place it.
+This man did not remember Luhai by name. He remembered him by where, and how many times, he had crawled back up.
 
-Harun remained silent, but the instant Zahir brought up the "board," his jaw tightened by the smallest degree. Sion did not miss it. Harun was someone who believed in control first. Zahir was someone who saw a person's value through the board. They were on the same side, yet they might not believe in the same method.
+Harun still said nothing, but the moment Zahir brought out the word *board*, his jaw set very slightly. Sion didn't miss it. Harun was a man who trusted control first, and Zahir was a man who read people's worth through the board. They were on the same side, but they might not trust the same method.
 
-Nahira, her face showing she had seen every thread of that subtle tension, glanced once toward Aka.
+Nahira, with a face that had seen every bit of that faint tension, glanced once toward Aka.
 
-Aka was still quiet. But this time she did not look like a child being dragged along with her mouth shut. She looked like a child who already knew what she needed to see next.
+"Let's go,"
+she said to Aka.
 
-And in that moment, Sion was nearly certain.
+Aka didn't move.
 
-Aka feared this board, and yet she might already know what could only be seen beyond it.
+Nahira called her again. This time without using her name. She just held out her hand a little.
 
-That was why she had not left yet.
-That was why she still had not said she would go, or that she would not.
+Aka looked at that hand. Then she turned her head toward Zahir.
 
-Zahir spoke one last time.
+"Where's the board?"
+
+A few people in the room looked her way. It was the first time Aka had asked anything first in this room.
+
+Zahir didn't answer right away. For a very brief moment his eyes went back to weighing a value.
+
+"Why do you ask?"
+
+"It depends what I can see from there."
+
+"And what do you see?"
+
+Aka held back her answer. She held it back so that it showed.
+
+"I'll know when I go."
+
+Nahira's hand stiffened for a very short moment. Sion saw it. The hand that kept Aka held close inside had just wavered for the first time.
+
+Zahir spoke, low.
 
 "Harun."
 
-Harun lifted his gaze briefly.
+Harun raised his eyes briefly.
 
-"Prepare."
+"Open it."
 
-Those two syllables changed the air in the room once more.
+Those two words changed the air in the room once again.
 
-From here on, it was neither simple interrogation nor trade. It was closer to a declaration—done in the Hazran way—to see on the board who could hold the real thing, who could endure to the end, who could separate imitation from site.
+Only then did Sion realize he had been seeing something wrong.
 
-Sion pressed the paper inside his jacket.
+Until now he had thought Zahir was the only one in this room who opened the board. But Aka had just asked where the board would open, and only after taking that question had Zahir said to open it.
 
-Hazran.
-Aka.
+This child wasn't being dragged along.
 
-## Those had been the only two words even when he arrived this far, but now those two words were beginning to feel like the key that opened the entire next board.
+There was somewhere she wanted to go.
 
 ---
 

@@ -1,28 +1,28 @@
 # Capítulo 67 — El primer lugar que sostuvieron sin dejar que se enfriara
 
-«Decidir dónde colgarla primero.»
+*Decidir dónde colgarla primero.*
 
-Después de aquellas palabras de Aka, los tres volvieron al compartimento donde estaba el casco exterior.
+Después de aquellas palabras de Aka, los tres volvieron al compartimento exterior, donde estaba el casco.
 
-Incluso en el corto pasillo de regreso, Sion cuidó aún más la brasa que llevaba en la mano.
+Incluso en el corto pasillo de vuelta, Sion empezó a cuidar más la brasa que llevaba en la mano.
 
-Si hasta hacía un momento lo que pesaba era la sensación de que debía proteger esta brasa, ahora había cambiado un poco aquello que tenía que proteger.
+Hasta hacía un rato, lo que más pesaba era la sensación de que tenía que proteger esta brasa. Ahora había cambiado qué era lo que tenía que proteger.
 
-No bastaba con no dejar morir una sola brasa. Lo que importaba ahora era a dónde, en qué orden, cuán cerca había que llevarla para que, por primera vez, otra forma tampoco muriera junto a ella.
+Ya no bastaba con no dejar morir la brasa. El problema mayor era ahora a dónde, en qué orden y a qué distancia había que llevarla para que la otra forma tampoco muriera con ella.
 
-El casco a medio desmontar que colgaba en el compartimento exterior se veía distinto de cómo se había visto antes.
+El casco a medio desmontar que colgaba en el compartimento exterior se veía otra vez distinto de cuando lo habían visto antes.
 
-Antes parecía apenas una estructura que aún no había muerto; ahora parecía un cuerpo que, sin saber a quién salvar primero, había aguantado largo tiempo hasta detenerse.
+Antes parecía una estructura que aún no había muerto. Ahora parecía un cuerpo que, por no saber qué parte salvar primero, había aguantado mucho tiempo hasta detenerse.
 
-Han Jiwoo no puso la mano en cuanto se acercó al casco.
+Han Jiwoo, al acercarse al casco, no le puso la mano enseguida.
 
-En su lugar tenía el rostro de quien superpone en la cabeza el punto enfriado que Aka había señalado antes, el molde receptor recién hecho y la junta desgarrada detrás del centro del casco.
+En cambio, tenía la cara de quien superpone en la cabeza el punto enfriado que Aka había señalado antes, el molde receptor que acababan de hacer y la junta desgarrada detrás del centro del casco.
 
 Aka tampoco habló con prisa.
 
-Más bien, como quien sabe que lo echaría a perder si daba ella la respuesta, miraba primero qué iría a elegir Han Jiwoo.
+Como quien sabe que lo echaría a perder si daba ella la respuesta, esperaba a ver primero qué punto elegía Han Jiwoo.
 
-Han Jiwoo dijo despacio.
+Han Jiwoo habló despacio.
 
 —El centro no.
 
@@ -30,121 +30,180 @@ Sion la miró.
 
 —¿Por qué?
 
-—Por codicia —respondió Han Jiwoo—. Si empiezas por donde más en grande tiene que revivir, es lo que más rápido muere.
+—Porque es codicia.
+Así respondió Han Jiwoo.
+—Si empiezas por lo que más tiene que revivir, es lo que antes se muere.
 
-Aka asintió de forma apenas perceptible.
+Aka asintió de forma casi imperceptible.
 
 —Sí.
 
-Esta vez Han Jiwoo señaló la junta auxiliar de abajo a la izquierda del casco, un poco apartada del armazón principal. A simple vista no parecía un lugar importante. Estaba empujado fuera del centro, casi sin recubrimiento, y tampoco se encargaba directamente del empuje.
+Esta vez Han Jiwoo señaló la junta auxiliar de la parte baja izquierda del casco, un poco desviada del armazón principal. A simple vista no parecía un sitio importante. Quedaba apartada del centro, casi sin revestimiento, y tampoco era la que se encargaba directamente del empuje.
 
-Pero, mirando de cerca, solo esa parte seguía con la veta aún sin cortarse del todo.
+Vista de cerca, era la única parte donde la veta aún no se había cortado del todo.
 
-—Aquí —dijo ella—. Lo primero que debe aguantar no es lo que más se mueve, sino lo que más tiempo no se derrumba.
+—Aquí.
+Lo dijo ella.
+—Lo primero que tiene que aguantar no es lo que más se va a mover, sino lo que más tiempo va a tardar en derrumbarse.
 
-Sion, al oír eso, miró a Aka.
+A Sion le pareció haber oído eso en alguna parte.
 
-Aka miraba a Han Jiwoo más que al casco. Y dijo muy bajo.
+Unos días antes, Harún, al repartir a la gente en tres grupos, había reforzado primero las vías de salida. Cuando le preguntaron por qué hacía eso primero, dijo que, si se dejaba para después, habría que hacerlo donde ya estuviera bloqueado.
 
-—Ahora sí sabes ver.
+Era lo mismo. Que lo que parece más urgente no es lo primero que hay que hacer.
 
-Aquellas palabras sonaban tanto a elogio como a confirmación.
+A Sion le pareció raro que quien arregla barcos y quien defiende una ciudad dijeran lo mismo. Luego se corrigió: no era raro. Las dos eran manos que habían visto derrumbarse cosas durante mucho tiempo.
 
-Sion, sin razón, tomó aire una vez.
+Sion, al oír aquello, miró a Aka.
 
-Pudo notar que ese instante era más importante de lo que parecía. Salvar el casco entero quedaba aún lejos. Pero si se elegía mal el primer lugar, después ya no quedaba nada.
+Aka miraba a Han Jiwoo más que al casco.
+Y habló muy bajo.
 
-Aka levantó con cuidado el molde receptor recién hecho y lo acercó a la junta auxiliar que había elegido Han Jiwoo. No lo fijó del todo. Como quien primero observa la veta, solo ajustó la posición muy ligeramente.
+—Ahora sí que sabes ver.
 
-—Si aguantas primero aquí —dijo Han Jiwoo en voz baja—, más adelante, al ir hacia el centro, podrás repartir el peso.
+Aquello sonó tanto a elogio como a confirmación.
 
-—Y la brasa también se asusta menos ahora —añadió Aka.
+Sion tomó aire una vez, sin saber bien por qué.
 
-Sion, al oír eso, sin darse cuenta envolvió con más cuidado la brasa en su mano.
+Salvar el casco entero aún quedaba lejos. Pero, si se elegía mal el primer punto, después ya no habría nada. El único punto que eligieran ahora decidía todo lo demás.
 
-Cierto. El criterio de ahora no era solo el casco, sino también la brasa. Había que mirar a la vez dónde se inquietaba menos este fuego, dónde se empeñaba menos en morir.
+Aka levantó con cuidado el molde receptor que acababan de hacer y lo acercó a la junta auxiliar que había elegido Han Jiwoo. No lo fijó del todo. Como quien mira primero la veta, solo ajustó la posición, muy a la ligera.
+
+—Si aguanta aquí primero,
+Han Jiwoo lo dijo en voz baja.
+—Luego, cuando vayamos al centro, se podrá repartir el peso.
+
+—Y la brasa, ahora, también se asusta menos.
+Lo añadió Aka.
+
+Ante eso, Sion envolvió sin darse cuenta con más cuidado la brasa que tenía en la mano.
+
+El criterio ahora no era solo el casco. También había que mirar dónde se inquietaba menos este fuego, dónde tendía menos a morirse. Era un trabajo en el que había que preguntar a los dos: a lo que se fija y a aquello en lo que se fija.
 
 Aka miró a Sion.
 
-—Como antes —dijo—. Despacio.
+—Como antes.
+Lo dijo ella.
+—Despacio.
 
-Sion asintió con la cabeza.
+Sion asintió.
 
-Se puso cerca del casco. Estaba mucho más tenso que cuando había bajado la mano ante el pequeño molde receptor sobre la placa de metal. Esta vez era el casco de verdad. Aquí no había un molde de prueba, sino el cuerpo al que de verdad tendría que colgar la brasa en adelante.
+Se colocó cerca del casco.
+Estaba mucho más tenso que antes, cuando había bajado la mano ante el pequeño molde receptor sobre la placa de metal. Esta vez era el casco de verdad. Esto no era un molde de prueba, sino el cuerpo donde, de ahora en adelante, habría que colgar de verdad la brasa.
 
 Bajó la mano muy despacio.
 
-Cuando se acortó la distancia entre la brasa y el casco, fue el molde receptor lo primero en reaccionar. La veta de eterita turbia se bebió la luz muy lentamente, y el fino hilo de junta tembló de forma minúscula.
+Cuando se acortó la distancia entre la brasa y el casco, el primero en reaccionar fue el molde receptor. La veta turbia de eterita se fue bebiendo la luz despacio y el fino hilo de unión tembló apenas.
 
-Y después, dentro de la junta auxiliar del casco, una veta de metal que se creía muerta hacía mucho tembló tan débilmente que apenas se podía advertir.
+Lo que vino después importaba más. Dentro de la junta auxiliar del casco, una veta de metal que daban por muerta hacía mucho tembló, tan débil que casi no se notaba.
 
 Sion contuvo el aliento.
 
-Los ojos de Han Jiwoo también captaron eso al instante.
+Los ojos de Han Jiwoo también lo captaron al instante.
 
-—¿Lo viste? —dijo ella en voz baja.
+—¿Lo viste?
+Lo dijo ella en voz baja.
 
-—Sí —respondió Sion casi al mismo tiempo.
+—Sí.
+Sion respondió casi al mismo tiempo.
 
-Aka seguramente lo había visto antes que los dos. Pero no añadió palabra de inmediato.
+Aka seguramente lo había visto antes que los dos.
+Pero no añadió nada enseguida.
 
-En su lugar dio un paso más cerca y ajustó muy levemente la distancia entre el borde del molde receptor y la junta del casco.
+En cambio, se acercó un paso más y ajustó muy poco la separación entre el borde del molde receptor y la junta del casco.
 
-—Aquí todavía hay mucho —dijo en voz baja—. Rastro de muerte.
+—Aquí todavía hay mucho.
+Lo dijo en voz baja.
+—Rastro muerto.
 
 Han Jiwoo respondió breve.
 
 —Por eso no se puede ir más allá.
 
-Aka asintió con la cabeza.
+Aka asintió.
 
-Sion no se movió más desde esa distancia. La mano no le temblaba, pero temía que el sentido se le embotara si aguantaba demasiado. Ahora una diferencia mínima podía cambiarlo todo.
+—¿Por qué no se puede ir más allá si hay mucho rastro muerto?
+
+Lo preguntó Sion.
+
+—Cuando algo vivo se le acerca, se escapa hacia ese lado.
+
+Lo dijo Aka.
+
+—Lo muerto no frena. Solo lo recibe y lo deja escurrir.
+
+Ante eso, Sion se miró la mano.
+
+Así que un punto muerto no era un muro, sino un agujero. No era que al acercarle algo no pasara nada: se escapaba tanto como se le daba.
+
+—¿Y entonces esto, todo este tiempo?
+
+—Se ha estado escapando sin parar.
+
+Sion tragó aire una vez.
+
+Durante días lo había llevado encima mirando solo que no se muriera. Había creído que no morirse era no menguar.
+
+Sion no se movió más de esa distancia.
+La mano no le temblaba, pero le daba miedo que, si aguantaba mucho, el tacto se le embotara. Ahora una diferencia mínima podía cambiarlo todo.
 
 Aka volvió a hablar.
 
 —Solo un poco más.
 
-Sion bajó la mano apenas lo que dura una sola inspiración.
+Sion bajó la mano solo lo que dura, de verdad, una inspiración.
 
-En ese instante, la eterita turbia dentro del molde receptor retuvo una luz un poco más honda que al principio, y dos vetas de metal dentro de la junta auxiliar se enlazaron brevemente.
+La eterita turbia del interior del molde receptor retuvo una luz algo más honda que al principio, y dos vetas de metal dentro de la junta auxiliar se enlazaron un instante.
 
-No relampagueó. Casi no hubo sonido.
+No hubo destello y apenas hubo sonido. Pero una línea interior que creían cortada se enlazó, sin duda, por un instante.
 
-Pero, sin duda, una línea interior que se creía cortada se enlazó muy brevemente.
+Han Jiwoo soltó el aliento por lo bajo.
 
-Han Jiwoo soltó el aliento en voz baja.
+—Pegó.
 
-—Se pegó.
+Sion no pudo rebatirlo enseguida.
 
-Sion no pudo refutarlo de inmediato.
+No había pegado del todo. Tampoco había revivido lo bastante para moverse.
 
-No se había fijado del todo. Tampoco había revivido lo bastante como para moverse.
+Pero lo que acababa de pasar quería decir que, por primera vez, el interior del casco no había rechazado del todo la brasa.
 
-Pero lo que acababa de ocurrir era, sin duda, la señal de que, por primera vez, el interior del casco no había expulsado del todo a la brasa.
-
-Aka dijo muy bajo.
+Aka habló muy bajo.
 
 —Hasta ahí.
 
-Sion detuvo la mano de inmediato. Tenía ganas de seguir un poco más, pero esta vez ya sabía cuán peligrosa era esa codicia.
+Sion detuvo la mano al instante.
+Tenía ganas de ir más allá, pero esta vez ya sabía lo peligrosa que era esa codicia.
 
-Aka, dejando el molde receptor tal cual, sin poner la mano en la junta auxiliar del casco, leyó largo rato solo con los ojos.
+Aka dejó el molde receptor como estaba y, sin tocar la junta auxiliar del casco, la leyó largo rato solo con los ojos.
 
-—Lo recuerda —dijo.
+—Se acuerda.
+Lo dijo ella.
 
 Sion preguntó en voz baja.
 
-—¿El qué?
+—¿De qué?
 
-—El modo en que pasaba —respondió Aka—. No lo ha olvidado del todo.
+—De cómo pasaba.
+Así respondió Aka.
+—No lo ha olvidado del todo.
 
-Esa frase le golpeó el pecho a Sion de un modo extrañamente fuerte.
+Al oír eso, Sion volvió a mirar el casco.
 
-Que el camino no había muerto del todo, que quedaba un punto enfriado, la sensación de que la brasa recordaba.
+Esto era un barco. Alguien lo había construido, alguien había viajado en él, había ido a alguna parte y se había detenido aquí. Cuántos años habían pasado desde entonces, nadie se lo había dicho.
 
-Todo aquello, al final, era una sola cosa.
+Olvidar también era un trabajo. Había ido soltando por orden lo que no usaba, y en la medida en que soltaba, los caminos se borraban.
 
-Este casco, este camino, no se hacían de nuevo del todo desde cero, sino que apenas se les hacía recordar otra vez el modo por el que una vez habían pasado.
+Pero no había podido borrarlo todo.
+
+Sion no sabía si eso era un consuelo o no. Si se hubiera borrado todo, no habrían llegado hasta aquí, y sin llegar hasta aquí, tampoco existiría todo este esfuerzo.
+
+Aquella frase le golpeó el pecho a Sion con una fuerza extraña.
+
+Que el camino no había muerto del todo, que quedaba un punto enfriado, y la sensación de que la brasa recordaba algo: todo era una sola cosa.
+
+Con este casco y con este camino, se trataba de hacerles recordar a duras penas el modo en que una vez habían pasado.
+
+Sion pensó que quizá eso era más difícil que construir. Lo que no existe, si se levanta de nuevo, se levanta como uno quiere. Para que algo que existió vuelva a recordar, uno tiene que saber primero cómo era al principio.
 
 Han Jiwoo murmuró muy bajo.
 
@@ -152,15 +211,21 @@ Han Jiwoo murmuró muy bajo.
 
 Aka no asintió enseguida.
 
-En su lugar, mirando una junta más honda dentro del casco, dijo.
+En cambio, habló mirando una junta más honda dentro del casco.
 
-—Aún lejos —dijo—. Pero ya no es un cuerpo muerto.
+—Aún falta mucho.
+Lo dijo ella.
+—Pero ya no es un cuerpo muerto.
 
-En el instante en que cayeron esas palabras, Sion sintió que la brasa en su mano estaba, de forma muy minúscula, menos tensa que al principio.
+En el instante en que cayeron esas palabras, Sion sintió que la brasa de su mano estaba apenas un poco menos tensa que al principio.
 
-Fue un cambio realmente pequeño. Pero aquí ese era el mayor avance.
+Fue un cambio realmente pequeño. Aquí, ese era el mayor avance.
 
-Por primera vez, este pequeño fuego sostuvo un lugar de la nave sin dejar que se enfriara del todo.
+Después de retirar la mano, Sion miró largo rato aquel punto. Por fuera no había cambiado nada. El revestimiento pelado seguía igual, y lo desgarrado también.
+
+Lo que había cambiado era un solo punto que no se veía. Pero, sin ese punto, todo lo demás no servía de nada.
+
+Por primera vez, este pequeño fuego sostuvo un punto de la nave sin dejar que se enfriara.
 
 ---
 

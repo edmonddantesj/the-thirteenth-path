@@ -1,447 +1,481 @@
 # Episode 01. Burned Name
 
-Only things that arrived too late ever came to the Alliance Outer Route Administration dock.
+Only things that had arrived too late ever came into the dock of the Alliance Outer Route Administration.
 
-Post-war salvage ships, half-burned record cases, ownerless storage capsules, relics whose owners' names no longer survived. The world's glory was spent elsewhere; what drifted this far was always just the failure left behind.
+Post-war salvage ships, half-burned record cases, storage capsules that had lost their owners, keepsakes that no longer carried even the name of whoever they had belonged to. The world's glory was written somewhere else; what got pushed this far out was always the failure left behind.
 
-Sion Lapis sat crouched in the middle of those failures. His dark blue work coat was already streaked with dust, the tips of his gloves faded from metal powder. He'd been turning over a storage case with its retrieval tag half-torn off, scraping black soot from the inner corner with his fingernail.
+Sion Lapis was crouched in the middle of those failures. The sleeves of his dark indigo work coat were already stained with dust, and the fingertips of his gloves had gone pale with metal powder. Half the lights in this section were dead, and still he didn't switch on his work lamp. He didn't need to.
 
-"Hey, Bloodhound. That one's already marked for disposal."
+He turned over a storage case whose retrieval tag had been half torn off, and scraped at the black soot left in its inner corner with a fingernail.
 
-Sion didn't look up at the voice behind him. Things marked for disposal rarely turned out to be actually finished. Not at this outer route bureau, at least — here, things shoved in as finished outnumbered the real thing.
+Footsteps came in from the passage behind him. Sion's ears turned toward them first. The rest of him stayed where it was.
 
-He tilted the case toward the light. Plenty of burn marks — but one side was strangely too clean. Too hasty for something erased, too obvious for something casually pushed aside.
+"Hey, Bloodhound. That one's already stamped for disposal."
+
+Sion didn't raise his head. Being stamped for disposal had rarely meant a thing was really over. At this Outer Route Administration, at least, more things had been shoved in pretending to be over than had actually ended.
+
+The footsteps didn't stop; they went on past. From the far end of the passage, another voice picked it up.
+
+"That sealed job come up yet?"
+
+"Sent it down to the ragpicker."
+
+"Then that's handled."
+
+Sion didn't look that way either. Bloodhound was a word people said to your face, so it ended the same day; ragpicker was a word that went into the paperwork, so it got passed on to the next person.
+
+He tilted the case back toward the light. There were plenty of burn marks, yet one side was oddly too clean. Too hasty for something erased, too blatant for something just shoved aside.
 
 "Lapis."
 
-Kasern Idor's voice was soft, as always. Sion knew that softness was usually the signal just before dumping something tedious on him.
+Kasern Idor's voice was soft, as always. Sion knew that softness was usually the signal right before some tedious job got dumped on him.
 
-He answered without taking his hand off the case.
+Sion answered without taking his hand off the case.
 
-"What now."
+"What is it this time."
 
-Kasern didn't lower his voice even as he came closer. Kind expression, as always — and therefore a more exhausting face.
+Kasern Idor didn't lower his voice even when he came close. His expression was kind, as it always was, and that made it a more tiring face.
 
-"Simple retrieval job."
+"A simple retrieval job."
 
-Sion finally looked up. Nothing Kasern called simple had ever actually been simple.
+Only at that did Sion finally raise his head. Of all the jobs Kasern had called simple, not one had ever actually been simple.
 
-The supervisor held out a thin transfer pad. The surface showed only a retrieval point, a temporary seal number, and a disposal inspection request field. Suspiciously short. Short paperwork usually didn't mean someone had trimmed the tedious parts — it meant they'd never written them at all.
+The supervisor held a thin transfer pad out toward Sion. The surface showed only a retrieval point, a temporary seal number, and a field requesting disposal inspection. It was strangely short. Short paperwork more often meant not that someone had trimmed out the tedious parts in advance, but that no one had written them at all.
 
-"Something that came over from the neutral port city side. Too messy to push back up the main line."
+"It came over from the neutral port city side, but it's a bit too messy to send back up the home line."
 
-"Messy things always come here."
+"Messy things always end up here, don't they."
 
-"That's why I'm giving it to you."
+"Which is why I'm giving it to you."
 
-Sion took the pad and skimmed it. The retrieval route had been cut twice, and one origin code was blank. At this point the paperwork was more suspicious than the goods.
+Sion took the pad and skimmed it. Even a skim snagged on two or three spots. At this point the paperwork was more suspicious than the salvage.
 
-He asked without putting the pad down.
+He asked without even lowering the pad.
 
-"If I take this, will you ask me later why I touched it?"
+"If I take this on, are you going to ask me later why I touched it, again?"
 
-Kasern smiled softly.
+The supervisor smiled softly.
 
-"Lapis, you always talk like that. Just finish the disposal inspection. No need to go sniffing around."
+"Lapis, you always talk that way. Just finish the disposal inspection. No need to go sniffing around."
 
-Someone in the back of the dock laughed. Sion didn't. If it were a job that didn't need sniffing, Kasern wouldn't have carried it over himself.
+Someone at the back of the dock laughed at that. It was a laugh that mimicked a snuffling nose. Sion didn't laugh along, and he didn't turn his face that way either. Turn once, and next time they laugh louder.
 
-Kasern stepped back and added:
+This dock was the lowest place in the Administration. Get pushed one step further from here, and the next stop was outside the door.
 
-"Finish it today. And don't create problems."
+Sion had been as far as that door once. He knew what had been written in the paperwork then, too. Does not trust procedure. Once that single line was attached to you, whatever you said afterward, that line got read first.
 
-Instead of answering, Sion turned the pad back on. The field marker below the temporary seal number was smudged, but one final line was clear.
+And yet Kasern had brought this down in his own hands. If it were a job that needed no sniffing around, he wouldn't have come all the way down to the lowest place himself.
 
-**Retrieval priority. Record reclassification on hold.**
+The supervisor took a step back and added,
 
-The moment he read that line, Sion's brow slowly tightened.
+"Get it done today. And don't go making trouble for nothing."
 
-Usually it was the other way around. Classify the record first, set retrieval priority later. But this one read like an instruction to grab it first and bury it — without checking what it was.
+Instead of answering, Sion switched the pad back on. The site marker below the temporary seal number had bled into a blur, but the last line alone was sharp.
 
-Sion closed the pad and muttered.
+**Retrieval first. Record reclassification on hold.**
 
-"I get that it's a hassle… but why close it this fast?"
+The moment he read that sentence, Sion drew his brows together, very slowly.
 
-Someone pressed a fingertip against the edge of the pad from beside him.
+Sion closed the pad and muttered under his breath.
 
-"Don't file it."
+"I get that it's a pain… but why shut it this fast?"
 
-Seorin Kael was standing next to him — no telling when she'd arrived. Dock dust sat on the ends of her short-tied hair, and as always, her expression was tired but her eyes were perfectly awake.
+Beside him, someone pressed a fingertip to the edge of the pad.
+
+"Don't put it away."
+
+Seorin Kael was standing beside Sion; he couldn't have said when she'd arrived. A little dock dust had settled even on the ends of her short-tied hair, and as always her expression was tired while her eyes were perfectly clear.
 
 Sion asked without letting go of the pad.
 
-"Still haven't fixed that habit of getting into other people's business?"
+"Still haven't broken that habit of putting your hands in other people's work?"
 
-"It's not other people's business. It's going to be yours anyway."
+"It's not other people's work. It's going to end up yours again anyway."
 
-Seorin half-snatched the pad from his hand and scanned the screen. She didn't read fast, but her eye for catching the wrong thing was annoyingly more precise than his.
+Seorin took the pad from his hand, half snatching it, and ran her eyes over the screen. She didn't read fast, but her eye for spotting what was off was even more annoyingly precise than Sion's.
 
-A moment later, one eyebrow rose — barely.
+A moment later, she raised one eyebrow, very slightly.
 
-"Wow. Zero effort."
+"Wow. Not even trying."
 
 "What."
 
-"Retrieval route cut twice, origin code blank, reclassification on hold." She tilted the pad toward him. "This isn't paperwork. It's someone who got tired and half-folded it before tossing."
+"Retrieval route cut twice, origin code blank, and reclassification on hold." Seorin tilted the pad toward Sion to show him. "This isn't paperwork. This is something somebody got bored with, folded in half, and threw."
 
-Sion laughed quietly.
+"This is the only place to throw it."
 
-"That's exactly what I just thought."
+"Right. Write one line saying it went to the ragpicker, and nobody ever opens it." Seorin didn't take her eyes off the pad. "Up there, that counts as closed."
 
-Seorin didn't laugh. Instead, she tapped the last line.
+Sion laughed low.
 
-**Retrieval priority. Record reclassification on hold.**
+"That's exactly what I was just thinking."
+
+Seorin didn't laugh. Instead she tapped the last line with a fingertip.
 
 "This is worse."
 
 "Why."
 
-"Normally you check the record first. This says grab it without checking what it is, and close the file."
+"Normally they look at the record first. This means grab it and close it without even checking what you've brought in."
 
-Sion looked at her in silence. Seorin didn't look away.
+Sion looked at Seorin without a word. Seorin didn't avoid his gaze either.
 
-"You're hooked again."
+"You took the bait again."
 
-"Not yet."
+"I haven't bitten yet."
 
-"Sure. But your face already is."
+"Sure. But your face already has."
 
-When Sion reached for the pad, Seorin let go this time — but tossed one last thing.
+When Sion reached to take the pad back, Seorin let go easily this time, but tossed out one last thing.
 
-"You're going all the way with this one too, aren't you?"
+"You're going all the way on this one too, aren't you?"
 
-Sion didn't answer. Seorin had known for a long time that his silence was the answer.
+Sion didn't answer.
 
-She let out something between a sigh and a laugh.
+Seorin didn't wait for an answer either. She was already pulling off her gloves and stuffing them into a pocket.
 
-"Great. So much for clocking out."
+"Guess I'm not clocking out, then."
 
----
+The salvage had been pushed off on its own into the very last bay of the temporary seal zone, deep inside the dock. Things that couldn't make it onto the formal sorting table, yet felt too wrong to send straight to the disposal line, always piled up that way.
 
-The retrieval item had been pushed to the very last slot of the temporary seal zone, deep inside the dock. Things too uncertain for formal classification but too suspicious for the disposal line always piled up like that.
+When Sion stripped off the temporary seal tape, an old metal box, two half-crushed storage capsules, and a few pieces of burned record panel came into view. Nothing special to look at. If anything, they were so ordinary it put him in a worse mood.
 
-When Sion removed the temporary seal strip, a battered metal box, two half-crushed storage capsules, and a few burned record fragments appeared. Nothing remarkable on the surface. So unremarkable it felt worse.
+Seorin pulled on her gloves first and said,
 
-Seorin was already pulling on her gloves.
+"At this point it's just disposal scrap, nothing left but the shell."
 
-"This looks like empty shells. Disposal-grade scrap."
+"Yeah." Sion ran a finger along the side of the metal box, then stopped. "So why retrieval first?"
 
-"Yeah." Sion ran a finger along the side of the metal box, then stopped. "So why is it retrieval priority?"
+He lifted the box a little and tipped it to the light. The outer identification stamp had been ground off, and the spot where the original code should have been was wiped smooth. The trouble was that the smoothness looked too new. Not old wear, but a surface scrubbed away recently and in a hurry.
 
-He lifted the box slightly and angled it toward the light. The external identification stamp had been filed off, and the slot where the origin code should have been was smoothly wiped clean. The problem was that the smoothness looked too new. Not the wear of age — the surface of something recently scrubbed away in a hurry.
+Seorin came close and looked in with him.
 
-Seorin leaned in to look.
+"Somebody ground this off."
 
-"Someone ground this off."
+"Yeah. And in a hurry."
 
-"Yeah. And fast."
+This time Sion picked up one of the crushed storage capsules. On its side, apart from the cracks from the retrieval impact, there was one more line, drawn thin and long. It looked like the trace of a security seal forced open. The grain of it said someone hadn't retrieved the record inside whole, but had pulled it loose in a hurry and closed the leftover shell back up.
 
-Sion picked up one of the crushed capsules. Along its side, beyond the crack from retrieval impact, there was one more line — thin and long. It looked like a security seal forced open. Not someone retrieving the entire record inside, but someone who'd hastily separated it, then closed the empty shell back up.
+Seorin swore briefly.
 
-Seorin cursed quietly.
+"So they opened it once and shut it again."
 
-"Opened and re-closed."
-
-"No." Sion turned the capsule slowly in his palm. "Started to open and couldn't finish."
+"No." Sion slowly turned the capsule in his palm. "They tried to open it and stopped."
 
 "There's a difference?"
 
-"Big one." Sion scraped the dark residue at the crack's edge with his fingernail. The dust-like flakes caught the light briefly. "Either they needed to open it and couldn't finish — or they didn't want to open it but were forced to try."
+"A big one." Sion scraped at the black residue along the edge of the crack with his fingernail. The flakes fell away like powder and glinted briefly in the light. "Either they had to open it and couldn't get all the way, or they didn't want to open it and got forced into touching it."
 
-Seorin moved her hand toward the record fragments instead of answering. Touching the edge of the burned panel surface, she paused — just for a moment.
+Instead of answering, Seorin moved her hand to the pieces of record panel. She was putting a fingertip to the edge of a burned panel face when she stopped, just for a moment.
 
 "Sion."
 
 "What."
 
-"This wasn't just burned…"
+"This isn't burned, it's…"
 
-She lifted the fragment. Beneath the blackened, crusted surface, a line too clean to be fire damage was exposed. The edge eaten by flame and a cross-section cut as if with a blade — both on the same piece.
+Seorin lifted the piece. Beneath the blackened, scorched-on surface, a single line, cut far too straight, showed through. The edge the flames had eaten and a cross-section that looked carved out with a blade sat together on the one panel.
 
-Sion's expression changed for the first time — openly.
+For the first time, the look in Sion's eyes changed openly.
 
-Seorin handed the fragment to him and said, low:
+Seorin handed the piece to him and said in a low voice,
 
-"Someone didn't burn it to destroy it. They destroyed it, then burned it."
+"Nobody burned it to get rid of it. They got rid of it, then burned it."
 
-Sion took the fragment without a word. The sensation against his fingertips was light and rough, but it felt strangely like something hiding too much.
+Sion took the piece without a word. It felt light and rough against his fingertips, yet strangely it felt like an object hiding far too much.
 
-From the far side of the dock, the dull sound of a retrieval crane moving. A sound he'd normally ignore — but in that moment, it felt like an interruption.
+On the other side of the dock, the sound of a retrieval crane moving rang dully. A noise he would normally have let pass, but at that moment it sounded, for no good reason, like an interruption.
 
-Without taking his eyes off the fragment, he said:
+Without taking his eyes off the piece, Sion said,
 
-"This isn't just cleanup."
+"This isn't just a cleanup job."
 
-Seorin caught it immediately.
+Seorin picked it up at once.
 
 "Which is why they threw it at you."
 
-This time, Sion didn't deny it.
+This time Sion didn't deny it.
 
----
+What broke that short silence was footsteps. Hard shoes, walking fast from the inner dock passage. Less a floor worker's stride than that of someone who had smelled the work getting tangled and come down late.
 
-The silence broke with footsteps. Quick strides from the inner dock corridor — not a fieldworker's walk, but someone who'd caught the scent of a tangle and come down late.
+Kasern Idor stopped in front of the temporary seal zone. His expression was still soft, but his gaze fell first into the open storage case, before it went to Sion's face.
 
-Kasern Idor stopped at the edge of the temporary seal zone. Expression still soft, but his eyes fell first to the inside of the opened case — not to Sion's face.
+"Still not finished?"
 
-"Still not done?"
+Sion turned around, deliberately slowly.
 
-Sion turned deliberately slowly.
+"If it were something I could finish, I'd have finished it already."
 
-"If these were the kind of things that could be finished, they'd be finished already."
+The supervisor didn't reply; he swept his eyes over the inside of the storage case once more. The burned pieces of record panel, the scratched storage capsule, the ground-off identification stamp. His eyes hardened exactly once, then eased again.
 
-Kasern didn't respond. He scanned the inside of the case once more. Burned record fragments, scratched storage capsule, filed-off identification stamp. His eyes hardened — just once, very briefly — then relaxed again.
+That alone was enough for Sion. That man had just seen it too.
 
-That was enough for Sion. He'd seen it too.
+Kasern went straight back to his usual voice.
 
-Kasern returned to his usual voice instantly.
+"In that state, there's nothing more to look at. Keep the seal on and pass it to disposal inspection."
 
-"With the condition being what it is, there's nothing more to look at. Maintain the seal and send it to disposal inspection."
+Seorin asked, without a trace of a smile,
 
-Seorin asked without the trace of a smile.
+"A minute ago you said retrieval first."
 
-"A minute ago you said retrieval priority."
+The supervisor didn't so much as look Seorin's way.
 
-Kasern didn't even look at her.
+"As of now, it isn't."
 
-"Not anymore."
+"Why all of a sudden?"
 
-"Why the sudden change?"
+This time it was Sion who asked. Kasern looked at him for a moment, then answered with his usual kind expression.
 
-This time Sion asked. Kasern looked at him for a moment, then answered with his usual kind expression.
+"Lapis. A floor worker just needs to act like a floor worker. Don't go sniffing after nothing. Close the file."
 
-"Lapis. Fieldworkers move like fieldworkers. Stop sniffing around. Close the file."
-
-Before he finished speaking, Kasern reached to close the case lid himself.
+Before the words were even finished, the supervisor reached out to close the lid of the storage case himself.
 
 Sion's hand pressed down on it first.
 
-Their eyes met briefly.
+Their eyes met.
 
-Kasern was still smiling — but this time, the smile held nothing soft.
+Kasern was still smiling, but this time there was nothing soft in it at all.
 
 "That's far enough."
 
-The overhead dock light flickered once. In the distance, the dull sound of metal cases stacking. Through that brief noise, Sion heard something far more clearly.
+The light above the dock flickered once. Far off, the sound of metal boxes being stacked rang dully. Through that brief noise, Sion understood it all the more clearly.
 
-This wasn't something being hidden. This was something someone had already checked — and gotten scared of.
+This wasn't an object that had to be hidden; it was an object someone had already checked one more time, and taken fright at.
 
-No one spoke immediately after Kasern turned away. Seorin murmured first.
+Even after Kasern turned away, nobody spoke right away. Seorin was the first, muttering low.
 
-"Nice. Now the higher-ups are sniffing too."
+"Nice. Now the top floor's caught the scent too."
 
 "No."
 
-Sion's answer was short.
+Sion answered.
 
 "That's not the reaction of someone catching a scent."
 
 Seorin looked at him.
 
-Sion slowly lifted his hand and said:
+Sion slowly took his hand away and said,
 
 "That's the reaction of someone who already knows what it is."
 
-Brief silence.
+A short silence.
 
-Seorin laughed — like a sigh.
+Seorin laughed, almost a sigh.
 
-"Then it's worse."
+"Then it's even worse."
 
-Sion reopened the case. His movements were much faster than before.
+Sion opened the storage case again. He moved much faster than before.
 
-"We need to go to the site."
+"I need to go to the site."
 
-"Neutral port city?"
+"The neutral port city?"
 
 "Yeah."
 
-"If you go now, you'll take the fall again."
+"Go now and you'll take the fall again."
 
-Sion carefully slipped one of the burned fragments into his retrieval pocket.
-It wasn't the sensation of picking up an object. It was closer to the sensation of putting your hands on something that had been hastily cut away, hastily burned, and yet never fully pushed beyond the scene.
+Sion carefully slipped one of the burned pieces into his retrieval pocket.
+After putting it in, he pressed once on the outside of the pocket. Thin. Someone had laid hands on something this thin twice to get rid of it. Once to cut it out, once to burn it.
 
 "If I stay here, it's already buried."
 
-Seorin didn't try to stop him again. Instead, she pulled her gloves back on and asked:
+Seorin didn't try to stop him any further. Instead she pulled her gloves back on right away and asked,
 
 "Transport?"
 
-Sion exhaled briefly.
+Sion let out a breath.
 
-"We'll find one. This time, the smell is real."
+"Have to go find some. This time it smells like real trouble."
 
----
-
-The bureau's official transit line wasn't particularly fast. More precisely, it was structured not to need speed. Reports went up, authorization came down, outer-passage clearances were re-stamped, transfer dock assignments reshuffled — and during all of that, the scene always had time to cool one more degree.
-
-Sion knew this well. Trips to places like the neutral port city — where the Empire and the border living zones reached toward each other — were even worse. Two days by official line, three if unlucky. In that time, names being erased and records being closed was hardly rare in this world.
-
-So even as he stood before the bureau's internal terminal, he was scrolling not through authorization request windows but through the outer cargo belt transfer schedules.
+The Administration's official transit line was built with no need to be fast. While the report went up and the approval came down, the site would close several times over. Even standing at the terminal, Sion was paging not through the approval request window but through the outer cargo belt transit tables.
 
 Seorin asked from beside him.
 
-"Pretending to cut the official line?"
+"Pretending to book the official line, at least."
 
-"Not pretending. Leaving a trail."
+"It's not pretending. It's leaving a trace."
 
-Sion answered briefly, then opened the request window. He paused the cursor at the top of the input field, then typed in a familiar hand.
+Sion answered, then opened the request window. He set the cursor at the very top of the input field and paused a moment, then typed the sentences in with a practiced hand.
 
-**Request for origin cross-check on classification-hold item. Identification code inconsistency and retrieval route gaps. On-site verification of retrieval linkage required.**
+**Request for origin cross-check on classification-hold item. Identification code mismatch and gaps in retrieval route. On-site verification of retrieval link line required.**
 
-Seorin read the screen and scoffed.
+Seorin read the screen and snorted.
 
-"Sounds convincing."
+"Sounds plausible."
 
-"It's not wrong either."
+"It's not wrong, either."
 
-"That's what makes it annoying."
+"Which makes it more irritating."
 
 Sion typed the next line.
 
-**Auxiliary inspection personnel: 1. Post-site cross-check reclassification scheduled.**
+**One auxiliary inspector accompanying. Reclassification to follow on-site cross-check.**
 
-Seorin read it and slowly raised her head.
+Seorin read that sentence and slowly raised her head.
 
 "Who's the auxiliary inspector?"
 
 "Bloodhound's assistant."
 
-"Bloodhound is your nickname, not your title."
+Seorin's hand stopped over the screen.
 
-"At this bureau, it's close enough."
+"Don't you start using that word too."
 
-Seorin let out a hollow laugh.
+"Why."
 
-"Nice. Official title: ragpicker. Unofficial title: bloodhound."
+"When you use it, they get more comfortable using it."
 
-Sion murmured as he sent the request.
+Sion didn't stop typing.
 
-"Such a way with words."
+"That's why I use it, so they get comfortable. People whose mouths get comfortable get comfortable making mistakes, too."
 
-Both of them laughed briefly — but their hands never stopped.
+Seorin didn't answer. She only took her hand off the screen and filled in the field Sion hadn't filled yet.
 
-When the send button went through, a pending-authorization notice appeared. Small gray text scrolled at the bottom.
+**Auxiliary inspector: Seorin Kael.**
+
+"I write my own name."
+
+Sion looked at that field for a moment. With one name, only he was on the hook. With two, both of them were.
+
+Tell her to delete it, and Seorin was the kind who would write it bigger.
+
+Sion pressed send.
+
+When he pressed the send button, an approval-pending notice came up. Small gray text ran along the bottom of the screen.
 
 **Estimated wait time: 7 hours 40 minutes**
 
-Seorin clicked her tongue.
+Seorin saw the number and clicked her tongue.
 
-"Great. The site will have closed three more times by then."
+"By then the site will have closed at least three more times."
 
-"That's why we only pretend to wait."
+"That's why I'm only pretending to wait."
 
-Sion minimized the screen and reopened the outer cargo transfer schedule. Official retrieval vessel, designated supply line, border patrol circuit, outer cargo transfer shuttle. Only three lines could reach the neutral port city's access zone within the day.
+Sion opened the list of outer cargo transfer lines. Three reached it within the day, and two of those were no use.
 
-One was too late. One was a route that would likely have upper-level surveillance attached. The last was classified as a waste collection vessel — but its mid-route transfer records were suspiciously blank far too often. It looked like a path built not for people but for moving things sideways, and for exactly that reason, it was faster.
+"Bottom one, then."
 
-"Bottom of the list."
+Seorin said it first.
 
-Seorin spoke first.
+"Yeah." Sion nodded. "Now that I've put in for an on-site cross-check, going out on a retrieval link line counts as an excuse."
 
-"Yeah." Sion nodded. "Since I've already filed the on-site verification request, taking the retrieval linkage line is a valid excuse."
+"A waste collection ship is a retrieval link line?"
 
-"A waste collection vessel is a retrieval linkage line?"
+"Some days, if the paperwork says so, it is."
 
-"Some days, if you write it that way, it becomes true."
+Seorin looked at Sion's face for a moment, then laughed low.
 
-Seorin looked at his face for a moment, then laughed quietly.
+"You really only get clever in places like this."
 
-"Your brain only works well in situations like this."
+Sion opened the last route's details. The registered weight and the actual load didn't match. This ship carried something other than cargo more often than it carried cargo.
 
-Sion pulled up the last route's details. It was listed as a waste collection vessel, but the registered cargo weight and the actual load were nowhere close to matching. Someone had been using this line not as a transport but as a long-range detour.
+A dock number remained on one side of the screen. 18-B.
 
-He memorized the dock number on one side of the screen. Bay 18-B. Not the main bureau dock but a junction connecting the outer cargo belt to civilian transfer lines. Workers who couldn't get on official lines, cargo slipping off the books, people whose names had grown blurry — they all passed through there at least once.
-
-"So, are we just sneaking on this time?"
+"So, this time we're just stowing away?"
 
 Seorin asked.
 
-"No." Sion closed the terminal. "We pretend to wait, then leave first."
+"No." Sion closed the terminal as he answered. "We pretend to wait, then go first."
 
-"Is there a difference?"
+"There's a difference?"
 
-"A little — later, when someone tries to pin blame."
+"A little, when they try to pin it on us later."
 
-Seorin laughed like a sigh.
+Seorin only snorted. An Administration-grade lawbreaker. That was exactly the smell of it.
 
-She just scoffed. Bureau-grade lawbreaker. That was exactly the scent of it.
+The air outside the dock was colder than inside. External cargo lights bled in between the low steel girders, and far off, a night unloading prep alarm sounded with complete indifference.
 
----
+Sion stopped walking and looked up.
 
-The air outside the dock was colder than inside. Low steel frames let in the glow of external cargo lights, and somewhere in the distance, the evening offloading prep alarm droned on indifferently.
+From where the Administration's upper bulkheads ended, outer route beacons hung in rows. The spacing between them wasn't as even as regulation called for. The inner three rows were dense; farther out they spread apart, and past a certain point there was nothing at all. What lay beyond that empty stretch didn't appear on any Administration chart. Ships that went out that far had, on paper, never come back, or had come back and not come in here.
 
-Sion looked toward the dark corridor leading to Bay 18-B and said, quietly:
+Beyond that, it was simply black. The stars were much farther away than the beacons, and much quieter.
 
-"The official line is slow. The more it leads toward neutral territory, the slower it gets. With things like this — arriving late is always the end."
+Seorin looked up with him. Then she was the first to lower her eyes.
 
-Seorin fell into step beside him.
+"Show off your night vision later."
 
-"Good. Then let's go do our on-site cross-check, Bloodhound."
+Sion looked down the dark passage toward 18-B and said quietly,
 
----
+"The official line is slow. Slower the closer the route gets to neutral space. With things like this, it always turns out that arriving late is the end."
 
-Bay 18-B sat half-pushed out of the main bureau's lighting. Unlike the front docks where official supply ships came and went, this side always collected shadows before light. Waste collection vessels, outer-route worker shuttles, cargo that only got named after cleanup was done — they all used this side.
+Seorin fell in at his side.
 
-Sion actually felt more comfortable in places like this. Clean places usually told clean lies; dirty places at least tended to be careless about hiding.
+"Let's go. On-site cross-check."
 
-As they reached the bay entrance, Seorin slowed first.
+Then, a beat later, she added,
+
+"…Lapis."
+
+Sion didn't respond. But his step slowed, just for a moment.
+
+Unloading Bay 18-B sat half pushed out of the light of the Administration's main building. Unlike the front docks where official supply ships came and went, this side always piled up shadow before light. Waste collection ships, transfer shuttles for outer-route laborers, cargo that got a name only after it had been sorted: those were mostly what used this side.
+
+Sion found places like that easier on the mind. Clean places usually lied cleanly, too; dirty places, more often than not, didn't even put much effort into hiding.
+
+When they reached the bay entrance, Seorin slowed first.
 
 "Something smells."
 
-"It's a disposal yard."
+"It's a disposal yard, isn't it?"
 
 "Not that."
 
-Instead of answering, Sion lifted his gaze. A few aging cargo lights hung from the bay ceiling, flickering at uneven intervals. Could be poor maintenance. But the workers moving underneath were unnervingly quiet. At this hour there should have been at least one curse word in the air — today, everyone had their mouths shut too tight.
+Instead of answering, Sion lifted his eyes. A few aging cargo lamps hung beneath the bay ceiling, blinking at uneven intervals. It could have been poor maintenance. But the workers moving back and forth underneath were strangely quiet in how they moved. At this hour there should have been at least one curse in the air; today everyone was keeping their mouths shut too tight.
 
-The collection vessel was smaller than expected. The hull paint was peeling, and the cargo bay exterior had layers of old collision marks. But the area around the boarding ramp was strangely clean — like new. Someone had recently worked on only that part.
+The collection ship was smaller than he'd expected. Its paint had peeled, and the outer wall of the cargo hold carried layers of old collision marks. But the area around the boarding ramp alone was strangely clean, as if new. Someone had recently worked on that part and that part only.
 
-Seorin asked low.
+Seorin asked, low,
 
-"Any reason a waste collection vessel would have just that section looking new?"
+"Any reason a waste collection ship would be new only right there?"
 
 "None."
 
-Sion scanned the floor beneath the ramp. Overlapping footprints on the dust. Between the treads of worker boots — the trace of a sole far harder than bureau-issue shoes. Closer to someone from surveillance or enforcement, not fieldwork.
+Sion swept his eyes over the floor below the ramp. Footprints overlapped in the dust. Among the prints of laborers' work boots were the traces of soles much harder than Administration-issue footwear. Not a floor worker's shoes. Soles worn on the surveillance or control side.
 
-He shifted his gaze sideways. The cargo log panel. Arrival time, load weight, temporary classification code — all should have been displayed. The panel surface was on, but several key lines were faintly smudged. Less like something erased — more like a screen someone had been viewing until just now, then closed in a rush.
+He moved his gaze sideways without a pause. The unloading log panel. It was where the arrival time, load weight, and temporary classification code should have been displayed. But while the panel's surface was on, a few key lines alone had blurred faintly. It looked less like an erasure than a screen someone had been reading until a moment ago and then shut in a hurry.
 
 Seorin clicked her tongue.
 
-"Really half-hearted."
+"Really no effort at all."
 
-"Probably didn't have time to be thorough."
+"They probably didn't have time to hide it with any effort."
 
-"Not a good sign."
+"That's not a good sign."
 
-"It was never going to be good."
+"It was never good to begin with."
 
-The two moved closer. Sion didn't slow his pace, but his hand was already resting on the retrieval pocket inside his coat. Nothing he'd call a weapon — but the tools you need when running were always in the same place.
+The two of them moved closer. Sion didn't slow his pace, but his hand was already over the retrieval pocket inside his coat. Nothing you could call a weapon, but at least the tools he'd need to run were always in that spot.
 
-At that moment, a short sound of a metal chain being lowered from above the ramp. Too close. Sion and Seorin stopped simultaneously.
+At that moment, from above the ramp, came the short rattle of someone letting down a metal chain. Too close. Sion and Seorin stopped at the same time.
 
-Someone was watching from above.
+Someone was looking down at them from above.
 
-It lasted only an instant — too brief for certainty — but Sion never missed that kind of sensation. Not the gaze of someone working, but of someone checking who was coming first.
+It was only an instant, too brief to be sure of, but Sion didn't miss that kind of sense. Not the gaze of someone working, but the gaze of someone checking first who was coming.
 
-Seorin said, very small:
+Seorin said, very quietly,
 
-"Safe to go?"
+"We good to go?"
 
-Sion looked at the ramp, the log panel, the worn hull, the too-clean boarding section — one after another — and answered.
+Sion looked in turn at the ramp, the log panel, the worn hull, the boarding section that looked new, and answered.
 
 "We have to."
 
 "Why."
 
-He exhaled briefly.
+He let out a breath.
 
-"The smell here isn't disposal waste. It's something that's been waiting."
+"Here, the smell of something waiting is stronger than the smell of waste."
 
-Seorin didn't ask further. Instead, she shifted one step to the side, clearing Sion's blind spot. Ready to run, fight, or turn — at any moment.
+Seorin didn't ask anything more. Instead she stepped a pace out to the side and cleared Sion's blind spot. So that they could run, fight, or turn back at any moment.
 
-## And Sion walked up the ramp of the collection vessel — a vessel where someone had cleaned up too hastily, and someone else had watched too quietly.
+Sion walked up the ramp.
+
+He didn't look up on the way. If he looked, they would know he had seen.
+
+Instead he pressed on the pocket once more.
+
+Still thin. Something this thin, and the supervisor had carried it down in his own hands.
 
 ---
 

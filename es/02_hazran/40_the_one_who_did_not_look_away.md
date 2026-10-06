@@ -1,180 +1,198 @@
 # Capítulo 40 — La niña que no apartó la mirada
 
-Después de cruzar las lonas interiores, lo primero que cambió no fue la temperatura, sino la textura de las miradas.
+Tras cruzar la lona interior, lo primero que cambió no fue tanto la temperatura como la textura de las miradas.
 
-En el mercado de la capa exterior, lo primero era quién te observaba; en los talleres interiores, quién te juzgaba. Pero aquí era un poco distinto de los dos. La gente del sector interior no miraba de forma descarada, pero tampoco ignoraba del todo. En cambio, retenía la mirada, como si solo lo ya autorizado mereciera ser visto. Y esa contención, paradójicamente, ahogaba todavía más.
+En el mercado de la capa exterior lo primero era quién los miraba, y en los talleres interiores, quién los evaluaba. Pero aquí era un poco distinto de ambas cosas. La gente del sector interior no los miraba con descaro, pero tampoco los ignoraba del todo. En cambio, contenía la mirada como si solo pudiera mirar lo que ya estaba permitido. Esa mirada reprimida resultaba, al contrario, más asfixiante.
 
-El interior de la lona olía exactamente como se había percibido desde afuera. Agua calentada largo rato, hierbas secas, telas cambiadas a menudo, y un aire donde el metal y el calor no se habían disipado del todo. El olor de un lugar hecho para que alguien se quedara mucho tiempo, sin dejarlo nunca del todo a gusto.
+Dentro de la lona olía exactamente a lo que habían olido desde afuera. Agua calentada mucho rato, hierbas secas, telas que se cambiaban a menudo y un aire del que el metal y el calor no se habían ido del todo. Era el olor de un lugar hecho para que alguien se quedara mucho tiempo, pero sin dejarlo del todo cómodo.
 
-Sion, en cuanto dio unos pasos más adentro, sintió que aquello no era una simple sala de espera ni un alojamiento. Tras las telas tendidas como muros había pequeñas estanterías, bidones de agua, paño seco, esteras plegadas y recipientes sellados, y toda esa disposición parecía pensada a la vez para la vida diaria y para la vigilancia. Una estructura que te dejaba vivir, pero que te recordaba sin cesar hasta dónde llegaba tu espacio.
+En cuanto dio unos pasos más hacia dentro, Sion sintió que aquello no era una simple sala de espera ni un alojamiento. Tras las lonas tendidas a modo de paredes había estantes pequeños, bidones de agua, telas secas, esteras plegadas y recipientes sellados, y toda esa disposición parecía pensada a la vez para la vida diaria y para la vigilancia. Una estructura que te dejaba vivir, pero que te hacía saber todo el tiempo hasta dónde llegaba tu sitio.
 
-Nahira entró delante y apartó primero unas cuantas cosas. Más exactamente, bajo el pretexto de despejar el paso, sus manos ordenaban lo que estos podían ver y lo que aún no debían ver.
+Nahira entró delante y retiró primero algunas cosas. Más exactamente, sus manos, con la excusa de abrir paso, iban ordenando lo que ellos podían ver y lo que todavía no debían ver.
 
-—Quédense ahí —dijo en voz baja—. Si entran todos demasiado adentro, se vuelve más asfixiante.
+—Quédense ahí.
+Lo dijo en voz baja.
+—Si entran todos demasiado adentro, se vuelve más asfixiante.
 
-Seorin se detuvo sin rechistar, y Sion se puso a su lado. Ater, más que barrer el espacio con una mirada amplia, leía más despacio la estructura del suelo y la disposición de las paredes. Kael aún no había soltado del todo a Luhai, y Luhai, esta vez sin quejarse abiertamente, lo decía todo con la cara.
+Seorin se detuvo sin protestar, y Sion se puso a su lado. Ater, más que abarcarlo todo con la vista, leía con más calma la estructura bajo sus pies y la disposición de las paredes. Kael seguía sin soltar del todo a Luhai, y Luhai, aunque esta vez no se quejaba abiertamente, lo decía todo con la cara.
 
-—Que ya no corro, en serio.
-Luhai masculló.
+—Que ya no voy a correr, en serio.
+Luhai lo masculló.
 
-—Los críos como tú dicen eso tres veces más y luego corren —dijo Nahira con indiferencia.
+—Los chicos como tú lo dicen unas tres veces más y luego corren.
+Nahira lo dijo con indiferencia.
 
-Luhai oyó esas palabras sin poder replicar. Era una voz que conocía. Sion lo entendió solo con esa breve reacción. Luhai no veía a Nahira por primera vez, o al menos había topado bastantes veces con esa clase de persona. Los críos de lengua más rápida son los que se callan antes, delante de un adulto que ya había visto demasiados niños como ellos.
+Luhai lo oyó y no pudo replicar. Porque era una voz que conocía. Sion lo supo solo por esa breve reacción. O Luhai no veía a Nahira por primera vez, o al menos se había topado muchas veces con esa clase de persona. Los chicos de lengua rápida se callan antes que nunca delante de un adulto que ya ha visto demasiados chicos como ellos.
 
 Nasim seguía con la cara sonriente.
 
-—Bien —dijo—. Olvidemos un momento el alboroto de afuera y hablemos de personas.
+—Bien.
+Eso dijo él.
+—Ahora olvidemos un momento el alboroto de afuera y hablemos de personas.
 
-Seorin recibió breve.
+Seorin le contestó con pocas palabras.
 
 —Vinimos a buscar un nombre y una mano.
 
-—Aka —dijo Nasim—. Y la mano que distingue lo verdadero de lo falso.
+—Aka.
+Lo dijo Nasim.
+—Y la mano que separa lo verdadero.
 
-Sion encontraba más incómodo aún que eso saliera con tanta facilidad. Este hombre no es que no ocultara el nombre: tasaba el valor según quién lo sacaba y de dónde.
+A Sion le incomodaba todavía más que eso saliera con tanta facilidad. Este hombre no es que no ocultara el nombre: medía su precio según quién sacaba el nombre escondido, y dónde.
 
-Harún escuchó el intercambio sin meterse. En cambio, se mantuvo junto a la entrada, guardando a la vez lo de afuera y lo de adentro. No alguien que provocaba peleas, sino alguien que decidía hasta dónde podía propagarse una pelea hacia el interior.
+Harún oyó la conversación y no se metió. En cambio, se quedó de pie junto a la entrada, guardando a la vez el exterior y el interior. Como alguien que no crea las peleas, sino que decide hasta dónde puede extenderse una pelea hacia dentro.
 
-Nahira dejó un vaso de agua y solo entonces miró a Sion.
+Solo después de dejar un vaso de agua, Nahira miró a Sion.
 
-—¿Quién dejó ese nombre? —preguntó.
+—¿Quién dejó ese nombre?
+Lo preguntó ella.
 
-Sion no lo ocultó.
+Sion respondió enseguida.
 
 —Alguien que lee.
 
-Nasim murmuró al lado, con un amago de sonrisa.
+Nasim, al lado, murmuró como si sonriera.
 
-—Esa clase de gente siempre deja problemas detrás.
+—Esa gente siempre se va dejando problemas.
 
-Sion no dejó pasar esas palabras. No era alguien que conociera a Elia con exactitud, pero al menos la voz de quien sabía cómo se trataba a las manos que leen, incluso en esta clase de bajos.
+Sion no dejó pasar esas palabras. No es que conociera a Elia de verdad, pero al menos era la voz de alguien que sabía cómo se trata a las manos que leen, incluso en un fondo como este.
 
-Nahira observó largo rato la cara de Sion y volvió a preguntar.
+Nahira se quedó mirando la cara de Sion un buen rato y volvió a preguntar.
 
 —¿Esa persona dejó solo el nombre de Aka?
 
-—También Hazran —respondió Sion—. Solo esos dos.
+—También Hazran.
+Eso respondió Sion.
+—Nada más que esos dos.
 
 Un breve silencio.
 
-Aquello no era una explicación, sino una verificación. Con esas dos solas palabras, Nahira ya leía cuán apurados estaban los forasteros que se habían adentrado hasta aquí, y cuán sin preparación los habían arrastrado.
+No era una explicación, sino una comprobación. Con esas dos palabras, Nahira estaba leyendo cuánta prisa traían los forasteros que habían llegado hasta aquí y con qué poca preparación los habían arrastrado.
 
-—Temerario —dijo en voz baja.
+—Qué temeridad.
+Lo dijo en voz baja.
 
-Seorin lo recibió enseguida.
+Seorin se lo devolvió en el acto.
 
-—Sobrevivimos, por eso llegamos hasta aquí.
+—Sobrevivimos; por eso llegamos hasta aquí.
 
-Nahira movió apenas la comisura de los labios. Menos una sonrisa que una señal de que esa clase de respuesta no le disgustaba.
+Nahira movió muy levemente la comisura de los labios. Más que una sonrisa, parecía una señal de que esa clase de respuesta no le disgustaba.
 
-Entonces, una lona aún más adentro tembló muy levemente.
+En ese momento, una lona más adentro se agitó muy débilmente.
 
 No era por el viento.
 
-Sion estuvo a punto de mirar hacia allí, pero se detuvo. El aire mismo de aquel espacio interior ya le enseñaba que dejar que la mirada se fuera primero podía ser una ofensa. Y, aun así, había una clase de movimiento que se percibía aunque uno se esforzara por no ver. Alguien estaba muy cerca, alguien escuchaba ahora mismo cada palabra que se cruzaba, y ese alguien existía mucho más en silencio que todos los nombres que habían circulado afuera.
+Sion estuvo a punto de mirar hacia allí, pero se contuvo. El aire de aquel interior ya le estaba enseñando que podía ser un lugar donde dejar que la mirada se fuera primero era, en sí, una falta de respeto. Pero había una clase de movimiento que se sentía aunque uno intentara no mirar. Alguien estaba cerca, alguien estaba oyendo todo lo que se decía aquí, y ese alguien existía de un modo mucho más callado que los nombres que habían ido y venido afuera.
 
-Luhai echó un vistazo furtivo hacia allí y enseguida retiró la mirada, muy deprisa. Sion tampoco se perdió esa reacción. Luhai ya conocía aquel lado. Al menos sabía que no había que mirar demasiado tiempo.
+Luhai echó un vistazo hacia allí y retiró la mirada muy deprisa. Esa reacción tampoco se le escapó a Sion. Luhai ya sabía lo que había allí. Al menos sabía que no se debía mirar mucho rato a la ligera.
 
-Nasim, observando esos flujos imperceptibles, dijo en voz baja:
+Nasim, observando esas corrientes mínimas, habló en voz baja.
 
-—Bien. Entonces ya no hace falta andarse con rodeos —dijo—. Necesitan eterita, buscan a Aka, y ese crío tocó los registros.
+—Bien. Entonces ya no hace falta andarse con rodeos.
+Así lo dijo.
+—Necesitan eterita, buscan a Aka, y ese chico tocó los libros de cuentas.
 
-Con un gesto del mentón, señaló a Luhai.
+Señaló a Luhai con un gesto del mentón.
 
-—Así que aquí solo queda una cosa. Quién es capaz de distinguir lo verdadero.
+—Así que aquí queda una sola cosa. Quién es capaz de distinguir lo verdadero.
 
-En cuanto cayeron esas palabras, el aire detrás de la lona interior cambió muy sutilmente.
+En cuanto cayeron esas palabras, el aire tras la lona interior cambió de forma mínima.
 
-Esta vez no fue solo Sion quien lo sintió. Ater, Kael, Seorin: casi a la vez, algo en su atención se desplazó hacia ese lado. Hasta Harún movió la mirada solo un instante muy breve.
+Esta vez no fue solo Sion quien lo sintió. Ater, Kael y Seorin también dieron muestras de llevar la atención hacia allí casi a la vez. Incluso Harún movió la mirada, aunque fuera un instante.
 
-Y el borde de la lona tembló una vez más, muy levemente.
+Y el borde de la lona volvió a agitarse, muy poco, una vez más.
 
-Nahira, sin mirar hacia allí, dijo:
+Nahira habló sin mirar hacia allí.
 
 —Puedes salir.
 
-Las palabras eran cortas, pero dentro llevaban a la vez permiso y advertencia. No un llamado forzado, sino una forma de decir: si has oído hasta aquí, ahora te toca elegir.
+Eran pocas palabras, pero llevaban dentro permiso y cautela a la vez. No era llamar a la fuerza, sino una manera de decir: si has oído hasta aquí, ahora te toca elegir a ti.
 
-Sion reguló la respiración, muy superficialmente.
+Sion recompuso el aliento con una inspiración muy corta.
 
-El borde de la lona se entreabrió un poco, y lo primero que apareció fue una mano.
+La orilla de la lona se abrió un poco, y lo primero que se vio fue una mano.
 
-Una mano de niña y, aun así, con extrañamente poca vacilación. No una mano que se aferraba a algo, sino una mano cuyo cuerpo ya sabía, antes que la mente, la diferencia entre lo que no había que tocar y lo que sí. Después aparecieron unas puntas de pelo donde flotaba un reflejo rojo muy tenue, y por último se reveló la mirada.
+Era una mano pequeña y, aun así, extrañamente poco vacilante. No una mano que se aferraba a algo, sino una mano cuyo cuerpo ya conocía la diferencia entre lo que no se debe tocar y lo que sí. Después se vieron unas puntas de pelo con un tinte rojizo muy tenue, y por último apareció la mirada.
 
-Aka tenía un rostro más callado de lo que se habría imaginado.
+Aka tenía una cara más callada de lo que había imaginado.
 
-Ni visiblemente asustada, ni movida por la curiosidad. No la expresión de una niña que ve el mundo exterior por primera vez, sino la cara de quien, tras haber visto ya innumerables manos, objetos y mentiras, reaccionaba aún menos. Y, sin embargo, dentro de esa escasa reacción había algo que se movía sin duda. Unos ojos que, más que mirar al grupo de Sion, discernían primero la textura de lo que habían traído.
+No estaba visiblemente asustada, ni tampoco la movía la curiosidad. No tenía la expresión de una niña que ve el mundo de afuera por primera vez, sino la cara de quien reacciona menos porque ya ha visto innumerables manos, objetos y mentiras. Y, sin embargo, dentro de esa escasa reacción había algo que se movía con claridad. Unos ojos que no miraban al grupo de Sion, sino primero la textura entre las cosas que habían traído.
 
-Sion sintió que esa mirada rozaba el interior de su chaqueta antes que su cara, se posaba luego sobre el fragmento en los brazos de Kael, y por fin se detenía en la eterita en la mano de Luhai.
+Sion sintió que esa mirada, antes que su cara, rozaba el interior de su chaqueta, llegaba luego al fragmento que Kael llevaba contra el pecho y por último se quedaba en la eterita de la mano de Luhai.
 
 Ese orden lo explicaba todo.
 
-Aka veía lo verdadero y lo falso antes que a las personas.
+Aka ve lo verdadero y lo falso antes que a las personas.
 
-Luhai murmuró, casi por reflejo.
+Luhai murmuró casi por reflejo.
 
 —Ah.
 
-Ante ese breve sonido, todas las miradas fueron un instante hacia ese lado.
+Ante ese breve sonido, todas las miradas fueron un momento hacia él.
 
-Luhai, más que avergonzado, miraba a Aka como un niño de veras pasmado. La cara de quien veía por primera vez, en forma humana, el hilo que hasta entonces solo había seguido a través de registros, libros de cuentas y fragmentos robados.
+Luhai, más que avergonzado, miraba a Aka como un chico realmente sorprendido. Era la cara de quien veía por primera vez que el hilo que hasta entonces solo había seguido a través de registros, libros de cuentas y fragmentos robados estaba ahora de pie delante de él, con forma de persona.
 
-Aka no miró a Luhai. En cambio, muy bajo:
+Aka no miró a Luhai. En cambio, habló muy bajo.
 
 —Eso.
 
-A quién se dirigía no quedaba claro al principio.
+Al principio no quedaba claro a quién se lo decía.
 
-Pero al instante siguiente, cuando su mirada hizo un ir y venir muy breve entre el fragmento en los brazos de Kael y la eterita en la mano de Luhai, Sion lo entendió en el acto. No era una palabra dirigida a una persona, sino una palabra que señalaba de golpe la textura que desprendían los dos objetos a la vez.
+Pero al instante siguiente, cuando su mirada volvió a ir y venir muy brevemente entre el fragmento del pecho de Kael y la eterita de la mano de Luhai, Sion lo entendió enseguida. No era una palabra para llamar a alguien, sino una palabra que señalaba de una vez la textura que despedían los dos objetos.
 
-—Los dos no deberían estar aquí al mismo tiempo.
+—Los dos no pueden estar aquí.
 
-El aire interior se volvió muy silencioso.
+El aire del interior se quedó muy quieto.
 
-La sonrisa de Nasim se apagó, Harún no se movió más, y Nahira, al contrario, borró aún más su expresión.
+La risa de Nasim también se detuvo, Harún no se movió más, y Nahira, al contrario, borró todavía más la expresión.
 
-Sion sintió que esa sola frase penetraba más hondo de lo que había previsto.
+Sion sintió que esas pocas palabras le entraban más hondo de lo que esperaba.
 
 No era la advertencia de una niña asustada.
-Estaba más cerca de un veredicto, dictado por alguien que había leído la textura misma de aquel instante.
+Se parecía más a un veredicto dictado por alguien que había leído la textura misma de aquel lugar.
 
-Seorin preguntó muy bajo:
+Seorin preguntó muy bajo.
 
-—¿Qué cosa?
+—¿El qué?
 
-Aka miró a Seorin por primera vez.
+Aka miró por primera vez hacia Seorin.
 
-—Hay demasiadas cosas que fingen estar muertas —dijo—. Pero esos dos, no.
+—Hay demasiadas cosas que se hacen las muertas.
+Eso dijo ella.
+—Pero esos dos, no.
 
-Esas palabras iban por el fragmento de Kael y la eterita.
+Lo decía por el fragmento de Kael y por la eterita.
 
-Sion, en ese momento, comprendió casi por primera vez —no con la mente, sino con el cuerpo— por qué Elia no había dejado más que dos palabras, sin larga explicación: *Hazran*, *Aka*. No análisis, sino veredicto. No interpretación, sino distinción. Esta niña no era alguien que explicara el camino: era alguien que cortaba primero entre lo que era verdadero y lo que era mera imitación, aquí y ahora.
+En ese momento, Sion entendió con el cuerpo, casi por primera vez, por qué Elia había dejado solo las dos palabras **Hazran**, **Aka**, sin ninguna explicación larga. No análisis, sino veredicto. No interpretación, sino distinción. Esta niña no era alguien que explicara el camino, sino alguien que cortaba primero qué era verdadero y qué era imitación en ese momento.
 
-Luhai dejó escapar, muy bajo, una palabra que ni él mismo se oyó pronunciar.
+Luhai lo soltó muy bajo, de verdad sin darse cuenta.
 
-—Entonces sí era de verdad.
+—Entonces era de verdad.
 
-Esta vez Aka lo miró.
+Esta vez Aka lo miró una vez.
 
-Una ojeada breve y extrañamente precisa.
+Fue una mirada breve y extrañamente precisa.
 
-—Tú llegas tarde, por las letras —dijo.
+—Tú llegas tarde, por las letras.
+Eso dijo ella.
 
-La boca de Luhai se entreabrió un instante y luego se cerró.
+La boca de Luhai se abrió un instante y se volvió a cerrar.
 
-Sion estuvo a punto de sonreír. Esa sola frase volvía nítida la textura entre los dos. La que ve primero, y el que sigue tarde. Dos críos orientados hacia el mismo punto, pero que solo diferían en la forma de llegar.
+Sion estuvo a punto de reírse. Con esa sola frase, la textura entre los dos se había vuelto demasiado nítida. La que ve primero y el que llega detrás, más tarde. Parecían dos chicos que iban hacia el mismo lugar y solo diferían en la manera de llegar.
 
-Nasim exhaló muy despacio.
+Nasim soltó el aire muy despacio.
 
-—Bien —dijo, recuperando la sonrisa—. Ahora entiendo por qué ese nombre se traga tan caro afuera.
+—Bien.
+Lo dijo recuperando la sonrisa.
+—Ahora entiendo por qué ese nombre se traga tan caro allá afuera.
 
-Harún escuchó sin mudar la expresión. En cambio, muy bajo:
+Harún lo oyó y siguió sin expresión. En cambio, habló muy bajo.
 
-—Entonces los movemos más adentro.
+—Entonces la llevamos más adentro.
 
-Nahira lo interrumpió por primera vez.
+Nahira cortó esas palabras por primera vez.
 
-—Aún no.
+—Todavía no.
 
 Un breve silencio.
 
@@ -182,21 +200,23 @@ Los ojos de Harún fueron hacia ella.
 
 Nahira no retrocedió.
 
-—Por ahora hay que dejar que ella diga lo que vio primero —dijo en voz baja—. Si la fuerzas, cierra la boca.
+—Ahora hay que dejar que ella diga primero lo que vio.
+Lo dijo en voz baja.
+—Si la arrastras a la fuerza, cierra la boca.
 
-Sion oyó esas palabras como las de alguien que conocía a Aka demasiado bien.
+A Sion esas palabras le sonaron a las de alguien que conocía demasiado bien a Aka.
 
-Alguien que la había observado largo tiempo en este interior. Alguien que sabía cuándo Aka hablaba y cuándo cerraba la boca.
+Alguien que la había vigilado mucho tiempo aquí dentro. Alguien que sabía cuándo hablaba Aka y cuándo cerraba la boca.
 
-Aka seguía mirando no al grupo de Sion, sino lo que habían traído.
+Aka seguía mirando no al grupo de Sion, sino las cosas que habían traído.
 
-Y dijo, muy bajo, pero con claridad:
+Y habló muy bajo, pero con claridad.
 
 —No es una puerta.
 
-Esta vez fue el aliento de Sion el que se suspendió primero.
+Esta vez fue la respiración de Sion la que se detuvo primero.
 
-Esas palabras golpeaban el centro mismo de lo que habían perseguido para llegar hasta aquí.
+Eran palabras que se clavaban en el centro mismo de lo que habían perseguido hasta aquí.
 
 ---
 

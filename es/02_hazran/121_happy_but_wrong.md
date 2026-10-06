@@ -210,9 +210,9 @@ sino más cercano al extrañamiento.
 Y ese extrañamiento
 se iba convirtiendo poco a poco en náusea.
 
-Serakion, desde el primer instante en que se la encontraba, era cortés,
-precisa
-y bella.
+Serakion era, desde el primer instante del encuentro, un mundo cortés,
+preciso
+y bello.
 
 Pero quizá la razón por la que este mundo daba de verdad miedo
 era que, dentro de esa belleza,

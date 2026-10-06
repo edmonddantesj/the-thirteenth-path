@@ -130,8 +130,8 @@ la mirada volvía una y otra vez hacia aquel último androide.
 
 Como si aún no entendiera del todo
 las miradas que ahora le caían encima.
-Como si, después de haber solo el campo de batalla,
-de pronto el tiempo de después estuviera puesto ante él.
+Como si hasta hacía un momento solo hubiera habido campo de batalla
+y ahora, de pronto, el tiempo de después estuviera puesto ante él.
 
 Entonces,
 el niño que antes había dicho «le debe doler»

@@ -1,134 +1,274 @@
 # Chapitre 91 — Le premier départ sous le feu
 
-Après que l'ordre d'embarquer le premier groupe fut tombé, Hazran ne produisit plus des *gens qui allaient bientôt partir*.
+Une fois tombé l'ordre de faire monter la première file, Hazran cessa de fabriquer des gens sur le point de partir.
 
-Elle se mit à faire partir des gens pour de vrai.
+Elle se mit à fabriquer des gens qui partaient pour de bon.
 
-La différence était immense.
+La différence était grande.
 
-Jusqu'à présent, ils ne formaient qu'une seule masse. Avoir peur ensemble. Tenir ensemble. Attendre ensemble l'instant suivant.
+Jusque-là, ils ne formaient encore qu'une seule masse. Une masse qui avait peur ensemble, tenait ensemble, attendait ensemble l'instant suivant. Mais dès que le premier pied se posa sur la rampe de la coque, les gens se scindèrent en deux.
 
-Mais dès que le premier pied se posa sur la rampe de la coque, les gens se divisèrent en deux.
+Ceux qui partaient, et ceux qui restaient.
 
-Ceux qui partent et ceux qui restent.
+Sion le vit de beaucoup trop près.
 
-Sion le vit de trop près.
+À l'entrée de la coque, Han Jiwoo traça une ligne de la main.
 
-Luhai poussa un enfant en premier. Seorin souleva une extrémité de civière et l'aligna avec la rampe. Nassim repoussa une personne qui tentait de sortir de la file, criant de sa voix cassée.
+« Sept jusqu'ici. »
 
-« Ne vous arrêtez pas ! »
+Sept montèrent.
 
-C'était pour toute la file d'embarquement, et cela ressemblait à quelque chose qu'il se disait aussi.
+« Stop. »
 
-Impossible de s'arrêter. Dès qu'on s'arrête, le temps des personnes qui vous soutiennent meurt avec.
+Ils s'arrêtèrent. Sept se tenaient sur la rampe, et en bas, treize attendaient. L'intervalle dura trois secondes à peu près, mais pour Sion il fut bien plus long.
 
-Jiwoo recevait les arrivants à l'entrée de la coque, mâchoire presque fermée.
+Parce que, pendant ces trois secondes, il vit changer le visage de ceux qui restaient en bas. Les sept qui étaient montés appartenaient déjà à l'autre côté, et les treize qui n'étaient pas montés appartenaient encore à celui-ci. Une frontière de trois secondes.
 
-« Un à la fois ! » appela-t-elle à mi-voix. « Ne poussez pas, un à la fois ! »
+« Les sept suivants. »
 
-La coque n'était pas encore complètement vivante. La rampe était de fortune. L'accouplement d'entrée n'était pas parfait. S'il y avait trop de monde à la fois, le vaisseau pourrait ne pas tenir avant toute autre chose.
+Ils montèrent.
 
-Aka se tenait à côté d'elle, écoutant le flux des gens et les tremblements de la coque.
+« Stop. »
 
-« Deuxième, rapide, » dit-elle à mi-voix. « Troisième, lent. »
+Aka, la paume collée contre la paroi extérieure de la coque, écoutait tout cela.
 
-Au début, le sens ne parvint pas à Jiwoo, mais elle comprit aussitôt.
+« La gauche est lourde. »
 
-La deuxième civière devait monter plus vite. Le troisième groupe avait besoin d'une brève pause. Parce que le poids et les vibrations absorbés par le vaisseau différaient à chaque passage.
+« De combien ? »
+C'était Han Jiwoo qui demandait.
 
-Jiwoo cria aussitôt.
+« Deux personnes, à peu près. »
 
-« Deuxième maintenant, premier ! »
+« Alors les six derniers montent par la droite. »
 
-À cette seule ligne, Sion sentit à nouveau qu'Aka ne comptait pas les gens — elle écoutait l'ordre que le vaisseau pouvait supporter.
+« Oui. »
 
-Les deux premiers enfants entrèrent dans la coque. Un blessé suivait derrière. Un vieil homme lent franchit à peine la rampe, soutenu par deux personnes.
+En écoutant ce bref aller-retour, Sion comprit ce qu'Aka était en train de faire.
 
-Ces quelques courtes secondes parurent étrangement longues.
+Tout à l'heure, avec la ferraille, on n'avait mesuré que le poids total. Les gens, c'était autre chose. Quand ils avaient peur, ils se massaient d'un côté. Alors le poids ne se posait pas au milieu. Ce qu'Aka écoutait en ce moment, c'était l'endroit du vaisseau où pesait la peur des gens.
 
-Ils étaient réellement envoyés.
+Les six derniers montèrent par la droite.
 
-Ce fait pesait davantage, non pas moins.
+« Vingt. »
+C'était la voix de Han Jiwoo.
 
-Haroun gardait le dos tourné à tout cela, veillant toujours sur le couloir de droite.
+Puis elle toucha une fois la jonction du dos de la main. Aucun bruit.
 
-Le côté des androïdes avait commencé à lire ce qui se passait. Au moment où ils comprirent que la congestion devant la coque n'était pas une simple panique mais le flux d'un véritable départ, leur pression se fit plus persistante.
+« Ça a tenu. »
 
-Sern parla, bref.
+À ces mots, Sion sentit ses jambes se dérober sous lui.
 
-« Augmentation de la cadence. »
+Avoir tenu voulait dire ne pas s'être rompu, pas aller bien. Cette différence, Sion la connaissait désormais. Trois jours à Hazran suffisaient pour apprendre au moins cela.
 
-Ater reprit aussitôt.
+Sur la rampe, le dernier à monter se retourna.
 
-« Ils ont vu l'embarquement. »
+Personne ne lui avait dit de ne pas se retourner. Tout à l'heure, Luhai l'avait dit aux enfants, mais ici il n'y avait pas d'enfant, et dire à un adulte de ne regarder que devant lui, personne n'en était capable.
 
-À l'instant où ces mots tombèrent, deux unités noires pénétrant dans le couloir de droite rétrécirent leur angle plus agressivement qu'auparavant. L'unité de tête accepta la perte et poussa droit vers les sacs de sable. L'unité arrière superposa un faisceau de coupe derrière son ombre.
+La personne regarda longtemps.
 
-Haroun le vit et avança d'un pas.
+Du côté de la ligne centrale effondrée, la direction où devait se trouver, au-delà, la ruelle où elle avait vécu. Une couche gris-brun s'y était posée à présent, et l'on ne distinguait même plus où était quoi.
 
-À ce moment-là, Sion voulait vraiment l'arrêter.
+Puis elle entra.
 
-Mais les mots ne venaient pas.
+Nassim traça un trait sur le tableau.
 
-Parce que sans ce pas, plusieurs de ceux qui grimpaient derrière risquaient de ne pas suivre.
+« Vingt de sortis. »
 
-Haroun parla bas.
+« Alors il en reste… »
+C'était Sion qui demandait.
 
-« Sern, par en dessous. »
+« Cent quatre-vingt-huit. »
 
-Sern laissa tomber son corps instantanément. Ater tira un demi-temps plus tôt en haut à droite. À l'instant où le regard d'une unité noire dévia dans cette direction, Haroun poussa l'épave du sac de sable par l'avant.
+Sion fit rouler le nombre une fois dans sa tête. Deux cent huit, moins vingt. Pour la première fois, il avait baissé.
 
-Forcer à tuer l'élan.
+« Alors il reste dix fois. »
 
-L'androïde ne s'arrêta pas. Mais l'angle de cette collision avait clairement été détourné. Dans cet espace, Sern toucha l'accouplement inférieur et se retira. Ater effectua aussitôt un court tir dans l'axe prioritaire.
+« Oui. »
+Nassim acquiesça.
+« Dix fois. »
 
-Un corps noir s'effondra, bloquant à moitié le couloir.
+Puis il repartit aussitôt aligner la file suivante. Ce n'était pas le moment de fêter quoi que ce soit, et cet homme le savait mieux que personne.
 
-Mais le deuxième l'escalada encore.
+Et il en resta onze.
 
-Sion serra les dents.
+Des trente et un qui avaient traversé ensemble, tout à l'heure, les trente pas sans toit, vingt étaient montés et onze non.
 
-Sans fin. Cela semblait vraiment interminable.
+Sion regarda ces onze.
 
-Malgré cela, ces battements qui semblaient interminables poussaient une personne de plus à la fois dans la coque au-dessus.
+Personne ne fit de bruit. Ils ne poussèrent pas, ne retinrent personne, ne demandèrent pas pourquoi pas eux. Ils restèrent simplement au pied de la rampe, les yeux levés.
 
-Nassim se retourna et cria.
+L'un d'eux leva la main. Il ne l'agita pas, il la leva, c'est tout. Il devait connaître quelqu'un là-haut.
 
-« Premier groupe terminé ! »
+Là-haut aussi, une main se leva.
 
-Ces mots n'étaient pas de la joie. C'était le signal pour retirer le groupe suivant.
+Ce fut tout.
 
-Luhai confirma que les trois enfants étaient debout, puis se retourna aussitôt et tira la main des personnes suivantes. Seorin posa une civière et alla directement à la seconde. Sion brisa une courte barre coincée sous la rampe, dégageant le chemin pour que personne ne trébuche.
+Sion vit ces deux mains se reconnaître, puis il vit aussi la rampe se replier.
 
-Et à ce moment-là, un faisceau de coupe frôla la paroi inférieure de la coque.
+Le vaisseau décolla.
 
-Le bord de la plaque d'accouplement que Kael avait soutenu vibra violemment, et plusieurs fragments métalliques rebondirent sur le sol devant la coque.
+Il ne monta pas haut. Deux empans au-dessus du sol, à peu près. Ainsi suspendu, il s'éloigna en glissant de côté, entra dans l'ombre des ruelles effondrées de l'ouest, et à partir de là on ne le vit plus.
 
-Le visage de Jiwoo blêmit.
+Les onze qui restaient demeurèrent là où ils étaient.
 
-« On ne peut pas se permettre un impact de plus, » dit-elle à mi-voix.
+Sion s'approcha.
 
-Ce n'était pas une demande. C'était presque un avertissement.
+« Vous êtes les prochains. »
 
-Si la coque reçoit davantage de coups, la ligne de départ qui vient de s'ouvrir meurt. Alors tout ce qui s'est passé jusqu'à présent prend fin aussi.
+À peine l'eut-il dit qu'il le regretta. Il s'était souvenu de ce que Nassim avait dit tout à l'heure. Ça, on le verra le moment venu.
 
-Zahir entendit cela et parvint sans doute à sa conclusion plus rapidement que quiconque.
+« C'est vrai ? »
+Quelqu'un avait posé la question.
 
-Il parla très bas, mais cette fois d'une voix qui n'avait plus de place pour reculer.
+Sion ne mentit pas.
 
-« Attachez le deuxième groupe. »
+« Je ne sais pas. »
 
-Au moment où Sion entendit cela, son cœur se serra.
+Celui qui avait demandé ne se fâcha pas de cette réponse. Il parut même un peu soulagé. Ne pas avoir entendu de mensonge, ici, tenait lieu de réconfort, semblait-il.
 
-Le premier groupe avait à peine grimpé et le second devait déjà partir, tant il restait peu de temps.
+« Mais on peut rester là ? »
+Un autre avait posé la question.
 
-Sous le feu, le premier départ d'Hazran commença ainsi.
+« Non. »
+Ce fut Sion qui répondit.
+« Mettez-vous sous le toit. »
 
-Juste quelques personnes. Mais le simple fait que ces quelques-uns commençaient vraiment à traverser la frontière vers l'extérieur pesait plus lourdement sur les épaules de ceux qui restaient.
+Les onze bougèrent. Onze pas en arrière, à peu près. Puis ils s'arrêtèrent de nouveau. Ils n'allèrent pas plus loin.
 
-Tout le monde le savait maintenant.
+Sion ne les poussa pas davantage. Ces gens-là ne voulaient pas reculer hors de vue de la rampe.
 
-Quelqu'un partirait effectivement. Et quelqu'un devrait rester ici, pour gagner du temps jusqu'à ce que ce départ soit fait.
+C'était étrange. C'était une bonne chose, et pourtant la sensation que c'était bien ne venait pas. Vingt personnes venaient de disparaître d'ici. Elles avaient disparu vivantes, mais disparu, c'était disparu.
+
+À côté de lui, Han Jiwoo dit à voix basse :
+
+« Il faut qu'il revienne. »
+
+« Il revient ? »
+
+« Oui. »
+
+« Il va jusqu'où ? »
+
+« Il les dépose derrière la couche thermique et il revient. »
+
+Ce n'est qu'alors que Sion comprit que ce vaisseau devait faire onze allers-retours. Charger, partir, se vider, revenir, charger de nouveau.
+
+« Un tour, ça prend combien de temps ? »
+
+Avant de répondre, Han Jiwoo leva un instant les yeux vers le ciel.
+
+« L'aller est court, le retour encore plus. »
+
+« Alors pourquoi tu regardes le ciel ? »
+
+« … »
+
+Elle ne répondit pas et rabaissa la main vers la rampe.
+
+Sion n'avait pas besoin de demander. Elle mesurait en ce moment lequel allait le plus vite : la poudre qui retombait, ou le vaisseau qui faisait l'aller-retour.
+
+Dehors, le métal racla de nouveau.
+
+C'était du côté de Haroun. Cela voulait dire qu'en face aussi, on avait vu le vaisseau décoller.
+
+Les yeux fermés, Aka dit :
+
+« Ça a accéléré. »
+
+« Quoi ? »
+C'était Han Jiwoo qui demandait.
+
+« Dehors. »
+
+« Alors nous aussi, il faut accélérer. »
+
+« Alors la gauche va devenir plus lourde. »
+
+Han Jiwoo resta un moment sans rien dire.
+
+« Ça, je m'en charge. »
+
+« Tu peux pas. »
+C'était Aka.
+
+« Alors on fait comment ? »
+
+« Pas vingt à la fois. Dix-huit. »
+
+La main de Han Jiwoo s'immobilisa.
+
+« À dix-huit, on ne finit pas en onze fois. »
+
+« Oui. »
+
+« Ça fait douze. »
+
+« Oui. »
+
+À ce mot, Sion sentit son dos se glacer.
+
+Ce vaisseau venait de faire un voyage sur onze. Et l'instant d'après, il en fallait douze. Ils en avaient gagné un, et il s'en était ajouté deux.
+
+« Alors le temps… »
+
+« Je sais. »
+Han Jiwoo l'avait coupé.
+
+« Et si on reste à vingt, ça ne va pas ? »
+
+« À vingt, c'est la gauche qui lâche d'abord. »
+
+« Alors on fait quoi ? »
+
+Ce n'est qu'alors que Han Jiwoo regarda Sion.
+
+« Je vais réparer la gauche. »
+
+« Maintenant ? »
+
+« Pendant que le vaisseau revient. »
+
+Sion comprit ce que cela voulait dire. Dans le bref intervalle où le vaisseau déposait les gens et revenait, Han Jiwoo comptait reprendre à la main la jonction de gauche. Sans personne pour l'aider, sans lumière, et sans que personne lui compte même le temps.
+
+« Je t'aide ? »
+
+« Toi, tu alignes les gens dehors. »
+Ce fut sa réponse.
+« C'est comme ça que tu m'aides. »
+
+Sion se retourna.
+
+En se retournant, il jeta un regard en arrière ; Han Jiwoo avait déjà glissé la moitié du corps sous la coque.
+
+Une fois dehors, la première chose que fit Sion fut de compter.
+
+Combien se tenaient dans la deuxième file. S'ils faisaient vingt. Sinon, où compléter.
+
+En comptant, il comprit. Compter les gens, c'était le travail de Nassim, et c'était lui qui le faisait maintenant. Nassim avait disparu depuis un moment. Quelqu'un dont la voix était partie tout entière ne servait à rien pour aligner une file.
+
+La deuxième file faisait dix-huit.
+
+Voyant qu'il en manquait deux, Sion resta un instant immobile.
+
+Pour compléter, il suffisait d'en prendre deux parmi les onze de tout à l'heure. Ces gens-là avaient déjà traversé les trente pas sans toit, ils se tenaient le plus près, et tout à l'heure ils avaient même levé la main pour saluer.
+
+Sion alla vers eux.
+
+« Deux. »
+
+Ce fut tout ce qu'il dit. S'il y ajoutait la moindre explication, il lui semblait que chacun des onze allait dire son propre nom.
+
+Deux sortirent des onze. Sion ne vit pas qui en avait décidé. Ils avaient dû fixer l'ordre entre eux à l'avance.
+
+Les deux s'éloignèrent, et les neuf qui restaient resserrèrent de nouveau leurs rangs.
+
+Sion marcha en tournant le dos à ces neuf.
+
+Les vingt qui se tenaient maintenant dans cette file prendraient le prochain vaisseau. Derrière eux, il y en avait neuf, et derrière encore, cent et quelques. Et tout cela reposait sur une seule personne qui travaillait de ses mains, en ce moment, sous le vaisseau.
+
+Dix fois.
+
+Sion recompta ce nombre. Ce pouvait être dix fois, ce pouvait être douze. Et cette différence, c'était elle, là-bas sous le vaisseau, qui la décidait de ses mains.
 
 ---
 

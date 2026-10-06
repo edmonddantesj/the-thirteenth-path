@@ -1,207 +1,303 @@
 # Episode 111. The Ship Left with Their Burden
 
-After watching Hazran's last line be buried beneath the android legion,
-no words remained inside the hull for a time.
+Inside the heat layer, nothing could be seen.
 
-Only the sound of breathing.
-Only the sound of metal holding.
-Only the unstable trembling of a ship that had to leave but hadn't fully left yet.
+It wasn't that the outside had vanished, only that it could no longer be seen, but to the people inside, the two were the same.
 
-Sion stood just inside the entrance,
-feeling as if his heart were still outside.
+The hull groaned, long. It was the sound of metal that didn't trust its own thickness. It was different from the sound it had made earlier, rising over the scrap market.
 
-What he had just seen was so terrible
-that his vision was sharper, not dimmer.
+Sion was holding the rail just inside the entrance.
 
-Nasim holding on to the very last.
-Nahira not releasing the inner perimeter.
-Zahir raising the line in the center of it all.
-And the android legion burying everything at once, cold.
+It wasn't his gripping hand that hurt first but the inside of his elbow. He had been bracing at the same angle for a while.
 
-More than who exactly fell and how,
-the sight of that entire shape being buried under orderly violence stayed longer.
+With sixteen inside, the hull was cramped.
 
-That was less like death
-and more like the scene of a city being swallowed.
+Twelve were pressed against the walls and four sat on the floor. Three of the four sitting were Hazran people, and each time the ship shook they held on by pressing against one another's knees. No one made a sound.
 
-Jiwoo moved first.
+That was what Sion found strangest.
 
-She checked the braces again with nearly trembling hands,
-swept the entrance-side condition,
-read the engine vibration.
+When it shook this much, someone usually let out a sound, however short. Here no one did. They were people who had already used up, today, every moment that called for a sound.
 
-"Detaching now."
-She said, low.
-"Wait any longer and we get buried too."
+Han Jiwoo never let her back leave the pilot's seat.
 
-That was a fact no one could deny.
+"Left side,"
+she said.
 
-The ship wasn't complete.
-But if they don't leave now,
-the choice Hazran pushed through to the very end,
-that last line,
-all of it sinks into the same wreckage.
+Sern answered, still pressed to the panel.
 
-Sion bit his lip.
+"It is still the same."
 
-He understood.
-But understanding didn't mean accepting.
+"It's not the same. It just hasn't changed."
 
-Seorin spoke as if chewing the words out.
+"Yes."
 
-"Leaving like this really feels like the end."
+"The moment it changes, tell me."
 
-Jiwoo answered.
+That short exchange came four more times while they passed through the heat layer. The same words every time, with the same weight every time.
 
-"We leave so it isn't the end."
+Sion knew the repetition was holding people up. Those two weren't fixing the ship right now. They were making each other confirm, again and again, that the ship was still alive.
 
-Short words.
-But inside them was the stubbornness of someone who has to move forward even by force.
+Kael stood beside the entrance and kept watching a gap that didn't even show the outside.
 
-Luhai was still watching outside.
-He couldn't tear his eyes from the place where his city had been covered by the legion.
+"See anything?"
+Sion asked.
 
-"There are still people out there."
-He said, very low.
+"No."
 
-That wasn't an argument.
-It was prayer and resentment mixed in a single breath.
+"Then why are you watching?"
 
-Aka spoke slowly for the first time, beside him.
+Kael was quiet a moment before he answered.
 
-"That is why we must go."
+"Get in the habit of not watching, and next time you'll miss it."
 
-Luhai looked her way.
+Sion kept those words.
 
-Aka, face pale, still looking outside, continued.
+And then the heat layer ended.
 
-"The ones who saw it must go."
+The moment it ended wasn't loud. The sound scraping the hull simply disappeared, the shaking dropped all at once, and the air inside suddenly went quiet.
 
-Sion felt those words pierce his chest.
+The quiet was worse.
 
-Yes.
-Leaving now isn't exemption.
-It is leaving as witnesses.
+While it shook, the body clung only to holding on. Once it stopped, something else came into that space.
 
-How Hazran closed.
-What buried that line.
-Who held their position to the very end without letting go.
-The people who saw that are the ones going next.
+Sion opened the hand that had been gripping.
 
-Kael checked the last of the exterior condition and spoke low.
+The rail had pressed a deep mark into his palm. As he looked at it, numbers suddenly came to him.
 
-"If not now, the hull can't even pull free."
+Ten, five, eight, four.
 
-When those words fell,
-Jiwoo hesitated no more.
+The board he had seen from above. The board standing in the middle of the collapsed city, the board scored with numbers no one would look at.
 
-"Release the braces."
-She said.
-"Engaging output."
+Sion had scored them.
 
-The entire hull trembled once, hard.
+Each of the four groups had counted something different.
 
-Everyone inside shook with it.
-Sion gripped the entrance railing on instinct.
+Ten was the number of times this ship had lifted off. Twenty at a time, ten times. Five was the time he had scored there because Seorin told him not to keep it in his head but to score it on the board. Eight was the number of people who had not left until the very end, and earlier those eight had gone up the ramp first.
 
-The moment of leaving is always imagined as some kind of liberation,
-but the sensation of this ship moving was nothing like that.
+Four was the ones staying behind.
 
-It wasn't the sensation of being freed.
-It was closer to being ripped away.
+Those four were the four who had built this city.
 
-From Hazran.
-From the last line.
-From those people's side.
+The board was down there now.
 
-When the ship lurched roughly forward,
-Luhai spoke, almost like a cry.
+And the eleventh mark had not been scored. This time sixteen had boarded, but the board to score it on was outside, and Sion was inside.
 
-"Wait, not yet—"
+Sion spread his fingers.
 
-But those words didn't finish.
+He took his hand off the rail and touched a fingertip to the bare wall. It left no mark there. He drew one line anyway.
 
-Because the engine forced itself alive,
-and the last metallic sound binding the hull tore apart.
+That was the last line.
 
-Jiwoo clenched her jaw and shouted.
+It was a place no one could see.
 
-"Hold!"
-"We have to tear through and go now!"
+"What are you doing?"
 
-The ship trembled like a wounded animal,
-but finally began pulling its body outward, bit by bit.
+It was Seorin.
 
-Through the shaking, Sion watched outside to the very end.
+Sion lowered his hand.
 
-Hazran's shape was hard to see now.
-Only the place the android legion had covered
-and the last line buried beneath it
-remained, horribly.
+"Counting."
 
-The further that scene grew,
-the more clearly Sion felt the emotion settling.
+Seorin didn't say anything right away. She looked for a moment at the wall where Sion's hand had been, then spoke.
 
-This is not a farewell.
-This is responsibility passed on.
+"How many?"
 
-Those people spent their full share
-and passed the responsibility to this side.
+"Eleven times."
 
-Seorin said, very low.
+"Of what?"
 
-"We have to come back. No matter what."
+"This ship lifting off."
 
-This time no one let those words slip past.
+Only then did Seorin turn fully toward Sion.
 
-Jiwoo kept her eyes on the output readings.
-Kael clenched his jaw, still checking outside.
-Luhai's lips were bitten hard enough to split.
-Aka, face pale, kept looking straight ahead.
+"Ten are on the board, and this one isn't anywhere."
 
-Sion drew a slow breath.
+Seorin said nothing for a long while.
 
-Zahir's words returned.
+Then she spoke very low.
 
-*Find the planet of those machines.*
+"So you're counting the four who stayed separately."
 
-That was no longer simply the next destination.
-It was the path to find what had done this to Hazran,
-and the path that must be taken so the time of those left behind would not be wasted.
+Sion couldn't say no.
 
-Sion said, low.
+He was counting. He had tried not to, but he already was.
 
-"We protect those who remain."
+One of the Hazran people sitting on the floor heard that. The head stayed down. Only the hand resting on the knee moved, very slightly.
 
-Seorin took it immediately.
+Sion looked at that hand.
 
-"And we take it back."
+That person was putting a face they knew to a single number right now. The one counting and the one counted hear the same number completely differently.
 
-Luhai added, much later,
-in a voice nearly cracked.
+Only then did Sion realize what he had done wrong.
 
-"Hazran too."
+Here, he shouldn't have said the numbers out loud.
 
-Three short sentences.
-But they were enough.
+"I'm sorry,"
+Sion said.
 
-Protect those who remain.
-Find the planet of the machines.
-Someday reclaim Hazran.
+The answer was a shake of the head. It didn't mean it was all right; it was closer to meaning this was not his to be sorry for.
 
-Those three things
-decided the next life of everyone inside the hull, all at once.
+Kael had made a round of the interior in the meantime and come back.
 
-The ship still trembled, unstable.
-It hadn't entered a fully safe course yet.
-But at least one thing was clear.
+"How much water is there?"
+he asked.
 
-This ship wasn't simply carrying survivors away.
+Han Jiwoo didn't answer right away. Sern spoke instead.
 
-The price that Hazran's last line paid by holding to the end.
-The responsibility of those who witnessed it.
-And the vow to return.
-It was carrying all of it together.
+"We loaded for eight."
+
+"There are sixteen of us now."
+
+"Yes."
+
+Kael didn't ask anything more. Asking would only bring out one number.
+
+From that short exchange, Sion understood again what he had been counting until a moment ago.
+
+Counting the people who had left was finished. From now on he would count what was inside. How many days of water, how many days of air, how many people could sit.
+
+That was what he had learned in Hazran. If you don't count it, it becomes something that never was.
+
+Here it was the opposite. If you counted, you saw exactly what was short.
+
+"Split it in half,"
+Han Jiwoo said.
+
+"Who splits it?"
+Sion asked.
+
+"You."
+
+Sion stopped for a moment.
+
+"Why me?"
+
+"Because you count."
+
+Luhai was sitting against the opposite wall, hugging his knees.
+
+He hadn't said a word for a while. The one on this ship who had lived longest in Hazran was the quietest.
+
+Passing the water canisters around, Sion set one in front of Luhai too.
+
+Luhai didn't pick it up.
+
+"Not drinking?"
+
+"I'm from Hazran,"
+Luhai said.
+"This isn't Hazran water."
+
+It made no sense. Sion didn't say it made no sense.
+
+A little later Luhai picked up the canister. Even after picking it up, he didn't open it for a long while.
+
+Aka was standing near the entrance.
+
+She was pale. It was less standing than leaning on the wall so as not to collapse. But her eyes kept watching the direction where the outside had been.
+
+"Sit down,"
+Han Jiwoo said without looking back.
+
+Aka didn't sit.
+
+"I said sit."
+
+"I have to watch."
+
+"You can't see it anymore."
+
+"That's why I have to watch."
+
+Han Jiwoo didn't try to stop her again.
+
+Sion went over beside her.
+
+"What are you watching?"
+
+Aka answered after a long while.
+
+"The ones who saw that have to go."
+
+Sion felt the words strike precisely at the inside of his chest.
+
+They hadn't boarded this ship because they were lucky. Zahir had taken them to the threshold and pushed them in, Nasim had shoved them from behind, Nahira had let go. The last thing those people had done was send this side out.
+
+Then they hadn't survived. They had been sent.
+
+Those who are sent have to carry what they saw.
+
+Ater spoke very quietly from behind.
+
+"There is no record."
+
+Sion turned around.
+
+"What record?"
+
+"Of what happened here,"
+Ater said.
+"The board was left behind, and the city is closed. The Empire's records will keep it differently."
+
+Sern added, without taking his eyes off the panel.
+
+"It will already have gone out differently."
+
+"What will they write?"
+Sion asked.
+
+Ater was quiet a moment before he answered.
+
+"They will write it down as a cleanup."
+
+Sion heard the word as if hearing it for the first time.
+
+Call the dead a cleanup, and from then on no one counts them.
+
+A chill ran down Sion's back at that.
+
+Outside, this would be written down under another name. Who had done what, and who had refused to step back to the end, would not go into that record.
+
+Then all that remained were the ones who had seen it.
+
+Sion touched his finger to the wall again.
+
+This time he didn't draw. He only touched.
+
+The board was down there and no mark remained anywhere, but the numbers were here. People weren't the only thing that had been carried over.
+
+"Han Jiwoo,"
+Sion said.
+
+"What?"
+
+"About the planet of the machines."
+
+Han Jiwoo's hand stopped for a moment.
+
+"It's not a destination, is it?"
+
+Han Jiwoo didn't answer right away. She checked the output values once more before she spoke.
+
+"No."
+
+"Then what?"
+
+"Debt."
+
+She cut it off short and went back to the panel.
+
+Sion held on to that one word for a long time.
+
+They weren't going there to find something. They were going to repay. The debt was to be paid over there, but the ones who had laid it on them were riding on their backs.
+
+The hull groaned low once more.
+
+This time it was the sound of holding.
+
+The ship still had few sound parts, and its course wasn't properly set yet. Sixteen people were aboard it, and each of the sixteen carried one unscored line.
+
+And so the ship drew away from Hazran.
 
 ---
 

@@ -1,178 +1,212 @@
 # Episode 04. City Before the Threshold
 
-The upper connecting bridges of the neutral port city were far quieter than the levels below.
+The upper connecting bridges of the neutral port city were much quieter than the levels below.
 
-Same city, but once the floor changed, so did the kind of sound. From below, curses and deals and metallic clangs rose all at once; up here, footsteps and closed doors rang more clearly. Whether money or information — the higher the price, the fewer the words.
+It was the same city, but change the level and even the kind of sound changed. Below, curses and deals and the clang of metal struck upward all at once; up here, footsteps and closed doors sounded sharper. Money or information, the higher the price went, the fewer the words.
 
-Ater Valkar was more accustomed to this upper air.
+Ater Valkar was more at home in that upper air.
 
-The hem of his black coat swayed faintly in the bridge-wind. Even under the port's crude lighting, his stride never faltered. Neutral port cities generally looked like places beyond the reach of order, but Ater knew that places like these had even more invisible lines. Nowhere lacked rules. Only who wrote them differed.
+The hem of his black coat stirred faintly in the wind across the bridge. Even under the port's crude lighting, his stride did not break. Neutral port cities usually looked like places order never reached, but Ater knew that places like this held more invisible lines, not fewer. There was no place without rules. The only difference was who wrote them.
 
-Sern reported quietly from one step behind.
+Sern reported quietly from a step behind.
 
-"The disturbance at the outer docking layer has already spread. Word is there was a limping courier, two grey coats, and a third party who intercepted something in between."
+"The commotion on the outer mooring layer has already spread. However, the port is counting one more than there should be."
 
-Ater did not turn his gaze.
+Ater asked without turning his eyes.
 
-"Third party."
+"How many."
 
-"That is how the port side phrases it."
-Sern paused briefly, then added.
-"Most likely an unregistered hand."
+"There should be four, but they count five. One more hand has joined in, one that took the goods midway."
 
-At that, Ater's stride slowed — barely.
+"A third party."
+
+"That is how the port puts it."
+Sern paused, then added.
+"It is most likely an unordered hand."
+
+At that, Ater's stride slowed, very briefly.
 Sern did not miss even that slight gap.
 
-"Was the tag recovered."
+"Has the tag been recovered."
 
-"Which side holds it has not been confirmed yet. But it is certain the courier lost the tag."
+"Whose hands it went into is still being confirmed.
+What is certain is that the courier's side lost it."
 
-Ater looked down through the glass wall at the bridge's end, over the port below.
-Even now the grey-toned crowd moved without cease. One disturbance was quickly buried by the next noise, and the disappearance of a single person passed as easily as a few lost cargo crates. That was the kind of city this was.
+Ater looked down at the port's lower levels through the glass wall at the end of the bridge.
+Even now the gray crowd moved without end. One commotion was soon buried under other noise, and a person vanishing passed as easily as a few crates of cargo going missing. The neutral port city was that kind of city.
 
-"The archivist."
+Above the glass wall ran a line of docking rings, and at their end an Empire logistics ship lay berthed. The shadow of its hull covered half the plaza below. Beneath it three Alliance supply ships waited their turn, and beneath those three clung small nameless craft past counting.
+
+They were in order of size. To someone from the Empire Approval Bureau, there was nothing especially strange about that.
+
+"And the archivist."
 
 Sern answered.
 
-"The rumor that he is alive is more prevalent."
+"The rumor that he is alive has the upper hand."
 
-Ater's gaze sank slightly.
+Ater's gaze settled a little lower.
 
-"Rumors usually arrive last."
+"Rumor is usually the last to arrive."
 
-"Yes. But this time, it looks as though someone is deliberately making them arrive late."
+"Yes.
+But this one looks as if someone is spreading it late on purpose."
 
-"Why do you read it that way."
+"Why do you see it that way."
 
-Sern switched on the small terminal in his hand. A port informant's statement just recovered, the mouths of outer-ring sailors, broker traces from the pawnshop district, and one short sentence in common.
+Sern switched on the small terminal in his hand.
+A statement just obtained from a port information broker, the talk of outer-reaches sailors, a broker's traces from the pawnshop quarter. Every one of them ended in the same single sentence.
 
-**Hold delivery until survival is confirmed.**
+"Different mouths are repeating the same words."
+Sern said it low.
+"The courier is not holding out on his own judgment. Someone higher up has built it so that he waits for confirmation of survival."
 
-"The same words repeated by different mouths."
-Sern said low.
-"The courier is not holding out on personal judgment. Someone above built the structure to make them wait for survival confirmation."
+Ater looked down at the terminal screen for a moment, then closed it.
 
-Ater glanced at the terminal screen briefly, then closed it.
+"Then the archivist himself still ranks above the goods."
 
-"Then the archivist himself still sits above the goods."
-
-"At least for now."
+"At least so far."
 
 "That is not good."
 
-Sern did not bother unpacking the meaning inside that short sentence. The moment a person took priority over a record was always dangerous. People were erased slower than records, and moved far more unpredictably.
+Sern did not bother to unpack what that short sentence held.
+The moment a person came before a record was always dangerous. People were erased later than records, and moved far less predictably.
 
-The two passed the upper bridge and entered the narrow corridor between the port's administrative block and the civilian storage district. This was where official administrative lines and unofficial storage lines overlapped. No one traded openly here, but in practice it was the zone where the most information changed hands. Show the Valkar name and doors would open — but at the same time, too many eyes would follow.
+The two of them crossed the upper connecting bridge and entered a narrow passage between the port administration block and the private storage quarter.
+This was where the official administrative line and the unofficial storage line overlapped. No one dealt openly here, but in practice it was the quarter where the most information changed hands. Show the Valkar name and doors would open, but it was also a place where too many eyes would fasten on them.
 
-Sern spoke first.
+The passage was so narrow that two people could pass only by brushing shoulders. Temporary lockers were set into both walls, tier on tier, and half their numbers had been rubbed out or painted over. More had been painted over. Here, the numbers change before the goods do.
 
-"If the tag is gone, what remains is the intended delivery point."
+Sern went on as they walked.
+
+"If the tag has gone missing, what remains is the intended destination."
 
 "Candidates."
 
 "Three."
 
-Sern projected a thin display into the air. The lower-level temporary lodging district, the storage warehouse behind the docks, and the access bridge to an archive remnant that had been closed long ago and since renamed.
+Sern spread a thin projection screen in the air.
+The temporary lodging blocks of the lower district, the storage warehouse behind the wharf, and the archive debris access bridge, shut down long ago and now changed in name only.
 
-Ater's gaze stopped at the third.
+"The second,"
+Sern said.
+"This week's unloading records rose there alone. The other two have not moved."
 
-Sern saw it and added quietly.
+Ater did not take his eyes off the screen.
 
-"That one unsettles me most as well."
+"That is a place for moving goods."
 
-"Why."
+"Yes."
 
-"Inconvenient for hiding a person, but too well suited for hiding a record. Less a simple storage site — closer to a place for anchoring severed records to the scene."
+"What we are looking for is what has not been moved."
 
-Ater thought for a moment, then asked.
+Sern's hand stopped.
 
-"If they are keeping the archivist alive, where does he end up closest to."
+"...The third."
 
-"Where the records remain."
+Only then did Ater close the screen.
 
-"Then the answer is decided."
+"Inconvenient for hiding a person, and too good for hiding records. It is a place for tying a severed record to the scene."
 
-Sern nodded.
+The moment he finished, the sound of someone running rang out briefly from the level below the passage.
+Both their gazes went downward at once.
 
-"The archive debris access bridge."
-
-The instant those words ended, a short sound of someone running echoed from the level below the corridor.
-Both gazes turned downward at once.
-
-Below the railing, amid the crowd — two unfamiliar movements.
-One had the rough stride of a field operative; the other followed half a beat behind with a sharp step. Too fast at reading their surroundings to pass for port laborers.
+Below the railing, among the crowd, were two unfamiliar movements.
+One had the rough stride peculiar to a field operative; the other was a sharp step keeping pace half a beat behind it. They read their surroundings too fast to pass for port laborers.
 
 Sern spoke first.
 
-"Alliance outer-route administration side."
+"Alliance Outer Route Administration."
+
+"On what grounds."
+
+"Their walk. Both of them turn their heads toward a sound first." Sern paused briefly, then added. "It matches the roster. At that dock it is eight out of nine."
 
 Ater did not answer.
 
-The two shadows passing through the lower level were too brief, yet somehow stayed in the eye. The kind that read the surrounding air before anyone else in a scattered crowd. And beside that one, the kind that tore open the sightlines.
+Sern knew what that silence was. His lordship did not like counting people by kind. But the Bureau's papers were written no other way. Sern knew he had just used the Bureau's language, and he knew that it had been the fastest ground for judgment just now.
 
-An unregistered hand.
+The two shadows passing below were there only for an instant, yet strangely they stayed in the eye.
+One that read the surrounding air first, even in a scattered crowd.
+And beside it, one that tore open the line of sight for it.
 
-Ater withdrew his gaze, very slowly.
+Ater drew his gaze back, very slowly.
 
-"Faster than expected."
-
-Sern read the grain inside that short remark. His lord was displeased. But slightly more than that — curious.
+"Sooner than expected."
 
 "Will you make contact."
 
 "Not yet."
 
-"Surveillance only, then."
+"Then we track them only."
 
 "No."
 
-Ater's answer was short and clear.
+Ater's answer was short and distinct.
 
-"Let them arrive at the same place."
+"Let them go to the same place."
 
-Sern retraced the meaning with his eyes alone. Grab them now and the entire port shakes. Better to let them walk to the same threshold, and there see who tries to open what first.
+Sern went over the meaning once more with his eyes alone.
+Grab them carelessly now and the whole port would shake.
+Better to let them go as far as the same threshold, and see there who tried to open what first.
 
 "Understood."
 
-Ater moved again.
-The archive debris access bridge. Closed, but not completely dead. A bad place to hide an archivist, a bad place to leave a record — and precisely for that, the most likely location.
+Ater moved on.
 
 Meanwhile, on the level below,
-Sion had just finished reading the sign at the end of the alley.
+Sion had just made out the sign at the end of the alley.
 
-**R-12 Debris Access Bridge. Outer access prohibited.**
+**R-12 Debris Access Bridge. No outer access.**
 
-He turned the tag once more in his hand. The short projection text he had just read and this sign matched to an unsettling degree.
+He turned the tag over in his hand once more.
+The short projection he had just read and this sign fit together almost too well.
 
 Seorin saw the sign too.
 
-"Nice. At this point it's basically a written invitation to stay away."
+"At this point it's flat-out telling us not to come."
 
-"Which is why it's probably the right spot."
+"Which makes it more likely the right place."
 
-"Why does your life only run on rules like that."
+"Why do only rules like that apply to your life."
 
-"A nose like mine works best next to prohibited signs."
+"Bloodhound always works next to the no-entry signs."
 
-Seorin laughed as if she couldn't believe him.
+"That's three." Seorin added, without laughing. "That's not a job. That's a way of thinking."
 
-"That's not a profession. That's a way of thinking."
+Sion crouched in front of the lock under the sign.
 
-Sion scanned the lock mechanism below the sign and found a scratch — faint, freshly made. For a door long shut, the grain said it had been opened and closed again recently.
+The outside was properly dead. No indicator light, and rust lay thick on the handle's axle. At this rate you'd have to take it for a door that hadn't opened in ten years.
 
-He drew a short breath. This didn't smell like a simple courier hideout. It smelled like a scene built by someone accustomed to keeping parts and passing parts — a place better suited to burying in fragments than burning all at once.
+He didn't take hold of the handle. He looked underneath it.
+
+Rust doesn't settle evenly. It wears off only where hands touch, and on the worn spots it settles again, thin. So you read rust in layers. A thick layer, a thin layer over it, and marks that scraped through even the thin one.
+
+There were scratch marks. Three lines. Narrow and parallel.
+
+Sion laid his own fingertips over them. They didn't fit. Narrower than his hand. A gloved hand, or not a hand at all but a tool.
+
+"Whoever opened it didn't touch the handle."
+
+"Why."
+
+"Noise. They didn't turn the axle, just lifted the latch underneath. That takes a tool, and if you brought a tool, you came meaning to open it from the start."
+
+Sion stood, brushing the rust dust off his fingertips.
+
+"And they closed it again. Someone running scared doesn't shut the door behind him."
 
 "This is it."
 
 "You sure?"
 
-"Not sure, exactly."
+"Not sure."
 Sion answered low.
-"One step before sure."
+"One step short of sure."
 
 At the same moment, on the bridge directly above, Ater stopped walking too.
-Two people standing before the lock below.
-Too far to make out faces, but one was clearly reading traces before the scene itself.
+Two people standing in front of the lock below.
+Too far to make out faces clearly, but one of them plainly had the stance of someone who reads the traces before the scene.
 
 Sern asked, very quietly.
 
@@ -180,32 +214,38 @@ Sern asked, very quietly.
 
 "Yes."
 
-"Appears to be one field operative and one support from Alliance outer-route administration."
+"The papers list them as one field officer and one assistant."
 
-Ater was silent for a moment. His gaze swept slowly over the lock below, the two figures before it, and beyond them the darkened mouth of the access bridge.
+Ater did not answer for a moment.
+His gaze moved slowly over the lock below, the two shadows in front of it, and the access bridge entrance running dark beyond them.
 
-"Support."
+"An assistant."
 
-Sern heard how strangely short that word was bitten off.
+Sern heard the word bitten off oddly short.
 
 Ater said, very low.
 
-"That one does not move like support."
+"I expect that is how it is written. That one does not move like an assistant."
 
-Only then did Sern nearly smile, faintly.
-His lord had seen it too. One of the two was clearly reading the scene; the other was already watching where that person would break.
+Only then did Sern almost smile, faintly.
+His lordship had seen it too.
 
 "What will you do."
 
 Ater answered a beat late.
 
-"Wait until the door opens."
+"We wait until the door opens."
 
-And at that moment — from inside the mouth of the R-12 debris access bridge, in the darkness — a single metallic sound rang out, short and low.
+From the darkness just inside the mouth of the R-12 Debris Access Bridge
+came a single metallic sound, very short and low.
 
-As if someone inside had not yet fully left. A signal.
+Like a signal that someone inside had not yet entirely left.
 
-## Sion and Seorin, Ater and Sern — not yet knowing each other's faces — had finally arrived before the same threshold.
+The two below turned their heads at the same moment.
+
+The two above did not hear the sound. They only saw the two below suddenly look the same way, and for Ater, that alone was enough to know something was inside.
+
+The ones who heard, and the one who read the ones who heard.
 
 ---
 

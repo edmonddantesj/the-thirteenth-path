@@ -1,140 +1,224 @@
 # Episode 59. The Hands That Came Back Alive
 
-From the moment the two craft began turning back toward Hazran's center, the escape was no longer an escape.
+From the moment the two craft began turning back toward the center of Hazran, running away was no longer running away.
 
-That sensation was strangely sharp for Sion.
+That feeling was strangely clear to Sion.
 
-Break outward and you become a hunted hand. But carry the real thing back inside, and at least you can still remain a hand on the board.
+Slip outward, and they became hands being hunted.
+But carry the real thing back inside, and at least for now they could stay hands on the board.
 
 That difference changed everything.
 
-Jiwoo's skiff followed the dirty outer lower line and burrowed back beneath the inner structures. Until now, these had been lines discarded for survival. Now those discarded lines became the fastest detour back to the center. Not used for race progression, too unstable even for recovery—everyone avoided them. Which was why, in a situation like this, they were the most empty.
+Han Jiwoo's skiff followed the dirty lower outer line and burrowed back in under the inner structures. Until a moment ago it had been a line they threw away just to survive; now that thrown-away line had become the detour that could close on the center fastest. Not used for running the race, and too unreliable even for recovery, so everyone avoided it. Which was why, in a situation like this, it was the emptiest.
 
-Kael and Sern's glider braced from half a beat above. Not close enough to look like one, not far enough for Jiwoo's team to be left entirely alone. The two teams that had split into bait and real-thing line had now become a double line for returning to the center with the same result.
+Kael and Sern's glider braced it from half a beat above. Not so close that the two looked like one, and not so far that Han Jiwoo's team was left completely alone. The two teams that had split into a bait line and a line holding the real thing had now become a double line, carrying the same result back to the center.
 
-The dark-red glider behind had not fully lost them.
+The dark-red glider behind had not entirely lost them.
 
-But the chasing angle was different now. No longer the hand trying to cut off an exit from the arena—it followed more like a hand trying to confirm whether these hands truly intended to go back to the center. The other side knew too. Running away with the real thing and going back with it carried different values. The latter could flip the board itself.
+But its chasing angle was different now. It followed not like a hand cutting off a way out of the arena, but like a hand checking whether these hands really meant to go back to the center. The other side knew too. Running off with the real thing and going back with it carried different prices. The second could turn the board itself over.
 
-"Still on us."
-Sion said low.
+"It's still on us,"
+Sion said, low.
 
-Jiwoo answered shortly.
+Han Jiwoo's answer was short.
 
-"Losing us would be the end for them too."
+"If they lose us, they're probably finished too."
 
-Sion thought that was right. If the team that had grabbed the fake ember first also lost the real one here, they would slip both the race and the board. So they had no choice but to keep biting.
+Sion thought she was right.
+
+If the team that had grabbed the fake ember first lost the real thing too, here, that team would slip both in the race and on the board. So it had no choice but to bite harder.
 
 Sern had reached the same conclusion.
 
-"That team might be thinking of going in together rather than blocking us."
-He said low.
+"That team may now be thinking less of stopping us than of going in with us,"
+he said, low.
 
 Kael looked at him sideways.
 
-"Why."
+"Why?"
 
-"If they can't eat it outside, they eat it inside."
+"If they cannot take it outside, they take it inside,"
 Sern answered.
-"If there's any chance of flipping it in front of Zahir, they'll try."
+"If they can turn it over even in front of Zahir, they will try."
 
-Kael laughed shortly.
+Kael gave a short laugh.
 
 "Filthy to the end."
 
-"That's how they got this far."
+"That is probably how they got this far."
 
-From the stands, people were beginning to read the change too.
+Up in the stands, too, people were starting to read the change.
 
-Luhai leaned further off the railing edge, eyes widening as he saw the line below not fleeing outward but bending back inward.
+Luhai leaned farther out from the end of the railing, and his eyes went wide when he saw the line below bending back inward instead of fleeing outward.
 
-"They're going back."
-He said, nearly disbelieving.
-"They're actually going back."
+"They're going back,"
+he said, as if he could hardly believe it.
+"They're really going back."
 
 Seorin already knew.
 
-"They have to, to survive."
-She said low.
-"Break out now and all of Hazran bites."
+"That's how they live,"
+she said, low.
+"Pull out now, and all of Hazran bites."
 
-Ater nodded by the smallest degree at those words.
+Ater gave the slightest nod at that.
 
-The right judgment. Going back inside Zahir's board was dangerous. But at least it had a name. The rules still partially remained, and the justification of being the hand that returned carrying the result would be born. Outside, conversely, you became a hand fleeing with the real thing and no justification. Then the hands outside the arena, Harun's intervention, the market floor—all of it would converge in the same direction.
+It was the right call.
+Going back inside Zahir's board was dangerous. But at least it had a name. A little of the rules still remained, and they would have the standing of hands that came back with the result. Outside, they would be hands running off with the real thing and no standing at all. Then the hands outside the arena, Harun's side stepping in, the market floor—all of it would rush in from the same direction.
 
-Nasim, watching below, dropped his smile almost entirely for the first time.
+Watching below, Nasim nearly wiped the smile off his face for the first time.
 
-He must have read it too. That this was not simply the flailing of surviving outsiders, but a play of carrying the stakes back to the settlement table.
+He must have read it too.
+That this was not just outsiders flailing to stay alive, but a move to carry the stakes back to the place where accounts were settled.
 
-Zahir still had not moved.
+Zahir still did not move.
 
-But the nature of that stillness was different from a moment ago. Now it was closer to the silence of someone waiting. A silence that would add its words only after seeing to the end who could carry the real thing and return all the way before him.
+But that stillness was different again from a moment ago. Now it was closer to the silence of someone waiting. A silence that would put in a word only after watching, to the very end, who could hold the real thing and make it all the way back before him.
 
-Aka was watching below from beside Nahira.
+Aka watched below, then spoke.
 
-The hand returning with the ember. The other hand biting and following to the end. And the place where those hands would ultimately stand again.
+"Once they get this far, they won't chase."
 
-Her gaze was quiet, like someone who already knew all three.
+Seorin picked it up at once.
 
-Sion could not see that, but strangely he could feel that this return was not a simple survival choice. This was the act of walking back before the board. Into a place where more eyes watched and more hands assigned value than before.
+"Why won't they chase?"
 
-"Narrows ahead."
-Jiwoo said low.
+"Because if they take it here, everyone sees them take it."
+
+Seorin looked at the line below again.
+
+The dark-red glider was still on them. But the gap had opened a little since before. It kept following at that wider gap and did not close in.
+
+"Then isn't that good?"
+
+Luhai asked.
+
+Aka did not answer for a long while, then spoke.
+
+"Them not chasing is worse."
+
+Luhai's face stiffened.
+
+"Why?"
+
+"Chasing means you're in a hurry."
+
+Aka kept her eyes below as she said it.
+
+"Not chasing means you're not."
+
+Seorin heard that and said nothing.
+
+Not being in a hurry meant believing that even if you did not take it here, you could take it later. What the two down there were carrying back with everything they had, some hand was sitting and waiting for.
+
+Ater added, in a low voice.
+
+"Because once they come inside, the rules change."
+
+"What rules?"
+
+"Here, you do not take things. You put a price on them."
+
+It took Luhai a moment to understand.
+
+Once he did, he gripped the railing harder.
+
+"It narrows ahead,"
+Han Jiwoo said, low.
 
 Sion read ahead at once.
 
-A stretch where two dead outer lines converged again beneath an inner structure. On both sides were old recovery frames and traces of half-collapsed shutters. Above, metal lattice shadows hung. Not a race line but closer to a maintenance stretch, so it was not wide—but precisely because of that, it smelled more like it connected to the center.
+It was a stretch where two dead outer lines came back together into one beneath the inner structures. On either side were old recovery frames and the remains of half-collapsed shutters, and above hung the shadow of a metal grating. It was closer to a maintenance stretch than a race line, so it was not wide, but that was exactly why it smelled more like a way to the center.
 
-"Straight ahead is fastest."
+"Straight ahead is fastest,"
 Sion said.
-"But too clean."
+"But it's too clean."
 
-Jiwoo asked shortly.
+Han Jiwoo's question was short.
 
-"The sides?"
+"The side?"
 
-"Left is dirtier and slower. But hard for anyone to be waiting there."
+"The left is dirty and slow. But it's hard for anyone to wait there."
 
-The moment that finished, Sern caught it from above, low.
+The moment he finished, Sern picked it up from above, low.
 
-"We'll check straight ahead."
+"We will check straight ahead."
 
-Kael pushed the glider slightly forward without argument. Less a bait line, more a confirmation line—pressing a blade once more ahead of the line carrying the real thing.
+Kael pushed the glider a little forward without a word. Less a bait line now than a checking line, putting a blade to the way once more ahead of the line holding the real thing.
 
-The dark-red glider followed behind, closing on the straight path too.
+The dark-red glider followed behind it and closed in on the straight way too.
 
-Sion drew a short breath.
+Sion steadied his breath, briefly.
 
-Done. Split again.
+That did it.
+Split again.
 
-What was needed was never the fastest road, but who would step first onto the road someone else was greedy for.
+What mattered now was not always the fast way, but who would step, in their place, onto the way others would want first.
 
 Kael's glider scraped the clean straight line first.
 
-The first half-beat was fine. But the next moment, a hidden metal panel beneath the floor lifted and struck the glider's underside hard. Not a killing blow, but proof enough that the line had been bait tidied up for someone's eyes.
+For the first half beat, it was fine.
+But the next instant, a metal panel hidden under the floor jerked up and struck the glider's underside hard. Not a fatal hit, but it proved well enough that the line was bait, tidied up only to look good.
 
-"Figured."
-Kael said low.
+"Thought so,"
+Kael said, low.
 
-Sern was already pointing out the next line.
+Sern was already marking the next line.
 
-"Then down left."
+"Then low left."
 
-Jiwoo had already angled the skiff onto the dirty left line before those words finished. Beneath the half-collapsed shutter, inside the metal frame shadows—a line that killed speed but did not immediately devour people.
+Before he had finished, Han Jiwoo cut the skiff onto the dirty left line. Under the half-fallen shutters, inside the shadows of the metal frames: a line that killed their speed but would not swallow people whole right away.
 
-Watching it, Sion was certain once more.
+Watching it, Sion was sure once again.
 
-This was not about who was faster. It was about who proved their own right to be the first to return carrying the real thing.
+Right now it was not about who was faster, but about who would prove, on their own, that they had the right to come back first with the real thing.
 
-The dark-red glider behind hesitated a beat longer. Keep biting straight and get fooled by bait. Drop down and sacrifice speed and angle.
+The dark-red glider behind hesitated a little longer.
+Keep biting at the straight line and it would be fooled by the bait; drop low and it would have to give up speed and angle.
 
-That single short hesitation was enough time for both Jiwoo's team and Kael's team.
+That one short hesitation was time enough for both Han Jiwoo's team and Kael's.
 
-The two craft slid once more toward the same inner structure at staggered distances.
+Once more, the two craft slid in toward the same inner structures, at staggered distances.
+
+Under the inner structures, the sound changed.
+
+Outside there had been only wind and the scrape of metal. In here there were people. Footsteps passed beyond the grating overhead, somewhere iron was being hammered in a steady rhythm, and once someone shouted something.
+
+It was the market.
+
+Hearing it, Sion felt strange.
+
+A few days ago he had simply walked around among those sounds. He had asked prices, looked over the stalls, followed Seorin around. Back then it had been background.
+
+Now that sound was the board.
+
+In there were hands that would buy this, hands that would take it, and hands that would put a price on it. What Sion had carried this far was going to be set down in front of those hands.
+
+"Scared?"
+
+Han Jiwoo asked.
+
+Before answering, Sion looked at his hand. It was still closed.
+
+"A little."
+
+"Me too."
+
+Han Jiwoo said it.
+
+"But hearing that sound right now, I feel a little better."
+
+Sion knew what she meant.
+
+That sound meant it was still alive in there. People calling prices, hammering iron, calling to each other. Outside there was none of that.
 
 And Sion knew.
 
-What came next was not a simple return. The moment was approaching—to stand before Zahir again, as the hand that carried the real thing, endured the deception, survived the broken board, and came back alive.
+What came next was not just a return.
+Holding the real thing,
+having held out even through the trick,
+as hands that broke the board and still came back alive,
+they were about to stand before Zahir again.
 
 ---
 

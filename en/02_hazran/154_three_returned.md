@@ -1,154 +1,229 @@
 # Episode 154. Three Returned
 
-Even after bringing the three children fully back inside the hidden layer, no one could feel relief right away.
+Even after they were fully back inside the hidden layer with the three children,
+no one could feel relief right away.
 
-Succeeding in the return did not mean they were immediately safe.
+Making it back
+didn't mean they were safe.
 
-They had not come outside of Serakion. It was closer to having folded deeper into a crack still inside Serakion.
+They hadn't come out of Serakion;
+it was closer to having folded themselves into a deeper crevice still inside it.
 
-And above all, they needed to confirm what state the three they had brought were in.
+And above all,
+they had to find out first what state the three they had brought were in.
 
-The first to collapse was the small child who had been half a beat fast.
+The first to sink down
+was the small child who had been half a beat fast.
 
-The child whose body had been lunging forward moments ago — once fully separated from the order's line — gasped for breath as though unable to handle their own speed.
+The child whose body had kept lunging ahead, ready to bolt,
+now, fully out of the order's line,
+was gasping as if they couldn't keep up with their own speed.
 
-The first recovery hand lowered himself first.
+The first recovery hand crouched first.
 
-The child did not retreat as if fleeing. But neither did they come toward being held.
+The child didn't shrink back as if to flee.
+But the child didn't come forward to be held right away either.
 
-The eyes kept shaking. The hands could not stay still. It looked as though they did not yet know where their body should stop.
+The eyes kept darting,
+the hands couldn't stay still,
+and the child seemed not yet to know where their body was supposed to stop.
 
-Jiwoo approached very slowly.
+Han Jiwoo came closer, very slowly.
 
-"It is all right." She said it low. "You do not have to walk fast anymore."
+"It's all right,"
+she said, low.
+"You don't have to walk fast anymore."
 
-Those words hung in the air longer than expected.
+The words hung in the air longer than expected.
 
-That child must have always had to match some beat inside Serakion. Fast or slow, they always had to be matched to something.
+Inside Serakion
+that child must always have had to keep to some beat.
+Fast,
+or slow,
+in the end they must always have had to be fitted to something.
 
-But now, for the first time, they were hearing that they did not have to.
+But now, for the first time,
+they were being told they didn't have to.
 
-That was precisely why they could not calm down easily.
+Which was exactly why
+calming down came harder.
 
-The second child was strange in a different way.
+The second strange one
+was the child who didn't look up.
 
-The child who had not looked up still did not look up after returning.
+Even after coming back, that child didn't look up once.
 
-Even when someone approached. Even when the light changed. Even when the hidden layer's unfamiliar machines came into view.
+Not when someone came near,
+not when the light changed,
+not when the strange machines inside the hidden layer came into view.
 
-The gaze stayed fixed down or to the side.
+The child kept their eyes only down, or to the side.
 
-Ater watched for a long while and seemed to realize his expectation had been only half right.
+Ater watched for a long while,
+and seemed to realize his guess had been only half right.
 
-That child did carry the silence of someone enduring. But that silence included not just will — it included the body's habit of having lived too long without looking up.
+That child did have the silence of someone holding out.
+But that silence was not simply will;
+it also held the habit of a body that had lived too long making sure not to look up.
 
-"It will take time." He said it low.
+"This will take time,"
+he said, low.
 
-The second recovery hand answered short.
+The second recovery hand answered shortly.
 
-"It does for everyone."
+"It does for all of them."
 
-That brief line revealed how many first rescues, first failures, and first arrivals this hidden layer had already been through.
+Those few words
+showed how many first rescues, first failures, and first arrivals this hidden layer had already been through.
 
 The third child was the quietest.
 
-The one whose fingertips had not yet let go of their own stopping — even after returning — did not let go of Jiwoo's hand.
+The child whose fingertips had not yet let go of their own stop
+still didn't let go of Han Jiwoo's hand after they were back.
 
-More precisely, it looked as though they had forgotten how to fully let go.
+More exactly,
+the child seemed to have forgotten how to let go completely.
 
-Not gripping hard. Not clinging. Just very small and firm, continuously holding one of Jiwoo's fingertips.
+Not gripping hard,
+not clinging.
+Just, very small and firm,
+keeping hold of the tip of one of Han Jiwoo's fingers.
 
-Jiwoo did not try to pull free.
+Han Jiwoo didn't try to loosen it.
 
-Instead she sat with her knees lowered, feeling only what force the child's hand was using to hold on to hers.
+Instead she knelt down low
+and only felt with what strength the child's hand was holding on to hers.
 
-That small force hurt more than the entire first rescue.
+That small strength
+hurt more than the whole first rescue.
 
-The child had followed by their own will. But even after following, they had not fully arrived yet.
+The child had followed of their own will.
+But even after following,
+they hadn't fully arrived.
 
-Rescue does not end at pulling a body out. After the body arrives, you have to bear the fact that the person is still trembling inside Serakion's beat.
+A rescue doesn't end with getting the body out.
+After the body arrives,
+you have to carry the fact that the person is still trembling inside Serakion's beat as well.
 
-All three were showing that in very different ways.
+All three were showing that, each in a very different way.
 
-Jiwoo quietly clenched her jaw.
+Han Jiwoo quietly set her teeth.
 
-Ater watched the three children from the wall, alternating between them. Kael was already retracing the closure response of the return path in his head.
+Ater, by the wall, looked from one of the three children to the next.
+Kael was already going back over, in his head, how the way back had reacted as it closed.
 
-The first to break the silence was the first recovery hand.
+And the one who broke that silence first
+was the first recovery hand.
 
-"From here, it gets harder."
+"From here it gets harder."
 
 No one could argue.
 
-The first rescue had succeeded, yes. But precisely because of that, Serakion would very likely not move at the same beat from now on.
+The first rescue had worked, true.
+But that was exactly why
+Serakion was likely not to keep moving to the same beat as before.
 
-Just because no loud alarm had been raised did not mean nothing would change.
+Just because the alarm hadn't sounded loudly
+didn't mean nothing would change.
 
-Kael said it low.
+Kael said, low,
 
-"They will change the folding sequence."
+"It'll change the folding order."
 
 The second recovery hand nodded.
 
-"Probably mix the people more too. Same line, same interval, same speed — they might not keep any of it."
+"It will probably mix the people more, too."
+"It may stop keeping them in the same line,
+at the same spacing,
+at the same speed."
 
-That meant because the first fracture had succeeded, a second attempt in the same way would be harder.
+What that meant
+was that because the first crack had worked,
+a second done the same way would be harder.
 
-Serakion had always been a world closer to the side that learns.
+Serakion had always been a world that leaned toward learning.
 
-Ater said it low.
+Ater said, low,
 
-"A beat lost once will never be given the same way again."
+"A beat it has lost once,
+it will never give up the same way again."
 
-Bitter, but precise.
+It was bitter, but exact.
 
-Yet through all of it, Jiwoo was still holding one of the three children's hands.
+Yet even then,
+Han Jiwoo was still holding the hand of one of the three.
 
-She said it very low.
+She said, very low,
 
 "We still did it."
 
-That was not a victory declaration. It was closer to saying they would have to do it again.
+It wasn't a declaration of victory.
+It was closer to saying they had to do it again.
 
-"The thing they said could not be done — we did it once." She said it again. "That means the next time is not impossible."
+"The thing everyone said couldn't be done,
+we did it once,"
+she said again.
+"So a next time isn't impossible."
 
-The first recovery hand was silent for a long while.
+At that, the first recovery hand was silent for a long time.
 
-Then he answered very low.
+Then it answered, very low.
 
-"It is not impossible. But it will cost more."
+"It is not impossible."
+"Only,
+it will cost more."
 
-That sentence felt like truth itself.
+That sentence sounded like the plain truth.
 
-The next rescue would close faster. It would be decided by more minute differences. It would demand more to be endured.
+The next rescue would close faster,
+would be decided by finer margins,
+and would ask them to bear more.
 
-And above all, the children's side would change too.
+And above all,
+now the children would change too.
 
-Some would have seen the three who just slipped out. Some would have only felt the confusion. Some would become more anxious. Some might look for the outside faster.
+Some would have seen the three slip away just now,
+some would have felt only the confusion,
+some would grow more anxious,
+and some would start looking for the outside even sooner.
 
-The first fracture does not remain only on the outside. It remains on the inside too.
+The first crack doesn't stay only on the outside.
+It stays on the inside too.
 
-That could be hope. Or it could be faster collapse.
+That could be hope,
+or a faster collapse.
 
-Then the small child who had been half a beat fast began breathing slightly less raggedly for the first time.
+Just then
+the small child who had been half a beat fast
+began, for the first time, to breathe a little less hard.
 
-The child who had not looked up still did not look up, but moved their gaze sideways for just an instant.
+The child who didn't look up still didn't look up,
+but for a brief moment let their gaze move to the side.
 
-And the child holding Jiwoo's hand, without a word, sat slightly closer.
+And the child holding Han Jiwoo's hand
+shifted a little closer, without a word.
 
-Those were small changes. Too small to call this recovery yet.
+They were small changes.
+So small
+that it was still too early to call them recovery.
 
-But at least one thing was clear.
+But one thing at least was clear.
 
-The three who had been brought back were not merely proof that the rescue had succeeded.
+The three they had brought back had not merely proven the rescue worked.
 
-They were showing, far more vividly, how much time was still trapped inside Serakion — and how much longer, how much more painfully, hands would have to reach out to pull that time back.
+How much time was still locked inside Serakion,
+and, to pull that time back out,
+how much longer and more painfully they would have to keep reaching—
+the three were showing that far more clearly.
 
-That night, inside the hidden layer, a brief low relief and a larger tension lived side by side.
+That night,
+for a while, a very faint relief and a larger tension stayed together inside the hidden layer.
 
-The first three had returned.
+The first three had come back.
 
-And precisely because of that, the number of those who had not yet returned became far more distinct.
+And exactly because of that,
+the number not yet back
+stood out even more sharply.
 
 ---
 

@@ -1,246 +1,243 @@
 # Episode 142. Chosen Differently
 
-The recon team was assembled
-not by anyone raising a hand.
+The recon team was put together,
+but not by anyone throwing a hand in the air.
 
-This old layer doesn't move that way.
+This old layer doesn't move that way to begin with.
 
-Those who go are decided first
-not from those who want to,
-but from those who now have a reason they must.
+Those who go out are chosen not from those who want to,
+but first from those who now have a reason they must.
 
-The words the casualty leaked were short.
-Broken.
-Not a precise map.
+The words the casualty had let slip were short,
+broken,
+and nowhere near an exact map.
 
-But already enough.
+But they were already enough.
 
 Children.
-Ones with good hands.
+The ones with good hands.
 Moving them up.
 
-Those few fragments alone made it clear
-that Serakion was selecting humans more precisely and redistributing them.
+From just those few scraps,
+it was clear that Serakion was choosing humans more precisely and placing them all over again.
 
-The question was now who goes to confirm it.
+The question now was who would go to check it.
 
-The first recovery hand showed no sign of hesitation.
-From the start, going back out was the plan.
+The first recovery hand had shown no sign of hesitating in the first place.
+It had meant to go back out from the start.
 
 But this time,
-the inside couldn't unconditionally block it either.
+the inside was in no position to simply hold it back, as before.
 
-Jiwoo spoke first.
+Han Jiwoo spoke first.
 
 "I'm going."
 
-One old machine answered immediately.
+One of the old machines answered at once.
 
 "You are needed here as well."
 
-Jiwoo didn't look away.
+Han Jiwoo didn't even look away.
 
-"I know I'm needed here."
-She said, low.
-"But if I sit here imagining how they're picking human hands over there, I'll be late."
+"I know I'm needed here,"
+she said, low.
+"But if I just sit here imagining how they're choosing people's hands over there,
+it'll be too late."
 
-That wasn't simple defiance.
+It wasn't simple defiance.
 
-Jiwoo now had a reason to see directly
-how Serakion reads human hands,
-how it converts them into value, skill, and property.
+Han Jiwoo had a reason, now, to see with her own eyes how Serakion read human hands
+and how it turned them into value, skill, and ownership.
 
-Whether Serakion's sensibility
-belongs only to the aristocrat machines
-or has descended as the order across everything below the upper level—
-that can only be known on-site.
+Whether Serakion's way of sensing things
+belonged only to the aristocrat machines,
+or had come down into the whole order below the upper levels,
+was something you only learn by going there.
 
-The first recovery hand didn't object this time either.
+The first recovery hand didn't object this time, either.
 
-It looked Jiwoo over once, then said brief.
+It looked Han Jiwoo over once, then said shortly,
 
-"If your feet are slow, I leave you."
+"If your feet are slow, you get left behind."
 
-Jiwoo fired back instantly.
+Han Jiwoo shot back at once.
 
-"You break first, not me."
+"Just don't break first yourself."
 
 A short silence.
 
-Only then did Luhai let out a small snort,
-and Aka watched the two in turn without a word.
+Only then did Luhai let out a small snicker,
+and Aka looked from one to the other without a word.
 
-It was a standoff,
-but strangely looked a little like a rite of passage too.
+It was a battle of nerves,
+yet strangely it also looked a little like a rite of passage.
 
-Not because they liked each other—
-a way of confirming whether they're now entering the same danger.
+Not because they liked each other,
+but as a way of checking whether they now had to walk into the same danger.
 
-Ater stepped forward next.
+It was after that that Ater stepped forward.
 
-He'd been silent for a while.
-But strangely, everyone already wore faces that knew he would speak.
+For a while he said nothing.
+But strangely, everyone already wore the look of knowing he would speak.
 
-"I go too."
-He said.
+"I am going too,"
+he said.
 
 Sion looked at him.
 
-Ater added, very brief.
+Ater added, very briefly,
 
-"I need to see it myself."
+"Because I have to see it for myself."
 
-Those words were short,
-but Sion could understand nearly everything inside them.
+It was short,
+but Sion could hear almost everything that was in it.
 
 Serakion is different from the Empire.
-At least on the surface.
+On the surface, at least.
 
-More intricate.
-More refined.
-Hides violence more elegantly.
+More intricate,
+more polished,
+hiding its violence more gracefully.
 
 But precisely because of that,
-Ater has more reason to look.
+Ater has all the more reason to look.
 
-If the exterior is this different yet the essence resembles—
-then it isn't just Serakion's problem.
-It could change the eyes he uses to look at his own Empire.
+If the essence resembled the Empire's even though the surface was this different,
+then it would not be Serakion's problem alone;
+it could change even the eyes he used to look at his own Empire.
 
-Ater, receiving Sion's gaze, spoke low.
+Holding Sion's gaze, Ater said, low,
 
-"I am not going to see how different it is from the Empire.
-I am going to see how much it is not different."
+"I am not going to see how far that differs from the Empire.
+I am going to see how far it does not."
 
-Those words were cold.
-But more precise for it.
+It was cold.
+And for that, all the more exact.
 
 Sion said nothing.
-Instead, on Ater's face, he saw
-a heavier coldness than before entering Hazran.
+Instead, in Ater's face,
+he saw a cold that had grown heavier than before they entered Hazran.
 
-Ater wasn't simply going to observe a hostile world.
-He was closer to the side going to collect
-one question that would embed itself when he returned to his own world.
+Ater wasn't simply going to look at a hostile world.
+He was closer to going to fetch a question that would lodge itself in his own world when he returned.
 
 Kael was last.
 
 He had looked from the start like someone who would go,
-but strangely opened his mouth latest.
+yet strangely he was the last to speak.
 
-He studied the wall map and the routes the recovery hands had traveled for a long time,
-then said, very low.
+After studying the wall map and the routes the recovery hands had taken for a long time,
+he said, very low,
 
 "I'm going too."
 
 The old machine asked.
 
-"Reason."
+"Your reason."
 
-Kael was silent for a moment.
+Kael said nothing for a moment.
 
 Then, looking between the gray routes drawn on the panel
-and the direction of the android legion's herding deployment, he said.
+and the direction of the android legion, now in its herding deployment, he said,
 
-"To extract people,
+"To pull people out,
 you have to see where to block and where to open at the same time."
 
 A short silence.
 
-Those words were dry, like Kael.
-But Sion knew immediately it was a fairly important sentence.
+It was dry, the way Kael was,
+but Sion knew at once it was a fairly important sentence.
 
-Kael had always been read as the heavy side.
-The side that holds to the end.
-But right now he wasn't speaking as simply the person who blocks.
-He was saying he would look at where to open and where to block, together, in order to save.
+Kael had always been read as the heavy one,
+the one who holds on to the end.
+But now he was saying he wasn't simply someone who blocks;
+he would look, too, at where to open and where to block in order to keep people alive.
 
-That was a shield's judgment
-and simultaneously a pathmaker's.
+It was the judgment of a shield,
+and at the same time of someone who makes a way through.
 
 The first recovery hand looked at Kael once.
 
 Longer than before.
 
-"Let's see if the body matches the words."
-It said, low.
+"Let's see if the body matches the words,"
+it said, low.
 
-Kael answered brief.
+Kael answered shortly.
 
-"Yeah."
+"Fine."
 
-That was the end.
-But inside that short exchange,
-both had clearly placed each other on trial.
+That was all.
+But in that short exchange,
+it was plain that each had put the other up for testing.
 
-Sion looked between the three.
+Sion looked from one of the three to the next.
 
-Jiwoo goes to see the world of hands.
-Ater goes to confirm the resemblance between the Empire and Serakion.
-Kael goes to see the balance of breakthrough and defense needed to save.
+Han Jiwoo goes to see the world of hands,
+Ater to confirm the resemblance between the Empire and Serakion,
+Kael to see the balance of breaking through and holding that saving people will take.
 
-All three go out,
+All three were going out,
 but not for the same reason.
 
-And because of that,
-the combination felt right for going together.
+Which was exactly why
+going together felt like the right combination.
 
-Then Luhai spoke, as if he couldn't hold it in.
+Then Luhai spoke, as if he couldn't stand it.
 
-"Am I getting left out again?"
+"So I'm the one left out again?"
 
 Aka looked at him first.
-And said, very calmly.
+Then she said, quite calmly,
 
-"You wouldn't lose people here either."
+"You won't let anyone slip here either."
 
-Luhai opened his mouth and closed it.
+Luhai opened his mouth, then shut it.
 
-In that one short line,
-his face said he'd already realized his place was set.
+With that one short line,
+his face showed he had realized his place was already set.
 
-Sion was the same.
+It was the same for Sion.
 
-It wasn't that he didn't want to go.
-But the eyes that stay inside and read the signs of collapse first
-—on both the human and machine sides—were needed right now.
+It wasn't that he didn't want to go out too.
+But right now, eyes that stayed inside
+and read the first signs of collapse on both sides, human and machine, were needed.
 
-That was no longer just a temporarily assigned task.
-It was closer to a function this old layer had actually begun leaning on.
+That was no longer just a share he had taken on for a while;
+it was closer to a function this old layer had actually begun to lean on.
 
-The moment those who leave and those who stay were divided,
-Sion felt a sensation entirely different from leaving Hazran.
+At the moment those leaving and those staying split apart,
+Sion felt something entirely different from when they had left Hazran.
 
-Then, staying was the responsibility.
-Now, staying to read is also responsibility.
+Back then, the side that stayed carried the responsibility.
+Now, the side that stays and reads carries it too.
 
-The first recovery hand said one last thing, very brief.
+The first recovery hand said one last thing, very briefly.
 
 "We go out before sunrise."
 "If we're late,
-the picking side finishes first."
+the ones doing the choosing will finish first."
 
-That was a preparation signal
-and a warning.
+It was a signal to get ready,
+and a warning, too.
 
 Serakion is already moving.
-More beautifully.
-More precisely.
-More deeply selecting and raising people.
+More beautifully,
+more precisely,
+choosing people more deeply and raising them up.
 
-So this side too
-must move before it's later still.
+So this side, too,
+has to move before it gets any later.
 
 At the end of that night,
-Jiwoo, Ater, and Kael began to stand toward the same path,
-each carrying a different reason.
+Han Jiwoo, Ater, and Kael began to line up toward the same path, each carrying a different reason.
 
-And Sion watched them and knew.
+And watching them, Sion knew.
 
-From here on, the inside and outside of this old layer
+From now on, the inside of this old layer and the outside
 would no longer move separately.
 
-At least not this time.
+Not this time, at least.
 
 ---
 

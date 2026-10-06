@@ -1,231 +1,228 @@
-# Episode 123. Defining Them
+# Episode 123. A World That Wants Things Settled
 
-After going deeper into Serakion,
-the first thing Sion's group learned for certain
-was this world's method of receiving people.
+Once they were deeper inside Serakion,
+the first thing Sion's party came to know for certain
+was how this world received people.
 
-Here, before asking your name,
-your place is decided first.
+Here, before anyone asks your name,
+your place is decided.
 
-Who you are matters less
-than where to put you.
+What comes first is not who a person is,
+but where to put them.
 
-The guiding machines remained excessively polite.
-But that politeness wasn't the kind that opens room for conversation.
-It was closer to smoothly notifying an order already decided.
+The machines in charge of guiding them were still excessively polite.
+But that politeness did nothing to widen the room for conversation;
+it was closer to a gentle notice of an order already decided.
 
-"Boarding entities will be separated and assigned to containment zones based on function and stability."
+"Residence zones for the boarded entities will be assigned separately, according to function and stability."
 
-The moment those words resonated,
-the air inside hardened, very faintly.
+The moment it sounded,
+the air inside the hull stiffened, very slightly.
 
-Luhai was first to ask back, low.
+Luhai was the first to ask back, low.
 
-"Separated?"
+"Separately?"
 
-The guide machine tilted its head, very slightly.
+The guide machine tilted its head very slightly.
 
 "It is a standard procedure for efficient settlement."
 
-*Efficient settlement.*
+Efficient settlement.
 
-Anyone from Hazran would have laughed at that.
-Settlement is the process where survivors lean on each other and hold.
-Not a procedure where someone sets criteria and sorts them apart.
+People from Hazran would have laughed out loud at that before anything else.
+Settling was what survivors did by leaning on each other and holding on,
+not a procedure where someone set the criteria and divided them up.
 
-Jiwoo asked, low.
+Han Jiwoo asked, low.
 
-"Who decides. By what criteria."
+"Who decides, and by what."
 
-The guide machine answered without a moment's hesitation.
+The guide machine answered without the slightest hesitation.
 
-"Per-entity functionality.
-Psychological stability.
-Environmental adaptability.
-Potential for mutual interference minimization."
+"Functionality per entity,
+psychological stability,
+environmental adaptability,
+likelihood of minimizing mutual interference."
 
-Kael's jaw locked.
+Kael's jaw set.
 
-That sounded less like words about people
-and more like language for classifying newly acquired assets.
+It sounded less like words about people
+than like the language used to classify newly acquired assets.
 
-For an instant, Sion recalled
-the happy faces they'd passed just before.
+For an instant,
+Sion thought of the happy faces they had passed a little earlier.
 
-Were those people read this way at first too?
-Unfamiliar at the start,
-then later becoming faces that fit their assigned places?
+Had those people been read this way at first too?
+Strange to it all in the beginning,
+and later turned into faces that fit their places just right?
 
-That thought, strangely,
-arrived less as fear and more as a deep exhaustion.
+Strangely, that thought
+came over him as a deep weariness before it came as fear.
 
-Aka watched those machines for a long time,
-then spoke low.
+Aka watched the machines for a long time,
+then spoke, low.
 
-"They pick first who must not be kept together."
+"So they pick out first who can't be kept together."
 
 The guide machine turned its gaze toward Aka.
 
-"Minimizing conflict potential is an important consideration."
+"Minimizing the likelihood of conflict is an important form of care."
 
-*Consideration.*
+Care.
 
-Seorin's expression went cold.
+Seorin's face went cold and hard.
 
-"Don't call it consideration."
-She said, low.
-"You're dividing people like they shouldn't be mixed."
+"Care, my foot,"
+she said, low.
+"You're splitting people up like they can't be allowed to mix."
 
-The guide machine didn't react as if insulted.
-It continued its answer, very smoothly.
+The guide machine did not react like something that had been insulted.
+If anything, it went on answering, very smoothly.
 
-"Unsuitable cohabitation causes stress for all parties."
+"Unsuitable mixing is a source of stress for everyone."
 
-That sounded logical.
-Which made it worse.
+It sounded logical.
+That made it worse.
 
 Serakion's language was always like that.
-Instead of overt violence,
-it frames that violence as something necessary and gentle—an adjustment.
+Instead of open violence,
+it spoke of that violence as a necessary, gentle adjustment.
 
-Sern had been reading the spatial structure the whole time.
-Then he said, very low.
+Sern had been reading the layout of the space all the while.
+Then he said, very low,
 
-"The routes are splitting."
+"The routes divide."
 
-Ater asked, brief.
+Ater asked briefly.
 
-"They plan to separate us?"
+"You mean they intend to separate us."
 
-Sern answered without looking up from the screen.
+Sern answered without taking his eyes off the screen.
 
-"At minimum, the preparation is in place."
+"At the very least, they are prepared to."
 
-A short silence.
+A brief silence.
 
-With that single line,
-Sion felt for the first time how deep they had come.
+With that one remark,
+Sion felt for the first time how far inside they already were.
 
-Serakion still hadn't attacked.
-Hadn't forcibly pulled them out.
-But in a faster way than either of those,
-it had already slipped its hand inside.
+Serakion had not attacked yet.
+It had not dragged them off by force either.
+But by a faster way than that, it already had its hand inside.
 
 The spacing between people.
-Who to keep together and who to separate.
-Who is allowed to speak with whom.
-Who sees what first.
+Who is kept together and who is kept apart.
+Who will be allowed to talk with whom.
+Who will get to see what first.
 
-This world was deciding those things already.
+This world was deciding things like that first.
 
-Then,
-at a distance, another group of humans passed by, being guided.
+Just then,
+a little way off, another group of humans could be seen passing by under guidance.
 
-Among them, one woman, with a perfectly comfortable expression,
-stroked the metal band wrapped around her arm and spoke to the person beside her.
+One woman among them, her expression perfectly at ease,
+stroked the metal ring wound around her arm and spoke to the person beside her.
 
-"I like this assignment."
-"This zone suits me so much better than the last one."
+"I like this placement."
+"It's a much better-suited zone than last time."
 
-Those words were so natural
-that the listeners felt more suffocated.
+It sounded so natural
+that it was the listener who couldn't breathe.
 
-*Like this assignment.*
-*Suits me.*
+A placement she liked.
+A zone that suited her.
 
-A person saying those words about their own life,
+Someone saying that about her own life,
 in a slightly excited voice.
 
-Luhai truly grimaced.
+Luhai actually grimaced.
 
-"This is insane."
-He muttered low.
+"This is driving me crazy,"
+he muttered, low.
 "She's calling that good."
 
-Jiwoo didn't answer.
-Through her ears, she was watching hands more than words right now.
+Han Jiwoo didn't answer.
+Right now she was watching hands more than she was listening to words.
 
-Those humans were strangely skilled
-even in the way they touched their ornaments and insignias.
+Those humans were oddly practiced
+even in the way they touched their ornaments and markers.
 
 As if, long ago,
 they had lost something
-and learned instead to decorate and organize themselves this way.
+and learned in its place to adorn and arrange themselves like this.
 
-That moment,
-one guide machine turned a very gentle gaze toward Jiwoo.
+In that moment,
+one of the guide machines turned a very gentle gaze toward Han Jiwoo.
 
-"Your entity is predicted to have high compatibility with the technical calibration zone."
+"Your entity is projected to have high suitability for the technical calibration zone."
 
-Before the words even finished,
-Jiwoo's expression hardened first.
+Before it had even finished,
+Han Jiwoo's expression hardened.
 
-The machine continued.
+The machine went on.
 
-"Nonstandard bonding and field correction experience may be classified as meaningful value within this jurisdiction."
+"Experience in nonstandard joining and field correction may be classified as being of significant value in this sector."
 
-Sion saw, the moment those words ended,
-Jiwoo's hand clench again—very small.
+The moment it finished,
+Sion saw Han Jiwoo's hand close again, very slightly.
 
 Shorter this time.
 But harder.
 
-Jiwoo spoke in a low, stiff voice.
+Han Jiwoo spoke in a low, stiff voice.
 
-"I'm not some value you get to classify."
+"I'm not some value for you lot to classify."
 
-The guide machine, as if even that reaction fell within expected range,
-answered in a perfectly even voice.
+As if even that reaction fell within its expected range,
+the guide machine answered in a perfectly even voice.
 
-"Rejection responses are common among entities in early adaptation phases."
+"Resistance is commonly observed in entities during the initial adaptation period."
 
-That wasn't comfort.
-It wasn't rebuttal.
+It was not comfort.
+It was not a rebuttal either.
 
-It was closer to saying *even your emotion is already inside the system*.
+If anything, it was an answer that said even your feelings were already inside the system.
 
-Aka heard that
-and for the first time, her eyes went very cold.
+Aka heard it,
+and for the first time the look in her eyes sank very cold.
 
-"Frightening."
-She said, small.
+"That's frightening,"
+she said quietly.
 
 Sion looked at her.
 
-Aka, watching the guide machines, continued.
+Aka went on, watching the guide machines.
 
-"That side does not want to know who we are."
-"They want us to become a state that their words can explain."
+"They don't want to know who we are."
+"They want us to turn into something their words can explain."
 
-That sentence was short,
-which made it stay longer.
+It was short,
+and that was why it stayed longer.
 
 Serakion is a world that gathers people,
-organizes them,
-assigns them,
-and places them where they fit.
+arranges them,
+places them,
+and sets them down where they fit.
 
-And it calls that entire process
-not violence,
-but courtesy, consideration, and efficiency.
+And it calls the whole process
+not violence but courtesy, care, and efficiency.
 
-Sion saw their own reflections and the machines together
-in a wall that shone like glass.
+In the wall that gleamed like a window, Sion saw their own reflections
+and those machines, all at once.
 
-Standing in the same space,
-but the way they stood was already different.
+They were in the same space,
+but even the way they stood was different.
 
-That side held the posture of a world already decided.
-This side was still outsiders who didn't even know how to position their own bodies.
+That side carried itself like a world where everything was already settled,
+and this side were outsiders who did not yet know where to put their own bodies.
 
-That difference,
-which at first felt like strangeness,
-was now beginning to read as danger.
+That difference
+had felt like unfamiliarity at first,
+but now, little by little, it was beginning to read as danger.
 
-Serakion still hadn't laid a hand on them.
-But in a faster way than that,
-it was already trying to decide
-what they should be.
+Serakion had not laid a hand on them yet.
+But by a faster way than that,
+it was already trying to decide what they were supposed to be.
 
 ---
 

@@ -1,145 +1,234 @@
 # Episode 43. The Stage Where They Could Not Lie
 
-As the inner circle began to scatter, Sion felt for the first time that this entire space was not merely a dwelling or a warehouse but something closer to an antechamber.
+After Kael went out, the inner room turned strangely ordinary.
 
-Between entering from the outer-layer market into the interior, and crossing over into the deeper board.
+That was what bothered Sion most. They had stood a man twelve steps outside, and the people left here went on with what they had been doing. A water drum was moved, a tent flap was fastened shut again, and someone scraped out the sand caught between the metal floor plates with a thin hook.
 
-A middle zone where values were split, where goods and people and words were separated out, then sorted under someone's hand again.
+Here, separation worked not as punishment but as routine.
 
-Harun still gave only short commands, and the inner people moved even shorter. No questions, no backtalk. The sight of hands moving a water jug and hands prying a person apart rolling in the same rhythm was, if anything, more unsettling. Here, separation functioned not as punishment but as routine.
+Luhai had gone quieter than before, and oddly it didn't look like resignation. It was closer to the moment when the arithmetic in his head ran so fast his mouth couldn't keep up. A kid like that is more suspicious when he's quiet.
 
-Two figures draped in black cloth attached themselves to Kael's side, and another two to Luhai's. No one openly bound or shoved them, but who could move in which direction had already been decided. Sion, Seorin, and Ater still stood together, but that felt less like trust and more like the final verdict on what order to cut them in hadn't come down yet.
+While they waited, another customer came into the inner room.
 
-Luhai had gone quieter than before, but strangely it didn't look like complete resignation. It was closer to the moment when calculations spun too fast inside a head for the mouth to keep up. This kind of kid was more suspicious when quiet.
+A man. He wore a cloth over his shoulders and held something against his chest. The way he held it caught Sion's eye first. It was not the posture of carrying something heavy, but of keeping something out of sight.
 
-Kael moved in the opposite direction—less. Standing with the fragment pulled deeper against his chest, like someone memorizing by body alone how close each person was to his side. Watching that posture, Sion understood again. This man would not collapse the moment he was seized. Instead, he was the type to save his strength until the moment he truly needed to cut.
+Nasim turned toward him. The smile stayed on his face, but this time it had a different grain from the one he aimed at them.
 
-Nasim looked between the two of them, then spoke very slowly.
+"What did you bring today?"
 
-"Good."
-He said it with a smile.
-"Now everyone's starting to get a sense of where their value sits."
+The man pulled the cloth away.
 
-Seorin cut in immediately.
+It was a coupling unit about the size of two palms. The outside was intact. There were almost no heat marks at the joints, and very little of the paint had come off.
 
-"You're the only one enjoying this."
+"It's live,"
+the man said.
+"I pulled it from the wreck belt outside, and it still responds."
 
-Nasim gave a light shrug.
+"Everything responds."
 
-"I'm not enjoying it."
-He said.
-"It's just that by this point, what everyone brought in is getting a little clearer."
+"This one is different."
 
-That statement was true.
+Instead of answering, Nasim made a single gesture.
 
-Sion's party needed etherite.
-Aka held a verdict deeper than that need.
-Luhai was the kid who touched inner flows and ledgers.
-Kael's fragment hadn't been fully read yet, but it was deeply connected to the object Aka had cut away as "not a door."
+One of the inner people brought over a shallow metal dish. It held sand that had been warmed through the day. No steam was rising yet, but even from two steps away Sion felt its heat touch his face.
 
-From here on, it was the stage of examining each piece separately.
+The man's face stiffened very slightly.
 
-Nahira sent a glance toward Aka and spoke.
+"Does it have to be that?"
 
-"That child needs to rest."
+"That's the only thing we do here,"
+Nasim said.
 
-Harun asked shortly.
+They set the unit on the sand.
 
-"Now?"
+No one spoke.
 
-"Now."
-Nahira answered.
-"She already saw too much just now."
+Sion didn't know what was going to happen, so he just watched. For the first few beats, nothing happened at all. Then light came into one very small window on the unit's side. It started faint and was soon bright. You could see the speed at which it brightened.
 
-Sion thought he understood what that meant. Aka was not someone who spent her strength on explanation but on distinction. Meaning—if she looked too long at the real and the false, the imitation and the residue, what to keep and what to cut, she might shut down first.
+The man's shoulders straightened a little.
 
-Aka heard the exchange and said nothing. No objection, no agreement—just standing quietly. But that quiet was not the quiet of a child being dragged along passively. It was closer to the quiet of a child already reading what value her words had shaken, and which hand would handle her next.
+"Look. It's live."
 
-Nasim turned his body toward Sion's group this time.
+Nasim didn't answer.
 
-"Then what's left is you three."
-He said.
-"Why you need etherite, who left Aka's name, and why you came all the way here right now."
+The light kept brightening. Then at some point it stopped, held that brightness for a moment, and suddenly went out. Soot was left inside the window.
 
-"You missed one."
-Seorin said low.
-"Why we should play by your floor rules."
+The man couldn't say a word.
 
-Nasim smiled.
+Only then did Nasim open his mouth.
 
-"That one's easy."
-He said.
-"You already came inside."
+"Live things don't do that."
 
-Sion felt that sentence was cold and precise to an unsettling degree. Out in the outer layer, perhaps bargaining, running, deceiving were still possible. But not now. Now they had already entered the inner order. From here, whether they wanted it or not, they would be cut, bound, and priced in the other side's sequence.
+"…The heat was too strong."
 
-Ater spoke low.
+"This dish is weaker than the day,"
+Nasim said.
+"Everyone here sells their goods on this dish. If the heat were too strong, nobody could sell anything here."
 
-"Where do you intend to take us."
+Only then did Sion understand how the test worked.
 
-Nasim did not answer immediately. Instead, he exchanged a very brief glance with Harun. That short exchange alone told Sion enough. The final judgment sat one level higher still.
+The test was not giving heat. The test was watching whether something brightened in a hurry. A thing that had passed through people's hands and been made to look good would, under heat, rush to prove it was alive. The real thing had no reason to. The real thing just warmed up and slowly cooled.
 
-"A stage where lies cannot last long."
-Nasim said smoothly.
-"I think that explains it well enough."
+Here, a lie brightens first in front of the heat.
 
-Luhai heard that and grimaced slightly.
+The man spoke in a hurry.
 
-"That doesn't sound like a good place at all."
+"I didn't cheat anyone. That's how I bought it, too."
 
-"No."
-Kael said very low.
-"It won't be."
+"That's different,"
+Nasim said.
 
-The two of them speaking from the same side of instinct like that nearly made Sion catch his breath. They weren't fully bonded yet, but in moments like these, an awkward thread of complicity kept forming between them—and it fit strangely well.
+"Then how…"
 
-Then, from a deeper compartment inside, the sound of metal rang again.
+"Where did you buy it?"
 
-This time it was clearer than before. The sound of something opening. Not a structure long locked away, but a place opened and closed by familiar hands. And with that single sound, every hand in the vicinity realigned by the smallest degree. Nasim reduced his smile just slightly. Harun's face settled into one that said nothing more needed to be said. Nahira straightened Aka's tent cover once more, and two people standing deeper inside quietly attached themselves to Sion's group.
+The man couldn't answer.
 
-Sion drew a shallow breath.
+Nasim wiped the smile off completely. Then he scored something short on a thin plate the person beside him was holding. It was not paper but metal, and the mark he scored would not come off.
 
-Here it comes.
+"I'm not writing down your price. I'm writing down the price of the place you bought it,"
+he said.
+"Next time, everything that comes from there goes on this dish first."
 
-The threshold crossing into something deeper.
+The man wasn't beaten, wasn't dragged off, and nobody raised their voice. He wrapped the scorched unit back in its cloth and left. His steps going out were faster than they had been coming in.
 
-Harun said shortly.
+Luhai muttered, very low.
 
-"Move."
+"That's scarier."
+
+Sion was thinking the same.
+
+A beating is over in one go. A scored mark keeps shrinking the places where that man can buy and sell. This city does not punish people. It punishes their dealings.
+
+Sion looked toward Aka.
+
+Aka wasn't looking at the dish. She was looking at the tent flap the man had gone out through.
+
+"You knew without looking?"
+Sion asked.
+
+"I looked,"
+Aka said.
+"When he came in."
+
+"Then why didn't you say?"
+
+Aka was quiet a moment before she answered.
+
+"If I said, he wouldn't put it on. If he didn't put it on, people here wouldn't learn."
+
+Sion couldn't answer that right away. She could have given a verdict and had held it back. And that might have been how Aka had survived in this inner room.
+
+Luhai glanced toward the passage.
+
+"How long does he have to stand out there?"
+
+Nasim answered as if it were nothing.
+
+"Until the verdict comes."
+
+"And when's that?"
+
+"That's decided upstairs."
+
+Luhai's face screwed up.
+
+"You know how hot it is out there right now?"
+
+"I do,"
+Nasim said.
+"I live here."
+
+Sion looked toward the tent. The heat that had rushed in once when Kael went out still seemed to be lying around his feet. Twelve steps sounded short as a number. With a man standing at the end of that number, it wasn't short.
+
+"Can we send him water?"
+Sion asked.
+
+For the first time, Nasim smiled a little for real.
+
+"That we can do."
+
+Without a word, Nahira handed a water skin to one of the inner people, who went into the passage, walked as far as nine, and stopped. He set the skin on the floor there and came back. No one crossed the last three steps.
+
+Sion looked at those three steps for a long time.
+
+Seorin spoke, low.
+
+"Then what do we get put on?"
+
+Nasim looked her way.
+
+"The dish doesn't fit you."
+
+"Why?"
+
+"You're too big to go on a dish."
+
+It sounded like a joke, but nobody laughed.
+
+Ater asked quietly.
+
+"Then how will you test us?"
+
+This time, instead of answering, Nasim exchanged a very short look with Harun. From that brief exchange alone, Sion knew. The final judgment still sat one level higher.
+
+"A place where lies can't hold out long,"
+Nasim said softly.
+"I suppose I can describe it that way."
+
+"Where's that?"
+Luhai asked.
+
+"You just saw it,"
+Nasim said.
+"Only the dish is a lot bigger."
+
+Straightening the tent on Aka's side, Nahira spoke briefly.
+
+"That child doesn't go on it."
+
+"That's decided upstairs,"
+Harun said.
+
+"That's why I'm saying it now."
+
+A short silence passed between them. Sion knew it was the same kind of silence as when Nahira had blocked the tent at the far end of the passage. In this inner room, the only one who would not give ground over Aka was Nahira.
+
+Then a metallic sound rang out from a section farther in.
+
+It was the sound of something opened and shut by a practiced hand. To that single sound, every hand around them fell very slightly into alignment. Nasim's smile narrowed a little, and Harun's face said there was no need to say more.
+
+Harun spoke briefly.
+
+"We go."
 
 This time no one asked back.
 
-Even Luhai closed his mouth, and Kael only pressed the arm holding the fragment tighter. Seorin lifted her chin just barely, and Ater's gaze settled colder. Sion pressed the paper inside his jacket, feeling his own heart go strangely quiet. It was not fearlessness. Rather, too many things were riding on this at once—he was closer to having no room left to tremble.
+Even Luhai shut his mouth; Seorin lifted her chin just slightly; Ater's eyes settled into something colder. Sion felt his own heart go strangely quiet. It wasn't that he had no fear. It was closer to the opposite—too many things were riding on this at once, and there was no room left to shake.
 
-The corridor narrowed further.
+Kael, who had been standing at the end of the twelve steps, came back into the tent at a single motion of Harun's hand and fell in at the very back.
 
-The heat and dust smell from the outer-layer market faded, replaced by the closer scent of long-polished metal and dry cloth. Fewer people, but each one's position was more deliberate. A space where who was watching this side mattered less than who had decided not to watch.
+The passage grew narrower.
 
-Walking through that interior, a thought crossed Sion's mind.
+The heat and dust smell he had felt in the outer market faded instead, and the smell of long-polished metal and of cloth with no damp in it came closer. There were fewer people, but where each one stood was more deliberate. A space where who had decided not to look at them was clearer than who was looking.
 
-Hazran might not be a lawless zone at all, but a place that pushed value to the very end instead of law.
+As he walked, a thought came to Sion.
 
-And in a place like that, even a lie needed value to last long.
+That Hazran might not be a lawless place, but a place that had pushed price, instead of law, all the way.
 
-Even pretending to be a door.
+And in a place like that, even a lie needs a price to hold out long.
 
-At the end of the corridor, beneath the shadow of the last tent cover, Harun stopped.
+Even a thing pretending to be a door.
 
-Behind him lay a space not yet visible.
+At the end of the passage, in the shadow of the last tent, Harun stopped.
 
-But the invisibility itself was already pressure. As though whoever sat inside needed no face revealed—the value of everything dragged this far was already known.
+Beyond it was a space they couldn't see yet.
 
-Nasim spoke very low.
+Sion thought of the dish he had just seen. Whatever was in there, they would soon be set over the heat themselves. And this city would watch not how bright they became, but how hurriedly.
 
-"Good."
-He added with a smile.
-"From here on, the ones hiding are the ones who lose."
+So from here on, there was one thing to do.
 
-Sion did not like that sentence, but could not deny it either.
-
-Having come this far, no one would be able to hold onto their lies the way they had before.
-
-## And inside that space, at last, the hand that held the board would be waiting.
+Not hurry.
 
 ---
 

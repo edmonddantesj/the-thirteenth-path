@@ -1,200 +1,364 @@
 # Chapitre 101 — Après que la dernière illusion se fut brisée
 
-Après qu'Haroun eut fléchi une première fois,
-le champ de bataille à l'intérieur de Hazran occupait toujours le même emplacement,
-et pourtant il semblait devenu un tout autre lieu.
+En formant la septième file, Sion s'aperçut qu'il manquait quelqu'un vers l'arrière.
 
-Les chemins n'avaient pas changé.
-La coque était toujours là.
-Les gens faisaient toujours la file.
+Parmi les paquets découpés par trois, le troisième en partant de la fin n'en comptait que deux.
 
-Mais pour Sion,
-le centre de gravité de toute chose s'était imperceptiblement décalé.
+« Où est passé le troisième ? »
 
-Cet homme aussi pouvait tomber.
+Personne ne répondit. Mais plusieurs regardèrent du même côté.
 
-Cette seule vérité
-avait changé l'air du champ de bataille tout entier.
+Sion regarda par là.
 
-Plus personne ne pouvait retenir, fût-ce au fond de soi,
-l'espoir que *puisqu'Haroun est là, ce côté tiendra*.
+C'était l'éboulement.
 
-Et dans l'espace laissé par cet espoir disparu,
-une réalité bien plus crue s'était installée.
+Trois personnes s'y étaient collées. Elles retiraient des pierres à la main.
 
-N'importe qui pouvait s'effondrer.
-Et dès cet instant,
-ceux qui restaient devaient combler le vide avec leur propre corps, sans délai.
+Sion courut.
 
-La guerre avait sans doute toujours été ainsi.
-Mais les habitants de Hazran
-apprenaient cette vérité trop tard, et trop crûment.
+« Arrêtez. »
 
-Haroun ne parvint pas à se retirer complètement.
+L'un des trois répondit sans même lever la tête.
 
-Même après que son genou eut plié,
-il posa la main au sol et redressa son corps tant bien que mal.
-Son bras gauche était nettement plus lent désormais,
-sa respiration plus rauque,
-et pourtant il ne recula pas.
+« Y a quelqu'un en dessous, non ? »
 
-Sern parla à voix basse.
-
-« Il faut vraiment que tu recules, maintenant. »
-
-Cette fois, dans le ton,
-la tension était plus comprimée encore que tout à l'heure.
-
-Haroun ne répondit pas.
-
-Mais ce silence était une réponse en soi.
-
-Impossible de reculer.
-Non — plus exactement, il avait choisi de ne pas reculer. Pas encore.
-
-Ater dit très brièvement :
-
-« Alors j'avance. »
-
-Haroun tourna enfin la tête.
-
-« Ne force pas. »
-
-Ces mots sonnèrent étrangement —
-plus humains que tout ce qu'il avait dit jusque-là.
-
-Ce n'était pas un ordre de combat,
-mais quelque chose qu'on dit à quelqu'un avec qui on tient ensemble.
-
-Sern coupa net.
-
-« On force tous les trois, là. »
-
-Réponse courte.
-Mais juste.
-
-Sion, en les regardant à cet instant, comprit :
-ces trois-là ne tenaient plus par leur seule habileté.
-Ils tenaient en repoussant l'ordre dans lequel ils s'effondreraient.
-
-Qui se brisera le moins en premier.
-Qui gagnera encore un battement.
-
-Voilà ce qu'était devenue, réellement, la ligne de front du couloir droit.
-
-La file à l'arrière de la coque ne pouvait toujours pas s'arrêter.
-
-La voix de Nassim s'était éraillée au point de se fissurer,
-mais il continuait à pousser chaque personne vers l'avant.
-
-« Quatrième groupe, serrez ! »
-« Les trois premiers, prêts ! »
-« Vous vous arrêtez, c'est fini pour de bon ! »
-
-Ce n'était pas une menace. C'était un fait.
-
-Luhai avait atteint un visage qui ne savait même plus pleurer.
-Il tenait la main d'un enfant,
-poussait le dos d'un blessé,
-rattrapait une cheville sur le point de céder pour la remettre droite,
-et ne parlait que très bas.
-
-« Regarde devant. »
-« Vas-y maintenant. »
-« Ça va — même si ça ne va pas, avance. »
-
-Cette dernière phrase voulait dire qu'il fallait avancer tout en sachant que rien n'allait,
-et elle resta longtemps fichée dans la poitrine de Sion.
-
-Seorin s'était aiguisée.
-
-Depuis qu'elle avait vu Haroun fléchir,
-ses mains étaient devenues plus précises encore.
-Soutenir les gens, les remettre debout.
-Trancher la file.
-Barrer l'arrière.
-Glisser les civières.
-Chaque geste était dépouillé de tout superflu — presque un travail au scalpel.
-
-Mais Sion le savait.
-
-Ce n'était pas de la sérénité.
-Elle avait vu de trop près que vaciller, c'était mourir ;
-alors elle ne laissait plus aucun espace à l'hésitation.
-
-Han Jiwoo, à l'entrée de la coque, réceptionnait les trois premiers du quatrième groupe,
-le visage de quelqu'un qui se mord l'intérieur de la lèvre.
-
-La coque recevait encore.
-Mais sa tenue devenait plus brutale.
-Chaque fois qu'un côté de la rampe résonnait fort,
-les yeux de Jiwoo tremblaient avec.
-
-Aka dit très doucement, à côté d'elle :
-
-« C'est de plus en plus rude. »
-
-Jiwoo répondit à voix basse.
+« Je sais. Mais si vous creusez maintenant… »
 
 « Je sais. »
 
-« Mais ça tient encore. »
+Sion resta sans voix.
 
-À ces mots,
-le visage de Jiwoo esquissa presque un bref sourire.
-Elle n'y parvint pas.
-L'expression était plutôt de celles
-où sourire aurait basculé en larmes.
+Ces gens ne le faisaient pas par ignorance. Ils avaient entendu ce qu'avait dit Zahir tout à l'heure, ou, à défaut, ils l'avaient compris de leurs yeux. Si cet amas disparaissait, ceux d'en face entreraient.
 
-« Oui, » dit-elle à voix basse.
-« Ça tient encore. »
+« Alors pourquoi vous le faites ? »
 
-Ces mots, étrangement,
-semblaient résumer la scène tout entière.
+« Parce qu'il nous reste des mains. »
 
-Ça tient encore.
-Les gens,
-la coque,
-le temps.
+Sion ne sut pas quoi faire de cette réponse.
 
-Mais ce *encore* était désormais très court.
+L'homme leva enfin la tête.
 
-Zahir parcourut chacun du regard, une seule fois.
+« D'ici, on entend. »
 
-Puis il reprit la parole.
+« On entend quoi ? »
 
-« Quand le quatrième groupe sera passé, »
-dit-il à voix basse,
-« on redistribue immédiatement les mains restantes. »
+« Les coups, en dessous. »
 
-Plus personne ne trouva ces mots étranges.
+Sion s'agenouilla et colla l'oreille contre l'amas.
 
-Le choc était déjà passé.
-Il ne restait que l'exécution.
+Longtemps, rien.
 
-Sion trouva ce fait plus effrayant encore.
+Puis un coup vint. Petit et sourd. Un bruit venu du dedans de la pierre, qu'on aurait dit reçu par la joue plutôt que par l'oreille.
 
-Parce qu'une fois qu'on a dépassé le stade où les décisions cruelles vous font sursauter,
-c'est qu'on est vraiment entré dans ce monde-là.
+Sion ne put pas se relever tout de suite.
 
-Hazran y était entré.
+Ce qu'on n'entendait qu'en posant la main sur la paroi de la coque, ici, on pouvait l'entendre ainsi. Ceux qui s'étaient collés là l'entendaient sans arrêt depuis tout à l'heure.
 
-Les trois premiers du quatrième groupe gravirent la rampe.
+« Entendre ça, et rester planté là ? »
 
-Dans le couloir droit, Haroun, Sern et Ater
-tenaient par le calcul à mains nues, en lieu et place d'illusions brisées.
-Sur la gauche, Kael agrippait toujours l'écran bas.
-Devant la coque, Nassim, Seorin, Luhai et Sion
-tranchaient et expédiaient les gens plus vite, plus net.
+Ce fut l'homme qui le dit.
 
-Et Sion, au milieu de tout cela, comprit.
+Sion ne put pas le regarder dans les yeux.
 
-Ce qui restait après que la dernière illusion se fut brisée,
-ce n'était pas un mot propre comme le courage.
+Nassim arriva. Sa voix était si usée qu'il n'en sortait que la moitié.
 
-Simplement des gens,
-chacun à sa place,
-qui s'efforçaient de ne pas s'effondrer un battement de plus.
+« Dégagez. »
+
+Les trois ne bougèrent pas.
+
+« Dégagez, j'ai dit. »
+
+« On est mieux ici. »
+
+« Mettez-vous dans la file. »
+
+« Dans la file, c'est pas notre tour. »
+
+Nassim s'arrêta net à ces mots.
+
+Sion aussi comprit alors. Ces trois-là faisaient partie du troisième paquet en partant de la fin. Il faudrait encore trois décollages avant que vienne leur tour. Trois, ce ne serait pas avant la fin de la journée.
+
+Luhai était venu à côté de lui.
+
+« Douze. »
+Il l'avait dit à voix basse.
+
+« Douze quoi ? »
+
+« Les gens collés là-bas. »
+
+Sion regarda de nouveau. Il croyait qu'ils étaient trois, mais non. Il y en avait d'autres derrière l'amas. En comptant ceux qui, assis, déplaçaient de petits fragments à la main, ils étaient douze.
+
+« Depuis quand c'est comme ça ? »
+
+« Depuis que le vaisseau est parti, ça arrête pas d'augmenter. »
+
+Luhai ajouta encore un mot.
+
+« C'est tous des gens de la fin de la file. »
+
+« Tous ? »
+
+« Pas un seul qui vienne de devant. »
+
+Luhai pointa du doigt le haut de l'amas.
+
+« Et à cette vitesse, ça ira pas. »
+
+« Comment ça, ça ira pas ? »
+
+« Je regarde depuis tout à l'heure : chacun déplace un morceau à la fois. Ils ont beau être douze, ça fait pas douze. Y a pas la place, y en a que quatre qui arrivent à mettre les mains. »
+
+« Alors ça prendra combien ? »
+
+Luhai ne répondit pas. Il avait le visage de quelqu'un qui avait commencé à compter et s'était arrêté.
+
+« J'ai commencé à compter, et j'ai arrêté. J'ai l'impression qu'il faut pas compter ça. »
+
+Puis Luhai retourna vers la file.
+
+Là-bas, il poussa dans le dos des gens apeurés. En poussant, il ne dit que trois choses.
+
+« Regarde devant. »
+
+« Vas-y, maintenant. »
+
+« Ça va. Et si ça va pas, tu y vas quand même. »
+
+La dernière resta longtemps dans l'esprit de Sion.
+
+Cela voulait dire : on sait tous que ça ne va pas, et il faut y aller quand même. Ce garçon avait dû le dire combien de fois, aujourd'hui.
+
+Sion comprit sans peine ce que cela voulait dire.
+
+Ceux qui creusaient étaient tous des gens qui ne monteraient pas aujourd'hui. Ceux qui monteraient restaient dans la file ; ceux qui ne monteraient pas étaient venus ici. Personne n'avait demandé de les répartir ainsi, et pourtant la séparation s'était faite d'elle-même.
+
+Zahir arriva.
+
+Les douze ne s'arrêtèrent pas. Ils savaient que Zahir était là, et ne s'arrêtèrent pas.
+
+« Arrêtez. »
+
+Personne ne s'arrêta.
+
+« J'ai dit d'arrêter. »
+
+Alors seulement, quelques-uns s'arrêtèrent. Ils posèrent sur leurs genoux leurs mains immobiles et regardèrent Zahir.
+
+« Si vous creusez, ils entrent. »
+Zahir parlait sans hausser la voix.
+
+« On sait. »
+
+« Si vous savez, pourquoi vous le faites ? »
+
+Pas de réponse.
+
+C'est alors que Nassim parla, à côté de Zahir.
+
+« Laisse-les. »
+
+Zahir regarda Nassim.
+
+« Qu'est-ce que tu viens de dire ? »
+
+« Laisse-les, j'ai dit. »
+
+« Tu dis ça en sachant ce que ça coûte, en nombre de gens ? »
+
+« Non. »
+
+Nassim se pressa une fois la gorge. Il le fallait pour qu'un son sorte.
+
+« Je le dis sans savoir. »
+
+À cette réponse, Sion retint son souffle.
+
+Cet homme avait passé sa vie à fixer des prix. C'était la première fois que Sion l'entendait dire qu'il parlait sans savoir.
+
+« C'est toi qui disais que, si le calcul ne tombait pas juste, on ne faisait rien. »
+Zahir l'avait dit.
+
+« Ça, c'était pour le marché. »
+
+« Ici aussi, c'est un marché. »
+
+« Alors je ferme boutique. »
+
+Zahir ne releva pas tout de suite.
+
+Après un long moment, il demanda :
+
+« À douze, en creusant, ils l'atteignent avant la fin de la journée ? »
+
+Ce fut Sion qui répondit.
+
+« Il paraît que non. »
+
+« Qui dit ça ? »
+
+« Celui qui garde le couloir. Il dit qu'on n'entre dans cette largeur qu'un par un. »
+
+Zahir regarda l'amas. Longtemps.
+
+Puis il parla.
+
+« Creusez seulement par le haut. »
+
+L'un des douze leva la tête.
+
+« Par le haut ? »
+
+« Ne touchez pas au côté du couloir. Du haut vers le bas, seulement. »
+
+« Ça prendra trois fois plus longtemps. »
+
+« Je sais. »
+
+« Alors on ne l'atteindra pas. »
+
+« Je sais. »
+
+« Alors pourquoi vous nous dites de le faire ? »
+
+Pour la première fois, Zahir tarda à répondre.
+
+« Si on ne touche pas au côté du couloir, ils n'entrent pas. »
+
+« Ça, on le sait. Pas ça. »
+
+« Il n'y a rien d'autre. »
+
+Sion savait que c'était un mensonge. S'il n'y avait pas d'autre raison, il n'aurait pas eu besoin de leur dire de creuser par le haut : il lui suffisait de leur interdire de creuser.
+
+« Si je leur fais lâcher prise là où ils entendent… »
+Zahir parlait pour Sion seul.
+« … la prochaine fois que je les mettrai en file, ils ne s'y mettront pas. »
+
+Sion regarda le profil de Zahir.
+
+Même maintenant, cet homme regardait la partie. Les laisser creuser faisait encore partie de la disposition.
+
+Ayant dit cela, Zahir se détourna. En se détournant, il laissa un mot à Sion.
+
+« Regarde la file. »
+
+Sion resta là.
+
+Les douze se remirent à creuser. Du haut vers le bas. Plus lentement qu'avant. Les pierres du haut étaient plus grosses et n'offraient aucune prise : il fallait être deux pour en bouger une.
+
+Chaque fois qu'on retirait une pierre, ce qu'il y avait au-dessus glissait peu à peu dans le creux. Si bien que l'amas ne diminuait pas d'autant qu'on creusait. Quand on en retirait dix, il semblait n'avoir diminué que de sept ; les trois autres se remplissaient de nouveau. Personne ne le disait à voix haute, mais tous le savaient avec leurs mains.
+
+Comme la poudre était entièrement retombée, aucune poussière ne s'élevait là où l'on creusait. En revanche, tout ce qui sortait d'en dessous se voyait tel quel. Des éclats de mur brisé, des cordes rompues, des tronçons de plaques de métal qui, tout à l'heure encore, servaient de barricade. Ce que Hazran avait fabriqué en se taillant dans son propre cœur s'y mêlait sans aucun ordre.
+
+Sion regarda cela un moment, puis alla vers Nassim.
+
+« Pourquoi vous avez dit de les laisser faire ? »
+
+Nassim regardait du côté du tableau.
+
+« S'ils ne creusent pas, ils font quoi ? »
+
+« Ils se mettent dans la file. »
+
+« Et dans la file, ils font quoi ? »
+
+« Ils savent qu'ils ne monteront pas aujourd'hui. »
+Nassim parlait d'une voix éraillée.
+« Leur dire de rester plantés là en le sachant, c'est ça qui les tue le plus. »
+
+« Et s'ils creusent, ils vivent ? »
+
+« Non. »
+
+Nassim se pressa encore la gorge.
+
+« S'ils creusent, leur journée passe autrement. »
+
+« C'est tout ? »
+
+« C'est beaucoup. »
+
+Puis Nassim regarda Sion.
+
+« Toi aussi, tu comptes. »
+
+« Oui. »
+
+« Et compter, ça change quoi ? »
+
+Sion allait répondre, puis se tut. Non pas faute de réponse, mais parce que cet homme venait de donner cette réponse à sa place.
+
+Sion garda longtemps ces mots avec lui.
+
+La main qui fixait les prix avait, pour la première fois aujourd'hui, laissé faire une chose dont on ne pouvait tirer aucun prix. Et ce n'était ni par mollesse ni par faiblesse. Cet homme, même maintenant, comptait quelque chose. Simplement, ce qu'il comptait n'était pas un nombre de gens.
+
+Sion retourna à la file.
+
+« Trois. »
+
+Trois montèrent. Le troisième paquet en partant de la fin n'en comptait toujours que deux.
+
+Sion ne combla pas le vide.
+
+Pour le combler, il aurait fallu faire revenir quelqu'un de l'amas, et cette personne se serait retrouvée dans la file en sachant qu'elle ne monterait pas aujourd'hui.
+
+« Deux. »
+
+Les deux montèrent.
+
+Sion alla au tableau. Les marques des départs étaient toujours six. Le vaisseau n'était pas encore parti.
+
+Cinq voyages.
+
+À côté, près de la courte rayure, il en grava une autre. La deuxième heure.
+
+Sion alla vers Aka.
+
+« Ça fait combien, là ? »
+
+L'enfant compta, la main collée à la paroi.
+
+« Douze. »
+
+Tout à l'heure, c'était onze.
+
+Sion prit ce nombre et alla vers l'amas.
+
+L'homme de tout à l'heure était toujours là. Le dos de ses mains était tout écorché.
+
+« Il frappe tous les combien ? »
+Ce fut Sion qui demanda.
+
+L'homme répondit en déplaçant une pierre.
+
+« Douze. »
+
+« Vous comptiez ? »
+
+« Tout le monde compte. »
+
+Sion regarda les gens collés à l'amas. Plusieurs, les mains sur les pierres, remuaient un peu les lèvres. Sans un son.
+
+« Et si ça augmente ? »
+
+« Faudra creuser plus fort. »
+
+« Mais alors vous l'atteindrez encore moins. »
+
+« Je sais. »
+
+Sion commença à compter combien de fois il avait entendu ces deux mots aujourd'hui, puis s'arrêta.
+
+Ici, tout le monde savait. Et le faisait en sachant.
+
+Debout là, Sion regarda les deux nombres ensemble.
+
+Il y avait douze personnes collées à l'amas. Il y avait douze entre deux coups, en dessous.
+
+C'était le même nombre, et pourtant rien de pareil.
+
+Douze comptaient douze.
 
 ---
 

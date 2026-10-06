@@ -1,194 +1,349 @@
 # Episode 105. The Price Harun Paid to Keep It Open
 
-When the fifth group's first three began to move,
-Sion found himself strangely watching not those few people
-but the right corridor only.
+The ninth line went out fastest of all.
 
-From the moment Harun said *this one time, I take it*,
-it seemed the price had already been decided.
+By now everyone knew to cut into threes and count two. When Sion counted, the line counted with him, and while they counted, nobody pushed.
 
-The question was how large that price would be,
-and how many people Hazran could push out while it was being paid.
+"Twenty."
 
-The air inside the right corridor
-was already in a state of forcibly binding things that should have broken.
+The ramp folded. The ship lifted.
 
-The tilted breacher unit.
-Half-burst sandbag wreckage.
-Torn metal barriers.
-Harun, bleeding.
-Sern, still driving in beside him.
-Ater, reading angles from behind.
+Forty-eight, minus twenty. Twenty-eight.
 
-All near their limit.
-And on top of that limit,
-the fifth group's first three were moving again.
+Two trips.
 
-Harun truly stepped one pace forward.
+Sion drew the ninth mark on the board. Beside it were five short strokes.
 
-This time it wasn't a stance to receive head-on for long.
-Exactly once—
-a stance to twist with his body the angle the enemy was trying to flatten,
-binding it inside the corridor for even half a beat more.
+"Get over against the ship!"
 
-Sern spoke low.
+The twenty-eight moved toward the hull. Nobody asked why. Not asking had become a habit today.
 
-"Has to end short."
+Sion counted the twenty-eight and then ran toward the pile.
 
-Harun exhaled instead of answering.
+Sern was there. So were the eleven.
 
-That breath meant he knew.
-And also knew it might not end short.
+"How much is left?"
 
-Ater mapped it, very fast.
+"A hand's width."
 
-"Upper one comes first."
-"Second one from below."
-"Third is the real one."
+"A hand's width?"
 
-Those words were so short and precise
-that Sion felt more afraid, not less.
+"A hand's width from above. From below, it is thinner."
 
-The third is real.
-Meaning the first two
-were expendable angles meant to throw Harun's body and Sern's movement off first.
+Sion knew what that meant. The other side would get through first.
 
-It came exactly like that.
+"Then right now—"
 
-The first unit entered, grazing the upper barrier as if tearing it.
-Harun twisted his right side and caught its gaze.
-Ater drove a short round into the sensor surface immediately.
+"Right now. I am doing it."
 
-The second drove in low from below.
-Sern threw his body and severed the coupling line.
-His side wound opened wider from the effort.
+Sern raised a hand toward the eleven. The eleven drew back. Nobody was late. Whatever Zahir had told them, these people had already settled the order in which they would pull back.
 
-Then the third came.
+Sern drove the cutting tool into the last hand's width.
 
-Looking further inside than any before.
-Deeper.
-A shorter distance, pushing straight in.
+It didn't go the first time. On the second, the stone caved inward.
 
-Sion could tell in that moment:
-it was looking at the hull line.
+And it opened.
 
-Harun saw it too.
+What Sion saw was a hole. One person wide. Everyone knew by now what that width meant.
 
-With almost no hesitation,
-he shoved his entire body into the gap between.
+Dust pushed out from inside the hole. Then a hand came out.
 
-Sern bit down on a curse and went for the underside again.
-Ater called out *inner right*.
-But this time,
-every timing was just slightly late.
+A right hand.
 
-Not because anyone was slow.
-Because everyone was too worn down now
-for the perfectly matched beat to come anymore.
+Sern took hold of that hand. Took hold and pulled. It didn't come the first time. Sern braced his foot against the wall and pulled again.
 
-The moment the third unit pushed in,
-Harun's body wrenched hard.
+Harun came out.
 
-The cutting beam passed his arm
-and tore deeper into the already wounded left side below.
+Half his face was covered in dust, something dried had crusted at the corners of his mouth, and his left arm hung against his body and didn't move.
 
-Sion felt his breath stop watching it.
+But his eyes went straight to the corridor.
 
-This time the blood wasn't just spreading.
-A dark-red line kicked short and heavy.
-Harun's leg shook badly for an instant.
+"How many left?"
 
-But what was more frightening
-was that he didn't retreat even then.
+Sion couldn't answer that right away.
 
-He used that short twist instead,
-wrenching the entering unit's body one more time toward his own side.
-Instead of opening the path,
-an angle that made both of them topple toward the corridor wreckage together.
+"I said how many left."
 
-"Now!"
-Ater nearly shouted.
+"Two trips."
 
-Sern squeezed out his last strength and drove the cutting tool deep.
-Ater's round followed right behind.
-One black unit lost balance
-and pitched heavily toward the corridor wreckage alongside Harun.
+Harun nodded once.
 
-In the end,
-the path was half-blocked again.
+"Then we only have to do it twice."
 
-But the cost was too clear.
+That answer closed Sion's throat.
 
-Harun went to one knee this time—truly.
+This man had just spent six hours under the stones, and the first thing he asked on coming out was how many trips were left, and the moment he heard, he started calculating.
 
-Not fully face-down.
-But no longer a knee that could *stand the same way again soon*.
-The blood fell harder down his left side.
-His breathing was openly broken.
+"What did you knock with?"
 
-Sern spoke, nearly grinding his teeth.
+Harun opened his right hand.
 
-"It is over now."
+The palm was scraped raw all over. Two fingernails were gone.
 
-Harun, unable even to smile, said low.
+"A stone."
 
-"But it's still open."
+"You hit stone with a stone?"
 
-Those words struck Sion's chest directly.
+"There wasn't anything else."
 
-Yes.
-That corridor was still open.
-Because Harun had just paid with his body
-to twist what was closing back open.
+Sion looked at that hand a long time.
 
-Behind them, Nasim nearly screamed in his cracked voice.
+"How many times did you knock?"
 
-"Fifth group, up!"
+"Don't know."
 
-Luhai almost carried a crying child forward.
-Seorin gripped the stretcher's rear with her jaw clenched.
-Sion, his vision shaking, pulled up a foot that nearly caught below the ramp and reconnected the line.
+"You were counting, weren't you?"
 
-And in that gap,
-the fifth group's first three crossed into the hull again.
+"I didn't count."
 
-Jiwoo took them in
-but kept looking toward Harun's side.
+"Why not?"
 
-Aka spoke, very low.
+"If you count, you find out when the last one is."
 
-"No more time can be bought."
+That was the third time today Sion had heard that.
 
-Jiwoo asked back immediately.
+This man had kept his own rule alone under the stones for six hours. Which meant he hadn't even known whether anyone was coming. He hadn't known, and he'd kept knocking.
 
-"Who."
+"Drink some water."
 
-Aka didn't answer.
+"Later."
 
-But Sion could tell.
-Those words might not point to just one person.
+"Now—"
 
-Harun can no longer buy time the same way.
-The right corridor can no longer hold the same way.
-This entire battle must now bend toward the next stage.
+"Look at that."
 
-Zahir's face said he knew it too.
+Sion turned around.
 
-He looked for a moment at Harun, still blocking the path on one knee,
-and for the first time opened his mouth with the expression of someone who could delay no longer.
+Past the hole, black things were moving.
 
-"Good."
-His lips barely moved.
-"Now we move to the next."
+They weren't coming in. They were standing.
 
-The moment those words fell,
-Sion understood.
+"Why aren't they coming in?"
 
-The price Harun paid to keep that corridor open
-was not simply one wound.
+Ater answered for him.
 
-It was the price that confirmed for everyone
-that Hazran can no longer hold the same way.
+"They are waiting."
+
+"For what?"
+
+"For the hole to widen. If they come in now, they have to come in one at a time."
+
+It didn't take Sion long to understand.
+
+If they came in one at a time, they would be stopped one at a time. Those things knew it. The other side had been counting too, all the times Hazran had held by narrowing the width.
+
+"Then we just don't widen it."
+
+"It will widen,"
+Ater said.
+"They are still digging from below."
+
+Harun got up with a hand on the wall. It took two tries.
+
+"How many are here?"
+
+"Here? Twelve,"
+Sion answered.
+"The eleven and Sern."
+
+"Thirteen, counting me."
+
+Then Harun took one step toward the hole.
+
+"Don't."
+
+"Don't what."
+
+"You're going to stand there, aren't you."
+
+"If I don't stand there, who will?"
+
+Sion didn't answer that question. He didn't, because the answer was the eleven.
+
+Harun stood in front of the hole.
+
+It was the place they had just pulled him out of. The same width. One person.
+
+"This is a width I know,"
+he said.
+
+Sion couldn't tell if that was a joke. His face wasn't smiling.
+
+Ater spoke, short.
+
+"Coming."
+
+One of the black things put its body into the hole. Its shoulders caught. Caught, it pushed.
+
+With his right hand, Harun set a piece of debris on top of its shoulder. Set it there and pressed down with his body.
+
+What was caught got caught harder.
+
+"Now,"
+Ater said.
+
+Sern went in low and cut the knee. Still caught, it sank down.
+
+The sunken body half blocked the hole.
+
+But from behind, the next one climbed up over it. It stepped on the one in front and came across. The one stepped on was jammed in deeper, and the hole got that much narrower, but the one that came across got inside.
+
+Seeing it, Sion's breath stopped.
+
+"That—"
+
+"Yes,"
+Ater said.
+"They give up the front one to get the next one in."
+
+"On purpose?"
+
+"It is calculation. Wedge one in, and the one behind steps on it and crosses."
+
+It wasn't that Sion couldn't understand. He understood, and that was what frightened him.
+
+Right now those things were wedging three of their own to get one through. Losing three was not a cost they weighed.
+
+The one that had crossed came two steps inside.
+
+And turned.
+
+Not toward the corridor. Toward the ship.
+
+"It is going for the ship!"
+For the first time, Ater raised his voice.
+
+"Why the ship all of a sudden?"
+
+"The price has changed."
+
+"The price?"
+
+"Those things keep recounting where it pays most to strike. While the corridor would not open, the corridor was the biggest."
+
+"And now?"
+
+"Now the hole is through, and the ship is inside it."
+
+Sion looked back. From here he could see the hull.
+
+If it could be seen from here, it could be seen from there.
+
+"So they'll just keep going for the ship?"
+
+"Until they count again."
+
+"When do they count again?"
+
+"When we change the price for them."
+
+It took Sion a moment to understand.
+
+If the ship was the biggest price, those things went for the ship. If something bigger than the ship appeared, they went for that.
+
+And right now there was one person here who could walk out in front of those things.
+
+Before Sion could say anything, Harun moved.
+
+Harun took his hand off the hole. He took it off knowing that the moment he did, the hole would open.
+
+And he shoved his body into the black thing's side.
+
+He didn't collide with it. He hooked it. With his right hand he grabbed one of its arms and threw his whole body's weight sideways.
+
+Its direction twisted half a hand's width.
+
+Into that half a hand's width Sern went in and cut its leg.
+
+The black thing fell sideways. As it fell, Harun went with it.
+
+Sion ran.
+
+This time he reached him.
+
+He grabbed Harun's shoulder and dragged him out, and he was lighter than Sion expected. This was a man who had been under the stones for six hours without water.
+
+"Let go."
+
+"I won't."
+
+"Let go. The hole."
+
+Only then did Sion look at the hole.
+
+In the time Harun's hand was off it, two more had gotten in.
+
+The eleven were there. The digging hands. Not weapons. Hands that had been lifting stones until a moment ago.
+
+Three of them went to the front of the hole.
+
+Sion tried to shout and couldn't.
+
+The three lifted debris and shoved it into the hole. They narrowed it. While they narrowed it, one of them didn't come back out.
+
+The other eight dragged the three out. Two came out.
+
+"Harun."
+
+Harun was looking that way.
+
+"I saw."
+
+"Those people just—"
+
+"I said I saw."
+
+Of everything Sion had heard today, those two words were the heaviest.
+
+This man had just watched the hands that had dug for him for six hours block the hole in his place. And all he said was that he saw it.
+
+The hole narrowed again. One person's width shrank by half.
+
+The two that had gotten in ended there, inside. Eight of the eleven pinned them with debris, Sern cut from below, and Ater put in the last.
+
+Watching it end, Sion understood one thing.
+
+Those things had come this far by wedging three and putting two through, and they showed not the slightest sign of grudging those five. The ones standing behind didn't move a step while the ones in front were finished.
+
+He remembered something Han Jiwoo had said once. That thing was built from the start with its own breaking counted in.
+
+Back then he had thought she was talking about one machine.
+
+Seeing it now, she had been talking about a side that could throw in five at once and still come out ahead on the count.
+
+Ater spoke, short.
+
+"Twenty minutes."
+
+"What is?"
+
+"The time it will take them to widen it again."
+
+Harun pushed himself up with his right hand on his knee. This time it took three tries.
+
+Sern spoke almost through his teeth.
+
+"This is the end."
+
+Harun couldn't even smile. He answered low.
+
+"It's still open, though."
+
+That hit Sion square in the chest.
+
+He was right. That ship's door was still open. Because just now this man had paid the price with his own body and wrenched open again what had been about to close.
+
+"Then get one load aboard inside twenty minutes."
+
+Sion ran for the board.
+
+He counted as he ran. Twenty out of twenty-eight left eight.
+
+Sion already knew Harun wasn't among those eight.
+
+Because a little while ago that man had changed the price.
+
+The price he changed it to was himself.
 
 ---
 

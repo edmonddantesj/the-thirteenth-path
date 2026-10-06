@@ -1,164 +1,270 @@
 # Episode 23. The Hand That Passed First
 
-The guide reaction alive inside the structure was weak, and the recent departure trace was clear.
+The guidance response that had come alive deep inside the structure was weak, and the recent exit trace was clear.
 
-Had only one existed, the decision would have been easy. Only the guide reaction remaining — they would have confirmed deeper inside. Only the recent trace — they would have pursued immediately. The problem was that both existed now. The remaining path was not yet dead, and whoever had taken the larger fragment first had not vanished long ago.
+With only one of the two, the call would have been easy. If only the guidance response had remained, they would have checked further inside; if there had been only the recent trace, they would have given chase at once. The problem was that right now there were both. The path that remained was not dead yet, and whoever had pulled out the larger fragment first had not been gone long.
 
-Sion spoke first.
+Over the close-range channel, Seorin was the first to speak.
 
-"Let's decide. Check deeper inside first, or bite the tail now."
+"Decide. Look further inside first, or go for the tail now."
 
-His eyes were still moving between the structure's inner darkness and the recent trace outside the slot. The weight-shift marks left by whoever took the larger piece — finely scraped metal, and the trace of someone twisting their body once in a rushed exit. It was the trace of someone who fled, and simultaneously the trace of someone who could read this structure.
+Sion didn't answer right away. His eyes were still moving between the darkness inside the structure and the recent trace outside the slot. The weight-shift marks left by whoever had taken the larger fragment, a faintly scratched metal surface, and the sign of a body that had twisted once while turning back out in a great hurry.
 
-Sern said low.
+Sern spoke low.
 
-"If we pursue, now is the closest. Wait longer and the dust layer and vibration will kill the trace."
+"If we pursue, now is the closest we will be. Any later and the dust layer and the vibration kill the trace."
 
-Ater pointed to the other side almost simultaneously.
+"How long have we got?"
 
-"But if the reaction remaining deeper inside cuts off, the cost of reopening this entire structure may increase."
+"Going by the trace, under ten minutes. After that only the direction remains, and the spacing is gone."
 
-Jiwoo said low from the ship side.
+"We can't chase on direction alone?"
 
-"Neither is wrong. That's why I hate it more."
+"Outside this structure the way splits four ways." Sern paused for a moment. "On direction alone, it becomes a matter of picking one of four."
 
-Sion looked at the inner darkness, then said very slowly.
+Almost at the same moment, Ater raised the other side.
 
-"Can't take both."
+"Is the inner response ten minutes as well?"
 
-"Obviously."
-Sion said low.
-"That's why I'm saying let's decide now."
+"That I cannot measure. Its cycle is not regular."
 
-Sern re-examined near the recent departure trace. The dust layer had been broken once, fine metal powder scattered outward. Someone pulling an object in a rush should have shifted their center of gravity harder — yet this trace was surprisingly composed. Hurried but not collapsed movement. Meaning: someone accustomed to the scene.
+Ater looked into the darkness inside.
 
-He said, very low.
+"Then it is worse. On one side, something that could die at any moment; on the other, something that blurs in ten minutes. Putting off the one that could die at any moment is not calculation. It is a gamble."
 
-"The other party is at minimum not an amateur. This is the trace of someone who can organize while hurrying."
+"So you are saying we look inside first?"
 
-Ater looked at the recent scrape marks again. The position where the larger piece was extracted, the angle where the shard remained caught, the degree of slot-edge damage. Correct. Not the trace of someone unfamiliar with the structure, ripping in haste. This was a hand that had moved after understanding the logic at least once.
+"I did not say that." Ater's voice dropped a little. "I said what its price is. Throwing something away knowing its price is different from throwing it away without knowing."
 
-He said quietly.
+At that, Sion looked at him for a moment.
+
+The words came from an Approval Bureau man, but this time they weren't the language of authority. He was saying: if you throw something away, at least know what you're throwing.
+
+Han Jiwoo spoke low from the ship.
+
+"Neither of you is wrong. That's what I hate more. We can't take both."
+
+"Obviously,"
+Sion answered.
+"That's why I'm saying we decide now."
+
+Sern went over the ground around the recent exit trace again. The dust layer broke off once, and fine metal powder was scattered outward. Someone who had yanked something out in a hurry would have lurched harder off their center of gravity, but this trace was surprisingly orderly. Hurried, but never falling apart. In other words, someone at home in the field.
+
+He spoke very low.
+
+"Whoever it is, they are not an amateur. These are the traces of someone who knows how to keep things in order even while hurrying."
+
+Ater looked again at the recent scratch marks. The spot where the larger fragment had been pulled out, the angle at which the shard had stayed wedged, the degree of damage to the slot's edge.
+
+He spoke quietly.
 
 "Whoever passed first is someone who can read this structure."
 
-Sion did not react to that immediately. Not a simple thief — someone who passed the discrimination and precisely extracted the larger fragment. Then this was not a matter of stolen goods. It was a matter of who read this path first.
+Sion did not react to that right away.
 
-Seorin's voice came through the close-range channel, short.
+Seorin spoke.
 
-"Then all the more reason to chase now."
+"Then chasing now is all the more right."
 
-Ater raised his gaze.
+Ater looked up.
 
-"Grounds."
+"On what grounds."
 
-"The inside stays — but the hand that passed first won't."
-Seorin cut clean.
-"The structure can be read again. A person, once lost — it's over."
+"The inside may stay, but the hand that passed first won't."
+Seorin cut it off flat.
+"We can read the structure again. Lose a person again, and that's the end."
 
-Short silence.
+"A structure cannot be read once it dies either," Ater answered.
 
-Sion heard that and lifted the corner of his mouth, just slightly. Seorin was right. The interior reaction was unstable but still alive. But a person — once they pulled further away, in this outer cluster region they simply dissolved into space.
+"Dead or not, it's still there."
 
-He finally raised his head.
+"If it is there and cannot be read, it is not there."
+
+"Then let me ask you." Seorin's voice dropped a little. "We don't know what's in there. But whoever's up ahead already knows what we know. Read it before us, picked it up before us, and is carrying it off right now. Which of the two knows more?"
+
+Ater did not answer.
+
+"We can come back and read the structure. That person won't be here when we come back."
+
+Hearing that, Sion lifted the corner of his mouth, very slightly. The inner response was unstable, but still alive. A person, though, once they got one step farther away, would simply melt into space out here in the outer cluster.
+
+At last he raised his head.
 
 "We chase."
 
-Ater did not ask further. The decision looked emotional, but in reality it was the most pragmatic choice. And the fact that he himself could not find a reason to oppose it — that was both unpleasant and clear.
+Ater asked nothing more.
 
-Sern asked immediately.
+But he did not turn, either. While the other two set their direction toward the trace, he kept watching the darkness inside.
 
-"Sequence."
+"My lord."
 
-Sion pointed with his finger toward the direction the recent trace continued.
+Sern called him.
 
-"Whoever left didn't exit straight outside. They hid in the structure's shadow side first, then turned toward the external access strip from there."
+"We are going."
 
-Jiwoo followed at once.
+Even so, he was a beat late.
 
-"Then I'll pull the hull a bit further out to make a retrieval angle."
+In that one beat, the afterglow inside surfaced once more. Weaker than before. Then, very slowly, it was gone, not switching off so much as blurring away.
+
+Ater watched it end, all the way.
+
+"…It is dead."
+
+Sion turned around.
+
+"What is?"
+
+"The inner response. Just now."
+
+All three of them looked that way. The darkness was exactly as dark as before. To know that something had been there and was gone, you had to have been watching from before, and the only one who had been watching from before was Ater.
+
+The close-range channel went quiet for a moment.
+
+"Will it come back?" Seorin asked.
+
+"I do not know."
+
+"'I don't know' means no."
+
+"…Yes."
+
+Sion said nothing.
+
+He had just watched, right in front of him, the side he hadn't chosen pay the price, not the side he had. When he chose, he had thought it was a matter of gaining one of the two. In fact it was a matter of killing one.
+
+"It's my decision," he said.
+
+"It's your decision, sure," Seorin answered. "But I gave the grounds."
+
+"We'll split that later."
+
+"There's no later. We split it now, so you don't end up carrying it alone later."
+
+Only then did Ater turn. As he turned he looked back once more, but this time there was nothing to see.
+
+Sern asked at once.
+
+"Order of advance."
+
+Sion traced the direction the recent trace ran with his finger.
+
+"Whoever it was didn't head straight outside. They hid once in the shadow of the inner structure, then turned from there toward the outer access strip."
+
+Han Jiwoo picked it up right away.
+
+"Then I'll pull the hull out a bit farther and set up an angle for the retrieval line."
 
 "No."
 Sion shook his head.
-"Jiwoo — you hold the ship. If someone reattaches, we need a ship to come back to."
+"Han Jiwoo, you hold the ship. If someone latches on again, we need a ship to come back to."
 
-Jiwoo did not argue. Only a single short breath passed through the close-range channel.
+Han Jiwoo didn't argue. Instead, a single, very short breath came across the close-range channel.
 
-Seorin's voice came through.
+Seorin asked.
 
-"Who takes point."
+"Who's on point?"
 
-"Me."
+"Me,"
 Sion said.
-"Sern in the middle. Ater reads structure from the rear."
+"Sern in the middle. Ater, at the back, reading the structure."
 
-A moment later, Seorin said short.
+After a moment, Seorin spoke.
 
 "Push too hard and I cut first."
 
-Sion answered, facing forward.
+Sion answered with his eyes ahead.
 
 "I know."
 
-When the short exchange ended, the three moved very quickly. Sion twisted along the recent weight-shift trace toward the structure's exterior side first. The path was not laid out like a path. Severed rings, broken footholds, external alignment remnants, half-exposed dock maintenance framing — narrow gaps. This was not a corridor. It was a junction only someone who knew the structure could barely pass through. Meaning: whoever passed first could read this road too.
+The short exchange over, the three of them moved very fast. Sion went first, turning toward the outside of the structure along the recent weight-shift marks. The way did not run like a way. Severed rings and broken footplates, debris from the outer alignment section, a narrow gap where the dock-maintenance frame lay half exposed.
 
-Sern spoke from behind immediately.
+Sern spoke from behind at once.
 
-"Left foothold — load is dead."
+"Left footplate. The load is dead."
 
-Sion shifted his foot the instant he heard. The very next moment, below the metal plate he'd been about to step on, something quietly gave way. Not quite a fall — more the silence of something that had been holding itself up, collapsing on its own.
+Sion shifted his foot the instant he heard it. The very next moment, the underside of the metal plate he had been about to step on gave way without a sound. Less a fall than the silence of something that had been holding on and collapsed on its own.
 
-Seorin lowered her breath from beyond the channel.
+Seorin's breathing went low.
 
-"Would've fallen already if you came alone."
+"If you'd come alone, you'd have fallen long ago."
 
-"Wouldn't have come at all if alone."
+"If I'd come alone, I wouldn't have come in the first place."
 
 "That's a lie."
 
-Sion did not reply — looked straight ahead.
+"…Yeah."
 
-On the wall inside the structure's shadow, this time a far clearer trace remained. A scorch-like mark as if a hand-back had grazed the metal surface, and beside it — a very short torn fiber fragment. It looked like the trace of a coat's hem or glove lining scraping past.
+"You'd have come. Alone."
 
-Sern reached out and lifted the fiber, very carefully.
+"That's a yeah too."
 
-"Fresh."
+"That's why I stayed on the ship."
 
-Ater's gaze sank the moment he saw it.
+Sion didn't answer. From behind came only the sound of Sern calling out the next load line.
 
-"Not Empire-style."
+On the wall inside the structure's shadow, this time, a much clearer trace remained. A scorch, as if the back of a hand had grazed the metal surface, and beside it a very short, torn scrap of fiber. It looked like something left by the hem of a coat or the lining of a glove snagging.
 
-Sion asked immediately.
+Sern reached out and, very carefully, picked up the fiber.
 
-"Alliance side?"
+"It is new."
 
-Ater was not certain.
+The moment Ater saw it, his gaze sank.
 
-"At least not Approval Bureau spec. Nor port-worker grade."
+"It is not Empire make."
 
-That was the most uncomfortable kind. Not Empire, not Alliance, not floor merchants either. A grey hand that read structure from outside authority and entered first.
+Sion asked at once.
 
-Sion looked longer at the hand-back trace on the metal surface beside the fiber than the fiber itself.
+"Alliance, then?"
 
-"That's not a scrape from running. It's a mark from stopping and bracing."
+Ater did not commit.
 
-Ater picked up quietly.
+"Not Approval Bureau standard, at least. And not dockworker issue either."
 
-"Then the other party also read direction here once before moving again."
+That was the most uncomfortable kind. Not the Empire, not the Alliance, and not some harbor-floor peddler either. A gray hand that had come in first, from outside of any power.
 
-Sion pointed forward, very slowly.
+Sion looked longer at the back-of-hand mark on the metal beside it than at the scrap of fiber.
+
+"That's not a scrape from running. That's where someone stopped and braced."
+
+Ater picked it up quietly.
+
+"Then whoever it is also stopped here once to read the direction, and moved on."
+
+Sion pointed ahead, very slowly.
 
 "That way."
 
-The point where the structure's outer shadow ended — where external access strip remnants and old alignment plates overlapped. The most suitable position for someone who had hidden and was about to exit again.
+The point where the shadow outside the structure ended, where the wreckage of the outer access strip and old alignment plates overlapped. The best spot for someone to hide and then head out again.
 
-Now the independent objective was clear. Reading the inner reaction further was important too — but what was more urgent now was not losing the hand that had passed first with the larger fragment. The remaining reaction was weak; the trace was dying fast. And the only side that could read this scene and continue it directly, right here, right now — was them.
+Sion stopped there once.
 
-All four lowered their breath at once.
+"Sern."
 
-And right then — from the darkness ahead, metal scraped against metal, very shallow.
+"Yes."
 
-## As if someone had not yet gotten far.
+"You said ten minutes, before."
+
+"Yes."
+
+"How many minutes have gone by?"
+
+Sern counted briefly before answering.
+
+"Six minutes."
+
+"And how long did the inside take to die?"
+
+"…Two minutes."
+
+Sion let out a breath.
+
+Two minutes. Two minutes from choosing to the bill coming due. He couldn't tell whether that was fast or slow, but he knew one thing at least. The next time he chose something, the price would come like this too, from behind.
+
+"Let's go."
+
+All three of them lowered their breathing at once.
+
+In the darkness ahead, metal grazed metal, very faintly.
 
 ---
 

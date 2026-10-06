@@ -10,7 +10,7 @@ Cette fois, c’était différent.
 
 L'intervalle entre les lignes était devenu imperceptiblement irrégulier, les pauses juste avant la ligne de relève n’étaient plus constantes, et entre deux androïdes qui semblaient se mouvoir à la même vitesse, on décelait la trace d'un temps de réaction délibérément décalé.
 
-Serakion n'avait pas déclenché d'alerte majeure. Il s’était contenté de localiser précisément l'origine de la première fissure, puis de la colmater en silence.
+Serakion n'avait pas déclenché d'alerte majeure. Ce monde s’était contenté de localiser précisément l'origine de la première fissure, puis de la colmater en silence.
 
 Kael dit à voix très basse :
 
@@ -33,21 +33,21 @@ Ce n’étaient plus les mêmes enfants qu'avant. Pas que tous les visages aient
 
 À côté d'un enfant lent, on ne trouvait plus d'enfant rapide. Près de la main qui tenait bon, on avait mêlé un enfant déjà habitué. Et çà et là, des humains si discrets qu'ils donnaient l'impression de tenir un rôle de surveillance.
 
-Serakion ne se contentait plus de pousser les enfants vers le haut. Il les réarrangeait de sorte que leurs écarts s'annulent mutuellement.
+Serakion ne se contentait plus de pousser les enfants vers le haut, mais les réarrangeait de sorte que leurs écarts s'annulent mutuellement.
 
 Jiwoo murmura :
 
-« Il a même redistribué les enfants. »
+« Les enfants aussi, on les a redistribués. »
 
 La seconde main de récupération répondit très brièvement :
 
-« Parce qu'on en a sorti un, la dernière fois. »
+« Parce qu'il y a déjà eu une évasion. »
 
 Le ton était sec, mais la colère, dessous, ne faisait aucun doute.
 
 Serakion réutilise les humains comme matériau, jusque dans ses échecs. Qui a été trop lent, qui a été trop rapide, qui a suivi la main, qui possédait encore son propre rythme.
 
-Il lit tout cela, et la fois suivante, il dispose les enfants de façon qu'ils se ligotent plus étroitement les uns aux autres.
+Serakion lit tout cela, et la fois suivante, dispose les enfants de façon qu'ils se ligotent plus étroitement les uns aux autres.
 
 Ater observa longuement ce nouvel agencement, puis dit à voix basse :
 
@@ -57,7 +57,7 @@ Jiwoo le regarda.
 
 Ater parcourut du regard les androïdes du niveau supérieur et la position des humains intercalés entre eux, puis poursuivit :
 
-« Il est devenu plus aimable qu'avant. »
+« Tout est devenu plus aimable qu'avant. »
 « Or ce visage-là n'apparaît jamais quand les choses vont bien — seulement quand le contrôle s'est resserré. »
 
 C’était exactement cela.
@@ -68,7 +68,7 @@ Mais c’était précisément pour cette raison que l'air devenait plus irrespir
 
 Ce surcroît de courtoisie n'avait rien d'une attention bienveillante. C’était une technique nouvelle destinée à colmater la première fissure.
 
-Serakion n'avait pas resserré son emprise sur les enfants. Au contraire, il les retenait plus souplement, plus naturellement — de manière à rendre toute fuite plus difficile encore.
+Serakion n'avait pas resserré son emprise sur les enfants. Au contraire, les enfants étaient retenus plus souplement, plus naturellement — de manière à rendre toute fuite plus difficile encore.
 
 Kael lut cette structure et parvint presque instantanément à sa conclusion :
 
@@ -94,7 +94,7 @@ Ater fut le premier à saisir.
 
 Kael acquiesça.
 
-« Si on provoque le brouillage de l'extérieur, maintenant il colmate immédiatement. »
+« Si on provoque le brouillage de l'extérieur, maintenant ça se colmate immédiatement. »
 « Mais si un tempo différent naît déjà à l'intérieur, pendant un instant au moins, même eux pourraient hésiter sur ce qu'il faut recalibrer en premier. »
 
 L'idée était dangereuse, mais c’était précisément ce genre d'audace qu'il leur fallait à présent.

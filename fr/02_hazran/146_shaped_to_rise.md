@@ -4,7 +4,7 @@ Lorsque la ligne de transit pour l’élévation a commencé à bouger, l’équ
 
 À partir de ce moment, la simple lecture des chemins ne suffit plus.
 
-Ils avaient besoin de voir dans quel ordre Serakion envoyait réellement les humains vers le haut, et sur quoi il avait mis la main avant cela.
+Ils avaient besoin de voir dans quel ordre Serakion envoyait réellement les humains vers le haut, et ce qui était retouché avant cela.
 
 La première main de récupération s'arrêtait plus souvent. La deuxième main de récupération vérifiait derrière eux plus fréquemment.
 
@@ -16,7 +16,7 @@ Ainsi, au lieu d’avancer rapidement, l’équipe de reconnaissance a dû chois
 
 La première chose qu'ils virent fut une section intermédiaire où les humains attendaient juste avant d'être envoyés vers le haut.
 
-À première vue, cela ressemblait presque à une salle d’attente ou à une salle d’attente.
+À première vue, cela ressemblait presque à une salle de soins ou à une salle d’attente.
 
 La lumière était douce. La température était constante. Les humains qui accompagnaient les machines ne semblaient pas particulièrement tendus en surface.
 
@@ -105,7 +105,7 @@ Le sauvetage ne se fait pas uniquement avec du courage. Devant une structure ain
 
 Jiwoo a entendu cela et n’a toujours pas détourné le regard.
 
-Elle regarda un jeune humain au niveau inférieur en train de se nettoyer les mains pendant un long moment.
+Elle regarda longuement un jeune humain, au niveau inférieur, dont on soignait les mains.
 
 L’enfant avait l’air remarquablement docile en surface. Mais le bout des doigts était à peine raidi.
 
@@ -124,11 +124,11 @@ Jiwoo répondit.
 
 Cette phrase a approfondi toute la reconnaissance.
 
-Serakion peut rendre le corps humain progressivement plus adapté. Mais cela ne signifie pas qu’il peut complètement ranger la mémoire du bout des doigts.
+Serakion peut rendre le corps humain progressivement plus adapté. Mais cela ne signifie pas que la mémoire du bout des doigts puisse être complètement rangée.
 
 C’était un sentiment qui dépendrait de la possibilité d’extraire quelqu’un plus tard.
 
-Ater baissa de nouveau les yeux. Kael a redessiné la séquence finale dans sa tête. Jiwoo surveillait les mains de chacun.
+Ater baissa de nouveau les yeux. Kael a redessiné la séquence de fermeture dans sa tête. Jiwoo surveillait les mains de chacun.
 
 Et à ce moment-là, l’équipe de reconnaissance a compris encore une chose.
 S’élever à Serakion ne signifie pas simplement déménager vers un meilleur endroit.

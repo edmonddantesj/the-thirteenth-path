@@ -4,178 +4,198 @@ Le premier impact ne cherchait pas à briser la coque.
 
 Il cherchait d'abord à détruire ce qui leur restait de sens de l'orientation.
 
-Juste après que Han Jiwoo eut brutalement réveillé les moteurs, un obus de poursuite frôla le flanc inférieur droit et laissa sur la paroi extérieure une longue traînée de chaleur, fine comme une entaille. Ce n'était pas un tir direct. Pourtant, tout le vaisseau se tordit d'un coup. L'un des axes de fixation externes, qui tenait à peine jusque-là, accusa un retard de réponse rien qu'à cause de cet effleurement. Un deuxième coup du même genre, et cette fois l'angle de virage risquait véritablement de se dérégler.
+Juste après que Han Jiwoo eut brutalement réveillé les moteurs, un projectile de poursuite frôla le flanc inférieur droit et laissa sur la paroi extérieure une longue et fine traînée de chaleur. Ce n'était pas un tir direct. Pourtant, tout le vaisseau se tordit d'un coup. L'un des axes de fixation extérieurs, qui tenait à peine jusque-là, se mit à répondre en retard après ce seul effleurement. Encore un coup de ce genre, et cette fois l'angle de virage risquait vraiment de se fausser.
 
-« Bien. »
-Han Jiwoo sourit, mâchoires serrées.
-« Fini la traversée en douceur. Accrochez-vous à ce que vous pouvez. »
+« Bon. »
+Han Jiwoo sourit, les dents serrées.
+« On ne va plus pouvoir y aller gentiment. Accrochez-vous à quelque chose. »
 
-Avant même qu'elle eût fini de parler, la coque s'affaissa vers le bas puis se tordit aussitôt sur le côté.
+Avant même qu'elle ait fini, la coque s'enfonça d'un coup vers le bas, puis se tordit aussitôt sur le côté.
 
-Sion agrippa la poignée murale tout en enfonçant plus profondément dans sa veste le papier qu'il n'avait même pas encore eu le temps de replier. *Hazran*, *Aka*. L'explication se résumait à deux mots. Mais étrangement, ces deux mots lui semblaient à cet instant plus nets que n'importe quelles coordonnées. Il n'avait pas le temps de réfléchir, et pourtant la destination, elle, était déjà fixée.
+Sion agrippa la poignée murale et, du même geste, enfonça plus loin dans sa veste le papier qu'il avait replié. **Hazran**, **Aka**. Pour toute explication, deux mots. Pourtant, étrangement, ces deux mots lui semblaient à présent une direction plus nette que n'importe quelles coordonnées.
 
-Sern, le corps à moitié plaqué contre le panneau, parla rapidement.
+Sern, à moitié plaqué contre le panneau, parla vite.
 
-« Deux derrière nous. L'un maintient une poursuite fixe, l'autre élargit son arc pour nous prendre en tenaille. »
+« Deux derrière nous. L'un nous suit sur une ligne fixe, l'autre s'écarte pour entrer de biais. »
 
-« Ils veulent nous coincer entre les deux. »
-Seorin dit cela à voix basse.
+« Ils veulent nous prendre en tenaille. »
+Seorin raffermit sa prise sur la poignée.
 
 « Oui. »
-Sern répondit brièvement.
-« L'un intimide, l'autre lit nos trajectoires d'évitement. »
+La réponse de Sern fut brève.
+« L'un est là pour effrayer, l'autre pour lire nos trajectoires d'évitement. »
 
-Ater, observant la faible résonance d'approbation encore visible sur la cloison, ajouta :
+Ater, les yeux sur le faible écho d'approbation resté sur la paroi, ajouta :
 
-« Le relevé de réaction du discriminateur a déjà dû être transmis. C'est plus proche d'un tir de vérification que d'une simple poursuite. »
+« Le relevé de la réaction du discriminateur a déjà dû être transmis. C'est plus un tir de vérification qu'une simple poursuite. »
 
-« Quelle joie. »
-Han Jiwoo marmonna entre ses dents.
-« Alors on dégage avant de leur en montrer davantage. »
+« On est bien pris, alors. »
+Han Jiwoo marmonnait.
+« Il faut filer avant de leur en montrer plus. »
 
-Dehors, un deuxième obus de poursuite fila.
+Dehors, un deuxième projectile passa.
 
-Celui-ci ne toucha pas la coque. Il passa délibérément à courte distance, se contentant de balayer la chaleur au passage. Un avertissement. Si vous ne vous arrêtez pas, le prochain ira plus profond — cette menace nonchalante, typique de la main qui attrape.
+Celui-là ne toucha pas la coque. Il passa exprès tout près, ne faisant que balayer la chaleur. Un avertissement. Une menace tranquille, propre à la main qui attrape : si vous ne vous arrêtez pas, le prochain ira plus profond.
 
-Le visage de Han Jiwoo se crispa aussitôt.
+Le visage de Han Jiwoo se froissa aussitôt.
 
-« Putain. Ils les lâchent exprès. »
+« Ah, merde. Ils tirent à côté exprès. »
 
-Le vaisseau trembla à nouveau violemment. Un panneau au-dessus du poste de pilotage s'éteignit puis se ralluma, et par la fente, un trait mêlé de poussière et de lueurs résiduelles fila en oblique.
+Le vaisseau tangua de nouveau violemment. Un panneau au-dessus du poste de pilotage s'éteignit et se ralluma en un éclair, et, derrière la fente, une traînée mêlée de poussière et de lumière résiduelle passa en oblique.
 
-Kael, au milieu de tout cela, n'avait pas lâché son fragment. D'une main il se retenait à l'ancrage au sol, de l'autre il serrait plus fermement ce qu'il gardait contre lui. C'étaient les gestes d'un homme habitué à survivre. Pas un mot superflu. Il ne pouvait pas piloter le vaisseau à la place de l'autre, mais son silence n'était pas celui de quelqu'un qui attend passivement le moment de se jeter dans le vide.
+Même au milieu de tout cela, Kael ne lâchait pas le fragment. D'une main, il s'accrochait au crochet d'arrimage du plancher ; de l'autre, il serrait plus fort ce qu'il gardait contre lui. Les gestes de quelqu'un habitué à survivre. Pas un mot de trop non plus.
 
 Sion demanda à voix basse :
 
-« Tu ne peux pas les semer de front ? »
+« On ne peut pas les semer de front ? »
 
-« Dans l'état où on est ? »
-Han Jiwoo renvoya sans l'ombre d'un sourire.
-« Si on force et qu'un axe de plus lâche, on crève avant eux. »
+« Dans cet état ? »
+Han Jiwoo répliqua sans l'ombre d'un sourire.
+« Si on force et qu'un axe lâche encore, on crève avant eux. »
 
-Seorin trancha net :
+Seorin trancha net.
 
-« Alors pas d'affrontement direct. On leur coupe la visibilité. »
+« Alors pas d'affrontement de face. On leur coupe la vue. »
 
 Sern faisait déjà le même calcul.
 
-« Si on les entraîne jusqu'au champ de débris du cargo mort, on peut les couper un moment. Mais à l'angle actuel, ils entreront avec nous. »
+« Si nous les entraînons jusqu'au champ d'épaves de cargos morts, nous pourrons les couper un moment. Mais sous cet angle, ils y entreront avec nous. »
 
 « Qu'ils entrent. »
-Han Jiwoo dit cela en tournant le manche.
-« Il suffit de leur tracer une ligne plus dingue que la leur. »
+Han Jiwoo braqua le manche.
+« Il suffit de leur tracer une ligne encore plus dingue que la leur. »
 
-Sion prit une courte inspiration. Les deux mots laissés par Elia, l'instant dont Sern se souvenait, l'entrepôt que Seorin avait tranché, et maintenant cette ligne d'approbation qui s'accrochait à eux avec ténacité depuis l'extérieur. Tout bougeait beaucoup trop vite en même temps, mais précisément pour cette raison, certaines choses s'étaient simplifiées. Il ne fallait plus fuir en ligne droite. Ce n'était pas la route la plus rapide qu'il leur fallait, mais celle qui ferait dérailler une fois le calcul de l'adversaire.
+Sion se colla à la fente.
+
+Dehors, tout était encore noir. Le champ d'épaves était censé se trouver droit devant, et on ne voyait rien.
+
+Puis il le vit. À un endroit, la lumière des étoiles était coupée. La coupure était longue, et ses bords irréguliers.
+
+C'était là. Sion savait que, lorsqu'on ne trouve pas ce qui brille, on cherche là où il n'y a pas de lumière.
 
 C'est alors que Kael, pour la première fois, regarda par la fente et dit à voix basse :
 
-« Ceux de derrière. Des vaisseaux civils modifiés en configuration militaire. »
+« Ceux de derrière, ce sont des vaisseaux modifiés pour l'armée. »
 
 Han Jiwoo répliqua sèchement :
 
 « Tu vois ça comment ? »
 
-« Le son des moteurs est différent. »
-Kael dit.
-« L'un intimide. L'autre veut mordre jusqu'au bout. Celui qui attrape n'est pas le même. »
+« Le bruit des moteurs n'est pas le même. »
+Kael poursuivit.
+« L'un fait peur. L'autre veut mordre jusqu'au bout. La main qui attrape, c'est un autre. »
 
-Sern demanda immédiatement :
+Sern demanda aussitôt :
 
-« Alors ils nous suivront jusqu'à l'intérieur du champ de débris ? »
+« Alors, ils nous suivront jusqu'à l'intérieur du champ d'épaves ? »
 
-Kael marqua un bref silence.
+Kael se tut un instant.
 
-« Ils entreront. Mais pas en profondeur. »
-Il dit cela à voix basse.
-« Ça sent les types pour qui le rapport de récupération passe avant leur propre survie. »
+« Ils entreront, oui. Mais ils ne pourront pas aller loin. »
+Sa voix était basse.
+« Ça sent les types pour qui le rapport de récupération passe avant leur propre peau. »
 
-Ces mots, étrangement, étaient convaincants. Ni Seorin, ni Han Jiwoo, ni Sion ne demandèrent de précision. Ce genre de jugement vient du corps avant les explications. Et c'était le moment d'emprunter chaque once d'instinct disponible.
+Personne ne demanda de précision.
 
-Han Jiwoo sourit, découvrant les dents.
+C'est ce qui parut étrange à Sion. Kael avait dit quel genre de types ils étaient rien qu'au bruit d'un moteur, et personne ne lui demandait sur quoi il se fondait.
 
-« Parfait. Alors je vous offre l'itinéraire premium. »
+Seorin en était déjà à la question suivante.
 
-La coque bondit soudain vers le haut, puis s'écrasa aussitôt vers le bas à gauche.
+Han Jiwoo sourit en montrant les dents.
 
-Ater prit appui sur la cloison et retint son souffle. Sern ne cilla même pas, refusant de perdre de vue les chiffres sur le panneau. Sion serra plus fort la poignée et regarda par la fente. C'était le moment de tenir, pas de lire — et pourtant ses yeux cherchaient déjà l'angle suivant.
+« Parfait. Alors je vous offre le trajet le plus cher. »
+
+La coque bondit soudain vers le haut, puis fut aussitôt plaquée vers le bas, à gauche.
+
+Ater prit appui sur la paroi et ravala un court souffle. Sern ne détourna même pas les yeux, comme pour ne pas perdre les chiffres du panneau. Sion serra plus fort la poignée et regarda par la fente. C'était le moment de tenir, pas de lire, et pourtant ses yeux couraient sans cesse vers l'angle suivant.
 
 « Ils entrent. »
-Sern dit.
-« Un vaisseau de plus se rapproche par la droite. »
+Sern enchaîna.
+« Un autre se rapproche par la droite. »
 
-« Très bien, venez. »
-Han Jiwoo cracha ces mots comme on mâche du verre.
-« À partir d'ici, c'est moi qui trace la route. »
+« Viens, viens. »
+Han Jiwoo cracha les mots entre ses dents.
+« À partir d'ici, c'est moi qui choisis la route. »
 
-L'instant d'après, la coque se faufila en rasant la première lisière du champ de débris du cargo mort.
+L'instant d'après, la coque s'engouffra en rasant la première lisière du champ d'épaves de cargos morts.
 
-Le paysage au-delà de la fente changea d'un coup. Au lieu du rideau noir du vide, d'immenses carcasses de cargos — arrachées, calcinées, réduites à l'os — défilèrent de part et d'autre comme des murs gris. Des anneaux de chargement sectionnés, des cadres externes à demi repliés, des carters moteur aux entrailles exposées flottaient en couches successives. Il n'existait aucun passage sûr. Et c'est précisément pour cela que l'endroit ressemblait au genre de chemin que choisissent les gens de la zone grise pour rester en vie.
+Derrière la fente, le paysage changea d'un coup. Au lieu du rideau noir du vide, d'immenses carcasses de cargos, arrachées et calcinées depuis longtemps, défilaient de part et d'autre comme des murs gris. Des anneaux de chargement sectionnés, des cadres extérieurs à demi repliés, des carters de moteur ouverts sur leurs entrailles flottaient en couches superposées. Il n'y avait pas de chemin sûr. C'est justement pour cela que l'endroit ressemblait au genre de route que choisissent les gens de la zone grise pour survivre longtemps.
 
-Han Jiwoo rit doucement.
+Han Jiwoo eut un rire bas.
 
 « Voilà. C'est mieux, un endroit comme ça. »
 
-L'un des vaisseaux de poursuite qui les talonnait ne parvint pas à corriger son angle à temps et racla longuement une carcasse extérieure. Le grincement du métal résonna brièvement, et l'éclat zébra la fente d'un trait acéré.
+L'un des vaisseaux de poursuite qui les talonnaient ne put casser son angle à temps et racla longuement une carcasse extérieure. Un grincement de métal broyé retentit brièvement, et son éclat zébra la fente.
 
 Sern dit aussitôt :
 
-« Le premier a ralenti. »
+« La vitesse du premier a baissé. »
 
-« Et le second ? »
-Seorin demanda.
+« Et le deuxième ? »
+La question venait de Seorin.
 
 « Il entre toujours. »
 
-Kael murmura à voix basse :
+Kael murmura :
 
-« Celui qui attrape. »
+« C'est la main qui attrape. »
 
-Au même instant, Sion vit une autre lueur se glisser entre les cadres à droite. Ce n'était pas le vaisseau qui intimidait. C'était la trajectoire de celui qui s'accroche coûte que coûte, qui mémorise l'angle d'évitement pour mordre à nouveau la fois suivante.
+Au même instant, Sion vit une autre lueur s'insinuer entre les cadres extérieurs, à droite.
+
+Alors il tendit l'oreille. Puisque Kael disait les avoir distingués au son.
+
+Il n'entendit rien. Le grondement à l'intérieur de la coque était trop fort.
+
+Mais il le vit. L'autre virait après eux. Chaque fois avec un demi-temps de retard, chaque fois sous le même angle.
 
 « Jiwoo. »
-Sion appela brièvement.
-« Deuxième interstice à droite. Il y a un espace encore intact. »
+Sion l'appela d'un mot.
+« Deuxième brèche à droite. Il y a un espace pas encore mort. »
 
-Han Jiwoo ne posa même pas la question.
+Han Jiwoo ne prit même pas la peine de demander confirmation.
 
-« Distance. »
+« Distance ? »
 
-Sern consulta le panneau et dit :
+Sern dit, les yeux sur le panneau :
 
 « Trois, deux, maintenant. »
 
 Han Jiwoo tordit le manche.
 
-La coque vira si brutalement vers l'intérieur du cadre de débris qu'elle faillit l'érafler. Quelque part sur la paroi gauche, un choc bref résonna, mais rien ne se brisa vraiment. En revanche, l'un des vaisseaux de poursuite ne put suivre l'angle jusqu'au bout et dériva largement vers l'extérieur.
+La coque vira dans les cadres de l'épave en les raclant presque. Quelque part sur la paroi gauche, un choc bref résonna, mais rien ne céda vraiment. En revanche, l'un des vaisseaux de poursuite ne put suivre cet angle jusqu'au bout et s'écarta largement vers l'extérieur.
 
-« Bien. »
-Han Jiwoo expira durement.
-« Un de moins. »
+« Un. »
+Han Jiwoo souffla brutalement.
+« Un de décroché. »
 
-« Il en reste un. »
-Sern dit immédiatement.
+« Il en reste encore un. »
+Sern n'avait pas attendu.
 
-À peine ces mots prononcés, une vibration plus aiguë balaya la partie inférieure de la coque.
+À peine avait-il fini qu'une vibration plus tranchante balaya le dessous de la coque.
 
-Cette fois, ce n'était pas un effleurement. C'était proche d'un impact sur un axe porteur.
+Cette fois, ce n'était pas un effleurement. Cela ressemblait plutôt à un axe touché au passage.
 
-Ater, le corps à peine stabilisé, dit :
+Ater, à peine stabilisé, dit :
 
-« La réponse de la section inférieure chute. »
+« Le bas ne répond plus aussi bien. »
 
-Le visage de Han Jiwoo se figea net.
+Le visage de Han Jiwoo se durcit d'un coup.
 
-« Ah, ça, ça me plaît vraiment pas. »
+« Ah, ça, je déteste vraiment. »
 
 Seorin demanda aussitôt :
 
-« Combien de temps tu tiens ? »
+« Ça tient combien ? »
 
-« Si ça continue de mordre, je ne tiens pas. »
-Han Jiwoo dit brièvement.
-« À partir de maintenant, il faut trouver un angle de survie tout en fuyant. »
+« S'ils continuent à nous mordre, ça ne tient pas. »
+Han Jiwoo fut brève.
+« À partir de maintenant, il faut fuir tout en cherchant l'angle qui nous garde en vie. »
 
-Sion ferma les yeux un instant puis les rouvrit. Ils n'avaient même pas encore atteint Hazran. Et déjà ce nom n'était plus une simple prochaine destination — il s'était mué en une ligne séparant la vie de la mort. Il fallait y arriver. Ce qu'ils y trouveraient, ce qu'ils y perdraient, c'étaient des problèmes pour plus tard. Pour l'heure, atteindre cet endroit vivants passait avant tout.
+Sion regarda les mains de Han Jiwoo.
+
+La main gauche, sur le manche, n'avait pas bougé depuis un moment. Seule la droite allait sans arrêt toucher quelque chose. Puissance, assiette, puissance encore. Elle revenait trois fois au même endroit.
+
+Si ça avait marché du premier coup, elle n'y serait allée qu'une fois.
 
 Sern, les yeux sur le panneau, dit très bas :
 
@@ -183,76 +203,80 @@ Sern, les yeux sur le panneau, dit très bas :
 
 « Quoi ? »
 
-« Si on continue à tourner sur cet angle, on peut frôler la lisière de la couche thermique. »
+« Si vous continuez à virer sous cet angle, nous pourrons frôler l'extérieur de la couche thermique. »
 
 Bref silence.
 
-Han Jiwoo dit sans l'ombre d'un sourire :
+Han Jiwoo répondit sans l'ombre d'un sourire.
 
-« Ça, c'est pas se cacher. C'est tomber. »
+« Ça, ce n'est pas se cacher, c'est tomber. »
 
 « Je sais. »
-Sern répondit.
-« Mais si on continue en ligne droite dans cet état, l'axe inférieur meurt en premier. »
+Sern poursuivit.
+« Mais si nous continuons à fuir en ligne droite dans cet état, c'est l'axe inférieur qui mourra en premier. »
 
-Ater enchaîna immédiatement :
+Ater enchaîna aussitôt :
 
-« Ce qu'il nous faut maintenant, ce n'est pas une trajectoire intacte, mais la structure minimale pour encaisser une rupture de poursuite et une descente forcée. »
+« Ce qu'il nous faut maintenant, ce n'est pas une route intacte, mais le minimum de structure pour encaisser la perte de la poursuite et une descente forcée. »
 
-« Rien que d'entendre ça, j'ai envie de vomir. »
-Han Jiwoo marmonna.
+« Rien qu'à l'entendre, c'est dégueulasse. »
+Han Jiwoo marmonnait.
 
-Kael, cette fois, regarda vers le plancher de la coque et dit :
+Kael, cette fois, regardait vers le plancher de la coque.
 
-« Si on doit tomber, autant choisir de tomber vivants. »
+« Si on doit tomber, choisis le côté où on tombe vivants. »
 
-Dès qu'il eut fini, Seorin conclut brièvement :
+Là-dessus, Seorin trancha.
 
-« D'accord. On fait un tour de plus dans le champ de débris, et si on ne les décroche pas, on fonce jusqu'à la lisière de la couche thermique. »
+« On fait encore un tour dans le champ d'épaves, et s'ils ne décrochent pas, on file jusqu'à l'extérieur de la couche thermique. »
 
-Han Jiwoo sourit brièvement.
+Han Jiwoo eut un rire bref.
 
-« Enfin quelque chose qui a du sens. »
+« Enfin quelque chose qui tient debout. »
 
-Mais au bout de ce sourire, il y avait une fêlure différente de celle d'avant. Ce n'était pas un sourire d'amusement : c'était le calcul, désormais clair, que ne pas tomber reviendrait à mourir plus vite.
+Mais au bout de ce rire, il y avait une fêlure différente de tout à l'heure. Elle ne riait pas parce que c'était drôle ; elle avait fait le calcul : si l'on ne tombait pas pour de bon, maintenant, on mourrait plus tôt.
 
-Derrière eux, la lueur d'un nouvel obus de poursuite fleurit.
+Derrière eux, la lueur d'un projectile de poursuite se répandit de nouveau.
 
-Plus profonde, cette fois.
+Celui-là alla plus profond.
 
-Quelque part sous la coque, une détonation sourde et brève éclata. Au même instant, le vaisseau chuta brutalement puis se redressa en oscillant, comme s'il ramassait son équilibre à tâtons. Trois panneaux muraux s'éteignirent d'un coup, et du bas du poste de pilotage monta le juron de Han Jiwoo, arraché comme du métal qu'on lime.
+Quelque part sous la coque, une rupture brève et sourde éclata. Au même moment, le vaisseau plongea d'un coup, puis tangua de nouveau, comme s'il ramassait tant bien que mal son assiette. Trois panneaux muraux s'assombrirent à la fois, et sous le poste de pilotage, un juron de Han Jiwoo jaillit, grincé entre les dents.
 
-« C'est réglé. Plus de choix. »
+« Voilà. Plus de choix possible. »
 
 Sern demanda aussitôt :
 
-« Seuil critique ? »
+« Le seuil critique ? »
 
 « Dépassé. »
-Han Jiwoo dit entre ses dents serrées.
-« Maintenant, c'est ne pas tomber qui nous tue. »
+Han Jiwoo serrait les dents.
+« Maintenant, si on ne tombe pas, c'est là qu'on meurt. »
 
 Bref silence.
 
-Ce n'était pas une exagération. Jusqu'ici, ils avaient emprunté des lignes dangereuses pour semer la poursuite. Mais le dernier impact venait de transformer cette ligne dangereuse : elle n'était plus un choix parmi d'autres, mais l'unique trajectoire de survie.
+Personne ne dit le contraire.
 
-Sion sentit une fois de plus le papier coincé dans sa veste. *Hazran*, *Aka*. Une ligne qu'on ne pouvait pas lire et qu'on ne devait pourtant pas perdre. Il existe des textures qu'on ne peut pas déchiffrer et qu'on n'a pas le droit d'abandonner. Ce qu'il avait tenu entre les structures un instant plus tôt en était une, et ces deux mots en étaient une autre.
+Ater retira la main de la paroi. Il s'y appuyait depuis un moment ; il la retira comme quelqu'un qui vient de comprendre que s'appuyer ne servait plus à rien.
 
-Seorin dit, très bas et très ferme :
+Sion reprit la poignée. Plus bas que tout à l'heure.
 
-« D'accord. On tombe. »
+Quand on tombe en tenant le haut, ce sont les bras qui lâchent d'abord. On le sait dès qu'on l'a subi une fois.
 
-Ater ne dit plus rien. Sern calculait déjà l'angle de descente. Kael serra son fragment plus étroitement contre lui.
+Seorin dit, très bas et d'une voix ferme :
 
-Han Jiwoo tourna le manche une dernière fois.
+« On tombe. »
 
-« Accrochez-vous tous. »
-Elle rit à voix basse.
-« À partir de maintenant, ce n'est plus une fuite. C'est une chute. »
+Ater ne dit plus rien. Sern calculait déjà l'angle de descente. Kael serra plus fort le fragment contre lui.
 
-La coque plongea une fois encore, plus profondément, dans l'ombre des débris.
+Han Jiwoo braqua le manche une dernière fois.
 
-Et en dessous, la chaleur d'un désert qu'ils ne voyaient pas encore les attendait.
+« Tenez-vous bien, tous. »
+Elle eut un rire bas.
+« À partir de maintenant, ce n'est plus une fuite, c'est une chute. »
+
+La coque se jeta encore une fois sous l'ombre plus profonde des épaves.
+
+Et en dessous, la chaleur du désert, encore invisible, les attendait.
 
 ---
 

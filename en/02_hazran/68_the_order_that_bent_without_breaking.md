@@ -1,216 +1,249 @@
 # Episode 68. The Order That Bent Without Breaking
 
-After the inner door closed, the outside air was strangely intact.
+After the inner door closed, the air outside was strangely untroubled.
 
-Seorin thought that was, if anything, typical of this place.
+Seorin thought that, if anything, this was just like the place.
 
-When a board broke that badly, things should normally be louder. Voices pinning blame, mouths arguing who won and lost, hands attaching themselves wherever opportunity showed. But from the moment Zahir drew the line with "settled inside," the air inside the scrap market had sunk surprisingly fast.
+When a board broke that badly, it ought to be noisier. Voices pinning the blame on someone, mouths going on about who lost and who won, hands latching on at the first chance. But ever since Zahir had drawn the line with "We settle it inside," the air in the scrap market had, if anything, sunk fast.
 
-It meant everyone knew that no matter who talked right now, those words would not carry value.
+It meant everyone knew that, right now, whoever talked, the talk was worth no price.
 
-Luhai leaned against an iron pillar a short distance from the courtyard and eventually could not hold back, muttering.
+Luhai had been leaning against an iron pillar a little way off from the courtyard; in the end he could not stand it and muttered.
 
-"This is really taking forever."
+"This is taking forever."
 
 Kael answered shortly.
 
-"It'd be stranger if it ended fast."
+"If it ended fast, that'd be stranger."
 
-Luhai twisted his lip.
+Luhai pushed out his lips.
 
-"Fair point, but even making people die of curiosity should have a reason."
+"Fair, but if you're going to make people die of curiosity, there ought to be a reason for it."
 
-Seorin half-listened while her gaze stayed on the area near the inner entrance and the movements of Zahir's people.
+Seorin let it pass as if half listening, but her eyes kept watching the area near the inner entrance and the movements of Zahir's people.
 
-Zahir had remained outside.
+Zahir was still outside.
 
-That was unexpected. Seorin had honestly thought he would follow them inside. But Zahir had escorted them to the threshold and stopped. Instead, he chose to stay outside, binding Harun, Nasim, Nahira, and all the inner people back within his own line of sight.
+That was unexpected. Seorin had thought he would follow them in. But Zahir took them only as far as the threshold and stopped; he chose to stay outside and bind Harun, Nasim, Nahira and all the people of the inside back within his own line of sight.
 
-From that single choice alone, Seorin thought she understood a little why this place did not collapse.
+From that one choice, Seorin thought she understood a little why this place did not collapse. Problems that came from outside the board, he sent into the board; problems that would arise inside the board, he pressed down again from outside. Zahir had never once let go of that line completely.
 
-Send the problems born outside the board into the board. Press down the problems that could arise inside the board from the outside. Zahir had never fully released that line.
+Watching Zahir like that, Ater spoke quietly.
 
-Ater watched that Zahir and said quietly.
+"It is far more precise than I expected."
 
-"Far more precise than I expected."
+Sern took it up at once.
 
-Sern caught it immediately.
+"Places like this are the more frightening ones,"
+he said, low.
+"They do not run because there is no law. They run longer because they do not look like law."
 
-"Places like this are always scarier."
-He said low.
-"They don't run because there's no law—they run longer because it doesn't look like law."
+Hearing that, Seorin smiled faintly. She did not like the method, but he was right.
 
-Seorin smiled faintly hearing that.
+Harun stood a little apart from Zahir.
 
-She did not like the method. But he was right.
+He had not knelt, and he did not look as if he meant to run.
 
-Harun stood a short distance from Zahir.
+That bearing stood out more, if anything. It was the way a man stands when what he did has been caught and he still does not think he was entirely wrong.
 
-He was not kneeling. He did not look like he intended to run.
-
-That attitude was, if anything, more conspicuous. The way of standing that belonged to someone whose actions had been exposed yet who did not believe he had been entirely wrong.
-
-Seorin knew that kind of person.
-
-Sometimes more troublesome than the greedy ones. Because the side that believed it was right justified its own hand even at the moment it crossed the line.
+Seorin knew that kind of person. Sometimes they were more trouble than the greedy ones. Someone who believes he is right justifies his own hands even at the moment he crosses the line.
 
 Zahir spoke first.
 
 "Harun."
 
-Not loud, yet the surroundings went quiet at once.
+It was not loud, yet everything around went quiet at once.
 
-Harun did not lower his head. Instead, he answered very low.
+Harun did not bow his head.
+Instead he answered, very low.
 
 "Yes."
 
-"You crossed a line tonight."
+"You crossed the line today,"
 Zahir said.
 
-Harun was silent a moment before answering.
+Harun was silent a moment before he answered.
 
-"If that is how you see it, I accept."
+"If you judge that I crossed it, I will accept it."
 
 Luhai swallowed a small breath.
 
 Seorin narrowed her eyes.
 
-Those words were not an apology. If anything, they meant the reason behind his actions had not yet bent.
+It was not begging. It meant that his reason for doing it had not yet been bent.
 
-Zahir could not have missed that.
+Zahir could not have missed that either.
 
-"Why did you do it."
-He asked.
+"Why did you do it?"
+he asked.
 
-Harun answered immediately this time.
+This time Harun answered at once.
 
-"Before Hazran became a market stall, I judged that order was what had to hold first."
-He said.
-"I determined that the moment outsiders seized the real thing and flipped the entire board, even the inner hands could be shaken."
+"I believed that before Hazran became a marketplace, the first thing that had to hold was order,"
+he said.
+"I judged that the moment outsiders took hold of the real thing and overturned the whole board, even the hands on the inside could be shaken."
 
-Ater's gaze shifted by the smallest degree.
+Ater's eyes changed, very slightly.
 
-Sern said nothing. Kael did not even scoff.
+Sern said nothing, and Kael did not even snort. They all knew it was worth hearing.
 
-They all knew the words were worth hearing.
+Harun went on.
 
-Harun continued.
+"If the wrong hands take hold of the real thing first, Hazran loses its order. So I made it stop."
 
-"If the wrong hand seizes the real thing first, Hazran loses its order. So I made it stop."
+"You didn't stop it. You twisted it,"
+Seorin cut in, low.
 
-"You didn't stop it. You twisted it."
-Seorin cut low.
+Only then did Harun look toward Seorin for the first time.
 
-Harun looked at Seorin for the first time.
+"The race was not broken."
 
-"Order sometimes survives only when hands are dirtied."
-He said.
+"You said that yesterday too."
 
-Seorin smirked.
+Seorin went on.
 
-"In my experience, people who say that rarely pay the full cost of dirtying their own hands."
+"That what broke was outside the race."
 
-The atmosphere trembled thinly once.
+"That is correct."
 
-But Zahir did not let that tremor sit.
+"That's exactly the problem."
 
-"Harun."
-He called again.
+Seorin took a step forward.
+
+"So if you didn't do it inside the race, it doesn't count? Then whatever anyone does here, wherever, it's all outside the race. Doing it where nothing gets priced means not paying the price for it."
+
+Harun did not answer right away.
+
+Seorin saw that silence and knew. It was not the first time the man had heard it. It was the first time he had heard it in a place where his answer no longer worked.
+
+"Order sometimes survives only if hands get dirty,"
+he said.
+
+Seorin gave a short laugh through her nose.
+
+"For people who say that, I haven't seen many who pay for their dirty hands all the way to the end."
+
+The air wavered once, thinly.
+
+But Zahir did not leave that wavering alone.
+
+"Harun,"
+he called again.
 "I know you were trying to protect Hazran's order."
 
-Harun's gaze wavered by the faintest degree.
+Harun's eyes wavered, very slightly.
 
-That was less the relief of having an excuse accepted, and closer to the tension of having one's intent read precisely.
+It was not the face of a man relieved to be understood. It was the face of a man who had just learned he had been read.
 
-Zahir continued very low.
+Zahir went on, very low.
 
-"That is why the punishment is heavier."
+"That is why I punish you more."
 
-That single sentence changed the air.
+With that one line the air changed.
 
-Luhai's eyes went wide. Kael lifted his chin by the smallest fraction. Sern's face said he had expected those words.
+Luhai's eyes went wide, and Kael lifted his chin slightly. Sern had the face of someone who had known it was coming.
 
 Zahir spoke.
 
-"By claiming to protect the order, the moment you judged the order in its place, the person who damaged Hazran's order first tonight was also you."
+"The moment you stood in for order and judged on its behalf, in the name of protecting it, you became the first to damage Hazran's order today."
 
-Ater exhaled very low.
+Ater let out a very low breath.
 
-That resembled the Empire's authorization structure, and was simultaneously nothing like it.
+It resembled the Empire's approval structure, and at the same time it was entirely different.
 
-Using exceptions for the sake of order. But who authorized that exception became the crux in the end. Zahir was striking Harun on exactly that ground.
+You use an exception for the sake of order. But who approved that exception ends up being the heart of it. That was exactly where Zahir was striking Harun now.
 
-Harun did not argue back this time.
+This time Harun did not argue back.
 
-Instead, he said very slowly.
+Instead he spoke very slowly.
 
 "I will accept the punishment."
 
 Zahir nodded.
 
-"Starting tonight, one month."
-He said.
-"You do not enter the inner board."
+"From today, for one month,"
+he said,
+"you do not enter the inner board."
 
-Harun's gaze shook clearly for the first time.
+For the first time Harun's eyes clearly wavered.
 
-Not death. Not exile. Not a display of severing a wrist.
+It was not death, not exile, not some show like cutting off a hand at the wrist.
 
-But in this place, that might be the most painful punishment of all. Barred from the inner board. Meaning: the place where Zahir assigned real value, chose the next hands, rebuilt the inner order—Harun could not stand there for one month.
+But here, that might be the most painful punishment of all. Being barred from the inner board meant that for one month Harun could not stand where Zahir set the real prices, chose the next hands, and rebuilt the order of the inside.
+
+Seorin knew why the punishment was shaped like that.
+
+Here, punishment was not there to hurt. It was there to set the price again.
+
+Drive Harun out, and what those hands knew went out with him. Kill him, even more so. But leave him be, and next time he would make the judgment himself again.
+
+So for one month he was pulled only from the place where judgments were made. The hands stayed; only the authority was taken.
+
+Seorin thought it was calculation, then corrected herself: part of it was not.
+
+A month, and he would be back. It had been cut so that he could come back.
 
 Zahir did not stop there.
 
-"And the return lines and arena-edge devices you tampered with,"
-He said.
-"You restore all of them with your own hands."
+"And the return lines and the devices at the edge of the arena that you tampered with,"
+he said,
+"you restore all of them with your own hands."
 
-Luhai muttered almost unconsciously.
+Luhai muttered, almost without meaning to.
 
-"Wow, that's going to be miserable..."
+"Wow, he's going to hate that…"
 
-Sern said very low.
+Sern spoke very low.
 
-"That's why it's punishment."
+"That is why it is a punishment."
 
-Zahir was looking at Harun to the end.
+Then he added one more thing.
 
-"The order you said you wanted to protect,"
-He said.
-"This time, rebuild it with your own hands."
+"That is a punishment you give to someone you mean to use again."
 
-Harun did not answer for a long while.
+Zahir kept his eyes on Harun to the end.
 
-But that silence was not the silence before collapse. It was closer to the silence of someone who had just learned exactly where it hurt the most.
+"The order you say you wanted to protect,"
+he said,
+"this time, build it again with your own hands."
 
-At last, he said very low.
+Harun did not answer for a long time.
 
-"...I accept."
+It was not the silence of someone about to break. It was the silence of someone who had only just found out where it hurt most.
 
-Seorin watched the scene and thought.
+At last he spoke, very low.
 
-This place was a mess. People assigned value to everything. The board was always twisting. There were many deceiving hands.
+"I will accept it."
 
-But strangely, it never fully collapsed.
+It was the same thing he had said before.
 
-Because someone always made the cost be paid back. Drew the line again. Made the hand that had created the mess rebuild it with its own hand.
+But to Seorin it sounded different from before. Before, he had said he would accept it if Zahir judged that he had crossed the line. Now he simply said he would accept it.
 
-Kael said low.
+What had dropped out in between was the condition.
 
-"More proper than I expected."
+Watching that scene, Seorin thought.
+
+This place was a mess. People stuck prices on everything, the board was always being twisted, and there were plenty of cheating hands.
+
+But it did not collapse completely. Because someone always, in the end, made the price be paid again, drew the line again, and made people set right with their own hands what their own hands had wrecked.
+
+Kael spoke low.
+
+"More proper than I thought."
 
 Ater answered.
 
-"Not quite proper."
-He said quietly.
-"It is returning to its own way."
+"Rather than proper,"
+he said quietly,
+"it is running in its own way."
 
 Seorin thought that was more accurate.
 
-This place was not the Empire. It was not the Alliance. But neither was it a place that ran sloppily because of that.
+This was neither the Empire nor the Alliance. That did not make it a place that ran any more carelessly.
 
-Hazran was, in the Hazran way, rebuilding an order that had been bent once.
+Hazran was rebuilding, in Hazran's own way, an order that had been bent once.
 
-And what Sion's party would take away from this place would not be merely metal or a single ship—that thought was only now becoming a little clear.
+And only then did it grow a little clearer to her that what Sion's party would take away from here might not be just metal or a single ship.
 
 ---
 

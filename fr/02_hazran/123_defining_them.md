@@ -14,7 +14,7 @@ Les machines d'escorte demeuraient d'une politesse excessive.
 Mais cette politesse ne visait pas à ouvrir un espace de dialogue.
 Elle se rapprochait davantage d'une notification feutrée d'un ordre déjà arrêté.
 
-« Les entités embarquées seront séparées et affectées à des zones de confinement en fonction de leur aptitude et de leur stabilité. »
+« Les entités embarquées seront séparées et affectées à des zones de séjour en fonction de leur aptitude et de leur stabilité. »
 
 À l'instant où ces mots résonnèrent,
 l'air se figea imperceptiblement.

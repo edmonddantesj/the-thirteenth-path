@@ -52,7 +52,7 @@ era este transporte, mantenimiento y clasificación sin fin del envés.
 
 Han Jiwoo, por primera vez,
 empezó a ver no solo cómo las manos de Serakion leen al humano,
-sino también sobre qué manos se sostiene Serakion mismo.
+sino también sobre qué manos se sostiene Serakion en sí.
 
 La estructura bien pulida estaba arriba,
 y la que de verdad se desgasta, abajo.

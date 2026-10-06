@@ -202,9 +202,7 @@ La mano de fuera respondió.
 
 —Quien lo vio en el terreno.
 
-—En el terreno,
-—siguió Sern frío—
-se suele confundir moverse rápido con no tener voluntad.
+—En el terreno —siguió Sern, frío—, se suele confundir moverse rápido con no tener voluntad.
 
 Ater no recogió esas palabras,
 pero su mirada ya estaba puesta en otro lado.

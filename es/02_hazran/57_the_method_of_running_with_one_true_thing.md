@@ -1,167 +1,292 @@
 # Capítulo 57 — El método para huir con una sola verdad
 
-La unión no era un final, sino el comienzo de una elección.
+Unirse no era el final, sino el comienzo de una elección.
 
-Cuando el esquife de Han Jiwoo y el planeador de Kael se posaron juntos sobre la misma línea baja de la periferia, los cuatro se enfrentaron por primera vez al mismo problema, que debían resolver juntos.
+Cuando el esquife de Han Jiwoo y el planeador de Kael bajaron a pegarse a la misma línea baja del borde exterior, los cuatro tuvieron por primera vez que resolver juntos el mismo problema.
 
 Cómo salir con vida.
 Cómo no soltar la brasa verdadera.
-Qué aparato abriría el paso delante,
-cuál cortaría la persecución detrás,
-quién vaciaría las manos,
+Qué aparato abriría paso delante,
+cuál cortaría por detrás,
+quién dejaría las manos libres
 y quién la sostendría hasta el final.
 
-Sion sintió que la brasa en su mano pesaba más, sin motivo.
+A Sion la brasa que tenía en la mano le pareció, sin motivo, más pesada.
 
-Su autenticidad estaba confirmada.
-Y precisamente por eso, de ahí en adelante, el mero hecho de sostenerla era una carga. Una carga que reordenaba las prioridades por encima de la velocidad, y que cambiaba hasta los movimientos de quienes lo rodeaban.
+Que era verdadera estaba confirmado.
+Por eso, a partir de ahora, el simple hecho de tenerla en la mano era una carga. Una carga que cambiaba las prioridades más que la velocidad, y que cambiaba hasta los movimientos de la gente.
 
 Kael habló primero, en voz baja.
 
-—Se acercan.
+—Nos estamos pegando.
 
-No era un sentimiento, sino un informe de distancia. El hueco entre los dos aparatos era ya muy corto. Un poco más cerca y podían transbordar a una persona; demasiado cerca y se enredarían y caerían juntos.
+No era un comentario, sino un parte de distancia. El hueco entre los dos aparatos se había vuelto muy corto. Un poco más cerca y podrían pasar a una persona de uno a otro; demasiado cerca, en cambio, y podían engancharse y caer juntos.
 
-Sern respondió enseguida.
+Sern habló enseguida.
 
-—Por ahora no te pegues del todo.
+—Por ahora no se pegue del todo.
 
-Han Jiwoo preguntó breve.
+Han Jiwoo preguntó, breve.
 
-—La razón.
+—¿La razón?
 
-—Así es más fácil que nos coman de un bocado —respondió Sern—. Si parecemos dos unidades separadas, las manos que cazan también se reparten. Pero en cuanto confirmen dónde está lo verdadero, todos se alinean en una sola fila.
+—Se les vuelve fácil comernos de un bocado.
+Sern respondió así.
+—Si se nos ve separados, las manos que persiguen también se dividen. Pero en cuanto quede claro dónde está lo verdadero, todos se pegan en una sola fila.
 
-Han Jiwoo recorrió la línea de delante sin una palabra más.
+Han Jiwoo, sin rechistar, recorrió con la vista la línea de delante.
 
 Tenía razón.
 
-Hasta ahora, solo el planeador rojo oscuro los mordía de cerca, pero si las manos de fuera del terreno empezaban de verdad a seguir el rastro, la cosa cambiaría. En el instante en que los dos aparatos se soldaran en un solo bloque, el objetivo que había que proteger quedaría igual de nítido.
+Hasta ahora, el único que los mordía de cerca era el planeador rojo oscuro, pero si las manos de fuera de la arena empezaban a olerlo en serio, la situación cambiaría. En el momento en que los dos aparatos se pegaran en un solo bloque, el blanco que había que proteger también se volvería nítido.
 
-Kael miró un momento hacia la mano de Sion y preguntó.
+Kael echó una mirada a la mano de Sion y preguntó.
 
-—¿Lo pasamos a otro sitio?
+—¿Lo pasamos a otro lado?
 
-Sion apretó más fuerte, casi por reflejo.
+Sion la apretó con más fuerza, casi por reflejo.
 
 —Todavía no.
 
-Antes que él, Sern añadió en voz baja.
+Antes incluso, Sern añadió en voz baja.
 
-—Pasarla la sacude.
+—Si la pasan, se sacude.
 
 Era exacto.
-La brasa verdadera no tenía nada de vistoso, pero estaba viva. Cambiarla de mano ahora no era solo pasar un objeto: podía sacudir la reacción una vez más. Mudar el criterio aquí sin necesidad podía matar lo verdadero con sus propias manos, igual que aquellos equipos a los que los falsos habían engañado.
+La brasa verdadera no era vistosa, pero estaba viva. Cambiarla ahora de mano no era solo pasar un objeto: podía ser sacudir la reacción una vez más. Si aquí cambiaban de criterio sin necesidad, podían acabar matando lo verdadero con sus propias manos, como los equipos a los que habían engañado las falsas.
 
-Han Jiwoo concluyó breve.
+Han Jiwoo zanjó, breve.
 
-—Entonces Sion la sostiene hasta el final.
+—Entonces Sion la lleva hasta el final.
 
-Kael asintió de inmediato.
+Kael asintió enseguida.
 
 —Listo.
 
-Un acuerdo breve.
-Y aun así, Sion oyó esa sola frase extrañamente alta. Quería decir que lo verdadero se quedaba en su mano, y quería decir también que el blanco seguiría volcándose hacia su lado.
+Fue un acuerdo breve.
+Y aun así, a Sion esa sola palabra le sonó extrañamente fuerte. Quería decir que lo verdadero se quedaba en su mano, y quería decir también que el blanco seguiría pegándose a su lado.
 
-Detrás, el planeador rojo oscuro estrechaba de nuevo la línea.
+Detrás, el planeador rojo oscuro volvía a cerrar la línea.
 
-Esta vez no se pegaba como al principio, a modo de tanteo. El piloto de delante había rebajado del todo el ángulo, y el pasajero de atrás tenía las manos vacías. Era el movimiento de quienes ya no necesitaban comprobar si lo que había que arrancar era verdadero o no. Ese equipo ya estaba seguro. La brasa estaba en la mano del grupo de Han Jiwoo.
+Esta vez no se acercaba como al principio, tanteando. El piloto de delante había bajado el ángulo del todo y el de atrás tenía las manos libres. Era el movimiento de gente que ya no necesitaba comprobar si lo que había que arrebatar era verdadero o no. Ese equipo ya estaba seguro. La brasa estaba en manos de la pareja de Han Jiwoo.
 
-—Lo dieron por fijo —dijo Sion en voz baja.
+—Ya lo dieron por seguro.
+Sion lo dijo en voz baja.
 
 Sern lo recogió enseguida.
 
 —Por eso hay que cambiar ahora.
 
-Han Jiwoo movió las cejas de un modo apenas perceptible.
+Han Jiwoo movió las cejas de forma casi imperceptible.
 
-—Dijiste que no la pasáramos.
+—¿No decías que no la pasábamos?
 
-—La brasa no. La línea —dijo Sern—. Hay que cambiar quién es el perseguido.
+—La brasa no: la línea.
+Lo dijo Sern.
+—Hay que cambiar quién es el perseguido.
 
 Kael lo entendió primero.
 
-—Que llamamos la atención sobre nosotros, más a la vista.
+—O sea, que los atraemos nosotros, dejándonos ver más.
 
-—Sí —respondió Sern—. El grupo de Han Jiwoo baja a la línea más sucia de abajo, y nosotros nos mostramos bien arriba, una vez. Si creamos el instante en que el bando rojo oscuro tenga que morder solo a uno de los dos, la mano que sostiene la brasa queda menos atrapada.
+—Sí.
+Sern respondió así.
+—La pareja de Han Jiwoo se va por la línea sucia de abajo, y nosotros nos dejamos ver bien arriba, una vez. Si creamos el momento en que los del rojo oscuro tengan que morder solo a uno de los dos, a la mano que lleva la brasa le cuesta más que la atrapen.
 
-Han Jiwoo escuchó esas palabras sin esbozar la menor sonrisa.
+Han Jiwoo lo escuchó sin sonreír siquiera.
 
-En su lugar, volvió a mirar la línea exterior de delante, la línea limpia de arriba, y entre ambas la sombra de la osamenta muerta que aún quedaba.
+En cambio, volvió a mirar la línea exterior de delante, la línea limpia de arriba y, entre ambas, la sombra del armazón muerto que quedaba.
 
-—Es posible —dijo—. Pero en un tramo nos separamos de verdad.
+—Se puede.
+Lo dijo ella.
+—Pero una vez nos vamos a separar de verdad.
 
-Kael respondió con una calma total.
+Kael respondió con toda calma.
 
 —Huir juntos siempre es así.
 
-Sion encontró extraño que esa conversación llegara tan rápido a su conclusión. Pero, a la vez, no tan extraño. En este momento, los cuatro funcionaban con una cabeza más cerca de la supervivencia que de la explicación.
+A Sion le parecía todavía más raro que aquella conversación se resolviera tan rápido. Pero tampoco era raro. Ahora los cuatro se movían con una cabeza más cerca de sobrevivir que de explicar.
 
-Desde las gradas también se leía el cambio.
+En las gradas también se leía el cambio.
 
-Luhai, al ver abajo cómo los dos aparatos se pegaban un breve instante y luego reajustaban su separación, frunció el ceño al instante.
+Luhai vio abajo cómo los dos aparatos se acercaban un momento y luego volvían a ajustar la distancia, y frunció la cara enseguida.
 
 —¿Qué están tramando esos?
 
-Seorin dijo muy bajo.
+Seorin habló muy bajo.
 
-—Uno de los dos hará de cebo.
+—Uno de los dos va a hacer de cebo.
 
-Ater se volvió hacia ella de inmediato.
+Ater la miró enseguida.
 
-—Cuál.
+—¿Cuál de los dos?
 
-—Eso aún no lo sé —respondió Seorin—. Pero la mano que sostiene lo verdadero se irá deslizando poco a poco hacia el lado invisible.
+—Eso todavía no lo sé.
+Seorin respondió así.
+—Pero la mano que lleva lo verdadero se va a ir yendo hacia donde no se la ve.
 
 Tenía razón.
-Si la mano que sostenía lo verdadero seguía a la vista todo el tiempo, todo Hazran se lanzaría encima.
-Por eso, de ahí en adelante, lo que importaba no era la velocidad, sino enturbiar, aunque solo fuera un instante, quién portaba lo verdadero.
+Si la mano que tenía lo verdadero seguía viéndose con claridad, todo Hazran se le echaría encima.
+Por eso, a partir de ahora, lo importante no era tanto la rapidez como **enturbiar, aunque fuera un momento, quién llevaba lo verdadero**.
 
-Nasim, con la mirada puesta abajo, endureció las comisuras de la boca de un modo casi imperceptible.
-Él también debía de haberlo entendido ya. Roto el tablero de la carrera, lo único que quedaba era saber quién sostenía lo verdadero y por dónde se escapaba. Harún seguía callado. Zahir no se había movido hasta el final. Pero cuanto más durara ese silencio, más pesada parecía que iba a caer la siguiente intervención.
+Nasim, mirando hacia abajo, tensó la boca de forma casi imperceptible.
+Él también debía de saberlo ya. Que, rota la partida de la carrera, lo único que quedaba era quién llevaba lo verdadero y por dónde se escapaba. Harún seguía callado. Zahir seguía sin moverse. Pero cuanto más durara ese silencio, más pesada parecía que iba a caer la siguiente intervención.
 
-Aka, al lado de Nahira, pasó la mirada de uno a otro de los dos aparatos y, por primera vez, dejó que sus ojos se detuvieran un largo rato en la línea sucia de la periferia de abajo.
+Aka miraba alternativamente los dos aparatos.
 
-Sion no podía ver eso directamente.
-Pero, extrañamente, se volvía cada vez más claro que lo verdadero que él sostenía tenía que huir no por la línea vistosa, sino por la más repugnante.
+Después de un buen rato así, habló.
 
-Justo entonces, desde arriba, el planeador rojo oscuro se hundió más hondo y fijó su ángulo.
+—Ahora van como si los dos lo llevaran.
 
-Ahora había que tomar de verdad la decisión.
+Seorin giró la cabeza.
 
-Han Jiwoo dijo breve.
+—¿Qué?
+
+—Esos dos van como si los dos lo llevaran.
+
+Aka señaló hacia abajo.
+
+—Para que no se sepa quién lo lleva.
+
+Seorin volvió a mirar los dos aparatos.
+
+La pareja de Han Jiwoo llevaba la brasa, pero no lo dejaba ver. La pareja de Kael no llevaba nada, pero se pegaba en un ángulo que la envolvía y se movía como si la llevara.
+
+Por eso había dudado antes el planeador rojo oscuro sobre a cuál morder primero.
+
+—¿Lo hacen a propósito?
+
+Seorin lo dijo en voz baja.
+
+Ater respondió.
+
+—Sería bueno que así fuera.
+
+Seorin miró a Ater.
+
+—¿Y si no?
+
+—Entonces han acertado por casualidad. La casualidad no vuelve la próxima vez.
+
+Aka escuchó ese ir y venir y volvió a mirar hacia abajo.
+
+—Basta con que lo lleven.
+
+Lo dijo Aka.
+
+—A propósito o no, ahora eso es lo correcto.
+
+Justo entonces, arriba, el planeador rojo oscuro se hundió más hondo y cerró el ángulo.
+
+Ahora sí había que tomar una decisión.
+
+Han Jiwoo habló, breve.
 
 —Decidan ahora.
 
-Sern respondió al momento.
+Sern respondió enseguida.
 
-—Subimos.
+—Nosotros subimos.
 
-Kael, sin una palabra, se preparó para cargar el peso del planeador hacia la línea de arriba, y Sion, apretando la brasa más hondo en su mano, miró la espalda de Han Jiwoo.
+—Si subimos, nos atrapan.
+Lo dijo Kael.
+
+—Subimos para que nos atrapen.
+
+Kael contuvo el aliento un momento al oírlo y luego puso la mano en los mandos.
+
+—¿Cuánto tiempo?
+
+—Hasta que nos vean a nosotros primero.
+
+Sion oyó la mitad de aquel ir y venir. La comunicación no llegaba limpia y las palabras le llegaban cortadas.
+
+Aunque llegaran cortadas, entendió lo que querían decir.
+
+Si subes, se te ve bien. Si se te ve bien, los que persiguen miran primero hacia ahí. Mientras miran, no miran abajo.
+
+La pareja de Kael, sin llevar nada, iba a subir como si lo llevara.
+
+—¿Y si los alcanzan?
+
+Lo preguntó Sion.
+
+Han Jiwoo respondió sin dejar de mirar al frente.
+
+—Si los alcanzan, a partir de ahí tendrán que aguantar sin tener lo verdadero.
+
+—¿Y eso se puede?
+
+—Eso ellos lo hacen mejor.
+
+En la voz de Han Jiwoo no había ni rastro de risa. Lo de «mejor» no sonaba a elogio. Sonaba a que esos dos estaban acostumbrados a fingir que tenían lo que no tenían.
+
+Sion miró la línea de arriba.
+
+El planeador de Kael subió de verdad. Lo que hasta hacía un momento iba pegado abajo se elevó a propósito, y al subir giró el cuerpo con un gran movimiento. No era un gesto para esconder, sino para mostrar.
+
+El planeador rojo oscuro desplazó su ángulo hacia allí.
+
+Sion volvió a apretar lo que tenía en la mano.
+
+Estaba aquí. Allí no había nada. Y, sin embargo, los que perseguían estaban mirando hacia allí.
+
+Así funcionaba. Y mientras funcionara, allá arriba, los dos que fingían tener lo que no tenían se estarían llevando los golpes solos.
+
+Sion, con la brasa apretada más hondo, miró la espalda de Han Jiwoo.
 
 Han Jiwoo solo miraba al frente.
 
 No un buen camino,
-sino un camino muerto,
-un camino sucio,
-un camino que los demás habían abandonado.
+sino la línea muerta,
+la línea sucia,
+la línea que los demás tiraron.
 
-El tipo de camino que ese hombre sabía recorrer mejor que nadie.
+El camino que ella siempre había usado mejor que nadie.
 
-—Bien —dijo en voz baja—. Entonces nosotros vamos por donde no nos vean.
+—Bien.
+Lo dijo ella en voz baja.
+—Entonces nosotros vamos por donde no se vea.
 
-Con esas palabras,
-los dos aparatos se prepararon por primera vez para separarse a la vez, cada uno con una intención distinta.
+Al mismo tiempo que lo decía, los dos aparatos se prepararon por primera vez para separarse a la vez, cada uno con una intención distinta.
 
-Uno para esconder lo verdadero,
-otro para parecer la mano que lo sostenía.
+Uno para esconder lo verdadero; el otro para parecer la mano que lo tenía.
 
 Y Sion lo supo.
 
-De ahí en adelante,
-ya no era solo el método para huir juntos lo que tenían que aprender,
-sino también el de engañar juntos.
+A partir de ahora,
+no solo tendrían que aprender a huir juntos,
+sino también a engañar juntos.
+
+A Sion eso no le gustaba.
+
+Tardó un poco en encontrar por qué no le gustaba. No era porque engañar estuviera mal. Si ahora no engañaban, morían, así que engañar era lo correcto.
+
+Lo que no le gustaba era la manera de repartirse las cosas.
+
+Los que llevan lo verdadero van por donde no se ve. Los que no lo llevan van por donde se ve bien. Y entonces, los golpes se los llevan los que no lo llevan.
+
+El que lo tiene no recibe los golpes, y el que no lo tiene, sí.
+
+Sion miró hacia arriba una vez más. El planeador de Kael seguía en lo alto y el planeador rojo oscuro iba pegado detrás.
+
+Si allá arriba se estaban llevando los golpes, era por lo que llevaba Sion.
+
+—Han Jiwoo.
+
+—¿Qué?
+
+—¿Cuándo bajan esos?
+
+Han Jiwoo no respondió enseguida.
+
+—Hasta que no entremos nosotros, no bajan.
+
+Sion lo asumió y miró al frente.
+
+Entonces no quedaba más remedio que ir rápido. Ir rápido era la única manera de hacer bajar a los de allá arriba.
+
+Sion empezó a leer lo de delante con más fuerza.
 
 ---
 

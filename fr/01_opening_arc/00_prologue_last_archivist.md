@@ -7,97 +7,97 @@
 
 ---
 
-La cité-port neutre, d'ordinaire, ne dormait jamais tout à fait la nuit.
-Les feux de cargaison ne s'éteignaient qu'aux approches de l'aube, et les navires arrivés tard jetaient l'ancre en silence, chacun portant un secret qu'il ne déclarait pas.
-C'est pourquoi, même une nuit où quelqu'un fuyait, ici, tout paraissait encore un moment semblable aux autres nuits.
+La cité portuaire neutre, d'ordinaire, ne s'endormait jamais tout à fait, même la nuit.
+Les feux de cargaison restaient allumés jusqu'aux approches de l'aube, et les navires arrivés tard accostaient toujours en cachant chacun une affaire à eux.
+Aussi, même une nuit où quelqu'un fuyait, tout paraissait ici, pendant un temps, à peu près comme d'habitude.
 
-Le dernier Archiviste courait dans un étroit couloir de liaison, la main plaquée sur son épaule gauche.
-L'odeur de brûlé l'avait atteint avant le sang.
-C'était la fumée qui montait des archives stellaires effondrées.
+Le dernier Archiviste courait dans un étroit couloir de liaison, la main pressée sur son épaule gauche.
+Avant même le sang qui coulait, c'était l'odeur de brûlé qui lui parvenait.
+La fumée montait du côté des archives stellaires effondrées.
 
-Dans sa main, il tenait une capsule de stockage à demi fondue et quelques fragments de tablettes de registre noircis par le feu.
-Autrefois, cela n'avait formé qu'un seul bloc.
-Mais c'était aussi le genre de documents qui, précisément, ne devaient jamais subsister d'un seul tenant.
-Il ne restait plus que des bords calcinés et quelques lignes qui n'avaient pas achevé de brûler.
+Il tenait à la main une capsule de stockage à demi fondue et quelques fragments de tablettes d'archives roussis par le feu.
+À l'origine, tout cela n'avait sans doute formé qu'un seul bloc.
+Mais c'était aussi le genre d'archives qui ne devaient pas subsister d'un seul tenant jusqu'au bout.
+Il n'en restait plus que des bords noircis et morts, et quelques lignes que le feu n'avait pas fini de dévorer.
 
-Peut-être n'avait-il jamais vu l'intégralité de ce qu'il portait.
-Mais il savait au moins ceci : s'il lâchait ces fragments ici, le nom de quelqu'un ne reviendrait plus jamais.
+Peut-être n'avait-il jamais pu voir jusqu'au bout ce qu'il portait.
+Il savait seulement ceci : s'il lâchait cela ici, le nom de quelqu'un ne reviendrait plus jamais.
 
-Dans le couloir derrière lui, des semelles métalliques résonnèrent.
-Plus d'une personne.
-Un son régulier qui se resserrait.
+Dans le couloir derrière lui résonnèrent des semelles métalliques.
+Pas une seule personne.
+Un bruit régulier, qui se resserrait.
 
-L'Archiviste titubait, mais ne s'arrêta pas.
-Parvenu devant un vieux terminal de maintenance encastré dans le mur au bout du couloir, il s'y adossa en manquant de tomber et posa sa paume sur l'écran.
-L'affichage, qu'il croyait mort, cligna plusieurs fois, puis revint faiblement à la vie.
+L'Archiviste titubait, mais ne s'arrêtait pas.
+Arrivé devant un vieux terminal de maintenance encastré dans le mur au bout du couloir, il s'y appuya presque en tombant et posa la paume dessus.
+L'écran qu'il croyait mort clignota plusieurs fois, puis revint faiblement à la vie.
 
 Authentification impossible.
 Habilitation révoquée.
-Accès verrouillé.
+Accès bloqué.
 
 Des phrases familières.
 Si familières qu'il faillit en rire.
 
-Il tira de sa main le fragment de tablette le moins carbonisé et le força dans la fente du terminal.
-Un crissement de surface, et l'écran trembla de nouveau.
+Parmi les fragments qu'il serrait, il prit le moins brûlé et le força dans la rainure du terminal.
+Dans un crissement de surface raclée, l'écran trembla de nouveau.
 Des phrases brisées apparurent.
-Un nom effacé, une ligne d'approbation tronquée, une séquence d'accès fermée — et, au bout, un reste de signature qui avait survécu à tout.
+Un nom effacé, une ligne d'approbation tronquée, une séquence d'accès fermée, et un morceau de signature qui avait survécu jusqu'au bout.
 
-Son souffle se suspendit un instant.
+Son souffle s'arrêta un instant.
 
 Au fond du couloir, quelqu'un cria.
 
-« Halte. »
+« Arrête-toi là. »
 
 L'Archiviste ne se retourna pas.
-De ses mains tremblantes, il ouvrit une dernière ligne de commande.
-Une ancienne procédure de conservation scellée.
-Un chemin qui, selon le protocole officiel, aurait dû avoir disparu depuis longtemps.
+À la place, d'une main tremblante, il ouvrit en grand une dernière ligne de commande.
+Une procédure de conservation d'archives scellée depuis longtemps.
+Un chemin qui, selon la procédure officielle, aurait déjà dû disparaître.
 
 L'écran vira au rouge.
 
 **Erreur de chemin de conservation.**
-**Incohérence de séquence originale.**
+**Incohérence de séquence d'origine.**
 **Récupération impossible.**
 
 Récupération impossible.
 
-En lisant ces mots, l'Archiviste ferma les yeux, très brièvement.
-Puis, avec les gestes d'un homme qui s'y était préparé depuis longtemps, il sépara en deux les fragments restants.
-L'un, il l'enfonça au plus profond du terminal. L'autre, il le glissa contre sa poitrine.
-Les mains de celui qui refuse, jusqu'au bout, que tout puisse être effacé d'un seul coup.
+À l'instant où il lut ces mots, l'Archiviste ferma les yeux.
+Puis, comme un homme qui s'y préparait depuis longtemps, il partagea en deux ce qui restait des fragments.
+L'un, il l'enfonça tout au fond du terminal ; l'autre, il le cacha contre sa poitrine.
+Effacé d'un bloc, tout aurait été fini ; c'étaient les gestes de quelqu'un qui s'arrange pour qu'on ne puisse jamais tout effacer d'un bloc.
 
-Les pas étaient maintenant juste derrière lui.
+Les pas l'avaient maintenant rejoint, juste derrière lui.
 
 « Pose ça. »
 
-Pour la première fois, il sourit.
-Sa voix était presque brisée — par le sang, ou par la fumée, impossible à dire.
+Pour la première fois, à ces mots, il sourit.
+Était-ce le sang, était-ce la fumée, sa voix était presque brisée.
 
 « Trop tard. »
 
-Il sentit qu'on pointait une arme dans son dos.
-La lumière du couloir vacilla.
-Quelque part au-delà des archives, un nouvel effondrement gronda.
+Il sentit quelqu'un pointer une arme sur lui.
+La lumière du couloir vacilla une fois.
+Quelque part hors des archives, un autre effondrement gronda.
 
-L'Archiviste, les yeux fixés sur l'écran qui s'éteignait, murmura :
+Les yeux sur l'écran qui se refermait, l'Archiviste parla, d'une voix qui n'était presque qu'un murmure.
 
-« Ceux qui ont effacé les noms sont ceux qui ont écrit l'histoire. »
+« Ceux qui ont effacé les noms ont écrit l'histoire. »
 
-L'écran lança un dernier éclat.
-Des coordonnées tronquées apparurent un instant, telle une balise de route qui n'aurait jamais dû exister, puis s'évanouirent.
+L'écran jeta un dernier éclat.
+Une coordonnée tronquée surgit un très bref instant, comme une balise de route qui n'aurait jamais dû exister, puis disparut.
 
-Il suivit cette lumière jusqu'au bout, puis dit, plus bas encore :
+Il regarda cette lumière jusqu'au bout, puis dit, plus bas cette fois :
 
 « La treizième voie… n'est pas encore achevée. »
 
 L'instant d'après, les lumières du couloir s'éteignirent.
 
-Et quelque part dans la cité-port neutre,
-un ancien chemin de conservation que personne n'avait jamais consigné comme ouvert
-s'éveilla dans un silence absolu.
-Nul ne savait encore s'il s'agissait de la dernière ligne de fuite d'un seul homme,
-ou des vestiges d'un relais bien plus ancien.
+Et quelque part dans la cité portuaire neutre,
+un ancien chemin de conservation que personne n'avait consigné comme ouvert
+s'éveilla, très silencieusement.
+Était-ce l'ultime ligne de fuite d'un seul homme,
+ou les débris d'une ligne de transmission plus ancienne encore, personne ne le savait encore.
 
 ---
 

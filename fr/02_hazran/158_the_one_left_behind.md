@@ -186,7 +186,7 @@ Cette nuit-là, dans la couche cachée,
 il resta quelque chose de plus fort que le soulagement : une résolution.
 
 On en avait extrait deux.
-Mais le centre de cet arc n'était pas ces deux-là.
+Mais le centre, ce n'étaient pas ces deux-là.
 
 Celui qu'on n'avait pas pu ramener
 était le premier à être revenu dans l'esprit de chacun.

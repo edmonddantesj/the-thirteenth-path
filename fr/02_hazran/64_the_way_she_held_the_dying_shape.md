@@ -1,211 +1,239 @@
 # Chapitre 64 — La manière de retenir une forme mourante
 
+Une fois qu'Aka y fut entrée la première, le compartiment intérieur se révéla encore différent du Hazran qu'ils avaient traversé jusque-là.
 
-Le compartiment intérieur dans lequel Aka entra la première était, là encore, différent de tout ce qu'ils avaient traversé de Hazran jusqu'ici.
+L'odeur de chaleur et de sable s'y faisait plus légère ; à sa place, celles du métal longtemps astiqué, du tissu sec et d'un faible courant qui ne s'éteignait jamais tout à fait se rapprochaient. C'était l'odeur d'un lieu où l'on avait longtemps trié ce qu'on pouvait sauver et ce qu'on ne sauverait jamais. Cela tenait de l'atelier, de la salle de conservation et de l'infirmerie.
 
-L'odeur de chaleur et de sable s'était encore atténuée, remplacée par celle de métal longtemps poli, de tissu sec, et d'un faible courant électrique qui ne s'éteignait pas tout à fait. C'était l'odeur d'un endroit où l'on avait longtemps trié ce qui pouvait encore être sauvé de ce qui ne le pouvait plus. Cela tenait de l'atelier, du conservatoire et de l'infirmerie à la fois.
+Sion se dit que l'air de cet intérieur ressemblait à Aka.
 
-Sion trouva que l'air de cet intérieur ressemblait à Aka.
+Rien ne s'y montrait bruyamment, mais c'était un air qui savait d'avance ce qu'il fallait jeter et ce qu'il fallait retenir.
 
-Rien de voyant,
-mais un air qui savait déjà ce qu'il fallait garder et ce qu'il fallait lâcher.
+Han Jiwoo observait les alentours plus ouvertement encore que Sion. Son attention n'allait nulle part ailleurs. Une coque à demi démontée, des plaques de renfort rangées à côté, une ligne de poussée coupée puis raccordée provisoirement, des raccords orientés autrement que ceux d'un système de sustentation. Ce n'était pas un endroit où l'on réparait des esquifs du désert. Cela ressemblait plutôt aux traces accumulées par des gens qui tentaient de ranimer quelque chose capable d'aller jusqu'au-delà du ciel.
 
-Han Jiwoo observait les alentours plus ouvertement encore que Sion. Son attention ne se dispersait pas. Une coque à moitié démontée, des plaques de renfort alignées à côté, une ligne de propulsion coupée puis raccordée de façon provisoire, des points de jonction orientés autrement que ceux d'un système de sustentation. Ce n'était pas un poste de réparation pour esquifs du désert. Cela ressemblait davantage aux traces laissées par des gens qui tentaient de ressusciter quelque chose capable de sortir au-delà du ciel.
+Aka s'arrêta près de la coque, et n'expliqua toujours rien.
 
-Aka, une fois arrêtée près de la coque, n'expliqua rien tout de suite.
+À la place, elle regarda une fois la braise dans la main de Sion,
+une fois les traces de jonction d'éthérite le long de l'ossature,
+et une fois la main de Han Jiwoo.
 
-Elle regarda une fois la braise dans la main de Sion,
-une fois les traces de liaison à l'éthérite sur l'ossature de la coque,
-et une fois les mains de Han Jiwoo.
-
-Rien que par ce bref déplacement du regard, Sion comprit qu'Aka ne considérait pas ces trois choses séparément. La braise, la coque et les mains d'une personne. Elle regardait si les trois pouvaient se relier d'un seul tenant.
+Rien qu'à ce bref déplacement du regard, Sion sentit qu'Aka ne voyait pas là trois objets séparés. La braise, la coque et une main humaine. Un regard qui cherchait si les trois pouvaient se relier d'un seul coup.
 
 Han Jiwoo posa la première question.
 
-« Qu'est-ce qui est encore vivant là-dedans ? »
+« Où est-ce que c'est encore vivant ? »
 
-Aka désigna l'ossature interne, derrière la peau extérieure déchirée sur toute sa longueur, un peu en arrière du centre de la coque.
+Un peu en arrière du centre de la coque, Aka désigna l'ossature sous le revêtement déchiré sur toute sa longueur.
 
 « Ici. »
-dit-elle.
+Elle le dit simplement.
 « C'est pas complètement mort. »
 
-Han Jiwoo s'approcha aussitôt.
+Han Jiwoo s'en approcha aussitôt.
 
-Elle regarda avant de toucher,
-et reprit son souffle avant de regarder.
+Elle regarda avant de toucher, et avant de regarder, elle reprit son souffle.
 
-Ce n'était pas l'attitude de quelqu'un qui manipule une machine, mais celle de quelqu'un qui refuse de brusquer ce qui a peut-être encore une chance de ne pas mourir.
+Ce n'était pas tant l'attitude de quelqu'un qui touche une machine que celle de quelqu'un qui ne brusque pas ce qui n'est peut-être pas encore mort.
 
-Elle parcourut la surface de jonction à l'intérieur de l'ossature avec une extrême délicatesse.
+Avec une grande précaution, elle parcourut les surfaces de jonction à l'intérieur de l'ossature.
 
-« Quelqu'un a commencé à poser de l'éthérite et s'est arrêté en cours de route. »
-dit-elle à voix basse.
-« Il y a des endroits où la pose a tué ce qu'il y avait en dessous. »
+« Quelqu'un a commencé à poser de l'éthérite et a laissé tomber. »
+Elle parlait bas.
+« Et à certains endroits, c'est la pose qui a tué. »
 
 Aka hocha brièvement la tête.
 
-« Si on en met trop, ça meurt vite. »
-dit-elle.
-« Ça prend juste la forme. »
+« Si on en met beaucoup, ça meurt vite. »
+Elle continua.
+« Ça ne fait que prendre la même forme. »
 
-Sion eut l'impression que cette phrase décrivait Hazran tout entier.
+Pour Sion, cette phrase sonnait comme une explication de Hazran tout entier.
 
-Ne garder que l'apparence.
-Faire semblant d'être une porte.
-Des lumières qui font semblant de vivre.
+Ce qui ne devient semblable qu'en surface.
+Ce qui fait semblant d'être une porte.
+Les lumières qui font semblant de vivre.
 
 Aka avait toujours détesté cela.
 
-Au lieu de sauver ce qui est vrai,
-tuer en imitant la forme.
+Une manière de tuer en imitant la forme, au lieu de faire vivre le vrai.
 
-Sern ou Ater, s'ils avaient été là, auraient voulu creuser davantage, mais aucun des deux n'était présent dans cet intérieur. Aussi les mots restèrent plus courts, plus directs.
+Si Sern ou Ater avaient été là, ils auraient aussitôt voulu poser d'autres questions, mais aucun des deux n'était dans cet intérieur. Alors les mots s'enchaînaient au contraire plus courts, plus directs.
 
-Sion demanda.
+Sion posa la question.
 
-« Alors comment on la fixe ? »
+« Alors on la fixe comment ? »
 
 Aka regarda la main de Sion.
 
 « Ça. »
-Elle désigna la braise d'un mouvement du menton.
+D'un mouvement du menton, elle désigna la braise.
 « Il faut d'abord que ça vive longtemps. »
 
-« C'est vivant, là, maintenant. »
+« Pour l'instant, c'est vivant. »
 
-« Seulement dans ta main. »
-dit Aka.
+« Que dans ta main. »
+Aka reprit.
 « Il faut que ça ne meure pas non plus quand ça touche la forme. »
 
-À ces mots, l'expression de Han Jiwoo changea de manière presque imperceptible.
+À ces mots, l'expression de Han Jiwoo changea, très légèrement.
 
-Sion comprit aussitôt ce que ce changement signifiait.
+Sion sut tout de suite ce qu'était ce changement.
 
-À partir de maintenant, il ne s'agissait plus d'une simple réparation.
-Pas de remplacer des pièces et de raccorder des lignes de propulsion,
-mais de construire une structure capable de soutenir la braise à l'intérieur de la coque sans la laisser mourir.
+Ce qu'il fallait désormais, ce n'était plus une simple réparation.
+Il ne s'agissait plus de changer des pièces et de raccorder des lignes de poussée, mais de construire une structure qui soutienne la braise à l'intérieur de la coque pour qu'elle n'y meure pas.
 
-Han Jiwoo dit très bas.
+Han Jiwoo parla très bas.
 
-« Il faut d'abord un cadre de réception. »
+« Il va d'abord falloir un cadre de réception. »
 
 Cette fois, Aka regarda Han Jiwoo plus longtemps que Sion.
 
 « Oui. »
-dit-elle.
+Elle le confirma.
 « Si on la met directement, ça brûle encore. »
 
-Han Jiwoo examina de nouveau l'intérieur de la coque. Son visage était déjà celui de quelqu'un qui dessinait mentalement un plan : jusqu'où démonter la structure existante, avec quoi étayer à la place, quelles surfaces de jonction préserver.
+À ces mots, Sion regarda le creux de sa main.
 
-« Il faut abandonner la moitié des surfaces de jonction existantes. »
-dit-elle.
-« Il reste trop de traces de mort. Si on force par-dessus, comme tu dis, seule la forme sera vivante. »
+Si la braise ne mourait pas maintenant, c'était parce qu'elle ne touchait rien. Elle vivait parce qu'elle restait dans sa main. Dès qu'on la fixerait, elle serait mise à l'épreuve.
 
-En entendant ces mots, Sion sentit que Han Jiwoo et Aka voyaient la même chose avec une rapidité presque troublante.
+« Alors, c'est la fixer qui est le plus dangereux ? »
 
-L'une séparait le vrai du faux par le sens,
-l'autre séparait les structures mortes de celles qu'on pouvait sauver par les mains.
+« Oui. »
 
-Ce qu'elles détestaient toutes les deux était identique.
-Forcer ce qui était mort à faire semblant de vivre.
+« Et si on ne la fixe pas ? »
 
-Aka alla chercher trois petits fragments d'éthérite sur une étagère étroite à côté de la coque.
+Aka regarda Sion.
 
-Les trois se ressemblaient de loin, mais de près le grain différait. L'un paraissait excessivement limpide, l'autre était trouble, chargé d'impuretés, et le dernier semblait à première vue le plus insignifiant des trois — mais sous la lumière, son grain intérieur reprenait vie très lentement.
+« Alors tu la tiens dans ta main toute ta vie. »
 
-Aka posa les trois sur la plaque de métal sous la coque et dit :
+Sion ne trouva rien à répondre.
 
-« Là-dedans, tout se ressemble. »
-dit-elle.
-« Mais ce qui ne dure pas est toujours le premier à devenir beau. »
+Tant qu'il la tenait, elle ne mourrait pas. Mais elle n'irait nulle part. Il ne l'avait pas portée jusqu'ici pour seulement la tenir.
 
-Sion retint son souffle en écoutant ces mots.
+Han Jiwoo parcourut de nouveau des yeux l'intérieur de la coque. Son visage était déjà celui de quelqu'un qui dessinait dans sa tête, comme sur un plan, jusqu'où démonter quelle structure, avec quoi étayer à la place, quelles surfaces de jonction sauver.
 
-Cette phrase semblait s'appliquer aussi bien à la braise qu'aux portes qu'aux mains des gens.
+« Il faut jeter la moitié des surfaces de jonction existantes. »
+Elle trancha.
+« Il reste trop de traces mortes. Si on force par-dessus, comme tu dis, il n'y a que la forme qui vivra. »
 
-Han Jiwoo s'accroupit et regarda les trois fragments.
+En l'entendant, Sion sentit que Han Jiwoo et Aka voyaient la même scène, et étrangement vite.
 
-Elle ne choisit pas d'instinct, comme on choisirait une braise.
-Elle lut plutôt les traces de liaison à côté de chaque fragment, les micro-fissures, les marques de chaleur absorbée. Certains étaient suspects à force d'être trop réguliers, d'autres semblaient tout simplement morts tant ils étaient troubles.
+L'une séparait le vrai de l'imitation par le sens, l'autre séparait par les mains les structures mortes de celles qu'on pouvait sauver.
 
-Sion, sans y penser, approcha la braise au creux de sa main.
+Ce qu'elles détestaient toutes deux était la même chose.
+Forcer ce qui est mort à faire semblant de vivre.
 
-La chaleur de la braise ne s'apaisa très légèrement qu'à proximité d'un seul des trois.
+Aka rapporta d'une étroite étagère, à côté de la coque, trois tout petits fragments d'éthérite.
 
-Ni saillant,
-ni tapageur,
-juste le côté où l'inconfort diminuait.
+Les trois se ressemblaient, mais de près, leur grain différait. L'un paraissait trop limpide, un autre était trouble, chargé d'impuretés, et le dernier, qui semblait d'abord le plus quelconque, laissait son grain intérieur revivre très lentement quand la lumière le touchait.
+
+Aka les posa tous les trois sur la plaque de métal sous la coque, puis parla.
+
+« Ici, tout a l'air pareil. »
+Elle poursuivit.
+« Mais ce qui ne dure pas devient beau le premier. »
+
+Sion écouta ces mots en retenant son souffle.
+
+Ils semblaient valoir aussi bien pour la braise que pour les portes et les mains des gens.
+
+Les lumières qui grandissaient les premières dans l'arène avaient été ainsi. Quand on les attrapait, elles brûlaient tout entières dans la main.
+
+Au marché, les choses dont le prix montait le premier aussi. Nassim avait dit que ce n'était pas le prix qui montait, mais les gens qui devenaient pressés.
+
+Sion trouvait étrange que ce soit encore, jusqu'ici, le même discours.
+
+Braise, pierre ou personne : ce qui avait vite l'air bon était le plus souvent en train de dépenser d'un coup ce qui lui restait.
+
+« Et ce qui dure ? »
+
+La question venait de Sion.
+
+« Ça se voit tard. »
+
+Ce fut la réponse d'Aka.
+
+« Il n'y a pas beaucoup de gens qui attendent ce qui se voit tard, alors tout le monde prend ce qui est beau. »
+
+Han Jiwoo s'accroupit et regarda une fois les trois fragments.
+
+Elle ne choisissait pas aussitôt, d'intuition, comme le faisait la braise.
+Elle lisait plutôt, près de chaque fragment, les traces de jonction, les fines fêlures, les marques de chaleur absorbée. L'un était suspect d'être trop régulier dès le départ, un autre si trouble qu'il semblait tout à fait mort.
+
+Sans y penser, Sion approcha davantage la braise qu'il tenait.
+
+La chaleur de la braise s'apaisa très légèrement, mais seulement près d'un des trois.
+
+Pas de saut,
+pas d'éclat,
+juste le côté le moins inconfortable.
 
 « Celui-là. »
-dit Sion à voix basse.
+Sion l'avait dit bas.
 
-Le regard d'Aka se porta aussitôt sur ce fragment.
+Le regard d'Aka alla droit à ce fragment.
 
-Han Jiwoo regarda une fois le visage de Sion, puis de nouveau le fragment.
+Han Jiwoo regarda un instant le visage de Sion, puis de nouveau le fragment.
 
-« J'allais regarder le même. »
-dit-elle.
+« C'est celui que j'allais regarder aussi. »
+Elle l'avait dit simplement.
 
-Sion ressentit un étrange soulagement à ces mots.
+À ces mots, Sion se sentit étrangement soulagé.
 
-Comme si être entré ici ne signifiait pas qu'il devait juger seul.
+Comme si cela voulait dire qu'ici, il n'était pas seul à devoir juger.
 
-Aka prit le dernier fragment et le posa dans la main de Han Jiwoo.
+Aka prit le dernier fragment et le déposa dans la main de Han Jiwoo.
 
-« Soutiens-le avec ça. »
-dit-elle.
-« On ne peut pas encore relier, mais on peut ralentir la mort. »
+Avant de le poser, elle s'arrêta une fois. Elle attendit un instant au-dessus de la paume ouverte vers le haut, puis le lâcha.
 
-Han Jiwoo serra la main une fois autour du fragment, comme pour en sentir le poids, la rouvrit, et laissa échapper un souffle très bas.
+Sion sut que ce n'était pas un geste pour en mesurer le poids. Elle regardait une dernière fois si elle pouvait le poser dans cette main.
 
-« Alors on peut le sauver. »
+« Celui-là soutient. »
+Puis elle ajouta.
+« Il ne peut pas encore relier, mais il peut retarder la mort. »
+
+Han Jiwoo referma une fois la main puis la rouvrit, comme pour en sentir le poids, et expira très bas.
+
+« Alors on peut la sauver. »
 
 Cette fois, Aka ne hocha pas la tête tout de suite.
 
-Elle dit simplement, très bas.
+À la place, elle parla très bas.
 
-« Sauver, c'est jusqu'ici. »
-dit-elle.
-« Le faire bouger, c'est l'étape d'après. »
+« Sauver, c'est jusque-là. »
+Elle poursuivit.
+« Faire bouger, c'est après. »
 
-Sion comprit bientôt pourquoi ces mots résonnaient si fort en lui.
+Sion comprit bientôt pourquoi ces mots résonnaient étrangement plus fort.
 
-Ce qu'ils pouvaient faire dans cet intérieur,
-c'était retenir la mort. Rien de plus.
-Véritablement décoller,
-prendre une route,
-sortir —
-cela relevait d'une tout autre étape.
+Ce qu'on pouvait faire dans cet intérieur, c'était retenir ce qui mourait pour l'empêcher de mourir. Pas plus.
+Décoller vraiment,
+prendre le chemin,
+sortir : c'était encore une autre étape.
 
-Autrement dit, ce n'était pas un produit fini,
-mais le travail nécessaire pour atteindre un état qui permette de passer à l'étape suivante.
+Autrement dit, ce n'était pas un ouvrage achevé, mais un travail pour arriver à un état qui permette de passer à l'étape suivante.
 
-Ce n'était pas un endroit qui offrait une réponse achevée.
-C'était un endroit qui confirmait que ce n'était pas encore mort,
-et qui préparait le passage vers la suite.
+Ce n'était pas un endroit qui donnait tout de suite une réponse achevée.
+C'était plutôt un endroit qui confirmait que ce n'était pas encore mort, et qui permettait de passer à la suite.
 
-Sion demanda doucement.
+Sion posa la question doucement.
 
 « Et après, c'est où ? »
 
 Cette fois, Aka ne répondit pas tout de suite.
 
-Elle regarda une fois l'obscurité plus profonde derrière la coque, puis une fois encore la braise dans la main de Sion, et seulement alors dit très bas :
+Elle regarda d'abord une fois l'obscurité plus profonde derrière la coque, puis encore une fois la braise dans la main de Sion, et alors seulement elle parla, très bas.
 
 « Avant de sortir, »
 dit-elle,
 « il faut d'abord voir encore une chose. »
 
-Sion comprit que ce n'était pas une simple précision supplémentaire.
+Sion comprit que ce n'était pas une simple précision de plus.
 
-Il y avait un intérieur plus profond encore à l'intérieur de cet intérieur,
-et avant la manière de sauver la coque,
-quelque chose restait à montrer — quelque chose qui expliquerait pourquoi ce chemin n'était pas encore tout à fait mort.
+Cet intérieur avait encore un intérieur plus profond,
+et avant même la façon de sauver la coque,
+il restait quelque chose à montrer : pourquoi ce chemin n'était pas encore tout à fait mort.
 
-Et en cet instant, Aka,
-pour la première fois,
-envisageait de montrer aussi le seuil d'après.
+Et maintenant, pour la première fois, Aka pensait montrer aussi le seuil d'après.
 
 ---
 

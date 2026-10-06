@@ -1,200 +1,347 @@
 # Episode 98. The Speed They Needed Began to Break Them
 
-*Next time must be faster.*
+What Zahir said to Sion as he left the board came to two words.
 
-Those words Zahir had dropped low
-were an order and a verdict at the same time.
+Go faster.
 
-Almost no time left in Hazran now.
-Then what's needed next isn't greater courage or hotter will.
-Just faster hands.
+Sion carried the words to the ramp. The whole way there, what they meant kept growing.
 
-The problem was
-that the human body doesn't speed up the way the heart does.
+Seorin was setting up the fifth line. Two steps apart.
 
-Sion felt it most sharply
-when the third group's second three began to move.
+"He says go faster."
 
-When the person in front takes one faster step,
-the person behind gets that much more frantic.
-A frantic body missteps.
-A misstep shakes the line.
+Seorin didn't stop her hands.
 
-The most frightening thing inside Hazran right now
-wasn't only the enemy.
+"So he's telling us to drop the two steps."
 
-It was the moment when the urgency to survive
-began breaking people's bodies first.
+"He didn't say that."
 
-Nasim grew rougher the instant he saw it.
+"He did."
 
-"Don't run!"
-He shouted in his hoarse voice.
-"I said go fast, not tangle up!"
+Sion started to argue and let it go. She was right. On this line, right now, that was the only place left to cut time.
 
-Rough words,
-but right ones.
+"What happens if we drop the two steps?"
 
-If one person falls here,
-in a space compressed this tight before the hull,
-three get caught together.
-Five get pushed together.
-Ten get shaken together.
+"Somebody goes down like that man earlier, and the whole back gets shoved."
 
-Luhai reached out from the front of the third line
-and caught the shoulder of a child who had lurched forward.
+"Then we can't."
 
-"Stop."
-He said, low.
-"Even fast, you go in order here."
+"We can't."
 
-The child couldn't even cry. Just nodded.
+Then Seorin looked over the whole line again. The same eyes as when she had cut it into threes.
 
-Seorin was already watching the stretcher angles and the gaps between walking people simultaneously.
+"Leave the two steps."
 
-She had gone beyond making people drop their luggage.
-Now she was cutting the spacing between people with her hands.
+"Then where do we cut?"
 
-"You, one step back."
-"Don't crowd now."
-"Match your breathing first."
+"Up front."
 
-Those words sounded like combat orders,
-and too cold for people trying to flee.
+Seorin pointed at the first three at the foot of the ramp.
 
-But right now,
-without that coldness, no one survives.
+"Right now the next three only move once the front three are up. Stop that. Send the next three off when the front three are about halfway up the ramp."
 
-Sion was doing the same thing beneath the ramp.
+"Then there'll be six on the ramp."
 
-When they crowded, he cut.
-When they bunched, he peeled.
-When someone looked about to fall, he braced them with his body.
+"Is six a problem?"
 
-But through all of it,
-his gaze kept splitting between the right and left front lines.
+"Han Jiwoo said twenty at a time…"
 
-The right, Harun was holding at an increasing blood-price.
-The left, Kael had barely stitched the breathing back together since entering.
+"Six on the ramp isn't weight inside the ship. The ramp's already built to take twenty."
 
-And both
-were becoming more fragile precisely because the evacuation line had gotten faster.
+Sion followed the math. It held. Even if the line overlapped on the ramp, the number of people inside the ship didn't change. The overlap only bought time.
 
-Ater spoke low.
+"I'll try it."
 
-"The pattern is collapsing because of speed."
+"I'll watch the front. You watch the back."
 
-At first Sion thought he meant the enemy.
-He didn't.
+That was how it started.
 
-He meant Hazran's side.
+It got faster.
 
-The faster the human line moved,
-the more the defensive line had to rush to match.
-Hands that used to hold one beat before firing grew impatient.
-Impatient hands blur angles.
+When the front three reached the middle of the ramp the next three set off, and when those three reached the middle the next three set off again. There were people on the ramp all the time. The empty moments were gone.
 
-War breaks people this way too.
+Sion held the two steps at the back. People kept trying to close up. The front was moving fast, so their bodies followed before they did.
 
-Sern swallowed one deep breath.
+"Two steps."
 
-"A little more disruption and it opens."
+After sending off the sixth three, Sion ran to the hull entrance.
 
-The instant those words ended,
-a rough metallic scraping sound kicked from the left corridor.
+Han Jiwoo had the back of her hand against the coupling.
 
-Kael's side.
+"Is this speed all right?"
 
-Sion turned his body on reflex.
+"It isn't."
 
-Kael was still holding.
-But one low metal barrier he'd hastily raised
-was half-folded where a cutting beam had caught it.
-Behind it, one black unit crouched low,
-looking at the inner angle.
+"Then should I slow it down?"
 
-Kael shouted, brief.
+"Slower is even less all right."
 
-"This side won't hold long!"
+"If neither one's all right, what do we do?"
 
-Those words pressed straight down on Sion's chest.
+"Then we pick the fast way to be not all right."
 
-The right was already bleeding and holding.
-The left was barely gripping with one freshly reassigned hand.
-And the line here before the hull needed to get faster still.
+Sion took that answer and looked toward Aka.
 
-Everything was interlocked,
-shaving each other down faster.
+Aka had her palm flat against the outer wall. She had been like that for a while.
 
-Zahir didn't change his expression through any of it.
+"Aka. Is the ship taking it?"
 
-But Sion knew.
-That face wasn't numb.
-It was the face of someone who knows that if he wavers now, everything here collapses together.
+"It's taking it."
 
-He said, brief.
+"Is it taking it because it's fine?"
 
-"Prepare the fourth group."
+Aka waited a moment before she answered.
 
-At those words,
-Nasim looked at Zahir with a face of genuine disbelief for the first time.
+"No."
+
+"Then—"
+
+"It has to take it, so it takes it."
+
+Sion found that answer frightening.
+
+Until now this child had only ever said whether the ship was holding or not. Just now, for the first time, she had split holding from having to hold.
+
+"How much more can it take?"
+
+"Don't know."
+
+"Three lines?"
+
+"Don't know."
+
+Sion didn't ask any more.
+
+Instead, he ended up carrying that too. The number of runs, the one hour, and the fact that nobody knew how many more lines the ship could take.
+
+He ran back carrying all three.
+
+"Two steps."
+
+He pulled them apart, and apart again, pushed the next three off, braced a shoulder that was about to go down, kicked bags out of the way with his foot.
+
+Someone dropped a waterskin. They bent to pick it up, and the three behind them closed right in.
+
+Sion kicked the waterskin out of the line and pushed the person on the back.
+
+"Go."
+
+"That's mine…"
+
+"Go."
+
+The person went. The waterskin rolled off between the wreckage and was gone. Sion thought it might have been the last thing that person had meant to carry out of here.
+
+He only thought it, and kept pushing.
+
+And while he pushed, he counted.
+
+He was counting the hour. He had been counting since they retied Harun's arm.
+
+The counting rolled along on its own somewhere at the back of his head. Until now, it always had.
+
+Somewhere around the twelfth person of the fifth line, Sion didn't know what number he was on.
+
+He stopped.
+
+Three set off at the front, three closed in at the back, his hands kept moving—but the number that had been at the back of his head wasn't there.
+
+He tried to find it again. It didn't come.
+
+Sion kept working and kept looking. What was it when he looked at the marks on the board earlier? What was it before that, when he pushed the one carrying water?
+
+Nothing.
+
+"Two steps."
+
+His hands kept going. Only the number was gone.
+
+Only then was Sion afraid.
+
+He didn't know whether the hour had passed or not. If it had, that arm was dying right now; if it hadn't and someone went and untied it, the blood would go. The only one who knew which was him, and that one had lost it.
+
+"Sion."
+
+Seorin was calling him.
+
+"Yes."
+
+"Which one are we on?"
+
+"Which three of the fifth line, I'm asking."
+
+"…I don't know."
+
+Seorin's hands stopped.
+
+That stop frightened Sion. Her hands were the kind that never stopped.
+
+"Since when?"
+
+"I don't know that either."
+
+Seorin looked at Sion. It wasn't an angry face. It wasn't a surprised face either.
+
+It was a face that knew.
+
+"Sit."
 
 "Now?"
 
-Zahir didn't even turn his head.
+"Sit here."
 
-"Now."
+Sion sat. Once he sat, his legs shook. He hadn't noticed while he was standing.
 
-Cruel.
-But again, right.
+"Why'd you tell me to sit?"
 
-It was no longer possible to finish one group and then attach the next.
-The next group had to already be ready
-so there was no gap when the front group ended.
+"I could see your legs shaking."
 
-The moment Sion heard that,
-he knew Hazran had entered nearly the final speed zone.
+"They weren't shaking."
 
-The zone where the speed the situation demands
-exceeds the speed people can handle.
+"They were. For a while now."
 
-And in moments like that,
-it's usually not the enemy
-but the people who break from the inside first.
+Seorin stood beside him where he sat and kept watching the line.
 
-Jiwoo heard the words *fourth group* from the hull entrance
-and closed her eyes for the briefest instant, then opened them.
+"Sixth,"
+she said.
 
-"At this rate the ship will choke first."
-She said, low.
+"What?"
 
-Aka answered at once.
+"The sixth three of the fifth line is going up now."
 
-"Take them anyway."
+"You were counting?"
 
-Jiwoo clenched her jaw.
+"Yeah."
 
-"Because if we don't, it all ends."
+"Since when?"
 
-In those words there was irritation,
-and resignation,
-and the stubbornness to hold until the very end, all at once.
+"From the start."
 
-The moment the third group's second three cleared the ramp,
-on the right Harun,
-on the left Kael,
-before the hull Nasim, Seorin, and Sion,
-and at the entrance Jiwoo—
-each in their own place, holding the same thing.
+"Then why'd you tell me to count?"
 
-The demand to go faster.
-But the fact that what breaks first when it gets faster
-is always the people.
+"I didn't. You counted."
 
-Hazran was now
-fighting the enemy
-and fighting not to collapse under that speed
-at the same time.
+Seorin waited a moment, then added,
+
+"I was counting too. I just didn't say."
+
+"Why?"
+
+"With two, it's fine if one slips."
+
+Sion pushed off his knees and stood. As he stood, he understood what that meant.
+
+She had known she would lose count. So she had kept two going. That was also why she hadn't been surprised to see Sion lose his.
+
+"And the hour?"
+
+"I didn't count that."
+
+Sion's breath stopped.
+
+"That one was yours to count,"
+Seorin said.
+"So that one's lost."
+
+Sion looked toward the corridor. Someone was still standing there.
+
+"We can just go ask him now."
+
+"What do you think he'll say?"
+
+Sion knew the answer. He would say not yet. Both times today, he had.
+
+"Then what do I do?"
+
+"Count again."
+
+"From the start?"
+
+"From now."
+
+"Then what about the time that's already gone?"
+
+Seorin didn't answer that for a moment.
+
+"He carries that."
+
+Sion knew what it meant. However much time he had lost, that arm would pay for it instead. How much, nobody knew; there had been one person who knew, and that one had lost it.
+
+Seorin lifted her chin toward the board.
+
+"Mark it there."
+
+"Mark what?"
+
+"An hour from now. Don't keep it in your head. Mark it there."
+
+"That's the board for counting runs."
+
+"Then mark it next to them."
+
+Sion went to the board.
+
+There were four marks. In the empty space beside them he scratched a short line with his fingernail. It barely showed, so he scratched it twice.
+
+Then he pushed the last two of the fifth line up.
+
+"Twenty."
+
+The ramp folded. The ship lifted. It was the fastest lift of the day.
+
+Sion scratched the fifth mark on the board.
+
+Twenty off a hundred and twenty-eight. A hundred and eight.
+
+Six runs.
+
+And beside it was the one short mark he had scratched with his nail earlier.
+
+Sion looked at the two together.
+
+One was the mark of people leaving, the other was the time someone was still standing. With the two side by side on one board, he could see which one was growing faster.
+
+The one growing faster was the short mark.
+
+Seorin came over beside him.
+
+"You marked it."
+
+"Yes."
+
+"Then you won't lose it now."
+
+Sion asked, looking at the board,
+
+"What about you?"
+
+"What about me?"
+
+"Where do you write down what you're counting?"
+
+Seorin didn't answer that right away.
+
+"Not here."
+
+"Then where?"
+
+"In my head."
+
+"Then you'll lose it."
+
+"Yeah."
+
+Then Seorin went back to the line. On the way she said one more thing.
+
+"So you watch it."
+
+Sion stood in front of the board a little longer.
+
+What was scratched here wouldn't disappear. What was in Seorin's head would. She knew that, and still she kept it in her head.
+
+At the far right edge of the board Sion scratched one more short line with his nail. It was a line that counted nothing.
+
+He didn't know yet what it would count. It felt like there would be something to count, so he only saved it a place.
 
 ---
 

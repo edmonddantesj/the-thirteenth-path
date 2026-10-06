@@ -1,182 +1,379 @@
 # Capítulo 102 — Cada mano que iba quedando se volvía más cara
 
-Después de que la cuarta tanda empezó a moverse,
-el interior de Hazran se volvió más callado que antes.
+Sion fue el primero en llevar agua al pasillo.
 
-Quedarse callado en medio de un campo de batalla ruidoso
-no es buena señal.
+Hasta entonces había unas manos aparte que llevaban el agua. Esas manos se habían ido antes en la quinta tanda.
 
-Quería decir que ya todos
-habían recortado hasta el aliento que se gasta en palabras inútiles.
+—Agua.
 
-Sion notó ese cambio enseguida.
+Sern no se volvió.
 
-La voz de Nasim seguía quebrada,
-pero ya no se desplomaba encima de la gente como antes.
-Ahora solo salían, desgarradas, las palabras necesarias.
+—Déjela y váyase.
 
-—Los tres de delante.
-—Atrás, paren.
-—Ahora.
+—Te la sostengo.
 
-Seorin tampoco explicaba ya nada.
-Igualaba los ángulos con la mano,
-cortaba la línea,
-separaba con la vista a quien se sumaba y a quien se detenía.
-Luhai agarraba del hombro a quien lloraba o se asustaba
-y simplemente lo empujaba hacia delante.
+—Le he dicho que la deje y se vaya.
 
-Todos
-empezaron a dejar solo el movimiento de verdad necesario.
+—Si la dejo, no vas a poder beber.
 
-No era tanto porque la pelea se hubiera alargado,
-sino porque cada mano que quedaba se había vuelto demasiado cara.
+Solo entonces Sern lo miró, un instante.
 
-Si aquí y ahora alguien más se hería o caía,
-no era simplemente que faltara una persona.
-El tiempo que esa persona sostenía,
-la línea que esa persona agarraba,
-el hueco que esa persona llenaba se vaciaban también con ella.
+Sion tenía razón. Si la dejaba, para recogerla tendría que retirar el cuerpo, y si retiraba el cuerpo, ese sitio quedaba vacío. Aquí, ahora, el tiempo en que el sitio quedaba vacío no era tiempo de beber agua: era tiempo en que el pasillo se abría.
 
-Hazran ahora
-contaba a la gente no como número de personas,
-sino como un puesto que no debe quedar vacío.
+—Sosténgala.
 
-A Sion esa idea le cortaba el aliento una y otra vez.
+—Sí.
 
-Después de que Harún se derrumbara una vez en el pasillo de la derecha,
-Sern y Ater llenaban de verdad ese puesto juntos.
+Sion llevó el cuenco hasta el hombro de Sern. Sern solo giró la cabeza para beber. Bebió dos sorbos y paró.
 
-Harún había vuelto a ponerse de pie.
-Pero ahora, cualquiera lo veía,
-no era el mismo cuerpo de antes.
-El brazo izquierdo le colgaba más abajo,
-la respiración se le había acortado
-y, en vez de recibir el peso de frente, aguantaba solo desviando ángulos.
+—Bebe más.
 
-Sern tenía que correr mucho más para cubrir esa parte vacía.
-Sin poder siquiera esconder el costado herido,
-cortaba corto y se retiraba enseguida,
-volvía a entrar
-y se retiraba otra vez.
+—¿Volverá a venir después?
 
-Ater, mirándolos a los dos, lanzaba solo las palabras necesarias.
+—Sí.
 
-—Sern, abajo.
-—Harún, ahora atrás.
-—Arriba a la derecha se asoma otra vez.
+—Entonces dejaré el resto.
 
-En esa voz no había prisa.
-Pero justo por eso era más precaria.
-Era la voz de quien, sin tener siquiera la libertad de apurarse,
-debe ser preciso durante demasiado tiempo.
+Sion entendió lo que quería decir esa respuesta. Aquel hombre no estaba ahorrando agua: le estaba dejando a Sion una razón para volver.
 
-Kael, que había ido a la izquierda, tampoco estaba en una situación distinta.
+Fue también hacia Ater. Ater bebió un sorbo y apartó la cabeza.
 
-Él no aguantaba solo,
-pero el hecho mismo de que «la izquierda aún no se haya derrumbado desde que entró Kael»
-mostraba lo cara que era esa única mano.
+—No deberías estar aquí.
 
-Kael, mientras volvía a levantar un biombo bajo de metal, se detuvo
-y dijo corto:
+—Lo sé.
 
-—Si vienen una vez más, lo abandono.
+—Si lo sabes, ¿por qué sigues aquí?
 
-Sion entendió enseguida lo que quería decir.
+—Porque no hay nadie más que la traiga.
 
-Abandonar el biombo
-quería decir abandonar el espacio que había detrás,
-y abandonar ese espacio
-quería decir tener que apretar de nuevo a la gente aún más hacia dentro.
+Ater no le respondió nada más.
 
-El último espacio junto al casco ya estaba lleno.
-Pero todavía podía encogerse más.
-Solo de pensarlo se cortaba el aliento.
+Sion miró lo que se veía desde allí.
 
-Han Jiwoo, mientras recibía a los tres primeros de la cuarta tanda,
-leía con la mano el temblor de la entrada del casco.
+El ancho donde estaban los dos se había ensanchado. Era porque tenían que vigilar también hasta donde bloqueaba Harún. Sern arriba, Ater abajo. Pero los dos miraban de vez en cuando hacia atrás. Hacia el montón. Si los de enfrente intentaban atravesar el montón, también había que frenar eso.
 
-—Esta vez se sacude menos —dijo en voz baja.
+Había tres sitios que frenar y dos manos.
 
-Aka le respondió enseguida.
+—¿Cuánto va?
+Lo preguntó Sern.
 
-—Porque hay menos gente.
+Sion no lo entendió enseguida.
 
-Eso era cierto.
+—Me refiero a la persona de abajo. El intervalo de los golpes.
 
-Cuando el tamaño de un mismo bulto se hace más pequeño,
-el barco se sacude menos.
-Pero eso, para el sistema, era estabilidad,
-y para la gente, también, una división más cruel.
+Sion iba a responder y se detuvo.
 
-Para sobrevivir,
-ahora también había que cortar a la gente más fina y cargarla.
+Lo último que había oído era doce. Antes, once, y antes, diez.
 
-Han Jiwoo soltó un aliento muy corto, parecido a una risa.
+—¿Por qué lo preguntas?
 
-—No sé si debería llamarlo bueno.
+—Lo pregunto porque necesito saberlo.
 
-Aka no respondió.
-En cambio, apoyó la mano en la pared exterior del casco
-y se puso a escuchar primero el siguiente temblor.
+—¿Y qué cambia si lo sabes?
 
-Zahir, mirándolos a todos,
-seguía preparándose para reasignar las manos en cuanto terminara la cuarta tanda.
+Sern respondió a esa pregunta enseguida.
 
-Esta vez era más descarado.
+—Sé cuánto más rápido tengo que hacerlo.
 
-Ya estaba contando a la gente con la vista.
-Quién todavía caminaba,
-quién podía correr más,
-quién había que retirar ya.
+Al oír esa respuesta, Sion miró hacia Ater.
 
-Cada vez que Sion veía esa mirada,
-sentía que también él mismo era contado como una mano.
+Ater habló sin apartar los ojos del ángulo.
 
-Le daba mala sensación,
-pero no podía negarlo.
-Porque aquí ahora era de verdad esa etapa.
+—No se lo digas.
 
-En ese instante,
-Luhai gritó en voz baja:
+—¿Por qué?
 
-—¡Uno va lento!
+—Si lo oye, las manos de ese hombre se aceleran.
 
-Alguien de la parte de atrás de la cuarta tanda no podía levantar bien la pierna,
-y la línea se bloqueó otra vez un momento.
+—¿Y no es bueno que se aceleren?
 
-Antes de que Sion pudiera echarse a correr,
-Seorin se pegó primero al costado de esa persona.
+—Aquí, una mano que se acelera pierde el tiempo siguiente.
 
-Sin decir nada, le levantó la cintura
-y la empujó un paso hacia delante.
-Ese movimiento, ni demasiado brusco
-ni demasiado tierno,
-era por eso aún más propio de Seorin.
+Sern le cortó.
 
-—Ve —dijo en voz baja.
+—Ya lo estoy perdiendo.
 
-Una sola sílaba.
+—Lo sé.
 
-Pero ahora con esa sola sílaba bastaba.
+—Entonces deje que lo diga.
 
-La línea volvió a moverse.
+Por primera vez, los dos se miraron. Un tiempo. Durante ese tiempo, nadie miró el ángulo.
 
-Hasta ese corto reinicio
-significaba, para Hazran, otra vez un poco más de tiempo.
+A Sion le dio miedo y habló primero.
 
-Y Sion lo supo.
+—Doce.
 
-Ahora la pelea no iba hacia escenas de héroes más grandes,
-sino que aguantaba según cuántos de estos pequeños reinicios pudieran lograr todavía.
+Sern volvió a mirar al frente.
 
-Cada mano que iba quedando se volvía más y más cara,
-y por eso la gente que quedaba
-no podía sino moverse más callada, más precisa, más cruel.
+—¿Y antes?
 
-Hazran ahora,
-con esas mismas manos caras,
-apenas empujaba de nuevo a unas pocas personas más hacia fuera.
+—Once.
+
+—¿Y antes de eso?
+
+—Diez.
+
+Sern recibió esos tres números y no dijo nada. En cambio, la siguiente vez que entró, entró medio tiempo antes.
+
+Ater lo vio.
+
+—Ahora se ha adelantado.
+
+—Lo sé.
+
+En ese momento sonó algo del lado del montón.
+
+Toda la gente que cavaba arriba se había detenido.
+
+—¡Bajen!
+
+Alguien gritó. En la parte de abajo del montón se movían piedras. No las empujaban desde arriba. Salían empujadas desde dentro.
+
+—Los de enfrente también cavan.
+Lo dijo Sern.
+
+—¿Para rescatarlo?
+
+—No.
+
+Ater respondió en su lugar.
+
+—Ahora el camino más rápido para entrar es ese montón.
+
+Solo entonces lo vio Sion.
+
+Sobre el mismo montón, desde arriba cavaban los doce y desde abajo cavaban aquellas cosas. Solo cambiaba la dirección; lo que hacían era lo mismo. Cuando lo quitaran todo, saldría la persona de abajo y, al mismo tiempo, se abriría el pasillo.
+
+Ater metió dos disparos cortos en la parte de abajo. Lo que salía empujado se detuvo.
+
+—No podré frenarlo mucho tiempo.
+
+—¿Por qué?
+
+—Esas cosas no se cansan.
+
+Sion miró a los que cavaban arriba. Tenían el dorso de las manos en carne viva. Llevaban todo ese rato cavando.
+
+O sea que esto no iba de quién se cansaba primero, sino de qué lado llegaba antes.
+
+Sion se quedó de pie con el cuenco de agua.
+
+Los dos no hablaron durante un rato. Ater solo soltaba tres palabras, «arriba», «abajo» y «atrás», y Sern se movía cada vez. El espacio entre las tres palabras era más corto que cuando Sion había llegado antes.
+
+Sion miró el brazo de Ater.
+
+—La manga.
+
+—¿Sí?
+
+—Está rota.
+
+Ater no se miró el brazo.
+
+—¿Se engancha?
+
+—Me parece que se va a enganchar.
+
+—Entonces átamela.
+
+Sion dejó el cuenco en el suelo y agarró el borde de la manga de Ater. La dobló dos veces y la metió hacia dentro. Mientras tanto, Ater no apartó los ojos del ángulo ni una vez.
+
+—Listo.
+
+—¿No lo compruebas?
+
+—Ya lo comprobé.
+
+—Entonces está bien.
+
+Al apartar las manos, Sion lo entendió. Aquel hombre ahora ni siquiera podía ver su propia manga. Tenía dos ojos para mirar, y los dos estaban puestos en otra parte.
+
+Al cabo de un buen rato, Ater le habló a Sion.
+
+—A partir de ahora.
+
+—¿Sí?
+
+—Dímelo también a mí.
+
+—Me dijiste que no lo dijera.
+
+—El problema es que solo lo sepa uno.
+
+Ater, después, añadió por primera vez una explicación corta.
+
+—Si él sabe que son doce y yo no, no sé por qué entra antes. Y si no lo sé, me retraso.
+
+—¿Entonces por qué me paraste antes?
+
+—Habría sido mejor que no lo supiera.
+
+Lo dijo Ater.
+
+—Ahora que lo sabe, tenemos que saberlo los dos.
+
+Sion entendió que esa frase acababa de darse la vuelta.
+
+Esconderlo era una opción, y compartirlo era otra. Cuando aquel hombre ya no pudo hacer una, pasó enseguida a la otra.
+
+—Cuando sean trece, te lo digo enseguida.
+
+—Trece no.
+
+—¿Qué?
+
+—Cada vez que suba una muesca, dímelo. Aunque no suba, dímelo.
+
+—¿Aunque no suba?
+
+—Que no suba también es información.
+
+—¿Y el agua?
+
+Ater no recogió esa pregunta durante un momento.
+
+—La próxima vez trae solo uno.
+
+—¿No dos?
+
+—Si traes dos, tendrás que quedarte de pie dos veces.
+
+Sion entendió qué quería decir. Si se quedaba aquí mucho tiempo, Sion también se convertía en una mano que había que contar.
+
+—¿Entonces el de quién?
+
+—Por turnos.
+
+Sion salió hacia atrás con el cuenco de agua.
+
+Al salir, se detuvo una vez.
+
+—Sern.
+
+—¿Sí?
+
+—Antes solo bebiste dos sorbos.
+
+—Sí.
+
+—Bebe ahora.
+
+Sern no se volvió.
+
+—Todavía no vienen.
+
+—Por eso te digo que bebas ahora.
+
+Sern esperó un momento y giró la cabeza. Sion levantó el cuenco. Esta vez bebió tres sorbos.
+
+—Ya está.
+
+—Queda.
+
+—Eso es del señor de antes.
+
+Sion llevó el cuenco hacia Ater. Ater no bebió.
+
+—Bebí antes.
+
+—Un sorbo.
+
+—Con un sorbo basta.
+
+Sion volvió a bajar el cuenco. El agua que quedaba seguía ahí.
+
+Los dos habían empujado su parte hacia el otro. No se habían dicho nada, y el resultado era el mismo.
+
+Al salir, miró una vez el pasillo. Dos personas cubrían el puesto de tres, detrás de ellos los doce cavaban de arriba hacia abajo, y nadie miraba a nadie.
+
+Fue hacia el casco.
+
+Han Jiwoo tenía el dorso de la mano apoyado en la junta de la rampa. Era la misma postura que antes, pero la cara era otra.
+
+—¿Qué pasa?
+
+—Cambió el sonido.
+
+—¿Empeoró?
+
+—No.
+
+Han Jiwoo despegó el dorso de la mano y lo volvió a apoyar.
+
+—Se ha vuelto más silencioso.
+
+—¿Y eso no es bueno?
+
+—Está más silencioso porque hay menos gente.
+
+Sion entendió esas palabras.
+
+Que salieran veinte cada vez era igual, pero los grupos que llegaban de golpe eran más pequeños. Era porque los formaban cortados de tres en tres. Para el barco, era más cómodo.
+
+—Entonces el barco va a durar más.
+
+—Sí.
+
+—¿Por qué pones esa cara?
+
+Han Jiwoo esperó un momento antes de responder.
+
+—Porque, cuanto más cómodo va el barco, más en pedacitos se corta a la gente.
+
+—¿Cuánto más aguanta el barco?
+
+—No lo sé.
+
+—¿No lo sabes?
+
+—Esto no hay manera de saberlo. Nadie ha hecho algo así con un barco así.
+
+A Sion esa respuesta lo consoló de una forma extraña. Que nadie lo supiera también quería decir que todavía no estaba decidido.
+
+—Pero una cosa sí sé.
+Lo dijo Han Jiwoo.
+
+—¿Qué?
+
+—Si yo suelto las manos, seguro que no aguanta.
+
+Y bajó la mano.
+
+—Ve a subirlos.
+
+Sion fue a la fila.
+
+—Tres.
+
+Seis bloques de tres. Al final, dos.
+
+—Veinte.
+
+La rampa se plegó. El barco despegó. Más silencioso que antes.
+
+Sion fue a la tablilla. Las marcas llegaron a siete.
+
+De ochenta y ocho se fueron veinte. Sesenta y ocho.
+
+Cuatro veces.
+
+Sion miró ese número una vez más.
+
+Cuando empezó a contar, no se veía el final. Ahora se veía.
+
+Quería decir que, dentro de las cuatro veces que quedaban, se decidiría una de dos: que la persona de abajo saliera o que no saliera.
+
+Al lado había dos rayas cortas. Sion trazó la tercera.
+
+Después fue hacia Aka.
+
+—¿Cuántos?
+
+—Doce.
+
+Al oír esa respuesta, Sion corrió hacia el pasillo.
+
+Porque le habían dicho que lo dijera aunque no subiera.
 
 ---
 

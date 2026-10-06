@@ -1,126 +1,227 @@
 # Episode 74. The Night That Felt Long Enough to Stay
 
-Hazran's night was quieter than its day, but never light.
+Hazran's night was quieter than its day, but it was never light.
 
-When the day's heat lifted, people said they felt alive again. But in truth, that was when more things revealed themselves.
+Once the day's heat lifted, people said they could breathe again, but in truth that was when more things began to show.
 
-The scent of cooling metal. The grain of sand carried on the wind. Thin machine sounds inaudible during the day. Low haggling voices continuing inside tent covers. And the faces of people who had barely survived another day, only now letting their exhaustion show.
+The smell of cooled metal,
+the grain of sand carried on the wind,
+a thin machine hum no one heard by day,
+the sound of bargaining running low inside the tents,
+and the faces of people who had barely made it through the day, only now letting their tiredness show.
+
+They said the temperature dropped once more as the night went deeper. That a place that burned like that by day could cool by dawn until your hands went stiff—Sion still found it hard to believe. According to Luhai, that was why Hazran people slept with metal plates warmed in the daytime at their feet instead of blankets. What burned by day became what covered you at night.
 
 Sion did not mind that night air.
 
-Still rough. Still unfamiliar. Still feeling as though it could flip at any moment. Yet strangely, right now, it felt as though he could stand a little longer.
+Still rough,
+still strange,
+as if it could turn over at any moment,
+and yet, oddly, right now it felt as though he could stand in it a little longer.
 
-When he returned after circling the market one more time, Jiwoo was already outside the inner tent cover.
+When he came back from one more lap of the market that day, Han Jiwoo was already out in front of the inner tent.
 
-Shoulders and hands looked tired, but the eyes had not fully died. That was a good sign.
+Her shoulders and hands both looked tired, but her eyes were still alive.
 
 Sion asked.
 
 "How is it."
 
-Jiwoo did not answer immediately. Instead, she looked down once at the metal pieces Kael had set down, the information fragments Luhai had brought, and the small bonding plate in her own hand, then spoke.
+Han Jiwoo did not answer right away. Instead she looked down, one at a time, at the metal pieces Kael had set down, the scraps of information Luhai had brought back, and the small bonding plate in her own hand, and only then spoke.
 
-"There's usable stuff."
-She said.
-"Problem is, everything's short."
+"There's stuff we can use,"
+she said.
+"The problem is, none of it's enough."
 
-Sion heard that and it sounded strangely like reassurance.
+"What's shortest."
 
-Short. That also meant it was not over yet. That this was not an entirely wrong path.
+Han Jiwoo folded down her fingers one by one.
+
+"One more receiving frame. Kael's buy covers that somehow. The outer skin—what we have now will stick, it'll stick. The problem is the bonding surface. Not one piece matches the grain for real."
+
+"Where does that come from."
+
+"Not from here,"
+Han Jiwoo said.
+"Everything here is Hazran stuff. And Hazran stuff is things that broke in Hazran. That ship isn't a ship that broke here."
+
+Sion held on to that for a moment.
+
+"Then can't it be fixed?"
+
+"It's not that it can't be fixed,"
+Han Jiwoo said, turning the bonding plate over.
+"It's making it hold a long time on things that don't quite fit. It's always like that."
+
+To Sion, that sounded strangely like reassurance.
+
+Not enough. That also meant it was not over yet. It also meant it was not a completely wrong road.
 
 Aka came out a little later.
 
-Her face was quieter than during the day. But Sion knew now. That quiet was not unresponsiveness—it was the state of someone continuously hearing too much.
+Her face was quieter than in the daytime. But Sion knew now. That quiet was not a lack of response; it was the state of someone still listening to too many things.
 
-Aka looked once at what everyone was carrying, listened to the waterway information Luhai's side had gathered, and said shortly.
+Aka looked once at what was in people's hands, listened even to the news from beyond the waterways that Luhai had brought back, and said briefly,
 
-"There are a lot of fakes at dawn."
+"At dawn there's a lot of fake ones too."
 
-Luhai asked immediately.
+Luhai asked at once.
 
 "Then the real ones?"
 
-Aka thought for a moment before speaking.
+Aka thought for a moment and said,
 
 "The side that doesn't shine first."
 
-Luhai smiled hearing that.
+Luhai laughed when he heard that.
 
-"Even here, the pretty ones are suspect."
+"So here too, the pretty stuff's the stuff you doubt."
 
-Jiwoo murmured low.
+Han Jiwoo muttered low.
 
-"That's always been the rule."
+"That's how it always is."
 
-Seorin listened to those three talking, then glanced toward the far edge of the market.
+Kael sat a little apart with the piece of outer skin he had bought today resting on his knees. He just left it resting there, now and then pressing it once with his palm.
 
-It was darker than before. But not a fully dead stretch. Small lights invisible during the day were alive here and there in scattered patches. The arena side under restoration. The return line compartment where Harun was still working. The outer edges where Zahir's patrol line moved slowly back and forth.
+Seorin slowed her steps as she passed beside him.
 
-Hazran was not a place that slept. It felt like a place that endured the night in a different way.
+"You buy that today?"
 
-Ater watched the landscape and said quietly.
+"Yeah."
 
-"Tonight will be a long one."
+"How much did you pay."
 
-Sern caught it shortly.
+Kael named the price. Seorin gave a short nod. She did not tell him to haggle, or that he had bought well.
 
-"Nights like these also end the fastest."
+Then, a beat later, she asked. Her voice was exactly the same as before.
 
-Sion listened and raised his gaze very slightly.
+"Still don't remember where your Kael is from?"
 
-It was strange. No immediate danger was pressing. But he was not fully at ease either.
+The air stopped for just a moment.
 
-It was less fear and closer to the sense that this night might be remembered longer because it was beautiful.
+Sion did not catch at once where that question had come from. He only knew that Seorin was asking the same thing a second time. The first had been on the ship, and that time too Seorin had used this voice.
 
-Beautiful nights usually do not last long.
+Kael did not take his hand off the metal plate on his knee.
 
-The thought passed, but Sion did not voice it.
+"What I don't remember, I don't remember if you ask twice."
 
-Luhai was somehow spinning a stick of dried fruit he had picked up from who knows where. Kael was spreading out the metal pieces he had just bought, calculating what to use first and what to save for later. Jiwoo had sat down on the ground entirely, fingertip running along the bonding plate's edge. Aka stood a little apart, outside the circle of people.
+"True enough."
 
-Seorin hesitated for a moment, then took one step toward Aka.
+Seorin walked straight on, like someone who had never meant to get an answer in the first place.
 
-Sion saw that and could not look away.
+Sern had listened quietly to that short exchange, then wore the face of someone counting something, very low. He said nothing to anyone.
 
-Seorin reached Aka's side and did not speak for a long time.
+Only Sion knew that something had passed between the two of them, and he still did not know what it was.
 
-She just looked outward together for a moment, then said very low.
+Seorin left the three of them talking behind her and suddenly looked toward the far end of the market.
 
-"You don't have the face of someone who'll stay here forever either."
+It had grown darker there than before. But it was not a completely dead stretch. If anything, small lights not seen by day were alive here and there. Toward the arena under repair, the return-line section Harun would still be working on, the outskirts where the patrol ships of Zahir's people drifted slowly back and forth.
 
-Aka did not answer immediately.
+Hazran seemed less a place that slept than a place that held on, at night, in a different way.
 
-The silence was not too long, yet not short either.
+Ater looked at that view and spoke quietly.
 
-"Not yet."
-She said.
-"But I know things disappear when I leave."
+"It seems tonight will be a long one."
 
-Seorin strangely could not reply right away.
+Sern answered briefly.
 
-Things that disappear when you leave. That sounded like it could be about a place, about a person, or about the night they were inside right now.
+"Nights like this are also the ones that end fastest."
 
-Sion heard it from a distance and suddenly felt he understood why Hazran stayed in the heart so quickly.
+Hearing that, Sion lifted his eyes, very slightly.
 
-This was a place that had always stood on things easy to lose. So even what briefly entered a hand, even a person who briefly appeared beside you, even a light that briefly came alive—all felt larger.
+It was strange. No danger was upon them yet. But he could not be fully at ease.
 
-Seorin finally said, very short.
+It was less fear than closer to a sense that this night was beautiful, and would be remembered longer for it.
 
-"Then look well while you're here."
+Beautiful nights rarely last long.
 
-Aka answered without lifting her head.
+The thought brushed past, but Sion did not bother to say it aloud.
+
+Luhai was turning a skewer of dried fruit he had picked up who knew where, and Kael was spreading out the pieces on his knees again, working out what to use first and what to put off till later. Han Jiwoo had sat right down on the ground and kept touching the edge of the bonding plate with her fingertips, and Aka stood a little apart, outside all those people.
+
+The wind passed once, low, and swept down the sand that had settled on the tent flaps. Powder covered the tops of their feet in a thin layer, then soon slid off. In Hazran you got covered several times a day even standing still.
+
+When he had finished the skewer, Luhai suddenly asked.
+
+"Where's that thing going once it's up."
+
+Han Jiwoo answered without taking her eyes off the bonding plate.
+
+"Who knows. Getting it up comes first."
+
+"So you decide after it's up?"
+
+"If you can decide after it's up, that's the best there is,"
+Han Jiwoo said.
+"Way more ships go up without deciding."
+
+Luhai chewed on that answer for a long time.
+
+"How many are getting on."
+
+This time nobody answered right away.
+
+Han Jiwoo's hands stopped, Sion counted the numbers he could count, and Seorin only listened, her eyes not leaving Aka.
+
+"The ship decides that,"
+Han Jiwoo said at last.
+"Not me."
+
+"Fair enough."
+
+Luhai laughed after that. He laughed, but half a beat later than usual.
+
+And he asked nothing more. It was a moment where asking would have gotten an answer, and still he did not ask. A child who knows prices also knows ahead of time what asking will cost him.
+
+Sion saw it, and did not let on that he had.
+
+Seorin hesitated a moment, then took one step toward Aka.
+
+Sion saw it and, for no reason, could not take his eyes away.
+
+Even after reaching Aka's side, Seorin did not speak for a long while.
+
+She just looked outward with her for a moment, then said very low,
+
+"You don't have the face of someone who's staying here for good either."
+
+Aka did not answer right away.
+
+The silence was not too long, but it was not short either.
+
+"Not yet,"
+she said.
+"But I know if I go, it's gone."
+
+For some reason Seorin could not reply to that right away.
+
+What is gone if you go. It sounded like it was about a place, and about people, and about this night they were clinging to now.
+
+Listening from a distance, Sion suddenly felt he understood why Hazran stayed with you so quickly.
+
+This place had always stood on things easily lost. So anything that came into your hands for a moment, anyone who was beside you for a moment, any light that came alive for a moment, felt that much bigger.
+
+In the end Seorin said, very briefly,
+
+"Then look hard while you're here."
+
+Aka answered without raising her head.
 
 "You too."
 
-Those two words stayed strangely vivid.
+Those two words stayed strangely clear.
 
-Sion turned his gaze.
+Sion turned his eyes away.
 
-Before him sat a ship not yet fully alive. Beside him, the people he would leave with. And the Hazran night he had not yet fully seen.
+In front of him was a ship not yet fully alive,
+beside him the people who would leave with him,
+and a Hazran night he had not yet seen all of.
 
-Tonight, at least, it truly felt as though they could stay a little longer.
+The cord at his wrist tightened a little. It was where Seorin had pulled it once more, earlier.
 
-And that was why it felt like a night that would not end easily.
+Just for tonight, it really felt as though he could stay a little longer.
+
+And so it was all the more a night that did not feel like it would end easily.
 
 ---
 

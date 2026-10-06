@@ -31,7 +31,7 @@ todas las miradas acababan pasando por ella una vez.
 
 Fue ella quien habló primero.
 
-—Vengo a oír lo que dijeron ayer —dijo—. Qué han traído hasta aquí sin perderlo.
+—Vengo a oír lo que les dije ayer —dijo—. Qué han traído hasta aquí sin perderlo.
 
 Un silencio breve.
 

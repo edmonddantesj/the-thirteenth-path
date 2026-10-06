@@ -1,196 +1,282 @@
 # Capítulo 61 — La palabra que dio tras mirarlo todo
 
-Después de que cayera la pregunta de Zahir, el aire del patio se detuvo solo un instante muy breve.
+El patio seguía dividido.
 
-Pero ese breve silencio resultó, en cambio, más afilado.
+Los que habían retrocedido medio paso y los que no seguían de pie tal cual. Nadie volvió a llenar el hueco entre ellos.
 
-Quién había roto la partida.
+Zahir no volvió a hacer la pregunta de antes.
 
-Esa era una pregunta que nadie de los presentes podía dejar pasar a la ligera. El terreno se había roto de verdad, las reglas habían sido torcidas por la mano de alguien, y aun así la brasa auténtica había vuelto viva. Entonces, ahora, el ajuste de cuentas era una de dos cosas. Decir quién había ganado, o decir quién había roto las reglas. La cara de Zahir decía que pensaba recibir ambas a la vez.
+A Sion eso le daba todavía más miedo. Había preguntado una vez quién había estropeado la partida, la respuesta había llegado desde la tribuna, y nadie había recogido esa respuesta. Nadie la había recogido y, aun así, la gente se había dividido.
 
-Sion no volvió a cerrar ni a abrir la mano en torno a la brasa.
+Aquí, una vez que caen las palabras, lo que viene después rueda solo.
 
-La había mostrado,
-había hecho comprobar que seguía viva.
-A partir de ahora tocaba calcular incluso a qué distancia, y en qué mano, conviene tenerla.
+El primero en moverse fue Sern.
 
-Esperaba que Seorin fuera la primera en hablar.
-Pero el que se movió primero fue Sern.
-
-Dio un paso al frente y dijo muy bajo.
+Dio un paso al frente y habló en voz baja.
 
 —No fue un accidente.
 
 La mirada de Zahir se desplazó hacia él.
 
-Sern no escogió más palabras.
+Sern no escogió las palabras.
 
-—La distorsión de la capa térmica no se extendió de forma natural. El orden en que se cortaron las líneas de retorno, el momento en que las reacciones se activaron a la vez, la velocidad de intervención del lado de los dispositivos del borde: nada concordaba —dijo—. Alguien torció el aliento de la carrera desde dentro.
+—La distorsión de la capa térmica no se extendió por sí sola. El orden en que se cortaron las líneas de retorno, el momento en que las reacciones revivieron a la vez, hasta la velocidad con que intervino el lado de los mecanismos del borde: nada encajaba.
 
-Esa frase era tan tajante que, al contrario, golpeó más fuerte.
+Eso dijo Sern.
 
-Luhai murmuró como reteniendo el aliento.
+—Alguien torció una vez, desde dentro, la respiración de la carrera.
 
-—Vaya, va directo a la yugular.
+Sion supo que esas palabras señalaban el mismo sitio que lo que Aka acababa de decir.
+
+Aka había señalado a personas. Los que estaban de pie sin mirar la carrera. Sern había señalado los mecanismos. Un orden que no se da por sí solo.
+
+Una lo había visto desde arriba y el otro lo había leído desde dentro, y habían llegado al mismo sitio.
+
+Luhai murmuró, casi conteniendo el aliento.
+
+—Vaya, va directo.
 
 Nasim no sonrió.
 
 Harún tampoco reaccionó.
 
-Pero precisamente por ese silencio, Sion sintió que las palabras de Sern se clavaban más hondo en aquel lugar. Lo más temible aquí no era el alboroto, sino el instante en que el que había sido alcanzado se quedaba demasiado callado.
+Precisamente por ese silencio, Sion sintió que las palabras de Sern entraban más hondo. Aquí lo más temible no era el alboroto, sino que el lado señalado se quedara demasiado callado.
 
 Zahir no miró hacia Harún.
-En vez de eso, volvió a preguntar.
 
-—Y bien —dijo—. ¿De qué mano se trata?
+En lugar de eso, volvió a preguntar.
 
-Esta vez fue Seorin quien rió.
+—¿Y bien? ¿De quién es la mano?
 
-Una risa muy breve, muy fina.
+Seorin soltó una risa breve.
 
-—¿Tengo que ser yo quien diga el nombre en tu lugar? —dijo—. Tampoco eres alguien que ignore las líneas internas de Hazran.
+—¿También tengo que decirte yo el nombre?
 
-Los ojos de Harún cambiaron de manera mínima.
+Eso dijo Seorin.
 
-Nada ostensible. Pero Sion pudo notarlo. Era una reacción más cercana que la ira. Los ojos de alguien alcanzado de frente que aún calculaba cómo encajar el golpe en ese punto exacto.
+—Tampoco es alguien que no conozca las líneas internas de Hazran.
 
-Ater no dejó pasar esa breve rendija.
+Los ojos de Harún cambiaron de forma mínima.
 
-—No son muchas las manos capaces de entrar hasta las entrañas del borde del terreno —dijo en voz baja—. Y menos aún las que pueden tocar a la vez las líneas de recuperación y los dispositivos térmicos.
+Sion supo que aquella no era una cara de enfado. Era la cara de alguien al que habían señalado de frente y que calculaba cuál era la manera correcta de encajarlo en ese lugar.
 
-Solo después de esas palabras miró Zahir a Harún por primera vez.
+Ater no dejó escapar esa rendija.
 
-El patio entero se quedó callado con él.
+—No debe de haber muchas manos capaces de entrar hasta el interior del borde del terreno.
 
-Sion pudo notarlo solo con esa breve mirada. En este lugar, la posición y el momento pesaban más que las pruebas. No quién había tocado de verdad los dispositivos, sino a quién se imputaba la responsabilidad: eso cambiaba toda la partida.
+Lo dijo con calma.
 
-Solo entonces dijo Harún, muy bajo.
+—Y, si son manos que pueden tocar a la vez la línea de recuperación y los mecanismos térmicos, serán todavía menos.
+
+Solo cuando esas palabras terminaron, Zahir miró por primera vez a Harún.
+
+El patio se quedó en silencio con él.
+
+Con esa breve mirada, Sion lo supo. Aquí, más que las pruebas, tenía más precio quién decía qué y cuándo. Más que quién había tocado de verdad los mecanismos, lo que cambiaba la partida era en la cuenta de quién se dejaba asentado.
+
+Solo entonces habló Harún, en voz baja.
 
 —Mi mano protege el terreno.
 
-Seorin lo recogió de inmediato.
+Sion oyó algo extraño en esas palabras.
 
-—Hoy no lo protegiste muy bien.
+No había dicho que no lo hubiera hecho. Solo había dicho qué era lo que hacía su mano.
 
-Luhai casi se tragó una risa por reflejo.
+Seorin lo recogió en el acto.
 
-Nasim solo entonces abrió la boca, muy despacio.
+—Pues hoy no lo has protegido muy bien.
 
-—Hoy a todos se les fue un poco el calor —dijo—. Subieron demasiados auténticos a la partida a la vez.
+—La carrera no se rompió.
 
-—Para echarle la culpa al calor, el dispositivo era demasiado preciso —cortó Sern.
+Eso dijo Harún.
 
-La comisura de los labios de Nasim se endureció de manera imperceptible.
+—Lo que se rompió fue fuera de la carrera.
 
-Aka seguía sin decir nada.
+Sion le dio dos vueltas a esa frase.
 
-Pero, de toda la gente que había ahora en el patio, era ella quien aguantaba el silencio más tiempo que nadie. Aka no miraba la brasa, sino a la gente. Más exactamente: la mano que había vuelto con lo auténtico, y las otras manos que se dividían al mirar esa mano. Quién vacilaba ante lo auténtico, quién aún contaba su valía, quién, incluso en este instante, intentaba poner en orden sus mentiras.
+Si lo que se había roto estaba fuera de la carrera, la mano que protegía la carrera no había infringido nada. Aunque hubiera tocado los mecanismos, si no los había tocado dentro de la carrera, era cierto que la había protegido.
+
+Aquí las palabras se hacían así. Se podía decir otra cosa sin decir una mentira.
+
+Luhai se tragó una risa.
+
+Nasim abrió la boca despacio.
+
+—Hoy todos andaban un poco acalorados.
+
+Eso dijo Nasim.
+
+—Subieron demasiadas cosas verdaderas a la partida de una sola vez.
+
+—Para echarle la culpa al calor, los mecanismos eran demasiado precisos.
+
+Sern lo cortó.
+
+La comisura de los labios de Nasim se endureció de forma mínima.
+
+Sion miró una vez hacia la tribuna.
+
+Aka seguía de pie en el mismo sitio de antes. Después de decir aquello, no había dicho nada más. Nahira, esta vez, no le tapaba el frente; estaba de pie a su lado.
+
+La que había hablado estaba mirando lo que hacían sus palabras.
+
+Solo entonces Sion lo entendió. Aquella cría lo había sabido durante toda la carrera.
+
+Había visto antes que nadie dónde se cruzarían los dos equipos, había visto antes que nadie quién estaba de pie sin mirar la carrera, y había visto antes que nadie que la mano que llevaba lo verdadero no lo soltaría.
+
+Lo había visto todo desde la tribuna. Y desde la tribuna no se puede hacer nada.
+
+Hasta llegar aquí, lo único que Aka había hecho era decírselo a quien tenía al lado. Quien tenía al lado la escuchaba y giraba la cabeza, y mientras tanto, abajo, la cosa ya había pasado.
+
+Hoy, por primera vez, esas palabras habían llegado hasta abajo.
+
+Ahora estaba mirando hasta dónde rodaba lo que ella misma había lanzado.
 
 Zahir volvió a mirar la brasa del lado de Sion.
 
-—Aun así, volviste —dijo—. Y no moriste.
+—Aun así, has vuelto.
 
-Eso era un veredicto.
+Lo dijo Zahir.
 
-La partida estaba rota,
-pero lo auténtico había vuelto,
-y la mano que lo sostenía no había muerto.
+—Y no has muerto.
 
-Entonces, al menos un lado del duelo ya estaba cerrado.
+Aquello era un juicio.
 
-Kael murmuró muy bajo.
+La partida estaba rota, lo verdadero había vuelto y la mano que llevaba lo verdadero tampoco había muerto. Entonces, al menos un lado ya estaba cerrado.
 
-—Ahora sí ponen los puntos.
+Kael murmuró en voz baja.
 
-Han Jiwoo recibió esas palabras como dejándolas pasar.
+—Ahora sí que ponen la nota.
 
-—Aquí siempre empieza después de acabar.
+Han Jiwoo lo recogió como de pasada.
 
-A Sion le gustaron esas palabras de un modo extraño. Hazran siempre había sido así. En cuanto creías haber conseguido algo, era entonces cuando empezaba a fijarse el precio de verdad.
+—Aquí siempre empieza cuando se acaba, ¿no?
 
-Zahir habló muy despacio.
+Sion pensó que tenía razón. Hazran siempre había sido así. En cuanto parecía que habías conseguido algo, a partir de ahí empezaba a ponerse el precio de verdad.
 
-—La brasa la sostuvo tu mano —le dijo a Sion—. Entonces habla tú primero. Qué quieres a cambio de cargar con ella.
+Zahir habló despacio.
 
-Esta vez Sion se detuvo un instante.
+—La brasa la ha traído tu mano.
 
-La pregunta era simple, pero la valía no lo era.
-Necesitaba eterita.
-Tenía que salvar el barco.
-Tenía que oír la siguiente palabra que lo conectara con Aka.
-Y si pedía demasiado en este lugar, podía hacer que todo pareciera, al contrario, poca cosa.
+Se lo decía a Sion.
 
-Al final de ese breve cálculo,
-Sion acabó por poner en palabras lo que le hacía falta primero.
+—Entonces habla tú primero. ¿Qué quieres con ella en la mano?
 
-—El metal para salvar el barco —dijo—. Y la palabra que diga a dónde se conecta esa brasa.
+Sion se detuvo un instante.
 
-Los ojos de Zahir se entrecerraron de manera mínima.
+La pregunta era simple, pero el precio no. Necesitaba eterita, tenía que salvar el barco y tenía que oír las siguientes palabras que llevaran hasta Aka. Pero si aquí quería demasiado, todo parecería poca cosa.
 
-—Las dos son grandes.
+Sion dijo primero lo que más le hacía falta.
 
-—No habría vuelto hasta aquí cargando algo pequeño —respondió Sion.
+—Metal para salvar el barco.
+
+Eso dijo Sion.
+
+—Y unas palabras que confirmen con qué conecta esa brasa.
+
+Los ojos de Zahir se entrecerraron de forma mínima.
+
+—Las dos cosas son grandes.
+
+—Es que no he vuelto hasta aquí con algo pequeño.
 
 Un breve silencio.
 
-Quien rompió ese silencio fue, contra todo pronóstico, Aka.
+Quien rompió ese silencio fue otra vez Aka.
 
-Aka, medio oculta delante de Nahira, abrió la boca por primera vez.
+Esta vez nadie le había preguntado.
 
-—Esa no es una brasa que abriera el camino —dijo en voz baja—. Pero sirve como prueba de que el camino no ha muerto.
+—Esa no es una brasa que haya abierto el camino.
 
-El aire del patio se detuvo de nuevo.
+Su voz era baja.
 
-Al oír esas palabras, Sion sintió que todo lo que había perseguido hasta ahora se reordenaba una vez más bajo una forma distinta.
+—Pero sí sirve de prueba de que el camino no ha muerto.
 
-No era la puerta en sí.
-Ni la llave perfecta que abriría el camino.
-Pero sí la prueba de que el camino no había muerto del todo.
+El patio volvió a detenerse.
 
-Entonces esta brasa se parecía menos a un destino
-que a un derecho de paso, a una prueba que abría hacia lo que venía.
+En el instante en que oyó esas palabras, Sion sintió que lo que había perseguido hasta entonces se ordenaba una vez más con otra forma.
 
-Zahir miró largo rato a Aka.
+No era la puerta en sí. Tampoco la llave que abre el camino. Era la prueba de que el camino no estaba del todo muerto.
 
-Esta vez no la detuvo.
+Entonces aquello se parecía menos a un destino que al derecho a pasar a lo siguiente.
 
-Y eso importaba más que todo lo demás.
+Sion volvió a mirarse la mano.
 
-Que hubiera dejado a Aka hablar por sí misma ante aquel lugar significaba que Zahir también veía en ese regreso algo más que una simple victoria de carrera.
+Durante días la había llevado pensando que era una llave. Había creído que, si la cogía, algo se abriría, y por eso no se atrevía a abrir la mano, por miedo a que se la quitaran.
 
-Nahira, a su lado, tomó aliento muy en calma.
-Desde el instante en que Aka había empezado a hablar, parecía alguien que ya sabía hacia dónde iba a fluir esa conversación.
+No era una llave. Era un pase.
 
-Aka, esta vez, miró del lado de Sion.
+Un pase no abre ninguna puerta por llevarlo encima. Hay que llevarlo para que en el siguiente sitio te dejen entrar.
 
-—Si la guardas fuera, todos vienen a morder —dijo—. Hay que llevarla adentro.
+Y un pase solo es un pase delante de alguien que lo reconoce. Se había convertido en un pase porque aquella cría acababa de reconocerlo. Sin esas palabras, lo que Sion tenía en la mano no sería más que una brasa que no se había apagado.
 
-Sion entendió de inmediato que esas palabras no eran una simple advertencia, sino algo más cercano a una invitación.
+Zahir miró a Aka un buen rato.
+
+Tampoco esta vez la detuvo.
+
+Sion contó que era la segunda vez en el día. Antes había preguntado si se le podía preguntar y la había dejado hablar, y ahora había dejado tal cual lo que ella había dicho sin que nadie le preguntara.
+
+Una vez es un permiso. Dos veces es un sitio.
+
+A su lado, Nahira recuperó el aliento en silencio. Parecía alguien que, desde el instante en que Aka abrió la boca, sabía hacia dónde iba a ir aquella conversación.
+
+Esta vez, Aka miró hacia Sion.
+
+—Si la llevas fuera, todos muerden.
+
+Eso dijo ella.
+
+—Hay que llevarla adentro.
+
+Sion supo enseguida que aquello no era una advertencia.
 
 Adentro.
 
-Más adentro de Hazran.
-El territorio donde Aka residía de verdad.
-O quizá el siguiente sector que Zahir no mostraba con facilidad.
+Más al interior de Hazran. Donde Aka estaba de verdad. El siguiente sector, el que Zahir no solía dejar ver.
 
 Luhai murmuró como tragándose el aliento.
 
-—Oh.
+—Vaya.
 
-Seorin, esta vez tampoco dijo nada y se limitó a mirar a Aka.
+Seorin, esta vez, tampoco dijo nada y se limitó a mirar a Aka.
 
-Zahir guardó silencio largo rato y, por fin, dijo muy bajo.
+Zahir guardó silencio un buen rato y luego habló en voz baja.
 
-—Bien —dijo—. Entonces esta partida se cierra aquí.
+—Bien.
 
-Y añadió muy brevemente.
+Eso dijo Zahir.
 
-—La recompensa se ajusta adentro.
+—Entonces esta partida la terminamos aquí.
 
-Con esa sola frase, el aire del patio cambió una vez más.
+Luego añadió, breve.
+
+—La recompensa se ajusta dentro.
+
+Con esa sola frase, el aire del patio volvió a cambiar.
+
+Sion entendió que aquello tenía dos sentidos.
+
+Uno era que iba a dar. El metal y las palabras, los daría dentro.
+
+El otro era que aquí no iba a dar nada. Delante de la gente que estaba ahora de pie en el patio, no se decidiría nada. La gente de aquí no sabría quién había recibido qué.
+
+En cuanto cayeron esas palabras, Sion vio que las caras de la gente volvían a cambiar.
+
+Si el precio pasaba adentro, los que se quedaban fuera salían de la cuenta. Las manos que hasta hacía un momento habían estado pegadas a aquella partida se habían quedado fuera todas de golpe.
+
+Entre la gente que se iba, Sion buscó a los pocos que antes habían retrocedido.
+
+No se los veía.
+
+Nadie había visto cuándo se habían marchado. Aquí, aquel al que le han puesto precio es el primero en desaparecer.
+
+Harún no se fue. Sin mirar siquiera hacia Zahir, seguía de pie en el mismo sitio.
+
+Sion supo que eso quería decir que el día aún no había terminado. En aquella ciudad, no moverse del sitio era la señal de que todavía quedaba algo que decir.
 
 El terreno había terminado.
-Pero el verdadero Hazran parecía abrirse solo a partir de ahora.
+
+Hazran parecía abrirse a partir de ahora.
 
 ---
 

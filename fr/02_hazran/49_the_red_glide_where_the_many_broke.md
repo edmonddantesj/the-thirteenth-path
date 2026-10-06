@@ -1,187 +1,181 @@
 # Chapitre 49 — La piste rouge où tant se brisèrent
 
+À l'instant où la main qui tenait la charge incandescente s'éleva, l'air se resserra jusqu'au-dehors de la cour centrale.
 
-À l'instant où la main qui tenait la charge incandescente se leva, l'air au-delà de la cour centrale se resserra lui aussi.
+Sion sentit la vibration de l'engin avant son propre cœur.
 
-Sion sentit la vibration de l'appareil avant son propre cœur.
+Vu de près, l'esquif choisi par Han Jiwoo avait l'air encore plus misérable. Le flanc gauche de la coque portait la trace d'une grande éraflure qui l'avait ouvert autrefois et qu'on avait recousue de force ; des deux plaques de sustentation inférieures, celle de droite réagissait avec un retard visible. Le carter du moteur, lui aussi, avait manifestement été ficelé plusieurs fois avec de vieilles bandes de métal et des bouts de toile. Mais dès qu'elle le vit, Han Jiwoo n'hésita pas. Un engin qui mourait sans rien cacher. Un engin qui réagissait exactement à proportion de la force qui lui restait.
 
-L'esquif que Han Jiwoo avait choisi paraissait encore plus lamentable vu de près. Le flanc gauche de la coque portait la trace d'une éraflure ancienne, large et béante, recousue de force ; la plaque de sustentation droite, des deux que comptait le dessous, accusait un retard de réponse visible à l'œil nu. Le carter moteur lui-même avait été ligoté à plusieurs reprises avec des brides métalliques usées et des morceaux de toile. Pourtant, en le voyant, Han Jiwoo n'avait pas hésité un instant. Un appareil qui, même en train de mourir, ne dissimulait rien. Un appareil qui ne répondait qu'à la juste mesure de ce qui lui restait de force.
-
-Quand elle posa la main, la barre de direction et le levier auxiliaire frémirent brièvement.
+Quand elle posa les mains, la barre de direction et le levier auxiliaire tremblèrent brièvement.
 
 « Monte. »
-dit-elle d'un mot.
+Elle l'avait dit sèchement.
 
-Sion grimpa sans poser de question sur le marchepied auxiliaire arrière. Sous la plante de ses pieds, un mince tremblement métallique lui remonta aussitôt. Vibration instable, mais qui ne mentait pas. Cet appareil ne tiendrait peut-être pas longtemps, mais au moins, il préviendrait par le corps avant de céder.
+Sion ne demanda rien de plus et monta sur le marchepied auxiliaire, à l'arrière. Sous ses pieds, un mince tremblement de métal remonta aussitôt. Une vibration instable, mais qui ne mentait pas. Cet engin ne tiendrait peut-être pas longtemps, mais il semblait prêt à faire sentir d'avance au corps l'endroit où il lâcherait.
 
-De l'autre côté, Kael et Sern s'installèrent sur un engin de glisse plus épais et plus lourd. La coque paraissait massive et lourde, mais l'ossature était solide, et le châssis inférieur, bas, semblait fait pour encaisser les chocs de la zone de débris. Avant de monter, Sern pressa du bout des doigts l'un des axes de direction, jaugea de l'œil le léger désaxage, puis prit place sans un mot. Kael, comme s'il avait attendu la fin de ce calcul, abaissa aussitôt le corps pour trouver son centre de gravité.
+De l'autre côté, Kael et Sern prirent place sur un engin de glisse plus épais et plus lourd. La coque avait l'air pesante et lente, mais l'ossature était solide, et le châssis inférieur, bas, promettait de bien encaisser les chocs de la zone des débris. Avant de monter, Sern pressa du bout des doigts l'un des axes de direction, mesura des yeux le léger désaxement, puis s'installa sans un mot. Kael, comme s'il n'attendait que la fin de ce calcul, se baissa aussitôt pour trouver son équilibre.
 
-Les équipes locales étaient bien plus rompues à l'exercice.
+Les équipes locales, autour, étaient bien plus à leur aise.
 
-Certaines avaient noué sur le flanc de leur esquif quelques plaques métalliques supplémentaires en guise de talismans ; d'autres, avant même le départ, bousculaient l'engin voisin de l'épaule pour mettre les nerfs à vif. Une équipe — sans doute la championne de l'an passé, un nom qui portait — avait aligné sur la première rangée un engin de glisse rouge sombre, net et sans fioritures. Deux équipes de téméraires de passage faisaient déjà bien trop de bruit. Sion sut d'instinct que ce genre-là était d'ordinaire le premier à se briser.
+Une équipe avait attaché au flanc de son esquif quelques plaques de métal de plus, comme des amulettes ; une autre, avant même le départ, poussait de l'épaule l'engin voisin pour taper sur les nerfs de ses occupants. Une équipe qui avait du renom, peut-être les champions de l'an dernier, prit place sur la première ligne avec un engin de glisse rouge sombre entretenu sans rien de superflu, tandis que les deux équipes des téméraires de passage faisaient déjà beaucoup trop de bruit. Sion savait d'instinct que ce genre-là était d'ordinaire le premier à se briser.
 
-Entre les tentes rouges et les gradins de fortune, marchands d'eau et parieurs, ferrailleurs et hommes armés, tous se penchaient en avant. L'un serrait sa mise dans le poing, l'autre criait déjà des noms, un troisième comptait combien d'équipes se retourneraient ce soir.
+Entre les tentes rouges et les gradins provisoires, porteurs d'eau et parieurs, démonteurs et tireurs, tous penchaient vers l'avant. Certains serraient leur mise, d'autres criaient déjà des noms, d'autres encore comptaient d'abord combien d'équipes se retourneraient cette nuit.
 
-Haroun se tenait au bord de la ligne de départ ; Nassim, un peu en retrait, balayait les visages, semblant lire en même temps la façon dont les cotes évoluaient. Aka n'avait pas quitté l'ombre au fond, mais même de loin, Sion sentit que son regard précédait la ligne de départ pour observer d'abord le premier tronçon du parcours.
+Haroun se tenait à côté de la ligne de départ, et Nassim un peu en retrait, parcourant les visages comme s'il lisait en même temps le mouvement des cotes. Aka ne sortit pas de l'ombre, à l'intérieur, mais Sion sentait, même de loin, que son regard fixait d'abord la ligne de départ et la première route qui s'en éloignait.
 
-Au sommet du haut pilier, la charge incandescente explosa.
+Au sommet du haut pilier, la charge incandescente éclata.
 
-Une flamme rouge jaillit dans l'air nocturne, brève et brutale,
-et à l'instant où sa braise redescendit en parabole vers le sable,
-douze appareils bondirent presque simultanément.
+Une flamme rouge jaillit, brève et rude, dans l'air nocturne,
+et à l'instant où sa braise retomba sur le sable en traçant une parabole,
+les douze engins s'élancèrent presque en même temps.
 
-Le premier choc ne fut pas un son, mais du sable.
+Le premier choc ne fut pas le bruit, mais le sable.
 
-À l'entrée de la piste rouge, quand les esquifs soulevèrent leurs plaques de sustentation d'un seul coup, un sable fin et sec se dressa comme un mur. Sion faillit perdre toute visibilité, mais à la fraction de seconde où la vue mourait, il sentit Han Jiwoo plonger précisément dans cet instant. Tandis que les autres perdaient un battement à chercher leurs positions respectives, elle avait déjà lu par le corps la ligne la plus dégagée.
+À l'entrée de la piste rouge, quand les esquifs soulevèrent tous ensemble leurs plaques de sustentation, un sable fin et sec se dressa comme un mur. Juste avant de perdre complètement la vue, Sion sentit Han Jiwoo s'enfoncer au contraire la première dans cet instant où la vision mourait. Pendant la fraction de seconde où les autres perdaient un temps à vérifier leurs positions, Han Jiwoo avait déjà lu avec le corps la ligne la plus vide.
 
-Sur la gauche, un crissement de métal.
+À gauche, du métal racla.
 
-Une équipe avait voulu repousser l'engin voisin et avait broyé le bord de sa propre plaque de sustentation en premier. Étincelles et sable giclèrent d'un bloc, et avant même que quiconque ait pu jurer, l'appareil se tordit de biais et s'encastra hors de la piste.
+Une équipe, en voulant repousser l'engin voisin, fracassa d'abord le bout de sa propre plaque de sustentation. Étincelles et sable giclèrent d'un coup, et avant même que quelqu'un ait pu jurer, l'engin de cette équipe partit de travers et alla s'écraser hors de la piste.
 
-D'un côté des gradins, cris d'effroi et clameurs éclatèrent en même temps.
+D'un côté des gradins, cris et acclamations éclatèrent à la fois.
 
-« Ne regarde que devant. »
-dit Han Jiwoo à voix basse.
-« Les côtés, c'est moi. »
+« Regarde seulement devant. »
+Han Jiwoo parlait bas.
+« Les côtés, c'est moi qui les surveille. »
 
-Sion fixa aussitôt son regard droit devant.
+Sion fixa aussitôt le regard devant lui.
 
-La piste rouge n'était pas une simple étendue de sable plane. C'était un tronçon où le sol tassé de la périphérie du marché de récupération mêlait par endroits de fines lignes métalliques et du terrain vitrifié durci — conçu pour donner de la vitesse tout en faisant déraper au premier faux pas. En surface, toutes les lignes se ressemblaient, mais selon le flux des grains de sable, la direction du vent et les sillages laissés par les autres engins, la ligne tenable variait imperceptiblement.
+La piste rouge n'était pas un simple chemin de sable plat. C'était un tronçon fait du sol tassé de la périphérie du marché de récupération, semé çà et là de minces lignes de métal et de plaques de sol vitreux durci, qui poussait à prendre de la vitesse tout en faisant déraper à la moindre erreur. En surface, toutes les lignes se ressemblaient, mais selon le courant des grains de sable, la direction du vent et les traces laissées par les autres engins, celle qui tenait différait un peu.
 
-Sion commença à lire où, devant lui, le sable s'amincissait sur telle ligne et où, soudain, il se tassait sur telle autre. Là où quelqu'un venait de passer, là où le sol était plus ferme, là où naîtrait le prochain point de collision. Il n'avait pas encore le temps de réfléchir en profondeur. Son corps lisait avant lui.
+Sion commença à voir sur quelle ligne le courant de sable s'amincissait devant lui, et sur laquelle il s'écrasait brusquement. Où quelqu'un venait juste de passer, quel côté était plus dur, où serait le prochain point d'impact. Il n'avait pas encore le temps de réfléchir en profondeur. C'était le corps qui lisait d'abord.
 
-« Deux lignes à droite, derrière, c'est libre. »
-dit-il.
+« À droite, deux lignes derrière, c'est vide. »
+Il l'avait dit d'un trait.
 
-Han Jiwoo ne posa pas de question et coucha l'appareil de ce côté.
+Sans même poser de question, Han Jiwoo coucha l'engin de ce côté.
 
-L'esquif se faufila en frôlant le bord du mur de sable. Juste devant, deux équipes s'étaient repoussées mutuellement et avaient heurté coque contre coque ; l'une avait perdu la direction et tournoyait hors de la piste, l'autre crachotait du moteur et perdait de la vitesse. Han Jiwoo trancha cet intervalle comme une lame.
+L'esquif s'enfonça en frôlant le bord du mur de sable. Juste devant, deux équipes qui se repoussaient se heurtèrent de la coque : l'une, perdant la direction, partit en tête-à-queue hors de la piste, l'autre perdit de la vitesse, le moteur hoquetant. Han Jiwoo trancha cette brèche presque comme une lame.
 
-Ce n'est qu'à cet instant que Sion reprit son souffle, en retard.
+Ce n'est qu'à ce moment que Sion reprit son souffle.
 
-Un pilotage dément.
+C'était un pilotage de fou.
 
-Ce n'était pas de la vitesse brute,
-mais un pilotage qui lisait à l'avance l'instant où les autres se brisaient et le transformait en passage.
+Pas un pilotage rapide : un pilotage qui lisait d'avance l'instant où les autres se fracassaient et le changeait en passage.
 
-Sur la ligne nord extérieure, l'équipage Kael-Sern n'était pas encore en tête. En revanche, leur engin de glisse, si lourd d'apparence, tanguait bien moins que prévu. Quand les autres, grisés par la vitesse initiale, soulevaient brutalement leurs plaques de sustentation, Kael ne forçait pas davantage l'appareil. Sern faisait un bref signe de la main, et Kael ajustait l'angle d'exactement cette mesure ; si bien que même au bord de la piste, là où les micro-collisions s'accumulaient, leur ligne ne se défaisait guère.
+Sur la ligne extérieure nord, Kael et Sern n'étaient pas encore en tête. En revanche, leur engin de glisse qui avait l'air si lourd tremblait moins qu'on ne l'aurait cru. Quand les autres, grisés par la vitesse du départ, soulevaient brutalement leurs plaques, Kael ne poussait pas l'engin davantage. Dès que Sern faisait un bref geste de la main, il changeait d'angle juste d'autant, et grâce à cela, même sur le bord extérieur où s'accumulaient les petites collisions, leur ligne ne s'effondrait guère.
 
 « Tu économises, là ? »
-demanda brièvement Kael.
+Kael avait posé la question brièvement.
 
-« Si on casse maintenant, c'est fini. »
-répondit Sern.
-« La piste a l'air longue, mais c'est un tronçon où les équipes éliminées s'empilent d'abord. »
+« Si nous cassons maintenant, c'est fini. »
+Sern lui répondit.
+« La piste a l'air longue, mais c'est le tronçon où s'accumulent d'abord les équipes qui abandonnent. »
 
-Il n'avait pas fini sa phrase qu'un esquif, devant, dérapa violemment du flanc et décolla. L'un des occupants faillit tomber, et Kael, par instinct, poussa l'appareil hors de la trajectoire de collision. L'engin de glisse était lent, mais solide. Tandis que les machines fines et rapides se tordaient, lui tenait bon.
+Avant même qu'il ait fini, devant eux, un esquif se cabra en s'éraflant largement le flanc. L'un des passagers perdit l'équilibre et faillit tomber, et Kael, d'instinct, poussa l'engin hors de cette ligne de collision. L'engin de glisse était lent, mais solide. Quand les engins fins et rapides se tordaient, celui-là, simplement, tenait.
 
-Du côté des gradins de la cour centrale, les noms commencèrent à fuser plus fort.
+Du côté des gradins de la cour centrale, les noms commencèrent à éclater plus fort.
 
-L'un criait le nom de l'équipe championne de l'an passé,
-l'autre envoyait des huées redoublées aux deux équipes d'étrangers,
-un troisième braillait que l'argent avait déjà changé de mains.
+Quelqu'un criait le nom des champions de l'an dernier,
+quelqu'un huait plus fort les deux équipes d'étrangers,
+quelqu'un hurlait que l'argent avait déjà changé de camp.
 
-Luhai s'était hissé, presque suspendu, à la rambarde de la tente rouge, et regardait en contrebas.
+Luhai s'était hissé contre la rambarde des tentes rouges, presque suspendu, et regardait en bas.
 
-« Ah, c'est de la pure folie. »
-marmonna-t-il.
-« Ici, on fait le tri dès le départ. »
+« Waouh, c'est vraiment dingue. »
+Il le marmonnait.
+« Ici, ils trient les gens dès le départ. »
 
-Seorin, au lieu de répondre, fixa du regard le fond de la piste.
+Seorin, au lieu de répondre, fixait d'un œil dur l'extrémité de la piste.
 
-« Plus il y en a qui cassent au début, plus c'est précis sur la fin. »
-dit Ater à voix basse.
-« L'idée, c'est de ne garder que les mains capables d'atteindre la couche de chaleur. »
+« Plus il en casse au départ, plus la suite devient précise. »
+Ater avait parlé bas.
+« Ils veulent sans doute ne garder que les mains capables d'aller jusqu'à la couche thermique. »
 
-Luhai se tut en entendant cela. C'était agaçant, mais c'était juste.
+En l'entendant, Luhai se tut. C'était juste, et c'était bien ce qui l'agaçait.
 
-Lorsque la piste atteignit son tronçon central, l'écart entre les équipes survivantes commença à s'élargir très légèrement.
+En entrant dans la partie médiane de la piste, les écarts entre les équipes survivantes commencèrent à se creuser, très peu à peu.
 
-Des deux équipes de téméraires de passage, l'une s'était déjà encastrée hors de la piste, retournée ; une équipe de contrebandiers avait esquivé les collisions initiales mais se faisait refouler, moteur mort. À l'opposé, l'engin de glisse rouge sombre de ce qui semblait être l'équipe championne de l'an passé filait sans fioritures sur la ligne extérieure la plus ferme, conservant sa place dans le peloton de tête.
+L'une des deux équipes des téméraires de passage s'était déjà écrasée hors de la piste, retournée, et une équipe de contrebandiers, qui avait évité les collisions du départ, reculait, la réaction de son moteur éteinte. À l'inverse, l'engin rouge sombre qui semblait être celui des champions de l'an dernier gardait le groupe de tête, sans rien de superflu, sur la ligne dure la plus extérieure.
 
-Han Jiwoo jeta un regard furtif vers cette équipe et dit :
+Han Jiwoo jeta un coup d'œil rapide sur cette équipe et dit :
 
-« Là, c'est un autre niveau d'appareil depuis le départ. »
+« Celui-là, c'est un autre engin, dès le départ. »
 
-Sion aussi avait vu.
+Sion le vit aussi.
 
-Moins un appareil trop bon que la sensation d'un engin perfectionné au fil du temps par quelqu'un qui avait survécu longtemps sur ce terrain. Rapide, bas, une réponse sans hésitation.
+Moins un engin trop bon qu'une machine achevée à force d'être réparée et réutilisée par quelqu'un qui avait longtemps tenu dans ce milieu. Rapide, bas, une réaction sans hésitation.
 
-« Tu peux le suivre ? »
-demanda Sion.
+« Tu peux le coller ? »
+C'était Sion qui demandait.
 
 Han Jiwoo ne répondit pas tout de suite.
 
-Elle tordit très brièvement la barre de direction pour lire le tremblement de l'esquif, puis dit à voix basse :
+À la place, elle tordit très brièvement la barre de direction pour lire le tremblement de l'esquif, puis dit à voix basse :
 
 « Pas maintenant. »
-dit-elle.
-« Celui-là, il faut d'abord lui trouver la ligne où il tient. »
+Elle développa :
+« Celui-ci, il faut d'abord l'accorder à la ligne qui tient. »
 
-Sion aima cette réponse. Plutôt que de forcer pour chasser la tête et se briser, chercher d'abord la ligne où cet appareil pouvait survivre. C'était bien Han Jiwoo, telle qu'elle était en ce moment.
+Sion aima cette réponse. Ne pas se briser à poursuivre la tête de force, mais chercher d'abord la ligne où cet engin pouvait vivre. C'était bien Han Jiwoo, en ce moment.
 
-Quand ils abordèrent l'arrière de la piste, la direction du vent changea imperceptiblement.
+En abordant la dernière partie de la piste, la direction du vent changea légèrement.
 
-Les colonnes de sable soulevées par les engins de devant ne coupèrent pas la vue d'un coup, mais perturbèrent les trajectoires des appareils survivants de façon plus insidieuse. En apparence c'était une vaste plaine, mais en réalité c'était le dernier tamis, celui qui filtrait les gens une ultime fois avant l'entrée dans le tronçon suivant.
+La colonne de sable levée devant eux ne bouchait pas la vue d'un coup, mais elle faisait onduler plus sournoisement la ligne des engins survivants. En apparence, une vaste plaine ; en réalité, une sorte de crible, le dernier à trier les gens avant l'entrée du tronçon suivant.
 
-Sion le remarqua immédiatement.
+Sion le remarqua aussitôt.
 
-À gauche, le sable était mince ; à droite, la collision précédente avait mis à nu la plaque durcie du dessous. En surface, la droite paraissait plus ferme, mais ce genre de tronçon faisait décoller l'appareil l'instant d'après.
+À gauche, le sable était mince ; à droite, la collision de l'instant d'avant avait mis à nu la plaque durcie du dessous. À l'œil, la droite semblait plus solide, mais sur ce genre de tronçon, l'engin rebondit l'instant d'après.
 
-« Troisième ligne à gauche. »
-dit-il aussitôt.
-« Pour l'instant, c'est là que ça meurt le moins. »
+« À gauche, la troisième. »
+Il l'avait dit sans attendre.
+« Pour l'instant, c'est là que c'est le moins mort. »
 
-Han Jiwoo, sans esquisser un sourire, mordit cette ligne.
+Sans même sourire, Han Jiwoo mordit sur cette ligne.
 
-Juste à côté, une autre équipe avait pris la plaque exposée de droite. La première demi-seconde, elle parut plus rapide. Mais bientôt la coque rebondit violemment par-dessous, la direction se désaxa d'un rien. Ce seul infime décalage suffit : la plaque de sustentation de l'équipe suivante racla le flanc, et les deux appareils perdirent l'équilibre simultanément.
+Juste à côté, une autre équipe prit la plaque à nu, à droite. Pendant le premier demi-temps, elle sembla plus rapide. Mais bientôt la coque rebondit violemment par en dessous, et la direction dévia d'un rien. Ce seul bref décalage fit qu'une plaque de sustentation de l'équipe suivante lui racla le flanc, et les deux engins perdirent l'équilibre en même temps.
 
-Han Jiwoo se dégagea vers l'extérieur et dit très brièvement :
+Han Jiwoo s'en dégagea par l'extérieur et dit, très bref :
 
-« Bien vu. »
+« C'était ça. »
 
-Sion ressentit ces deux mots avec une résonance étrangement forte.
+Ce seul mot, étrangement, entra plus fort en Sion.
 
-Parce que sur cette piste,
-ses yeux n'étaient pas un simple appui secondaire
-mais sauvaient véritablement l'appareil.
+Car cela voulait dire que, sur cette piste, ses yeux n'étaient pas une simple aide, mais qu'ils sauvaient vraiment l'engin.
 
-Sur la ligne nord, Kael et Sern remontaient eux aussi peu à peu.
+Sur la ligne nord, Kael et Sern remontaient eux aussi, peu à peu.
 
-Sern lisait l'angle des débris laissés par les équipes détruites et les sillages de glisse pour désigner la prochaine ligne libre, et Kael poussait l'engin juste assez brutalement pour ce qu'il pouvait supporter. Ni l'un ni l'autre n'avaient un pilotage spectaculaire, mais à mesure que les équipes brisées avant eux s'empilaient, leur classement montait.
+Sern repérait la prochaine ligne vide d'après l'angle des débris et les traces de glisse laissés par les équipes tombées, et Kael ne poussait l'engin avec rudesse que dans la mesure où il pouvait tenir. Ils n'avaient rien de spectaculaire, mais plus les équipes qui se fracassaient d'abord s'accumulaient, plus leur rang remontait.
 
 « Il en reste trois. »
-dit brièvement Sern.
+Sern l'avait dit brièvement.
 
 « Devant ? »
 
-« Capables de nous barrer la route. »
+« Ceux qui peuvent nous barrer la route. »
 
-Kael, au lieu de répondre, abaissa davantage le nez de l'engin de glisse.
+Au lieu de répondre, Kael baissa encore le nez de l'engin.
 
-Plus l'extrémité de la piste approchait, moins les équipes survivantes cherchaient à se repousser, et plus elles commençaient à lire la ligne d'entrée du tronçon suivant. La vraie course n'était pas terminée, et tout le monde savait que ce n'était que le premier tamis.
+Plus la fin de la piste approchait, plus les équipes survivantes cessaient de se repousser pour lire d'abord la ligne d'entrée du tronçon suivant. Tous savaient que la vraie course n'était pas finie, et que ce n'était là que le premier crible.
 
-Sion aperçut au loin, dressées dans l'obscurité, les premières ossatures de la zone de débris d'épaves.
+Au loin, Sion vit la première ossature de la zone des débris d'épaves se dresser dans l'obscurité.
 
-Si la piste rouge avait filtré les gens par la vitesse,
-la suite filtrerait par la lecture du chemin.
+Si la piste rouge avait trié les gens par la vitesse, la suite les trierait par la lecture du chemin.
 
-Et à partir de là,
-son rôle prendrait plus de poids encore.
+Et à partir de là, son rôle allait grandir.
 
 Han Jiwoo dit à voix basse :
 
-« Maintenant, ça commence pour de bon. »
+« C'est maintenant que ça commence pour de vrai. »
 
 Sion répondit aussitôt.
 
 « Je sais. »
 
-À cet instant, franchissant la dernière courbe de la piste rouge, les appareils survivants se laissèrent aspirer presque simultanément vers l'entrée du tronçon suivant.
+À cet instant, franchissant la dernière courbe de la piste rouge, les engins survivants commencèrent à s'engouffrer presque ensemble dans l'entrée du tronçon suivant.
 
-Derrière, le fracas du métal brisé et les jurons résonnaient encore,
-devant, l'ombre des débris d'épaves ouvrait sa gueule,
-et dans la cour centrale, les cris et les mises palpitaient toujours.
+Derrière, le métal continuait de se briser et les jurons d'éclater,
+devant, l'ombre des débris d'épaves ouvrait la gueule,
+et dans la cour centrale, les cris et les mises vivaient et bougeaient encore.
 
 La course de la braise ne faisait que commencer.
 

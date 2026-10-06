@@ -157,7 +157,7 @@ después también cambiará la velocidad de recuperación.
 
 Sern recogió esas palabras.
 
-—Hay que movernos antes de eso.
+—Debemos movernos antes de eso.
 
 —Sí —dijo Seorin—. Pero qué llevamos con nosotros,
 hay que decidirlo sin equivocarnos primero.

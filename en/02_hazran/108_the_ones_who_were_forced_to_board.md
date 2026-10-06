@@ -1,175 +1,80 @@
 # Episode 108. The Ones Who Were Forced to Board
 
-After Zahir said *board the outsiders*,
-the air inside Hazran began to move again.
+The eight went up first.
 
-But this movement was different from before.
+Hands with scraped-raw backs took hold of the railing and went up one by one. The last one was held up from both sides by two of the others. That man never once looked back on the way up.
 
-Before, it had been an evacuation line to save people.
-Now it was clearly
-the motion of pushing those who had to leave into the hull.
+Once all eight were inside, the ramp was empty.
 
-Sion stood in the center of it,
-and still his feet wouldn't come free.
+Sion looked at the empty ramp.
 
-He understood in his head.
-This was right.
-Hazran must be closed by Hazran,
-and they were not the people who stay but the people who must go outside.
+Today they had raised and folded this ramp ten times. Twenty a time, ten times, was two hundred. All two hundred had walked across this width. The middle of the ramp was worn, a different color from the edges.
 
-But the body was different.
+The worn part was exactly three people wide. The mark left by sending them up three at a time.
 
-The body still felt
-that lifting his foot from here
-was something like betrayal.
+Now it was the party's turn.
 
-And beneath that sense of betrayal
-lay a far more unmistakable feeling.
+Sion's feet wouldn't move.
 
-Debt.
+His head knew it. This was right. Hazran had to close Hazran, and they were not the ones who stayed. But his body was different. To his body, lifting his feet from this spot right now felt like betrayal.
 
-Because we came,
-the war began.
-Because we returned holding the ember,
-Hazran became not a haven but a battlefield.
+And beneath that lay something plainer.
 
-Sion didn't have to say it aloud.
-He could read almost the same thing on the faces beside him.
+The war started because we came.
 
-Seorin's lips were pressed hard shut.
-Jiwoo's hand on the hull entrance railing was gripping too hard.
-Kael's returning feet wouldn't lift.
-Luhai had gone briefly rigid before he'd managed to say *we go together*.
+Sion hadn't said the thought out loud, but he saw the same thing in the faces beside him. Seorin's lips were pressed shut, and Han Jiwoo's hand on the railing was gripping too hard. Kael couldn't lift the feet that had brought him back.
 
-Even Sern and Ater,
-knowing they had to board in the end,
-let their gaze catch on Harun and Zahir once each.
+Even Sern's and Ater's eyes caught, once each, on the inside.
 
-Everyone knew the same thing.
+In the end Sion spoke low.
 
-This war started because of us.
-Then shouldn't staying to the end be right?
+"The war started because we came, didn't it?"
 
-Sion finally said, low.
+He was almost saying it to himself.
 
-"The war started because we came."
-
-Those words sounded almost like he was speaking to himself.
-
-But Zahir took them straight on.
+Zahir took it straight on.
 
 "Yes."
-Zahir's voice held no tremor.
 
-That one word
-stopped Sion's breath instead.
+At that one word, Sion's breath stopped.
 
-No excuses.
-No comfort.
+There was no excuse and no comfort.
 
-Yes.
-Because you came, Hazran became a battlefield.
-
-Which made the next words heavier.
-
-"That is why you go."
+"That is why you go,"
 Zahir said.
-"Carry what happened here on your backs and go."
+"Carry what happened here on your backs, too."
 
-The moment Sion heard that,
-his chest felt like it had been struck head-on.
+Sion felt as if his chest had taken a blow head-on.
 
-Not staying to repay.
-Leaving to carry.
+If he had told them to stay and pay it back, that would have been easier. It was neither forgiveness nor absolution. It was the heavier thing.
 
-This wasn't forgiveness or absolution.
-It was an order in a far heavier form.
+Seorin spoke, late.
 
-Seorin spoke, very late.
-
-"The war started because of us,
-and we're the ones who go?"
+"It started because of us, and we're the ones who get to leave?"
 
 Zahir didn't look away.
 
-"Yes."
-He said.
-"The closing, Hazran does. You go to the next place and carry this price to the very end."
+"Yes,"
+he said.
+"Hazran does the closing. You go on to what comes next and carry this price all the way."
 
-Those words were so resolute
-that no one could easily say more.
+Han Jiwoo let out a low breath.
 
-Jiwoo exhaled, very low.
+"It feels like this place split further because we were trying to board…"
 
-"Because we tried to board,
-it feels like this place split even more…"
-
-That sentence didn't finish.
-But it was enough.
-
-Zahir cut this time too.
+She didn't finish.
 
 "That is why you board."
 
-Jiwoo raised her head.
+Han Jiwoo raised her head.
 
-Zahir didn't lower his gaze.
+Zahir didn't lower his eyes.
 
-"You are the ones who saved this ship,
-and you are the ones who must be carried out on it."
+"You are the ones who saved this ship, and you are the ones who have to be carried out on it."
 
-Those words fell with equal weight
-on Jiwoo, on Sion, on everyone.
+Not staying because they owed a debt, but having to leave because they owed one. Zahir was making them accept that, right now.
 
-Not staying because there is debt.
-Going because there is debt.
-
-Zahir was forcing them to accept that right now.
-
-Luhai said, very small.
-
-"Me too?"
-
-Inside that one line
-was the hesitation of someone wondering if a person of Hazran should stay.
-
-Zahir answered at once.
-
-"Luhai goes with you too."
-He looked at Luhai.
-"You are not a hand that stays here either."
-
-Luhai went still for a moment.
-
-Zahir added without withdrawing his gaze.
-
-"Hazran, we close ourselves."
-
-When those words fell,
-Luhai couldn't say anything more either.
-He simply came to stand beside Sion, very briefly.
-
-Now truly,
-on the side that leaves together.
-
-Jiwoo clenched her jaw and cleared more space at the entrance.
-
-"Get up."
-She said, low.
-"Don't stop. You have to board while it still holds."
-
-Aka was still below the hull.
-
-Nahira stood right beside her.
-Between the two, no words.
-
-That silence was so dense
-that Sion couldn't look away.
-
-Nahira wasn't holding Aka.
-But she wasn't trying to keep her from going either.
-She was simply beside her,
-like someone standing together until the very end.
+Aka was still below the hull. Nahira stood beside her, and there were no words between them.
 
 Zahir looked at Aka.
 
@@ -177,102 +82,230 @@ Zahir looked at Aka.
 
 Aka looked at him.
 
-"Go."
-He said.
+"Go,"
+he said.
 "Our share stays here."
 
-Aka was still silent.
-But this time, very slowly,
-she looked toward Nahira.
+Aka said nothing. Then, very slowly, she looked toward Nahira.
 
-Nahira received that gaze straight on.
+Nahira met that look head-on.
 
-And very briefly,
-nodded once.
+And nodded, briefly, just once.
 
-It meant go.
-Not *you may go*.
-*You must go.*
+It meant go. Not that she could go, but that she had to.
 
-Only then did Aka take one step toward the hull.
+Only then did Aka move one step toward the hull.
 
-That single small movement
-made Sion feel something collapse inside his chest.
+Han Jiwoo reached out first and pulled her up.
 
-Hazran was truly letting Aka go.
+"Here. Quick."
 
-Jiwoo reached out and pulled Aka up first.
+Aka went up.
 
-"Here. Quickly."
+Han Jiwoo kept reaching out from inside after that.
 
-Aka climbed up.
-Behind her, Sion, Seorin, and Luhai were pushed forward.
-Kael had fully pulled back from the left.
-Sern and Ater were still holding the outside,
-but they too were now clearly tilting toward the side that must board at the end.
+"Give me your hand."
 
-Harun, catching his breath behind the inner defensive line,
-watched all of it quietly.
+"Hand."
 
-He couldn't stand further forward.
-But he didn't look like someone absent from this farewell either.
-He was still
-part of the hands needed for Hazran's final closing.
+"Hand."
 
-Nasim pushed the next person's back and shouted in his hoarse voice.
+She said the same thing sixteen times. All sixteen times she gripped with the same strength.
 
-"Don't look back!"
-"Those who board, board!"
+Luhai, coming up behind, stopped halfway up the ramp.
 
-Those words were truly cruel now.
+"What?"
+Sion asked.
 
-But without saying that,
-anyone would turn around.
-And the moment they turned around,
-the farewell would be one step late.
+Luhai didn't answer; he looked outside.
 
-Hazran didn't have that one step right now.
+"You're not from here."
 
-Sion hesitated once, right before the ramp.
+"What?"
 
-From behind, Zahir's voice came.
+"You came here, and now you're leaving."
 
-"Go out."
+Then Luhai looked at his own hands. Hands that had grabbed people's arms and covered children's eyes all day today.
 
-A short command.
+"I was born here, and I'm going."
 
-Sion finally bowed his head
-and lifted his foot into the hull at last.
+Sion couldn't say anything.
 
-That single step
-was heavy enough to feel like stepping over every moment of time held inside Hazran.
+"They say going is right,"
+Luhai said.
+"Zahir said so, so it must be."
 
-Seorin climbed up behind.
-Luhai clenched his jaw and climbed.
-Kael looked back one last time, then pushed his body into the hull.
+Then he went up. He never once looked back on the way up.
 
-The inside of the hull was narrow, rough, still unstable.
-But it was also
-the space of those Hazran had pushed in to the very end—the ones who leave.
+He was the one who had taught the children this morning not to look back.
 
-What remained outside
-were now truly the ones who close.
+Seorin was next.
 
-Zahir.
-Nasim.
-Harun.
-Nahira.
-And the hands still holding the last of the outside.
+On the ramp she looked back once. Sion was still below.
 
-Sion caught his breath from just inside the entrance
-and understood clearly for the first time.
+"Sion."
 
-The farewell was no longer a declaration. It was execution.
+"Yeah."
 
-Hazran had just
-loaded even the debt onto their backs
-and forced aboard, at last,
-the people who had to be pushed up and sent away.
+"You're counting right now, aren't you."
+
+Sion couldn't answer. He was counting.
+
+"Count while you come up."
+
+"Why?"
+
+"If you count, your feet move."
+
+Sion looked down at his own feet.
+
+All day today she had been first to see where people would break. Now she had been first to see where Sion would break, too.
+
+Kael pulled out from the left completely and came in.
+
+Before going up, Sion looked for Harun.
+
+He wasn't near the ramp. He was leaning behind the collapsed line. He was watching the corridor from there. His body had already broken down a great deal, but his watching hadn't.
+
+Sion went half a step that way.
+
+Nasim caught his arm.
+
+"Don't."
+
+"Just to say goodbye…"
+
+"He can't take a goodbye right now."
+
+"Why not?"
+
+"If he takes one, he stops standing."
+
+Sion didn't pull his arm free. There was no reason to.
+
+Sion stopped once in front of the ramp.
+
+Since he had stopped, he looked to the side. A plate stood there at a slant. The coupling plate that had been there all along.
+
+Looking at it, something snagged in Sion.
+
+"Kael."
+
+Kael turned around just inside the entrance.
+
+"What."
+
+"This."
+
+"What about it."
+
+"You said to lay it down half a span more. After the ship lifted."
+
+Kael looked at the plate.
+
+He looked for a long time.
+
+"I did."
+
+"Should I do it now?"
+
+"Leave it."
+
+"Why?"
+
+Kael was quiet a moment before answering.
+
+"No one's going to catch on it now."
+
+Sion took that answer and couldn't say anything.
+
+That instruction had come out of worry that people would catch on it. When there was no one left to catch on it, the instruction was gone too. The four staying here would not pass in front of that plate. There was nowhere left to pass to.
+
+Sion bent down anyway.
+
+He laid the plate down half a span.
+
+The floor scraped, a short sound.
+
+"I said don't."
+
+"Done."
+
+Kael didn't stop him any further.
+
+As he straightened, Sion knew it was the last thing he had done in Hazran today. It was no use at all. Because it was no use, it felt like something he had to see through to the end.
+
+Nasim pushed his back from behind.
+
+"Don't turn your eyes,"
+he said, his voice hoarse.
+"The ones who board, board."
+
+The words were cruel. But if he didn't say it that way, anyone would look back. Look back, and the farewell came one step late. Right now Hazran didn't have that one step.
+
+Sion set his foot on the ramp.
+
+Zahir's voice came from behind.
+
+"Get out."
+
+A short order.
+
+Sion bowed his head and brought his other foot up into the hull.
+
+That one step was as heavy as if he were stepping over all the time they had held out in Hazran.
+
+Sern and Ater came in last.
+
+Sern set his shoulder against the wall as he came in. This time there was a wall to lean on.
+
+Seeing that, Sion reached out.
+
+"I am fine,"
+Sern said.
+
+"Earlier you said you weren't."
+
+"Now there is a wall."
+
+Ater looked outside once more as he came in. They weren't eyes looking for an angle. They were just eyes looking.
+
+"Is everyone aboard?"
+he asked.
+
+"Sixteen."
+
+"Then that is enough."
+
+The answer struck Sion as strange. It was the first time he had heard that word from this man's mouth. All day today he had spoken only of the next angle.
+
+The inside of the hull was cramped. With sixteen inside there wasn't enough room to stand, so everyone pressed against the walls. The one sitting on the floor was one of the eight from earlier, and two sat down beside him.
+
+The air was strange. The smells from outside didn't reach in here. No iron dust, no burning, only the smell of people packed close.
+
+That was what frightened Sion first. Outside not coming in meant being cut off from outside.
+
+The ramp folded.
+
+Sion looked out through the gap in the entrance.
+
+He could see the four. Zahir in the middle, Nasim on the left, Nahira on the inside, Harun at the very back.
+
+None of the four were looking at the ship. They were looking toward the corridor.
+
+Sion knew that was exact placement. Look at the ship, and your hands go slow. Those people were placement to the very last.
+
+Sion caught his breath just inside the entrance. The ship had taken in everyone. Sixteen.
+
+Every time this ship had lifted until now, Sion had drawn a mark on the board. This time there was no board to draw on. The board was out there, and Sion was in here.
+
+For the first time, the counting broke off.
+
+Sion put his hand against the wall.
+
+Nothing came. Until a moment ago this ship had been outside, and now Sion was inside it, but nothing at all reached his fingertips.
+
+And the ship lifted.
 
 ---
 

@@ -46,17 +46,17 @@ Il s’agissait d’une organisation d’urgence pour empêcher quiconque de mou
 
 Blessé avec blessé.
 Enfants et personnes âgées dans un espace plus chaud un peu plus profond.
-Ceux qui sont capables de marcher ont été invités à aider à transporter des fournitures et à préparer les autres.
+Ceux qui sont capables de marcher ont été invités à aider à transporter des fournitures et à soutenir les autres.
 
 Les fonctions étaient divisées.
-Mais la valeur n’a pas été partagée.
+Mais les valeurs, elles, ne furent pas hiérarchisées.
 
 Sion a tout de suite senti cette différence.
 
 Même si cela ressemblait au même classement,
 le Serakion d'en haut avait essayé de fixer les gens dans son propre ordre.
-Ici, ils regardaient qui pourrait sortir le premier
-et retenir les urgents.
+Ici, on regardait d'abord qui risquait de s'éteindre le premier
+et l'on retenait les cas urgents.
 
 Jiwoo semblait le remarquer aussi,
 regardant longuement les mains des machines en mouvement.
@@ -118,13 +118,12 @@ Un instant plus tard,
 la vieille machine tourna à nouveau son regard vers le groupe de Sion.
 
 « Ce n'est pas un endroit pour rester longtemps. »
-« C'est plus proche d'un endroit qui reste »
-« transmettre la mémoire
-et réduire l'ampleur du prochain échec. »
+« C'est plutôt un endroit qui demeure pour transmettre la mémoire
+et rendre le prochain échec moins lourd. »
 
 Sion se répétait ces paroles.
 
-*Transmettez la mémoire.*
+*Transmettre la mémoire.*
 
 Aka a réagi en premier.
 
@@ -132,7 +131,7 @@ Aka a réagi en premier.
 
 L’œil optique de la vieille machine tremblait très légèrement.
 
-« De celui qui n'a pas encore rompu. »
+« À ceux qui ne sont pas encore en panne. »
 
 Cette réponse était étrangement froide.
 Mais à l'intérieur il y avait à la fois la résignation et la volonté
@@ -159,7 +158,7 @@ Un court silence.
 La différence entre ces deux mots
 cela ressemblait à l'ensemble de cette communauté.
 
-Courir signifie ordre.
+Gérer signifie l'ordre.
 Maintenir signifie ralentir l’effondrement.
 
 Et cet endroit
@@ -192,13 +191,13 @@ La vieille machine regarda une dernière fois le groupe de Sion et parla.
 Ces mots étaient impitoyablement calmes.
 Mais personne ne pouvait contester.
 
-Après être entré à Serakion,
+Après être entrés à Serakion,
 ils ont appris pour la première fois.
 
 Au centre de cette ancienne couche
-n'étaient-ils pas ceux qui criaient à changer le monde,
-mais ceux qui restent les premiers...
-en essayant de ne pas oublier à quel point le monde est déjà brisé.
+ne se trouvaient pas ceux qui criaient qu'ils changeraient le monde,
+mais d'abord ceux qui restaient…
+pour ne pas oublier à quel point le monde s'était brisé.
 
 ---
 

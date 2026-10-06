@@ -46,8 +46,7 @@ le haut peut échouer à lire le bas. »
 
 Seorin résuma comme si elle prenait note.
 
-« Bien.
-Kael ne coupe pas les chemins ;
+« Kael ne coupe pas les chemins ;
 il s'occupe de détériorer la vitesse à laquelle la fermeture retrouve son propre rythme. »
 
 Kael hocha brièvement la tête.

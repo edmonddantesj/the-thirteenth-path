@@ -261,9 +261,12 @@ Luhai demanda aussitôt :
 
 « De quoi ? »
 
-Seorin répondit sans sourire :
+Seorin regarda une fois le secteur où se trouvaient les androïdes,
+puis le passage sombre qui menait vers le haut de Serakion.
 
-« De décider de ce que nous ne devons pas mal faire. »
+« Un plan. »
+« Avant l'autre côté.
+En commençant par décider jusqu'où nous refuserons de lui ressembler. »
 
 ---
 

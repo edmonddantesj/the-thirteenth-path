@@ -1,32 +1,24 @@
 # Capítulo 69 — El aire de quedarse una vez antes de partir
 
-Incluso después de que terminara el ajuste de cuentas de Harún, el mercado de chatarra no recuperó de inmediato su cara de siempre.
+Incluso después de que terminara el ajuste de cuentas con Harún, el mercado de chatarra no recuperó enseguida su cara de siempre.
 
-Pero tampoco se volvió una cara del todo distinta.
+Pero tampoco se había vuelto una cara del todo distinta.
 
-A Seorin, aquel hueco ambiguo le caía raro, como si le incomodara sin motivo.
+A Seorin aquel hueco ambiguo, extrañamente, no le gustaba.
 
-El tablero volcado había sido recogido,
-Zahir había vuelto a trazar la línea,
-y Harún había recibido su castigo.
+La partida volcada se había recompuesto, Zahir había vuelto a trazar la línea y Harún había recibido su castigo.
 
-Entonces creyó que todos volverían enseguida a charlar,
-a armar regateos,
-a comportarse como un mercado cualquiera diciendo que hoy tal precio subió y tal otro bajó.
+Así que había creído que ahora todos volverían enseguida a charlar, a regatear y a decir que hoy tal precio subió y tal otro bajó, a portarse como el mercado de siempre.
 
 Pero el mercado de chatarra no fingió tan deprisa que no había pasado nada.
 
-La gente se movía con la voz más baja,
-y los pies que iban y venían entre las carpas pisaban un compás más lento que de costumbre.
-Alguien miraba hacia la línea de retorno y cuchicheaba,
-alguien pasaba repasando con la vista un montón de planchas de metal arrancadas del borde de la arena.
+La gente se movía con la voz más baja, y los pies que iban y venían entre las carpas llevaban un compás más lento que de costumbre. Alguien cuchicheaba mirando hacia la línea de retorno; alguien pasaba repasando con la vista un montón de planchas de metal arrancadas del borde de la arena.
 
-Todos volvían a vivir, sí,
-pero el cuerpo todavía recordaba entero lo que acababa de ocurrir.
+Todos volvían a vivir, sí, pero el cuerpo todavía recordaba lo que acababa de pasar.
 
-Kael, mirando aquello, dijo corto.
+Kael, mirándolo, habló corto.
 
-—Aun así vuelven rápido.
+—Aun así, se recuperan rápido.
 
 Ater respondió en voz baja.
 
@@ -34,74 +26,83 @@ Ater respondió en voz baja.
 
 Luhai murmuró justo al lado.
 
-—Pero impresiona un poco.
+—Pero la verdad es que impresiona un poco.
 
 Seorin lo miró de reojo.
 
 —¿El qué?
 
-—Nada, así —Luhai se encogió de hombros—. Que, con todo esto revuelto, no es que tengan cara de haberlo perdido todo.
+—Nada, nada más.
+Luhai se encogió de hombros.
+—Con todo lo que se ha volcado, no tienen cara de haberlo perdido todo, ¿no?
 
 Sern habló muy bajo.
 
-—Porque si quiebras, ya no queda valor que mover.
+—Porque, si se arruinan, ya no queda precio que hacer rodar.
 
 Aquellas palabras eran secas, pero por eso mismo sonaban más propias de Hazran.
 
-Seorin lanzó la mirada hacia fuera de la baranda.
+Seorin lanzó la mirada más allá de la baranda.
 
-El trabajo de dentro seguía sin dar señales de terminar.
-No había modo de saber qué miraban Sion, Han Jiwoo y Aka. Pero ahora no se inquietaba enseguida por no saberlo. Más bien era mayor la sensación de que allá adentro tocaban algo demasiado importante como para meter mano en ese momento.
+El trabajo de adentro seguía sin dar señales de terminar.
+No había forma de saber qué estaban mirando Sion, Han Jiwoo y Aka. Pero ahora no saberlo ya no la inquietaba enseguida. Pesaba más la sensación de que, allá adentro, estaban tocando algo tan importante que no se podía interrumpir en ese momento.
 
-Entretanto,
-afuera revivía a su manera.
+Entretanto, afuera revivía a su manera.
 
-Alguien volvía a levantar una carpa volcada,
-alguien remendaba una tela aislante del calor rasgada,
-alguien pasaba acarreando un bidón de agua.
-También los restos del esquife del desierto que habían cruzado desde las afueras de la arena iban siendo arrastrados, uno a uno, a otros sectores.
+Alguien enderezó una carpa volcada,
+alguien remendó una tela aislante del calor rasgada,
+alguien pasó cargando un bidón de agua. Los restos de esquifes del desierto que habían llegado desde las afueras de la arena también iban siendo arrastrados, uno a uno, a otros sectores.
 
 Harún empezó de verdad la reparación con sus propias manos.
 
-Aquella imagen parecía cerrar todavía más las bocas de la gente del mercado de chatarra.
+Seorin lo observó largo rato.
 
-Más que una escena de disculpa con palabras,
-la escena de unas manos que no tenían por qué hacerlo levantando directamente lo roto
-era, en este lugar, una frase más grande.
+No puso a nadie a ayudarle. Podía haberlo hecho, y no lo hizo. Levantaba solo un soporte de la línea de retorno que normalmente levantaban tres. Lo intentó tres veces y a la tercera lo subió.
 
-Kael, mirándolo de lejos, dijo.
+Después de subirlo, descansó una vez. Mientras descansaba, no miró a nadie.
 
-—No huye.
+Eso era lo que más le fastidiaba a Seorin.
+
+Aquel hombre no estaba recibiendo un castigo: lo estaba cumpliendo a su manera. Hacía lo que le mandaban, pero más de lo que le mandaban, y al hacer de más, tampoco dejaba que se notara.
+
+Seorin sabía que aquello no era una disculpa.
+
+Uno se disculpa ante otro. Él lo estaba haciendo ante sí mismo.
+
+Esa imagen parecía cerrar todavía más las bocas de la gente del mercado de chatarra.
+
+Más que disculparse con palabras, que unas manos que no tenían por qué hacerlo levantaran en persona lo roto era, aquí, una frase más grande.
+
+Kael habló mirándolo de lejos.
+
+—Por lo menos no huye.
 
 Sern respondió.
 
-—Porque huir sería reconocer que se equivocó.
+—Huir sería reconocer que se equivocó.
 
-—¿Y no huir? —preguntó Luhai.
+—¿Y no huir?
+Lo preguntó Luhai.
 
-Sern miró un momento hacia Harún y luego dijo.
+Sern miró un momento hacia Harún y luego habló.
 
-—Que, a su modo, todavía cree tener razón.
+—Significa que, a su manera, todavía cree tener razón.
 
-Seorin sintió que aquello le rascaba de forma extraña y, aun así, no le pareció equivocado.
+Seorin sintió que aquello le molestaba de un modo extraño y, aun así, no estaba equivocado.
 
-Harún cae mal.
-Pero no es plano.
-Por eso es un hombre todavía más fastidioso.
+Harún cae mal. Pero no es plano. Por eso es un hombre todavía más agotador.
 
-Zahir, sin que nadie lo notara, ya estaba de nuevo sentado en su sitio.
+Zahir, sin que nadie lo notara, ya estaba otra vez sentado en su sitio.
 
-Como si castigar a un hombre en el patio hacía un momento,
-y volver a trazar entera la línea del tablero,
-no fueran en este lugar cosas demasiado especiales: esa era su cara.
+Tenía la cara de que haber castigado a un hombre en el patio hacía un momento, y haber vuelto a trazar la línea de toda la partida, no eran aquí nada especial.
 
-Pero Seorin ahora lo sabe.
-Ese hombre no es indiferente:
-es de los que, con cara indiferente, siguen devolviendo el orden a su lugar.
+Seorin ahora lo sabe. Ese hombre no es indiferente: es de los que, con cara indiferente, siguen devolviendo el orden a su sitio.
 
 Ater parecía haber sentido algo parecido.
 
-—Este sitio tiene sus razones para haber aguantado más de lo que parece —dijo en voz baja.
+Él habló en voz baja.
+
+—Este sitio tiene sus razones para haber aguantado más de lo que parece.
 
 Luhai lo recogió con una sonrisa.
 
@@ -109,81 +110,87 @@ Luhai lo recogió con una sonrisa.
 
 Ater no contestó a eso.
 
-En cambio, mirando el suelo del mercado de chatarra bajo la baranda, añadió.
+En cambio, añadió mirando el suelo del mercado de chatarra bajo la baranda.
 
-—Hay un orden que se mantiene pareciendo desorden.
+—Hay un orden que se mantiene de manera que parezca desorden.
 
 Luhai chasqueó la lengua.
 
-—Vaya manera de complicar lo que dices.
+—Qué manera de complicarlo.
 
-Kael lo resumió corto.
+Kael lo resumió, corto.
 
-—Que hay una regla que finge ser un desastre, vamos.
+—O sea, que hay una regla que finge ser un desastre.
 
-Ante eso Luhai asintió enseguida con la cabeza.
+Ante eso, Luhai asintió enseguida.
 
-—Eso sí lo entiendo.
+—Eso sí lo entiendo un poco.
 
-Seorin, oyendo a los tres, estuvo a punto de soltar una risa por lo bajo.
+Oyendo a los tres, Seorin estuvo a punto de soltar una risa.
 
-Fuera lo que fuera,
-ahora lo importante era una sola cosa.
+Fuera lo que fuera, ahora lo importante era una sola cosa. Que ya no era ambiente de irse como quien huye.
 
-Que ya no era el ambiente de irse de golpe, como quien escapa.
+Esa sensación pesaba más de lo que parecía. Al principio, Hazran había parecido un sitio donde se pasa un momento y se sale. Ahora empezaba a parecer un lugar donde, antes de partir, uno toma aire, repara, repone lo que hace falta y vuelve a mirar una vez más las caras de la gente.
 
-Esa sensación era más grande de lo que parecía.
-Hazran había parecido desde el principio un sitio donde uno se asoma un momento y se va,
-pero ahora empezaba a parecer un lugar donde, antes de salir, uno toma un poco de aire,
-repara,
-llena lo que hace falta,
-y mira una vez más las caras de la gente.
+Fue Luhai quien primero puso ese ambiente en palabras.
 
-Luhai fue el primero en sacar ese ambiente por la boca.
-
-—Pero no nos vamos enseguida, ¿no? —dijo—. Ni se sabe cuánto va a llevar lo de allá adentro, la arena quedó hecha un desastre, y al mercado le faltan días para volver a rodar.
+—Pero no nos vamos enseguida, ¿no?
+Lo dijo él.
+—No se sabe cuánto va a tardar lo de allá adentro, la arena quedó hecha un desastre, y al mercado le faltan unos días para volver a funcionar.
 
 Seorin lo cortó de inmediato.
 
-—¿Desde cuándo eres de los nuestros?
+—¿Desde cuándo formas parte de nosotros?
 
-Luhai no parpadeó siquiera.
+Luhai ni parpadeó.
 
-—Nada, que el ambiente es ese —dijo—. Y dejarme a mí solo ahora también queda un poco feo.
+—Bueno, el ambiente va por ahí, ¿no?
+Lo dijo él.
+—Y dejarme a mí atrás a estas alturas tampoco estaría muy bien.
 
-Kael, al oírlo, soltó una risa corta.
+Al oír eso, Kael soltó una risa corta.
 
 —¿Por qué?
 
-—Nada, así —Luhai se hizo el distraído sin venir a cuento—. Es que parece que hay bastante que ver.
+—Nada, nada más.
+Luhai se hizo el distraído sin motivo.
+—Es que parece que hay bastante que ver.
 
 Seorin volvió a cortar.
 
-—Tener descaro es un talento.
+—Tener tanto descaro es todo un talento.
 
 Luhai no lo negó en absoluto.
 
-—Sí —dijo—. Es que da pena ver esto un solo día e irse.
+—Sí.
+Lo dijo él.
+—Aquí da pena quedarse un solo día e irse, ¿no?
 
-Seorin, de haber sido como siempre, habría resoplado por la nariz.
-Pero, por raro que fuera, esta vez no le salió enseguida la réplica.
+Seorin oyó algo raro en esas palabras.
 
-Da pena.
+Había dicho «aquí».
 
-Aquella palabra venía más acertada de lo que parecía.
+Este chico había nacido y crecido aquí. Se sabía los nombres de todos los callejones, leía las tablillas de precios y sabía qué escondía cada puesto. Que alguien así dijera que le daba pena el sitio donde vivía no tenía sentido.
 
-El mercado de chatarra sigue en reparación,
-adentro Sion y Han Jiwoo están uniendo algo con Aka,
-Harún está cumpliendo su castigo,
-y Zahir vuelve a hacer rodar Hazran.
+«Da pena» es lo que dice quien se va a ir.
 
-El tiempo que se abre en ese intervalo
-no parecía un simple vacío,
-sino tiempo para las caras que uno alcanza a ver quedándose una vez en este lugar.
+Al darse cuenta, Seorin volvió a mirar a Luhai. Luhai miraba hacia otro lado, y lo hacía con tanto empeño que, al contrario, se le notaba.
+
+Este chico ya lo ha decidido.
+
+Seorin no lo dijo en voz alta. Si lo sacaba ahora, el chico diría que no, y una vez dicho que no, después le costaría más dar marcha atrás.
+
+En otro momento, Seorin habría resoplado con desdén. Esta vez no le salió la réplica enseguida.
+
+Da pena. Esa palabra era más acertada de lo que pensaba.
+
+El mercado de chatarra sigue en reparación, adentro Sion y Han Jiwoo están uniendo algo con Aka, Harún está cumpliendo su castigo y Zahir vuelve a hacer rodar Hazran.
+
+El tiempo que se abría en medio no era un vacío. Parecía tiempo para las caras que uno llega a ver quedándose aquí alguna vez.
 
 Ater preguntó muy quedo.
 
-—Entonces, mientras esperamos, conviene dejar en orden lo que haga falta.
+—Entonces, mientras esperamos, ¿no convendría dejar en orden lo que haga falta?
 
 Kael respondió de inmediato.
 
@@ -191,28 +198,53 @@ Kael respondió de inmediato.
 
 Sern también añadió en voz baja.
 
-—Y la gente, también.
+—Y también a la gente.
 
 Seorin lo miró.
 
-Sern estaba sereno como de costumbre.
+Sern estaba sereno, como siempre.
 
-—Quién mira aquí qué, quién se lleva qué, a quién recuerda y cómo —dijo—. Eso también va a quedar en orden.
+—Quién ve qué aquí, qué se lleva, a quién recuerda y cómo.
+Lo dijo él.
+—Eso también quedará en orden.
+
+—¿Y eso por qué hay que ordenarlo?
+
+Lo preguntó Luhai.
+
+—Porque, si no se ordena, después cada uno lo recuerda de forma distinta.
+
+Así respondió Sern.
+
+—Si estuvieron juntos y lo recuerdan distinto, la próxima vez que se encuentren serán personas que vienen de sitios distintos.
+
+Ante eso, Luhai cerró la boca.
+
+Seorin miró hacia Sern.
+
+Aquel hombre tenía la marca de alguien que, en algún lugar, había acabado recordando de forma distinta a la gente con la que había estado.
+
+No preguntó. Aquí no preguntar parecía ser la cortesía, y Seorin también había recibido esa cortesía unas cuantas veces.
 
 Aquellas palabras se quedaron extrañamente mucho tiempo.
 
 Seorin, sin decir nada, volvió a mirar bajo la baranda.
 
-La arena en reparación.
-Las carpas que volvían a levantarse.
-El mercado que revivía despacio.
-Y la gente que todavía no salía de allá adentro.
+La arena en reparación, las carpas que volvían a levantarse, el mercado que revivía despacio. Y la gente que todavía no salía de adentro.
 
-Partir, aún no.
+Partir, todavía no.
 
-En cambio, antes de partir,
-un aire de quedarse una vez como es debido en este lugar
-iba, poco a poco, asentándose en su sitio.
+Seorin apartó la mano de la baranda.
+
+Habían llegado hacía unos días, pero se sentía más largo que unos días. Al entrar, la idea era conseguir solo la eterita y salir enseguida. Nadie había roto ese plan, pero ahora nadie lo estaba cumpliendo.
+
+El sol empezó a declinar.
+
+De algún sitio llegó el ruido de alguien soltando las cuerdas de una carpa. Sonó en un lugar y enseguida en otro. Era un ruido que hasta hacía un rato no se oía.
+
+Seorin no sabía qué ruido era. Había mirado este mercado todo el día, pero era la primera vez que oía ese ruido.
+
+En cambio, poco a poco iba asentándose un aire de que, antes de partir, se quedarían aquí una vez como es debido.
 
 ---
 

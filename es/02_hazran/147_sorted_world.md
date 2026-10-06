@@ -108,7 +108,7 @@ Una estabilidad gestionada hasta incluir qué y cómo debían mostrar.
 Serakion, cuanto más subía a la gente, no la trataba mejor,
 sino que estaba más cerca de tratarla de forma más vistosa.
 
-La primera máquina de recuperación dijo muy bajo.
+La primera mano de recuperación dijo muy bajo.
 
 —Esta no es una zona donde los dejan aguantar mucho.
 Es una zona donde los tienen para que se vean bien.
@@ -183,7 +183,7 @@ no mostraban prisa,
 y hasta la mirada con que recorrían el entorno era tan lisa
 que parecían de esa clase de seres capaces de hacer no notar que vigilaban.
 
-La segunda máquina de recuperación murmuró muy bajo.
+La segunda mano de recuperación murmuró muy bajo.
 
 —Esos de arriba
 siempre creen que el tiempo está de su lado.

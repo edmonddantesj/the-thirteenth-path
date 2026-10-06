@@ -1,168 +1,257 @@
 # Episode 156. Break from Inside
 
-The second rescue began later than the first.
+The second rescue
+began later than the first.
 
-Not because courage was lacking. This time, the side that moved recklessly first would be closer to the reaction Serakion wanted.
+It was not for lack of courage.
+This time, whoever moved first without thinking
+would be giving something close to the very reaction Serakion wanted.
 
-After the first fracture, Serakion had adapted to external confusion far faster.
+After the first crack,
+Serakion had adapted much faster to confusion from outside.
 
-Shake the outside of the line the same way, and the alignment reset almost instantly now.
+Shake the outside of the line the same way,
+and now the alignment snapped back almost instantly.
 
-So this time had to be different.
+So this time it had to be different.
 
-Not breaking from outside, but first misaligning faintly from within.
+Not breaking it from outside—
+it had to slip out of line, faintly, from inside first.
 
-The recon team and recovery hands did not watch the shift line together as before. They spread further apart instead.
+The recon team and the recovery hands did not watch both sides of the shift line together, as before.
+Instead they stood farther apart.
 
-Kael read the closing structure again, but this time what he watched was not the path — it was the moment when internal misalignment began outpacing external sealing.
+Kael was reading the closing structure again,
+but this time what he watched was not the path but *the moment from which the misalignment inside grew faster than the sealing outside*.
 
-Ater read the demeanor and gaze flow of the upper guide machines. Who was excessively kind. Who checked their colleague's reactions before the child's. Who lowered their voice first for the sake of composure when something went wrong.
+Ater read the manner of the guide machines above and the way their attention moved.
+Which ones were too kind,
+which ones checked their fellow machines' reactions before the children's,
+which ones, when something went wrong, lowered their voices first for the sake of appearances.
 
-Jiwoo watched faces before hands this time.
+This time Han Jiwoo looked at faces before hands.
 
-After the first rescue, hands alone were no longer enough.
+Because after the first rescue,
+hands alone were no longer enough.
 
-Serakion had already read the hand responses and re-mixed the children so those responses cancelled each other out.
+Serakion had already read the hands' reactions too,
+and had mixed the children again so that those reactions canceled out.
 
-So this time she had to read all of it together. Hands, feet, gaze, breath, stopping.
+So this time
+hands,
+feet,
+eyes,
+breath,
+pauses.
+They had to read the whole of it together.
 
-Near the end of the line that day, the small child who had turned their head sideways the day before was there again.
+That day, near the end of the line,
+was the same small child who had turned their head aside, so briefly, the day before.
 
-Quieter than before. Pretending to be more accustomed. Looking more settled into the beat.
+Quieter than before.
+Acting more used to it,
+looking further inside the beat.
 
-But Jiwoo could tell at first glance.
+But Han Jiwoo could tell at first glance.
 
-That was not the quiet of someone fully inside. It was closer to the quiet of someone who had been trying too long not to be wrong.
+That was not the quiet of a child who had gone all the way in;
+it was closer to the quiet of one who had tried too long not to get anything wrong.
 
-The fully collapsed are actually more natural. But that child was continuously holding their own body in order to appear natural.
+The ones who had given way completely were, if anything, more natural.
+But that child
+kept holding their own body in place in order to look natural.
 
-Jiwoo said it very low.
+Han Jiwoo said, very low,
 
-"This time, that child goes first."
+"That one first, this time."
 
-Ater asked without moving his gaze.
+Without moving his eyes, Ater asked,
 
-"Certain?"
+"Are you certain?"
 
-Jiwoo answered.
+Han Jiwoo answered.
 
-"Not certain. But they are still using their own inside."
+"Not certain."
+"But that one's still running on their own, inside."
 
-Everyone understood what that meant.
+Everyone knew what that meant.
 
-The starting point of the second rescue would not be shaking the line from outside. It had to be the moment when one child still using their body as their own stepped a different beat for the first time.
+The starting point of the second rescue
+could not be shaking the line from outside;
+it had to be the moment when one child inside, still using their own body as their own,
+stepped to the beat differently for the first time.
 
-The problem was who would make that happen, and how.
+The problem was
+who would make that happen, and how.
 
-The second recovery hand asked low.
+The second recovery hand asked, low,
 
-"Do we need to touch?"
+"Do we put a hand in?"
 
-Kael shook his head first.
+Kael was the first to shake his head.
 
 "Not yet."
 
-He was measuring with narrowed eyes — the spacing between lines, the adjacent machine's response time, the beats remaining until the next stop.
+With narrowed eyes he was measuring the spacing between the lines,
+the response time of the machine beside them,
+and the beats left until the next pause.
 
-"They have to shift on their own first. If we touch first, this time it reads immediately as external intervention."
+"They have to twist it on their own first."
+"If we touch it first,
+this time it reads straight away as outside interference."
 
-Cruel, but precise.
+The words were cruel, but exact.
 
-This rescue required the time remaining on the human side inside to move before the rescuing hands did. Only then was there a chance Serakion would misread the first beat as an internal misalignment.
+In this rescue, before the rescuers' hands,
+the time of the people left inside had to move first.
+Only then was there a chance that Serakion, too, would mistake the first beat for a misalignment of its own.
 
-Ater said it low.
+Ater said, low,
 
-"Then I cannot visibly shake things first either."
+"Then I cannot shake it openly first, either."
 
-Kael answered short.
+Kael answered briefly.
 
-"This time you are not shaking. When that side wobbles first, you have to amplify it to look more natural."
+"This time it's not you who shakes it—
+when that side wavers first, you've got to make it bigger, and make it look natural."
 
-Ater's mouth tightened, barely.
+The corner of Ater's mouth stiffened, very slightly.
 
-This was harder. Not inserting his own beat first, but pushing someone else's tiny initial misalignment so it looked not like suspicion but like a stumble of daily life.
+This time it was harder.
+Not putting his own beat in first,
+but pushing the tiny misstep someone else made first
+so that it looked like an everyday slip rather than something suspicious.
 
-That was a finer kind of acting than even Empire training.
+That was a finer kind of acting than even Imperial training.
 
-When the line reached its first stop, nothing happened.
+When the line reached the first pause,
+nothing happened.
 
-At the second stop, the child did nothing either.
+At the second pause, too,
+the child did nothing.
 
-Jiwoo did not change her expression. But her fingertips tightened slightly more.
+Han Jiwoo's expression didn't change.
+But her fingertips stiffened a little more.
 
-Just before the third stop — that was when.
+Just before the third pause,
+that was when it came.
 
-Instead of raising their head, one small child looked left for too short a moment.
+Instead of looking up, one small child
+glanced left, far too briefly.
 
-It could have been called a meaningless mistake. Truly an instant — miss it and it would pass like a small habit.
+You could call it a meaningless mistake.
+It was so truly an instant
+that if you missed it, it could have passed for a small habit.
 
-But the moment Jiwoo saw it she stopped breathing, and Kael said it low at the same time.
+But the moment Han Jiwoo saw it she stopped breathing,
+and in the same moment Kael said, low,
 
 "Starting now."
 
 Ater was already moving.
 
-He did not approach the line openly. Instead, he entered the gaze flow of one adjacent guide machine — excessively naturally.
+He did not openly go closer to the line.
+Instead he stepped into the line of sight of the guide machine right beside it,
+far too naturally.
 
-That machine now had to read the child's faint misalignment and Ater's new movement simultaneously.
+That machine had to read the faint misalignment on the child's side
+and Ater's new movement at the same time.
 
-That half-beat. That was exactly the half-beat they needed.
+That half a beat.
+That half a beat was exactly what they needed.
 
-The machine did not raise its voice. Instead, more softly, more low, it tried to re-establish the alignment.
+The machine did not raise its voice.
+Instead, more softly,
+more quietly,
+it tried to set the alignment right again.
 
-But in that very moment, the small child inside the line broke beat a second time.
+But at that very moment,
+the small child inside the line slipped off the beat a second time.
 
 This time it was the feet.
 
-Very small. As though truly not deliberate. But clearly, their own time came out before the beat Serakion had given.
+Very slightly,
+as if it truly wasn't on purpose.
+But unmistakably,
+the child's own time came out ahead of the beat Serakion had given.
 
-Jiwoo spoke it almost like a breath.
+Han Jiwoo said, almost like a breath,
 
-"There."
+"There it is."
 
-The second recovery hand shifted his stance immediately.
+The second recovery hand shifted stance at once.
 
-He had not touched the line yet. But his center of gravity had already tilted — not outward, but toward the gap on the children's side.
+Not touching the line yet.
+But so it could go in at any moment,
+its center of weight was already leaning not outward but toward the gap among the children.
 
-Kael read the folding structure and said it low.
+Kael read the folding structure and said, low,
 
-"One more is needed."
+"Need one more."
 
-A single fracture was not enough. This time Serakion's first seal was faster. One child's misalignment alone could be buried back into a kinder alignment.
+The first crack alone wasn't enough.
+This time Serakion's first sealing had been fast as well.
+One child's misalignment alone
+could simply get buried again inside a kinder alignment.
 
-Then, another human right beside that child delayed their shoulder, truly faintly.
+Then,
+another human right beside that child
+let a shoulder lag, very faintly.
 
-It did not look like a converted child's mistake. It was closer to having seen the misalignment ahead and trying, just slightly, to slow their own body too.
+It didn't look like the slip of a child who had been won over.
+If anything,
+it was closer to someone who had seen the misstep just ahead
+and tried slowing their own body a little, too.
 
-Jiwoo's gaze wavered.
+Han Jiwoo's eyes wavered.
 
-It was not one. Two inside were already stepping on slightly different time.
+It wasn't one.
+Inside, two of them already
+were stepping, very slightly, to a different time.
 
-Ater recognized it too. In a lower, more courteous voice, he tossed a single line toward the guide machine as though it were the most natural confirmation.
+Ater saw it too.
+In a lower, more courteous voice,
+he tossed one remark toward the guide machine, as if it were a routine check.
 
-"Is this line the shift line?"
+"This line. Is this the shift line?"
 
-The question itself was not strange. But right now, that one line split the machine's response priority once more.
+The question itself wasn't strange.
+But right now that one remark
+split the machine's response priorities once more.
 
-Children's alignment. External question. Colleague machine's response.
+The children's alignment,
+the question from outside,
+the replies of its fellow machines.
 
-Serakion normally seals this quickly. But right now, two misalignments were already alive inside first.
+Serakion usually sealed this up fast.
+But right now,
+two misalignments were already alive inside, ahead of it.
 
-Kael said it low.
+Kael said, low,
 
-"Now it is enough."
+"Now it works."
 
-The instant those words fell, the second recovery hand went in. Jiwoo moved almost simultaneously.
+The moment the words fell,
+the second recovery hand went in.
+Han Jiwoo moved almost at the same time.
 
-This rescue was not the first kind — suddenly tearing from outside the line. It was closer to outside hands joining very late, into a beat that had already changed from inside the line first.
+This rescue was not a sudden tearing-out from outside the line, like the first.
+If anything, it was closer to a beat that had changed inside the line first,
+with outside hands joining it very late.
 
-So it was quieter. And so it was more dangerous.
+So it was quieter,
+and so it was more dangerous.
 
-A moment too late, and all these misalignments would be buried back into courteous alignment. A moment too early, and it would read immediately as external intervention, raising alert before sealing.
+A little too late,
+and all this misalignment would be buried again in a kind alignment.
+A little too early,
+and it would read at once as outside interference, and alarm would rise before any sealing.
 
-But right now, small times inside the line were alive first.
+But right now,
+the small times inside the line were alive first.
 
-And that was precisely why the second rescue was finally beginning in a way entirely different from the first.
+Because of exactly that,
+the second rescue was at last beginning in a way entirely different from the first.
 
 ---
 

@@ -1,246 +1,257 @@
 # Chapitre 8 — La même cabine
 
-Même après avoir franchi l'ombre de la passerelle de maintenance extérieure, personne ne parla aussitôt.
+Même après s'être glissés sous la passerelle de maintenance extérieure, personne ne prit aussitôt la parole.
 
-Un souffle une fois libéré ne se calme pas si vite.
+Un souffle une fois lâché ne retombait pas si vite.
+Dans leur dos, on entendait encore, mêlés, des chocs de métal au loin et le bruit de quelqu'un qui fermait un passage ; au-dessus du port, les feux de surveillance s'éteignaient un à un. Être sortis vivants ne voulait pas dire que c'était fini — c'était plutôt la sensation d'être tombés, vivants, un peu plus profond.
 
-Dans leur dos résonnaient encore, de loin, le choc du métal contre le métal et le bruit sourd de quelqu'un fermant un passage — les balises de surveillance, au-dessus du port, s'éteignaient l'une après l'autre. En haut, l'Empire verrouillait. En bas, ceux qui avaient flairé l'argent se répandaient déjà. Ce n'était pas la sensation d'avoir survécu et d'en avoir fini — c'était plutôt celle d'être tombé, vivant, dans quelque chose de plus profond encore.
+Sion s'arrêta un instant dans l'ombre de la passerelle.
+Il faisait mine de reprendre son souffle, mais en réalité il voulait revoir jusqu'où les trois autres le suivaient. L'homme de la Chambre de Reconnaissance en manteau noir, et son second. Tous deux avaient encore l'air beaucoup trop intacts, et cela l'agaçait d'autant plus.
 
-Sion s'arrêta un instant sous l'ombre de la passerelle de maintenance.
-Il faisait semblant de reprendre son souffle, mais en réalité il vérifiait jusqu'où les trois autres le suivaient. Le représentant en manteau noir et son ombre silencieuse. Tous deux avaient encore l'air beaucoup trop indemnes, ce qui l'agaçait davantage.
+À son visage, Seorin avait lu la même chose.
 
-Seorin lisait tout cela sur son visage.
-
-« Bien. Ils suivent sans se perdre. »
+« Ils ne nous lâchent pas d'une semelle. »
 
 Sern répondit à mi-voix.
 
-« Les perdre maintenant serait plus dangereux. »
+« Vous perdre de vue maintenant serait plus dangereux. »
 
-« Pour nous aussi, dit Seorin, d'un ton sec. »
+« De notre côté aussi, ça se tient. »
 
-Ater scruta les alentours une nouvelle fois.
-Sous la passerelle de maintenance s'accumulaient de vieux matériaux de réparation et des tuyaux abandonnés — un endroit acceptable pour se cacher à court terme, mais pas pour y rester. Dès que les gens du fond du port commenceraient à flairer l'odeur, ces recoins d'ombre seraient justement les premiers à être retournés.
+La réplique de Seorin tomba, sèche.
 
-« Il faut bouger. »
+Ater balaya encore une fois les environs du regard.
+Sous la passerelle s'entassaient de vieux matériaux de réparation et des conduites abandonnées : pas un mauvais endroit pour se cacher dans l'immédiat, mais pas un endroit où rester. Dès que les gens du fond du port flaireraient la piste, ce genre d'ombre serait au contraire la première à être retournée.
 
-Sion enchaîna aussitôt.
+« Il faut nous déplacer. »
 
-« Ça, je le sais. »
+Sion répliqua aussitôt.
 
-« Si vous le savez, vous bougez vite. »
+« Ça, je le sais aussi. »
+
+« Si vous le savez, alors bougeons vite. »
 
 « Quelle délicatesse. »
 
-Seorin eut un petit sourire.
+Seorin eut un petit rire.
 
-« Bien. Au milieu de tout ça, vous deux qui vous chamaillez — ça colle. »
+« Même dans ce pétrin, vous vous accordez encore pour vous chamailler, tous les deux. »
 
 Sern plissa très légèrement les sourcils.
-Que Son Excellence parle plus que d'ordinaire était inhabituel — et inversement, ce fonctionnaire de l'Office des Routes Extérieures de l'Alliance posait des questions avec trop de facilité. Tous les deux épuisés, tous les deux convaincus d'avoir raison, tous les deux incapables encore de classer l'autre dans une même catégorie.
+Que Son Excellence ne mesure pas ses mots comme à l'ordinaire n'arrivait presque jamais ; à l'inverse, cet agent de l'Office des Routes Extérieures de l'Alliance mordait bien trop facilement. Tous deux fatigués, tous deux convaincus d'avoir raison, et tous deux encore incapables de ranger l'autre dans une langue commune.
 
-Ce silence inconfortable fut brisé par un signal venu de loin.
-Court, haché — le signal de jonction d'un cargo civil. Seorin leva la tête.
+Ce silence inconfortable fut rompu par un coup de sirène au loin.
+Court, haché : un signal d'accostage de cargo civil. Seorin leva la tête.
 
-« Ce bruit, je crois que je le connais. »
+« Ce son-là, je crois que je le connais. »
 
-Sion réagit immédiatement.
+Sion réagit aussitôt.
 
 « Moi aussi. »
 
-Leurs regards se tournèrent presque en même temps vers l'extrémité sombre d'une passerelle de jonction.
-Un vieux petit cargo progressait dans l'ombre de la passerelle de maintenance, avec pour seul éclairage quelques lampes à demi éteintes. Ni embarquement officiel, ni amarrage officiel — une manœuvre qui sentait la vieille habitude de contournement à plein nez.
+Leurs regards se tournèrent presque en même temps vers l'extrémité obscure d'une passerelle d'accostage.
+Un vieux petit cargo, feux à demi éteints, venait se coller à l'ombre sous la passerelle de maintenance. Ni embarquement officiel, ni amarrage officiel. N'importe qui y aurait reconnu une vieille combine.
 
-Seorin murmura tout bas.
+Seorin murmura tout bas :
 
 « Il n'est pas encore parti. »
 
-Ater demanda.
+Ater posa la question.
 
-« C'est un navire que vous connaissez ? »
+« Un navire que vous connaissez ? »
 
-Sion hésita un instant, puis répondit brièvement.
+Sion hésita un instant avant de répondre.
 
-« Mieux que d'en prendre un inconnu. »
+« Ça vaut mieux qu'un navire qu'on ne connaît pas. »
 
 « Ce n'est pas une réponse. »
 
-« C'est la réponse la plus utile qu'on puisse donner dans cette ville. »
+« Dans cette ville, c'est la réponse la plus utile qui soit. »
 
-La rampe latérale du cargo s'ouvrit à moitié, et un homme maigre passa la tête par l'ouverture.
-Cheveux coupés à la va-vite, regard plus à l'aise dans l'ombre que dans la lumière, expression qui semblait compter ses mots d'avance. Yona Hale.
+La rampe latérale du cargo s'ouvrit à moitié, et une femme sèche passa la tête par l'ouverture.
+Cheveux coupés à la diable, des yeux plus habitués à l'ombre qu'à la lumière, une expression qui semblait économiser ses mots par principe. Yona Hale.
 
-En voyant Sion, il laissa échapper quelque chose comme un soupir.
+En voyant Sion, elle marmonna, comme on soupire :
 
 « Encore toi. »
 
-Sion eut un sourire en coin.
+Sion eut un petit rire.
 
-« Chaleureuse façon de te réjouir. »
+« Quel accueil chaleureux. »
 
-« Ça n'a pas l'air d'une situation où me réjouir chaleureusement. »
+« La situation n'a pas l'air de mériter un accueil chaleureux. »
 
-Le regard de Yona glissa aussitôt par-dessus l'épaule de Sion.
-Seorin, l'inconnu au manteau noir, et derrière lui, quelqu'un d'encore plus silencieux.
-Il vit la disposition du groupe et plissa le front.
+Le regard de Yona passa aussitôt par-dessus l'épaule de Sion.
+Seorin, un inconnu en manteau noir, et quelqu'un d'encore plus silencieux.
+Elle vit comment ils se tenaient et fit la grimace.
 
-« Tu n'as pas fait des bêtises tout seul, cette fois. »
+« T'as pas fait ta bêtise tout seul, cette fois. »
 
 Seorin répondit à sa place.
 
-« On a mordu gros, cette fois. »
+« Cette fois, on a mordu un peu gros. »
 
-Yona se tut un moment.
-Le calcul propre à ceux qui ont vécu longtemps dans les bas-fonds d'un port passa rapidement derrière ses yeux. Embarquer ces quatre-là serait une complication. Ne pas les embarquer pourrait en être une plus grande. Et quand Sion se présentait avec cette tête-là, c'était généralement l'un ou l'autre : soit vraiment rien, soit quelque chose de très grand. L'expérience lui avait appris que la première option était rare.
+Yona resta un moment sans rien dire.
+Derrière ses yeux passa, rapide, le calcul propre à ceux qui ont longtemps vécu au fond d'un port. Embarquer ces quatre-là, c'était s'attirer des ennuis. Ne pas les embarquer pouvait en attirer davantage. Et les jours où Sion débarquait avec cette tête-là, c'était en général l'un des deux : vraiment rien, ou quelque chose de très gros. D'expérience, le premier cas était rare.
 
-Il finit par ouvrir la rampe en grand.
+Yona finit par ouvrir la rampe un peu plus.
 
-« Monte. Tu expliques à l'intérieur. »
+« Monte. Mais tu t'expliques à l'intérieur. »
 
-Ater marqua une pause visible.
-Monter dans un tel cargo, de cette façon-là, en dépendant de l'autorisation d'un tel individu — ce n'était pas le genre de déplacement auquel il était habitué. Sern perçut sa réaction et retint discrètement son souffle. Son Excellence aurait pu refuser.
+Ater se figea, visiblement.
 
-Mais tout le monde savait qu'il n'y avait pas le temps de refuser.
+Quand un membre de la maison Valkar montait à bord d'un navire, il y avait un ordre. L'autorisation d'embarquement descendait d'abord, puis le nom était inscrit au registre, le capitaine vérifiait ce registre, et alors seulement on abaissait la passerelle. Ater n'était jamais monté à bord d'un navire en dehors de cet ordre.
 
-Sion tourna le dos à la rampe en disant :
+Ce qu'il avait devant lui, c'était une rampe à demi ouverte, une femme qui ne demandait même pas son nom, et un seul mot : « Monte ».
 
-« Bien. C'est le plus beau mot que j'aie entendu aujourd'hui. »
+Sern vit cette réaction et retint discrètement son souffle. Son Excellence pouvait encore refuser.
 
-Yona répondit, impassible.
+Ater posa le pied sur la rampe.
 
-« Ça veut dire monte avant que je la referme. »
+Avant de le poser, il avait regardé derrière lui ; derrière, il n'y avait qu'un port qui se refermait.
 
-L'intérieur de la cabine était encore plus petit qu'on ne l'aurait cru.
-Quatre personnes debout, et l'air se saturait vite — la moindre tentative de mouvement se répercutait immédiatement sur les trois autres. La lueur vieillissante du tableau de bord se diffusait faiblement sur les parois, et depuis la soute montait un mélange d'huile et de rations sèches. C'était l'atmosphère caractéristique d'un cargo habitué à dissimuler brièvement ce qui n'a pas de trace — personnes ou objets — avant de les pousser vers le prochain point de jonction.
+Sion se tourna le premier vers la rampe en disant :
 
-Yona posa la question dès la porte fermée.
+« C'est le plus joli mot que j'aie entendu de la journée. »
 
-« Qui te court après. »
+Yona rétorqua sans expression.
+
+« Ça veut dire : monte avant que je ferme. »
+
+À l'intérieur, la cabine était plus étroite encore qu'on ne l'aurait cru.
+Quatre personnes debout, et l'air s'épaississait vite ; qu'une seule bouge, et les trois autres ne pouvaient pas ne pas s'en apercevoir. La lueur d'un vieux tableau de bord bavait faiblement sur les parois, et de la soute montait une odeur mêlée d'huile et de vivres secs. L'air propre aux navires habitués à cacher un moment des gens et des choses hors registre avant de les pousser vers le point d'accès suivant.
+
+Yona posa la question à peine la porte refermée.
+
+« Qui est-ce qui vous court après ? »
 
 Sion répondit.
 
-« C'est beaucoup. »
+« Beaucoup de monde. »
 
-« Peu d'efforts dans l'explication. »
+« Pas très consciencieuse, comme explication. »
 
-« Plus d'efforts, plus long. »
+« Consciencieuse, elle serait plus longue. »
 
 Yona soupira.
 
-« Bien. Je vais deviner. L'Office des Routes Extérieures de l'Alliance, les bas-fonds du port, ou les deux ? »
+« Alors je vais deviner. L'Office, le fond du port, ou les deux ? »
 
-Seorin, les bras croisés.
+Seorin parla, les bras croisés.
 
 « Un peu plus que les deux. »
 
-Le regard de Yona se porta à nouveau sur Ater.
-Manteau impeccable, posture soignée — et pourtant là, dans ce cargo. Un individu qui n'avait rien à y faire. Yona conclut rapidement en lui-même : celui-là n'appartient ni à l'Office des Routes Extérieures de l'Alliance, ni aux bas-fonds. Il appartient à quelque chose de plus embêtant.
+Le regard de Yona revint vers Ater.
+Manteau net, posture soignée — et pourtant un homme dont la seule présence à bord jurait avec ce navire. Yona trancha vite, en elle-même : ni l'Office des Routes Extérieures de l'Alliance, ni le fond du port. Quelque chose de plus embêtant.
 
-« C'est qui, lui. »
+« Et lui, c'est quoi ? »
 
-La question allait à Sion, mais ce fut Ater qui répondit.
+La question s'adressait à Sion, mais ce fut Ater qui répondit lui-même.
 
-« Considérez-moi comme un passager indésirable mais nécessaire. »
+« Considérez-moi comme un intrus nécessaire au voyage. »
 
-Yona eut un petit rire à cette réponse.
+Yona eut un bref rire.
 
 « Quelle délicatesse. »
 
-Sion murmura tout bas.
+Sion marmonna :
 
-« C'est ce que je dis. »
+« C'est pour moi, ça. »
 
-« Non, je parlais de lui. »
+Yona désigna Ater du menton.
 
-Seorin saisit aussitôt l'ouverture.
-Elle eut un gloussement étouffé. Deux manières d'être insupportables — mais pas du même registre.
+« Non. Pour celui-là. »
 
-Dans ce bref échange, Sern continuait de lire la porte de la cabine, les vibrations de la coque, les signaux d'approche extérieurs.
-Et il dit, très brièvement :
+Seorin ne laissa pas passer l'ouverture.
 
-« On ne peut pas rester longtemps. »
+« Ça valait pour les deux, je parie. »
+
+Seorin pouffa à voix basse. Insupportables tous les deux, mais pas de la même manière.
+
+Même au milieu de ce bref échange de piques, Sern ne cessait de lire la porte de la cabine, les vibrations de la coque, les signaux d'approche au-dehors.
+Puis il prit la parole.
+
+« Nous ne pouvons pas rester longtemps. »
 
 Ater acquiesça.
 
-« Même constat. »
+« C'est aussi mon jugement. »
 
-Sion s'adossa à la paroi et parcourut les quatre d'un regard circulaire.
-Cette combinaison le faisait sourire malgré lui. Un agent de l'Office des Routes Extérieures de l'Alliance, une partenaire à la langue trop bien aiguisée, un représentant impérial, et derrière lui, une ombre encore plus discrète. Pas un seul à qui faire vraiment confiance — et pourtant, sans les autres, aucun d'eux n'aurait pu sortir.
+Sion s'adossa à la paroi et fit le tour de la cabine du regard.
+L'assemblage avait quelque chose de risible. Un subalterne de l'Office des Routes Extérieures de l'Alliance, la langue de vipère qui vivait accrochée à ce subalterne, un homme de la Chambre de Reconnaissance impériale, et à côté de lui le second qui comptait les chiffres. Pas un à qui se fier vraiment — et pourtant, tout à l'heure, sans les autres, aucun d'eux n'aurait pu s'en sortir.
 
-Ce fait inconfortable, ce fut Ater, de façon inattendue, qui le dit le premier à voix haute.
+Ce fait gênant, ce fut contre toute attente Ater qui le formula le premier.
 
-« Tout à l'heure… sans vous, nous ne serions pas sortis. »
+« Tout à l'heure… sans vous, nous ne nous en serions pas sortis. »
 
-Sion ne répondit pas immédiatement.
-Cette franchise dérangeante le contrariait davantage, justement parce qu'elle était vraie.
+Sion ne répondit pas tout de suite.
+La phrase était étrangement honnête, et c'était justement ce qui l'agaçait.
 
-Quelques battements plus tard, il ouvrit la bouche à contrecœur.
+Quelques battements plus tard, il ouvrit la bouche à contrecœur, lui aussi.
 
-« Je n'ai pas envie de dire la même chose — mais sans votre laissez-passer, on était finis, nous aussi. »
+« Ça m'ennuie de dire la même chose, mais sans votre ligne d'approbation, on était finis, nous aussi. »
 
-Seorin émit un petit claquement de langue.
+Seorin fit claquer sa langue.
 
-« Bien. Une réconciliation historique et rare. »
+« Une réconciliation historique, comme on en voit rarement. »
 
-Sern répondit, sans expression.
+Sern répondit, le visage indifférent.
 
-« Ce n'est pas encore une réconciliation. »
+« Ce n'est pas une réconciliation. »
 
-« Ouais. Je le vois aussi. »
+« Ouais. Ça, je le vois aussi. »
 
-Silence bref.
+Un bref silence.
 
-Yona les observait, adossé à la paroi de la cabine.
-Il ne savait pas encore tout à fait ce qu'il avait embarqué — mais au moins une chose était claire : ces gens n'étaient pas venus ensemble. Ils portaient le même problème, et c'est ce problème qui les avait fait chasser ensemble.
+Adossée à la paroi de la cabine, Yona les observait tous les quatre.
+Elle ne savait pas encore tout à fait ce qu'elle avait embarqué, mais elle savait au moins une chose : aucun des quatre n'avait dit qu'il voulait descendre le premier.
 
-Ce fut Sion qui prit la parole en premier.
+Ce fut Sion qui parla le premier.
 
-« Il nous faut quelqu'un qui sait lire. »
+« Il nous faut quelqu'un qui sache lire. »
 
-Ater, en entendant cela, pivota aussitôt.
+À ces mots, Ater tourna aussitôt les yeux vers lui.
 
-« Quelqu'un qui sait interpréter, vous voulez dire ? »
+« Quelqu'un qui sache interpréter, vous voulez dire ? »
 
-« Quelqu'un qui sait aussi dissimuler. »
-
-Sion ajouta :
-« Qui connaît la valeur des choses. Et qui ne les braderait pas. »
+« Et qui sache cacher. »
+Sion poursuivit :
+« Qui connaisse les prix, et qui ne brade rien. »
 
 Seorin hocha la tête.
 
-« Si on passe par les circuits officiels avec ce qu'on a, ça disparaît aussitôt. »
-Si on le confie aux bas-fonds du port, ça sera revendu en pièces détachées.
+« Si on entre par les voies officielles avec ce qu'on a, ce sera enterré aussitôt.
+Si on le refile au fond du port, ce sera dépecé et vendu au détail. »
 
-Sern demanda tranquillement.
+Sern demanda calmement :
 
-« Vous avez quelqu'un en tête ? »
+« Avez-vous quelqu'un en vue ? »
 
-Sion ne prit pas le temps de chercher sa réponse.
-En réalité, la réponse était déjà fixée. Le problème, c'est qu'en prononçant ce nom ici, cela signifiait que ces quatre-là entraient dans quelque chose de plus profond qu'une simple fuite.
+Sion laissa un moment la réponse en suspens.
+À vrai dire, elle était déjà arrêtée. Le problème, c'est qu'au moment où il prononcerait ce nom ici, ces quatre-là ne seraient plus dans une simple évasion : ils entreraient dans une fuite plus profonde.
 
 Mais il n'y avait pas d'autre chemin.
 
 « Oui. »
 
-Yona, qui regardait le visage de Sion, marmonna aussitôt.
+Yona regarda le visage de Sion et marmonna aussitôt :
 
-« Ah. À ton expression, je connais le nom aussi. »
+« Ah. Rien qu'à ta tête, je connais le nom, moi aussi. »
 
-Seorin eut un petit sourire.
+Seorin eut un petit rire.
 
 « Moi aussi. »
 
-Ater demanda à mi-voix.
+Ater demanda à voix basse :
 
 « Qui est-ce ? »
 
-C'est alors que Sion ouvrit enfin la bouche.
+Alors seulement Sion parla.
 
 « Elia Vern. »
 
-Ce nom prononcé, l'air dans la cabine se modifia imperceptiblement une fois de plus.
-Sern l'entendait pour la première fois — mais rien qu'à voir la réaction des trois qui le prononçaient, il comprit que ce nom n'était pas un nom comme les autres.
-Ater le ressentit plus directement encore. Ce nom n'appartenait pas à l'intérieur des registres officiels de la Chambre de Reconnaissance impériale — il appartenait à un autre ordre, celui qui survivait en dehors.
+À ce nom, l'air de la cabine changea encore une fois, très légèrement.
+Sern l'entendait pour la première fois, mais à la seule réaction des trois qui le prononçaient, il comprit que ce n'était pas un simple nom de personne.
 
 « Est-ce quelqu'un de fiable ? »
 
@@ -248,57 +259,50 @@ Ater le ressentit plus directement encore. Ce nom n'appartenait pas à l'intéri
 
 « Non. »
 
-La réponse vint trop vite — ce qui la rendait, en fin de compte, plus précise encore.
+La réponse était venue trop vite, et n'en était que plus exacte.
 
 « Alors pourquoi y aller ? »
 
-Cette fois ce fut Seorin qui répondit.
+Cette fois, ce fut Seorin qui répondit.
 
-« On n'y va pas parce qu'on lui fait confiance. »
-Il n'y a qu'elle pour lire le fragment qu'on a, le planquer et en connaître le prix.
+« On n'y va pas parce qu'on lui fait confiance.
+On y va parce qu'elle est la seule à pouvoir lire le fragment qu'on a, le cacher, et en connaître le prix. »
+Seorin ajouta :
+« Il faut quelqu'un qui ne lise pas seulement le texte, mais jusqu'aux habitudes des coupes, là où on a tranché. »
 
-Elle ajouta, très brièvement :
+Yona poussa un petit soupir.
 
-« Il faut quelqu'un qui ne lit pas seulement le texte, mais aussi les habitudes de ce qui en a été soustrait. »
+« Si même ce nom-là est sorti, il est trop tard pour que je me retire. »
 
-Yona laissa échapper un petit soupir.
+Sion eut un petit rire.
 
-« Si ce nom est sorti, il est trop tard pour que je me retire. »
+« T'as toujours compris en retard. »
 
-Sion eut un sourire de côté.
-
-« T'as toujours mis du temps à comprendre. »
-
-« Ferme-la. Je vais te facturer le carburant. »
+« Ferme-la. Je te facturerai le carburant. »
 
 Sern parcourut d'un seul regard Sion, Seorin, et jusqu'à Yona.
-C'était le réseau gris hors de l'Empire. Ça ne laissait pas de trace dans les documents officiels — mais c'est là que finissaient par affluer les choses effacées. Et Son Excellence était maintenant assis en plein milieu de ce monde-là.
+C'était le réseau gris, hors de l'Empire. Rien n'en restait dans les documents officiels, mais c'était là que les choses effacées venaient s'écouler une dernière fois. Et Son Excellence était à présent assis au beau milieu de ce monde-là.
 
-Ater regarda un instant le plafond bas de la cabine, puis ramena les yeux vers Sion.
+Ater leva un instant les yeux vers le plafond bas de la cabine, puis les ramena sur Sion.
 
-« Là-bas, on pourra en lire davantage ? »
+« Là-bas, pourrons-nous en lire davantage ? »
 
-Sion posa une main sur le fragment qu'il gardait contre lui.
+Sion pressa une fois le fragment caché contre lui.
 
-« On pourra le lire, oui. »
+« Lire, oui, sans doute. »
 
-Et il ajouta, tout bas :
+Puis il ajouta, très bas :
 
-« Mais dès cet instant, il n'y a plus vraiment de retour. »
+« Mais à partir de ce moment-là, on ne pourra vraiment plus revenir. »
 
-Personne ne put répondre légèrement à cela.
+Personne ne sut répondre à la légère.
 
-La coque vibra une fois, fort, et le cargo de Yona commença à sortir de l'ombre de la passerelle de maintenance extérieure.
-Les lumières de la ville-port neutre ne s'éloignaient pas vraiment — mais du moins n'étaient-elles plus à portée de main tendue.
+La coque trembla d'un grand coup, et le cargo de Yona commença à quitter l'ombre de la passerelle de maintenance extérieure.
+Les lumières de la ville portuaire neutre ne s'éloignaient pas, mais le cargo, du moins, sortait de la distance où une main tendue aurait pu l'atteindre.
 
-Seorin dit une dernière chose, brève.
+Seorin eut le dernier mot.
 
-« Bien. »
-Alors — qui commence à expliquer ?
-
-Et sur ces mots,
-la première cabine de ces quatre naufragés agglutinés pour survivre
-se transforma enfin en espace de véritable conversation.
+« Bon. Alors, qui commence à expliquer ? »
 
 ---
 

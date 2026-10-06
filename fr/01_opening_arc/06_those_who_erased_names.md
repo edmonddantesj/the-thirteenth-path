@@ -1,162 +1,169 @@
 # Chapitre 6 — Ceux qui effacèrent les noms
 
-Jun Astel.
+Jun Aster.
 
-Ces quelques caractères survivant au cœur d'un fragment de tablette noirci par les flammes suffisaient à changer l'air de tout le couloir.
+Ces quelques lettres restées au centre du fragment de tablette noirci par le feu suffisaient à changer tout l'air du couloir.
 
-Sion tenait le fragment dans sa main sans bouger. Les noms brûlés restaient effacés, d'ordinaire — jusqu'au bout. Un nom soumis à la destruction disparaissait non seulement des archives, mais aussi des bouches. Alors voir revenir ainsi un nom interdit depuis si longtemps, depuis la dernière demeure d'un Archiviste mort, c'était quelque chose qui tenait du cauchemar.
+Sous le nom figurait la mention d'un verdict, à moitié brûlée.
+
+**Trahison. Incinération.**
+
+Sion resta un long moment sans pouvoir bouger, le fragment serré dans la main. Un nom effacé, d'ordinaire, restait effacé jusqu'au bout. Un nom brûlé une fois disparaissait non seulement des archives, mais aussi de la bouche des gens. Alors voir un nom interdit depuis si longtemps revenir de cette manière, depuis la dernière place de l'Archiviste mort, tenait presque du cauchemar.
 
 Seorin fut la première à retrouver sa voix.
 
-« …Putain. »
+« Dingue. »
 
-Ce seul mot était si juste que Sion ne put même pas lever les yeux.
+Ce seul mot était si juste que Sion, au contraire, ne put pas relever la tête.
 
-De l'autre côté, Sern Barek se taisait lui aussi.
+En face, Sern ne disait rien non plus.
 Il avait regardé Ater avant la tablette.
-Son Excellence s'était immobilisé. Un silence très bref — mais Sern savait. Ater Valkar s'arrêtait rarement de cette façon. Surtout devant un seul nom.
+Son Excellence s'était figé. Un silence très bref, mais Sern savait. Il était rare qu'Ater Valkar s'arrête de cette façon. Plus rare encore devant un nom.
 
 Ater ouvrit la bouche, très lentement.
 
 « Regardez le fragment. »
 
-Ces mots s'adressaient à Sion, mais on aurait dit qu'il se les disait aussi à lui-même. Ne pas s'emballer. Ne pas laisser l'émotion dicter le jugement. Regarder d'abord les archives. Une habitude ancienne, gravée dans le corps au fil des années — dans la maison Valkar, à la Chambre de Reconnaissance impériale, depuis toujours.
+Ces mots s'adressaient à Sion, mais ils semblaient en même temps s'adresser à lui-même. Ne pas s'emballer, ne pas juger d'abord avec ses émotions, regarder d'abord les archives : une vieille habitude. Une manière de faire qu'il s'était incorporée toute sa vie, dans la maison Valkar, à la Chambre de Reconnaissance impériale.
 
-Sion l'entendit et laissa échapper un sourire malgré lui.
+En entendant cela, Sion eut enfin un petit rire.
 
 « Même dans une situation pareille, c'est ça qui sort en premier ? »
 
 Seorin enchaîna aussitôt.
 
-« Magnifique. Un nom revient d'entre les morts — et lui, il dit qu'on verra les émotions plus tard et qu'on commence par les archives. »
+« Un nom revient d'entre les morts, et Monsieur nous dit : les états d'âme plus tard, les archives d'abord. »
 
 Sern dit à voix basse :
 
-« Les émotions ne prouvent rien. »
+« Les états d'âme ne prouvent rien. »
 
-« La preuve, elle est là. »
+« Ça prouve quand même quelque chose. »
 
-Sion releva la tête cette fois.
-Le regard qui scrutait le fragment se tourna droit devant lui.
+Cette fois, Sion releva la tête.
+Les yeux qui fixaient le fragment l'instant d'avant se tournèrent droit devant.
 
-« Au moins une chose est sûre : quelqu'un a voulu effacer ce nom jusqu'au bout. »
-Il baissa les yeux sur le bord du fragment.
-« Et plutôt que de tout détruire d'un coup, ils l'ont tué par morceaux — en découpant, en interrompant. »
+« Au moins une chose. Que quelqu'un a voulu effacer ce nom jusqu'au bout. »
+Sion baissa les yeux sur le bord du fragment.
+« Et qu'au lieu de tout détruire d'un coup, il a voulu le tuer en le coupant par morceaux, ici et là. »
 
-Ater ne répondit pas immédiatement. Il abaissa son regard vers le sol près du corps. La dernière posture de l'Archiviste. La capsule brisée. La porte de la salle de conservation griffée. Le terminal arraché de force. Et le dispositif de conservation automatique, pas encore tout à fait mort. Indépendamment de toute émotion, la scène parlait clairement.
+Ater ne répondit pas tout de suite. Il abaissa plutôt son regard vers le sol près du corps. La dernière posture de l'Archiviste, la capsule brisée, la porte griffée de la salle de conservation, le connecteur d'accès arraché de force, et le dispositif de conservation automatique pas encore tout à fait mort. Émotions mises à part, la scène parlait clairement.
 
 Quelqu'un était venu ici.
-Quelqu'un avait voulu extraire quelque chose.
-Et l'Archiviste avait réussi, jusqu'au bout, à en préserver une partie.
-Parce que c'était le genre d'archives qui disparaissait tout entier si on les transmettait d'un seul tenant — il avait au contraire tout fait pour qu'on ne puisse justement pas les transmettre d'un seul coup.
+Quelqu'un avait voulu en extraire quelque chose.
+Et l'Archiviste avait réussi, jusqu'au bout, à en laisser une partie.
+Ces archives étaient perdues si elles passaient toutes d'un coup : il les avait donc partagées pour qu'elles ne puissent jamais passer en une seule fois.
 
 Sern bougea le premier.
-Il s'agenouilla devant le terminal de conservation à deux pas du corps et examina l'écran mourant.
+Il s'agenouilla devant le terminal de conservation, à deux pas du corps, et examina l'écran mourant.
 
-« Un dispositif est encore actif. »
+« Un appareil est encore en vie. »
 
-Sion détourna aussitôt les yeux vers lui.
-La surface du terminal était lézardée, sa base noircie par les flammes, mais le cœur interne n'était pas tout à fait mort — une faible lumière bleue clignotait.
+Sion déplaça aussitôt son regard, lui aussi.
+La surface du terminal était fêlée et sa base noircie par le feu, mais le cœur, à l'intérieur, ne semblait pas tout à fait mort : une infime lueur bleue clignotait.
 
 Ater demanda :
 
-« Récupérable ? »
+« Est-il récupérable ? »
 
-Sern répondit brièvement :
+Sern répondit :
 
-« Rien qu'à voir l'appareil, c'est difficile. Mais il y a des traces : quelqu'un a introduit quelque chose en dernier. »
+« À en juger par l'appareil seul, c'est difficile. Mais il y a des traces : quelqu'un y a introduit quelque chose en dernier. »
 
-Avant même que ces mots soient finis, Sion fouilla à nouveau autour des mains du cadavre de l'Archiviste. Dans les interstices du sol durci par la cendre noire et le sang coagulé, deux autres minces fragments de tablette apparurent. L'un était complètement mort. L'autre n'avait plus qu'un bord.
+Ces mots étaient à peine finis que Sion fouillait de nouveau près des mains du corps de l'Archiviste. Dans les interstices du sol, entre cendre noire et sang figé, il trouva encore deux très minces éclats de tablette. L'un était complètement mort ; de l'autre, il ne restait qu'un coin.
 
-Seorin regardait vers le corps et dit à voix basse :
+Seorin, les yeux sur le corps, dit à voix basse :
 
-« Il n'a jamais lâché. »
+« Il a pas lâché, jusqu'au bout. »
 
-À ces mots, Sion s'immobilisa un instant.
-Entre les doigts figés de l'Archiviste, la cendre noire était encore incrustée. Des traces de prise, de retrait, de tentative d'insertion — jusqu'au bout. Les mains d'un homme qui n'avait pas pu lâcher le travail même en mourant.
+À ces mots, Sion arrêta un instant ses mains.
+Entre les doigts raidis de l'Archiviste, la cendre noire était toujours incrustée. Les traces de quelqu'un qui avait tenu, détaché, tenté d'insérer jusqu'au dernier moment. Les mains d'un homme qui n'avait pas pu lâcher son travail avant de mourir.
 
-Sion murmura, très doucement :
+Sion murmura, très bas :
 
 « Il a tout porté seul. »
-Et c'était évident maintenant — ce n'étaient pas simplement les mains d'un homme mort en rangeant quelques documents. C'étaient les mains d'un homme qui avait tout fait pour ne pas tout perdre d'un coup, qui avait fragmenté et préservé jusqu'à la fin.
 
-Sern fixa des fils de connexion provisoires à la base du dispositif ; Ater força à la main la structure d'autorisation mourante depuis son terminal de poignet. Sion prit un fragment retiré des mains de l'Archiviste et l'introduisit dans l'emplacement indiqué par Sern.
+Seorin regarda le corps, puis détourna les yeux.
+
+« S'il avait pas été seul, il en serait pas arrivé là. »
+
+Sern fixa un câble de connexion provisoire sous l'appareil, et Ater, depuis son terminal de poignet, réveilla de force la structure d'autorisation mourante. Sion prit l'un des éclats sortis des interstices du sol et l'introduisit dans la rainure que Sern lui désignait.
 
 Un instant, rien ne se passa.
 
-Puis des phrases brisées surgirent dans le vide au-dessus du terminal.
+Puis, bientôt, des phrases brisées surgirent dans l'air au-dessus du terminal.
 
 D'abord, rien que du bruit.
-Des données visuelles fragmentées. Des alertes d'effondrement. Des numéros d'approbation incomplets. Des indicateurs d'échec de suppression.
+Des données visuelles brisées, des alertes d'effondrement, des numéros d'approbation incomplets, des indicateurs d'échec de suppression.
 
-Ensuite seulement, une voix s'y attacha.
+Ensuite seulement, une voix s'y joignit.
 
-Rauque, fracturée. Une voix à quelques instants de la mort.
+Une voix rauque et fêlée, au seuil de la mort.
 
 L'Archiviste.
 
 « …restauration… l'ordre… non… il faut d'abord regarder l'ordre… »
 
 La voix se coupa, puis reprit.
-La majeure partie du milieu était détruite — mais c'est justement pour ça qu'elle était plus déchirante encore.
+Presque tout le milieu était détruit, et c'est justement ce qui la rendait plus déchirante.
 
-« …les noms survivent… mais si l'ordre meurt… le verdict change… »
+« …même si le nom… reste… si l'ordre meurt… le verdict change… »
 
 Le regard de Sion vacilla.
-Seorin, pour la première fois, se tut sans rien dire.
+Seorin aussi, pour la première fois, se tut sans rien dire.
 
-Sern lisait les phrases brisées suspendues dans le vide ; Ater, plus lentement encore, mais plus profondément, laissait entrer le sens de ces mots.
+Sern lisait les phrases brisées suspendues dans l'air ; Ater, plus lentement mais plus profondément, accueillait le sens de ces mots.
 
 La voix revint une dernière fois.
 
-Cette fois, beaucoup plus courte.
+Cette fois, bien plus brève.
 
-« …ceux qui effacèrent les noms… ont écrit… l'histoire… »
+« …ceux qui effacèrent les noms… l'histoire… »
 
 Du bruit.
 
-« …ont écrit. »
+« …l'ont écrite. »
 
-Et dans le vide, une dernière phrase demeura.
+Et dans l'air, une dernière phrase demeura.
 
-**Incohérence dans l'ordre d'approbation original**
-**Restauration suspendue : intervention d'un scellé supérieur**
+**Incohérence de l'ordre d'approbation original**
+**Motif de suspension de la restauration : intervention d'un sceau supérieur**
 
-La dernière phrase d'erreur trembla encore un moment dans l'air, puis se répandit en bleu sur le terminal lézardé — et disparut.
+La dernière phrase d'erreur restée dans l'air vacilla encore un moment, puis se diffusa en bleu sur le terminal fêlé avant de disparaître.
 
-Personne ne parla.
-Le retour d'un seul nom était déjà suffisamment énorme ; et la voix que l'Archiviste venait de laisser impliquait bien plus encore.
-Ce qu'ils devaient désormais traquer n'était peut-être pas une simple ligne de texte, mais les séquences tronquées et les scènes laissées derrière — ils le sentaient tous confusément.
-Mais ils n'avaient pas le temps de le formuler à voix haute, ici.
+Personne ne parla tout de suite.
+Le retour d'un nom pesait déjà bien assez lourd, et la voix que l'Archiviste venait de laisser en laissait entendre bien davantage.
+Tous sentaient confusément que ce qu'ils auraient désormais à poursuivre n'était peut-être pas une simple ligne de texte, mais un ordre tranché et les lieux restés derrière.
+Mais ils n'avaient pas le temps de le mettre en mots ici.
 
-Du fond du terminal mourant, une brève alarme jaillit soudain.
+Du bas du terminal mourant jaillit soudain un bref signal d'alerte.
 
 Sern fut le premier à tourner les yeux.
 
 « Excellence. »
 
-Une ligne rouge se répandit sur la surface du terminal.
-La lecture était terminée depuis longtemps, et pourtant l'appareil continuait à expulser vers l'extérieur le dernier signal d'autorisation qu'il lui restait.
-Le signal indiquant qu'une archive longtemps dissimulée venait d'être consultée.
+Une ligne rouge se propagea sur la surface du terminal.
+La lecture était terminée, et pourtant l'appareil poussait vers l'extérieur le dernier signal d'autorisation qui lui restait.
+Le signal qu'une archive longtemps cachée venait d'être consultée de nouveau.
 
-Ater tendit aussitôt la main vers le terminal, mais c'était trop tard.
-La marque rouge clignotait une dernière fois — et mourut.
+Ater tendit aussitôt la main vers le terminal, mais trop tard.
+La marque rouge clignota encore une fois, puis s'éteignit pour de bon.
 
 Sion jura à voix basse.
 
-« Ce n'est plus seulement nous qui l'avons vu. »
+« Maintenant, on n'est plus les seuls à l'avoir vu. »
 
-« C'est pire que ça. »
+« C'est pire que cela. »
 
-Sern avait déjà activé son terminal de poignet.
+Sern avait déjà allumé son terminal de poignet.
 La ligne officielle de la Chambre de Reconnaissance impériale était encore silencieuse.
-Mais plus loin, au-delà — le réseau de contacts léger qui ne laissait aucune trace dans les rapports officiels — celui-là tremblait déjà.
+Mais plus loin, à l'extérieur, un mince réseau de liaison qui ne laissait de trace dans aucun rapport officiel tremblait déjà.
 
-Un. Deux. Trois.
+Un, deux, trois.
 
 La lignée des descendants du Serment du Texte Noir.
 L'anneau extérieur du réseau d'échos.
-Les vieilles sentinelles plantées aux abords du port.
+Les vieux yeux plantés aux abords du port.
 
 Le regard de Sern s'assombrit, très légèrement.
 
@@ -168,44 +175,54 @@ Ater lut cette expression et demanda :
 
 Sern répondit sans fermer l'écran :
 
-« Pas seulement l'Empire. »
+« Ce n'est pas seulement l'Empire. »
 
-Cette seule phrase courte changea complètement l'air dans le couloir.
+Cette seule phrase courte changea complètement l'air du couloir.
 
-Seorin fut la première à réagir.
+« Qu'est-ce que t'as dit, là ? demanda Sion. Le Texte Noir, quoi ? »
 
-« Bien. Alors ça vient d'en haut et ça vient d'en bas. »
+Sern ferma l'écran.
+
+« Mieux vaut que vous ne le sachiez pas. »
+
+« C'est la réponse que je déteste le plus. »
+
+« Alors je le dirai ainsi. » Sern choisit ses mots un instant, puis répondit : « Ces noms ne figurent pas sur les listes officielles de la Chambre de Reconnaissance. Mais ils bougent toujours avant les listes officielles. »
+
+Seorin reprit la balle au bond.
+
+« Alors ça va venir d'en haut, et d'en bas aussi. »
 
 Sion la regarda.
 
 « D'en bas ? »
 
-« Une consultation de cette ampleur, les seuls hauts dirigeants de l'Office des Routes Extérieures de l'Alliance ne vont pas se mettre en mouvement seuls. »
-Les mots de Seorin allaient vite, son esprit était déjà à la case suivante.
-« Les courtiers du port, les intermédiaires, les observateurs civils — ils vont tous se joindre pour de l'argent. Ce n'est pas une seule ligne qui vient nous bloquer. »
+« Une consultation de cette ampleur, ça fera pas bouger que la direction de l'Office des Routes Extérieures de l'Alliance. »
+Seorin parlait vite, et sa tête était déjà passée à la case suivante.
+« Les courtiers du port, les passeurs intermédiaires, les vaisseaux de surveillance civils, tous vont s'y coller pour l'argent. Ça veut dire que ceux qui viendront nous barrer la route, ce sera pas une seule ligne. »
 
 Ater dit à voix basse :
 
-« L'Empire va fermer les portes en premier. »
+« L'Empire fermera d'abord les points de passage. »
 
-« Et dans cette brèche, les autres vont s'infiltrer. »
+« Et par les interstices, les autres vont s'infiltrer. »
 
-Seorin répondit aussitôt.
-Elle ne regardait plus ni le cadavre ni les archives. Elle lisait à la place la structure du couloir, la sortie de la salle de conservation derrière eux, les conduits en hauteur, les fissures dans le mur latéral, l'intervalle des pas dehors — tout simultanément.
+Seorin avait répliqué aussitôt.
+Elle ne regardait plus ni le corps ni les archives. À la place, elle lisait en même temps la structure du couloir, la sortie de la salle de conservation derrière eux, les conduites du haut, la fissure du mur latéral et l'intervalle des pas au-dehors.
 
 « Sion. »
 
 « Ouais. »
 
-« À partir de maintenant, comprendre, c'est pour plus tard. Sors vivant, et tu liras après. »
+« À partir de maintenant, comprendre, c'est pour plus tard. Sors vivant, et lis après. »
 
-Sion inspira brièvement.
-C'était juste. Si on s'attardait encore ici à chercher des fragments, les archives survivraient mais les personnes pourraient ne pas survivre.
+Sion inspira.
+Elle avait raison. S'ils s'attardaient ici à fouiller encore les fragments, les archives resteraient peut-être, mais pas les gens.
 
-Sern était déjà entré dans un autre registre de calculs.
-Le temps restant avant que la ligne de blocus officielle de l'Empire ne se ferme. Les routes de surveillance aux abords du port. Les couloirs d'évacuation encore possibles laissés en dernier par les descendants de la ligne noire du Serment. Et les probabilités de survie — à quatre ensemble, à quatre séparément.
+Sern s'était déjà lancé dans un calcul d'un autre ordre.
+Le temps restant avant la fermeture de la ligne de blocus officielle de l'Empire, les itinéraires de surveillance aux abords du port, les passages de sortie encore possibles laissés en dernier par les descendants du Serment du Texte Noir, et les chances de survie de ces quatre-là selon qu'ils bougeaient ensemble ou séparément.
 
-La réponse était d'une clarté désagréable.
+La réponse était d'une clarté déplaisante.
 
 « Excellence. »
 
@@ -213,91 +230,111 @@ La réponse était d'une clarté désagréable.
 
 « Nous devons sortir ensemble. »
 
-Sion fut le premier à changer d'expression à ces mots.
+À ces mots, le premier à changer d'expression fut Sion.
 
-« Bien. Voilà une phrase dont on n'avait pas besoin. »
+« Voilà ce que j'avais pas envie d'entendre. »
 
 Sern ne cilla pas.
 
-« Si nous nous séparons, nous serons neutralisés un par un. »
+« Séparés, nous serons défaits un par un. »
 
-Seorin laissa échapper un bref rire.
+Seorin rit.
 
-« Il fait dans le joli. Au fond, c'est juste qu'on est tous les quatre coincés dans le même réseau de traque. »
+« Joliment dit. Au fond, ça veut dire qu'on est pris tous les quatre dans le même filet. »
 
 « C'est exact. »
 
-Ater resta silencieux un très court instant.
-La situation elle-même était déjà anormale — un homme de la Chambre de Reconnaissance impériale devant fuir en bloc avec deux opérationnels de l'Office des Routes Extérieures de l'Alliance. Mais les signaux extérieurs étaient clairs. Ce qui bougeait maintenant n'était pas seulement l'ordre officiel. L'ordre officiel et la cupidité non officielle avaient flairé la même odeur en même temps.
+Ater garda le silence, très brièvement.
+Qu'un homme de la Chambre de Reconnaissance impériale doive s'échapper d'un seul bloc avec deux agents de l'Office des Routes Extérieures de l'Alliance, c'était déjà anormal en soi. Mais les signaux du dehors le disaient. Ce qui bougeait maintenant n'était pas seulement l'ordre officiel. L'ordre officiel et la convoitise officieuse avaient flairé la même odeur au même moment.
 
-Il trancha brièvement.
+Il trancha.
 
-« On s'extrait d'abord. »
+« D'abord, nous sortons d'ici. »
 
-Sion le railla aussitôt.
+Sion ironisa aussitôt.
 
 « L'approbation est tombée. »
 
-« Ce n'est pas une situation pour se réjouir. »
+« Ce n'est pas une situation dont il faut se réjouir. »
 
-« Ça, je suis d'accord. »
+« Ça, d'accord. »
 
-Dans le couloir dehors, le bruit de métal heurtant le métal se rapprochait.
-Cette fois, de plusieurs directions. Un claquement en hauteur, deux jeux de pas qui couraient brutalement en dessous, et une fine vibration qui progressait le long de la paroi extérieure derrière eux.
+Dans le couloir extérieur, le choc du métal se rapprochait.
+Cette fois, de plusieurs directions. Un claquement de fermeture en haut, deux bruits de pas qui accouraient brutalement d'en bas, et une vibration infime qui approchait le long de la paroi extérieure, derrière eux.
 
-Seorin pointa aussitôt la direction de la main.
+Seorin indiqua aussitôt la direction de la main.
 
-« Devant, c'est bloqué. En haut, ça ferme. Le mur de la salle de conservation derrière, il y a une fissure là — je l'ai vue tout à l'heure. »
+« Devant, c'est bloqué. En haut aussi, ça ferme. Le mur de la salle de conservation, derrière, il y a une fissure, non ? Je l'ai vue tout à l'heure. »
 
-Sion se retourna immédiatement.
+Sion se retourna aussitôt.
 
-« Du côté des conduits d'aération ? »
+« Côté conduit d'aération ? »
 
-« Oui. On passe l'un après l'autre. »
+« Ouais. On y passe un par un. »
 
-Sern ajouta aussitôt son calcul :
+Sern ajouta aussitôt son calcul.
 
-« Les conduits débouchent sous le pont de maintenance extérieur. Sur les plans officiels, ils apparaissent comme obstrués — mais sur les anciens relevés de transit du réseau d'échos, ils sont encore praticables. »
+« Le conduit débouche sous le pont de maintenance extérieur. Sur les plans officiels, il figure comme obstrué, mais sur les anciennes tables de transit du réseau d'échos, il est encore praticable. »
 
-Sion l'entendit et se retourna vers lui.
+En entendant cela, Sion se retourna vers Sern.
 
-« Comment tu sais ça, toi. »
+« Pourquoi c'est toi qui sais ça ? »
 
-Sern répondit brièvement :
+Sern répondit :
 
-« Il y a toujours quelqu'un qui connaît les chemins que vous ne connaissez pas. »
+« Il y a toujours quelqu'un qui connaît les chemins que vous ignorez. »
 
-Seorin laissa échapper un sourire à ces mots.
+Puis, une mesure plus tard, il ajouta :
+
+« Ce nom de tout à l'heure. »
+
+Sion se tournait déjà vers la fissure.
+
+« C'est le moment de demander ça ? »
+
+« Non. C'est pour cela que je le demande maintenant. Plus tard, vous ne répondrez pas. »
+
+Sion ne répondit pas.
+
+Seorin s'avança d'un demi-pas entre eux deux.
+
+« Le conduit débouche sous le pont de maintenance, t'as dit. Ça prend combien de minutes ? »
+
+« Quatre minutes. »
+
+« Alors demande dans quatre minutes. »
+
+Sern n'insista pas. Il savait déjà que dans quatre minutes, il ne pourrait pas demander non plus.
+
+Seorin regarda Sern et eut un petit rire.
 
 « Antipathique, mais efficace. »
 
-« Vous aussi. »
+« Vous de même. »
 
-Ater récupérait déjà les fragments de capsule et le cœur du terminal restés près du corps.
-Sion renfrogna encore plus profondément à l'intérieur le fragment où le nom de Jun Astel demeurait. Les archives pouvaient attendre. La question première était de pouvoir les emporter.
+Ater récupérait déjà les éclats de capsule restés près du corps et le cœur du terminal.
+Sion, lui aussi, glissa plus profondément sous ses vêtements le fragment où restait le nom de Jun Aster. Les archives, c'était pour plus tard. D'abord, savoir s'ils pourraient les emporter.
 
-Depuis l'autre côté de l'entrée du couloir, quelqu'un cria.
+Quelqu'un cria, au-dehors, à l'entrée du couloir.
 
 « C'est ouvert à l'intérieur ! »
 
 Aussitôt, un impact semblable à un coup de feu frappa la paroi métallique.
-La poussière s'effrita en cascade.
+La poussière tomba en pluie.
 
 « On y va ! »
 
-Cette fois, Seorin bougea en premier.
+Cette fois, ce fut Seorin qui bougea la première.
 
-Sion suivit derrière ; Sern sur le côté indiqua la direction de la fissure réellement ouverte ; et Ater, tout au bout, se retourna une fois. L'emplacement du mort, le terminal éteint, la porte de la salle de conservation entrouverte. On ne pouvait pas s'attarder longtemps sur un endroit déjà perdu.
+Sion regarda son dos un instant. Justification demandée restait en vigueur, et s'ils sortaient avec ça, un nom de plus viendrait s'ajouter à cette ligne. Et pourtant, c'était toujours elle qui courait la première.
 
-Les quatre s'enfoncèrent sans un mot de plus dans la fissure du mur derrière la salle de conservation.
+Au bord de la fissure, la rouille avait été raclée vers l'intérieur. Une éraflure récente.
 
-Et à cet instant,
-l'Empire ferma par le haut,
-et les mains sales de l'Alliance et du port commencèrent à s'infiltrer par le bas.
+« Celui qui a verrouillé est sorti par là aussi. »
 
-Au moment où le nom de Jun Astel était remonté à la surface,
-les quatre qui l'avaient vu
-glissaient ensemble à l'intérieur du même réseau de traque.
+Sion la suivit, Sern, sur le côté, prit la direction de la fissure réellement ouverte, et Ater, tout au bout, se retourna une fois. La place de l'Archiviste mort, le terminal éteint, la porte entrouverte de la salle de conservation. On ne pouvait pas regarder longtemps un endroit où il était déjà trop tard.
+
+Sans un mot de plus, les quatre se glissèrent dans la fissure du mur, derrière la salle de conservation.
 
 ---
 

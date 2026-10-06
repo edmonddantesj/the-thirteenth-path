@@ -1,130 +1,200 @@
 # Episode 158. The One Left Behind
 
-After the second rescue, the hidden layer was quiet for a long time.
+After the second rescue,
+the hidden layer stayed quiet for a long time.
 
-The first time had been quiet too, but this silence was different in grain.
+It had been quiet after the first one too,
+but this silence had a different grain.
 
-Then, the fact of having done it came first, and the number still remaining inside became clearer afterward. This time, from the very start, one face they had failed to bring was what stayed in everyone's mind first.
+Back then, the fact that they had done it came first,
+and that was why the number still left inside had grown clearer;
+this time, from the very start, one face they had failed to bring out
+was already lodged in everyone's mind.
 
-Two had been extracted. But no one thought of that number first.
+They had gotten two out.
+Yet no one thought of that number first.
 
-Instead, the small child they had not been able to touch in this beat was the most vivid thing.
+Instead,
+the small child they had never managed to reach on that beat
+was the clearest of all.
 
-Jiwoo checked on the two children she had brought back the moment she returned.
+As soon as she was back,
+Han Jiwoo checked on the two children they had brought this time.
 
-One child was still excessively quiet. The other wore the face of someone relearning how to hold their breath.
+One was still far too quiet,
+and the other wore the face of someone learning all over again how to hold their breath.
 
-Both had come back alive. But neither had fully arrived here yet.
+Both had come back alive.
+But neither had fully arrived here yet.
 
-And precisely because of that, Jiwoo clenched harder.
+And that was exactly why
+Han Jiwoo clenched her teeth harder.
 
-She had to care for the children brought back this time too. She could not let go of their hands.
+This time, too, she had to look after the children they had brought.
+This time, too, she must not let go of their hands.
 
-But at the same time, the child who had briefly looked this way from inside the line would not leave her mind.
+But at the same time,
+the child who had looked this way for a moment from inside the line
+kept staying in her mind.
 
-The habit of checking sideways to the end. The eyes that never missed who was slipping out. The way those feet turned this way so briefly, then swallowed the motion again.
+The habit of checking sideways first, to the very end,
+the eyes that never lost track of who was getting out,
+the way the child had turned their own feet this way, very briefly, then swallowed it back.
 
-That was not simply the face of a child they had failed to bring this time.
+It was not simply the face of *the child they had failed to bring out this time*.
 
-Strangely, it lingered like a face already lost once before, somewhere.
+Strangely,
+it stayed with her like a face already lost once, somewhere before.
 
-Ater held his words longer than usual that day too.
+Ater, too, held his words back longer than usual that day.
 
-Leaning against the wall, he seemed to keep replaying the final scene of this rescue.
+Standing against the wall,
+he seemed to keep watching the last moments of the rescue over again.
 
-Inside the line. The instant of a gaze. And the eyes of the one left behind.
+Inside the line,
+a gaze that lasted an instant,
+and then the eyes of the one they could not bring out.
 
-It resembled the kind of scene he had witnessed countless times inside the Empire, and that made it worse.
+It resembled the kind of scene he had seen countless times inside the Empire,
+and that made it more unpleasant.
 
-Power never takes everything at once. It always leaves about one behind, so the surviving side comes back again next time.
+Power never takes everything at once.
+It always leaves the last one or so behind,
+so that the ones who survived will come back again next time.
 
-Ater knew that. He was feeling more clearly now that Serakion, wearing a different face from the Empire, held people in a similar way.
+Ater knew that.
+He now felt more clearly that Serakion, too,
+only wore a different face from the Empire's,
+and held on to people in much the same way.
 
-Kael kept calculating through the silence.
+Even in the silence, Kael kept calculating.
 
-The closing changes from the first rescue. The faster sealing from the second. And the position where human-side time had actually come alive inside the line this time.
+The closing that had changed since the first rescue,
+the sealing that had grown faster during the second,
+and the place where time on the human side had actually come alive inside the line this time.
 
-But no matter how he calculated, this time a single final gaze stayed longer than any number.
+But however much he calculated,
+this time one last gaze stayed with him longer than any number.
 
 Because Kael had seen it too.
 
-That small child had not looked this way by accident. Clearly, they had seen the two slipping out and tried to follow with their own body.
+That small child had not just happened to look this way.
+Unmistakably,
+the child had seen the two slipping out
+and had tried to follow with their own body.
 
-Meaning that child knew outside hands existed. And recognized they were not false.
+That meant that child
+had seen there were hands outside,
+and had understood those hands were not a lie.
 
-The fact that they had left a child who now knew that back inside Serakion's beat was what made this second rescue heavier.
+Having left a child who knew that
+back inside Serakion's beat
+made this second rescue weigh heavier.
 
-The first recovery hand said it low.
+The first recovery hand said, low,
 
-"Next time has to be faster."
+"The next one has to be faster."
 
-Jiwoo asked immediately.
+Han Jiwoo asked at once,
 
-"Will faster be enough?"
+"And faster will do it?"
 
-That was less a rebuttal and more the kind of question asked by someone who already knew the answer.
+It was less an objection
+than a question asked by someone who already knew.
 
-The first recovery hand was silent briefly, then spoke.
+The first recovery hand was silent a moment, then said,
 
-"It has to be faster, and it has to be more precise. This time, their side, the remaining children, and us — everyone learned more than before."
+"It has to be faster,
+and more exact."
+"This time that side,
+the children left behind,
+and we
+all know more than we did before."
 
-He was not wrong.
+It wasn't wrong.
 
-Serakion would seal again. The children remaining inside would each remember what just happened differently. And the hidden layer's side could no longer move on the same calculations.
+Now Serakion would seal things up again,
+the children left inside would each remember what had just happened differently,
+and the hidden layer could no longer move on the same calculations either.
 
-The first rescue had been a fracture. The second was proof that fracture was not an accident.
+The first rescue had been a crack.
+The second rescue was the proof that the crack had not been chance.
 
-Then the third had to be clearer about who they were going back in for.
+If so, the third
+had to be clearer still about who they were really going back in for.
 
-Then one of the two children brought back this time flinched, very low.
+Then,
+one of the two children they had brought this time flinched, very slightly.
 
-Jiwoo dropped her gaze immediately.
+Han Jiwoo lowered her eyes at once.
 
-The child's lips moved slightly, but at first no sound came.
+The child's lips moved for a moment,
+but at first no sound came out.
 
-When she lowered herself further, the child let a single phrase slip in a voice almost like breathing.
+When she bent lower,
+the child let slip a few words in a voice almost as small as a breath.
 
-"...one more..."
+"…one more…"
 
 The room went quiet.
 
-Jiwoo could not answer right away.
+Han Jiwoo could not answer right away.
 
-The child was too frightened to continue. But that single phrase was enough.
+The child, frightened, could not go on.
+But those few words were enough.
 
-Even the children who had just escaped could not accept having come out alone as success.
+Even the children who had just gotten out
+could not take it as success that only they had come out.
 
-The beat Serakion had planted among people worked to bind them and cage them together, but right now it was working in reverse — making them keep thinking of the one left behind.
+The beat Serakion had planted among people
+worked to bind them to one another and lock them in,
+but right now it worked the other way,
+making them keep thinking of the one left behind.
 
-Jiwoo took the child's hand again, very slowly, and said.
+Very slowly,
+Han Jiwoo took the child's hand again and said,
 
 "I know."
 
-Those two short words were too small for comfort and too heavy for a promise.
+Those two short words
+were too little to be comfort,
+and too heavy to be a promise.
 
-That was why they felt more real.
+That was what made them feel more real.
 
-Ater heard them and closed his eyes, then opened them. Kael kept his gaze on the floor and said it very low.
+Hearing them, Ater closed his eyes and opened them again.
+Kael kept his gaze on the floor and said, very low,
 
-"Next time, it is that child."
+"Next time, it's that child."
 
 This time no one asked why.
 
-They were all already looking at the same face.
+They were all already seeing the same face.
 
-The child who had watched this way from inside the line to the very end. The child brushed by a grain resembling memory from the Hazran side. The child they had not been able to bring in this beat — and who, precisely because of that, could only become the center of the next rescue.
+The child who had kept looking this way from inside the line to the very end.
+The child across whom something like the grain of the Hazran memories had flickered.
+The child they had not managed to bring out on this beat,
+and who, for exactly that reason, had to be the center of the next rescue.
 
-And though no one had said it aloud yet, if they saw that child again, someone would eventually realize.
+And though no one had said it aloud yet,
+once they saw that child again
+someone would come to realize it in the end.
 
-The child they had thought was only lost might have been here, remaining, for far longer than anyone knew.
+That the child they had thought was lost
+might in fact have been here, left behind, for a long time already.
 
-That night, what stayed in the hidden layer was not relief but a stronger kind of resolve.
+That night in the hidden layer,
+what remained was a kind of resolve stronger than relief.
 
-Two had been extracted. But the center of this arc was not those two.
+They had gotten two out.
+But the heart of it was not those two.
 
-The one they had failed to bring was the first to return inside everyone.
+The one they had never managed to bring out
+was the first to come back inside all of them.
 
-And that fact was turning the next rescue from a simple repetition into a retrieval they had to go back for.
+And that fact
+was turning the next rescue from a simple repetition
+into a retrieval they absolutely had to go back in for.
 
 ---
 

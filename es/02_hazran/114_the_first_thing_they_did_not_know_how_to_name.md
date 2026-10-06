@@ -1,250 +1,255 @@
 # Capítulo 114 — Lo primero que no supieron cómo nombrar
 
-Si había pasado un día,
-o medio día,
-dentro de la nave el tiempo no se contaba bien.
+Sion intentó contar el tiempo y lo dejó.
 
-El casco seguía inestable,
-la gente estaba agotada,
-y los refugiados que habían cruzado desde Hazran tenían rostros que, solo por seguir vivos, ya habían atravesado demasiado.
+No había forma de saber si había pasado un día o medio. Dentro del barco no había sol ni sombras, y aparte de la gente que cerraba los ojos un momento y volvía a abrirlos, no había nada con qué partir las horas.
 
-Pero aun en medio de todo eso,
-un punto seguía sin desaparecer.
+En Hazran había sol. Al salir de la sombra al sol, el calor subía atravesando la ropa, y por eso se sabía en qué punto del día se estaba.
 
-Han Jiwoo terminó por sentarse de nuevo frente a aquel panel.
+Aquí eso no existía.
 
-Tenía que arrastrar esto, aunque fuera a la fuerza, dentro de su propio lenguaje.
-Avería era avería,
-daño era daño,
-vibración residual era vibración residual.
-Solo lo que puedes nombrar puedes manejarlo.
+A Sion eso le dejaba un vacío extraño. Era una cosa menos que contar.
 
-Pero cuanto más lo tocaba,
-menos encajaba con exactitud en ninguno de los lados que ella conocía.
+Han Jiwoo volvía a estar sentada delante de aquel panel.
 
-Un sitio que debería ser irregular aguantaba demasiado tiempo,
-una vibración que debería enfriarse persistía de un modo extraño en un solo punto,
-y no era el casco entero a punto de derrumbarse,
-sino exactamente ese único sitio el que quedaba, de manera rara, «sujeto».
+Cuántas veces iban desde ayer, Sion también lo había contado y había perdido la cuenta.
 
-Han Jiwoo se mordió el labio y dijo en voz baja.
+Delante de ella había una lista a medio escribir. Era la hoja donde anotaba el estado del barco: la columna izquierda estaba llena y solo la última línea seguía en blanco.
 
-—Esto no es una parte rota que aguanta.
+—¿Qué ibas a anotar y lo dejaste?
 
-Kael preguntó a su lado.
+—El nombre.
 
-—¿Entonces?
+Sion no entendió enseguida qué quería decir.
 
-Han Jiwoo no respondió enseguida.
+Han Jiwoo le dio un golpecito a la hoja con el dorso de la mano.
 
-Admitir lo que no sabía siempre le había sentado mal.
-Pero ahora más todavía.
-Esta nave era ahora el hogar que ella sostenía,
-el barco que cargaba a los que habían sobrevivido,
-y también el último armazón que quedaba, arrancado de Hazran.
+—Si es una avería, anoto avería; si es un daño, anoto daño. Así, la próxima vez que lo mires, sabes qué tienes que mirar.
 
-Por eso mismo, aún más,
-no quería dejarlo en estado de no saber.
+—¿Y aquello?
 
-Sion observaba aquella escena desde un sitio algo apartado.
+—Por eso no lo puedo anotar.
 
-Seguía sintiendo una dirección extraña.
-No era olor,
-no era luz,
-no era un camino claro,
-y aun así la mirada y el sentido volvían una y otra vez a un solo punto.
+Volvió a mirar la lista. Todo lo que había pegado a este barco tenía nombre. Lo agrietado, lo quemado, lo atado de forma provisional, lo vuelto a montar encima. Para todo había una palabra con que llamarlo, y por eso a todo se le podía meter mano.
 
-No era como una sensación que llamara, «ven aquí».
-Más bien,
-se parecía a algún camino que ya había venido hasta aquí y se había plegado.
+Solo aquello no tenía palabra.
 
-Al pensarlo, Sion enderezó la espalda sin darse cuenta.
+—¿Sin nombre no se puede arreglar?
+Lo preguntó Sion.
 
-Hazran había terminado.
-Pero si de verdad había terminado,
-¿por qué permanecía de esta manera?
+—Que no se pueda arreglar es lo de menos.
 
-Esa pregunta todavía era demasiado grande.
+Lo dijo Han Jiwoo.
 
-Seorin, apoyada en una pared cercana,
-miraba aquel sitio sin decir nada.
+—No se lo puedo pasar al siguiente.
 
-Ella tenía ojo para lo que aguanta mucho
-y para lo que debería haberse cortado ya y aún no se ha cortado.
-Por eso este aire la incomodaba.
+Sion se quedó mucho rato con esas palabras.
 
-Si había terminado, debería haberse cortado de forma más limpia.
-Pero ahora no era así.
+Después dio una vuelta por el barco. Ya que estaba, fue escuchando cómo llamaba la gente a aquello.
 
-En algún sitio, de manera mínima,
-Hazran permanecía aún «sin haber sido dejado».
+Kael decía «ese sitio».
 
-Para Seorin eso no llegaba como un consuelo,
-sino más bien como un hecho más incómodo.
+Seorin decía «aquello».
 
-Luhai, que ayudaba a ordenar a los refugiados,
-vino de nuevo a quedarse cerca de aquel sitio.
+Luhai seguía diciendo «eso», y una vez dijo «lo que quedó de Hazran» y él mismo dejó la frase a medias.
 
-Él no entendía bien de máquinas ni de estructuras,
-pero sabía cuánto tiempo permanecen el precio, la huella y las manos de la gente.
+Sern ni siquiera lo nombraba. Solo señalaba la dirección con la mano.
 
-Tocó con el dedo la superficie del fragmento.
+Ater decía «dicho punto». Así le salía, con el habla del Imperio.
 
-—Eso parece un sitio donde la cuenta aún no terminó.
+Seis personas llamaban a la misma cosa de seis maneras. Nadie usaba la misma palabra, y nadie dejaba de entender.
 
-Han Jiwoo levantó la vista un instante.
+A Sion eso, más bien, le dio miedo.
 
-Aquellas palabras, de un modo extraño, daban en el blanco.
+Si todos miran lo mismo pero lo llaman de forma distinta, después no hay manera de explicárselo a alguien que no estuvo aquí. Cada uno lo recuerda con sus palabras y cada uno lo deja de una manera distinta.
 
-Si fuera un sitio terminado,
-ya no tendría razón para aguantar.
-Pero ese único punto seguía,
-adherido como si no hubiera pasado algo por completo al otro lado.
+Le vino a la cabeza algo que Sern había dicho antes. Si estuvieron juntos y lo recuerdan distinto, la próxima vez que se encuentren serán personas que vienen de sitios distintos.
 
-Sern se acercó esta vez en persona y examinó el borde del panel.
+Sion le preguntó primero a Ater.
 
-Él, más que tocar con la mano,
-era de los que acercan el oído y escuchan los intervalos más mínimos.
+—¿Cómo se llama esto en el Imperio?
 
-Tras un momento, dijo en voz baja.
+—No se llama.
 
-—No es una señal.
+—¿De ninguna manera?
 
-Ater preguntó.
+—El nombre lo decide quien lo pone.
+Lo dijo Ater.
+—En el Imperio, el nombre no lo pone quien lo descubre, sino quien lo aprueba.
 
-—¿Entonces qué es?
+Sion supo que eso era exactamente lo contrario de Hazran.
 
-Sern no respondió enseguida.
+Hazran daba el nombre en el sitio donde descubría. Zahir descubrió a la bebé y allí mismo la llamó Aka, y por eso aquel sitio se convirtió en ciudad. La mano que dio el nombre y la mano que descubrió eran la misma.
 
-—Si fuera una señal, la repetición sería más nítida —dijo.
-—Esto… más que repetición, se parece a algo que se plegó una vez y no se desplegó.
+En el Imperio, quien descubre no tiene ese derecho.
 
-Con esas palabras,
-el pecho de Sion se enfrió de manera mínima por dentro.
+—¿Y entonces cuándo tendrá nombre aquello?
 
-Algo plegado una vez y no desplegado.
+—A la manera del Imperio, nunca.
+Lo dijo Ater.
+—Porque quien tendría que aprobarlo nunca lo ha visto.
 
-Eso, de un modo extraño,
-era una frase que se parecía a todo Hazran.
+Sion le dio vueltas a esa respuesta mucho tiempo.
 
-Entonces Aka se paró de nuevo en aquel sitio.
+Quien lo ha visto no tiene el derecho, y quien tiene el derecho no lo ha visto. Entonces lo que queda en medio no recibe nunca un nombre.
 
-Aka tampoco esta vez tocó primero.
-Ella siempre era así.
-Veía con los ojos,
-escuchaba con los oídos,
-y solo después llevaba la mano.
+Sion fue hacia Seorin.
 
-Esta vez, muy despacio,
-acercó solo la punta de un dedo al panel.
+—¿Por qué solo le dices «aquello»?
 
-Han Jiwoo contuvo la respiración.
+Seorin no respondió enseguida. Después miró a Sion una vez.
 
-Aka no cerró los ojos.
-Más bien, manteniéndolos abiertos hasta el final,
-miraba tal cual aquel temblor mínimo y la veta del metal.
+—Si le pones nombre, te pones a buscarlo.
 
-Y murmuró como si exhalara.
+—¿Y no se puede buscar?
 
-—Se adhirió.
+—Buscar está bien.
+Lo dijo Seorin.
+—Si tiene nombre, tiene precio, y si tiene precio, aparece alguien que viene a quitártelo.
 
-Han Jiwoo preguntó de inmediato.
+A Sion se le alteró un poco la respiración.
 
-—¿Qué cosa?
+Eran palabras de alguien que había vivido mucho tiempo en la zona gris. Ella era de las que habían visto en qué terminan las cosas con nombre.
 
-Aka guardó silencio un momento.
+—¿Entonces va a seguir siendo «aquello»?
 
-Dentro de ese breve silencio,
-Sion volvió a sentir lo que siempre sentía.
-Aka no es de las personas que dicen todo lo que saben.
-Más bien, porque no puede decirlo con demasiada exactitud,
-deja solo las palabras más cortas.
+—Por ahora.
 
-Aka continuó muy lentamente.
+Seorin despegó la espalda de la pared.
 
-—Lo que pasó hasta el final.
+—No nombrarlo también es una manera de protegerlo.
 
-Aquellas palabras se entendían
-y a la vez no se entendían.
+Sion se guardó también esas palabras.
 
-Pero nadie dentro del casco
-dejó pasar aquella frase a la ligera.
+Han Jiwoo no lo nombraba porque no podía anotarlo, y Seorin no lo nombraba porque nombrarlo era peligroso. Ante el mismo sitio, las razones eran opuestas.
 
-Porque sonaba como si lo que en Hazran se había cerrado hasta el final,
-lo que se había entregado hasta el final,
-lo que no se había podido soltar hasta el final,
-estuviera ahora adherido aquí.
+A Kael ni siquiera hacía falta preguntarle. Cuando Sion se acercó, habló él primero.
 
-Sion dio un paso más cerca.
+—Si le pones nombre, cambian las manos.
 
-La dirección se le enganchaba una y otra vez hacia allí.
-Más que un camino,
-se parecía a una veta que permanece primero en un sitio donde un camino podría llegar a formarse.
+—¿Cómo?
 
-—Si se queda de esta manera… —dijo en voz muy baja.
+—Lo que tiene un nombre conocido, la gente lo toca sin cuidado.
 
-Las palabras no llegaron a continuar hasta el final.
+Sion supo que eso era lo mismo que Han Jiwoo había dicho ayer, cuando pidió que nadie se apoyara allí. Una decía que había que tener cuidado porque no se sabía qué era; el otro, que en cuanto se supiera ya nadie tendría cuidado.
 
-Todavía había demasiado que no sabía.
-Qué era lo que había quedado,
-por qué se había adherido aquí,
-si en adelante podría volver a surgir algo así.
+Sion miró a Aka.
 
-Pero al menos una cosa sí podía saberse.
+Aka estaba sentada cerca del suelo. Tenía la cara más pálida que ayer, pero la postura no se le había descompuesto.
 
-Esto no era una avería.
-Tampoco simple chatarra.
-Algún resultado nacido del final de Hazran
-estaba ahora condensado y permanecía dentro de esta nave.
+Sion se sentó a su lado.
 
-Y la nave
-no parecía limitarse a transportarlo,
-sino sostenerlo.
+—¿Puedes ponerle nombre?
 
-Han Jiwoo retiró la mano muy despacio de aquel sitio.
+Aka no respondió.
 
-De la boca de Han Jiwoo salieron unas palabras, casi como un escape.
+Sion no preguntó dos veces. En lugar de eso, miró con ella aquel sitio que ella miraba.
 
-—Es como si el barco recordara.
+Al cabo de un largo rato, Aka habló muy bajo.
 
-Eran unas palabras que, en circunstancias normales, ni ella misma habría dicho.
-Pero ahora
-no le venía ninguna expresión más exacta.
+—Todavía no.
 
-Luhai murmuró por lo bajo.
+—¿Por qué?
 
-—¿Entonces puede volver a aparecer algo así?
+—Si se lo pongo ahora, se acaba con eso.
 
-Nadie respondió enseguida.
+Sion entendió solo a medias lo que quería decir.
 
-Sern no apartaba la mirada,
-Seorin seguía observando cuánto tiempo permanecía aquel aire sin cortarse,
-y Kael cerró despacio el puño sobre el armazón del casco.
+Si le pones nombre, pasa a ser algo conocido. Y cuando es algo conocido, se detiene ahí. Lo de ahora todavía no había decidido en qué se iba a convertir.
 
-Aka, la última, dijo en voz muy baja.
+Pero la otra mitad, la que Sion no había entendido, estaba en otra parte.
 
-—Hay cosas que solo reciben nombre después de terminar.
+Aka era alguien que había recibido un nombre.
 
-No era una explicación.
-Era una frase más cercana a una confirmación.
+El día en que Hazran descubrió a Aka y le dio un nombre fue el día en que aquella ciudad se convirtió en ciudad. Aquella ciudad había empezado dando un nombre, y ayer se cerró.
 
-Sion, al oírlo,
-pensó por primera vez, de forma muy tenue.
+Entonces eso quería decir que la mano que da los nombres ya no estaba en ninguna parte.
 
-Que el camino que había que recorrer en adelante
-quizá no estuviera primero en algún sitio,
-sino que se revelara tarde,
-a medida que estas cosas iban quedando, adhiriéndose y condensándose una a una.
+Sion no le dijo a Aka lo que estaba pensando.
 
-Eso nadie podía decirlo aún con exactitud.
-Pero ese mismo hecho de no saberlo
-se sentía, más bien, como un comienzo más claro.
+Luhai, que lo miraba desde el otro lado, abrió la boca.
 
-Hazran se había cerrado.
-Y las cosas cerradas,
-en lugar de desaparecer,
-quizá permanecieran de esta manera
-y se enlazaran con lo siguiente.
+—En Hazran, lo que no se podía tasar no se vendía.
+
+Sion se volvió.
+
+—¿Y qué hacían si no se podía vender?
+
+—Lo dejábamos a un lado y no le poníamos nombre.
+Lo dijo Luhai.
+—Hasta que alguien supiera ver su precio.
+
+—¿No lo tiraban?
+
+—Si lo tiras, el siguiente que sepa verlo no lo puede ver.
+
+Sion pensó que esa era una manera muy de Hazran. Si no sabes el precio, no dices que no: dices que todavía no.
+
+Han Jiwoo oyó esas palabras.
+
+Se quedó un buen rato mirando la línea en blanco de la lista y no escribió ni una letra. En su lugar, trazó una raya corta al lado de esa línea.
+
+—Lo dejo en blanco.
+Lo dijo ella.
+—Es lo mismo que anotar que todavía no se sabe.
+
+Sion miró esa raya.
+
+Se parecía a la que él mismo había trazado ayer en la plancha de metal.
+
+Ninguna de las dos era un número, ni un nombre. Solo eran una señal de que ahí había algo.
+
+Entonces Sion vio que el suelo había cambiado.
+
+Hasta ayer, la gente de Hazran se sentaba en corro a lo largo de las paredes. Ahora solo estaba vacío el trozo de suelo delante de aquel panel.
+
+Nadie se sentaba allí. Nadie había apartado a nadie ni nadie había dicho nada. Simplemente ese espacio estaba vacío.
+
+Lo de que nadie se apoyara allí lo había dicho Han Jiwoo ayer. Pero aquella gente no se limitaba a no apoyarse: había dejado vacío todo el espacio de delante.
+
+No era algo aprendido; era una manera que ya conocían.
+
+Entre los refugiados, un niño puso el pie en el suelo vacío y la mano de un adulto lo sujetó y lo hizo volver.
+
+La mano que lo sujetó no tenía prisa. No lo había detenido porque fuera peligroso: era una mano que sabía que aquello, ahora, no era un sitio para tocar.
+
+Sion no podía apartar los ojos de esa mano.
+
+Aquella gente no preguntaba por el nombre. Como venían de Hazran, ya sabían cómo se deja estar lo que no tiene nombre.
+
+El casco resonó una vez, bajo, y volvió a asentarse.
+
+Han Jiwoo apartó la mano y habló.
+
+—Hay que seguir mirándolo.
+
+—¿Lo vas a arreglar?
+
+—No. Voy a ver si cambia.
+
+Dobló la lista y se la guardó en el bolsillo. La línea en blanco la dejó como estaba.
+
+Ese día Sion no pudo contar nada.
+
+No pudo contar el tiempo, no pudo contar aquello y no pudo contar cuántos días quedaban por delante.
+
+Pero supo una cosa.
+
+Dejar algo sin nombre también era una manera de dejarlo estar. No era lo mismo que borrarlo diciendo que no existía.
+
+Sion pensó una vez cómo lo llamaría si le pusiera nombre él.
+
+No se le ocurrió nada. Cada cosa que se le ocurría tiraba hacia lo que ya conocía. Avería, huella, lo que quedó. Todas eran palabras más pequeñas que aquello.
+
+Así que Sion tampoco se lo puso.
+
+No porque no tuviera palabras para ponérselo, sino porque le parecía que, si se lo ponía, aquello se encogería hasta el tamaño de esa palabra.
+
+Sion pensó que quizá eso era lo que había querido decir Aka antes.
+
+Hazran se había cerrado, y la mano que daba los nombres se había cerrado con ella.
+
+Por eso aquello seguía ahora ahí, sin ningún nombre, dentro de este barco.
 
 ---
 

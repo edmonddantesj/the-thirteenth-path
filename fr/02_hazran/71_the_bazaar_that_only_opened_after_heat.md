@@ -1,148 +1,197 @@
 # Chapitre 71 — Le bazar qui ne s'ouvrait qu'après la chaleur
 
-Quand le soleil commença à pencher, le marché de récupération sortit un visage tout différent de celui du jour.
+Quand le soleil commença à pencher, le marché de récupération se mit à sortir un visage tout autre que celui du jour.
 
-Sion eut un instant de doute: était-ce vraiment le même endroit?
+Au début, Sion se demanda même un instant si c'était bien le même endroit.
 
-Le jour, Hazran était d'abord chaleur, poudre de métal et éblouissement. Le vent frappait les bords des tentes avant les visages, et les carcasses de coques abandonnées tenaient davantage de la menace que de l'ombre. Mais lorsque le soleil rouge descendit et que la surface brûlante des plaques métalliques se mit à refroidir lentement, tout ce qui n'avait paru que rude pendant la journée prit une autre fonction.
+Le jour, Hazran, c'était d'abord la chaleur, la poudre de métal et l'éblouissement. Le vent fouettait le bord des tentes avant les visages, et les débris d'épaves tenaient plus de la menace que de l'ombre. Mais quand le soleil rouge descendit et que la surface brûlante des plaques de métal se mit lentement à refroidir, tout ce qui n'avait paru que rude pendant la journée commença à jouer un autre rôle.
 
-Les fines lamelles de métal pendues au-dessus des toiles tintaient très légèrement au toucher du vent. Les tissus déchirés qui arrêtaient la chaleur recevaient la lumière du soir et luisaient comme de minces membranes rouges. Ce qui, de jour, ressemblait seulement à des ossatures de coque brisée devenait, à l'heure où l'on glissait vers la nuit, poteau à lanternes, paroi de séparation, marque d'entrée pour les ruelles.
+Le métal qui refroidit fait du bruit. Les plaques dilatées pendant la journée se contractaient, et çà et là, dans les ruelles, claquaient de petits coups secs, tac, tac. Les premiers jours, Sion tournait la tête chaque fois que ce bruit éclatait. Désormais, il ne la tournait plus. À Hazran, les bruits dangereux n'étaient pas aussi réguliers.
 
-Les tas de métal qu'on avait arrachés et transportés sous le soleil se redressaient maintenant comme les os du bazar.
+Avec la chaleur qui s'en allait, le sable posé en fine couche sur toute chose pendant la journée retombait vers le sol. Ce n'est qu'une fois cette pellicule gris-brun descendue que remontaient les toiles peintes en rouge, les éclats de verre, les traces de poignées que quelqu'un avait longtemps frottées.
 
-Sion laissa échapper un souffle presque inaudible.
+Les fines lamelles de métal pendues au-dessus des tentes tintaient très légèrement chaque fois que le vent les touchait, et les toiles isolantes déchirées, au contraire, recevaient la lumière du soir et brillaient comme de minces membranes rouges. Ce qui, le jour, ressemblait seulement à des ossatures de coques brisées devenait, à l'heure où l'on glissait vers la nuit, poteau à lanternes, paroi de séparation, signe marquant l'entrée d'une ruelle.
 
-Hazran était plus belle qu'il ne l'avait cru.
+Des tas de métal arrachés et charriés tout le jour qui, le soir venu, se redressaient comme la charpente du marché.
 
-Pas d'une beauté nette, bien sûr. Il y avait des reprises, une usure dans la texture, une lumière à peine rassemblée entre des choses qui avaient survécu au jour.
+Sion regarda cela et laissa échapper un tout petit souffle.
 
-C'était justement pour cela qu'on avait envie de regarder plus longtemps.
+Ce n'était pas une lumière nette et propre. Il y avait des reprises, un grain usé ; c'était une lumière que les choses ayant survécu à la journée avaient tout juste réussi à rassembler entre elles.
 
-Luhai, comme s'il avait attendu cette réaction, passa devant eux.
+Mais c'était justement pour cela qu'il la regardait plus longtemps.
 
-« Si tu ne vois que le jour, tu perds quelque chose. »
+Luhai, comme s'il n'attendait que cette réaction, prit les devants :
 
-Il souriait.
+« Si on ne voit que le jour, on y perd. »
+Il souriait en le disant.
+« Le vrai bazar n'ouvre qu'une fois que le soleil est un peu mort. »
 
-« Le vrai bazar n'ouvre qu'une fois le soleil un peu mort. »
+Seorin répliqua, juste à côté :
 
-Seorin dit, tout près:
-
-« Tu parles comme si l'endroit était à toi. »
+« À t'entendre, on dirait que c'est toi le patron. »
 
 Luhai haussa les épaules.
 
-« Pas besoin d'en être le propriétaire. On peut juste l'aimer. »
+« Pas besoin d'être le patron pour aimer un endroit, non ? »
 
-Il avait lancé ça légèrement, mais les mots ne sonnaient pas creux.
+Il l'avait lancé à la légère, mais, étrangement, ça ne sonnait pas creux.
 
-Sion les mâcha un moment, puis demanda:
+Sion rumina la phrase, puis finit par demander :
 
-« Qu'est-ce que tu aimes tant? »
+« Qu'est-ce qui te plaît tant ? »
 
-Avant de répondre, Luhai regarda autour de lui. Son visage disait presque: comment peux-tu poser la question?
+Avant de répondre, Luhai jeta un coup d'œil autour de lui. Il avait l'air de se demander pourquoi on posait une question aussi évidente.
 
-« Tout le monde voit ici une décharge. Mais les choses vraiment précieuses se cachent toujours dans ce genre d'endroit. »
+« Tout le monde voit ici une décharge. »
+Il poursuivit :
+« Mais les choses vraiment précieuses se cachent justement dans ce genre d'endroit. »
 
-Il désigna une tente proche. Dans des coupes basses s'empilaient des choses qui pouvaient être des épices ou des herbes sèches. À côté, de petites lampes à huile, fondues à partir d'éclats de verre, retenaient une lumière rouge et bleue. Plus loin, des plaques décoratives martelées dans du métal mangé par la chaleur, un vieux fragment de boussole qui semblait plus cher que l'eau, des pièces de machine qu'un premier regard aurait jetées au rebut mais qu'un oeil averti aurait réévaluées.
+Il désigna du menton une tente proche. À l'intérieur, dans des coupelles peu profondes, s'empilaient par couches des choses qui pouvaient être des épices ou des herbes séchées, et juste à côté, de petites lampes à huile qui semblaient faites d'éclats de verre refondus retenaient une lumière rouge et bleue. Un peu plus au fond se trouvaient des plaques décoratives martelées dans des lamelles de métal cuites par la chaleur, un vieux morceau de boussole, et des pièces de machine qui ressemblaient à de la ferraille au premier regard, mais dont un connaisseur aurait d'abord revu le prix.
 
-Luhai continua:
+Luhai continua :
 
-« Le jour, tout le monde porte juste son visage de survivant. Le soir, les choses montrent un peu leur vrai visage. »
+« Le jour, tout le monde fait juste sa tête de quelqu'un qui tient le coup. Mais le soir, les choses d'ici montrent un peu leur vrai visage. »
 
-Sion regarda de nouveau le marché.
+À ces mots, Sion regarda de nouveau le marché.
 
 C'était vrai.
 
-Le jour, une tente pareille n'était qu'un poste d'échange. Maintenant chaque ruelle avait un rythme caché. Quelque part, un son proche d'un petit instrument à cordes tremblait bas. Ailleurs, un vendeur d'eau faisait claquer de fins gobelets métalliques pour appeler les passants. L'odeur légère de l'encens se mêlait aux fruits secs, au métal qui refroidissait et à la poussière; étrangement, aucune ne chassait tout à fait les autres.
+Le jour, la même tente n'avait l'air que d'un comptoir de commerce. Mais à présent, chaque ruelle avait un rythme caché. Quelque part, un son proche d'un petit instrument à cordes vibrait bas, et l'odeur légère de l'encens, celle des fruits secs, celle du métal qui refroidit et celle de la poussière se mêlaient ; étrangement, aucune n'était tout à fait chassée par les autres.
 
-Ce lieu ne faisait pas semblant d'être beau. Il ressemblait plutôt à un endroit où les choses survivantes récupéraient, le soir venu, un peu de leur propre lumière.
+Ce n'était pas un endroit qui faisait semblant d'être beau. C'était plutôt, semblait-il, un endroit où les choses qui avaient survécu reprenaient, le soir venu, un tout petit peu de leur propre lumière.
 
-Ce jour-là, ils ne se déplaçaient pas tous ensemble.
+Le vendeur d'eau se tenait à l'entrée de la ruelle.
 
-Pour rassembler le nécessaire, il fallait séparer les trajets. Han Jiwoo était encore à l'intérieur avec Aka, à reprendre la liste des matériaux. Kael était parti vers les métaux de coque et les pièces de remplacement. Ater et Sern avaient pris une autre ruelle pour vérifier la ligne de retour, les mouvements de Haroun et jusqu'où la main de Zahir avait, aujourd'hui, remis de l'ordre.
+Il coinçait deux fins gobelets de métal entre ses doigts et les entrechoquait, tac, tac, pour appeler les gens. Le son tenait moins du cri de marchand que de quelque chose qui mesurait le temps. Le bidon derrière lui était vieux, mais le joint du couvercle, lui, avait été changé à neuf, et sur le flanc du bidon, des graduations avaient été tracées à la main. Des traits qui disaient jusqu'où il avait vendu aujourd'hui, et à partir d'où il ne vendrait plus.
 
-Dans cette allée, il ne restait donc que Sion, Seorin et Luhai, qui s'était greffé à eux avec un naturel parfait.
+Luhai prit un gobelet avec l'aisance de l'habitude.
 
-Seorin dit bas:
+« C'est combien, aujourd'hui ? »
 
-« Pourquoi tu restes collé comme ça? »
+Le vendeur d'eau annonça son prix. Luhai fit aussitôt la grimace.
 
-Luhai sourit.
+« C'est plus cher qu'hier. »
 
-« À ce stade, marcher seul serait encore plus louche. »
+« Hier, il n'y avait pas de vent. »
 
-« Tu étais louche depuis le début. »
+À cette réponse, Sion s'arrêta un instant. Si le prix avait monté, la raison n'en était pas un homme, mais le vent. Quand le vent soufflait, le sable entrait dans le joint du bidon, et quand on changeait le joint, son coût s'ajoutait au prix. Ici, le temps qu'il faisait venait s'asseoir en personne au milieu du marchandage.
 
-« D'accord, ça je reconnais. »
+Seorin, à côté, lança brièvement :
 
-Sion les écouta et eut un bref sourire.
+« Deux gobelets. »
 
-Luhai, comme s'il avait aussi calculé cette réaction, reprit la tête avec plus d'entrain.
+Le vendeur d'eau annonça de nouveau son prix, et Seorin en retrancha exactement un cran. Ni plus ni moins. Le vendeur d'eau eut un rire bref.
 
-« Par ici. De dehors ça n'a l'air de rien, mais les vraies ruelles sont dedans. »
+« T'es pas nouvelle à Hazran. »
 
-L'allée où il les mena aurait pu passer, de jour, pour un simple passage derrière des tentes repliées. Pourtant, après quelques pas, un bazar plus profond et plus silencieux se révéla.
+« Si, c'est la première fois. »
+Seorin enchaîna :
+« Les bidons, par contre, je connais. »
 
-Au-dessus d'eux, tissus fins et filets métalliques se chevauchaient et couvraient à moitié le ciel. La lumière rouge qui filtrait entre eux se mêlait aux petites lanternes et tachait le sol. De part et d'autre, de petites boutiques rafistolées de toile et de panneaux métalliques serraient l'eau, l'encens, le verre, les plantes, les pièces, les bijoux et de vieilles plaques gravées dans un même désordre.
+Le vendeur d'eau ne répliqua rien. Il remplit plutôt le gobelet. Un gobelet ébréché. Un côté du bord avait sauté depuis longtemps, si bien qu'il fallait poser les lèvres de l'autre côté pour boire.
 
-Sion en oublia un instant de parler.
+Sion prit le gobelet et comprit seulement alors à quel point il était desséché ce jour-là. L'eau était tiède et avait un goût de fer. Pourtant, le temps qu'elle passe dans sa gorge, il ne pensa à rien d'autre.
 
-C'était le même marché que celui du jour, et en même temps un autre lieu.
+« Ici, c'est l'eau la plus honnête. »
+Luhai le dit en vidant son gobelet.
+« On peut pas tricher avec. Dès qu'on boit, on sait. »
+
+En rendant son gobelet vide, Sion garda longtemps ces mots avec lui.
+
+Dans une ville qui met un prix sur tout, il y avait une chose dont on ne pouvait pas truquer le prix.
+
+Au moment où il se retournait, un geste familier, de l'autre côté de la ruelle, accrocha son regard.
+
+Une femme tirait le bras d'un enfant pour le ramener derrière elle. Ce n'était pas tirer : c'était presque une main qui le repliait contre elle. Sion connaissait cette main. Le premier jour, à leur arrivée à Hazran, quand l'enfant avait regardé les étrangers, sa mère l'avait attrapé par le bras et poussé derrière son dos : c'était cette main-là. Ce jour-là, la mère avait dit à l'enfant : « Ne regarde pas. Si tu te fais embarquer à force de dévisager les étrangers, c'est ton prix à toi qui baissera en premier. »
+
+Aujourd'hui, cette main arriva un peu en retard.
+
+L'enfant vit Sion le premier, et cette fois, il ne détourna pas aussitôt les yeux. Il ne recula d'un demi-pas qu'une fois la main de sa mère posée sur son bras, et même alors, sa tête resta tournée de ce côté.
+
+Sion ne leva pas la main. S'il le saluait, le prix de cet enfant risquait vraiment de baisser.
+
+À la place, il croisa son regard un tout petit instant, et passa.
+
+« Tu le connais ? »
+La question venait de Luhai.
+
+« Non. »
+Sion ajouta :
+« Mais je l'ai vu le premier jour. »
+
+« Alors tu le connais. »
+
+Sion ne répliqua pas. Il ne savait pas trop si c'était connaître. Il savait seulement que, dans cette ville, il commençait à voir deux fois les mêmes personnes. À son arrivée, tout formait une seule masse. Maintenant, les visages s'en détachaient un à un.
+
+« Par ici. »
+Luhai poursuivit :
+« De dehors, ça n'a l'air de rien, mais c'est la ruelle du fond qui compte. »
+
+La ruelle où il les mena, s'ils l'avaient croisée de jour, ils l'auraient prise pour un simple passage derrière des tentes repliées. Mais quelques pas plus loin, un bazar bien plus profond et plus calme que celui du dehors se cachait.
+
+Au-dessus, des toiles fines et des filets de métal se chevauchaient et masquaient à moitié le ciel ; la lumière rouge qui tombait entre eux se mêlait à celle des petites lanternes et tachetait le sol de la ruelle. De part et d'autre s'alignaient de petites boutiques rapiécées de bouts de tissu et de panneaux métalliques, et entre elles se mélangeaient l'eau, l'encens, le verre, les remèdes, les pièces, les bijoux et de vieilles plaques gravées.
+
+Devant ce spectacle, Sion en oublia un instant de parler.
+
+C'était le même marché de récupération que celui du jour, et pourtant un tout autre endroit.
 
 Luhai haussa les épaules.
 
-« Tu vois. Je ne me vante pas pour rien. »
+« Tu vois. Je me vante pas pour rien. »
 
-Seorin lui lança un regard.
+Seorin lui jeta un coup d'œil.
 
-« Tu parles fort pour quelqu'un qui n'est là que depuis un jour. »
+« Tu causes fort, pour quelqu'un qui n'est là que depuis un jour. »
 
-Cette fois, Luhai ne sourit pas tout de suite.
+Cette fois, Luhai ne rit pas tout de suite. Il parla plutôt un peu plus calmement.
 
-« Justement. Il y a des choses qu'on voit mieux quand on n'a qu'un jour. Les gens du dehors ne voient ici que saleté, bruit et danger. Mais même là-dedans, il y a des choses qu'on n'a pas jetées. Des choses qu'on a gardées jusqu'au bout. »
+« Il y a des choses qu'on voit mieux justement parce que ça ne fait qu'un jour. »
+Il continua :
+« Les gens du dehors voient tous cet endroit comme un trou sale, bruyant et dangereux. Mais même dans un endroit pareil, il y a des choses qu'on n'a pas jetées, qu'on a gardées jusqu'au bout, non ? »
 
-Il regarda une tente au bout de la ruelle, où des éclats de verre à moitié brisés pendaient comme des flammes.
+Il regarda, au bout de la ruelle, une tente où des éclats de verre à moitié brisés étaient suspendus comme des bougies.
 
-« J'aime ces endroits-là. »
+« Moi, j'aime ce genre d'endroit. »
 
-C'était plus sincère que prévu.
+C'était bien plus sincère qu'on ne s'y attendait.
 
-Sion comprit alors un peu pourquoi Luhai était fier de Hazran. La ville n'avait rien de régulier. Mais pour retrouver une vraie valeur parmi ce qui avait été abandonné, elle était peut-être plus honnête que n'importe quel autre endroit.
+En l'entendant, Sion crut comprendre un peu pourquoi Luhai était si fier de cet endroit.
 
-Seorin avait entendu. Cette fois, elle ne se moqua pas.
+Hazran n'était pas un endroit bien droit. Mais pour retrouver la vraie valeur au milieu de ce qu'on avait abandonné, c'était peut-être un endroit plus honnête que n'importe quel autre.
 
-« Ça vaut bien qu'on s'en vante. »
+Seorin aussi avait entendu, mais cette fois, elle ne se moqua pas aussitôt. Elle dit plutôt à voix basse :
 
-Luhai ouvrit un peu les yeux, puis sourit.
+« C'est vrai que ça vaut la peine de s'en vanter. »
 
-« Entendre ça de ta bouche, ça vaut cher. »
+À ces mots, Luhai ouvrit un peu plus grand les yeux, puis sourit très vite.
 
-« Ne le garde pas trop longtemps. »
+« Oh, venant de ta bouche, ça vaut cher. »
 
-« Dur. »
+« Ne t'en souviens pas trop longtemps. »
 
-Sion les regarda échanger ainsi et sentit soudain que ce moment resterait plus longtemps que prévu.
+« T'es dure. »
 
-La lumière rouge avant que la chaleur ne meure tout à fait. Les lanternes sous les toiles rapiécées. Les ruelles où les choses survivantes reprenaient peu à peu leur visage. Luhai qui les montrait comme une fierté.
+À les regarder se renvoyer la balle ainsi, Sion eut soudain le pressentiment que ce moment lui resterait plus longtemps qu'il ne le pensait.
 
-Avant de partir, c'était une scène que seul quelqu'un ayant vraiment regardé Hazran, et non simplement traversé Hazran, pouvait emporter.
+La lumière rouge d'avant que le soleil ait tout à fait disparu, les lanternes sous les tentes rapiécées, un gobelet d'eau tiède dont on ne pouvait pas truquer le prix, les yeux d'un enfant croisé pour la deuxième fois, des ruelles où les choses qui avaient survécu retrouvaient peu à peu leur visage le soir venu, et Luhai qui montrait tout cela comme une fierté.
 
-Au milieu de tout cela, Sion entendit un pas très proche du sien.
+Ceux qui ne faisaient que passer ici ne pouvaient pas emporter cela. Sion y pensa en regardant encore une fois.
 
-Seorin.
+Et au milieu de tout cela, Sion entendit un pas, tout près, à côté du sien.
 
-Une distance qu'il connaissait depuis toujours. Ce soir pourtant, elle était plus nette que sous la lumière du jour.
+C'était Seorin.
 
-Une distance si familière qu'il l'avait souvent laissée passer sans y penser. Sous les lanternes, cette familiarité semblait pouvoir recevoir un nom de plus.
+Une distance qu'il avait toujours connue. Mais ce soir, étrangement, il la sentait plus nettement qu'en plein jour.
+
+Une distance qu'il avait toujours laissée passer sans y penser, parce qu'elle lui était familière. Mais sous la lumière du soir, une distance dont la familiarité même semblait pouvoir recevoir un nom de plus.
 
 Sion regarda droit devant lui sans raison.
 
 Seorin ne dit rien.
 
-Au bout de la ruelle, la lumière tremblante d'une petite lampe de verre effleura son profil.
+À la place, la lueur d'une petite lampe de verre qui tremblait au bout de la ruelle effleura un instant son profil, et passa.
 
-Sion la vit, et ne détourna pas tout de suite les yeux.
+Sion le vit, et ne put pas tout de suite détourner les yeux.
 
 ---
 

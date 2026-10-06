@@ -99,7 +99,7 @@ Le corps de l'enfant se raidit un instant.
 Mais alors,
 Ater dit très bas :
 
-« Ne regarde pas. Viens. »
+« Ne regardez pas. Venez. »
 
 Ces mots, étrangement, portèrent.
 
@@ -191,7 +191,7 @@ Mais c'était précisément pour cela que c'était pire.
 
 Serakion avait toujours fait ainsi.
 Avant de se révéler pleinement,
-il commençait d'abord par se fermer en silence.
+ce monde commençait d'abord par se fermer en silence.
 
 Dès qu'il entendit ce son, Kael dit :
 

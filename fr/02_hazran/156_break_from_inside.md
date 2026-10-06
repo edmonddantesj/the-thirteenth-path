@@ -67,7 +67,7 @@ Jiwoo murmura très bas.
 
 Ater demanda sans déplacer son regard.
 
-« Tu en es sûr ? »
+« Vous en êtes sûre ? »
 
 Jiwoo répondit.
 
@@ -143,7 +143,7 @@ On aurait pu n'y voir qu'une erreur insignifiante.
 Un instant si fugace
 qu'il aurait pu passer pour un simple tic.
 
-Mais dès que Jiwoo le vit, il retint son souffle,
+Mais dès que Jiwoo le vit, elle retint son souffle,
 et Kael dit en même temps, à voix basse :
 
 « Maintenant. »

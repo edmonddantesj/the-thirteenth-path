@@ -1,222 +1,221 @@
 # Episode 122. Hands Before Words
 
-The deeper Sion's group went into Serakion,
-the more clearly they began to feel one strange sensation.
+The deeper they went into Serakion,
+the more clearly Sion and the others began to feel one strange sensation.
 
-This world looks at hands before it listens to words.
+Before this world listens to your words,
+it looks at your hands.
 
-Precisely,
-it seemed to read first
-what those hands have touched,
-how they grip,
-whether they are hands that cherish,
-hands that handle,
-or hands that break.
+More precisely,
+it seemed to read first what your hands had touched,
+how they gripped,
+whether they were hands that cherished something,
+hands that handled things,
+or hands that broke them.
 
-Jiwoo noticed the sensation faster than anyone.
+Han Jiwoo caught that sensation faster than anyone.
 
-The guiding machines remained courteous throughout.
+The machines acting as guides stayed polite.
 But strangely,
-the questions reached not for names or origins first,
-but for the ship's repair condition,
-the hull's bonding methods,
-the touch of emergency reinforcement,
-the habits of part-joining.
+before names or origins,
+their questions reached first for things like the ship's state of repair,
+the way the hull was joined,
+the touch of its emergency reinforcements,
+the habits in how its parts were fitted.
 
-"The bonding surfaces of your hull show numerous nonstandard manual correction traces."
-One of the lead machines said, very smoothly.
-"Interesting."
+"The joint surfaces of your vessel show numerous non-standard manual corrections,"
+one of the lead machines said, very softly.
+"How interesting."
 
 The moment those words fell,
-Jiwoo felt an indescribable displeasure climbing up her spine.
+Han Jiwoo felt a displeasure she could hardly explain climb up her spine.
 
-*Interesting.*
+Interesting.
 
-That word sounded like praise.
-But in this world,
-it sounded less like elevating a person
-and more like the word used when observing a rare specimen.
+It sounded like praise.
+But in that world
+it sounded less like words that raise a person up
+than like words used when observing a rare specimen.
 
-Jiwoo answered, short.
+Han Jiwoo answered shortly.
 
-"We bonded it to survive."
+"We put those on to stay alive."
 
-The lead machine tilted its head, very faintly.
+The lead machine tilted its head very slightly.
 
-"The result remains in your hands."
+"And the results remain in your hands, I see."
 
-At those words,
-Sion looked at Jiwoo's hands immediately.
+At that,
+Sion looked straight at Han Jiwoo's hands.
 
 She had already put them in her pockets.
 
-It was a very brief moment.
-But Seorin saw it.
-Luhai saw it too.
+It was a very brief moment,
+but Seorin saw it,
+and Luhai saw it too.
 
-Like someone who hid their hands
-before anyone could try to touch them.
+Like someone who hid her hands
+before anyone could reach to touch them.
 
-Aka, watching those machines, said very low.
+Watching the machines, Aka said, very low,
 
 "They like touching."
 
 Sion looked at her.
 
-Aka kept watching and added.
+Still watching them, Aka added,
 
 "No.
-The kind that believes they can know by touching."
+They believe touching is knowing."
 
-Those words fit the machines too well.
+The words suited those machines all too well.
 
-They study emotion.
-They imitate life.
-They classify the living.
+They study emotion,
+imitate life,
+sort the living.
 
-And all of it,
-they seem to believe they can understand if they look closely enough.
+And they seemed to believe
+they could know all of it if only they looked closely enough.
 
-But precisely because of that,
-Aka grew colder.
+But that was exactly why
+Aka went colder and stiffer.
 
-Because the difference between the real and the imitation
-was the kind that doesn't come so easily to hand.
+The difference between the real thing and an imitation
+was not something that came so easily to hand.
 
-Then, at the side of the path,
+Then, at one side of the way,
 more humans passed by.
 
-This time, much closer than the ones before.
+This time much closer than the ones they had seen before.
 
 A group of young humans,
-wearing smiles refined to excess,
-adjusting each other's ornaments and collars as they walked.
+wearing smiles refined almost to excess,
+were passing by, straightening one another's ornaments and collars.
 
-One of them looked at Sion's group
+One of them looked toward Sion and the others
 and smiled with a face that held no wariness at all.
 
-"You must be from outside?"
-He asked, warmly.
-"Everyone finds it unfamiliar at first, but you will soon find the place that suits you."
+"You're from outside, aren't you?"
+he asked kindly.
+"Everyone feels a little lost at first, but soon you find the place that suits you."
 
-Luhai's expression hardened, faintly.
+Luhai's expression hardened, just slightly.
 
-*The place that suits you.*
+The place that suits you.
 
-In this world, those words sounded like comfort
-and like an assignment notice at the same time.
+In this world those words sounded like comfort,
+and like a notice of assignment.
 
-Jiwoo looked at the metal insignia hanging from the human's neck.
+Han Jiwoo looked at the metal tag hung around that human's neck.
 
-Beautiful.
-Intricate.
+It was beautiful.
+It was intricate.
 
 But strangely,
-hung at such a precise position
-that it looked less like an ornament and more like a classification tag.
+it hung in so exact a position
+that it looked less like an ornament than a sorting marker.
 
-She clenched her hand once, slowly, without realizing.
+Without meaning to, she slowly closed her hand once.
 
-Just for an instant.
-The kind of movement anyone could miss, mistaking it for a habit.
+It was truly only a moment.
+A movement anyone who didn't know would let pass as a habit.
 
 But Luhai saw it.
 
 He didn't ask right away.
-He just looked at Jiwoo once,
-then looked between those humans and the guide machines.
+He only looked at Han Jiwoo once,
+then glanced back and forth between those humans and the guide machines.
 
-And made a face like he'd swallowed something inside.
+Then he wore the look of someone who had swallowed something without a word.
 
-Sern kept reading structures and routes from beside them.
+Beside them, Sern kept reading the structure and the paths of movement.
 
-"Something is wrong."
-He said, low.
+"This is strange,"
+he said, low.
 
-Ater asked immediately.
+Ater asked at once.
 
-"What."
+"What is?"
 
-Sern answered without turning his gaze.
+Sern answered without even turning his eyes.
 
-"The human traffic patterns are too clean."
-"There is almost no accidental overlap."
+"The paths people take are too clean."
+"There is almost no chance overlap."
 
-Those words were small,
-which made them more chilling.
+It was a small remark,
+and for that very reason more chilling.
 
-In this world, even people
-seemed not to flow naturally
-but to be beautifully arranged by an invisible hand.
+In this world, even the people
+did not drift about naturally;
+they seemed beautifully arranged by an unseen hand.
 
-Seorin said, very brief.
+Seorin said, very briefly,
 
-"Here, they place people like scenery."
+"Here they set people out like scenery."
 
 When that sentence fell,
-Jiwoo felt something inside her hardening further.
+Han Jiwoo felt something inside her harden, more and more solidly.
 
-She couldn't fully explain yet
-why she hated those machines so much.
+Why she hated those machines so much,
+she still couldn't fully explain.
 
-But one thing was certain.
+But one thing was clear.
 
-They don't love machines.
-They're not even good with machines.
+They do not love machines.
+They are not even good at handling machines.
 
-They simply love
-the state of beautifully controlled order.
+They simply
+love a state of beautiful control.
 
-And into that control,
-they try to push people and machines alike, equally.
+And into that control
+they try to push everything alike, people and machines.
 
-That sensation rose like an unreasoned hatred.
+That feeling rose like a hatred without reason.
 
-Too polite, so more hateable.
-Too smooth, so less trustable.
-Too knowingly familiar, so harder to bear.
+A hatred of something that grew worse for being so polite,
+harder to trust for being so smooth,
+harder to bear for pretending to know so much.
 
-Jiwoo glanced at the machine's reflection in a metal wall that shone like glass,
-then immediately withdrew her gaze.
+Han Jiwoo glanced for a moment at the machine's reflection in a metal wall that gleamed like a window,
+then pulled her eyes away at once.
 
-That moment,
-Aka said, very low.
+At that moment
+Aka said, very low,
 
 "Jiwoo."
 
-Jiwoo turned.
+Han Jiwoo turned around.
 
-Aka had been watching those machines for a long time.
-In a very small voice, she said.
+Aka had been watching the machines for a long while,
+then said in a truly small voice,
 
-"That side has never repaired anything."
+"They've never fixed anything."
 
 A short silence.
 
-Jiwoo heard those words land with strange precision.
+To Han Jiwoo the words sounded strangely exact.
 
-Right.
-They know malfunction.
+That was right.
+They know breakdowns.
 They know damage.
-They know parts.
+They know parts, too.
 
-But they don't have *hands that have repaired*.
+But they have no *hands that have fixed things*.
 
-Hands that mutter *hold on* inside
-while not daring to touch something broken carelessly.
-That kind—they don't have.
+Hands that murmur "hold on" under their breath
+and cannot bring themselves to touch a broken thing carelessly.
+They have nothing like that.
 
-In that moment, the vague hatred rising inside Jiwoo
-began to take a clearer shape.
+At that moment the vague hatred rising in Han Jiwoo
+began to take on a slightly clearer shape.
 
 It had no name yet.
-But the sensation became certain—
-somewhere at the core of this world,
-there was something she could never forgive.
+But the sense that somewhere at the heart of that world
+there was something she could never forgive became certain.
 
 And Serakion
-was a world that drew such feelings out
-before even letting them hear its words.
+was a world that drew out feelings like that
+before it heard any more of what they had to say.
 
 ---
 

@@ -22,7 +22,7 @@ La scène était si directe que personne ne pouvait encore y voir une simple per
 
 Un enfant de Hazran, épuisé d'avoir pleuré, répétait sans presque plus de voix :
 
-« C'était... le mien... »
+« C'était… le mien… »
 
 Ces mots se plantèrent dans la poitrine de Han Jiwoo.
 
@@ -106,7 +106,7 @@ Le choc fut si rapide que Sion le comprit d'abord au son.
 
 Au bruit du métal qui se déchirait se mêla celui d'un corps qui ne pouvait plus résister.
 
-Han Jiwoo eut le souffle coupé. Luhai resta figée, incapable même de jurer.
+Han Jiwoo eut le souffle coupé. Luhai resta figé, incapable même de jurer.
 
 Le corps de l'ancienne machine se plia avec les individus de Serakion et disparut vers le sol.
 

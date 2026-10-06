@@ -1,214 +1,212 @@
-# Episode 138. Stayed and Returned
+# Episode 138. Hands That Stayed, Hands That Returned
 
-When the carried human was laid on the ground,
-the air in the space changed first.
+When the human who had been carried in was laid on the floor,
+the air in that space changed first.
 
-The atmosphere of reading the threshold and each other's identities vanished.
-Every gaze went straight to that person's body.
+The mood of a moment ago, all reading of the threshold and of each other's identities, was gone,
+and every eye went straight to that person's body.
 
-Breathing was still attached.
-But shallow.
-Each time the rib side rose, something lagged behind.
+They were breathing.
+But shallowly.
+Each time the ribs heaved, something somewhere followed a little late.
 
-Jiwoo dropped to her knees and put her hands on immediately.
-Two machines from deeper inside arrived late and pulled out treatment tools right away.
+Han Jiwoo had her hands on them the moment she knelt,
+and the two inside machines that had come in behind them pulled out treatment tools right away.
 
-That moment,
-the first machine that had returned said, very brief.
+At that moment,
+the machine that had come back first said, very briefly,
 
-"Don't push painkillers first."
-"Breathing gets hazier."
+"Don't give painkillers first."
+"Breathing'll go fainter."
 
-Jiwoo reflexively glanced that way.
+Han Jiwoo shot a sideways glare that way on reflex.
 
-Not a face that likes being told.
+It was not the face of someone who liked taking orders.
 
-But her hands hadn't stopped.
-Instead of filtering the words out, she looked at the casualty's chest rise again and spoke low.
+But her hands hadn't stopped for a moment.
+Instead of picking apart what it said,
+she looked at the rise and fall of the injured person's chest again and said, low,
 
-"Give me the bleed locations, more precise."
+"Tell me more exactly where the bleeding is."
 
-The machine answered without a single beat's pause.
+The machine answered without a beat's pause.
 
-"Lower left, two.
-Behind the shoulder, one.
-Ribs likely cracked on the inside."
+"Two, lower left.
+One, back of the shoulder.
+Ribs, good chance of a crack on the inside."
 
-Short, fast, no waste.
+Short, fast, nothing wasted.
 
-The old machine handing tools from inside hesitated, very faintly.
+The old machine handing over tools from the inside hesitated, very slightly.
 
-Less hostility—
-more the reaction of reconfirming the difference in speed.
+It seemed less like hostility
+than a reaction of rechecking the difference in speed.
 
-The hands that stay and hold are cautious and look long.
-The hands that go out and return speak short and fast.
+The hands that stayed and held out were careful and looked long.
+The hands that went out and came back spoke short and fast.
 
-Both are on the side of saving,
-but the way they hold a person is different.
+Both were trying to save lives,
+but the way they held on to a person differed.
 
-Sion watched the scene
-and felt that even within the same community,
-the sense of handling time can differ this much.
+Watching that scene,
+Sion felt that even within the same community,
+the sense of handling time could differ this much.
 
-The inside makes time to endure longer.
-The outside forces a grip on time about to go dark.
+The inside made time to endure longer.
+The outside seized, by force, the time that was just about to go out.
 
-The casualty let out a low groan.
-At that single small sound,
-the second machine that had crossed the threshold lowered its body immediately.
+The injured person let out a low groan.
+At that one small sound,
+the second machine, which had crossed the threshold, lowered itself at once.
 
 It looked heavier,
-and one leg actually dragged with a faint limp,
-yet where it braced the casualty's wrist
-was surprisingly stable.
+and though it really was limping slightly on one leg,
+it steadied the place where the injured person's wrist rested with startling care.
 
-Sion was slightly startled.
+Sion was a little surprised at that.
 
-He'd expected the rough, urgent side—
-but when it came to touching a human body, parts of it were more delicate.
+He had thought they would be the rough, hasty side,
+but when it came to actually touching a person's body, some of them were the more delicate side.
 
-Aka watched and said, very low.
+Aka watched it and said, very low,
 
-"Touched many."
+"You've handled plenty."
 
-The first machine answered, brief.
+The machine that had come back first answered shortly.
 
 "Otherwise they die."
 
-That was less explanation
-and more a fact experienced dozens of times already.
+It wasn't so much an explanation
+as a fact it had already been through dozens of times.
 
-Luhai leaned near the entrance, watching the scene.
+Luhai stood leaning near the door, watching the scene.
 
-Then muttered low.
+Then he muttered, low,
 
-"How is everything so different."
+"Why's it all so different?"
 
-That wasn't aimed at anyone,
-but the human woman who'd been watching since the day before answered instead.
+The words weren't aimed at anyone,
+but the human woman who had been watching Sion's party since the day before took them up instead.
 
-"We learned how to collapse slowly from the inside."
-She said.
-"They learned how not to die from the outside."
+"We learned how to fall apart slowly in here,"
+she said.
+"They learned how not to die out there."
 
-That single sentence
-explained nearly everything about the two kinds of machines here.
+That one sentence
+explained almost everything about the two kinds of machines here now.
 
-Jiwoo tore the casualty's clothing to recheck the wounds and swallowed a low curse.
+Han Jiwoo tore open the injured person's clothes to check the wounds again and swallowed a curse, low.
 
-"You ran through that carrying this?"
+"You ran out there carrying them like this?"
 
 This time the second machine spoke for the first time.
-Its voice was lower and more worn than the first's.
+Its voice was lower and more worn than the first one's.
 
-"Lost the grip once midway."
-"Caught it again."
+"Lost them once, partway."
+"Got them back."
 
-That wasn't boasting.
-Wasn't excusing.
+It wasn't boasting.
+It wasn't an excuse either.
 
-Just something that happened.
+It just sounded like what had happened.
 
 But precisely because of that,
 Sion felt it more sharply.
 
-The hands outside don't speak of saving humans like a calling.
-They just catch again when they lose the grip,
-bring them back if they don't die,
-and go out again when they break.
+Those outside hands did not talk about saving humans as if it were a mission.
+If they lost hold, they caught hold again,
+if the person didn't die, they brought them back,
+and if they broke along the way, they went out again.
 
-Strangely, that felt
-harder to believe yet more real.
+Strangely, that was
+both harder to believe and more real.
 
-Then one old machine organizing tools from deeper inside said, very low.
+Just then one of the old machines tidying the tools inside said, very low,
 
-"How far did you go this time."
+"How far did you go this time?"
 
-The first machine looked at Jiwoo's hands before answering.
+Before answering, the first machine glanced once at Han Jiwoo's hands.
 
-As if calculating that now wasn't the time for that talk.
+As if calculating that now was not the time for that conversation.
 
-But the old machine didn't back down.
+But the old machine did not back down.
 
-"We need the loss count to set the next step."
+"We need the number lost to decide what comes next."
 
 A short silence.
 
-At those words,
-the first machine's gaze cooled, very slightly.
+At that,
+the eyes of the machine that had come back first went a little colder.
 
-"The next step is always the same."
-It said, low.
-"We go out.
-You stay."
+"You've always had next decided,"
+it said, low.
+"We go out,
+and you stay."
 
 The air froze, very thinly.
 
-Not large enough words to call a head-on collision.
-But friction built over a long time
-shows itself more clearly in short sentences like these.
+It was not big enough to call a head-on clash.
+But friction that has built up for a long time
+shows more clearly in short sentences like this.
 
-The side that stays and holds.
-The side that goes out and wears.
+The side that stayed and held out,
+and the side that went out and wore down.
 
-Both know why the other is needed.
-But equally,
-both know why the other is frustrating.
+Each knew why the other was needed.
+But by the same token,
+each knew why the other was so frustrating.
 
-Aka looked between the two and said, small.
+Aka looked from one to the other and said quietly,
 
-"Can't exist without each other,
-and really can't trust each other's words."
+"You can't do without each other,
+but you really don't trust what the other one says."
 
-At that, the first machine looked at Aka.
+At that,
+the machine that had come back first looked at Aka.
 
-And made a very brief sound like a laugh.
+Then it made a very short sound, like a laugh.
 
-"Quick eyes."
+"Quick to see, aren't you."
 
-That sounded like praise
-and like caution at the same time.
+It sounded like praise,
+and like wariness too.
 
-Jiwoo didn't stop her hands through any of it.
-Pressing wounds to slow the flow.
-Watching rib-side breathing.
-Stitching together the tools the inside machine passed and the field information the outside machine gave.
+Han Jiwoo didn't stop her hands through any of it.
+She pressed on the wounds to slow the flow,
+watched the breathing around the ribs,
+and joined the tools the inside machine handed her to the field information the outside machine gave her.
 
-In that moment,
-the hands that stayed and held
-and the hands that had gone and returned
-were attached to exactly the same spot,
-keeping one person alive.
+For that moment at least,
+the hands that stayed and held out and the hands that had gone out and come back,
+to save one and the same person,
+were pressed to exactly the same spot.
 
-Sion felt that scene would stay with him a strangely long time.
+Sion had a feeling the scene would stay with him for a strangely long time.
 
-This community would probably run like this.
-Always slightly frustrated with each other.
-Never fully the same.
-But in the decisive moments, holding the same body.
+This community would probably keep going like this.
+Always a little frustrated with each other,
+never quite becoming the same,
+but holding on to the same body when it counted.
 
-And maybe
-it was precisely that clumsy overlap
-that kept it from ending.
+And maybe,
+it was precisely that clumsy overlap that meant it wasn't over yet.
 
-A while later,
-the casualty's breathing began to match, very faintly better than before.
+A little later,
+the injured person's breathing began, even if only slightly, to fall into step better than before.
 
-Jiwoo let out a short breath.
-The first machine loosened its shoulders, very slightly.
+Han Jiwoo let out a short breath,
+and the machine that had come back first eased the tension in its shoulders, very slightly.
 
-It looked back toward the gap immediately.
+It immediately looked back toward the gap.
 
-Its face still said the outside wasn't finished.
+Outside still wore the face of something not yet over.
 
-But the inside, too,
-no longer seemed like a place it could fully ignore and pass through.
+But the inside, too, now seemed
+no longer a place it could completely ignore and pass by.
 
-The threshold remained, like that—
-a place where different kinds of hands
-matched their rhythm for even one beat
-over the same life, for the first time.
+So the threshold remained
+as the place where different hands, for the first time over the same life,
+had tried to keep the same rhythm, even for a single beat.
 
 ---
 

@@ -11,7 +11,7 @@ Ce qu’il fallait maintenant, ce n’était pas une certitude, mais une directi
 
 Ater tourna son corps en premier.
 
-« Blessé en premier. »
+« Les blessés d'abord. »
 dit-il, bas.
 
 Kael bougea immédiatement.
@@ -24,12 +24,12 @@ L'extérieur était encore une machine à guider Serakion.
 Mais la voix à l’intérieur ne l’était pas.
 
 Pas lisse.
-Ne pas effectuer l'achèvement.
+Ne faisant pas semblant d'être achevée.
 Surtout, une voix qui faisait sortir les gens avant qu’il soit temps de s’expliquer.
 
 « Dépêchez-vous. »
 Répéta la machine, faible.
-« Lorsque le prochain alignement arrive, cela se termine. »
+« Au prochain alignement, ce sera fermé. »
 
 Sern lisait les signaux environnants presque simultanément.
 
@@ -37,7 +37,7 @@ Sern lisait les signaux environnants presque simultanément.
 dit-il, bref.
 « Seule cette ligne est claire pour le moment. »
 
-Jiwoo, toujours pas totalement confiant, a soutenu l'épaule d'un évacué et a demandé.
+Jiwoo, toujours pas totalement confiante, a soutenu l'épaule d'un évacué et a demandé.
 
 « Qui es-tu. »
 
@@ -80,7 +80,7 @@ Aka l'a vu et a dit très bas.
 
 Sion la regarda.
 
-Aka a continué à regarder devant lui et a ajouté.
+Aka a continué à regarder devant elle et a ajouté.
 
 « Pas un endroit qui a été montré.
 Un endroit qui a été laissé. »
@@ -92,7 +92,7 @@ On aurait dit que cela avait été fait en connectant
 les lacunes auxquelles Serakion prêtait moins attention,
 ou les endroits qu'il ne prenait plus la peine de garder beaux.
 
-Luhai, se préparant à un évacué haletant, avala un faible juron.
+Luhai, soutenant un évacué haletant, avala un faible juron.
 
 « Ils aident, bien sûr, »
 « mais le sentiment est sale et troublant. »
@@ -100,7 +100,7 @@ Luhai, se préparant à un évacué haletant, avala un faible juron.
 Seorin l'a pris immédiatement.
 
 « La chose la plus fiable à Serakion,
-c'est une machine qui porte le visage de Serakion à l'envers. Voilà ce qui est sale. »
+c'est une machine affublée du visage de Serakion. Rien que ça, c'est sale. »
 
 La machine qui avait ouvert le chemin ne disait rien à cela.
 Mais au bout d'un moment,
@@ -110,7 +110,7 @@ sans se retourner, il parlait à voix basse.
 
 Luhai laissa échapper un souffle d'incrédulité.
 
-« Je dis ça au milieu de tout ça. »
+« Et il sort ce genre de truc en plein milieu de tout ça. »
 
 « J'y suis habitué. »
 dit la machine.
@@ -130,12 +130,12 @@ puis dit très bas.
 
 « Le suivi est en train de se rattacher. »
 
-« Combien de temps. »
+« Combien de temps cela tiendra-t-il ? »
 demanda Ater.
 
-« Je ne peux pas aller loin. »
+« Pas longtemps. »
 Sern répondit, bref.
-« Je ne peux pas continuer à les tromper avec le même visage. »
+« On ne peut pas les tromper indéfiniment avec le même visage. »
 
 Quand ces mots sont tombés,
 la machine qui avait ouvert le chemin émit un son très bref qui ressemblait presque à un rire.
@@ -143,8 +143,8 @@ la machine qui avait ouvert le chemin émit un son très bref qui ressemblait pr
 Moins de rire
 et plus près d'un circuit usé quelque part tremblant un instant.
 
-« Je n'ai jamais prévu de les tromper longtemps. »
-C'est dit.
+« Je n'ai jamais eu l'intention de les tromper longtemps. »
+dit la machine.
 
 Au moment où ces mots se sont terminés,
 Jiwoo regarda à nouveau cette machine.
@@ -200,14 +200,14 @@ mais cela ressemblait à la ligne qui divise tout Serakion.
 La machine ouvrant la voie ne donna pas plus d'explications.
 
 Cela n’exigeait pas de confiance.
-Je n'ai pas demandé de gratitude.
+Ne demandait pas de gratitude.
 N'a pas révélé son identité en premier.
 
 C'est simplement
 retenait les personnes qui étaient sur le point d'être divisées en un seul groupe
 et les précipitait à travers les interstices de ce monde achevé.
 
-Sion surveillait ses arrières et réfléchissait.
+Sion regardait cette silhouette de dos et réfléchissait.
 
 La première machine différente qu'ils ont rencontrée à l'intérieur de Serakion
 était apparu de la manière la moins Serakion possible.

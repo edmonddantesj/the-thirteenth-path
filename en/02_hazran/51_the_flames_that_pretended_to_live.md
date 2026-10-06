@@ -1,197 +1,229 @@
 # Episode 51. The Flames That Pretended to Live
 
-The moment they cleared the wreckage zone's last bend, the air itself changed.
+The moment they came out of the last bend of the wreckage zone, the air was the first thing to change.
 
-At first Sion thought it was just heat.
+At first Sion thought it was only heat.
 
-But from the second breath, it was not.
+But from the second breath on, it was not.
 
-Hot air was not striking his face—it was distorting the very sense of distance before his eyes. Things far away looked close; things close were suddenly pushed away. The heat-layer ember zone was not simply a hot place. It was a stretch that slowly twisted the act of seeing itself.
+The hot air was not striking his face; it was knocking his sense of distance itself out of true. A wavering in which far things looked near and near things slid suddenly away. The heat-layer ember zone was not simply a hot place; it was a stretch that bent the very sense of sight, a little at a time.
 
-Vitrified ground gleamed dark blue from a distance, and thin red lights blinked across it in scattered places. Some clung to the ground. Some appeared to float just above the air. Some looked ready to die at any moment, then suddenly pretended to come alive the next.
+Glassed ground gleamed a dark blue-green from far off, and thin red lights flickered across it here and there. Some clung to the ground, some seemed to float just above it in the air, and some were faint enough to go out at any moment, then the next moment suddenly pretended to come alive.
 
-Seeing it, Sion understood in his body why this zone was placed last.
+The moment Sion saw them, he understood in his body why this stretch had been placed last.
 
-Here, the hand that was not fooled mattered more than the hand that arrived fast.
+Here, a hand that did not get fooled mattered more than a hand that arrived fast.
 
-Jiwoo killed speed first too. The skiff that had endured to the end through the wreckage zone already had its right hover plate response one more degree slower, and the engine tremor was rougher than before. But even that craft could not be pushed carelessly at the heat layer's entrance. The ground looked solid but was actually floating in micro-shifts, and patches of cooled vitrified surface were mixed with metal shards still holding heat.
+Han Jiwoo killed her speed first too. The skiff that had held out to the end of the wreckage zone already had a right hover plate answering a notch slower still, and the engine's shudder was rougher than before. But even that craft could not be pushed carelessly at the mouth of the heat layer. The ground looked solid but was in fact lifted, very slightly, and everywhere glassy ground that had cooled and set was mixed with metal fragments still holding heat.
 
-"Now call it for real."
-Jiwoo said low.
+"From here, you really talk first,"
+Han Jiwoo said, low.
 "The moment you see it."
 
 Sion looked ahead instead of answering.
 
 There were too many lights.
 
-Until now, he had only needed to choose a path. But now it was not the path—the lights themselves were calling people. And half of those calls came from things pretending to be alive.
+Until a moment ago, picking a path had been enough.
+But now it was not a path but the lights themselves that called to people.
+And half of those calls came from things pretending to be alive.
 
-Far to the right, one light placed on the vitrified ground caught his eye first. More vivid than the others. Its red was sharp, and it looked easy enough to fall into your hand if you just got closer.
+Far to the right, one light set on the glassy floor caught his eye first. It was showier than the others. The red in it was sharp, and it looked easy, as if it would drop into your hand the moment you got close.
 
-Sion was caught by exactly that.
+That was exactly what snagged Sion first.
 
-Things that are too visible usually have a reason. So do things that pretend to be alive too easily.
+Things that showed themselves too well usually had a reason.
+So did things that pretended to be alive too easily.
 
-"Not that right one."
-He said at once.
-"It shows too soon."
+"Not that one on the right,"
+he said at once.
+"It shows itself too soon."
 
-Jiwoo immediately angled the skiff's nose slightly outward.
+Han Jiwoo immediately turned the skiff's nose a little to the outside.
 
-A team following just behind broke toward that light almost by reflex. Not last year's champions. A team that had miraculously survived the wreckage zone—fast, but whose instincts had not yet settled.
+A team following right behind them leaped toward that light almost by reflex. It was not the previous year's winners. It was a team that had held on through the wreckage zone by a miracle and come out alive—fast, but with its senses not yet settled.
 
-As that team's craft drew closer to the light, the red reaction grew brighter instead.
+As that team's craft drew near the light, the red glow grew bigger instead.
 
-Someone in the stands cheered first.
+Over in the stands, someone cheered first.
 
-Because it looked easy.
+Because it had looked easy.
 
-The moment a rider leaned and seized that light, it spread too easily in his hand.
+The moment one of the riders leaned out and grabbed the light, it spread far too easily in the hand that held it.
 
-And died immediately.
+And then died at once.
 
-Sion saw it even from far away.
+Sion saw it even from that distance.
 
-Not a living ember holding on, but a bait-like extinction—burned out the instant it was touched.
+Not an ember holding on like a live one, but the going-out of a lure that burned itself up the moment it was caught.
 
-That team's craft hesitated for a beat, and that beat was enough. Another skiff entering from the side grazed their line, the balance broke, and both craft slid wide across the vitrified ground.
+The team's craft faltered for an instant, and could not survive that split second. When another skiff coming in beside it grazed its line, its balance collapsed, and both craft slid wide across the glassy floor at the same time.
 
-Jiwoo said low.
+Han Jiwoo spoke low.
 
 "Good."
 
-Not because it was cruel. It was confirmation that Sion had been right.
+It was not cruelty; it was confirmation that Sion had been right.
 
-Sion grew quieter at that single word.
+That one word made Sion quieter instead.
 
-In this zone, his eyes alone were not mere route-reading support—they were the line between who was fooled and who was not.
+In this stretch his one pair of eyes was not just a helper reading the way; it decided who got fooled and who did not.
 
-A little ahead on the north side, Kael and Sern were also entering the heat-layer zone.
+A little ahead to the north, Kael and Sern were also entering the heat-layer zone.
 
-Their glider was blunt but stable. It did not immediately sway in the shimmering hot air, and Sern, while killing more speed, sent his gaze farther. His face showed he was reading not the lights themselves but the air and ground reactions around them first.
+Their glider was sluggish but steady. It did not shake at once in the rippling hot air, and Sern, even as he killed more speed, sent his gaze farther out. His face was reading not the lights themselves but the air and the floor around them first.
 
-"Discard everything flashy."
-He said low.
+"Discard everything showy,"
+he said, low.
 "Watch only what remains."
 
-Kael asked shortly.
+Kael asked short.
 
-"How do you tell what remains."
+"How do you tell what remains?"
 
-Sern spoke without looking away.
+Sern spoke without taking his eyes away.
 
-"The side that doesn't pretend to die."
+"The ones that do not pretend to die."
 
-That sentence sounded strangely like something Aka might have said.
+Kael knew that answer had not come out of a calculation.
 
-In that moment, Kael sensed faintly that what Sern was reading was not pure calculation alone. Eyes that had seen too many records, structures, repeating patterns—and because of that, had become familiar with this kind of lie. What Aka saw by instinct, Sern was tracking by a different method.
+The ones that did not pretend to die—that meant he had seen things pretending to die many times. Eyes that had seen too many records, structures and repeating patterns grew used to that kind of lie.
 
-In the middle of the heat-layer zone, the lights multiplied.
+"Where do you learn something like that?"
 
-Some burned at the tips of metal fragments driven into the ground. Some were trapped beneath cracked glass layers. Some looked like they swayed in the wind but were actually fixed in place.
+Kael asked.
 
-Real and false, residue and bait—all of it was scattered together.
+Sern did not answer.
 
-Sion stopped trying to see everything by force.
+In the middle of the heat-layer zone there were more lights.
 
-Instead, he searched first for what a surviving reaction looked like.
+Some burned at the tips of metal shards driven into the ground,
+some were trapped under the cracked glass layer,
+some looked as if they swayed in the wind but were in fact stuck in place.
 
-A light that did not flare easily. A light that did not give away its entire existence before being touched. A light whose shape did not collapse in a rush even through the heat-layer distortion.
+Real and false, resonance and lure, were strewn everywhere at once.
 
-Then, down to the left, at the boundary where metal fragments met vitrified ground, a single very low red dot caught his eye.
+Sion no longer forced himself to look at all of it.
 
-At first it looked less like a light and more like a wound. Too small, too dull, remaining as though deliberately trying not to be seen.
+Instead he first looked for the response that survived.
 
-Yet strangely, once his gaze caught on it, it would not let go.
+A light that did not grow easily.
+A light that did not give away its whole existence before a hand even touched it.
+A light whose shape did not hurry to collapse even passing through the heat-layer distortion.
 
-While every surrounding light pretended to be alive and flickered at least once, that one simply held.
+Then, down to the left, at the border where metal shards met the glassy ground, one very low red point caught his eye.
 
-"Down left."
-Sion said low.
+At first it was less like a light than like a wound.
+Too small, too dull, as if left there on purpose not to be seen.
+
+But strangely, once his gaze had caught on it, it kept not leaving.
+
+When the lights around it all swayed at least once, pretending to be alive, that one just held.
+
+"Down left,"
+Sion said, low.
 "The small one."
 
-Jiwoo did not ask immediately.
+Han Jiwoo did not ask right away.
 
-Instead, she pressed the skiff slowly toward it. Piloting that knew rushing in could cause the glass layer beneath to slide—in this final zone, her hands were far more careful than at the opening glide strip.
+Instead she pressed the skiff toward it, slowly. Her hand, like a pilot who knew that going in too fast might make the glass layer underneath slip, was sparing the craft far more in the last stretch than on the glide strip at the start.
 
-Right then, from the outer right, the dark-red glider cut back in on a revived line.
+Just then, from the outside on the right, the dark-red glider cut in on a line that had come alive again.
 
-Last year's champions.
+The previous year's winners.
 
-Even after their flow broke once in the wreckage zone, they had not fully died. They had climbed back to the leading positions by the time they reached here. That team too was beginning to filter out the flashy lights, and was narrowing its line in a direction similar to theirs.
+Their rhythm had broken once in the wreckage zone, but they had not died outright. If anything, on the way here they had closed back up with the front-runners. That team had now also begun filtering out almost all the showy lights, and was narrowing its line in a direction much like theirs.
 
 Sion did not like that.
 
-That team was not simply fast. Having survived this far meant they had instinct too.
+That team was not simply a fast team.
+Surviving this far meant it had a sense for this too.
 
-"They're closing."
-Sion said low.
+"They're closing,"
+Sion said, low.
 
-Jiwoo asked shortly.
+Han Jiwoo asked short.
 
-"Seeing the same thing?"
+"Same one?"
 
-Sion looked between the dark-red glider's heading and the red dot his eyes were caught on.
+Sion looked back and forth between the heading of the dark-red glider's nose and the red point his eyes had caught on.
 
 "Probably."
 
-Jiwoo tightened the steering bar very briefly.
+Han Jiwoo tightened her grip on the steering bar, very briefly.
 
-"Then we just confirm first."
+"Then we just confirm it first."
 
-The moment those words landed, Sion understood exactly how Jiwoo was enduring this zone. On the glide strip, she had used others' shattering as corridors. In the wreckage zone, she had read the direction of collapse. Here, she slowed her greed by half a beat. Instead of reaching to grab first, she stayed alive to the distance where she could confirm whether it was real.
+The moment she said it, Sion felt he knew exactly how Han Jiwoo was getting through this stretch. On the glide strip she had used the gaps others broke open as passages; in the wreckage zone she had read which way the paths caved; and here she held her greed back half a beat. Instead of trying to grab first, she closed in alive, to a distance where she could confirm it was real.
 
-On the north line, Kael and Sern seemed to have read the same flow. Sern's eyes grazed the lower left for just an instant, and Kael, seeing only that glance, adjusted the craft by the smallest degree.
+On the north line, Kael and Sern seemed to read the same flow. Sern's eyes brushed down to the left for just a moment, and Kael, seeing only that glance, bent the craft ever so slightly.
 
-Luhai, from the far end of the railing, spoke as though swallowing a scream.
+Luhai, at the end of the railing, spoke as if he were swallowing a scream.
 
-"Are all three of them looking at the same spot?"
+"Aren't all three of them looking at the same spot?"
 
 Ater answered very low.
 
-"Then the real thing starts now."
+"Then this is where the real thing begins."
 
-Seorin still said nothing.
+Seorin was still silent.
 
-Whose hand saw the real thing first. That was no longer just a matter of points within the race. From here, it could shake the board between people.
+Whose hand saw the real thing first.
+That was no longer only a matter of points inside the race.
+From here on, it could shake the board between people as well.
 
-Aka did not move.
+At the end of the viewing stand, Aka took one step toward the railing.
 
-Sion could not tell exactly what Aka was watching. But at least he could see that the flashy lights were not shaking her.
+Everyone was looking at the big light on the right. Aka did not look there. Her eyes were fixed on the lower left of the course, and they stayed fixed, not moving.
 
-That stillness made Sion's heart beat louder.
+Nahira was beside her.
 
-Yes. That one.
+Aka turned her head halfway toward Nahira.
 
-But in that exact moment, the air beneath the heat layer warped violently.
+"The one who isn't looking gets it."
 
-The distortion that had only shimmered near the ground until now suddenly surged upward, and three low-sitting lights swelled and pretended to come alive all at once. Too blatant a change. Less a natural shimmer than something that had twisted the entire board's breathing in one stroke.
+Nahira said nothing. Instead she looked where Aka was looking.
 
-Jiwoo cursed shortly.
+There, a skiff was pressing in low. Hardly anyone in the crowd was looking that way.
 
-"Incoming."
+Inside the course, Sion did not hear those words.
+
+They were too far to be heard.
+
+Right.
+That one.
+
+But at that very moment, the air beneath the heat layer warped hard, once.
+
+The distortion that had only shimmered near the ground until then suddenly spread as if surging upward, and three lights that had clung low all swayed at once, pretending to come more alive. It was far too blatant a change. Less a natural wavering than as if someone had twisted the breathing of the whole board once.
+
+Han Jiwoo swore under her breath.
+
+"Here it comes."
 
 Sion looked only straight ahead.
 
-The small red dot at the lower left was still not large. If anything, even as the air warped just now, it had not shaken any bigger.
+The small red point down to the left was still not large.
+Even in the moment the air twisted just now, it had not swayed any harder.
 
-That made it more certain.
+That made it surer.
 
-The real thing did not pretend to be alive. It simply held.
+The real thing did not pretend to be alive.
+It just held.
 
-"Stay on it."
+"Stay on it,"
 Sion said.
-"Don't look at the big ones. The small one underneath."
+"Don't look at the big ones. The small one, low."
 
-Jiwoo lowered the skiff further instead of answering.
+Han Jiwoo answered by bringing the skiff lower.
 
-The dark-red glider drove inward at almost the same moment. From the north, the glider carrying Kael and Sern was approaching on a line one beat slower but far more stable.
+The dark-red glider drove inward at almost the same moment, and from the north the glider Kael and Sern rode was closing in half a beat behind, on a steadier line.
 
-Three surviving teams were about to collide before nearly the same ember candidate at last.
+Three surviving teams were, at last, on the verge of colliding in front of nearly the same ember candidate.
 
 And Sion knew.
 
-From here, the rules of this race alone might not be enough to end it.
+From here on, the rules of this race alone might not be enough to settle it.
 
 ---
 

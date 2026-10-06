@@ -1,216 +1,215 @@
 # Episode 143. How Serakion Lives
 
-Before the sun fully rose,
-Jiwoo, Ater, and Kael entered the path that had been pretending to be dead, alongside the two recovery hands.
+Before the sun was fully up,
+Han Jiwoo, Ater, and Kael went into the path that had played dead, along with two of the recovery hands.
 
-The path was less a corridor leading outside
-and closer to a breathing hole Serakion had deliberately erased from its own surface.
+The path was less a passage leading outside
+than a breathing hole Serakion had deliberately erased from its own surface.
 
-Low ceiling.
-Tilted metal plates.
-Marks patched over multiple times.
-Handholds and footholds left inconspicuously.
+A low ceiling,
+tilted metal plates,
+marks of patching laid over patching,
+and handholds and footholds left where they would not catch the eye.
 
-A structure that would never be built this way if it were an official route.
+No official route would ever have been built this way.
 
-But precisely because of that,
-it felt more fitting for hands trying to survive the outside and return.
+But that was exactly why
+it felt like a better fit for the hands that went out beyond Serakion and tried to come back alive.
 
-The one who took the lead first wasn't the first recovery hand—it was Jiwoo.
+The first to take the lead was not the first recovery hand but Han Jiwoo.
 
 More precisely,
-it didn't stop her.
+it did not stop her.
 
-Jiwoo kept pausing from the very entrance,
-reading the metal seam lines and the worn grain at hand-reach height first.
+From the mouth of the path Han Jiwoo kept stopping,
+reading the metal seams and the worn grain at hand height before anything else.
 
-"More right-hand grips here."
-She said, very low.
-"The kind that twists the body right to escape in a hurry."
+"More grips with the right hand here,"
+she said, very low.
+"When they're in a hurry, they twist right and slip out this way."
 
 The first recovery hand looked at her once.
 
 Not suspicion, not admiration—
-closer to a brief confirmation of *she really does read that*.
+closer to a short confirmation: "she really can read that."
 
-"Better to keep you in front."
-It said, blunt.
+"Best to put you in front, then,"
+it said, offhand.
 
-That didn't sound like permission.
-Just the most efficient judgment.
+That did not sound like permission.
+It sounded like nothing more than the most efficient call.
 
-Jiwoo didn't reply and kept looking ahead.
+Han Jiwoo didn't answer and kept her eyes ahead.
 
-The further they followed the path,
-the underside of the world called Serakion began to show, little by little.
+The farther they followed the path,
+the more the underside of the world called Serakion began to show.
 
-Unlike the organized upper levels,
-down here were hidden pipes and transport lines,
-auxiliary structures with less-concealed usage traces,
-and the shadows of the life that humans and machines actually support.
+Unlike the orderly upper level,
+down here there were hidden pipes and transport lines,
+auxiliary structures that did less to hide their wear,
+and the shadow of a life that humans and machines were actually holding up.
 
-On the surface, Serakion looks like one completed aesthetic.
-But what actually maintains it
-was the endless transport, maintenance, and classification of this underside.
+On the surface Serakion looks like a single finished aesthetic.
+But what actually kept it standing
+was the endless hauling and maintenance and sorting on this underside.
 
-For the first time, Jiwoo began to see
+For the first time, Han Jiwoo began to see
 not only how Serakion's hands read humans
-but what kind of hands Serakion itself stands upon.
+but what hands Serakion itself was standing on.
 
-The well-polished structure was above.
-The structure that actually wears down was below.
+The well-polished structure was above,
+and the structure that actually wore down was below.
 
-The more blatant that difference,
-the more terrible it was.
+The more blatant the difference,
+the more horrible it was.
 
-The second recovery hand said, very low.
+The second recovery hand spoke, very low.
 
-"First fork coming up."
+"First fork's coming up."
 
-And indeed,
-a little further ahead the path split three ways.
+And sure enough,
+a little farther on, the path split three ways.
 
-One went further up.
-One slid sideways, long.
-One dropped downward, heavy.
+One went higher,
+one slid off long to the side,
+and one dropped heavily downward.
 
-Ater's expression changed the moment he saw the structure.
+The moment Ater saw that structure, his expression changed.
 
-"They embedded hierarchy into the paths."
-He said, low.
+"They have built the hierarchy into the paths,"
+he said, low.
 
-Since coming outside without Sion,
-Ater's words felt shorter and more coldly refined.
+Since they had come outside without Sion,
+Ater's words seemed shorter than before, and more coldly refined.
 
-He looked at the fork for a long time, then continued.
+He looked at the fork for a long while, then went on.
 
-"The upward path is narrower.
-The downward path is wider."
-"Those going up are selected.
-Going down presumes mass transit."
+"The way up is narrower,
+the way down is wider."
+"Those who go up are selected;
+going down assumes mass movement."
 
-The first recovery hand answered brief.
+The first recovery hand answered briefly.
 
-"Keep looking."
+"Mark it."
 "In Serakion, the paths are more honest than the words."
 
-Those words stayed longer than expected.
+Those words stayed with them longer than expected.
 
-If politics isn't made only of law and declaration,
-then Serakion's politics was surely embedded in paths, structures, and placements too.
+If politics is not made only of laws and declarations,
+then Serakion's politics had to be built into its paths, its structures, its placements as well.
 
-Who finds it easy to go where.
-Who stops where.
-Who is raised upward.
-Who gathers below.
+Who could get where easily,
+who stopped where,
+who was raised up,
+and who was gathered below.
 
-This world's space itself was already the grammar of classification.
+In this world, space itself was already the grammar of sorting.
 
-Ater watched it with a face as if he'd just barely clenched his teeth.
+Watching it, Ater wore a look as if he had set his teeth, very slightly.
 
-Sion wasn't there,
-but Jiwoo strangely felt she could tell a little of what he was thinking.
+Sion was not there,
+but strangely, Han Jiwoo felt she could guess a little of what Ater was thinking.
 
 The Empire is no different.
-On the surface it divides by military, gates, and law,
-but ultimately, who goes where and which paths open is spoken by structure first.
+On the surface it divides people with soldiers and gates and laws,
+but in the end it is the structure that speaks first about who is put where and which paths are opened.
 
-Serakion had simply made it more beautiful.
-The essence might not be different at all.
+Serakion had only made it more beautiful;
+the essence might be no different.
 
-Kael had been silently watching the rear and flanks together the whole time.
+All this time Kael had been silently watching the rear and the flanks together.
 
-Then at the first fork, he said very low.
+Then, at the first fork, he spoke, very low.
 
-"The blocking positions and extraction positions are right next to each other."
+"Where you block and where you pull out are right up against each other."
 
 The second recovery hand looked at him.
 
-Kael looked between the wear marks on the floor
-and the regular scratches that seemed left by the android legion, then continued.
+Looking back and forth between the wear marks left on the floor
+and the regular gouges that seemed to have been left by an android legion passing through, Kael went on.
 
-"This isn't just a corridor."
-"They herd, then when needed,
-close immediately and extract only a specific side."
+"This isn't just a passage."
+"It's built to herd people in,
+shut fast when it needs to,
+and pull out only one particular side."
 
-Those words connected precisely to the analysis Sern had given from inside.
+That fit exactly with the reading Sern had given back inside.
 
-Serakion doesn't simply guard.
+Serakion does not simply guard.
 It guides,
-classifies,
-and designs paths so only the needed side can be separately extracted.
+it sorts,
+and it designs its paths so that only the side it needs can be pulled out separately.
 
-Kael, reading that,
-was calculating where to open and where to close
-if fighting starts—to pull people out.
+As he read it, Kael
+was working out where to open and where to block, once the fighting started, to get people out.
 
-In that moment,
-he looked less like a simple shield
-and more like a tactician on the side that breaks structure and makes gaps.
+For that moment at least,
+he looked less like a plain shield than like a tactician on the side that breaks structures and makes openings.
 
-A little further ahead,
-they saw the shadow of an actual living zone for the first time.
+A little farther on,
+they saw the shadow of an actual living quarter for the first time.
 
-They didn't enter directly.
-But through a thin gap,
-they could see several humans passing through an organized corridor
-and the machines guiding them beside.
+They did not go in.
+But through a thin gap
+they could see a few humans passing down an orderly corridor
+and the machines moving beside them, guiding them.
 
-The humans were startlingly docile.
-Clothes were clean.
-Steps were organized.
+The humans were startlingly docile,
+their clothes were clean,
+and their steps were orderly.
 
-But precisely because of that,
-more ominous.
+And that was exactly why
+it was more ominous.
 
-Ater spoke low.
+Ater spoke, low.
 
 "More orderly than a military occupation zone."
 
-Jiwoo watched one human's hand through the gap for a long time.
+Han Jiwoo watched one human's hand through the gap for a long time.
 
 The back of the hand was clean,
 but the fingertips held the fine grain that repetitive labor leaves.
 
-Organized on the outside,
-but hands that had actually been touching and repeating something continuously.
+Neat on the outside,
+but in fact a hand that had been touching and repeating something over and over.
 
 "There's the life they show,
-and the life they use."
-She said, low.
+and there's the life they use,"
+she said, low.
 
-Those words seemed to explain Serakion's entire living structure.
+Those words seemed to explain the whole structure of life on Serakion.
 
-The displayed order is above.
-The labor and classification that actually support it are below.
+The order on display is above,
+and the labor and sorting that actually hold it up are below.
 
-But Serakion dresses both as though they exist within the same beauty.
+But Serakion dresses the two up as if they lived inside the same beauty.
 
-The first recovery hand didn't let them stop long.
+The first recovery hand did not let them stay stopped for long.
 
-"Go further inside,"
+"Look farther in,"
 it said, very low,
-"and you'll see better why they're moving the ones with good hands upward."
+"and you'll see better why they send the kids with good hands up."
 
-That one line
-sharpened the recon's purpose again.
+That one remark
+made the purpose of the scouting clear again.
 
-This isn't simply looking at paths.
-This is seeing what Serakion reads as precious,
-what it leaves below,
-and what it pulls upward.
+This was not just looking at paths.
+It was seeing what Serakion read as precious,
+what it left below,
+and what it hauled up.
 
-And understanding that structure
-is what lets you see who needs to be extracted from where.
+And only by understanding that structure
+would they see whom to pull out, and from where.
 
 The path they first walked that day
-showed, before revealing where Serakion hides what,
-how Serakion lives.
+showed them, before it showed where Serakion was hiding what,
+how Serakion lived.
 
 Politics and life were not separate.
-In this world,
-one path, one hand, one step's height—
-all were part of classification and governance.
+In that world,
+a single path, a single hand, the height of a single stair,
+all of it was part of sorting and rule.
 
 ---
 

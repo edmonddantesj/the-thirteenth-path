@@ -1,229 +1,255 @@
 # Episode 113. What Remained After Hazran Closed
 
-Even after Hazran vanished completely from view,
-the air inside the ship didn't grow lighter at all.
+Even after Hazran had dropped out of sight, the air in the hull did not lighten.
 
-No one could easily say the word *alive*.
-That word felt like it would cross too quickly to the side of the living right now.
+No one said they had survived. Said now, those words would cross over too quickly to the side of the living.
 
-The ship was still trembling, unstable.
-True to a hull ripped free by force,
-a vibration that felt like it could tear again at the slightest misalignment lingered through the floor and walls.
+Sion was sharing out the water.
 
-But strangely,
-inside the whole of that shaking,
-one point felt as though it was holding to the very end.
+It was the job Han Jiwoo had given him. What had been loaded for eight had to be split among sixteen, and as Sion passed the canisters around one at a time, he kept in his head who had drunk how much.
 
-Jiwoo first dismissed it as imagination.
+Keeping track, he came to see something. Of the eight Hazran people, three took the water and didn't put it to their lips. They only held it.
 
-The hull right now was not an intact ship.
-Torn places bonded.
-Bonded places bound again.
-Bound places propped up to make them hold.
-So residual abnormal resonance or micro-vibrations were nothing unusual.
+Sion noticed it on his second round and confirmed it on the third.
 
-But this was slightly different.
+It wasn't that those people weren't thirsty. They felt sorry to be drinking.
 
-She placed her hand quietly on one panel.
+Sion didn't say so. If he did, they would drink even less.
 
-A vibration that should have cooled
-was dying strangely late at that spot alone.
+It was when he went to the back to hand over the third canister.
 
-If it were a malfunction, it should be more erratic.
-If it were damage, more irregular.
-But this felt as if,
-across the whole that seemed about to collapse,
-one very small point was holding on to the very end.
+Somewhere along the inside of the wall, the back of his hand caught.
 
-Jiwoo murmured, very low.
+Strictly, it hadn't caught. As he passed, the air at just that spot was a beat late.
 
-"Why is this… doing that."
+Sion stopped and passed by again. The second time was the same.
 
-No one answered right away.
+Han Jiwoo was already there.
 
-Everyone was exhausted.
-Quiet.
-Above all, what they had just passed through hadn't left their bodies yet.
+She had her palm pressed to a panel low on the right. It was a panel she had touched more than ten times up to yesterday. Her hand had been there every time the ship lifted off.
 
-Sion raised his head from a spot further away.
+"What is it?"
 
-He was feeling something similar.
+"Be quiet a second."
 
-It wasn't a smell.
-There was too much breath and dust and sweat from the evacuees mixed inside the hull now—
-distinguishing a single scent was meaningless.
+Sion shut his mouth.
 
-Instead,
-there was a strange sense of direction.
+Han Jiwoo took her palm away and pressed it back. She did it three times.
 
-Clearly inside the ship,
-yet a feeling of grain gathering toward one point.
-Somewhere inside the interior space—not even a path—
-a spot where gaze and sensation kept catching, once each.
+"It should be cooling,"
+she said.
+"Only this spot won't cool."
 
-Sion tried to dismiss it as mood.
-But when he saw Jiwoo's expression,
-he knew he wasn't the only one.
+"Is it broken?"
 
-Seorin said nothing either,
-but her eyes went to the same spot a second time.
+"If it were broken, it'd be messier."
 
-She didn't try to explain anything.
-Instead,
-she was reading the air of a moment where something that should have been severed remained unsevered.
+She traced the edge of the panel with her fingertips. The places patched, the places tied off again, the places laid over those. No one knew better than these hands that nothing on this ship was sound.
 
-Luhai was sitting with his back against the floor,
-and raised his head for no clear reason.
+"Something broken shakes anywhere,"
+Han Jiwoo said.
+"This is holding on to one point."
 
-"Why's it only like that over there."
+Kael came from the other side, knocking on the hull frame with the back of his hand. The knocks came at even intervals. Partway, he stopped once.
 
-A low voice.
+"It holds differently just there."
 
-Less a question
-and more the reaction of someone whose body noticed the strangeness first.
+It was a short remark, but Han Jiwoo's shoulders went stiffer.
 
-Kael touched the hull frame once
-and briefly narrowed his brow.
+Sion turned his head that way too.
 
-"The hold is different there."
+From the outside, nothing showed. It was just a pressed metal plate, with burn marks along its edge and one screw half seated. Things hammered in a hurry in Hazran.
 
-Those words were very simple,
-but Jiwoo's nerves sharpened precisely because of it.
+But if you brought your hand close, there was something different there and nowhere else.
 
-Yes.
-The hold is different.
+It wasn't hot. It wasn't cold either. Instead, it felt as if something wasn't finished yet.
 
-But it wasn't reinforcement in any method she knew.
-Not a repair trace she remembered.
+On the floor, Luhai pulled his back off the wall and raised only his head.
 
-Aka, who had said nothing until then,
-slowly walked toward that spot.
+"Why's it only there?"
 
-She didn't touch it.
-She just stood close
-and looked for a long time.
+No one answered.
 
-Aka had always been that way.
-Before touching, she listened first.
-Before listening, she read the grain first.
+Only then did Aka move.
 
-Jiwoo asked, low.
+She came slowly, steadying herself on the wall. Her face was pale, but her steps never once stopped. She stood in front of the spot and looked at it for a long while without touching it.
 
-"A malfunction?"
+Aka was always like that. She looked before she touched.
+
+Han Jiwoo asked in a low voice.
+
+"Is it broken?"
 
 Aka didn't answer right away.
 
-Sion felt that short silence
-as longer than it was.
+The silence felt strangely long to Sion. For the first time since Hazran closed, everyone was looking at the same place, and no one knew what it was.
 
-After Hazran closed,
-for the first time everyone was looking at the same place.
-But no one yet knew why.
+Aka slowly shook her head.
 
-Aka shook her head, very slowly.
+"It's not something left over."
 
-"It was not left behind."
+"Then what is it?"
 
-Short words.
+Aka spoke without taking her eyes off it.
 
-Jiwoo's brows narrowed slightly.
+"It's something made all the way to the end."
 
-"Then?"
+When those words fell, the hull went quiet once.
 
-Aka spoke without taking her gaze from that spot.
+No one understood exactly. But everyone knew it wasn't a figure of speech.
 
-"It was made, to the very end."
+Without meaning to, Sion took a step.
 
-When those words fell,
-the air inside the hull changed, very faintly.
+Hazran had closed to the very end, that closing had been buried under the legion, and this side had left it behind.
 
-No one understood precisely.
-But everyone knew
-those words were not simple metaphor.
+Usually, nothing remains after that.
 
-Sion stepped one pace closer without realizing.
+But something was clinging here. Not what something broken leaves behind as it goes, but the kind of thing only what passes all the way through can leave.
 
-Hazran had closed to the very end.
-That closing had been buried under the legion.
-They had left it behind and departed.
+Han Jiwoo pressed her palm to it again.
 
-Then normally, nothing should remain.
-At least not stuck in one point inside the ship,
-in this strange way.
+"It won't cool,"
+she said.
+"It's been the same all along."
 
-But what he felt now wasn't wreckage.
+Seorin, leaning on the wall a little way off, looked at the spot twice. She didn't try to explain it. She had an eye for places where what should have been cut had not been cut.
 
-Not something that failed to vanish.
-More like a condensation that only what has fully passed through can leave behind.
+Sern was watching from farther away. He was the one who read signals, but this time he didn't switch on the panel.
 
-Jiwoo touched the panel again, very carefully.
+"Will you read it?"
+Ater asked.
 
-Still, at that spot alone,
-a residual vibration that wouldn't cool.
+"There is nothing to read,"
+Sern answered.
+"It is not a signal."
 
-Sern watched the scene from a distance
-and silently narrowed his eyes.
+A chill went down Sion's back.
 
-He was someone who read signals,
-but this looked less like a signal
-and more like the fine misalignment left after some structure had folded once into its own inside.
+It was the first time Sern had said he couldn't read something.
 
-Ater, too, was leaning against the wall, watching quietly.
+Ater looked at the spot for a long time.
 
-He didn't explain.
-But at least one thing was clear.
+"Does the Empire have a classification for this?"
+Sion asked.
 
-This was not a common mechanical failure.
-Not a common trace of damage.
+"It does not."
 
-There was no explanation,
-but everyone was reading the same grain, each in their own way.
+"Not even one?"
 
-Sion felt it, strangely.
+"Everything that carries approval is on the list,"
+Ater said.
+"What is not on the list does not exist in the Empire."
 
-What ended in Hazran
-hadn't simply remained as an ending.
-It had stuck somewhere inside the ship, like a small direction.
+Sion felt those words join up with what he had heard earlier.
 
-It wasn't a path yet.
-Not meaning.
-Not explanation.
+If it isn't left in the record, it becomes something that never was. This here was on no list right now.
 
-But clearly,
-it hadn't simply passed and gone.
+Then, seen from the Empire's side, this was a thing that had never existed in the first place.
 
-Luhai said, very small.
+"So we're the only ones who know."
 
-"It stays even like that?"
+Ater didn't answer that right away. After a while, he spoke very low.
 
-No one answered immediately.
+"For now, that is so."
 
-Jiwoo couldn't take her hand away.
-Sion couldn't withdraw his gaze from that condensed spot.
-Seorin, without opening her mouth, was watching how long that air stayed unbroken.
+Sion stood before the spot and, out of habit, tried to count.
 
-Aka said, one last time, very low.
+How many, how big, how long.
 
-"There are things that only come into being after everything has passed through."
+Nothing came.
 
-Those words were less explanation
-and closer to a confirmation barely drawn out.
+It had no size. It had no number. He didn't know when it had started or when it would end. Put a hand to it and it was surely there, but not one number came out that he could use.
 
-In that moment,
-Sion felt, for the first time, something vague.
+Ever since he had come into Hazran, Sion had kept counting. He had counted prices, counted people, counted how many times the ship lifted off, and it was there too that he had learned that what you don't count becomes something that never was.
 
-That things which have passed through to the very end
-may not simply vanish.
+But this didn't vanish even when he didn't count it.
 
-And that the path ahead
-might form as things like this remain, one by one.
+That frightened Sion, strangely. Holding on to things by counting them had been everything until now, but what was in front of him now simply was, whether he counted or not.
 
-No one could say it precisely yet.
+Then it wasn't something Sion was holding. This side was the one being held.
 
-But the ship,
-while being a trembling vessel carrying survivors,
-was also beginning to look like a place
-where what was left behind was quietly starting to gather.
+Sion didn't push that thought to the end. If he pushed, it felt as if something more would come out, and right now he didn't trust himself to look at it.
+
+Then Sion looked toward the floor.
+
+All eight of the Hazran people were looking that way.
+
+But none of them were surprised.
+
+That was what Sion found strangest. The people looking at the most surprising thing on this ship were the quietest.
+
+One of them caught Sion's look and met his eyes very briefly, then looked back at the spot. It was not a face that meant to explain.
+
+Sion wanted to ask.
+
+Whether they knew what it was, whether they had seen something like it in Hazran.
+
+But this wasn't the time to ask. These people had lost their city today, and they had no room on this ship to set out what they knew one piece at a time.
+
+Sion set one more canister down on that side and stepped back.
+
+Luhai spoke very quietly.
+
+"So things can be left like that too, huh."
+
+No one answered right away.
+
+Han Jiwoo couldn't take her hand away, Sion couldn't take his eyes off the spot, and Seorin was measuring how long that air would go without breaking.
+
+Han Jiwoo finally took her hand away.
+
+"Are you fixing it?"
+Sion asked.
+
+Han Jiwoo didn't answer right away. She picked up a tool and put it back down.
+
+"I can't fix it."
+
+"Because it's not broken?"
+
+"That too,"
+she said.
+"I don't know what else would disappear with it if I touch this."
+
+Sion held his breath for a moment at that.
+
+Han Jiwoo hadn't said she couldn't fix it. She had said it seemed she shouldn't. It was the first time he had heard her say something like that about the ship.
+
+"So we just leave it?"
+
+"Leave it for now,"
+Han Jiwoo said.
+"But nobody leans on it."
+
+At the very end, Aka spoke very low.
+
+"Some things only happen once everything's passed through."
+
+It was less an explanation than a confirmation she had barely managed to bring out.
+
+Carrying those words, Sion finished passing the canisters around.
+
+One of the three who hadn't drunk earlier opened the cap this time. Sion didn't know why now, either.
+
+When he had finished, Sion went back to the spot.
+
+Since it couldn't be counted, he gave up on counting. He did something else instead.
+
+Two hand-spans from the panel, on bare metal plate, he scored one short line with his fingernail. It didn't take well, so he scored it twice.
+
+It wasn't a number. It didn't mean how many, either.
+
+It meant here.
+
+It seemed someone on this ship had to know where this was. The board was down there, the record would say *Unknown*, and then all that remained would be this one line.
+
+Sion scored it and looked at it for a long while.
+
+It wasn't a path yet. It wasn't a meaning either, or an explanation.
+
+But it wasn't something that had simply passed by, either.
+
+Carrying the survivors and shaking as it went, the ship was at the same time becoming a place where what had been left behind was quietly beginning to cling.
 
 ---
 

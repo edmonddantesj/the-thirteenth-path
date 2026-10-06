@@ -118,10 +118,10 @@ Elle regarda vers les androïdes et poursuivit plus bas :
 Personne ne put la contredire.
 
 Serakion avait fait exactement cela :
-il avait déclaré qu'il n'y avait rien,
-puis classé,
-puis élevé,
-puis jamais rendu.
+déclarer qu'il n'y avait rien,
+puis classer,
+puis élever,
+puis ne jamais rendre.
 
 Seorin reprit ses mots.
 

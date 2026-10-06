@@ -1,146 +1,238 @@
-# Episode 164. Too Complete to Live
+# Episode 164. Too Complete to Be Alive
 
-After the strategy for shaking the structure first took shape, the next thing needed was a deeper look at the upper level.
+Once the strategy for shaking the structure had begun to take its first shape,
+the next thing they needed was a deeper look at the upper level.
 
-To know what to sever, they had to see more precisely what supported what.
+To know what to cut,
+they had to see more precisely what was holding up what.
 
-And the first to see something strange was Aka.
+And the first to find something strange in it
+was Aka.
 
-Aka did not read paths like the others, interpret approval structures, or organize political composure into sentences.
+Aka didn't read paths the way the others did,
+or interpret approval structures,
+or put political face into sentences.
 
-Instead, she sees first. Things that feel wrong but cannot yet be explained. Repetitions that do not feel like the repetitions of something alive. Arrangements so ordered that someone's breath becomes hard to sense.
+Instead, she saw things first.
+Things that were off somewhere but couldn't be explained yet,
+repetitions that didn't feel like the repetitions of something alive,
+things so well ordered that you could hardly feel anyone's breath in them.
 
-The day they began looking at Serakion's upper level again, the first thing Aka caught was exactly that kind of dissonance.
+The day they began looking at Serakion's upper level again,
+the first thing Aka caught was that kind of wrongness.
 
-The higher you went, the more ordered Serakion's machines became. Movement was smoother. The distance between them was more precise. Sound was lower and more stable.
+The higher they looked,
+the more ordered Serakion's machines became.
+Their movements were smoother,
+the distance they kept from one another more exact,
+their sounds lower and steadier.
 
-But Aka's face hardened from the very start.
+But Aka looked at it
+and her face went stiff, oddly, from the very start.
 
-"Too identical." She said it very low.
+"They're too alike,"
+she said, very low.
 
-Jiwoo looked at her.
+Han Jiwoo looked at her.
 
-Aka continued without pulling her gaze from the upper protocol corridor.
+Without taking her eyes off the protocol routes above, Aka went on.
 
-"I see that it is ordered. But that is beyond ordered. It does not look like living beings who grew alike over time. It looks like they were cut from the same format from the beginning."
+"I get that it's orderly,
+but that's past orderly."
+"It's not like living things that got alike from fitting themselves to each other for a long time,
+it looks like they were cut to the same form from the start."
 
-The words were not immediately understood by everyone. But they lingered strangely long.
+It wasn't something everyone could understand right away.
+But it stayed with them, strangely, for a long time.
 
-Serakion's upper order was certainly splendid. But there was a strangeness that splendid alone could not explain.
+Serakion's upper order was undeniably splendid.
+But there was an uncanniness to it that the word splendid alone couldn't explain.
 
-The feeling of different beings grown similar under long rule, and the feeling of forms organized from the same mold moving together — those are different.
+The sense of different beings who had grown alike under long rule
+is not the same as the sense of forms, ordered by one mold from the start, moving about.
 
-Aka was reading that difference by sensation first.
+Aka was reading that difference first, by feel.
 
-Ater heard it and looked at the upper protocol section again.
+Hearing it, Ater looked at the upper protocol sector again.
 
-In truth, the upper machines felt less like individual desire or personality, and more like the completion of a role first.
+In fact, with the machines up there,
+what you sensed first was not individual desire or character
+but how thoroughly each role had been perfected.
 
-Who spoke first. Who received the response. Who relayed the decision. Who arranged the surroundings to match. Everything was excessively smooth.
+Who opened their mouth first,
+who received the response,
+who passed on the decision,
+who arranged everything around them to fit that decision.
 
-In a world where politics is alive, there should be ambition jutting out slightly, calculations lagging slightly, competition showing its awkwardness slightly.
+All of it was far too smooth.
 
-Here, that friction was far too little.
+In a world where politics was alive,
+you would see some ambition jutting out,
+some calculation running late,
+some awkward rivalry.
 
-Ater said it low.
+But here there was too little of that friction.
 
-"This feels less like a noble class watching each other, and more like one protocol being performed by multiple bodies."
+Ater said, low,
 
-Aka nodded slowly at that.
+"Less a nobility keeping a wary eye on one another,
+it seems more like one protocol divided up and performed by many bodies."
 
-That was exactly the sensation.
+At that, Aka nodded slowly.
 
-The upper machines were clearly multiple entities. Yet strangely, more often than not they looked less like individual political agents interlocked in motion, and more like parts assigned within a single upper format.
+That was exactly the sense of it.
 
-That was closer to a landscape reproducing a predetermined form than a normal landscape of power.
+The machines up there were plainly many separate units,
+yet strangely, more often than not, they looked less like individual political players moving in concert
+than like parts each assigned to one upper-level form.
 
-Sern, only after hearing that, carefully brought out the dissonance he had been sensing from the records side.
+It was less the landscape of an ordinary ruling class
+than the landscape of a form already set, being reproduced.
 
-"There is a similar quality in the upper approval records." He said it low.
+Only after hearing that
+did Sern carefully bring out the wrongness he had been sensing on the records side.
 
-Seorin reacted immediately.
+"The upper-level approval records show something similar,"
+he said, low.
 
-"Similar how."
+Seorin reacted at once.
+
+"Similar how?"
 
 Sern answered very slowly.
 
-"The deciding subject is not clear, but the format of the decision is excessively clear. What remains first is not the trace of who spoke, but the format of what came down."
+"The deciding party is unclear,
+but the form of the decision is excessively clear."
+"Before any trace of who spoke,
+what remains is the form in which something came down."
 
-The words were cold, and therefore sounded more precise.
+It was cold,
+and so it sounded all the more precise.
 
-In a normal political system, decisions usually carry traces of their subject. Who pushed. Who delayed. Who covered.
+In a normal political system,
+a decision usually carries traces of whoever made it.
+Who pushed it,
+who held it back,
+who covered it up.
 
-But the upper records Sern had read were strangely vivid only in the format of the decision.
+But the upper-level records Sern had read
+were clear, to a strange degree, only in *the form of the decision*.
 
-As though what mattered first was not who exercised power, but what face the decision descended in.
+As if what a record kept first was not who had wielded the power,
+but what face the decision had worn coming down.
 
-Seorin said it low.
+Seorin said, low,
 
-"Then the top might be holding on to the format in which decisions descend longer than the side that actually decides."
+"So up there, more than we thought,
+they hold on longer to the form a decision comes down in than to whoever makes it?"
 
-Sern did not conclude immediately.
+Sern did not go straight to a conclusion.
 
-"It is still difficult to say that much. But at least, this does not appear to be a structure where the friction of political individuals shows first."
+"It is still hard to go that far."
+"But at the very least,
+it does not look like a structure where friction between political individuals shows first."
 
-The answer was cautious. But precisely because of that, it was heavier.
+The answer was careful.
+But that only made it heavier.
 
-Aka looked upward again.
+Aka looked up again.
 
-At the end of her gaze, even from a distance, one excessively stable shape of light was caught.
+At the end of her gaze,
+a single shape of light hung, far too stable even from that distance.
 
-It did not speak directly. It did not give orders directly. It was always too far away, yet strangely embedded at the center of every protocol.
+It didn't speak to anyone directly,
+didn't give orders directly,
+was always much too far away,
+and yet, strangely, was set at the center of every protocol.
 
-Aka watched it for a long time, then said it very low.
+Aka watched it a long while, then said, very low,
 
-"That is... too complete. It does not feel alive."
+"That… it's so complete it doesn't even seem alive."
 
-The moment those words fell, the air in the room stiffened faintly.
+The moment those words fell,
+the air in the room stiffened, faintly.
 
-That sentence was not an answer. It should not have been an answer.
+The sentence was not the answer.
+It wasn't supposed to be the answer, either.
 
-What was needed at this stage was not commentary but making the strangeness felt more sharply.
+What was needed at this stage was not an explanation
+but a sharper feel for the strangeness.
 
-But even so, Aka's words shifted the senses of everyone watching the upper level.
+And yet,
+Aka's words changed, once, the way all of them saw the upper level.
 
-From here on, when they looked up, they were not simply seeing an ordered noble hierarchy.
+From now on, when they looked up,
+they wouldn't simply be seeing an orderly noble hierarchy.
 
-They were seeing a centralized protocol so precise, so smooth, so formally complete that the life of individual beings could barely be felt within it.
+They would be seeing a kind of centralized protocol so intricate,
+so smooth,
+so formally complete
+that the life of any individual in it could hardly be felt.
 
-Kael heard that and began re-examining not the paths but the repetitions in the upper corridors.
+Hearing all that, Kael stopped looking at paths
+and began looking again at the repetitions in the upper-level routes.
 
-In fact, the upper protocol lines held routes closer to repeated reproduction than operational efficiency.
+In fact, the protocol lines up there
+followed routes closer to repeated reenactment than to working efficiency.
 
-Not the shortest path, but the path that most displayed the center. Not the fastest deployment, but the deployment that most showed hierarchy.
+Not the shortest path,
+but the path that most displayed the center.
+Not the fastest arrangement,
+but the arrangement that most made the hierarchy visible.
 
-Tactically, that could be called inefficient. But the fact that the inefficiency was continuously maintained meant this structure did not run on practicality alone.
+Tactically that might be inefficiency,
+but the fact that the inefficiency kept being maintained
+also meant this structure did not run on practicality alone.
 
-Meaning Serakion's upper level was very likely maintaining a reproduction — separate from actual power — of how power was supposed to look.
+Which meant Serakion's upper level,
+apart from whatever power it actually held,
+was very likely keeping up a reenactment of how power was supposed to look.
 
-If that reproduction were severed, the composure Ater described would shake. The format-centered approval Sern described would crack. The reading and sealing speed Kael described could momentarily collapse.
+If they could cut that reenactment,
+the face Ater had spoken of would shake,
+the form-centered approval Sern had spoken of would crack,
+and the speed of reading and sealing Kael had spoken of might collapse for a moment.
 
-Jiwoo listened and inevitably returned to thinking about the human side.
+Listening, Han Jiwoo
+found her thoughts going back to the people again.
 
-If the upper level truly operated that close to formality, then the humans below it would be read even less as individual people.
+If the top truly ran that close to pure form,
+then the humans beneath it would be read even less as individual people.
 
-Hands. Responses. Compliance. Deployment potential.
+Hands,
+reactions,
+compliance,
+deployability.
 
-The reason they were read only that way might be that the upper level itself already worshipped format before life.
+The reason they were read only that way
+might be that the top itself was already a structure that worshipped form before life.
 
-Seorin reorganized the board and said it very low.
+Seorin, sorting the board again, said very low,
 
-"Good. Then we have one more thing. We are not simply looking at paths and approvals. We also need to see why the top repeats the same format to that degree."
+"Good. Then we've got one more."
+"We don't just watch the paths and the approvals,
+we also have to see why that top keeps repeating the same form to that degree."
 
-That meant the Serakion upper-level strategy arc was now entering a stage not of simple infiltration or structural disruption, but of dissecting the center's politics and protocol structure itself.
+That meant
+the push against Serakion's upper level was moving past simple infiltration or structural disruption
+into **the stage of dissecting the central politics and the protocol structure itself**.
 
-And at that starting point stood Aka's eyes — which had felt before anyone else that it was too complete to seem alive.
+And at its starting point
+were the eyes that had felt it before anyone else's, "That's so complete it doesn't seem alive"—
+Aka's eyes.
 
-At the end of that day, they still did not know the center's identity.
+At the end of that day,
+they still didn't know what the center was.
 
-But they clearly learned one thing.
+But they had come to know at least one thing for certain.
 
-Serakion's highest order was stranger than it appeared on the surface, and that strangeness was closer not to the arrogance of simple power, but to a form that had been completed to excess.
+Serakion's highest order
+was stranger than it looked from outside,
+and that strangeness was less the simple arrogance of power
+than something closer to a form that was somehow far too complete.
 
-And that very point might become the most dangerous fracture in the upper level that they would have to dig into going forward.
+And that very thing
+might become the most dangerous crack in the upper level, the one they would have to dig into without fail.
 
 ---
 

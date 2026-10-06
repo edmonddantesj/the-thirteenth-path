@@ -1,230 +1,229 @@
-# Episode 133. Speak Before Breaking
+# Episode 133. Before It Breaks
 
 When night came,
-the old layer grew quieter than during the day.
+this old layer grew quieter than it was by day.
 
-But that quiet wasn't the stillness of rest.
+But that quiet was not the stillness of rest.
 
-As sounds lessened,
-the signs of holding on became louder instead.
+It was a night when, as the sound fell away,
+the signs of people holding on could be heard more clearly.
 
-In the distance, metal cooling rang very faintly.
-Closer, groans held back during the day leaked thinner.
-Someone pretended to sleep.
-Someone had truly collapsed from exhaustion.
+Far off, the sound of metal cooling rang very faintly,
+nearer, groans held back all day leaked out thinner,
+someone pretended to sleep,
+and someone had truly collapsed from exhaustion.
 
-Sion stood in the middle corridor,
-slowly matching the layout on the old panel with the faces of the people.
+Sion stood by the middle passage,
+slowly matching the layout on the old board against people's faces.
 
-This role didn't feel like his own yet.
+The role didn't feel familiar yet, didn't feel like his own.
 
-But the senses accumulated since Hazran
-knew how to move first even without familiarity.
+But the sense that had built up since Hazran
+knew how to move first, even when things weren't familiar.
 
-Who is pretending to be fine.
-Who is sitting in their place right now
-but will actually collapse if just a little more time passes.
+Who was pretending to be all right.
+Who was sitting in place now,
+but would actually break with just a little more time.
 Who must not be left alone.
 
 Things like that.
 
-During the day, everyone holds.
-When others are watching, they hold harder.
+By day, everyone holds on.
+When others are watching, they hold on harder.
 
-Night was the time when that hold loosens first.
+Night was the time that holding loosened first.
 
-After his first pass, Sion stopped
-directly before one person.
+After his first round,
+Sion stopped at once in front of one person.
 
 A young man from Hazran.
 
-During the day he'd been on the supply transport side,
-moving without big words, quietly.
+By day he had stuck with the supply carrying,
+and had moved in silence without a single big word.
 
 But now he sat with his back against the wall,
-eyes closed, yet his body was locked far too rigid.
+and though his eyes were closed, his body was locked far too stiff.
 
-Not the posture of sleeping.
+It was not a sleeping posture.
 
-The posture of someone who paused mid-hold.
+It was the posture of someone who had been holding on and had stopped for a moment.
 
-Sion called out, low.
+Sion called to him, low.
 
 "You okay?"
 
 The man didn't answer.
 
-But his shoulder trembled, very faintly.
+But his shoulders trembled, very faintly.
 
-Sion saw it and didn't go closer.
-Instead, keeping the same distance, he spoke again.
+Seeing that, Sion didn't move any closer.
+Instead he kept the same distance and spoke again.
 
-"If you're not okay, you need to say so now."
+"If you're not okay, you have to say it now."
 
-After those words fell,
+After that,
 the man was quiet for a long time.
 
-Then he spoke, almost chewing the words down.
+Then he spoke, almost as if chewing the words and swallowing them.
 
 "My brother not being here—
-I found out when they counted the numbers earlier."
+I only realized it earlier, when they counted."
 
 Sion said nothing.
 
-The man added, eyes still closed.
+Eyes still closed, the man added,
 
-"During the day I kept thinking he was next to me."
-"They kept giving me things to do,
-so I just kept doing them."
+"All day I thought he was right beside me."
+"They kept giving me work,
+so I just kept doing it."
 
-Those words weren't resentment.
-But they hurt more for it.
+That wasn't resentment.
+But that made it hurt more.
 
-When a person keeps moving,
-they can be fooled for a while.
+When people keep moving,
+they can fool themselves for a while.
 That it isn't over yet.
-That nothing has truly been lost.
+That they haven't really lost anything yet.
 
 But night
-is also the time when that lie breaks first.
+was also the time that lie broke first.
 
 Sion stood beside the man for a while,
-then said, very low.
+then said, very low,
 
-"Can't leave you alone tonight."
+"You can't be left alone tonight."
 
 That wasn't comfort.
-But what was needed right now, before comfort,
-was not leaving someone alone.
+But what was needed now, before comfort,
+was not leaving him alone.
 
-A while later,
-Sion brought water to the spot beside the man
-and signaled two nearby humans.
+A little later,
+Sion set water down beside the man
+and signaled to two humans nearby.
 
 *You must speak first.*
 
-The old machine's words
-were a far more practical sentence than he'd thought.
+What the old machine had said
+was a far more practical sentence than he had thought.
 
-When you see who is on the verge of breaking,
-the next step must be telling someone.
+If you see who's about to break,
+then you have to tell someone.
 
-Noticing alone and moving past
-is not doing the job.
+If you notice it alone and let it pass,
+you haven't done the job.
 
 The first one passed like that.
 
 The second came faster.
 
-Near the children's area,
+Near the children,
 a woman from Hazran kept folding and unfolding the same cloth.
 
 At first it looked like a simple habit.
-But from the third time, Sion noticed her hands were trembling.
+But from the third time on, Sion saw that her hands were shaking.
 
 And on the fourth fold,
-the woman couldn't open her hand at all.
+the woman could not open her hands at all.
 
-Sion went straight there.
+Sion went straight over.
 
 "You need to rest now."
 
-The woman shook her head immediately.
+The woman shook her head at once.
 
-"I have to put the children to sleep."
+"I have to get the kids to sleep."
 
-"Right now, you go dark first."
+"Right now you're the one burning out first."
 
-At those words,
+At that,
 the woman looked at Sion for the first time.
 
-A surprised face.
+Her face was startled.
 
-The face of someone who didn't expect anyone to say that directly.
+The face of someone who had never expected anyone to say that to her directly.
 
-Seeing that expression,
-Sion thought he understood why his role was needed in this old layer.
+The moment he saw that look,
+Sion felt he understood why his share was needed in this old layer.
 
-Everyone here has held on for a long time.
-And because of that,
-they recognize their own breaking point last.
+Everyone here had held on a long time.
+And so, if anything,
+they were the last to admit when they were breaking.
 
-Someone has to see it first and say it.
+Someone had to see it first and say so.
 
-A while later,
-another human sat beside the children in her place,
-and the woman nearly collapsed against the wall.
+A little later,
+another human sat down with the children in the woman's place,
+and the woman sank down by the wall, almost collapsing.
 
-Only then
-did the cloth fall from her hand.
+Only at that moment
+did the cloth fall from her hands.
 
-Sion watched it and exhaled very slowly.
+Watching that, Sion let out a very slow breath.
 
-As midnight deepened,
-other cracks inside this old layer began to show too.
+As the night grew deeper,
+other cracks inside this old layer began to show.
 
-Not only people.
-Machines as well.
+It wasn't only the people.
+The machines were the same.
 
-One old machine clearly had a joint slip badly during movement,
-but said nothing and re-aligned its axis and kept going.
+One old machine had clearly had a joint slip badly once while moving,
+yet without a word it realigned its axis and kept going.
 
-Another machine paused mid-signal-organizing
-as if its vision briefly went dark,
-then continued working as if nothing happened.
+Another machine, partway through sorting signals,
+stopped as if its vision had gone dark for a moment,
+then carried on with the work as if nothing had happened.
 
 Watching those scenes, Sion felt a strange fatigue.
 
-This isn't a place where only people hold on.
-It's a place where machines also hold on, hiding their own malfunctions to the end.
+This was not a place where only people held on.
+It was a place where machines, too, held on by hiding their own breakdowns to the end.
 
 And that
-was making the entire community more dangerous.
+was making the whole community more dangerous.
 
-Then from behind,
-the human woman who had first spoken to him during the day approached quietly.
+Just then, from behind,
+the human woman who had first spoken to him during the day came over quietly.
 
-She followed the end of Sion's gaze,
-looked at the two old machines once, and said low.
+She followed the line of Sion's gaze,
+looked once at the two old machines, and spoke, low.
 
 "You saw?"
 
 Sion nodded.
 
-The woman added, face bitter.
+The woman added, with a bitter face,
 
-"It's the same here with them."
-"It's not only people who pretend to be fine until the end."
+"Here, they're no different."
+"It's not only people who pretend they're fine to the end."
 
-Those words, strangely,
-chilled Sion a little.
+Strangely, those words
+left Sion a little chilled.
 
-During the day, this old layer had felt like it lies less than the Serakion above.
-But as night came,
-another kind of lie appeared inside it too.
+By day, this old layer had felt like a place that lied less than Serakion above.
+But when night came,
+another kind of lie showed even inside it.
 
-Not pretending to be complete.
-Pretending to still be able to hold.
+Not pretending to be complete,
+but pretending they could still hold on.
 
-That lie was kinder.
-More heartbreaking.
-And because of that, caught later.
+That lie was kinder,
+more pitiful,
+and so it was found out later.
 
-Sion added one more mark on the old panel.
+Sion left one more mark on the old board.
 
-Two people.
-One machine.
-And one zone flagged for interim watch.
+Two people,
+one machine.
+And one zone needing provisional watch.
 
-The marks were small,
-but from that moment, this night was no longer a simple shift.
+The mark was small,
+but from that moment the night was no longer just a duty shift.
 
-This was a night that tells first
-where this old layer is beginning to crack again.
+Where this old layer was beginning to crack again—
+this was the night that told it first.
 
-And for the first time,
-Sion was standing on the side
-that had to say it.
+And for the first time, Sion
+stood on the side that had to say it.
 
 ---
 

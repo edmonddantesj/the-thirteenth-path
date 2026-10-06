@@ -30,8 +30,7 @@ y la voz era más baja y estable.
 Pero Aka, al verlo,
 endureció la cara desde el principio, de forma extraña.
 
-—Demasiado iguales.
-—dijo muy bajo.
+—Demasiado iguales —dijo muy bajo.
 
 Han Jiwoo la miró.
 
@@ -46,7 +45,7 @@ No era algo que todos pudieran entender enseguida.
 Pero, de forma extraña, quedó largo rato.
 
 El orden del estrato alto de Serakion era, sin duda, lujoso.
-Pero había una rareza que la palabra «lujoso» no alcanzaba a explicar.
+Pero había una rareza que la palabra *lujoso* no alcanzaba a explicar.
 
 Que seres distintos se parezcan bajo un largo gobierno
 no es lo mismo que formas ordenadas desde el inicio con un mismo molde, en movimiento.
@@ -92,8 +91,7 @@ se acercaba al paisaje de reproducir una forma ya fijada.
 Sern, solo tras oír aquello,
 sacó con cuidado la rareza que había sentido desde el lado del registro.
 
-—En el registro de aprobación del estrato alto hay algo parecido.
-—dijo bajo.
+—En el registro de aprobación del estrato alto hay algo parecido —dijo bajo.
 
 Seorin reaccionó enseguida.
 
@@ -116,7 +114,7 @@ quién retrasó,
 quién cubrió.
 
 Pero el registro del estrato alto que leyó Sern
-tenía, rarísimamente, nítida solo «la forma de la decisión».
+tenía, rarísimamente, nítida solo *la forma de la decisión*.
 
 Como si, más que quién ejerció el poder,
 quedara primero con qué cara había bajado esa decisión.
@@ -214,13 +212,13 @@ Seorin, ordenando de nuevo la tabla, dijo muy bajo.
 —No solo vemos camino y aprobación,
 sino también por qué ese arriba repite hasta tal punto la misma forma.
 
-Eso significaba que la parte estratégica del estrato alto de Serakion
+Eso significaba que la tarea de apuntar al estrato alto de Serakion
 entraba ahora no en una simple infiltración o perturbación de la estructura,
-sino en una fase de diseccionar la política central y la estructura ceremonial misma.
+sino en una **fase de diseccionar la política central y la estructura ceremonial misma**.
 
 Y en su punto de partida
 estaba la mirada de Aka, que antes que nadie
-sintió que «eso es tan completo que no parece estar vivo».
+sintió que *eso es tan completo que no parece estar vivo*.
 
 Al final de aquel día,
 ellos aún no conocían la identidad del centro.

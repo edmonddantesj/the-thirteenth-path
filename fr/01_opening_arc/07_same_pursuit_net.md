@@ -1,249 +1,266 @@
 # Chapitre 7 — Le même filet
 
-La fissure derrière la salle de conservation était à peine assez large pour qu'un homme passe en se tordant.
+La fissure derrière la salle de conservation était à peine assez large pour laisser passer une personne.
 
-Sion entra le premier, se vrillant pour passer. Un fragment de métal arracha le flanc de son manteau. Seorin suivit aussitôt dans son sillage, et Sern progressa à demi courbé, les yeux parcourant la structure intérieure de la fissure. Ater attendit d'avoir vérifié leurs arrières une dernière fois avant d'entrer.
+C'était Seorin qui avait atteint la fissure la première, mais ce fut Sion qui s'y glissa le premier en se tordant. Un éclat de métal brisé lui racla le flanc du manteau. Seorin le suivit aussitôt, et Sern avança à demi courbé, parcourant des yeux la structure intérieure de la fissure. Ater n'entra qu'après avoir surveillé leurs arrières jusqu'au bout.
 
-Derrière eux, le bruit métallique retentit encore une fois.
-Plus proche que tout à l'heure.
-Le couloir principal était compromis.
+Dans leur dos, un coup sur le métal retentit encore une fois.
+Plus près que tout à l'heure.
+Le couloir principal, autant dire qu'il était déjà découvert.
 
-Une fois sortis de l'interstice, ils débouchèrent directement dans la conduite de ventilation — un passage bas de plafond, conçu autrefois pour la maintenance. La hauteur était absurde. Le sol, un mélange de graisse et de poussière compactée, glissait sous les pieds. À chaque inspiration, une odeur de métal, de rouille et de vieux isolant thermique se collait au fond des poumons.
+Au sortir de l'étroite fente s'ouvrait aussitôt un passage bas : le conduit d'aération.
+Construit autrefois pour la maintenance, il avait un plafond bien trop bas, et le sol, où graisse et poussière s'étaient agglutinées, était glissant. À chaque respiration, l'odeur du métal, de la rouille et d'un vieil isolant se collait au fond des poumons.
 
-Seorin jura entre ses dents.
+Seorin jura à voix basse.
 
-« Super. Le chemin de fuite aussi, il est pourri. »
+« Super. Même la route de fuite est pourrie. »
 
-« On est vivants. Ça suffit. »
+« Tant qu'elle est encore vivante, ça suffit. »
 
-Sion répondit sans quitter des yeux ce qui était devant lui.
+Sion répondit sans quitter l'avant des yeux.
 
-Sern enchaîna dans son dos :
+Juste derrière, Sern dit :
 
-« C'est une chance que le chemin soit encore praticable. Sur les plans officiels, ce tronçon est fermé depuis longtemps. »
+« C'est justement une chance qu'elle soit vivante. Sur les plans officiels, ce tronçon est déjà bouché. »
 
-« Et toi seul le sais. Pourquoi. »
+« Pourquoi t'es le seul à savoir ça, je te demande. »
 
-Sion lâcha la remarque d'un ton plat. Sern répondit sans même reprendre son souffle :
+Sion avait lâché ça sèchement ; Sern répondit d'une voix qui ne reprenait même pas son souffle.
 
-« Ceux qui perdent leurs chemins les ont trouvés avant nous. Nous, nous les avons appris après. »
+« Les chemins par où s'échappent les gens qu'on a entravés, ce sont depuis longtemps les gens hors des grandes maisons qui les trouvent les premiers. Nous n'avons fait que les apprendre après. »
 
-Courte phrase. Mais Seorin y perçut immédiatement quelque chose de plus ancien — une froideur qui y était attachée depuis longtemps.
-Le mot *appris* sonnait bizarrement lourd.
-Le genre de couloir qui, pour certains, était survie. Pour d'autres, gestion.
-Et la conduite de ventilation dans laquelle ils rampaient en ce moment — tout comme la passerelle de maintenance un peu plus loin — ressemblait fort aux vestiges d'une vieille voie d'exfiltration par laquelle marchandises et personnes hors des registres avaient jadis transité en silence.
+Dans cette phrase, Seorin n'entendit que « apprendre ».
 
-En tête, Sion leva soudain la main.
+Certains avaient fui par ce chemin, et d'autres avaient appris cette fuite pour la consigner. Le conduit où ils rampaient maintenant à quatre était un chemin que ces deux sortes de gens avaient emprunté ensemble.
+
+Sion, qui rampait en tête, leva soudain la main.
 
 Tous s'immobilisèrent en même temps.
 
-Une vibration métallique infime remonta depuis le dessus de la conduite.
-Des pas qui couraient dans le couloir juste au-dessus. Pas un seul. Trois, quatre corps de poids différents. Et, très bref, un signal électronique qui se coupait net — semblable au son produit par un brouilleur de communications impérial en fonctionnement rapproché.
+Une infime vibration métallique résonna au-dessus du conduit.
+Les pas de quelqu'un qui courait dans le passage juste au-dessus. Pas un seul. Trois, quatre, de poids différents. Et un signal électronique, très bref, qui se coupait net. Semblable au son d'un appareil impérial de coupure des communications fonctionnant à courte distance.
 
 Ater dit à voix basse :
 
-« Ils commencent à fermer le dessus. »
+« Ils ont commencé à fermer le haut. »
 
-Seorin reprit aussitôt :
+Seorin enchaîna aussitôt :
 
-« Alors le bas va s'accélérer. »
+« Alors en bas, ça va aller encore plus vite. »
 
-Comme pour lui répondre, quelque part sous la conduite, un vieux panneau d'accès s'ébranla violemment.
-Pas une unité de répression officielle — c'était la manière des gens du fond du port de remonter par les entrailles depuis le bas.
+Comme pour lui répondre, quelque part sous le conduit, un vieux couvercle trembla avec fracas.
+Pas une équipe d'intervention officielle : c'était la manière des gens du fond du port, qui remontaient les chemins par en dessous.
 
-Sern murmura, bref :
+Sern murmura :
 
-« Les deux côtés. »
+« Des deux côtés. »
 
 Sion grimaça.
 
-« Bien. On est dans le même filet, alors. »
+« On est vraiment dans le même filet. »
 
-Cette fois, personne ne le contredit.
+Cette fois, personne ne le nia.
 
-Devant eux, le couloir se divisait en deux.
-Un côté plus étroit, mais qui débouchait directement sous la passerelle de maintenance extérieure. L'autre légèrement plus large, mais avec deux trappes d'inspection béantes au milieu. Pour fuir vite, c'était la deuxième option — mais avec quelqu'un qui fouillait simultanément par en haut et par en bas, les trappes ouvertes transformaient ce chemin en piège.
+Devant, le passage se divisait en deux.
+L'un, plus étroit, débouchait tout droit sous le pont de maintenance extérieur ; l'autre, un peu plus large, comptait en chemin deux trappes d'inspection ouvertes. Le second permettait de sortir plus vite, mais maintenant que quelqu'un commençait à ratisser en haut et en bas à la fois, le chemin aux trappes était le plus dangereux.
 
-Sern parla le premier :
+Sern parla le premier.
 
-« À gauche, c'est plus lent, mais on ne se ferme pas. »
+« À gauche, c'est plus lent, mais cela ne se ferme pas. »
 
-« À droite ? » demanda Seorin.
+« Et à droite ? demanda Seorin. »
 
-« Plus rapide, mais on est exposés deux fois dans le passage. »
+« Plus rapide, mais on y est exposé deux fois en chemin. »
 
 Sion n'hésita pas.
 
 « Gauche. »
 
-Ater répondit immédiatement :
+Ater répliqua aussitôt :
 
-« Le chemin lent, on nous colle aux talons. »
+« Le chemin lent leur laisse le temps de nous rattraper. »
 
-Sion dit par-dessus son épaule, avec quelque chose qui ressemblait à du mépris :
+Sion lança par-dessus son épaule, avec une pointe de moquerie :
 
-« Le chemin rapide, si on se fait repérer, c'est terminé. »
+« Le chemin rapide, si on se fait repérer, c'est fini. »
 
-« Le lent peut aussi se terminer. »
+« Le chemin lent aussi peut finir ainsi. »
 
-« C'est moi qui choisis quand même. »
+« Je choisis quand même. »
 
-Leurs deux voix allaient se percuter de nouveau quand Seorin coupa court, à voix basse :
+Au moment où leurs paroles allaient de nouveau se heurter, Seorin coupa court, à voix basse.
 
-« Bien. Fermez-la, tous les deux.
-Sion a raison. Là maintenant, ne pas se faire repérer passe avant d'aller vite. »
+« Fermez-la, tous les deux.
+Sion a raison. Pour l'instant, le chemin où on se fait pas repérer passe avant le plus rapide. »
 
-Sern approuva aussitôt :
+Sern approuva aussitôt, lui aussi.
 
-« D'accord.
-L'Empire ferme en haut, et ce qui monte par en bas, ce sont des gens attirés par la rumeur. Si on est vus, ils réagissent différemment — ce qui nous met encore plus en difficulté. »
+« Je partage cet avis.
+En haut, c'est l'Empire qui ferme ; en bas, ce sont ceux qui se sont greffés sur la rumeur qui montent. Si nous sommes exposés, comme ils ne réagissent pas de la même façon, notre position sera plus mauvaise encore. »
 
-Ater garda le silence un instant, puis dit brièvement :
+Ater se tut un instant, puis dit :
 
-« …On prend la gauche. »
+« …Nous prenons à gauche. »
 
-Sion se remit en mouvement.
+Alors seulement, Sion se remit en mouvement.
 
-La conduite rétrécissait encore.
-Maintenant, ce n'était plus seulement se baisser — il fallait ramper. À travers les grilles métalliques sous leurs genoux, on apercevait vaguement les lumières de l'extérieur du port, et dessous, des ombres enchevêtrées de passerelles de maintenance et de coques de navires abandonnés se superposaient à l'infini.
+Le conduit se resserrait de plus en plus.
+Il ne suffisait plus de se courber : il fallait presque ramper. Sous la grille métallique, on devinait les lumières de la périphérie du port, et plus bas encore se superposaient les ombres de ponts de maintenance enchevêtrés sans fin et d'épaves.
 
 Seorin se retourna et chuchota :
 
-« Ceux qui nous collent — les deux groupes, leurs sons se séparent. »
+« Ceux qui nous collent, les deux groupes, je les entends séparément. »
 
 « Combien ? »
 
-« Trois au-dessus, deux en dessous.
-Mais les deux en dessous — on dirait des types payés à la course. Leurs pas sont légers. »
+« Trois en haut, deux en bas.
+Mais les deux d'en bas, on dirait des types payés pour courir. Ils ont le pied léger. »
 
-Sion fit claquer sa langue.
+Sion fit claquer sa langue, doucement.
 
-« Un courtier est impliqué. »
+« Un courtier s'en est mêlé. »
 
-« Forcément. »
+« Fallait s'y attendre. »
 
 Sern ajouta :
 
-« C'était prévisible dès que la rumeur sur l'Archiviste s'est répandue dans le port. »
+« Je l'avais prévu dès l'instant où la rumeur sur l'Archiviste s'est répandue dans le port. »
 
-Sion entendit ça et eut un bref sourire malgré lui.
+À ces mots, Sion eut un petit rire.
 
-« Prévisible, et tu ne l'as pas dit avant. »
+« Si tu l'avais prévu, fallait le dire plus tôt. »
 
-La réponse de Sern fut froide et courte :
+La réponse de Sern fut froide et brève.
 
-« Vous non plus, vous n'êtes pas du genre à prévenir. »
+« Vous n'êtes pas non plus du genre à parler le premier, il me semble. »
 
-À peine ces mots prononcés, un panneau d'accès fut entièrement arraché dans leur dos.
+À peine avait-il fini qu'on entendit, à l'arrière du conduit, un couvercle arraché tout entier.
 Quelqu'un avait trouvé le bon chemin.
 
-« On court. »
+« Courons. »
 
-Cette fois c'est Ater qui parla le premier.
+Cette fois, c'était Ater qui l'avait dit le premier.
 
-Sion se retourna vers lui.
-Venant d'un homme aussi ordonné, entendre ça en premier — c'était légèrement comique. Mais étrangement, ce n'était pas faux non plus.
+Sion se retourna.
+Entendre ça d'abord dans la bouche d'un homme si bien rangé avait quelque chose d'un peu comique, mais étrangement, ce n'était pas faux.
 
-À l'endroit où la conduite étroite se terminait, une échelle verticale descendait vers la passerelle de maintenance en contrebas.
-Le problème : l'espace sous l'échelle n'était pas complètement dégagé. Sous la passerelle de maintenance extérieure, des câbles électriques provisoires et des conduites d'évacuation s'enchevêtraient dans tous les sens — un faux pas produirait beaucoup de bruit, et on pouvait se tordre la cheville facilement.
+Là où finissait le conduit étroit, une échelle verticale descendait vers le pont de maintenance en contrebas.
+Le problème, c'était que l'espace sous l'échelle n'était pas entièrement dégagé. Sous le pont de maintenance extérieur s'enchevêtraient des câbles électriques provisoires et des conduites d'évacuation des eaux usées ; un seul faux pas, et on faisait beaucoup de bruit, avec de bonnes chances de se fouler la cheville.
 
-Sion balaya le dessous d'un regard et dit aussitôt :
+Sion balaya le dessous du regard et dit aussitôt :
 
-« Je passe en premier. »
+« Moi d'abord. »
 
 Ater répondit par réflexe :
 
 « C'est imprudent. »
 
-« Je lis les chemins plus vite que toi. »
+« Lire un chemin, je fais ça plus vite. »
 
-« Rien ne le gar— »
+« On ne peut pas en être cer— »
 
-Seorin coupa :
+Seorin coupa de nouveau.
 
-« On n'a pas le temps de garantir quoi que ce soit. »
+« On n'a pas le temps d'être certains. »
 
-Et elle poussa brièvement Sion dans le dos.
+Puis elle poussa Sion dans le dos.
 
-« Vas-y, Truffe. »
+« Vas-y. »
 
-Sion ravala ce qui allait être un juron et descendit l'échelle.
-Ses orteils cherchèrent le premier barreau, ses mains agrippèrent les montants rouillés, son corps glissa vers le bas. Un barreau à mi-chemin était entièrement corrodé, manquant — mais il posa le pied sur le côté d'une conduite voisine comme s'il l'avait su d'avance, et transféra son poids sans accroc.
+Sion ravala un juron et descendit l'échelle.
 
-Arrivé en bas le premier, Sion leva les yeux vers le haut.
+Ici, impossible d'allumer une lampe : d'en haut, on balayait les lieux de faisceaux. Le normal aurait donc été de descendre en tâtonnant du pied.
 
-« Venez. »
+Sion ne tâtonna pas.
+
+Dès le haut, il avait vu que le huitième barreau, rongé par la corrosion, manquait entièrement, et que le raccord de la conduite d'à côté tenait encore. La pointe de son pied passa le barreau absent et se posa exactement sur ce raccord. Presque aucun bruit.
+
+Arrivé en bas le premier, Sion leva les yeux.
+
+« Le huitième barreau manque. »
 
 Seorin descendit en deuxième.
-Elle vit la lacune corrodée au premier coup d'œil et, sans hésiter, prit exactement le côté de conduite qu'avait emprunté Sion. À peine en bas, elle s'écarta d'un pas sur le côté et dit vers le haut :
+Elle non plus ne tâtonna pas. Elle enjamba simplement le vide et prit appui sur le raccord même où Sion avait posé le pied. À peine en bas, elle s'écarta d'un pas sur le côté et lança vers le haut :
 
 « Suivant. »
 
-Sern avait des yeux pour calculer la structure en bas avant l'échelle elle-même.
-Où poser le pied pour faire le moins de bruit. Quel métal avait l'air solide en surface mais était creux à l'intérieur. Il lisait ça presque d'un coup. Sa descente ne gaspillait aucun mouvement.
+Sern avait l'œil de ceux qui calculent la structure d'en bas avant l'échelle elle-même.
+Où poser le pied pour faire moins de bruit, quel métal n'était sain qu'en surface et creux dedans : il le lisait presque d'un coup. Sa descente ne gaspillait aucune force.
 
-Le dernier, c'était Ater.
+Le dernier fut Ater.
 
-Sion le regardait d'en bas et tordit très légèrement la commissure des lèvres.
+Il s'arrêta une fois au huitième barreau. Il descendit le pied, constata qu'il n'y avait rien, le remonta. Puis il tâtonna de la main sur le côté pour trouver le raccord. Cela prit du temps.
 
-« T'empruntes souvent ce genre de chemin, avec cet uniforme ? »
+Sion, qui regardait vers le haut, tordit très brièvement le coin de ses lèvres.
 
-Ater, à mi-hauteur sur l'échelle, répondit brièvement :
+« Avec cet uniforme, on prend souvent ce genre de chemin ? »
 
-« C'est la première fois. »
+Ater répondit, arrêté à mi-hauteur de l'échelle :
 
-Seorin souffla un court soupir. Dès le premier jour, en être déjà là.
+« Aujourd'hui, pour la première fois. »
 
-« C'est grâce à vous. »
+Puis il descendit d'un barreau encore et ajouta :
 
-Sion faillit sourire — mais à cet instant, de l'ouverture de la conduite au-dessus, un faisceau de lampe torche jaillit.
+« Comment voyez-vous, vous deux ? On ne voit rien, ici. »
+
+Personne ne répondit.
+
+Ater savait que ce silence aussi était le deuxième de la journée.
+
+« Dans les manuels de la Chambre de Reconnaissance, le seul nom, ou presque, que les Myo aient laissé est celui-là. Inscrit comme celui d'un traître. »
+
+Seorin parla sans même regarder du côté d'Ater.
+
+« Grâce à vous. »
+
+À cet instant, le faisceau d'une lampe jaillit à l'entrée du conduit, en haut.
 
 « Baissez-vous ! »
 
-Le cri de Seorin et le mouvement de tous furent simultanés.
-Le faisceau balaya la passerelle de maintenance en dessous. Une seconde de retard, et ils étaient pris.
+Au cri de Seorin, tous se baissèrent en même temps.
+Le faisceau balaya le pont de maintenance en contrebas. Un instant de retard, et à cette distance, ils étaient pris.
 
-Sern chuchota :
+Sern dit dans un souffle :
 
-« Impossible de continuer à se déplacer verticalement. On va être localisés très vite. »
+« Plus aucun déplacement vertical n'est possible. Notre position sera bientôt repérée. »
 
-Sion désigna la gauche de la passerelle de maintenance en contrebas.
-Derrière un faisceau de câbles électriques, on distinguait un couloir d'inspection à moitié effondré. Juste assez étroit pour qu'un adulte s'y glisse en se faufilant — mais au bout, on pouvait ressortir vers la couche d'amarrage extérieure.
+Sion désigna la gauche du pont de maintenance, en contrebas.
+Derrière un faisceau de câbles électriques, on voyait un couloir d'inspection à moitié effondré. Si étroit qu'un adulte pouvait tout juste s'y faufiler, mais au bout, il permettait de ressortir vers la couche d'amarrage extérieure.
 
-« Là-bas. »
+« Là. »
 
-Ater demanda immédiatement :
+Ater demanda aussitôt :
 
-« Vous en êtes sûr ? »
+« Vous en êtes certain ? »
 
 « Non.
-Mais c'est le chemin où on a le moins de chances de mourir, je crois. »
+Mais pour l'instant, ça m'a l'air du chemin où on meurt le moins. »
 
-Seorin reprit aussitôt :
+Seorin enchaîna aussitôt :
 
-« Alors c'est ça, la certitude. »
+« Alors c'est ça, être certain. »
 
 Les quatre se remirent en mouvement.
 
-L'ordre avait changé cette fois.
-Sion lisait les chemins. Seorin couvrait le champ de vision arrière. Sern calculait l'intervalle d'interception réel et les angles d'évasion. Ater anticipait la façon dont les traces laissées seraient lues par la ligne de blocus impériale — et choisissait la ligne la moins mauvaise.
+Cette fois, l'ordre avait changé.
+Sion lisait le chemin, Seorin découpait le champ de vision arrière, Sern calculait l'écart réel avec les poursuivants et les angles de sortie, et Ater, anticipant la manière dont les traces laissées seraient lues par une ligne de blocus impériale, choisissait la ligne la moins mauvaise.
 
-Pour la première fois, ce que chacun savait faire s'emboîtait différemment.
+Pour la première fois, ce que chacun savait faire, chacun à sa façon, s'emboîtait.
 
-Ce n'était pas de la confiance.
-Seulement, dans ce genre de fuite, ce qui comptait d'abord, ce n'était pas l'absence de confiance ; c'était qu'on mourrait plus vite sans l'autre.
+Cela n'avait rien à voir avec de la confiance.
+Seulement, dans ce genre de fuite, le fait qu'ils ne pouvaient pas se fier les uns aux autres comptait moins qu'un autre : sans les autres, chacun mourrait plus vite.
 
-À mi-chemin dans le couloir d'inspection, au-delà de la grille donnant sur l'extérieur, le port s'ouvrit d'un coup.
-Un vent froid et rude s'engouffra à l'intérieur. Au loin, les feux de signalisation s'éteignaient un à un. Signe que l'Empire fermait les lignes d'accès au-dessus.
+À mi-chemin du couloir d'inspection, au-delà de la grille donnant sur le dehors, la périphérie du port s'ouvrit d'un coup.
+Un vent rude et froid s'engouffra à l'intérieur, et au loin, les feux de surveillance s'éteignaient un à un. Signe que l'Empire fermait les lignes d'accès du haut.
 
-En même temps, sur les quais en contrebas, une tout autre sorte d'agitation s'élevait.
-Deux cargos civils changeaient précipitamment de quai, et du côté de la ruelle des bars, quelques personnes se mirent à courir dans la même direction — comme des bêtes qui ont flairé l'argent. Peu importe qui avait lâché l'information, mais en bas, prime et rumeur circulaient déjà librement.
+Au même moment, sur les quais d'en bas, s'élevait une agitation d'une tout autre sorte.
+Deux cargos civils changeaient précipitamment de couloir, et du côté de la ruelle des bars, quelques personnes se mirent à courir dans la même direction, comme des bêtes qui ont flairé l'argent. On ignorait qui l'avait lâchée, mais en bas, la prime et la rumeur couraient déjà.
 
-Sion vit ça et jura à voix basse.
+Sion vit cela et jura à voix basse.
 
 « Ils sont vraiment tous là. »
 
-Ater regarda lui aussi au-dehors et dit brièvement :
+Ater, regardant lui aussi au-dehors, dit :
 
 « L'Empire a fermé le haut. »
 
@@ -253,38 +270,30 @@ Seorin enchaîna :
 
 Sern posa la dernière pièce :
 
-« À partir de maintenant, si on ne bouge pas dans la même direction, on ne peut plus se couvrir les uns les autres. »
+« Désormais, si nous ne bougeons pas dans la même direction, nous ne pourrons même plus nous couvrir les uns les autres. »
 
-Sion se retourna à ces mots et regarda les trois, l'un après l'autre.
-L'homme de la Chambre de Reconnaissance dans son manteau noir. Son conseiller, encore plus silencieux, pareil à une ombre. Et Seorin, à son côté, qui attendait déjà le prochain jugement.
+À ces mots, Sion tourna la tête et regarda les trois autres, l'un après l'autre.
+L'homme de la Chambre de Reconnaissance en manteau noir, son conseiller, plus silencieux encore, pareil à une ombre, et Seorin, à côté, qui attendait déjà le jugement suivant.
 
-Qu'il les aime ou non — ici, ils formaient un bloc de quatre.
+Qu'ils le veuillent ou non, ici, ils formaient un seul bloc à quatre.
 
-Il dit brièvement :
+Il dit :
 
 « On sort vivants.
-On recommencera à se détester après. »
+Après, on pourra recommencer à se détester. »
 
-Seorin rit, à peine audible.
+Seorin eut un rire bas.
 
-« Bien.
-Comme accord, ça me déplaît. Mais pour l'instant, ça tient. »
+« Comme accord, ça me plaît pas, mais pour l'instant, ça suffit. »
 
-Sern, sans un mot de plus, indiqua la sortie devant eux. Ater fit juste un signe de tête.
+Sern, sans un mot, indiqua la sortie devant eux, et Ater se contenta d'un signe de tête.
 
-Enfin, les quatre forcèrent l'extrémité du couloir d'inspection et débouchèrent sous la passerelle de maintenance extérieure.
+Enfin, les quatre forcèrent l'extrémité du couloir d'inspection et débouchèrent sous le pont de maintenance extérieur.
 
 Le vent froid leur cingla le visage.
-Dans leur dos, quelqu'un descendait encore en suivant leur chemin. Devant eux, le port était déjà un chaos où chemins qui se fermaient et chemins qui s'infiltraient se mêlaient les uns aux autres.
+Dans leur dos, quelqu'un descendait toujours en suivant leur chemin, et devant eux, le port n'était déjà plus qu'un chaos où s'emmêlaient les chemins qui se fermaient et ceux qui s'infiltraient.
 
-Mais du moins — pour cet instant précis — c'était eux qui avaient saisi l'air du dehors en premier.
-
-Et Sion comprit alors seulement.
-
-Depuis le moment où il avait vu le nom de Jun Astel,
-ces quatre-là n'étaient plus des gens de quatre mondes différents —
-ils étaient devenus des gens qui traversaient le même filet.
-Il comprit aussi que, sans doute, ceux qui avaient vu le même fragment finiraient forcément par converger vers le même chemin.
+Mais au moins, pour cet instant précis, c'étaient eux qui avaient saisi les premiers l'air du dehors.
 
 ---
 

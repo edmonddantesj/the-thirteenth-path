@@ -125,7 +125,7 @@ Puis il dit bas :
 
 « Le besoin de vérifier. »
 
-Ce mot rendit tout le monde étrangement silencieux.
+Ces mots rendirent tout le monde étrangement silencieux.
 
 La peur éloigne les gens.
 Mais certaines peurs

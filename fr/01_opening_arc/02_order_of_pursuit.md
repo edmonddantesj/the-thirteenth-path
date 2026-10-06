@@ -1,81 +1,105 @@
-# Chapitre 2 — L'Ordre de la traque
+# Chapitre 2 — L'ordre de la traque
 
 La septième salle de consultation de la Chambre de Reconnaissance impériale était toujours excessivement silencieuse.
 
-Dans le corridor extérieur, le moindre bruit de pas résonnait longuement, mais une fois à l'intérieur, les sons mouraient plus vite encore. Les tablettes d'archives alignées le long des murs, les dispositifs de scellement, les terminaux d'autorisation — tout était impeccable, et n'en paraissait que plus froid.
+Dans le corridor extérieur, un seul bruit de pas suffisait à résonner longuement, mais une fois à l'intérieur, les sons mouraient au contraire plus vite. Les tablettes d'archives alignées le long des murs, les dispositifs de scellement, les terminaux de ligne d'approbation, tout était impeccable, et n'en paraissait que plus froid.
 
-Sern Barek était de ceux qui, même dans une telle pièce, percevaient en premier les changements infimes. C'était encore le cas.
+Sern Barek était, même dans une telle pièce, celui qui lisait le premier les changements infimes. C'était encore le cas.
 
-Sur la table de consultation, l'une des listes provisoires de récupération avait tremblé très brièvement. Trop bref pour parler d'erreur. Trop répété — deux fois — pour être ignoré.
+Sur la table de consultation, l'une des listes provisoires de lignes de récupération qui défilaient trembla très brièvement. Trop bref pour parler d'erreur ; répété deux fois, trop pour passer pour un hasard.
 
-Sern figea l'écran et tourna le regard de côté.
+Sern figea l'écran et tourna les yeux de côté.
 
-Ater Valkar se tenait en face. Uniforme impeccable, posture impeccable, silence impeccable. Il était toujours ainsi. Plutôt que de saisir quelque chose à la hâte, il observait d'abord jusqu'où cela s'était propagé.
+Ater Valkar se tenait en face. Uniforme en ordre, posture en ordre, silence en ordre. Il était toujours ainsi. Plutôt que de saisir quelque chose à la hâte, il commençait par regarder jusqu'où cela s'était répandu.
 
 « Une ligne de récupération extérieure a été coupée de façon anormale. »
 
-Même après les mots de Sern, Ater ne répondit pas tout de suite. Il fit défiler une portion de l'écran du bout des doigts. Deux blancs dans les itinéraires de récupération, une réattribution de numéro de scellement provisoire, un conflit infime dans les traces de droits de consultation. Quelqu'un avait effacé à la hâte, recouvert à la hâte, retouché à la hâte — c'était la texture d'un dossier manipulé dans l'urgence.
+Aux mots de Sern, Ater ne répondit pas tout de suite. Du bout des doigts, il fit défiler une partie de l'écran. Deux blancs dans les itinéraires de récupération, un numéro de scellé provisoire réattribué, un conflit infime entre des traces de droits de consultation. C'était le grain d'un dossier que quelqu'un avait effacé en hâte, recouvert en hâte, puis retouché en hâte.
 
-« De quel secteur ? »
+« De quel côté ? »
 
-« La ligne des cités portuaires neutres. »
+« La ligne de la cité portuaire neutre. »
 
-La main d'Ater s'immobilisa enfin.
+La main d'Ater s'arrêta enfin.
 
-Sern ne manqua pas cet instant. Très bref. Mais indéniablement, Son Excellence avait marqué une pause à cet endroit précis.
+Sern ne laissa pas passer cet instant. Il fut très bref. Mais, sans aucun doute, Son Excellence avait suspendu sa pensée à cet endroit.
 
-« Ce n'est pas un simple dossier de mise au rebut. » Sern ajouta : « Une ligne de consultation est passée d'abord, puis une ligne de scellement l'a recouverte. L'ordre est anormal. »
+« Ce n'est pas un dossier de rebut ordinaire », ajouta Sern. « Une ligne de consultation est passée d'abord, puis une ligne de scellement l'a recouverte. La séquence est anormale. »
 
-Ater referma l'écran sans un mot.
+Ater referma l'écran sans bruit.
 
-La Chambre de Reconnaissance impériale avait toujours cru en l'ordre des choses. Ce qu'on ouvre, ce qu'on ferme, ce qu'on efface, ce qu'on conserve. Cet ordre naissait de la séquence. Aussi un dossier dont la séquence était rompue était-il pire qu'une simple erreur.
+La Chambre de Reconnaissance impériale avait toujours cru en la séquence. Ce qu'on ouvre, ce qu'on ferme, ce qu'on efface, ce qu'on conserve. Son ordre naissait de la séquence. Aussi un dossier à la séquence déréglée était-il pire qu'une simple erreur.
 
-« Préparez une ligne d'accès au terrain. »
+« Barek. Préparez une ligne d'accès au terrain. »
 
-Sern inclina brièvement la tête.
+Sern inclina la tête.
 
-« Consultation officielle ou vérification officieuse ? »
+« Consultation officielle, ou vérification officieuse ? »
 
-Avant de répondre, Ater posa un instant le regard sur la surface de la tablette refermée. Sous la surface lisse, les traces qu'on avait effacées à la hâte s'estompaient encore faiblement.
+Avant de répondre, Ater posa un instant les yeux sur la surface de la tablette refermée. Sous la surface lisse s'étalait faiblement la trace de ce que quelqu'un avait effacé en hâte.
 
-« Pour l'instant, c'est une vérification. »
+« Pour l'instant, une vérification. »
 
-Sern rangea à part dans son esprit ce « pour l'instant ». Son Excellence employait toujours des mots précis, et les mots précis arrivaient généralement un peu après le jugement réel.
+Sern rangea à part, dans sa tête, ce “pour l'instant”. Son Excellence employait toujours des mots exacts, et les mots exacts arrivaient d'ordinaire un peu après le jugement réel.
 
-« Bien compris. »
+« Entendu. »
 
-Même après le départ de Sern, Ater resta longtemps immobile. Cité portuaire neutre. Ligne de récupération coupée de façon anormale. Traces de consultation rouvertes après avoir été recouvertes par un scellement.
+Même après le départ de Sern, Ater resta un long moment immobile. La cité portuaire neutre. Une ligne de récupération coupée de façon anormale. Des traces de consultation rouvertes après que la ligne de scellement les eut recouvertes.
 
-C'était une affaire qui n'avait pas encore de nom. Mais les affaires qu'il fallait trancher avant qu'elles en reçoivent un finissaient en général par laisser un nom bien plus grand derrière elles.
+C'était une affaire qui n'avait pas encore de nom. Mais le genre d'affaires qu'il faut trancher avant qu'elles en reçoivent un laissait d'ordinaire, plus tard, un nom bien plus grand.
 
 Ater se retourna enfin.
 
-« Sern. »
+« Barek. »
 
 « Oui, Excellence. »
 
-« Commence par identifier qui a atteint le terrain en premier. »
+« Commencez par établir qui a atteint le terrain en premier. »
 
-Sern marqua un bref arrêt.
+Sern posa la main sur la table de consultation. Le registre du personnel des docks de l'Office des Routes Extérieures de l'Alliance s'afficha. La Chambre de Reconnaissance impériale ne pouvait pas ouvrir directement les dossiers du personnel de l'Alliance, mais il restait les résumés transmis pour l'examen de passage.
+
+La plupart des noms avaient été effacés. Il ne restait que des chiffres et des catégories.
+
+**Personnel opérationnel des docks extérieurs · inscrits 411 · composition par peuple : Myo 373 / autres 38**
+
+Sern s'arrêta un instant sur cette ligne.
+
+« Excellence. »
+
+« Parlez. »
+
+« Pour le personnel de déchargement de la série 18-B, huit sur neuf sont des Myo. »
+
+Ater ne tourna pas la tête vers l'écran.
+
+« Est-ce nécessaire au jugement ? »
+
+« Oui. Ces gens-là ne se déplacent pas sur papier. »
+
+Ater répondit avec un temps de retard.
+
+« C'est peut-être parce qu'on ne leur donne pas de papiers. »
+
+Sern retint cette phrase. Il était rare que Son Excellence oriente ses mots dans ce sens.
 
 « L'Office des Routes Extérieures de l'Alliance ? »
 
 Ater ne nia ni ne confirma. Il dit seulement, très bas :
 
-« Il semble qu'une main non autorisée se soit introduite. »
+« Il semble qu'une main qui n'est pas en ordre s'en soit mêlée. »
 
-Sern ne posa pas d'autre question. Il se tourna de nouveau vers le terminal. Il était rare que Son Excellence emploie l'expression « non autorisée ». Et quand cette formulation survenait, les choses dérivaient généralement dans une direction plus fastidieuse que le simple scellement.
+Sern ne demanda rien de plus. Il se tourna de nouveau vers le terminal. Il était rare que Son Excellence dise “pas en ordre”. Et quand une telle expression apparaissait, les choses dérivaient d'ordinaire dans une direction plus fastidieuse qu'un scellement.
 
-Il rappela la liste d'accès extérieur qu'il avait mise de côté hors de la ligne d'autorisation.
-Les chemins menant à la cité portuaire neutre n'étaient pas uniques. Ligne diplomatique officielle, ligne logistique impériale, navette civile en transit, et même les routes grises qui ne laissaient aucune trace dans les registres. La question était de savoir laquelle avait bougé en premier.
+Il rappela la liste d'accès extérieurs qu'il gardait à part, hors de la ligne d'approbation.
+Il n'y avait pas qu'un seul chemin pour entrer dans la cité portuaire neutre. Ligne diplomatique officielle, ligne d'approbation logistique impériale, navette civile de correspondance sous contrat, et jusqu'aux routes grises qui ne laissaient aucune trace dans les registres. La question était de savoir lequel avait bougé en premier.
 
-Sern parcourut la liste et fronça imperceptiblement les sourcils.
+Sern parcourut la liste et fronça très légèrement les sourcils.
 
-Du côté de l'Office des Routes Extérieures de l'Alliance, aucune trace d'autorisation.
+Du côté de l'Office des Routes Extérieures de l'Alliance, aucune trace d'approbation.
 
-L'absence signifiait deux choses. Soit ils n'avaient pas encore bougé, soit ils étaient déjà passés en dehors des registres officiels.
+Une absence pouvait vouloir dire deux choses. Soit ils n'avaient pas encore bougé, soit ils étaient déjà sortis des registres officiels.
 
-Et Sern penchait plutôt pour la seconde hypothèse.
+Et Sern jugeait la seconde plus probable.
 
 « Excellence. »
 
@@ -85,17 +109,17 @@ Et Sern penchait plutôt pour la seconde hypothèse.
 
 Ater se retourna vers lui.
 
-« Vos raisons ? »
+« Sur quelle base ? »
 
-« Leur absence. »
+« Sur l'absence. »
 
 La réponse de Sern était brève, et n'en était que plus précise.
 
-« Les documents ont été perturbés à ce point, et pourtant il n'y a aucune trace d'autorisation de déplacement officielle.
-S'ils ont bougé, il y a de fortes chances que ce soit le camp qui a filé en premier tout en feignant d'attendre. »
+« Les documents ont été bousculés à ce point, et il n'y a aucune trace d'autorisation de déplacement officielle.
+Le délai d'approbation se compte en sept heures, et dans l'intervalle le terrain se referme trois fois. Qui le sait n'attend pas. »
 
-Le regard d'Ater s'assombrit un instant.
-C'était une expression où le déplaisir et l'intérêt se superposaient en un film très mince.
+Le regard d'Ater s'abaissa un instant.
+C'était une expression où le déplaisir et l'intérêt se superposaient en une couche très mince.
 
 « Voilà qui n'est pas bon. »
 
@@ -103,238 +127,245 @@ C'était une expression où le déplaisir et l'intérêt se superposaient en un 
 
 « Mais s'ils ont touché le terrain en premier, ils auront au contraire laissé des traces. »
 
-Sern acquiesça brièvement.
-Un terrain où une main non autorisée s'était introduite avant une main ordonnée laissait toujours une chose.
-Des traces imprévues.
-Et parfois, une porte sur le point de se refermer.
+Sern acquiesça.
+Un terrain où une main pas en ordre était entrée avant une main en ordre laissait toujours une chose.
+Une trace imprévue.
+Et parfois, une porte sur le point de se fermer.
 
-Ater ajusta le pan de son manteau.
+Ater rajusta le pan de son manteau.
 
-« Nous partons pour la cité portuaire neutre. »
+« Nous allons à la cité portuaire neutre. »
 
-« À quel niveau préparer l'escorte ? »
+« À quel rang fixerons-nous l'escorte ? »
 
-« Le plus rapide possible sans se faire remarquer. »
+« Le plus vite possible, sans se faire remarquer. »
 
-Sern ne posa plus de questions.
-Se déplacer au nom de Valkar, tout en réduisant l'ombre de Valkar au minimum.
-Cela seul suffisait à comprendre que cette affaire n'avait rien d'ordinaire.
+Sern ne demanda rien de plus.
+Agir au nom des Valkar, mais réduire au minimum l'ombre des Valkar.
+Cela suffisait à faire comprendre que cette affaire n'était pas comme les autres.
 
-L'intérieur du vaisseau de collecte était plus étroit qu'on ne l'aurait cru.
+L'intérieur de la benne était plus étroit encore qu'on ne l'aurait cru.
 
-Que cette structure n'eût pas été conçue pour transporter des passagers se faisait sentir dès que la porte se fermait. Plafond bas, plaques de renfort grossièrement soudées, air chargé d'un mélange de vieille huile et de poussière métallique. D'un côté de la soute, des conteneurs métalliques frappés du tampon de rebut étaient arrimés les uns aux autres ; dans le coin opposé, quelques silhouettes — impossible de savoir qui s'était installé en premier — se recroquevillaient en silence.
+Que la structure n'eût jamais été conçue pour transporter des gens, on le sentait dès que la porte se fermait. Plafond bas, plaques de renfort grossièrement rapportées, un air où se mêlaient une vieille odeur de carburant et la poussière métallique. D'un côté de la soute, des conteneurs métalliques marqués du tampon de rebut étaient arrimés ; dans le coin opposé, quelques ombres, dont on ne savait pas laquelle s'était installée la première, se recroquevillaient sans un mot.
 
-Sion Lapis ne faisait guère confiance à ce genre de silence.
-Plus un lieu était muet, plus les gens y portaient déjà trop de fardeaux.
+Sion ne se fiait guère à ce genre de silence.
+Plus un endroit était muet, plus il arrivait souvent que chacun y porte déjà trop de ses propres affaires.
 
-Seorin Kael murmura en entendant la porte se refermer :
+En entendant la porte se fermer, Seorin dit à voix basse :
 
-« Charmant. Un vaisseau où les déchets sont mieux traités que les passagers. »
+« Un vaisseau où le rebut est mieux traité que les gens. »
 
-« Alors c'est la bonne soute pour nous. »
+« Alors c'est la bonne case pour nous. »
 
-« Tu ne peux pas t'empêcher de te rabaisser comme ça. »
+« Tu peux pas t'empêcher de te rabaisser comme ça. »
 
-« Je ne me rabaisse pas, je me classe correctement. »
+« Je me range dans la bonne catégorie. Si je tombe encore d'une case d'ici, j'ai plus nulle part où aller. »
 
-« C'est encore pire. »
+À ces mots, Seorin se tut un instant.
 
-Sion balaya la soute du regard, sans sourire.
-En surface, c'était un vaisseau de collecte de déchets, mais l'air à l'intérieur racontait une autre histoire. Si la cargaison n'avait été que du rebut, il n'y aurait eu aucune raison d'un tel silence. Tout le monde évitait de croiser le regard des autres avec un naturel trop rodé. Ouvriers, courtiers, passagers clandestins, ou quelque chose entre les trois. Une seule chose importait.
+« Tu le sais, et tu y vas quand même ? »
 
-**Ici, personne ne demandait le nom de personne.**
+« C'est parce que je le sais que j'y vais. »
 
-Quand le vaisseau de collecte se mit à vibrer doucement, Seorin, adossée à la paroi, demanda :
+Sion jeta encore un regard vers la porte.
 
-« Alors, tu as un vrai plan ? »
+Les yeux qui le regardaient d'en haut de la rampe n'étaient jamais descendus. Ils ne l'avaient pas arrêté, et ne l'avaient pas suivi non plus.
 
-« Une fois dans la cité neutre, on remonte la ligne de récupération depuis l'origine. »
+Ne pas arrêter quand on peut arrêter, ça voulait dire l'une de deux choses. Soit on avait le droit de voir jusqu'ici, soit il valait mieux voir à partir d'ici.
 
-« Ça, ce n'est pas un plan, c'est une évidence. »
+Sion parcourut la soute du regard.
+En apparence, c'était une benne à rebut, mais l'air, à l'intérieur, était plus compliqué que ça. Un vaisseau qui n'aurait transporté que du vrai rebut n'aurait eu aucune raison d'être aussi silencieux. La manière dont chacun évitait de croiser les yeux des autres était trop rodée. Ouvriers, courtiers, passagers clandestins, ou quelque chose entre les trois. Une seule chose comptait.
 
-« La position où les archives ont été coupées, la bande de transit, le numéro du dock où la marchandise a été transférée — et de là, on remonte jusqu'à une personne. »
+Ici, c'était une case où personne ne demandait le nom de personne.
+
+Quand la benne se mit lentement à vibrer, Seorin, l'épaule appuyée contre la paroi, demanda :
+
+« Alors, t'as vraiment un plan ? »
+
+« Une fois dans la cité neutre, on regarde d'abord le point d'origine de la ligne de récupération. »
+
+« Ça, c'est pas un plan, c'est une évidence. »
+
+« L'endroit où les archives ont été coupées, la bande de correspondance, le numéro du dock où l'objet a été remis, et de là, on retrouve quelqu'un. »
 
 Seorin fronça les sourcils.
 
-« Une personne ? »
+« Quelqu'un ? »
 
-Sion hésita un instant sur sa réponse, puis haussa les épaules.
+Sion chercha un instant sa réponse, puis haussa les épaules.
 
-« Si ça a été effacé et découpé avec autant d'urgence, il y a de grandes chances qu'on n'ait pas seulement caché un objet. »
-Sion jeta un regard vers le fond du couloir avant d'ajouter :
-« Le genre d'affaire qu'on ne peut pas régler en un seul transfert — ça laisse des gens et des fragments derrière. Comme si quelqu'un avait délibérément sectionné la chaîne. »
+« Pour avoir découpé et brûlé ça aussi vite, il y a de grandes chances qu'on n'ait pas caché qu'un objet. »
+Sion regarda un instant le bout du couloir, puis ajouta :
+« Quand c'est le genre d'affaire qui se termine si on transmet tout d'un coup, il reste des gens en chemin, et des fragments aussi. Comme si quelqu'un avait coupé exprès. »
 
-« Un archiviste ? »
+« Le responsable des archives ? »
 
-« Archiviste, passeur, intermédiaire — peu importe. Quelqu'un qui a vu de ses propres yeux devait rester quelque part. »
+« Lui, ou un porteur, ou un intermédiaire. Il y a forcément eu au moins une personne qui a vu quelque chose de ses propres yeux. »
 
-Seorin se redressa de la paroi.
+Seorin se redressa, quittant l'appui de la paroi.
 
-« D'accord.
-Donc au final, il faut trouver une personne. »
+« Au final, il faut trouver quelqu'un, quoi. »
 
-« Les affaires grossissent toujours à cause des gens. »
+« Les affaires grossissent toujours à cause des gens, non ? »
 
 « Non. Elles grossissent à cause de toi. »
 
-Sion esquissa cette fois un sourire infime.
+Cette fois, Sion sourit, très peu.
 
-Le vaisseau de collecte tangua une fois violemment, puis s'engagea sur la longue route quittant la juridiction de l'Office.
-Une fois les vibrations stabilisées, le silence dans la soute changea aussi, légèrement. Comme des gens qui acceptaient enfin d'aller tous dans la même direction, la tension se relâchait très lentement. Pas complètement, toutefois. Quelqu'un gardait sa capuche rabattue sur le front, quelqu'un d'autre faisait semblant de dormir les mains cachées dans ses manches.
+La benne tangua une fois violemment, puis s'engagea sur la longue route qui quittait la juridiction de l'Office.
+Quand la vibration devint régulière, le silence de la soute changea un peu, lui aussi. Comme des gens qui acceptaient enfin d'aller tous dans la même direction, chacun relâchait très lentement sa tension. Pas entièrement pour autant. Quelqu'un gardait sa capuche rabattue ; quelqu'un d'autre faisait semblant de dormir, les mains cachées dans ses manches.
 
-Sion s'adossa à une plaque de renfort et sortit de nouveau de sa poche de récupération le fragment d'archive brûlé.
-Bords calcinés, tranches coupées trop nettement, surface dont on pouvait encore faire tomber de la poudre noire en la grattant de l'ongle.
+Sion s'assit, adossé à une plaque de renfort, et ressortit de sa poche de récupération le fragment d'archive brûlé.
+Le bord roussi par le feu, la tranche coupée trop droite, la surface dont il tombait encore de la poudre noire quand on la grattait de l'ongle.
 
-Seorin le regarda et demanda :
+Seorin le regarda faire et demanda :
 
 « Tu le regardes encore ? »
 
-« Ce genre de chose, c'est mieux de l'examiner en route. »
+« Ce genre de chose, c'est mieux de le regarder pendant le trajet. »
 
 « Pourquoi ? »
 
 « Parce qu'une fois arrivés, ça va devenir pénible. »
 
-« C'est déjà suffisamment pénible. »
+« C'est déjà bien assez pénible. »
 
 Sion inclina le fragment sous la lumière.
-L'éclairage du plafond était si faible qu'il ne s'attendait pas à distinguer la texture de la surface, mais c'est justement dans cette lumière ténue que certaines traces apparaissaient. Entre les motifs calcinés, une ligne très fine et incomplète subsistait. Trop fragmentée pour être qualifiée de caractère. Trop délibérément découpée pour n'être qu'une éraflure accidentelle.
+L'éclairage du plafond de la coque était si faible qu'il pensait ne pas pouvoir saisir le grain de la surface, mais il y avait au contraire des traces qu'on ne voyait que sous cette lumière ténue. Entre les motifs brûlés subsistait une ligne très fine, incomplète. Trop brisée pour qu'on parle d'une lettre ; trop délibérément coupée pour passer pour une éraflure accidentelle.
 
-Il frotta cette partie du bout des doigts.
+Il frotta l'endroit du bout du doigt.
 
 « Regarde ça. »
 
-Seorin se pencha.
+Seorin se pencha vers lui.
 
 « Quoi ? »
 
-« Là, à l'intérieur de la surface. Ce qui a été découpé, ce n'était pas seulement du texte. »
+« Là, à l'intérieur de la plaque. Ce qu'on a découpé, c'était pas seulement des phrases. »
 
 Seorin plissa les yeux.
 
 « Une ligne de signature ? »
 
-Sion ne répondit pas immédiatement.
-Trop peu d'éléments encore pour être certain.
-Mais la position de la découpe était étrange. Pas au milieu du corps de texte, mais tout en bas du document. L'endroit où figurent habituellement un nom, une ligne d'autorisation, ou un numéro d'ordre.
+Sion ne répondit pas tout de suite.
+Il y avait encore trop peu pour être sûr.
+Mais l'emplacement de la découpe était étrange. Pas au milieu du texte : tout en bas du document. Là où figurent d'ordinaire un nom, une ligne d'approbation, ou une séquence.
 
-« C'est possible. »
+« Possible. »
 
-« Pour un "c'est possible", tu fais une drôle de tête. »
+« Pour un “possible”, tu fais une drôle de tête. »
 
-Sion rangea le fragment dans sa poche.
+Sion remit le fragment dans sa poche.
 
-« D'ordinaire, cet emplacement est le dernier qu'on touche. »
+« Ce genre d'endroit, d'habitude, c'est le dernier qu'on touche. »
 
 « Et ? »
 
-« Quelqu'un l'a découpé en premier. »
+« Quelqu'un l'a découpé en tout premier. »
 
-Seorin rumina ces mots, puis murmura brièvement :
+Seorin rumina ces mots, puis murmura :
 
-« Ça veut dire que quelque chose a été découpé avant même le nom. »
-C'était une supposition, mais elle avait déjà l'acuité d'un instinct collé au terrain.
+« Ça veut dire qu'il y a quelque chose qu'on a découpé avant même le nom. »
 
-Sion la regarda un instant après avoir entendu cela.
-Il ne répondit pas, mais ce silence suffisait.
+À ces mots, Sion la regarda un instant. Seorin soutint ce regard sans changer d'expression.
 
-Le vaisseau de collecte franchit une nouvelle bande de transit et ralentit.
-Ce n'était ni une escale brève ni un transfert complet. C'était l'arrêt typique des routes grises — on ne chargeait et ne déchargeait que la cargaison et les passagers trop ambigus pour figurer dans un registre.
+La benne ralentit en traversant encore une bande de correspondance extérieure.
+
+Au-dessus de la plaque de renfort était fixé un hublot d'observation grand comme une paume. Comme c'était une ouverture faite à l'origine pour surveiller l'angle de chargement, le verre était épais et trouble. Sion en approcha le visage.
+
+La bande de correspondance défilait longuement sur le côté. Des centaines d'anneaux d'amarrage se suivaient comme une chaîne, et entre eux des vaisseaux étaient accrochés. Leurs tailles variaient. La navette de ravitaillement de l'Office faisait une vingtaine de fois cette benne, et le cargo logistique impérial amarré à côté en faisait encore le double. À l'extrémité extérieure des anneaux, un long tronçon restait vide, sans rien d'accroché. Aucun feu n'y était allumé.
+
+Sion compta les places vides, puis abandonna. Passé une vingtaine, on ne voyait plus rien tant il faisait sombre. Même avec sa vue de nuit, ça s'arrêtait là.
+Ce n'était ni une courte escale, ni une vraie correspondance. C'était l'arrêt propre aux routes grises, où l'on ne charge et ne décharge que les marchandises et les gens trop ambigus pour figurer dans un registre.
 
 Dans cet intervalle, la porte de la soute s'ouvrit puis se referma.
-Personne de nouveau n'était monté. Mais le bruit extérieur s'était brièvement engouffré à l'intérieur.
+Personne n'était monté. Mais le bruit du dehors s'engouffra, très brièvement, à l'intérieur.
 
 Au loin, des voix qui se disputaient.
-Le son d'une lourde caisse qu'on poussait.
-Et, un instant seulement — mais distinctement — un mot.
+Le bruit d'une lourde caisse qu'on poussait.
+Et, un instant seulement, mais distinctement, un mot.
 
 « L'Archiviste. »
 
-La porte se referma et le son mourut.
+Quand la porte se referma, le son se coupa.
 
 Mais Sion et Seorin levèrent la tête en même temps.
 
-Leurs regards se croisèrent dans le vide.
+Leurs regards se heurtèrent dans le vide.
 
 Seorin parla la première.
 
-« Ce n'est pas que moi qui ai entendu. »
+« Je suis pas la seule à avoir entendu, hein. »
 
 « Non. »
 
-La voix de Sion était bien plus basse qu'avant.
+La voix de Sion était devenue bien plus basse que tout à l'heure.
 
-« On vient de dire "l'Archiviste". »
+« Ils ont dit “l'Archiviste”, à l'instant. »
 
 « Alors c'est bien une personne. »
 
-Sion, au lieu de répondre, se leva de sa place.
-Le vaisseau de collecte recommençait à bouger lentement.
+Au lieu de répondre, Sion se leva.
+La benne recommençait à avancer lentement.
 
-Seorin se leva aussitôt après lui.
+Seorin se leva aussitôt à sa suite.
 
 « Où tu vas ? »
 
-« Compartiment avant. »
+« Au compartiment avant. »
 
 « Maintenant ? »
 
-« Avant d'entrer dans la cité neutre, il faut voir qui a prononcé ce mot. »
+« Avant d'entrer dans la cité neutre, faut voir qui a sorti ce mot. »
 
 Seorin ravala un soupir.
 
-« D'accord. Mais cette fois, ne fonce pas tête baissée. »
+« Cette fois, fonce pas le premier dans le tas. »
 
 « Quand est-ce que j'ai fait ça ? »
 
-« Tu avais exactement la tête de quelqu'un qui va foncer, à l'instant. »
+« Là, à l'instant, t'avais une tête à foncer dans le tas. »
 
-Sion ne répliqua pas et s'engagea dans l'étroit couloir menant à l'avant de la soute.
-De rudes vibrations montaient du sol, et dans les tuyauteries du plafond, un vieux bruit métallique tremblait faiblement.
-Entre les relents d'huile propres au vaisseau de collecte, à mesure que le port approchait, d'autres odeurs venaient se mêler une à une.
+Sion ne répliqua pas et s'engagea dans l'étroit couloir à l'avant de la soute.
+De rudes vibrations remontaient sous ses pieds, et dans les canalisations du plafond un vieux son métallique tremblait doucement.
+Parmi l'odeur d'huile propre aux bennes, d'autres odeurs, plus denses à mesure que le port approchait, venaient se mêler une à une.
 
-Sel, carburant, câbles rouillés, tôle mouillée, et cet air particulier des lieux où trop de gens entrent et sortent en cachant chacun un nom différent.
+Le sel, le carburant, les vieux câbles, la tôle mouillée, et cet air qu'on ne trouve que dans les lieux où trop de gens sont entrés et sortis en cachant chacun un nom différent.
 
 La cité portuaire neutre approchait.
 
 Par l'interstice de la porte du compartiment avant, des voix filtrèrent de nouveau.
 Plus distinctes cette fois.
-Deux voix basses et rauques se querellaient autour de quelque chose.
+Deux voix basses et rauques se disputaient à propos de quelque chose.
 
-« …Un seul Archiviste, et toute la ligne a été retournée. »
+« … Toute la ligne a été retournée à cause d'un seul Archiviste. »
 
-« …Ferme-la. Si un nom sort, on est tous finis. »
+« … Ferme-la. Si un nom sort, on est tous finis. »
 
 Sion s'arrêta devant la porte.
-Seorin se tenait juste derrière.
+Seorin se tenait juste derrière lui.
 
-Ni l'un ni l'autre ne dit plus un mot.
+Ni l'un ni l'autre ne dit plus rien.
 
-C'était désormais certain.
-Cette affaire de récupération ne se limitait pas à un simple objet effacé.
-Quelqu'un avait fui le premier, quelqu'un d'autre l'avait poursuivi, et les remous de cette traque sans nom s'étaient propagés jusque dans ce vaisseau de collecte.
-
-Seorin demanda très bas :
+Seorin demanda, très bas :
 
 « On ouvre ? »
 
 Sion posa la main sur le panneau de la porte.
-Le contact froid du métal sur sa paume.
+Le contact froid du métal toucha sa paume.
 
-« Il faut ouvrir. »
+« Faut ouvrir. »
 
 « Pourquoi ? »
 
-Sion écouta les voix derrière la porte et répondit brièvement :
+Écoutant les voix derrière la porte, Sion répondit :
 
-« Parce qu'il est temps de savoir si ce que nous traquons est un objet ou une personne. »
+« Parce qu'il faut savoir maintenant si ce qu'on poursuit, c'est un objet ou une personne. »
 
-À cet instant, tout le vaisseau de collecte fut secoué d'un grand tremblement.
-Au loin, un long signal d'entrée au port résonna sourdement.
+À cet instant, toute la benne fut secouée d'un grand coup.
+Au loin, un long signal d'entrée au port retentit, grave.
 
-La cité portuaire neutre.
-
-Et Sion venait, pour la première fois, de tenir à portée de main la trace de celui qu'on avait appelé « l'Archiviste ».
+C'était la cité portuaire neutre.
 
 ---
 

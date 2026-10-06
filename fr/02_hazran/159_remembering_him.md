@@ -44,7 +44,7 @@ elle avait eu l'impression que cette sensation cesserait d'être une simple hypo
 
 Mais elle finit par le dire.
 
-« Cet enfant...
+« Cet enfant…
 j'ai déjà vu cette texture, à Hazran. »
 
 Ater garda le silence un long moment.
@@ -89,15 +89,15 @@ Et ce jour même,
 l'un des trois enfants ramenés lors du premier sauvetage
 laissa échapper un mot de plus, d'une voix à peine audible.
 
-« Cet enfant... »
+« Cet enfant… »
 
 Jiwoo releva aussitôt la tête.
 
 Les lèvres de l'enfant étaient sèches,
 sa voix toujours ténue.
-Mais cette fois, il ne s'arrêta pas à « un de plus » comme la dernière fois.
+Mais cette fois, il ne s'arrêta pas à « encore un » comme la dernière fois.
 
-« ...c'était celui qui restait. »
+« …c'était celui qui restait. »
 
 L'air de la pièce changea, s'amincit.
 
@@ -108,9 +108,9 @@ Jiwoo se pencha plus bas.
 L'enfant jeta un regard apeuré autour de lui.
 Puis, tout bas, presque comme un souffle, il poursuivit :
 
-« Il regardait... toujours derrière. »
+« Il regardait… toujours derrière. »
 « Pas du côté de ceux qu'on emmenait,
-du côté de ceux qui restaient... »
+du côté de ceux qui restaient… »
 
 Ces mots n'étaient pas tant une information précise
 qu'une trace que les sens de l'enfant avaient retenue.

@@ -48,7 +48,7 @@ La première main de récupération répondit brièvement :
 
 Les mots étaient brefs, mais suffirent à rendre l'expression de Jiwoo plus glaciale encore.
 
-Serakion ne se contentait pas de sélectionner et de façonner les gens. Il concevait l'image que chaque personne devait renvoyer.
+Serakion ne se contentait pas de sélectionner et de façonner les gens. Même l'image que chaque personne devait renvoyer était conçue d'avance.
 
 Dès lors, l'humain n'existait plus seulement dans son propre corps. Il existait en portant l'impression que ce monde attendait de lui.
 

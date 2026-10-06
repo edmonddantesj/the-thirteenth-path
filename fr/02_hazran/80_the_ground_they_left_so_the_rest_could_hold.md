@@ -1,134 +1,228 @@
 # Chapitre 80 — Le sol abandonné pour que le reste tienne
 
-Hazran ne retint pas longtemps sa deuxième ligne extérieure.
+La deuxième ligne ne tint pas longtemps.
 
-Elle n'en avait jamais eu l'intention.
+Dès qu'elle s'ouvrit, les gens de Hazran se replièrent vers l'intérieur.
 
-Quand Haroun avait dit qu'il abandonnait encore une ligne, ce n'était pas une retraite de peur. C'était choisir exactement le sol à céder pour donner au dedans une forme capable de tenir plus longtemps.
+Sion regarda ce repli d'en haut. Cela n'avait rien d'une fuite. L'ordre dans lequel on défaisait les cordes des tentes était fixé, si bien que celui qui défaisait la dernière ressortait à reculons, la tente entière serrée dans ses bras. Derrière lui, le suivant faisait la même chose.
 
-Sion le comprenait avec la tête.
+Quelques jours plus tôt, ces gens avaient dressé leurs étals dans ce même ordre. Ils le déroulaient maintenant à l'envers.
 
-Son corps, lui, suivait moins facilement.
+Les plaques de métal restantes, on ne les dressait pas, on les renversait. Dressées, elles font une barricade ; renversées, elles coupent la vue.
 
-Si quelqu'un recule, cela veut dire que quelqu'un doit vider l'endroit.
+Deux caisses de stockage basses, au bord du canal, furent brisées exprès.
 
-Quand la deuxième ligne s'ouvrit, les gens de Hazran se replièrent vers l'intérieur en un instant. Les tentes furent retirées. Les plaques restées dehors furent renversées pour couper la vue. Deux caisses basses posées près du canal furent volontairement brisées. Non parce que leur contenu était sans valeur, mais parce que le métal et l'eau répandus dans un passage étroit pouvaient dérégler les pas.
+Sion ne comprit pas pourquoi. Leur contenu se répandit, et le métal et l'eau couvrirent ensemble le passage étroit.
 
-Un humain glisse dessus.
+« Pourquoi vous les cassez ? »
 
-Une machine ne glisse pas.
+« Pour qu'ils marchent dessus. »
 
-Mais son calcul prend un temps de retard.
+Haroun l'avait dit en passant.
 
-Haroun était le genre d'homme qui mordait ce temps jusqu'au bout.
+Sion resta là, accroché à ces quelques mots, puis il comprit.
+
+Un humain qui marche là-dessus glisse. Une machine ne glisse pas. En revanche, elle regarde une fois avant de poser le pied. Pendant qu'elle regarde, son calcul prend un temps de retard.
+
+Hazran ne cherchait pas à les faire tomber. La ville cherchait à les retarder, un temps après l'autre.
+
+Haroun était homme à mordre ce temps-là et à ne plus le lâcher.
 
 « Maintenant. »
 
-À son cri bref, trois charges de coupe hazraniennes en attente derrière la deuxième perturbation partirent vers le même point. Les lignes de torse de deux androïdes de tête vacillèrent ensemble. Dans l'ouverture, un skiff caché près des restes du stade s'enfonça encore et fit éclater un large nuage de poudre métallique.
+Derrière la deuxième ligne de perturbation, trois charges de coupe partirent vers le même point.
 
-Cette fois, Hazran frappa juste.
+Le torse des deux de tête vacilla en même temps, et un esquif caché du côté des débris du stade s'engouffra dans l'ouverture et fit éclater un grand nuage de poudre de métal.
 
-Un premier corps fut coupé net en deux. Deux autres unités perdirent largement leur angle.
+Cette fois, le coup porta vraiment.
 
-Sion crut, l'espace d'un instant, qu'ils les avaient vraiment repoussés.
+Celui de devant fut coupé en deux. Le haut du corps tomba en avant, le bas fit encore deux pas avant de basculer sur le côté. Les deux de derrière perdirent largement leur angle.
 
-Mais cette fois encore, ils ne s'arrêtèrent pas.
+Sion crut que cette fois, ils les avaient vraiment repoussés.
 
-La rangée arrière monta sur le corps coupé. L'unité désaxée se retira d'elle-même de côté pour libérer la voie. Le vide fut rempli par la ligne suivante.
+L'unité qui avait perdu son angle s'écarta d'elle-même sur le côté.
 
-Même si l'avant diminuait, la vague entière ne diminuait pas.
+Là, Sion cessa de respirer.
 
-Sern dit bas:
+Hier, ce n'était pas comme ça. Hier, celle qui perdait son angle se laissait entraîner, et l'arrière lui passait dessus. Aujourd'hui, l'avant s'était écarté le premier. L'arrière était entré tout droit à la place libérée, sans y mettre un seul pas de plus.
 
-« Leur temps de réaction augmente. »
+Sern lâcha un mot à voix basse et descendit.
 
-Ater répondit aussitôt:
+« Leur vitesse de réaction augmente encore. »
+
+Ater, lui, ne descendit pas.
 
 « Ils apprennent. »
 
-Le champ de bataille devint plus froid.
+En entendant ces deux mots, Sion regarda non pas dehors, mais de ce côté-ci.
 
-Sion comprit que la ligne ne faisait pas que pousser. Elle commençait à lire avec son corps la méthode de Hazran.
+« Et hier, alors ? »
 
-Première perturbation. Deuxième angle. Guides de chaleur. Entrées de skiffs.
+« Hier ? »
 
-Ce qui avait été subi une fois fonctionnerait moins la suivante.
+« Quand on a dit que les deux de droite étaient sur le même axe. »
 
-Haroun l'avait lu aussi.
+Ater ne répondit pas tout de suite.
 
-Sans hésiter, il plia la main.
+« Ça ne sert qu'une fois ? »
 
-« Repli direct jusqu'à la troisième ligne. On abandonne l'entrepôt extérieur. »
+« Jusqu'à deux fois, cela fonctionne. »
 
-Pour la première fois, le visage de Nassim se figea un court instant.
+Ater parlait posément.
 
-L'entrepôt extérieur n'était pas un simple dépôt. Il contenait l'eau, les toiles isolantes et une partie des pièces coûteuses qui devaient faire tenir cette nuit et l'aube suivante.
+« La deuxième fois porte moins que la première, et la troisième ne porte plus. »
 
-Zahir n'arrêta pourtant pas Haroun.
+« Comment ça se fait ? »
 
-Il dit seulement:
+« En face, ils sont faits pour ne pas subir deux fois la même chose. »
+
+Ater s'interrompit un instant.
+
+« Une troupe humaine n'est pas ainsi. Un humain, même en sachant ce qu'il a subi, le subit de nouveau la fois suivante. Quand il a peur, il oublie. »
+
+Ces mots ne sonnèrent pas comme une consolation aux oreilles de Sion.
+
+Ce qu'on avait lu hier portait moins aujourd'hui. Demain, cela ne porterait plus. Chaque fois que l'autre camp faisait l'épreuve de Hazran, la ville perdait une des choses dont elle pouvait se servir.
+
+Sion ressortit le calcul qu'il avait fait la veille.
+
+Une lecture en faisait tomber trois, et l'autre camp les remplaçait en deux ou trois pas. Il avait pensé que si l'on gagnait sans cesse deux ou trois pas, cela finirait au moins par s'accumuler.
+
+Cela ne s'accumulait pas.
+
+L'autre camp avait beau abandonner l'avant, il ne diminuait en rien ; ce côté-ci, chaque fois qu'il employait un moyen, voyait ce moyen s'amenuiser. Plus cela durait, plus ce côté-ci, et lui seul, s'amincissait.
+
+Haroun plia la main.
+
+« Repli direct jusqu'à la troisième ligne. »
+
+Puis il ajouta un mot.
+
+« On abandonne l'entrepôt extérieur. »
+
+Le visage de Nassim se figea pour la première fois.
+
+Sion regarda ce visage. C'était la deuxième fois qu'il voyait cet homme effacer son sourire.
+
+L'entrepôt extérieur n'était pas un simple dépôt. L'eau qui devait faire tenir cette nuit et l'aube suivante s'y trouvait. Les toiles isolantes aussi, et ce qui, quelques jours plus tôt, se vendait aux étals à quatre l'unité, s'y entassait également.
+
+Depuis le point haut, Zahir parla brièvement.
 
 « Les gens d'abord. »
 
-Nassim avala un juron et fit aussitôt tourner les siens.
+À ces mots, Nassim ravala quelque chose. Puis il se tourna vers les siens.
 
-« Laissez ce qui coûte cher. Les gens vers l'intérieur. »
+« Lâchez ce qui coûte cher. »
 
-Cela sonnait presque peu hazranien, et peut-être justement plus hazranien que tout. D'ordinaire, la valeur passe devant. Quand tout le jeu bascule, ce sont les vivants qui pourront donner un nouveau prix aux choses.
+Sa voix n'était pas la même que d'habitude.
 
-Luhai bougea dès que l'ordre tomba.
+« Les gens d'abord, vers l'intérieur. »
 
-Sans réfléchir deux fois, il courut vers l'intérieur du canal et tira par le bras deux marchands qui n'avaient pas encore tout compris.
+Sion savait combien ces mots étaient étranges.
 
-« Dedans! Si vous bougez pas maintenant, vous ne passerez plus! »
+L'homme qui lisait le mieux les prix dans cette ville disait de lâcher les prix. Hier matin encore, cet homme avait deviné ce qui arrivait rien qu'en voyant les cordons thermiques monter à quatre l'unité.
 
-Sa voix n'avait plus sa légèreté habituelle. On y entendait pour la première fois la peur d'un enfant qui voyait le marché qu'il aimait se déchirer réellement.
+Pourtant, c'était justement parce que ces mots étaient étranges qu'ils étaient justes.
 
-Han Jiwoo regardait à la fois l'extérieur et la tente intérieure.
+D'ordinaire, le prix passe en premier. Pas quand toute la partie se renverse. Ce sont les survivants qui fixeront les prix suivants, alors les gens passent en premier. Celui qui lisait les prix avait fait ce calcul avant tout le monde.
 
-Pour tenir le vaisseau, il fallait du temps et d'autres matériaux. Mais si les lignes extérieures cédaient à cette vitesse, la zone de travail serait bientôt menacée.
+Dès que l'ordre tomba, Luhai se jeta vers l'intérieur du canal.
 
-Elle serra les lèvres, puis dit bas:
+Il empoigna deux marchands qui n'avaient pas encore compris la situation et les tira avec lui.
 
-« Je peux fixer encore une fois le point intérieur. »
+« Vers l'intérieur ! Si vous bougez pas maintenant, vous pourrez vraiment plus passer ! »
 
-Sion la regarda aussitôt.
+Sa voix n'avait rien de léger. Sion l'entendait ainsi pour la première fois.
 
-« Combien de temps? »
+Devant l'entrepôt, des gens se passaient des outres d'eau vers l'intérieur. Sur deux files, ils les faisaient passer de main en main.
 
-« Même long, ce sera court. Mais si on ne le fait pas, il pourra se déchirer dès le prochain départ. »
+Ils s'arrêtèrent en pleine chaîne. L'avant s'arrêta d'abord, et la file de derrière, le voyant, s'arrêta à son tour.
 
-Aka était déjà arrivée à cette conclusion.
+Il n'y avait plus le temps.
 
-« Fixe maintenant. Après, cours. »
+Celui qui tenait une outre la lâcha, tout simplement. Elle rebondit une fois sur le sol puis roula, et personne ne la rattrapa.
 
-Han Jiwoo se tourna aussitôt vers l'intérieur.
+Sion regarda cette outre rouler jusqu'au bout. Quelques jours plus tôt, elle aurait porté un prix. Une chose qui avait porté un prix roulait au sol, et pas un seul des gens du marché ne la regardait.
 
-Sion allait la suivre, mais Seorin lui saisit le bras la première.
+À côté, des gens retiraient les cordes. Ils ne les ramassaient pas pour les rapporter : ils les coupaient et les jetaient. Ne rien laisser que l'ennemi puisse utiliser, c'était la manière de Hazran.
 
-« Toi, regarde dehors. Si tout le monde file dedans, ce sera pire. »
+Quelqu'un fut en retard.
 
-Il voulut répondre. Un craquement métallique venu de l'extérieur lui ferma la bouche.
+En voulant passer derrière une plaque de métal coupée, il lui manqua un demi-pas. Depuis la file arrière, un mince faisceau de coupe vola.
 
-Une partie de la troisième ligne se brisait déjà.
+Le bruit ne fut pas fort.
 
-Dehors, il fallait des mains. Dedans, Han Jiwoo et Aka tenaient le point. Ce qu'il avait à faire, c'était passer entre les deux et gagner un peu de temps avant l'effondrement.
+Sion vit cette personne s'effondrer.
 
-À cet instant, il y eut le premier mort.
+Quand une machine était tranchée, le son était aigu et long. Un humain ne faisait pas ce bruit-là. Il s'effondrait, c'est tout, et s'effondrer ne lui prenait presque pas de temps.
 
-Un homme de Hazran qui retirait la ligne de l'entrepôt extérieur sortit trop tard derrière une plaque coupée. Une mince ligne de section venue de l'arrière des androïdes passa exactement entre son épaule et sa poitrine.
+Luhai s'arrêta net dans sa course.
 
-Le son ne fut pas fort.
+Nassim cracha un juron bref.
 
-Un corps humain, pourtant, s'effondra trop facilement.
+Sion voulut bouger et ne le put pas. Il compta malgré lui combien de pas il fallait pour aller jusque-là, et une fois le compte fait, il sut du même coup qu'il était trop tard.
 
-Luhai s'arrêta en le voyant. Nassim lâcha un juron court.
+Deux personnes traînèrent la victime vers l'intérieur. Pendant qu'on la traînait, son bras raclait le sol.
 
-Sion comprit alors que ce combat n'était plus seulement l'affaire d'arrêter une vague entrante.
+Les deux qui l'avaient traînée ressortirent dès qu'ils l'eurent posée. Personne ne resta à côté.
 
-À partir de maintenant, il s'agissait de décider quel sol abandonner pour que le reste survive.
+Sion savait que ce n'était pas de la dureté. Rester là maintenant, c'était laisser un trou de plus dans la file, et ce trou ferait arriver la personne suivante en retard. C'est pour cela qu'on ne restait pas.
 
-Hazran commençait réellement à laisser une part d'elle-même derrière elle pour que le reste tienne.
+Mais savoir et voir, ce n'était pas la même chose.
+
+Quelqu'un, en passant, jeta une toile par-dessus. Le geste fut rapide. Plus on couvre vite, moins les autres voient.
+
+Sion reconnut une toile isolante. Elle venait de cet entrepôt qu'on venait d'abandonner.
+
+C'est alors que Sion se souvint de la veille.
+
+Hier, Luhai avait compté sur ses doigts, à l'entrée. Quatorze au départ, treize revenus. Sion n'avait pas vu ce un-là. Il ne l'avait connu que comme un chiffre.
+
+Aujourd'hui, il avait vu.
+
+Celui d'hier avait dû finir ainsi lui aussi. Ainsi, là où Sion ne regardait pas, et il n'était pas revenu, pendant tout le temps où Luhai avait attendu sans baisser les doigts.
+
+Luhai comptait encore, en ce moment même.
+
+Soudain, Sion eut du mal à le supporter.
+
+« Pourquoi tu comptes ? »
+
+Sion avait posé la question.
+
+Luhai regarda vers Sion.
+
+« Quoi ? »
+
+« Compter, ça les fait pas revenir. »
+
+Luhai ne répondit pas tout de suite. Sion pensa qu'il avait mal posé sa question.
+
+« Si on compte pas, c'est comme s'ils avaient jamais été là. »
+
+Sur ces mots, Luhai se retourna vers l'entrée.
+
+Sion resta là, debout.
+
+Compter, ce n'était pas sauver. Sauver, personne n'y parvenait. Compter, c'était autre chose.
+
+Dans cette ville, personne n'appelait personne par son nom. Depuis son arrivée, Sion avait trouvé cela étrange. Le patron d'un étal, celui qui gardait le canal, aucun ne s'appelait par son nom ; on s'appelait d'un geste de la main.
+
+Et pourtant, on comptait. On ne disait pas les noms, mais on savait combien on était.
+
+Sion comprenait maintenant que c'était la manière qu'avait Hazran de garder ses gens. Au lieu de les appeler, on sait quand l'un d'eux manque.
+
+Sion compta la douzième.
+
+Que les moyens de ce côté-ci diminuent à mesure qu'on s'en sert.
+
+Et à côté, il en posa une autre, mais celle-là, il ne la posa pas en chiffre.
+
+Dehors, on entendit la troisième ligne se briser.
+
+Hazran ne menait pas un combat pour tenir. C'était un combat pour décider où faire le vide afin que le reste tienne.
+
+Et là où l'on avait fait le vide, quelqu'un se tenait encore debout un instant plus tôt.
 
 ---
 

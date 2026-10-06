@@ -48,7 +48,7 @@ Ce n’était pas un simple défi.
 
 Jiwoo avait maintenant une raison de voir directement
 comment Serakion lit les mains humaines,
-comment il les convertit en valeur, en compétence et en propriété.
+comment elles sont converties en valeur, en compétence et en propriété.
 
 Si la sensibilité de Serakion
 n'appartient qu'aux machines aristocratiques
@@ -59,7 +59,7 @@ Cette fois-ci non plus, la première main de récupération ne s'y est pas oppos
 
 Il regarda Jiwoo une fois, puis dit brièvement.
 
-« Si tes pieds sont lents, je te quitte. »
+« Si vos pieds sont lents, je vous quitte. »
 
 Jiwoo a riposté instantanément.
 
@@ -73,7 +73,7 @@ et Aka les observa tour à tour sans un mot.
 C'était une impasse,
 mais étrangement, cela ressemblait aussi un peu à un rite de passage.
 
-Pas parce qu'ils s'aimaient...
+Pas parce qu'ils s'aimaient…
 une manière de confirmer s'ils courent désormais le même danger.
 
 Ater s'avança ensuite.
@@ -103,7 +103,7 @@ Cache la violence avec plus d’élégance.
 Mais c'est précisément à cause de cela,
 Ater a plus de raisons de chercher.
 
-Si l'extérieur est si différent et pourtant l'essence ressemble...
+Si l'extérieur est si différent et pourtant l'essence ressemble…
 alors ce n'est pas seulement le problème de Serakion.
 Cela pourrait changer le regard qu’il utilise pour regarder son propre Empire.
 
@@ -162,7 +162,7 @@ La première main de récupération regarda Kael une fois.
 Plus longtemps qu'avant.
 
 « Voyons si le corps correspond aux mots. »
-C'est dit, bas.
+dit-il, bas.
 
 Kael répondit brièvement.
 
@@ -189,7 +189,7 @@ Puis Luhai parla, comme s'il ne pouvait pas se retenir.
 « Est-ce que je suis encore exclu ? »
 
 Aka le regarda en premier.
-Et il a dit très calmement.
+Et elle a dit très calmement.
 
 « Tu ne perdrais personne ici non plus. »
 
@@ -210,7 +210,7 @@ C’était plus proche d’une fonction sur laquelle cette ancienne couche avait
 Au moment où ceux qui partent et ceux qui restent sont divisés,
 Sion ressentit une sensation totalement différente de celle de quitter Hazran.
 
-Ensuite, rester était une responsabilité.
+À l'époque, rester était une responsabilité.
 Maintenant, rester à lire est aussi une responsabilité.
 La première main de récupération a dit une dernière chose, très brève.
 

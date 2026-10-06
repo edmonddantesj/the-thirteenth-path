@@ -1,202 +1,258 @@
 # Capítulo 92 — El peso que quedó sobre los hombros de los que se quedaron
 
-Cuando cayó la orden de Zahir de sumar la segunda tanda,
-lo primero que tembló dentro de Hazran no fueron los pies, sino las caras.
-
 La primera tanda había subido de verdad.
-Y eso quería decir
-que ahora los que quedaban ya no eran simplemente gente que esperaba,
-sino que se partían con más nitidez
-entre los que esperaban su turno
-y los que tendrían que quedarse a comprar tiempo hasta que ese turno llegara.
+
+Después de esas palabras, el aire de dentro cambió de golpe.
 
 A Sion se le hacía un nudo en la garganta con solo respirar ese aire.
 
-La gente ya no tenía la cara de «vivamos juntos».
-Alguien miraba a los que ya se habían ido,
-alguien calculaba su sitio aún sin alcanzar,
-alguien ya sabía que se quedaría hasta el final.
+La gente ya no tenía la cara de quien solo dice «vivamos juntos». Alguien miraba ya a los que se habían ido, alguien calculaba su propio turno, que todavía no llegaba, y alguien sabía ya que se quedaría hasta el final.
 
-Que todo eso ocurriera en el mismo espacio,
-respirando juntos, apretados contra el casco,
-resultaba cruel de un modo extraño.
+Que todo aquello respirara junto en un mismo espacio, apretado contra el casco, era de una crueldad extraña.
 
-Nasim, con la voz casi del todo perdida,
-volvió a formar la segunda tanda.
+Sion pasó entre ellos contando la segunda tanda.
 
-—¡La camilla primero!
-—¡El que pueda caminar, que se ponga detrás!
-—¡No pasa nada si lloras, pero no sueltes la mano!
+Dieciocho. Veinte. Veinte, justo.
 
-Ya no calmaba a nadie.
-En el momento en que calmas, te frenas,
-y en el momento en que te frenas, a alguien se le muere el tiempo.
-Por eso, casi como quien cose una herida encima,
-formaba a la gente en una sola fila con palabras ásperas.
+Contar ahora le tocaba a él. Quien se ha quedado sin voz no puede formar filas, y quien traza las marcas en la tablilla tiene que quedarse detrás mirando solo la tablilla. Por eso el que andaba ahora entre la gente contando era Sion.
 
-Luhai, esta vez en lugar de con los niños,
-se quedó junto a dos heridos.
+Contando, se dio cuenta. El que cuenta acaba viendo todas las caras.
 
-Uno de ellos seguía murmurando que lo sentía,
-y el otro había perdido tanta sangre que tenía los ojos medio idos.
+Esta vez Luhai, en lugar de estar con los niños, se había quedado pegado a dos heridos.
 
-Luhai, con el rostro blanco como la cal, habló con una voz extrañamente firme.
+Uno de los dos no dejaba de murmurar que lo sentía. El otro había perdido tanta sangre que tenía los ojos medio idos.
 
-—No digas que lo sientes —dijo—. Ahora el que sube es el que gana.
+Luhai, aun con la cara blanca como la cal, habló con una voz extrañamente firme.
 
-Aquella frase parecía dicha por alguien que se había hecho adulto demasiado pronto para decírsela a un niño,
-y a Sion se le encogió un instante el pecho.
+—No pidas perdón.
+Eso dijo.
+—Ahora gana el que sube.
 
-Seorin, al frente de la segunda tanda, ordenaba las manos de la gente con sus propias manos.
+Eran palabras de alguien que se había hecho adulto demasiado pronto para ser un niño, y a Sion se le encogió un momento el pecho.
 
-Tiraba hacia delante al que iba lento,
-mandaba atrás al que podía caminar,
-ajustaba el ángulo de la camilla a la rampa del casco.
-El movimiento era tan exacto
-que parecía alguien que hubiera hecho aquello desde el principio.
+—¿Dónde aprendiste eso?
+Lo preguntó Sion.
 
-Pero Sion lo sabía.
-Eso no era por costumbre,
-sino porque se aferraba con demasiada fuerza al lado de «ahora no puedo derrumbarme», y por eso lo parecía.
+Luhai respondió mientras volvía a sujetar mejor el brazo del herido.
 
-Sion, mientras enlazaba la fila a su lado,
-vio por un instante muy breve cómo le temblaba el dorso de la mano.
+—No lo aprendí.
 
-Pero Seorin no dijo nada.
-Y de aquel temblor,
-seguramente solo Sion fue testigo.
+—¿Entonces?
 
-El lado de Harún iba a peor.
+—Es lo que yo quería oír.
 
-Después de que empezara la primera salida,
-la presión del lado de los androides se volvió más descarada todavía.
-Ellos también lo sabían ya.
-Que si empujaban más por aquí,
-podían sacudir a la vez la fila de gente y el casco.
+Sion no preguntó más.
 
-Ater dijo en voz baja.
+No preguntó porque le pareció que, si preguntaba, iba a enterarse de cuántas veces habría pedido perdón ese chico en los callejones de Hazran, y de si, cada vez, nadie le había dicho algo así.
 
-—Esta vez no es contención.
+Seorin, al frente de la segunda tanda, ordenaba ella misma las manos de la gente.
 
-Sern lo recogió enseguida.
+Tiraba hacia delante a los lentos, mandaba atrás a los que podían caminar y ajustaba el ángulo de las camillas a la rampa. Sus movimientos eran tan precisos que parecía alguien que hubiera hecho ese trabajo desde siempre.
 
-—Sí. Quieren atravesar.
+Pero Sion lo sabía. No era costumbre: se veía así porque se estaba aferrando con demasiada fuerza a la idea de que ahora no podía derrumbarse.
 
-Harún asintió brevemente.
+Mientras iba formando la fila a su lado, Sion le miró el dorso de la mano.
 
-Tenía la cara de quien no se sorprende.
-No,
-lo más exacto era que no tenía margen para sorprenderse.
+Temblaba.
 
-Apartó hacia atrás a otros dos que tenía al lado
-y dejó solo a Sern y a sí mismo más adelante.
-Ater, medio compás por detrás, seguía leyendo los ángulos.
+No temblaba mucho. Los dedos de la mano derecha se doblaron y se estiraron un instante, y la línea de la mandíbula se le tensó apenas y volvió a aflojarse.
 
-Sion, al verlo, se quedó sin aire.
+Sion conocía ese gesto.
 
-Aquello ya no era defensa,
-sino que se acercaba casi a la forma de frenar el tiempo con el cuerpo.
+El día que entraron caminando por primera vez hacia el interior, cuando Seorin se retrasó medio paso en el pasillo, había hecho exactamente lo mismo. Aquella vez Sion fingió no verlo. Pensó que era lo correcto. Con Seorin, en un momento así, fingir no ver servía más que consolar.
 
-—¿Cuántos minutos? —preguntó Harún sin mirar atrás.
+Ahora eran los mismos dedos.
 
-A Sion, sin darse cuenta, se le retrasó la respuesta.
+Lo único distinto era que aquella vez había sido una sola vez mientras caminaba, y ahora estaba sujetando el brazo de alguien.
 
-Porque no quería pensar en minutos.
-Esa pregunta quería decir
-que iba a convertir en números exactos
-cuánto más tenían que aguantar aquellos hombres para que una fila más sobreviviera.
+Esta vez Sion tampoco dijo nada.
 
-Aun así respondió.
+En cambio, agarró él el otro lado del asa de la camilla que ella sostenía. El peso se partió en dos.
 
-—Para que se pegue la segunda tanda todavía falta un poco.
+Seorin lo vio y tampoco dijo nada. Ni gracias, ni que no hacía falta.
 
-Harún dijo, escueto.
+Simplemente siguió cargando.
 
-—Entonces me quedo de pie ese tanto.
+Sion sabía también que eso era lo máximo que ella podía hacer.
 
-Aquella sola frase
-resultaba, de un modo extraño, aún más cruel.
+—¿Cuántos quedan?
+Lo preguntó Seorin.
 
-Porque nadie tenía un resquicio para emocionarse,
-y salió como si fuera lo más obvio del mundo.
+—Ciento ochenta y ocho.
 
-Han Jiwoo, junto a la entrada del casco, volvía a revisar el ángulo de embarque de la segunda tanda.
+—Eso no.
 
-Cómo había cambiado el temblor del barco al subir la primera tanda,
-hasta dónde había aguantado la junta,
-qué lado era más peligroso cuando entrara la siguiente camilla.
+Sion se detuvo un momento.
 
-Aka, a su lado, con los ojos cerrados, habló en voz baja.
+—…Diez viajes.
 
-—Esta vez la izquierda pesa.
+—Eso es del barco.
 
-Han Jiwoo giró la cabeza enseguida.
+Seorin seguía mirando al frente.
 
-—¿Y entonces?
+—¿Cuántos se quedan aquí?
 
-—La camilla, no a la izquierda sino al centro —dijo Aka—. Tuércela una vez y métela.
+Sion no supo responder a esa pregunta.
 
-En cuanto cayeron esas palabras, Han Jiwoo gritó.
+Todo lo que había contado hasta ahora eran números del lado de los que salían. Ciento ochenta y ocho, diez viajes, veinte, siete. Todo números de salida. Los números de los que se quedaban no los había contado nadie.
 
-—¡La camilla de la segunda tanda, tuércela hacia el centro!
+—No los he contado.
 
-Sion, al verlo,
-sintió que Aka ahora intervenía también, directamente, en la tarea de mandar a la gente.
-No solo escuchaba la brasa y el casco y el punto enfriado,
-sino que escuchaba a la vez cómo, a quién y de qué modo tenía que recibir ahora este barco para aguantar.
+—Cuéntalos.
 
-Eso quería decir que Aka se conectaba cada vez más hondo
-con este barco,
-con este camino
-y con toda esta salida.
+—¿Por qué?
 
-Y aquel hecho
-le llegaba a Sion, también, de un modo extrañamente pesado.
+—Si solo cuentas a los que salen, los que se quedan parecen una resta.
 
-Aka escucha el camino,
-Han Jiwoo mantiene vivo el barco,
-Harún frena el tiempo,
-Zahir fija el orden,
-Nasim y Seorin y Luhai empujan a la gente,
-él y Kael tapan los huecos.
+Ante esas palabras, a Sion se le heló la espalda.
 
-Todos hacen su parte.
-Pero precisamente por eso se vuelve más claro.
+Tenía razón. Hasta ahora él había ido restando gente de doscientos ocho. Lo que quedaba después de restar era solo el resto. Pero ese resto también era gente.
 
-Alguno de ellos
-tiene muchas probabilidades de quedarse hasta el final.
+Ese día, por primera vez, Sion contó el otro lado.
 
-La primera camilla de la segunda tanda empezó a moverse.
+Nueve manos pegadas al lado de Harún. Seis manos moviendo las barricadas. Cuatro personas que seguían junto a Nasim. Tres manos acarreando agua y tela. Y unos cuantos que no estaban con nadie, pero que se habían quedado de pie diciendo que no se iban.
 
-Bajo la rampa del casco,
-pasando por el suelo donde se mezclaban arena, sangre y polvo de metal,
-la gente volvió a subir, un paso cada vez.
+No le salió la cuenta exacta. No paraban de moverse.
 
-En ese instante,
-desde el corredor exterior de la derecha
-sonó una vez un ruido de metal más grave y más pesado que antes.
+Sion solo supo que eran veintitantos, más o menos.
 
-A Sern se le endureció enseguida la cara.
+Mientras el barco venía diez veces más, esos veintitantos tendrían que seguir aquí. Y nadie había calculado si, cuando despegara el último barco, habría sitio para que subieran todos esos veintitantos.
 
-—Viene algo grande.
+—Ya los conté.
+Lo dijo Sion.
 
-Ater miró en la misma dirección
-y dijo, muy escueto.
+—¿Cuántos?
 
-—Sí. No es la siguiente fila.
+—Veintitantos.
 
-Harún, aun oyéndolo, no giró la cabeza.
+Al oír la respuesta, Seorin asintió con un gesto muy breve.
 
-Pero Sion podía saberlo.
+—Entonces bien.
 
-Que el peso que subía ahora sobre los hombros de los que quedaban
-iba a cambiar una vez más.
+—¿Cómo que bien?
 
-Desde el instante en que empezó la primera salida,
-quedarse no era simplemente esperar.
+—Porque ahora tú también los cuentas.
 
-Era, de hecho,
-cargar también con la parte de los que se iban.
+Sion entendió más tarde lo que quería decir. Ella llevaba un buen rato contando esa cifra sola. Si cuentas solo, te tiemblan las manos.
+
+Por el lado de Harún, las cosas iban a peor.
+
+Desde que había empezado la primera salida, la presión de allá se había vuelto más descarada. Quería decir que ahora sabían que, si empujaban más aquí, podían hacer tambalear a la vez la fila de gente y el casco.
+
+Harún mandó más atrás a los dos que tenía al lado y se pegó él solo todavía más adelante.
+
+Sion fue hacia allí.
+
+—¿Cuántos minutos?
+Lo preguntó Harún sin mirar atrás.
+
+Sin darse cuenta, Sion tardó en responder.
+
+Porque no quería pensar en minutos. Esa pregunta significaba convertir exactamente en números cuánto más tenía que aguantar aquel hombre para que sobreviviera una tanda más.
+
+Aun así, respondió.
+
+—Al barco todavía le falta para volver.
+
+—Entonces aguanto de pie ese tanto.
+
+Esa sola frase resultó, de un modo extraño, todavía más cruel. Nadie tenía margen para conmoverse, y salió como si fuera lo más natural del mundo.
+
+Sion dio dos pasos y se volvió.
+
+—Veintitantos.
+
+Harún giró la cabeza por primera vez.
+
+—¿Qué?
+
+—Los que se quedan aquí. En el último barco tienen que subir veintitantos.
+
+Harún lo oyó y no respondió nada.
+
+Luego volvió a mirar al frente.
+
+Era la tercera vez que Sion oía ese silencio en el día. Una cuando preguntó si había once barricadas, otra cuando preguntó si podrían subir a todos en once viajes, y ahora.
+
+Los tres eran la misma clase de silencio.
+
+El barco volvió.
+
+Al entrar sonaba más fuerte que al salir. Sion no sabía qué significaba eso y miró a Luhai.
+
+—Porque está vacío.
+Lo dijo Luhai.
+—Cuando lleva gente, el ruido se aplasta.
+
+Un barco vacío hace más ruido. De todo lo aprendido en Hazran, parecía lo más inútil y, a la vez, lo más exacto.
+
+Y ese ruido también lo oyeron los que se quedaban.
+
+Sion vio que, al fondo de la fila, varias personas levantaban la cabeza a la vez. Sabían, solo por un ruido que llegaba desde donde no se veía, que el barco había vuelto vivo. También llegarían a saber, a la vez, qué día dejaría de sonar ese ruido.
+
+Luhai corrió hacia la rampa y volvió enseguida.
+
+—Dice que veinte.
+
+Con esa sola palabra, Sion soltó el aire.
+
+—¿Dice que lo arregló?
+
+—Dice que lo arregló.
+
+—¿Cómo?
+
+—No sé. Tenía las dos manos peladas.
+
+Sion lo oyó y no dijo nada.
+
+Seorin preguntó breve a su lado.
+
+—¿No eran dieciocho?
+
+—Veinte.
+
+—Entonces siguen siendo diez viajes.
+
+—Sí.
+
+Ante esas palabras, Seorin soltó por primera vez un suspiro muy breve. Más que alivio, era el aliento de alguien que había comprobado que una cuenta no había aumentado.
+
+La segunda tanda empezó a subir.
+
+Siete. Alto. Siete. Alto. Seis.
+
+Esta vez Sion miró sin contar. Contar ya lo había hecho antes. Ahora miraba las caras.
+
+Entre los veinte que subían estaba la persona que antes pedía perdón. Luhai la llevó del brazo hasta la rampa, y mientras subía, esa persona intentó decir algo otra vez.
+
+Luhai cortó primero.
+
+—Te dije que no.
+
+Esa persona sonrió. La cara sonriendo se veía peor que llorando, pero sonrió de todos modos.
+
+La rampa se plegó.
+
+El barco se elevó, salió deslizándose a la misma altura que antes y se metió en la sombra del oeste.
+
+Sion miró la tablilla. La marca que antes era una ahora eran dos.
+
+De ciento ochenta y ocho salían veinte. Ciento sesenta y ocho.
+
+Nueve viajes.
+
+Sion no dijo la cifra en voz alta. En su lugar, volvió a contar la cifra del otro lado que había contado antes.
+
+Veintitantos.
+
+Durante nueve viajes, esos veintitantos tendrían que estar aquí. Y si habría sitio para que subieran cuando despegara el noveno barco, eso hoy no lo había respondido nadie.
+
+Sion pensó un momento si volver a decirle esa cuenta a Seorin.
+
+No lo hizo.
+
+Ella ya lo sabía, ya estaba aguantando que le temblaran las manos sabiéndolo, y decírselo ahora solo sumaría una cosa más que aguantar.
 
 ---
 

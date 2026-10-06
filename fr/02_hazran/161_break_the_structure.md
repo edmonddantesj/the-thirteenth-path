@@ -188,11 +188,10 @@ il en restera toujours. »
 
 Dans ces mots, l'essentiel précédait la logique.
 
-Jusqu'à présent, tous n'avaient pensé qu'à cela :
-- d'où extraire,
-- combien ramener,
-- comment ne pas mourir,
-- comment gagner le prochain battement de temps.
+Jusqu'à présent, tous n'avaient compté que quatre choses.
+D'où extraire, combien ramener,
+comment ne pas mourir, comment gagner le prochain battement de temps.
+Ils n'étaient pas allés plus loin.
 
 Mais Luhai demandait simplement
 pourquoi ils continuaient à chercher la réponse à l'intérieur même de cette structure.
@@ -237,7 +236,7 @@ pour que les mots « tous les sauver » deviennent enfin possibles.
 
 L'une des anciennes machines, après un très long silence, dit :
 
-« C'est... une chose que nous n'avons pas su faire depuis longtemps. »
+« C'est… une chose que nous n'avons pas su faire depuis longtemps. »
 
 Ces mots ne contenaient pas seulement de la défaite.
 Il s'y mêlait une honte infime,

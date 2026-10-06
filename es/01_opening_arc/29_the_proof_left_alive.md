@@ -1,242 +1,247 @@
 # Capítulo 29 — La prueba que quedó viva
 
-El ruido del derrumbe los siguió mucho tiempo.
+El ruido del derrumbe los siguió durante mucho rato.
 
-Incluso después de que los tres saltaran una tras otra las plataformas de apoyo y las junturas rotas para salir de nuevo hacia el anillo exterior, en la oscuridad profunda de abajo seguía resonando el ruido del metal que chocaba y se fracturaba. No era la simple caída de escombros. Era el ruido de una parte de la estructura del discriminador, que apenas había aguantado hasta hacía un momento, plegándose en cadena al mismo tiempo que ellos salían. Si no hubiera sido por las dos líneas y la porción de línea de aprobación que acababan de asegurar, este sitio habría perdido todo su sentido de golpe, igual que lo que se había derrumbado allá abajo.
+Incluso mientras los cuatro cruzaban una tras otra las plataformas auxiliares y las conexiones rotas para volver a salir hacia el anillo exterior, desde la oscuridad profunda de abajo seguía subiendo el ruido de metal que chocaba y se partía. No era una simple caída de escombros. Era el ruido de una parte de la estructura del discriminador, que hasta hacía un momento apenas aguantaba, plegándose en cadena con su salida. De no ser por las dos líneas y el trozo de línea de aprobación que acababan de conseguir, aquel lugar habría perdido su sentido igual que lo que se había derrumbado allá abajo.
 
-Sion fue el primero en fijar el cuerpo sobre la plataforma exterior. Justo detrás, Sern recuperó su posición apoyándose de nuevo en la línea de carga que aún se sostenía, y Ater, con una mano contra la pared, tomó un instante muy breve para recobrar el aliento. Kael miró hacia atrás hasta el final, y solo después de tirar con firmeza del fragmento más grande contra su pecho sacó el cuerpo hacia fuera.
+Sion fue el primero en afianzarse sobre la plataforma exterior. Justo detrás, Sern ocupó su sitio comprobando otra vez las líneas de carga que no habían cedido, y Ater, con una mano en la pared, recobró el aliento un instante. Kael estuvo mirando hacia atrás hasta el final, y solo después de apretar bien contra el pecho el fragmento más grande sacó el cuerpo hacia fuera.
 
-Por el canal de proximidad llegó la voz de Han Jiwoo.
+Por el canal cercano se oyó la voz de Han Jiwoo.
 
 —¿Siguen vivos?
 
-Sion respondió breve.
+Sion respondió.
 
 —Todavía.
 
-—Entonces engánchense rápido —dijo Han Jiwoo—. El casco ya no aguanta ni a medias, esto también se está acabando.
+—Entonces súbanse rápido.
+Lo dijo Han Jiwoo.
+—Lo poco que el casco aguanta a medias también se está acabando.
 
-Esas palabras no eran una exageración.
-
-Las vibraciones que envolvían la pared exterior de la estructura se habían vuelto más bruscas que un momento antes. Quería decir que este tramo de frontera estaba encajando a la vez la reactivación y las réplicas del derrumbe del discriminador. Lo que hacía falta ahora no era detenerse a sentir, sino salir; y solo después sería apenas posible interpretar.
+Las vibraciones que envolvían la pared exterior de la estructura se habían vuelto más bruscas que un momento antes. Quería decir que aquel tramo de frontera estaba recibiendo a la vez el reinicio del discriminador y las secuelas del derrumbe. Lo que hacía falta ahora no era quedarse mirando, sino salir, y solo después sería posible, apenas, interpretar.
 
 Seorin habló en voz baja por el canal.
 
-—Las explicaciones, para después. Por ahora todos de vuelta a la nave.
+—Las palabras, después. Primero vuelvan todos a la nave.
 
 Esta vez nadie puso reparos.
 
-El breve regreso era más peligroso que la persecución. Si a la entrada todavía estaban más cerca de abrir la estructura, ahora, al salir, tenían que volver a pisar un camino ya sacudido una vez. Sern fue el primero en marcar el orden de los pasos, y Sion siguió las líneas de daño del metal y las marcas recientes de desplazamiento de peso en vez de los reflejos residuales que ya empezaban a morir. Ater ya no leía los motivos, solo miraba los ángulos del derrumbe. Kael, el último de los tres, iba eligiendo la posición desde la que podría sostener de inmediato si alguien daba un mal paso o la estructura se torcía una vez más.
+El corto regreso fue más peligroso que la persecución. Al entrar, todavía estaban más cerca de ser quienes abrían la estructura; ahora, al salir, tenían que volver a pisar un camino que ya se había sacudido una vez. Sern marcó primero el orden de los pasos, y Sion, en lugar de la luz residual que ya empezaba a morir, siguió las líneas de daño del metal y las marcas recientes de desplazamiento de peso. Ater ya no leía el motivo; solo miraba los ángulos del derrumbe. Kael, detrás de los tres, iba eligiendo posiciones desde las que pudiera aguantar enseguida si alguien daba un mal paso o la estructura volvía a torcerse.
 
-Solo en ese breve trayecto se veía que los papeles ya habían cambiado.
+Solo en ese breve trayecto ya se veía que los papeles habían cambiado.
 
-Hacía un momento estaban a una distancia desde la que podían cortarse los unos a los otros; ahora estaba casi fijado quién debía sostener a quién en caso de que alguien cayera primero. Demasiado pronto para llamarlo confianza, demasiado rápido para llamarlo solo función; pero, al menos dentro de este sitio, no se podía negar.
+Hasta un momento antes estaban a una distancia desde la que podían cortarse unos a otros; ahora estaba casi decidido quién tenía que sostener a quién si alguien caía primero. Era demasiado pronto para llamarlo confianza, y el cambio había encajado demasiado rápido para llamarlo solo función. Pero, al menos dentro de aquel lugar, no se podía negar.
 
-Cuando Sion metió el cuerpo el primero por la ranura del casco, junto con el aire interior lo rozó un calor mecánico muy leve. Era una sensación lejos de un alivio completo, pero al menos bastaba con el hecho de que el suelo bajo sus pies no iba a hundirse en el vacío de inmediato. Sern y Ater entraron uno tras otro, y Kael barrió el exterior una vez más antes de empujar por fin el cuerpo hacia el interior del casco.
+Cuando Sion metió el cuerpo el primero en el casco, junto con el aire del interior le rozó un calor de máquina muy débil. Era una sensación lejos de un alivio completo, pero bastaba con saber que, al menos por el momento, el suelo bajo los pies no iba a hundirse en el vacío. Sern y Ater entraron uno tras otro, y Kael repasó el exterior una vez más hasta el final antes de meterse en el casco.
 
-Han Jiwoo soltó en voz baja, como si lo hubiera estado esperando.
+Han Jiwoo lo soltó en voz baja, como si hubiera estado esperándolo.
 
-—Bien. Ahora sí, respiren de verdad.
+—Ahora sí, respiren de verdad.
 
-Seorin, apoyada de pie contra la pared, miró por turno a los cuatro que acababan de entrar. Esa mirada era menos alivio que comprobación. Si nadie tenía nada gravemente desencajado, si nadie estaba en un estado que no aguantara que lo empujaran de nuevo ahora mismo, si el fragmento seguía en mano. Y por último, hasta Kael.
+Seorin, de pie y apoyada contra la pared, miró uno por uno a los cuatro que acababan de entrar. Esa mirada era más comprobación que alivio. Si alguno tenía algo seriamente torcido, si alguno no estaba en condiciones de volver a lanzarse ahora mismo, si el fragmento seguía en sus manos. Y por último, también Kael.
 
-—No lo soltaste —dijo ella en voz baja.
+—No lo soltaste.
+Lo dijo ella en voz baja.
 
 Kael no dejó el fragmento.
 
-—Si lo hubiera soltado, habría sido trabajo perdido para todos.
+—Si lo hubiera soltado, todos habríamos trabajado para nada.
 
-Seorin no replicó a eso. En cambio, volvió la mirada hacia Sion.
+Seorin no le respondió a eso. En cambio, volvió la mirada hacia Sion.
 
 —Explica.
 
-Con esa sola palabra, el aire dentro del casco volvió a ordenarse.
+Con esa sola palabra, el aire del casco volvió a ordenarse.
 
-Sion apoyó la espalda en la pared, recobró brevemente el aliento y dijo:
+Sion apoyó la espalda en la pared, recobró el aliento y habló.
 
-—No es una posición.
+—No era una posición.
 
-Ater siguió de inmediato.
+Seorin no repreguntó. En cambio, miró un momento la cara de Sion.
 
-—Para ser exactos, era una secuencia de aprobación anterior a las coordenadas.
+—…Pones la misma cara que cuando viste el fragmento por primera vez.
 
-Han Jiwoo frunció el ceño.
+—Sí.
 
-—Traduce.
+—O sea que ha empeorado.
 
-Esta vez fue Sern quien lo ordenó.
+—Sí.
 
-—Quiere decir que no es un camino para llegar a alguna parte, sino una estructura que solo deja pasar en el orden correcto.
+Han Jiwoo intervino desde el puesto de pilotaje.
 
-Un breve silencio.
+—Yo lo oí medio cortado, así que cuéntalo una vez.
 
-La mirada de Seorin se ensombreció apenas un poco.
+Sion lo dijo de un tirón.
 
-—Por eso no abría solo con buscar el nombre.
+—Para abrir la puerta no hacía falta un nombre, sino un orden. Lo que buscábamos era adónde ir, y eso es cómo pasar.
 
-—Exacto —dijo Sion en voz baja—. El nombre podía ser un comienzo, pero no era la prueba.
+—¿Tanta diferencia hay?
 
-Kael oyó esas palabras y aun así no intervino. En cambio, con una rodilla levantada cerca del suelo del casco, seguía mirando solo el borde del fragmento más grande que sostenía contra el pecho. Como si las frases que acababa de ver tampoco se hubieran terminado de ordenar del todo de su lado.
+—El nombre basta con tenerlo; el orden hay que saberlo.
 
-Ater lo miró de reojo y dijo:
+Han Jiwoo se quedó callada un momento.
 
-—Lo que aseguramos son dos líneas y una porción de línea de aprobación. Todavía no podemos decir que hayamos leído la estructura entera.
+—…Ah. Por eso lo borraron.
 
-—Aun así, mucho mejor que antes —dijo Han Jiwoo—. Antes nos aferrábamos a un solo nombre, y ahora al menos sabemos qué fue lo que cortaron.
+—Sí. Si borras lo que basta con tener, se nota; si borras lo que hay que saber, no se nota.
 
-Esas palabras eran bruscas, pero acertadas.
+Kael lo oyó y aun así no intervino. Con una rodilla levantada cerca del suelo del casco, seguía mirando solo el borde del fragmento más grande que tenía abrazado. Como si las frases que acababa de ver tampoco estuvieran todavía del todo ordenadas de su lado.
 
-Hasta ahora lo primero era quién había sido borrado. Pero ahora empezaba a verse qué había sido cortado junto con él. Rehabilitar el nombre no bastaba. Si no se restauraban también la secuencia de aprobación y la estructura de acceso que ese nombre había tenido que atravesar, esto se quedaría hasta el final en una verdad a medias.
+Ater le echó una mirada de reojo y habló.
 
-Seorin preguntó muy brevemente:
+—Lo que hemos conseguido son dos líneas y parte de una línea de aprobación. Aún no puede decirse que hayamos leído la estructura entera.
+
+—Aun así, es mucho mejor que antes.
+Lo dijo Han Jiwoo.
+—Antes nos aferrábamos a un nombre, y ahora por lo menos sabemos qué fue lo que cortaron.
+
+Seorin preguntó.
 
 —Y una cosa más.
 
-Sion captó de inmediato lo que ella iba a decir.
+Sion supo enseguida lo que ella iba a decir.
 
-—Aprobación múltiple.
+—La aprobación múltiple.
 
 Esta vez todas las miradas fueron hacia Ater.
 
 Ater asintió despacio.
 
-—Al menos eran dos. Una sí corresponde a una línea de aprobación imperial. La otra tampoco era del todo igual a la de la Alianza.
+—Eran al menos dos. Una es, en efecto, una línea de aprobación de tipo imperial. La otra tampoco era del todo igual a la de la Alianza.
 
-La mirada de Sern cambió de forma mínima.
+La mirada de Sern cambió de forma casi imperceptible.
 
-—Entonces tampoco está aún determinado quién construyó la estructura.
+—Entonces tampoco está determinado aún quién construyó la estructura.
 
-—Sí —respondió Ater—. Solo que lo seguro es que con la forma en que el Imperio y la Alianza explican las cosas ahora no se puede explicar del todo esta estructura.
+—Así es.
+Ater respondió.
+—Lo único seguro es que con la forma en que hoy lo explican el Imperio y la Alianza no se puede explicar del todo esta estructura.
 
-A Sion esas palabras se le clavaron con más peso.
+Eso quería decir que, fuera del lenguaje oficial que hacía girar el mundo actual, quedaba otra gramática que aún no había muerto. Borrar los nombres, corregir los veredictos, cortar el orden de acceso: tal vez todo hubiera servido, al final, para impedir que esa gramática volviera a vivir.
 
-Quería decir que, fuera del lenguaje oficial que hacía girar el mundo presente, quedaba otra gramática que aún no había muerto. Borrar los nombres, corregir los veredictos, cortar el orden de acceso: tal vez todo eso había tenido como fin impedir que esa gramática volviera a vivir.
-
-Dentro del casco cayó un breve silencio.
+Un breve silencio cayó dentro del casco.
 
 Y esta vez fue Seorin quien miró a Kael.
 
 —¿Hasta dónde sabías tú?
 
-Kael no respondió de inmediato.
+Kael no respondió enseguida.
 
-Hacía un momento, en el sitio, ese silencio parecía una frontera. Pero ahora era algo distinto. Estaba más cerca de un silencio que calculaba: si decir más, hasta dónde decir, y qué era lo que renunciaría de su lado en el instante de hablar.
+Hasta hacía un momento, en el lugar, ese silencio parecía cautela. Pero ahora era algo distinto. Se parecía más al silencio de quien calcula si decir más, hasta dónde decir y qué tendrá que abandonar él mismo en el momento en que hable.
 
-—Que no abría solo con buscar el nombre, eso no lo sabía —dijo él en voz baja—. Pero que esto no era solo cuestión de buscar coordenadas, eso sí lo sabía.
+—Que no se abría solo con buscar el nombre, eso no lo sabía.
+Lo dijo en voz baja.
+—Pero que esto no era solo cuestión de buscar coordenadas, eso sí lo sabía.
 
-—¿Cómo? —preguntó Sion.
+—¿Cómo?
+Lo preguntó Sion.
 
-Kael rozó muy brevemente con la punta de los dedos el final del motivo del fragmento más grande.
+Kael tocó con un dedo el extremo del motivo del fragmento más grande.
 
-—Cada fragmento que conseguí antes se cortaba en el mismo punto.
-
-Un breve silencio.
+—Todos los fragmentos que conseguí antes se cortaban en el mismo sitio.
 
 Ater levantó los ojos.
 
-—¿Fragmentos?
+—¿Los fragmentos?
 
-Kael se detuvo un instante ante esa mirada y al final no lo negó.
+Kael se detuvo un momento ante esa mirada.
 
 —No es la primera vez.
 
-Con esa sola palabra, el aire dentro del casco cambió de forma mínima.
+Con esa sola frase, el aire del casco cambió de forma casi imperceptible.
 
-Seorin no movió ni una ceja, pero Sion sintió, dentro de ese breve silencio, que ella ya estaba volviendo a cambiar las prioridades. Han Jiwoo entornó el entrecejo sin disimulo, y Sern, al contrario, se quedó aún más callado. La mirada de Ater estaba prendida no en el fragmento que Kael tenía en la mano, sino en la frase que acababa de salir: *no es la primera vez*.
+Seorin no movió ni una ceja, pero Sion sintió que, dentro de ese breve silencio, ella ya estaba reordenando sus prioridades. Han Jiwoo frunció el entrecejo sin disimulo, y Sern, al contrario, se quedó aún más callado. La mirada de Ater no estaba prendida del fragmento que Kael tenía en las manos, sino de la frase que acababa de salir: «no es la primera vez».
 
-Sion preguntó en voz baja:
+Sion preguntó en voz baja.
 
 —¿Cuántos?
 
-Kael recobró brevemente el aliento.
+Kael recobró el aliento.
 
-—Ninguno se dejó leer bien. La mayoría eran fragmentos muertos, se apagaban en cuanto los tocabas. —Se detuvo un instante y añadió—: Pero el patrón quedaba.
+—Ninguno se dejó leer bien. La mayoría eran fragmentos muertos y se apagaban en cuanto los tocaba.
+Se detuvo un momento antes de añadir algo más.
+—Pero el patrón quedaba.
 
 —¿Qué patrón?
 
-—El patrón de que lo cortado no es el nombre, sino el orden —dijo Kael sin alterarse—. Por eso esta vez tampoco pude llevármelo enseguida. Si se cortaba otra vez en el mismo punto, no tenía sentido tenerlo yo solo.
+—El patrón de que lo cortado no es el nombre, sino el orden.
+Kael lo dijo sin alterarse.
+—Por eso tampoco pude sacar este enseguida. Si volvía a cortarse en el mismo sitio, tenerlo yo solo no servía de nada.
 
-Solo entonces vio Sion con más claridad la cadena de decisiones de Kael que venía desde el primer instante en que se cruzaron al otro lado de la esquina.
+Han Jiwoo habló con los brazos cruzados.
 
-Este hombre no había cooperado de golpe. Ya se había estrellado varias veces contra el mismo muro, y por eso esta vez no había tenido más remedio que inclinarse hacia comprobar otras manos que supieran leer, en lugar de tenerlo él solo y huir. Aunque eso no fuera confianza, sí era al menos un juicio realista nacido del fracaso.
+—Entonces la conclusión es una sola.
 
-Han Jiwoo dijo, con los brazos cruzados:
+Como nadie la recogió enseguida, Han Jiwoo siguió ella misma.
 
-—Bien. Entonces la conclusión es una sola.
+—Que ahora tú no puedes seguir solo, y nosotros tampoco podemos seguir sin ti.
 
-Como nadie la tomó de inmediato, Han Jiwoo siguió ella sola:
+Kael miró hacia fuera por la rendija.
 
-—Que ahora tú no puedes ir solo, y nosotros tampoco podemos ir sin ti.
+Han Jiwoo no dejó escapar esa mirada.
 
-Esta vez tampoco lo negó Kael. En cambio, miró brevemente el exterior por la ranura.
+—¿Qué? ¿Tenías algo ahí fuera en lo que viniste?
 
-Han Jiwoo no dejó pasar esa mirada y dijo:
+Kael guardó silencio un momento y respondió en voz baja.
 
-—¿Qué? ¿Tenías algo tuyo ahí fuera en lo que llegaste?
+—Tenía una lanzadera de acoplamiento amarrada.
 
-Kael guardó silencio un instante y luego respondió en voz baja:
+—¿Tenías?
+Sion se lo devolvió como pregunta.
 
-—Tenía amarrada una lanzadera de acoplamiento.
-
-Un breve silencio.
-
-—¿Tenías? —repreguntó Sion.
-
-—Se cortó hace un momento, cuando la reacción se reactivó —dijo Kael sin alterarse—. Ya sea que se haya soltado sola o que se la hayan llevado los escombros, ahora no puedo recuperarla.
+—Se soltó hace un momento, cuando revivió la reacción.
+Kael lo dijo sin alterarse.
+—Se haya desacoplado sola o se la hayan llevado los escombros, ahora no puedo recuperarla.
 
 Han Jiwoo chasqueó la lengua por lo bajo.
 
-—Ya. Ahora sí que no hay opción.
+—Ya. Ahora sí que no hay opciones.
 
-Seorin cortó sobre ese breve silencio.
+Seorin cortó ese breve silencio.
 
-—Si esto es incorporarte o cooperar, se decide después —dijo ella en voz baja—. Lo importante ahora es no morir antes de eso.
+—Si te unes o solo colaboras, se decide después.
+Lo dijo en voz baja.
+—Lo importante ahora es no morir antes de eso.
 
-Era verdad.
+De qué lado estaba Kael, hasta dónde iría con ellos, cuál era su verdadero nombre, dónde estaban los fragmentos que había conseguido antes. Todo eran cuestiones importantes. Pero lo más importante en ese momento era pasar a la siguiente lectura las dos líneas y el trozo de línea de aprobación que acababan de conseguir, sin dejarlos morir.
 
-De parte de quién estaba Kael, hasta dónde iría con ellos, cuál era su verdadero nombre, dónde estaban los fragmentos que había conseguido antes. Todo eran problemas importantes. Pero lo más importante de inmediato era pasar a la siguiente interpretación las dos líneas y la porción de línea de aprobación que acababan de asegurar, sin dejarlas morir.
+Ater habló en voz baja.
 
-Ater dijo en voz baja:
+—Primero hay que leerlo.
 
-—Primero hay que leer.
+Sern siguió enseguida.
 
-Sern siguió de inmediato:
+—Y hay que moverse. Ahora que la reacción ha revivido, este lugar no va a terminar en silencio.
 
-—Y hay que movernos. Ahora que la reacción se reactivó, este sitio no va a terminar en silencio.
+Sion alzó la cabeza al oírlo.
 
-Sion levantó la cabeza ante esas palabras.
+El discriminador había vuelto a funcionar, aunque fuera muy brevemente. Era imposible que eso se hubiera quedado dentro del lugar. Si había otros ojos vigilando aquel sitio, quizá ya hubieran leído el eco, y era muy probable que el reinicio de la estructura del discriminador hubiera sacudido incluso la red de rastreo más exterior.
 
-Era verdad. El discriminador había vuelto a funcionar, aunque solo muy brevemente. No podía haberse quedado dentro del sitio. Si había otros ojos vigilando este lugar, tal vez ya habían leído el eco, y la reactivación de la estructura del discriminador tenía altas probabilidades de haber sacudido incluso la red de rastreo más exterior.
+Seorin sacó la conclusión en el acto.
 
-Seorin sacó la conclusión enseguida.
+—Entonces vamos por orden.
+Su mirada pasó de uno en uno.
+—Han Jiwoo, primero despega el casco. Sern, ordena las reacciones del lugar. Ater, que no se te escape ni una de las frases que leíste. Sion.
 
-—Bien. Entonces vamos por orden. —Su mirada pasó de uno a otro—. Han Jiwoo, despega la nave primero. Sern, ordena las reacciones recientes del sitio. Ater, no sueltes ni una de las frases leídas. Sion.
+—Lo sé.
+Sion la cortó primero.
+—Yo me quedo con él y escucho lo de los fragmentos que faltan.
 
-—Lo sé —cortó Sion el primero—. Yo me quedo con él y escucho lo que falta sobre los fragmentos.
-
-Seorin miró a Kael por última vez.
+Por último, Seorin miró a Kael.
 
 —Tú sigues siendo un invitado.
 
-Kael no puso mala cara ante esas palabras tampoco.
+Kael no puso mala cara ni siquiera ante eso.
 
 —Mientras me mantengan con vida, me da igual.
 
 —Eso no lo decides tú.
 
-Kael movió muy levemente la comisura de los labios. Más que una sonrisa, era una expresión cercana a reconocer que lo que se acababa de decir no estaba equivocado.
+Kael movió la comisura de los labios. Más que una sonrisa, era una expresión cercana a admitir que aquellas palabras no estaban equivocadas.
 
-La nave empezó a desprenderse despacio de la pared exterior.
+El casco empezó a separarse despacio de la pared exterior.
 
-Una gran vibración metálica subió de golpe, y por fuera de la ranura pasó rozando la parte de la estructura de la que los tres habían estado colgados hacía apenas unos instantes, derrumbándose más abajo. Ese sitio podía ahora cerrarse más hondo que antes de la última vez que se abrió. Pero no había desaparecido del todo. Quedaban las dos líneas que se habían traído vivas, el fragmento más grande, y lo que acababan de confirmar.
-
-El nombre no prueba el paso.
-Solo cuando el orden es el correcto se abre el camino.
-
-Sion repasó esas dos frases despacio, por dentro.
-
-Lo que ahora había que perseguir de verdad no era solo el nombre de una persona.
-Era el orden entero que ese nombre había tenido que atravesar.
+Un fuerte temblor metálico subió de golpe, y por fuera de la rendija pasó fugaz la parte de la estructura de la que los cuatro habían estado colgados hasta hacía un momento, derrumbándose todavía más abajo.
 
 ---
 

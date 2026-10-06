@@ -1,302 +1,311 @@
 # Episode 107. The Ones Who Must Leave and the Ones Who Must Close
 
-After Zahir said *no more buying*,
-a very short silence fell inside Hazran.
+There was the sound of the ship coming back.
 
-That silence wasn't hesitation.
-It was the opposite.
+An empty sound. Sion knew the difference now. Loaded with people, it was pressed down; empty, it was loud. Of everything he had learned in Hazran, it looked the most useless and was the most exact.
 
-Everyone understood at the same speed
-that the moment had come to say
-who leaves
-and who closes.
+The eight raised their heads at the sound. All eight looked the same way, but none of them moved toward the ramp. They still weren't standing in the line they hadn't stood in all day.
 
-Sion felt the air change immediately.
+Zahir came to the front of the hull.
 
-Until just moments ago,
-everyone had been gripping their own position,
-searching for any way to hold a little longer.
+Harun was behind him. Nasim was beside him. Nahira stood beside Aka.
 
-But the instant Zahir drew the line,
-that fight was over.
+Only then did Sion look at Nahira.
 
-What was needed from now
-wasn't a method to hold more,
-but the work of dividing those to be sent to the very end
-from those who close to the very end.
+She had become a person of fewer words since the ember run. Even now she wasn't watching the line or the corridor; she was watching only Aka's breathing.
 
-Zahir slowly turned his gaze toward Sion's group.
+The party gathered in front of the hull.
 
-Sion.
-Seorin.
-Jiwoo.
-Kael.
-Sern.
-Ater.
-And Aka.
+Sion,
+Seorin,
+Han Jiwoo,
+Kael,
+Sern,
+Ater,
+Aka, Luhai.
 
-Aka was not alone.
+Sion started to count how long it had been since these eight had stood in one place, then stopped. Counting would tell him how long they hadn't seen it.
 
-Nahira was standing right beside her.
-
-Since the Ember Run, she had spoken less and less, staying close like a shadow.
-Even now, she was nearer to Aka than anyone.
-As if watching Aka's breath and gaze before the evacuation line or the front.
-
-That sight alone
-made Sion feel this scene as strangely heavier.
-
-Hazran had truly been holding Aka
-as both a person and a fragment.
-
-Zahir spoke, very low.
+Zahir spoke low.
 
 "Outsiders."
 
-At that one word,
-the surrounding air went quiet once more.
-
-Harun.
-Nasim.
-Luhai.
-Everyone holding the line before the hull—
-they all looked that way together.
-
-Zahir continued.
+The air went quiet.
 
 "Thank you for saving Hazran."
 
-That didn't sound like a formality.
-It came out so late
-that it drove in like something more sincere.
-
 Sion couldn't answer.
 
-He hadn't expected those words at a moment like this.
+Today this city had lost eighty-eight, its inside had collapsed whole, and it had abandoned its own corridor. And still he thanked them for saving it.
 
-Zahir kept speaking without looking away.
+Zahir didn't take his eyes off them as he went on.
 
-"What happened here, Hazran will close.
-You carry our fragments and go forward."
+"What happened here, Hazran closes.
+You carry our fragments and go on."
 
-The moment Sion heard those words,
-he felt something inside his chest settle down with certainty.
+The moment he heard that, Sion felt something inside his chest drop, and stay dropped.
 
-It was decided now.
+It was settled now.
 
-We are not the side that stays.
-We are the side Hazran pushes out to the end.
+They weren't the ones staying. They were the ones Hazran pushed out to the very end. And because of exactly that, it felt as if his feet wouldn't move.
 
-But precisely because of that fact,
-his feet felt like they wouldn't come free.
+Seorin said nothing.
 
-Seorin said nothing either.
+She was the one who should have hit back first, and hard, at a moment like this, but this time it was the opposite. Hers was the face of someone keeping her mouth shut on purpose, because if she opened it something would truly be settled.
 
-She was always the kind of person who seemed like she'd react roughly first in moments like this.
-But this time it was the opposite.
-If she opened her mouth, something would be truly finalized—
-so her face was deliberately shut.
+Han Jiwoo's hands stopped at the hull's entrance. Kael slowly turned the face he had kept toward the left. Sern and Ater lowered their eyes a little too.
 
-Jiwoo's hands stopped at the hull entrance.
-Kael slowly turned his face from the left corridor.
-Sern and Ater lowered their gaze, very faintly.
+Nahira took hold of Aka's wrist, very slowly.
 
-Nahira gripped Aka's wrist, very slowly.
+It was a hand that neither pulled nor let go.
 
-A hand that neither pulled
-nor let go.
+Zahir drew a short breath and spoke again.
 
-A hand holding someone who was leaving,
-already knowing she must let go in the end.
+"Find the planet of those machines that drove us mad this time,"
+he said.
+"That is the way you live, and the way the fragments of our Hazran go on living."
 
-Zahir took one very short breath,
-then spoke again.
+The moment he heard that sentence, Sion knew.
 
-"Find the planet of those machines that drove us mad."
-He said.
-"That is the way you live, and the way Hazran's fragments keep living."
+This city wasn't granting them an escape. It was entrusting them with something. It was shipping off what it hadn't been able to close itself.
 
-Those words weren't a simple request.
-They fell somewhere between a last testament and an order.
+And when those words fell, Ater and Sern looked at each other.
 
-The moment Sion heard that sentence,
-he understood that Hazran wasn't simply granting them escape.
-It was entrusting them with something.
+It was very brief. Without Sion, no one would have seen the glance.
 
-This city's fury.
-This city's wounds.
-A piece of the door this city could never close—
-being loaded onto them and sent away.
+These two had come from the Empire. Of everyone here, they knew best whose hands those black things had come from.
 
-Zahir said one last thing, very low.
+Ater said nothing. Zahir didn't ask, either.
 
-"Luhai goes with you too."
-He added, low.
-"You are not a hand that stays here either."
+The silence felt strange to Sion. Both of them already knew the answer.
 
-Luhai went still for a moment.
+Zahir spoke low, one last time.
 
-Zahir spoke without withdrawing his gaze.
+"Luhai goes with you too,"
+he added.
+"You're not a hand that stays here either."
 
-"Hazran, we close ourselves."
+Luhai went stiff for a moment.
 
-He closed his eyes once, then opened them. And just before turning away, he added, very brief.
+Zahir didn't take his eyes away as he spoke.
 
-"You can do it."
+"We close Hazran."
 
-Those words, strangely,
-didn't sound like comfort.
+Then he closed his eyes once and opened them. Just before turning away, he added, briefly:
 
-Less like belief
-and more like a verdict that this was now the only way.
+"With you, it can be done."
 
-And then Zahir's gaze
-finally went to Aka.
+It didn't sound like comfort. It sounded less like faith than a verdict.
 
-He was wordless for the briefest moment.
+And then Zahir's eyes went to Aka.
 
-Inside that short silence
-seemed to be everything—
-how Hazran had held Aka until now,
-how it had protected her,
-and how it must now let her go.
-
-Zahir spoke.
+For a moment he said nothing. It seemed as if everything about how Hazran had held on to Aka all this time was inside that short silence.
 
 "Aka."
 
-Aka didn't answer.
-She just looked up.
+Aka didn't answer. She just looked up.
 
-Nahira's hand tightened, very faintly.
+Nahira's hand tightened, very slightly.
 
-Zahir said, very low,
-in what was almost for the first time a human sound.
+Zahir spoke low, almost for the first time in a human voice.
 
-"Thank you. For everything."
+"Thank you, for all this time."
 
-When those words fell,
-Sion felt the surrounding air crumble, very faintly.
+When those words fell, the air around them gave way, very faintly.
 
-Luhai bowed his head first.
-Nasim didn't curse—just pressed his lips hard shut.
-Harun closed and opened his eyes from a distance.
-Seorin turned her face slightly.
-Jiwoo gripped the hull entrance railing harder.
+Luhai bowed his head first. Nasim didn't even swear; he only pressed his lips together. Harun, from a distance, closed his eyes and opened them. Seorin turned her face a little, and Han Jiwoo gripped the railing harder.
 
-Nahira said nothing to the end.
+Nahira never said a word.
 
-But the hand she'd been holding
-released, very slowly.
+But the hand that had been holding on loosened, very slowly.
 
-That single scene
-let Sion see more clearly, not less.
+From that one sight, Sion knew it more clearly.
 
-This wasn't a simple order.
-This was the moment Hazran let Aka go.
+This wasn't an order. It was letting go.
 
-Sion said, low.
+Sion spoke low.
 
-"We should stay too—"
+"We should stay too…"
 
-The words didn't finish.
-
-Because Zahir cut them, very firmly.
+He couldn't finish it.
 
 "No."
 
-Short and clear.
+Zahir cut him off.
 
-"The closing is ours."
-He said.
-"You are not the ones who hold to the end and then board. You are the side that leaves."
+"Closing is ours,"
+he said.
+"You are not the ones who hold out to the end and then board. You are the ones who leave."
 
-Those words struck Sion's chest head-on.
+Sion took that head-on.
 
-Yes.
-This was the sentence that was needed right now.
+It was right. That was why it hurt.
 
-Who stays.
-Who boards.
-Who closes the door.
-Who must walk out beyond it.
+Seorin asked, late and low.
 
-It could no longer be blurred.
-
-Seorin asked, very late, very low.
-
-"Do you mean it."
+"You mean that?"
 
 Zahir answered at once.
 
 "Hazran closes Hazran."
 
-That one line was the end.
-
-No one could argue anymore.
+That one line ended it.
 
 Zahir raised his hand.
 
-"Board the outsiders."
+"Get the outsiders on."
 
-The moment that order fell,
-the inside of Hazran began to move again.
+Nasim let out a breath that was almost a curse and shoved Sion's shoulder hard.
 
-But this movement was different from before.
-No longer a vague evacuation.
-It was clearly the motion of pushing Sion's party toward the hull.
+"Go,"
+he said.
+"Don't make me talk, not here too."
 
-Nasim was the first to exhale something like a curse
-and roughly shove Sion's shoulder.
+Sion caught that hand.
 
-"Go."
-He said.
-"Don't make me say anything more here."
+"You said earlier the eight were the most expensive."
 
-Luhai at first reflexively looked back.
-Like someone who wanted to confirm one last time
-whether he was the kind that should stay.
+"That was Zahir's line."
 
-But Zahir's words were still in the air.
-*You are not a hand that stays here either.*
+"Is it right?"
 
-Only then did Luhai swallow one very short breath,
-move toward Aka, and say low.
+Nasim rubbed his throat once and answered.
 
-"Go."
-He said, with a face that couldn't smile.
+"It's right. But I can't put that price on it."
+
+"Why not?"
+
+"If I did, I'd have to be the one staying."
+
+Luhai looked back on reflex. Like someone checking whether he was on the side that had to stay.
+
+But Zahir's words were still in the air. You're not a hand that stays here either.
+
+Luhai swallowed a short breath and moved close to Aka.
+
+"Go,"
+he said, with a face that couldn't manage a smile.
 "We go together."
 
-Nahira, this time, pushed Aka's back—very briefly.
+Nahira pushed Aka's back, very briefly.
 
-No words.
-But that hand was clearly saying.
+There were no words. That hand was saying it clearly.
 
-Go.
-I am the one sending you.
-So go.
+Go. I'm the one sending you. So go.
 
-Seorin exhaled one beat late.
-Jiwoo cleared more space at the entrance.
-Kael was already returning from the left.
-Sern and Ater, still holding the outside,
-let their gaze drift once toward the people they would have to board with.
+Sion's feet wouldn't move.
 
-Sion's feet wouldn't come free.
+But it was past the point where his feet not moving meant he could stay.
 
-But it was no longer a stage where not coming free meant not going.
+Han Jiwoo shouted from inside the hull.
 
-Hazran was sending them itself.
-Then they must go.
+"How many?"
 
-Because that was the last order this city had set.
+"Sixteen."
 
-And Sion understood.
+"Sixteen won't weigh down the left."
 
-From this moment,
-the farewell was no longer a warning.
+That answer was strangely comforting. All day they had cut and counted and divided people because of weight, and on this last run there was nothing to cut.
 
-It had truly begun.
+Sion took half a step toward the ramp and stopped.
+
+The eight still weren't moving.
+
+"Them too?"
+Sion asked.
+
+"Board,"
+Zahir said.
+
+Only then did one of the eight raise his head.
+
+"Us?"
+
+"I said board."
+
+"We…"
+
+"Hands that dug that whole pile aren't hands that stay here."
+
+The man couldn't say anything. Two of them lifted the one who had been sitting off to the side onto his feet.
+
+The eight moved toward the ramp. Hands with scraped-raw backs took hold of the railing.
+
+Sion was counting the eight as they went up, and his hand stopped.
+
+Eight, plus the eight of the party, made sixteen.
+
+Then the ones staying here were four.
+
+Sion turned his head.
+
+There was Zahir. There was Harun. There was Nasim. There was Nahira.
+
+Four.
+
+Only then did Sion realize the number he had drawn on the board today was wrong.
+
+"It wasn't eight."
+
+Zahir didn't answer.
+
+"You said earlier eight would stay."
+
+"The eight board."
+
+"Then the ones staying…"
+
+"Four."
+
+Sion couldn't say anything to that one word.
+
+The people who had made this city were four. It had been four who gave a name to the place they found, and it was four who were staying now.
+
+Sion went to the board.
+
+At the right edge was the mark he had drawn earlier. The one he had drawn for eight.
+
+With his fingernail Sion drew four more beside it. He had no way to erase the eight, so he just drew four more next to it.
+
+Then he knew that was the wrong way to do it. The eight would board. The ones staying were four.
+
+It was a number he had no way to erase, and one that mustn't be left there.
+
+Sion rubbed the board once with his palm. It didn't come off. It hadn't come off when Nasim rubbed it earlier, either.
+
+So he left it.
+
+Ten marks and five marks and eight marks and four marks were left side by side on the board.
+
+If anyone looked at this board later, no one would know what these numbers were.
+
+Thinking that, Sion also understood that there would be no one to look at this board later.
+
+Before going to the ramp, he passed in front of Harun.
+
+Harun said nothing.
+
+Sion spoke first.
+
+"One hour."
+
+Only then did Harun look at Sion.
+
+"What."
+
+"Can I stop counting now?"
+
+Harun waited a long while before he answered.
+
+"Count."
+
+"Why?"
+
+"There'll be things to count where you're going too."
+
+Sion took that answer and walked past.
+
+As he walked past, he began to count. He didn't know what he was counting.
 
 ---
 

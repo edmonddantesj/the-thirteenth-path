@@ -1,182 +1,197 @@
 # Episode 45. The Rule That Asked for Proof
 
-After Zahir said "the board has to change," the air in the room grew strangely quieter.
+After Zahir said "So we change the board," the air in the room went strangely quieter.
 
-Normally, conditions came next, then values, then blades. But here, everyone knew that sequence too well—they were closer to holding back their words first. Harun's face had already accepted the next preparation the moment Zahir finished speaking. Nasim wore the thinnest veil of a smile, watching who would show discomfort first. Nahira, upon realizing Aka had no intention of saying more, went quiet like someone who had decided not to ask.
+Usually what comes next is the conditions, then the price, then the blade, first of all. But here everyone knew that order so well that they were closer to holding their words back first. The moment Zahir finished, Harun already had the face of someone who had accepted the next preparations, and Nasim, wearing a very thin smile, was watching to see who would show discomfort first. Once Nahira saw that Aka meant to say nothing more, she went quiet like someone who had decided not to ask any further.
 
-In that short silence, Sion felt more clearly what kind of person Zahir was.
+In that short silence, Sion felt more clearly what kind of man Zahir was.
 
-This man did not lay out conditions as though haggling. He changed the board first, placed people on it, and only then decided who paid what value.
+This was not a man who laid out conditions as if haggling.
+He changed the board first,
+put people on that board,
+and only then decided who would pay what price.
 
-And someone who moved that way had usually already decided half the conclusion.
+And a man who moves that way has usually already half decided the outcome.
 
 Seorin spoke first.
 
-"How do you change it."
+"How are you changing it?"
 
-Zahir did not look at her directly. Instead, he looked once more at the fragment in Kael's arms and the etherite in Luhai's hand before speaking low.
+Zahir didn't look straight at her. Instead he looked once more at the fragment in Kael's coat and the Etherite in Luhai's hand, and only then spoke, low.
 
-"Outside, everyone talks about knowing the real thing."
-He said.
-"Who picked it up first, who saw it first, who's more desperate."
+"Outside, everyone just runs their mouth about knowing what's real,"
+he said.
+"Who grabbed it first, who saw it first, who needs it more."
 
-Luhai's lip curled just slightly. He could not have missed that it was about him.
+The corner of Luhai's mouth twisted very slightly. There was no way he didn't know it was about him.
 
-Zahir continued.
+Zahir went on.
 
-"But in Hazran, that's not where it ends."
-He said.
-"If your hand can hold the real thing, you have to carry it out to the end."
+"But in Hazran it doesn't end there,"
+he said.
+"If yours is the hand that's going to hold the real thing, you have to carry it out to the end."
 
-The moment that sentence landed, Sion felt more clearly that what this man intended was not a simple trade. Here, whether it was an object or a person's name, everything was dragged toward the question of who could bear the real thing.
+The moment that sentence dropped, Sion felt even more clearly that what this man meant to bring out was not a simple deal. Here, whether it was goods or a person's name, everything was dragged in the end to the question of "who can carry the real thing."
 
 Ater asked quietly.
 
-"Is this a test."
+"Is it a test?"
 
-Zahir smiled by the smallest fraction.
+Zahir smiled very faintly.
 
-"You could put it that way."
-He said.
-"But I find the board more precise than an exam."
+"You could put it that way,"
+he said.
+"But I think a board is more accurate than a test."
 
-Seorin said coldly.
+Seorin spoke coldly.
 
-"Sounds like you want to play with us."
+"Sounds like you want to play with us, too."
 
 "Play?"
 Zahir asked back.
-He looked at Seorin directly for the first time.
-"A hand whose ship is about to die. A hand dragged all the way here by a single name. A kid who grabbed the real thing from among the fakes and ran. A hand cradling an old fragment."
-He said low.
-"You're all already on the board."
+He looked straight at Seorin for the first time.
+"A hand whose ship is about to die, a hand dragged all the way here because of one name, a kid who grabbed the real thing out of a pile of fakes and ran, a hand holding an old fragment to its chest,"
+he said, low.
+"They're all already on the board, aren't they?"
 
-That was not wrong.
+He wasn't wrong.
 
-Hearing it, Sion felt, strangely, acknowledgment rise before objection. From the moment the Luhai incident erupted in the outer-layer market, this had already been more than simple information gathering. Etherite, Aka, Luhai, Kael's fragment, ship repair. All of it had begun accruing value in a single place, and now the only thing left was who would weigh it, and by what rules.
+The moment he heard it, Sion felt, strangely, acknowledgment rise in him before any rebuttal. From the moment the business with Luhai broke out in the outer-level market, this had already stopped being simple information-gathering. The Etherite, Aka, Luhai, Kael's fragment, the ship's repairs. Every one of them had started taking on a price in a single place, and all that was left now was who would measure it, and by what rule.
 
 Nasim cut in smoothly.
 
-"To put it nicely, it's an opportunity."
-He said.
-"You could have ended up fondling fakes outside, but you made it this far."
+"To put it nicely, it's an opportunity,"
+he said.
+"You could have ended up out there fiddling with fakes, but you've made it all the way up here."
 
-Luhai muttered under his breath.
+Luhai muttered quietly.
 
-"Anyone who calls this an opportunity is always suspicious."
+"Anybody who calls that an opportunity is always shady."
 
-Kael said low.
+Kael spoke, low.
 
-"He's right this time."
+"For once, he's right."
 
-Nasim let even that reaction pass with a smile.
+Nasim let even that pass with a smile.
 
-Zahir did not let the small bickering linger.
+Zahir didn't let the little squabble run on.
 
-"I can give you the etherite."
-He said.
+"I can give you Etherite,"
+he said.
 
 A short silence.
 
-This time, what Sion felt first was the pang of Jiwoo not being here. That single sentence had thrown open the possibility of saving the ship. But it was simultaneously too obvious that Zahir would not simply hand it over.
+This time, the first thing Sion felt was regret that Han Jiwoo wasn't here. That one sentence alone had suddenly opened up a chance to save the ship. But it was just as plain that Zahir would never simply hand it over.
 
-"In return,"
-He continued.
-"Prove why I should give it to you."
+"In exchange,"
+he went on,
+"prove why I should give it to you."
 
-Only then did Sion clearly feel the rule of this place. Hazran was the same all the way to the end. Names, objects, information—everything demanded proof. Starting with whether your hand was worth holding it.
+Only then did Sion feel clearly what the rule of this place was. Even this far in, Hazran was the same. Names, goods, information—all of it demanded proof. Starting with whether yours was a hand worth holding it.
 
-Seorin asked immediately.
+Seorin asked at once.
 
-"In what way."
+"How?"
 
-Zahir looked once toward Nahira and Aka, once toward Luhai and the etherite, and once more toward Sion and Kael. Those three brief glances alone made him look like someone confirming again that the values on this board split into three.
+Zahir looked once toward Nahira and Aka, once toward Luhai and the Etherite, and last, once more toward Sion and Kael. Like a man reconfirming, with just those three short glances, that the value set on this board had split three ways.
 
-"The Hazran way."
-He said.
-"Pick the real, discard the false, and be the side that survives to the end."
+"The Hazran way,"
+he said.
+"Grab the real thing, throw away the fake, and be the one who survives to the end."
 
-Luhai muttered almost reflexively.
+Luhai muttered almost by reflex.
 
-"Sounds filthy just hearing about it."
+"Filthy just hearing it."
 
-This time even Nasim did not smile. Because it did not sound like the grumbling of a fast-mouthed kid, but like the resignation of someone who already knew the rules of this floor.
+This time even Nasim didn't smile. Because it didn't sound like just the grumbling of a fast-mouthed kid, but like resignation from a kid who already knew the rules down here.
 
-Ater asked very carefully.
+Ater asked, very carefully.
 
-"Does Aka enter that board as well."
+"Does Aka go onto that board as well?"
 
-At that question, the air in the room paused by the faintest degree.
+At that question, the air in the room stopped, very slightly.
 
-Harun's gaze sank cold first. Nahira's expression, conversely, went blanker. Aka was still quiet, but in that moment Sion saw her gaze waver for the first time—very faintly. Less fear than the discomfort of someone who had already known that possibility.
+Harun's eyes sank cold first, and Nahira's expression, if anything, was wiped even blanker. Aka was still quiet, but in that moment Sion saw her gaze waver, very faintly, for the first time. Not so much fear as the discomfort of someone who had already known that was possible.
 
-Zahir did not answer immediately.
+Zahir didn't answer right away.
 
-Instead, he said very slowly.
+Instead he spoke very slowly.
 
-"Aka is mine to decide."
+"I decide about Aka."
 
-That single sentence was enough.
+That one line was enough.
 
-Aka was not a simple participant or judge. She was one of the most expensive values on this entire board, and Zahir knew that too well. So he appeared to have no intention of placing her on the board easily, nor of hiding her completely. Show when needed, conceal when not. That was more ominous.
+Aka did not argue. Instead she kept her head where it had been when she asked Zahir where the board would be. She neither lowered it nor raised it further.
 
-Hearing that, Sion felt clear displeasure for the first time.
+Sion saw that posture.
 
-A man who kept her under his board in the name of protection. An existence swallowed by rumor outside and managed as value inside. What he had only sensed as structure until now became too sharp with a single sentence from Zahir.
+It was not the face of someone who agreed. It was the face of someone who knew that saying anything here would carry no price.
 
-Seorin said very low.
+Nahira laid a hand on Aka's shoulder. It was a hand meant to lead her away, and under it Aka moved half a beat late. So brief that no one would have seen.
 
-"That might not be up to you."
+Only Sion saw.
 
-Harun raised his eyes. Nasim's smile thinned to almost nothing. Nahira's face, for the first time, looked like she was watching the air between Seorin and Zahir at once.
+Only then, at that one remark of Zahir's, did Sion feel clear displeasure for the first time.
+
+A man who kept Aka under his own board in the name of protecting her.
+A being swallowed as rumor outside, and managed as a price inside.
+What until now he had only felt as structure had become far too sharp with one line from Zahir.
+
+Seorin spoke, very low.
+
+"That might not go the way you want."
+
+Harun raised his eyes. Nasim's smile went very thin as well. For the first time, Nahira's face was watching the air between Seorin and Zahir both at once.
 
 Even so, Zahir did not raise his voice.
 
-"It might not be."
-He said.
+"It might not,"
+he said.
 "That's why we watch the board."
 
-That sounded less like a threat and more like conviction. No matter what anyone said, this man intended to confirm everything on the board in the end.
+It sounded less like a threat than like certainty. Whatever anyone said, this man meant to confirm the end on the board.
 
-Luhai clicked his tongue softly between the exchange.
+In the middle of that exchange, Luhai gave a small click of his tongue.
 
-"So it's a gambling den after all."
+"So it's a gambling den again after all."
 
-Every gaze in the room turned to him at once.
+Every eye went to him at once.
 
-Luhai seemed to realize his mouth had run ahead again and rolled his eyes for just an instant. But it was already too late.
+Luhai seemed to realize his mouth had gone first again, and rolled his eyes for a very brief moment. But it was already too late.
 
-Zahir smiled thinly for the first time.
+For the first time, Zahir smiled, very thinly.
 
-"I suppose so."
-He said low.
-"You always let words spill first."
+"So it is,"
+he said, low.
+"You always let the words slip first."
 
-From that short scene alone, Sion learned one more important thing. Zahir had already nearly decided the place and the method. And Luhai knew it. More precisely, Luhai knew where "prove it the Hazran way" ultimately led on this floor.
+From that short scene alone, Sion learned one more important thing. Zahir had already all but settled the place and the method. And Luhai knew it. More exactly, he was closer to someone who knew where the words "prove it the Hazran way" led in the end, down here.
 
-Nasim spoke as though wrapping things up smoothly.
+Nasim spoke smoothly, as if wrapping things up.
 
-"A real thing that couldn't be found outside. A name that can only be spoken inside. A kid who reads ledgers. An old fragment."
-He said.
-"Isn't that reason enough to open the board wide?"
+"This should be enough to open one big board."
 
-Harun was still silent. But this time the silence carried a different meaning from before. Not opposition—rather the quiet of someone who knew that the bigger the board grew, the more work fell to his hands.
+Harun was still silent. But this time he was quiet in a different sense than before. Less objection than the quiet of a man who knew that the bigger the board grew, the more work his own hands would have.
 
-Aka barely moved through the entire exchange. Yet Sion strangely felt she was listening not to Zahir's words but to the structure beneath them first. What would move when the board opened. What would flow. What would be revealed. As though she already saw all of those grains, however faintly.
+Aka barely moved through the whole exchange. But Sion felt, strangely, that she was hearing the structure laid beneath Zahir's words before the words themselves. What would move once the board opened, what would flow away, what would be exposed. Like someone who could already dimly see every grain of it.
 
 Zahir spoke one last time.
 
 "Harun. Nasim."
 
-Both lifted their gaze at once.
+The two of them raised their eyes at once.
 
-"Prepare."
-He said low.
-"This time, let everyone outside see too."
+"Get ready,"
+he said, low.
+"This time, so the outside sees all of it."
 
-When that sentence landed, Sion sensed instinctively that this board would not end as a mere internal verification. Zahir intended to use all of Hazran as the stage, outer-layer market included. Who could hold the real thing. Who would be dragged by the false. Who could bear name and object and fragment and fear all at once.
+As that sentence fell, Sion sensed that this board would not end as a simple internal check. Zahir meant to use all of Hazran as his stage, the outer-level market included. Who could carry the real thing, who would be drawn in by a fake, who could bear a name and goods and a fragment and fear all at once.
 
-And at the end of that board, the etherite, Aka, the true nature of the imitation they had chased—all of it would be shaken once more, on a far larger scale.
+And at the end of that board,
+the Etherite,
+Aka,
+and the true nature of the imitation they had chased,
+would all be shaken hard once more.
 
 ---
 

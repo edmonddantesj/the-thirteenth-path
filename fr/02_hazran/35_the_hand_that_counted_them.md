@@ -1,200 +1,204 @@
 # Chapitre 35 — La main qui les comptait
 
-Le marché passa en un instant d'un air qui avalait les noms à un air où tout le monde voyait qui venait de s'enfuir avec la vraie pièce.
+En un instant, le marché passa de l'air qui avalait les noms à un air où tout le monde voyait qui s'enfuyait avec du vrai.
 
-Une vieille caisse de chargement bascula entièrement sur le côté, projetant dans toutes les directions les fragments de métal qu'elle contenait. Même les gens qui marchandaient encore un instant plus tôt reculèrent d'un pas, par instinct, et dans cette brèche un petit corps se glissa comme une coulée vers le fond de la ruelle. Sa façon de fuir, déjà, trahissait l'habitude. Il ne courait pas : il se déplaçait en sachant déjà où poser les pieds pour ne pas se faire attraper.
+Une vieille caisse de chargement se renversa complètement sur le côté, et les fragments de métal qu'elle contenait giclèrent dans tous les sens. Même ceux qui marchandaient encore un instant plus tôt reculèrent d'un pas, comme par instinct, et un petit corps fendit cette brèche pour s'enfoncer au fond de la ruelle, presque en glissant. Sa manière de fuir, déjà, sentait l'habitude. Il ne courait pas : c'était un corps qui savait déjà où poser les pieds pour ne pas se faire prendre.
 
-Les deux qui le poursuivaient étaient tout le contraire.
+Les deux qui le poursuivaient étaient tout l'inverse.
 
-L'un était le marchand qui étalait ses faux fragments d'éthérite un instant plus tôt, l'autre un homme d'un gabarit encore supérieur, prompt à la colère. Tous deux n'étaient pas seulement bruyants — leurs visages disaient qu'ils venaient de perdre quelque chose qu'ils ne pouvaient pas se permettre de perdre.
+L'un était le marchand qui étalait tout à l'heure sa fausse éthérite ; l'autre, un homme plus massif d'une tête et plus prompt à la colère. Ni l'un ni l'autre ne faisait seulement du bruit : cette fois, leurs visages disaient qu'ils avaient laissé filer quelque chose qu'ils ne pouvaient vraiment pas perdre.
 
-« Attrape-le. »
-Le marchand cria d'une voix brisée.
-« C'est à moi. »
+« Attrapez-le ! »
+Le marchand hurlait à s'en déchirer la gorge.
+« C'est à moi ! »
 
-« À toi, tu parles. »
-Quelqu'un, sur le côté, lâcha ces mots d'un ton moqueur.
+« À toi, mon œil. »
+Quelqu'un ricana sur le côté.
 « Tu l'avais étalé sans même savoir que c'était du vrai. »
 
-Cette seule réplique retourna l'air de la couche extérieure du marché un cran plus brutalement.
+Cette seule phrase retourna l'air de la couche extérieure du marché plus brutalement encore.
 
-Sion comprit, rien qu'à cette brève passe d'armes, que ce que le petit fuyard tenait en main n'était pas un simple objet monnayable. Un vrai, mêlé aux faux. Personne ne l'avait vérifié ouvertement, mais plusieurs avaient déjà compris, et c'était précisément pour cela que le tumulte enflait.
+Rien qu'à cette brève prise de bec, Sion comprit que ce que le petit fuyard serrait dans sa main n'était pas un simple objet qui se monnaye. Du vrai, mêlé aux faux. Personne ne l'avait vérifié ouvertement, mais certains avaient déjà deviné, et c'est pour cela que le tumulte enflait.
 
 Et Kael bougea le premier.
 
-Le corps avant la parole.
+Son corps alla plus vite que les mots.
 
-Il ne se tourna pas vers le petit fuyard, mais vers l'homme plus massif qui fondait droit dessus depuis l'arrière. Il pivota d'un angle serré, enfonça d'abord l'épaule. Un instant, souffle rauque et jurons s'emmêlèrent ; les deux s'effondrèrent presque au sol avant de se repousser.
+Il ne se tourna pas vers le petit fuyard pour l'attraper, mais d'abord vers l'homme plus massif qui fonçait derrière pour lui tomber dessus. Il coupa l'angle et le percuta de l'épaule. Un instant, souffles rauques et jurons s'emmêlèrent ; les deux hommes s'effondrèrent presque au sol, puis rebondirent l'un loin de l'autre.
 
-Sion vit le mouvement et comprit un temps trop tard.
+Sion vit le mouvement et ne le comprit qu'avec un temps de retard.
 
-Ce n'était pas le réflexe de quelqu'un qui cherche à s'emparer de l'objet.
-C'était celui de quelqu'un qui s'interpose avant que l'un des deux ne se fasse démolir.
+Ce n'était pas le réflexe de quelqu'un qui veut rafler l'objet.
+C'était le réflexe de quelqu'un qui s'interpose avant que quelqu'un ne se fasse démolir pour de bon.
 
-Seorin dit brièvement :
+Seorin fut brève.
 
 « Sion. »
 
 Ce seul mot suffit.
 
-Sion pivota aussitôt vers la ruelle. Celui qui suivit fut Ater. Tout en courant, Ater balayait du regard les fragments de métal et la poussière éparpillés au sol. Si ce qu'on tenait en main était de la vraie éthérite, la réaction devait différer, au minimum, de celle d'une limaille morte.
+Sion pivota aussitôt vers la ruelle, lui aussi. Ater le suivit. Tout en courant, Ater parcourait du regard les fragments de métal éparpillés au sol et les réactions dans la poussière. Si ce que l'enfant tenait était de la vraie éthérite, sa réaction pouvait au moins avoir une autre texture que celle d'une limaille morte.
 
-L'enfant qui fuyait était rapide, mais pas parfait.
+L'enfant en fuite était rapide, mais pas parfait.
 
-Les ruelles de la couche extérieure du marché étaient assez tortueuses pour dérouter un inconnu qui court, mais pour quelqu'un de trop pressé, cette complexité même devenait un piège. L'enfant négociait bien les virages, comme quelqu'un qui avait déjà survécu à cela plusieurs fois, mais il serrait quelque chose contre l'intérieur de sa main droite, et cela retardait son équilibre d'un rien à chaque foulée. Sion ne manqua pas ce minuscule décalage.
+Les ruelles de la couche extérieure étaient compliquées pour qui les courait pour la première fois, mais c'était le genre de complication qui, au contraire, prenait au piège les gens trop pressés. L'enfant négociait bien ses virages, comme s'il en avait déjà réchappé plusieurs fois, mais il serrait quelque chose dans le creux de sa main droite, et son équilibre accusait chaque fois un infime retard. Sion ne laissa pas échapper ce minuscule décalage.
 
-« À droite, c'est bouché. »
-Il cria.
+« À droite, c'est bouché ! »
+Le cri venait de Sion.
 
 L'enfant, sans même se retourner, bifurqua aussitôt à gauche.
 
-Cette réaction, justement, le trahit davantage.
+Cette réaction trahit encore mieux sa position.
 
-Au moment où Sion accéléra encore, deux pans de toile filtrante tombèrent brusquement devant lui. L'enfant les avait arrachés exprès. Ses mains étaient vives pour bloquer la vue. Sion tenta de passer au travers et perdit un demi-temps ; juste à côté, Ater écarta l'extrémité de la toile.
+Au moment où Sion accélérait encore, deux toiles filtrantes tombèrent brusquement devant lui. L'enfant les avait arrachées exprès au passage. Ses mains avaient été rapides pour boucher la vue. Sion voulut traverser la toile et perdit un demi-temps ; juste à côté, Ater en écarta le bord.
 
-« En bas à gauche. »
-Ater dit à voix basse.
+« En bas, à gauche. »
+La voix d'Ater traversa la toile.
 
 L'enfant bifurqua encore.
 
-Cette fois, il se laissa glisser dans une faille étroite, creusée comme un égout désaffecté. Sion faillit s'y engager, puis s'arrêta net. Un corps humain pouvait passer, mais un gabarit un peu large s'y coincerait aussitôt.
+Cette fois, il se laissa glisser dans une fente étroite, creusée comme un ancien égout. Sion faillit l'y suivre, puis s'arrêta net. Un homme pouvait y passer, mais un gabarit trop large s'y coincerait aussitôt.
 
-Et avant lui, une autre main jaillit.
+Et avant lui, une autre main surgit.
 
 Kael.
 
-On ne savait pas quand il s'était débarrassé de l'homme à l'arrière, mais il avait déjà contourné la ligne d'ombre par en bas et se trouvait du côté où l'enfant allait ressortir. Ce mouvement n'était pas tant rapide que familier. Le mouvement de quelqu'un qui sait comment, dans les bas-fonds du marché, on emprunte les interstices plutôt que les chemins.
+Quand s'était-il débarrassé de l'homme de derrière ? Il avait déjà fait un large détour par la ligne d'ombre d'en bas pour se poster le premier du côté où l'enfant allait ressortir. Son mouvement était moins rapide que familier. Le mouvement de quelqu'un qui savait comment ceux qui survivent sur le sol d'un marché empruntent les interstices plutôt que les chemins.
 
-Dès que l'enfant se redressa de ce côté, la main de Kael saisit d'abord le poignet.
+À peine l'enfant s'était-il redressé de ce côté que la main de Kael lui saisit le poignet.
 
-Plus exactement, il ne tordit pas le poignet — il tua simplement l'élan de fuite.
+Pour être exact, il ne lui tordit pas le poignet : il cassa net la direction dans laquelle l'enfant voulait encore fuir.
 
-L'enfant, sans même le temps de sursauter, lança l'autre main. L'extrémité du fragment métallique qu'il tenait accrocha brièvement la lumière du soleil. Petit. Mais la réaction était là, indéniable. Un éclat lourd, du genre qu'un simple morceau de ferraille ne produit pas.
+Sans même le temps de sursauter, l'enfant balança son autre main. La pointe du fragment de métal qu'il tenait accrocha brièvement la lumière du soleil. Ce n'était pas grand-chose. Mais il y avait une réaction, sans aucun doute. Un éclat lourd, du genre qu'un simple bout de ferraille ne donne pas.
 
-L'instant où Kael vit cela, quelque chose changea dans son regard, infimement.
+Au moment où Kael le vit, son regard changea, infimement.
 
-Ce n'est qu'en voyant ce visage que Sion eut la certitude.
+Ce n'est qu'en voyant ce visage que Sion en fut certain.
 
-C'était du vrai.
+Du vrai.
 
-Au minimum, ce n'était pas entièrement mort.
+Ou du moins, pas complètement mort.
 
-À cet instant, derrière eux, le marchand et le colosse revinrent à la charge dans un torrent d'injures. Les gens perchés au-dessus de la ruelle commencèrent à avancer la tête, au loin quelqu'un riait, quelqu'un d'autre lançait un prix. Le marché de la couche extérieure de Hazran était en train de se muer en un air où badauds, acheteurs et mains prédatrices se mêlaient tous ensemble.
+À cet instant, derrière eux, le marchand et le colosse de tout à l'heure revinrent à la charge en déversant des injures. En haut de la ruelle, des têtes commençaient à se pencher ; au loin, quelqu'un riait, quelqu'un d'autre lançait un prix. Le marché de la couche extérieure de Hazran se changeait à vue d'œil en un air où se mêlaient badauds, acheteurs et mains prêtes à rafler la mise.
 
-Seorin arriva la dernière, mais remit de l'ordre la première.
+Seorin arriva la dernière, et ce fut pourtant elle qui reprit la situation en main la première.
 
 « Vide tes mains d'abord. »
-Elle dit cela à l'enfant, à voix basse.
+Elle s'adressait à l'enfant, à voix basse.
 
-L'enfant reprit son souffle en fusillant Kael du regard. Un visage qui ne faisait pas seize ans. Maigre, mais les yeux étrangement vifs. Pas une expression de terreur — un visage qui jaugeait en même temps jusqu'où il pouvait s'entêter et à partir d'où il devait renoncer.
+L'enfant, à bout de souffle, foudroyait Kael du regard. Un visage qui ne semblait même pas avoir seize ans. Plutôt maigre, mais les yeux étrangement vifs. Pas une expression de terreur : un visage qui mesurait en même temps jusqu'où il pouvait s'entêter et à partir d'où il faudrait lâcher.
 
 « J'ai rien volé. »
-L'enfant parla le premier.
-« C'est venu dans ma main en premier, c'est tout. »
+Ce fut l'enfant qui parla le premier.
+« C'est arrivé dans ma main avant tout le monde. »
 
-« Pas mal. »
-Seorin dit à voix basse.
-« Un enfant de Hazran. »
+« Bien. »
+Seorin n'avait pas haussé la voix.
+« Un gamin de Hazran. »
 
 L'enfant grimaça aussitôt à ces mots.
 
-« Je suis pas un enfant. »
+« Je suis pas un gamin. »
 
-Kael, qui n'avait toujours pas lâché le poignet, demanda brièvement :
+Kael, qui ne lui avait toujours pas lâché le poignet, demanda brièvement :
 
 « Ton nom. »
 
-L'enfant garda le silence un instant. Un silence où il pesait s'il devait choisir un mensonge d'abord ou recalculer un angle de fuite. Mais derrière, le marchand accourait déjà en hurlant, et tous les regards de la couche extérieure du marché convergeaient dans leur direction. Ne pas même donner son nom risquait de l'embourber davantage — ce calcul, visiblement, avait été rapide.
+L'enfant se tut un instant. Un silence où il choisissait entre commencer par un mensonge et chercher de nouveau un angle pour filer. Mais derrière, le marchand accourait déjà en vociférant, et tous les yeux de la couche extérieure étaient braqués sur eux. S'il ne donnait même pas son nom, il risquait d'être ficelé plus serré encore : le calcul, visiblement, avait été vite fait.
 
 « Luhai. »
-L'enfant lâcha le mot comme on crache.
+L'enfant le cracha plus qu'il ne le dit.
 
-Sion entendit la façon dont ce nom se posait sur la langue.
+Sion écouta une fois la façon dont ce nom se posait dans la bouche.
 
 Luhai.
 
-Un nom teinté de vert. Un nom d'une autre étoffe que la poussière du marché, et pourtant, pour survivre longtemps ici, il fallait bien un nom aussi vif sur les lèvres.
+Un nom teinté de vert. D'une autre texture que la poussière du marché ; et pourtant, pour survivre longtemps ici, il avait sans doute fallu un nom aussi vif sur la langue.
 
-Le marchand, arrivé presque à bout portant, hurla :
+Le marchand, arrivé presque sous leur nez, hurla :
 
-« Lâche-le. Ce voleur, c'est moi qui l'ai chopé en premier. »
+« Lâche-le. Ce voleur, c'est moi qui l'ai attrapé en premier. »
 
-Seorin, sans même se retourner, demanda :
+Seorin demanda sans même se retourner :
 
-« C'est bien à toi ? »
+« C'est vraiment à toi ? »
 
 Le marchand ne put pas répondre tout de suite.
 
-Ce bref silence suffit.
+Ce bref arrêt suffit.
 
-Kael dit très bas :
+Kael parla sans desserrer la main :
 
-« Tu l'avais glissé parmi les faux pour gonfler le prix, c'est tout. »
+« Tu l'avais glissé parmi les faux pour faire monter le prix, c'est tout. »
 
-Le marchand écarquilla les yeux de fureur.
+Le marchand roula des yeux furieux.
 
-« Qu'est-ce que t'en sais. »
+« Qu'est-ce que t'en sais, toi ? »
 
-Cette fois, ce fut Ater qui prit la parole.
+Cette fois, ce fut Ater qui ouvrit la bouche.
 
-« La réaction diffère de celle du métal mort. »
-Il dit à voix basse.
-« Ce fragment, au moins, ne fait pas partie du même lot que ce qui était étalé dehors. »
+« La réaction n'est pas celle du métal mort. »
+Il parlait à voix basse.
+« Ce fragment, du moins, ne fait pas partie du même lot que ce qui est étalé dehors. »
 
-Dès que ces mots tombèrent, l'air autour changea encore.
+Ces mots tombés, l'air alentour changea encore une fois.
 
-Personne ne dit le premier que c'était du vrai, mais tout le monde commençait à penser la même chose. À Hazran, c'était ce genre d'instant qui était le plus dangereux. Quand la chose n'appartenait encore à personne, et que pourtant, tous commençaient à en fixer le prix.
+Personne ne dit le premier que c'était du vrai, mais tous commençaient à penser la même chose. À Hazran, c'était ce moment-là le plus dangereux. Quand la chose n'était encore à personne, et que tout le monde, en même temps, commençait à lui fixer un prix.
 
-Luhai sembla lire ce changement plus vite que quiconque. Même tenu par la main de Kael, ses yeux continuaient de jauger les passages latéraux, les charpentes au-dessus, les mains des gens. Il avait peur, oui, mais c'était un enfant chez qui le calcul tournait avant la peur.
+Luhai sembla lire ce changement plus vite que quiconque. Même retenu par la main de Kael, ses yeux continuaient de jauger les passages latéraux, les charpentes au-dessus, les mains des gens. Il avait peur, c'était certain ; mais même dans la peur, c'était un enfant chez qui le calcul tournait d'abord.
 
 Sion demanda à voix basse :
 
-« Tu savais que c'était du vrai quand tu l'as pris ? »
+« Tu l'as pris en sachant que c'était du vrai ? »
 
-Luhai ne répondit pas tout de suite. Il parcourut du regard le visage de Sion, l'équipement à la main d'Ater, les yeux de Seorin, et enfin la main de Kael, dans cet ordre.
+Luhai ne répondit pas tout de suite. À la place, il parcourut tour à tour le visage de Sion, l'appareil dans la main d'Ater, les yeux de Seorin et, en dernier, la main de Kael.
 
 « À moitié. »
-Il lâcha le mot.
+Le mot tomba, désinvolte.
 « Non, aux deux tiers. »
 
-« Qu'est-ce que c'est que cette réponse. »
-Sion dit.
+« C'est quoi, cette réponse ? »
+La question venait de Sion.
 
 « Il faisait trop le mort au milieu des faux. »
-Luhai reprit son souffle et dit.
-« Quand c'est comme ça, en général c'est l'un ou l'autre. Soit c'est du vrai, soit quelqu'un l'a planqué exprès. »
+Luhai reprenait son souffle.
+« Dans ce cas, en général, c'est l'un ou l'autre. Soit c'est du vrai, soit quelqu'un l'a planqué exprès. »
 
-Ces mots sonnaient comme du bluff, mais pas entièrement creux non plus.
+Cela sonnait comme de la vantardise, mais pas tout à fait comme des sornettes non plus.
 
-Kael, après avoir entendu cette réponse, ne lâcha toujours pas le poignet. Il relâcha seulement un peu la pression par rapport à tout à l'heure. Ce changement infime n'était visible que pour Sion, mais il était net. Kael, lui non plus, ne considérait pas cet enfant comme un simple voleur à la tire.
+Même après cette réponse, Kael ne lâcha pas prise. Il desserra seulement un tout petit peu la main par rapport à tout à l'heure. Ce changement infime, seul Sion pouvait le voir, mais il était net. Kael, lui non plus, ne voyait pas en cet enfant un simple chapardeur.
 
-C'est à cet instant précis que l'air du côté de l'entrée de la ruelle commença à se réorganiser étrangement.
+C'est alors que l'air, du côté extérieur de la ruelle, commença étrangement à se mettre en ordre.
 
-Ce n'était pas que le vacarme se fût atténué. Au contraire, les paroles allaient et venaient toujours, mais c'était plutôt comme si une couche de silence différente se posait par-dessus. Les gens de la couche extérieure de Hazran ne reculent pas aussi vite, même quand quelqu'un s'enfuit avec du vrai. Mais là, c'était un peu différent. Les rires, les jurons, les enchères — tout ralentissait d'un temps.
+Ce n'était pas que le bruit diminuait. Les paroles allaient et venaient toujours. Mais les rires, les jurons, les prix lancés à la volée, tout prenait un temps de retard.
 
-Seorin lut ce changement la première.
+Le marchand qui poursuivait l'enfant jurait encore. Sion le regarda : seule sa bouche jurait ; ses yeux, eux, fixaient l'extérieur de la ruelle.
+
+Un instant plus tôt, ces gens renversaient des bidons et hurlaient pour un seul voleur. C'était il y a quelques minutes à peine.
+
+Seorin fut la première à lire ce changement.
 
 « Bien. »
-Elle dit très bas.
-« Ça vient d'arriver aux bonnes oreilles. »
+Elle baissa la voix.
+« Voilà, c'est arrivé aux oreilles. »
 
 Sion ne prit pas la peine de demander.
 
-Il devinait déjà lesquelles.
+Quelles oreilles, il croyait déjà le savoir.
 
 Un vrai fragment d'éthérite,
-de jeunes mains nommées Luhai,
+une jeune main nommée Luhai,
 des étrangers qui avaient prononcé le nom d'Aka,
 et un tumulte éclaté en plein milieu de la couche extérieure du marché.
 
-Avec tout cela, l'affaire ne se réglerait plus dans la couche extérieure.
+Avec tout cela, l'affaire ne pouvait plus se régler dans la couche extérieure.
 
-Le marchand le sentit aussi, apparemment — il ne parvint plus à crier aussi fort qu'avant. Le colosse avait carrément reculé d'un pas, et les gens qui tendaient la tête au-dessus de la ruelle commencèrent à feindre de n'avoir rien vu, avec un naturel excessif.
+Le marchand dut le sentir lui aussi : il ne parvint plus à crier aussi fort. Le colosse recula carrément d'un pas, et les têtes penchées au-dessus de la ruelle se mirent à faire semblant de n'avoir rien vu, avec un naturel parfait.
 
-Luhai, en voyant ce changement, afficha une expression encore plus mauvaise.
+En voyant ce changement, Luhai fit une tête encore plus sombre.
 
 « Ah, merde. »
-Il marmonna très bas.
+Ce fut à peine un murmure.
 
 Seorin demanda aussitôt :
 
@@ -202,18 +206,17 @@ Seorin demanda aussitôt :
 
 Au lieu de répondre, Luhai jeta un regard vers la main de Kael.
 
-« C'est trop tard maintenant. »
-Il dit à voix basse.
-« Ça ne se réglera pas juste en se faisant attraper. »
+« C'est trop tard, maintenant. »
+Sa voix était basse.
+« Ça s'arrêtera pas à se faire attraper. »
 
-Dès que ces mots furent prononcés, au-delà des ombres de l'entrée de la ruelle, quelqu'un commença à s'avancer lentement.
+À peine eut-il fini que, par-delà l'ombre de l'entrée de la ruelle, quelqu'un commença à s'avancer lentement.
 
-Le bruit de la couche extérieure du marché ne s'était pas tout à fait tu, et pourtant le chemin, de ce côté-là, se dégageait le premier — un rangement étrange.
+Le bruit de la couche extérieure du marché ne s'était pas tout à fait tu, et pourtant c'était de ce côté seulement que le chemin se vidait d'abord : un étrange rangement.
 
 Quelqu'un venait.
 
-Pas une main qui vient voir le spectacle,
-mais une main qui vient compter en personne qui a touché au mauvais prix.
+Non pas une main venue regarder le spectacle, mais une main venue compter en personne qui avait touché au mauvais prix.
 
 ---
 

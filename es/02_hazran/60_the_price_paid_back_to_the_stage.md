@@ -1,65 +1,62 @@
-# Capítulo 60 — La valía devuelta ante el juez
+# Capítulo 60 — El precio devuelto ante la partida
 
-El camino de vuelta hacia dentro, con lo verdadero en mano,
-fue, por extraño que parezca, más silencioso que el de la huida hacia fuera.
+El camino de vuelta hacia dentro con lo verdadero en la mano era, más bien, más silencioso que el de la huida hacia fuera.
 
-Sion lo sintió aún más inquietante.
+A Sion eso le pareció aún peor señal.
 
-Tras un vuelco completo del terreno, en principio debería haberlos perseguido más ruido. Insultos, advertencias, disparos, fragor de metal roto. Pero en esta línea que volvía a pegarse bajo las estructuras interiores, el sonido moría de forma extraña, una y otra vez. Como si alguien vaciara a propósito el ruido del centro del tablero.
+Después de que el terreno se hubiera vuelto del revés por completo, lo normal habría sido que los persiguiera más ruido. Insultos, avisos, disparos, metal que se rompía. Pero en esa línea que volvía a pegarse bajo las estructuras interiores, el sonido moría, de forma extraña, una y otra vez. Como si alguien dejara vacío a propósito el ruido del lado del centro de la partida.
 
-Zahir esperaba.
+Zahir los esperaba.
 
-Aunque no pudiera confirmarlo con palabras,
-ese silencio lo decía por él.
+Aunque no pudiera confirmarse con palabras, ese silencio lo estaba diciendo.
 
-El esquife de Han Jiwoo y el planeador de Kael recorrían ya el bajo de las estructuras interiores casi a la misma velocidad. No del todo pegados, pero con cada vez menos motivos para separarse. El planeador rojo oscuro seguía mordiéndolos por detrás, aunque ya no podía abalanzarse con la dureza de antes. Volcar a mitad de camino la mano que devolvía lo verdadero ante Zahir tenía una valía distinta a la de arrebatarlo en mitad del terreno.
+El esquife de Han Jiwoo y el planeador de Kael avanzaban ya casi a la misma velocidad bajo las estructuras interiores. No estaban del todo pegados, pero también habían disminuido los motivos para separarse. El planeador rojo oscuro seguía mordiéndoles por detrás, pero ya no podía echárseles encima con la brusquedad de antes. Volcar a mitad de camino a las manos que pretendían entrar otra vez hasta delante de Zahir con lo verdadero no tenía el mismo precio que quitárselo en el terreno.
 
-—Si nos tocan ahora, también ellos se vuelcan con nosotros —dijo Kael en voz baja.
+—Si ahora nos tocan aquí, ellos también se vuelcan con nosotros.
+Kael lo dijo en voz baja.
 
-Sern respondió breve.
+Sern contestó, breve.
 
-—Aun así, si ven la ocasión, muerden.
+—Aun así, si ven la ocasión, morderán.
 
-—Por supuesto.
+—Claro.
 
-Han Jiwoo, mirando la sombra de la persiana muerta de delante, dijo breve.
+Han Jiwoo miró la sombra de la persiana muerta que tenían delante y habló, breve.
 
 —Por eso hay que entrar rápido.
 
-Sion apretó con más firmeza la brasa que tenía en la mano.
+Sion apretó con más fuerza la brasa que tenía en la mano.
 
-La brasa verdadera seguía sin tener nada de vistoso. Durante todo el regreso ni había crecido ni se había apagado. Simplemente seguía viva en su mano, baja y tenaz. Esa quietud, en mitad de todo aquel caos, le parecía, por extraño que fuera, la prueba más grande de todas.
+La brasa verdadera seguía sin tener nada de vistoso. Durante todo el regreso no había crecido ni se había apagado. Simplemente seguía viva en su mano, baja y tenaz. Esa calma, en mitad de todo aquel caos, le parecía más bien la prueba más grande.
 
-—Se abre delante —dijo Sion en voz baja.
+—Se abre delante.
+Sion lo dijo en voz baja.
 
-Cuando terminó la línea que recorría el bajo de las estructuras muertas, se reveló otra vez la ancha superficie de empalme que se pegaba a la capa exterior del patio central de Hazran. Era el mismo lugar que la línea de salida que había visto antes de la carrera y, sin embargo, ahora se veía completamente distinto. Las telas rojas estaban medio volcadas, parte de las barandas de las gradas se había derrumbado, y la gente ya no se mantenía en pie como simple público. Unos se habían retirado, otros seguían mirando hacia dentro, otros calculaban a qué bando se sumarían después.
+Cuando terminó la línea que corría bajo las estructuras muertas, volvió a aparecer la ancha superficie de enlace que se pegaba a la capa exterior del patio central de Hazran. Era el mismo lugar que la línea de salida que habían visto antes de empezar la carrera y, sin embargo, ahora se veía completamente distinto. Las carpas rojas estaban medio volcadas, parte de la baranda de la tribuna se había derrumbado y la gente ya no estaba de pie como simples espectadores. Unos se habían echado atrás, otros seguían mirando hacia dentro y otros calculaban de qué lado se pondrían después.
 
-Y en mitad de todo,
-Zahir seguía de pie.
+Y en medio de todo, Zahir seguía de pie.
 
 Esta vez no estaba sentado.
 
-A Sion eso le pareció, por extraño que fuera, todavía más grande. Hasta ahora Zahir había sido siempre aquel hombre que esperaba sentado en su lugar a que las apuestas rodaran hacia él. Pero ahora se había levantado él mismo. Como alguien que, al menos en esa última escena —quién devolvía lo verdadero hasta ante él—, no pensaba recibirla sentado.
+A Sion eso le pareció, de forma extraña, todavía más grande. Hasta entonces Zahir siempre había sido el hombre que, sentado en su sitio, veía rodar hacia él las apuestas. Pero ahora estaba levantado. Como alguien que, al menos esa última escena —quién volvía hasta delante de él con lo verdadero—, no pensaba recibirla sentado.
 
-Nasim estaba medio paso detrás de él, y Harún más a un lado. Nahira tapaba a medias el paso de Aka, Luhai había bajado hasta debajo de la baranda y se inclinaba casi hacia dentro, y Seorin y Ater ya no tenían cara de espectadores, sino de quienes estaban listos para entrar otra vez en el tablero.
+Nasim estaba medio paso detrás de él, y Harún, más a un lado. Nahira tapaba a medias a Aka, Luhai había bajado hasta el pie de la baranda e iba casi inclinado hacia dentro, y Seorin y Ater ya no tenían cara de espectadores, sino de estar listos para volver a entrar en la partida.
 
-En el instante en que los dos aparatos alcanzaron el centro, la rumorosa voz de la multitud se alzó una vez con fuerza y se apagó por sí sola.
+En el instante en que los dos aparatos llegaron ante el centro, el ruido de la multitud se alzó una vez con fuerza y se apagó solo.
 
 Porque todos lo habían visto.
 
 La carrera estaba rota.
-Las reglas estaban torcidas.
-Y aun así, la mano que sostenía lo verdadero había vuelto viva.
+Las reglas se habían torcido.
+Y aun así, la mano que llevaba lo verdadero había vuelto viva.
 
-Ese solo hecho
-se convirtió en el centro que volvía a sostener el tablero entero, volcado un instante antes.
+Ese solo hecho se convirtió en el centro que volvía a sostener la partida entera, que hasta hacía un momento había estado del revés.
 
-Cuando Han Jiwoo detuvo el esquife, un último temblor metálico, fino, se escapó largo desde el bajo del casco. Haber aguantado hasta allí ya era un estado milagroso. El planeador de Kael se detuvo un poco apartado, al lado. Lento y torpe, pero, sin acabar rasgado, se había pegado hasta el final.
+Cuando Han Jiwoo detuvo el esquife, bajo el casco se escapó largamente un último y fino temblor metálico. Solo haber aguantado hasta allí ya era casi un milagro. El planeador de Kael también se detuvo, un poco apartado, a un lado. Era lento y torpe, pero había llegado pegado hasta allí sin acabar desgarrado.
 
 Sion no bajó enseguida.
 
-Esta brasa que tenía en la mano,
-ahora le parecía que debía mostrarse antes que la persona.
+Le parecía que esa brasa que tenía en la mano tenía que verse, ahora, antes que las personas.
 
 Zahir habló primero.
 
@@ -67,77 +64,158 @@ Zahir habló primero.
 
 Su voz seguía sin ser fuerte.
 
-Pero el patio central entero oyó esa voz baja antes que nada.
-Este hombre seguía sin necesitar alzar el tono.
+Pero el patio entero oyó primero esa voz baja.
+Aquel hombre seguía sin necesitar alzar la voz.
 
 Sion supo enseguida que aquello no era un simple recibimiento.
 
 Has vuelto.
-En esas palabras cabían juntas
-has sobrevivido,
-lo has traído,
-y al final te plantas de nuevo ante mí.
+En esas palabras cabía todo a la vez: que había sobrevivido, que lo había traído y que, al final, volvía a estar delante de él.
 
-Han Jiwoo bajó primero, y Sion la siguió, posando el pie en el suelo. Las piernas le temblaban aún de forma mínima, como si recordaran los remezones de la capa de calor, pero no soltó la mano.
+Han Jiwoo bajó primero, y Sion la siguió y puso el pie en el suelo. Las piernas le temblaban aún, mínimamente, como si siguieran recordando el vaivén de la capa térmica, pero no aflojó la mano.
 
 La mirada de Zahir fue directa a esa mano.
 
-—Se ve —dijo.
+—Muéstralo.
+Lo dijo Zahir.
 
-Una palabra corta.
+Unas pocas palabras.
 
-Sion ya no la escondió más.
+Sion ya no lo escondió más.
 
-Abrió la mano y reveló la brasa roja, viva en su silencio.
+Abrió la mano y dejó ver la brasa roja, viva en silencio.
 
 No tenía nada de vistoso.
 Pero no estaba muerta.
 
 Con eso bastaba.
 
-Alguien, dentro de la multitud, contuvo el aliento, y Luhai dio un paso más hacia delante casi sin darse cuenta. La mirada de Ater se hizo más afilada, y Seorin, al contrario, solo recompuso el aliento un instante muy breve antes de volver a apagar la expresión. Aka seguía lejos, pero esta vez nadie necesitaba mirarle los ojos. Era demasiado nítido en qué mano había caído ya lo verdadero.
+Entre la multitud, alguien contuvo el aliento, y Luhai dio un paso más hacia delante casi sin darse cuenta. Seorin recuperó el aliento solo un instante y luego volvió a apagar la expresión.
 
-Zahir contempló esa brasa largo rato.
+Esta vez nadie miró hacia Aka. Para saber en qué mano estaba lo verdadero no hacía falta mirarla a ella. Lo tenían abierto delante de los ojos.
 
-—No se ha muerto —dijo en voz baja.
+Por primera vez desde que había empezado la carrera, Aka estaba en un sitio donde nadie la miraba.
 
-—Porque no es falsa —respondió Sion.
+Zahir contempló la brasa un buen rato.
 
-Breve silencio.
+—No se ha muerto.
+Lo dijo en voz baja.
 
-Sonaba como una provocación y, al mismo tiempo, era la frase más exacta que cabía decir aquí, en este lugar.
+—Porque no es falsa.
+Eso respondió Sion.
 
-Nasim sonrió de forma apenas perceptible.
+Un breve silencio.
+
+Sonaba a provocación y, al mismo tiempo, era la frase más exacta que podía decirse en aquel lugar.
+
+Nasim sonrió de forma casi imperceptible.
 
 Harún no sonrió.
 
-Más bien ese silencio fue más nítido todavía. Cómo se habían torcido los dispositivos del terreno, quién había intervenido y hasta dónde: nadie de los presentes lo ignoraba. La cuestión, ahora, era quién sería el primero en decirlo en voz alta.
+Su silencio era, más bien, más nítido. Cómo se habían torcido los mecanismos del terreno y quién había intervenido y hasta dónde: no habría nadie entre los presentes que no lo supiera. La cuestión ahora era quién lo diría primero en voz alta.
 
-Zahir alzó los ojos de la brasa hacia el rostro de Sion.
+Zahir apartó la mirada de la brasa y la alzó hasta la cara de Sion.
 
-—Entonces pregunto —dijo.
-—Quién rompió el tablero.
+—Entonces pregunto.
+Lo dijo Zahir.
+—¿Quién ha estropeado la partida?
 
-Esta vez el aire del patio central se detuvo por un motivo distinto al de antes.
+Esta vez el aire del patio se detuvo con un sentido distinto al de antes.
 
-Esto ya no era solo cuestión del ajuste de cuentas de la carrera.
-La mano que sostenía lo verdadero había vuelto viva,
-y entonces había que ajustar también las cuentas de quién había roto las reglas.
+Aquello ya no era solo cuestión del ajuste de cuentas de la carrera.
+La mano que llevaba lo verdadero había vuelto viva, y entonces también había que ajustar cuentas sobre quién había roto las reglas.
 
-Seorin rio muy bajo.
+Seorin soltó una risa muy baja.
 
-—Hasta ahora no tocabas el tema.
+—Por fin se habla de eso.
 
-Ater, justo al lado, sin una palabra miró una vez hacia Harún. Sern hizo lo mismo. Luhai contuvo el aliento, la sonrisa de Nasim se afinó aún más, y Nahira, por primera vez, se desplazó de forma mínima para tapar más a Aka.
+Dentro del patio, varias personas empezaron a la vez el mismo cálculo. A quién subir, a quién tapar, hasta dónde reconocer y por dónde cortar.
 
-Sion lo supo en ese instante.
+Antes de que ese cálculo terminara, se oyó otra voz.
 
-A partir de aquí
-ya no era la escena en que se demostraba que se había vuelto vivo,
-sino aquella en que se decidía con la sangre de quién se saldaría este regreso vivo.
+—Esa gente sigue aquí.
 
-Y en mitad de todo,
-era su mano la que sostenía lo verdadero.
+Era Aka.
+
+No habló alto. Pero como en ese momento el patio estaba en silencio, su voz llegó hasta delante.
+
+La sonrisa de Nasim se afinó.
+
+—¿Qué gente?
+
+—Los que antes estaban de pie abajo.
+
+Aka no señaló hacia la parte baja de la tribuna. En lugar de eso, miró hacia la gente que estaba ahora de pie en el patio.
+
+—No miraban la carrera. Desde que empezó.
+
+Un murmullo recorrió el patio una vez.
+
+Sion vio dónde había empezado aquel murmullo. No era delante. Hacia el centro, unos cuantos se habían acercado entre sí y, después de acercarse, no habían dicho nada.
+
+Nahira levantó la mano para tirar de Aka hacia atrás.
+
+A medio camino, se detuvo.
+
+Las palabras ya habían salido.
+
+Zahir giró la cabeza por primera vez.
+
+Apartó los ojos de la brasa que Sion tenía en la mano y miró hacia la tribuna. Miró, entre los que estaban allí, hacia un lado que hasta entonces Zahir no había mirado.
+
+—¿De quién es esa niña?
+
+Nasim respondió enseguida.
+
+—Es de los forasteros.
+
+Zahir preguntó sin mirar a Nasim.
+
+—¿Se le puede preguntar a la niña?
+
+Había dicho «¿se puede preguntar?», no «¿me permitirían preguntarle?». Sion captó la diferencia. El que estaba más alto en el patio acababa de poner a una niña sobre la partida.
+
+La sonrisa de Nasim desapareció del todo.
+
+—Eso es un poco…
+
+—Dice que lo vio desde antes.
+
+Eso dijo Zahir.
+
+—Es quien más tiempo lleva mirando de todos los que están aquí.
+
+Al oírlo, Sion miró hacia la tribuna.
+
+Estaba lejos. No se le veía la cara. Aun así, Sion supo que Aka no se había echado atrás. La mano de Nahira seguía detenida tal cual, apoyada detrás del hombro de Aka.
+
+Los pocos que se habían acercado entre sí hacia el centro del patio retrocedieron esta vez medio paso.
+
+Que retrocedían se veía bien.
+
+Allí, Sion entendió una cosa más sobre cómo funcionaba aquella ciudad.
+
+Aquí nadie se llevaba a nadie. Zahir había preguntado una vez quién lo había hecho y, después de preguntar, no había dado ninguna orden. Pero la gente del patio se había separado por sí sola.
+
+Había quedado un lado que retrocedió y otro que no.
+
+Una vez separados, les ponen precio. Los que habían retrocedido tendrían que vivir ahora en aquel mercado con el precio de haber retrocedido.
+
+Nasim recorría con los ojos aquella separación. La recorría sin sonreír, y era una cara que contaba.
+
+Sion se miró la mano.
+
+La brasa estaba igual que antes. No había crecido ni se había hecho más pequeña.
+
+En aquella ciudad, era lo único cuyo precio no había cambiado.
+
+En ese momento, Sion lo supo.
+
+A partir de aquí,
+ya no era la escena en que demostraban haber vuelto vivos,
+sino la escena en que se decidía con la sangre de quién se saldaría ese resultado de haber vuelto vivos.
+
+Y en medio de todo, en su propia mano, estaba lo verdadero.
 
 ---
 

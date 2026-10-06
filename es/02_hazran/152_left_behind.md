@@ -101,7 +101,7 @@ También dentro del Imperio
 hay gente que parece del todo quebrada y en realidad solo se cierra por dentro y aguanta.
 Ater conocía esas caras.
 
-Al tercero lo eligió la segunda máquina de recuperación.
+Al tercero lo eligió la segunda mano de recuperación.
 
 Esta vez era más pequeño.
 Y parecía mucho más peligroso.
@@ -114,7 +114,7 @@ Kael dijo enseguida.
 
 —Es peligroso.
 
-La segunda máquina de recuperación asintió.
+La segunda mano de recuperación asintió.
 
 —Cierto.
 —Pero un niño así,
@@ -161,9 +161,9 @@ Ese silencio dolía más.
 Porque, aunque no se dijera,
 había un hecho que los tres conocían ahora.
 
-Algún niño es demasiado lento,
+Para algún niño ya es demasiado tarde,
 algún niño es demasiado pequeño,
-y a algún niño, si se intenta traerlo en este compás,
+y algún niño, si se intenta traerlo en este compás,
 podría hacer perder hasta a los otros tres.
 
 No es porque ese niño valga menos.
@@ -173,7 +173,7 @@ era más cruel.
 
 Han Jiwoo dijo muy bajo.
 
-—El primero, tres.
+—Al principio, tres.
 —Vamos con esos tres.
 
 Kael, por último, volvió a calcular la ruta.
@@ -188,9 +188,9 @@ Y dijo muy corto.
 —Justo antes de pasar la siguiente línea de relevo.
 —Ese es el mejor momento.
 
-La primera máquina de recuperación preguntó.
+La primera mano de recuperación preguntó.
 
-—¿Estás seguro?
+—¿Está seguro?
 
 Kael respondió.
 
@@ -211,7 +211,7 @@ Ater miró a los niños una vez más.
 
 El niño que él eligió seguía sin mirar hacia arriba,
 la punta de la mano del niño que eligió Han Jiwoo seguía conservando, muy levemente, su propia detención,
-y el niño que eligió la segunda máquina de recuperación seguía pisando el mundo medio compás por delante.
+y el niño que eligió la segunda mano de recuperación seguía pisando el mundo medio compás por delante.
 
 Los tres estaban aún sobre un tiempo que no se había entregado del todo.
 
@@ -222,7 +222,7 @@ Y, al mismo tiempo,
 justo por eso, si fracasaban, quizá no volvieran a ver a los mismos niños en la misma posición.
 
 Al final de ese día,
-el grupo de reconocimiento y las máquinas de recuperación fijaron por fin una ventana para el primer rescate.
+el grupo de reconocimiento y las manos de recuperación fijaron por fin una ventana para el primer rescate.
 
 Una rendija muy breve,
 que se cierra si te retrasas un poco

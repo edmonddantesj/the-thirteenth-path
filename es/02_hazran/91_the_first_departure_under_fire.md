@@ -1,190 +1,274 @@
 # Capítulo 91 — La primera salida iniciada bajo el fuego
 
-Después de que cayera la orden de embarcar la primera tanda,
-Hazran dejó de fabricar «gente que pronto se iría».
+Después de que cayera la orden de embarcar la primera tanda, Hazran dejó de fabricar gente que pronto se iría.
 
-Empezó a fabricar gente que de verdad se iba.
+Empezó a fabricar gente que se iba de verdad.
 
-Esa diferencia era enorme.
+La diferencia era grande.
 
-Hasta hacía un momento todavía eran un solo bloque.
-Asustados juntos,
-aguantando juntos,
-un bloque que esperaba unido el instante siguiente.
+Hasta hacía un momento todavía eran un solo bloque. Un bloque que se asustaba junto, aguantaba junto y esperaba junto el instante siguiente. Pero desde el momento en que el primer pie subió a la rampa del casco, la gente se partió en dos.
 
-Pero desde el momento en que el primer pie subió a la rampa del casco,
-la gente se partió en dos.
-
-Los que se iban,
-y los que se quedaban.
+Los que se iban y los que se quedaban.
 
 Sion lo vio demasiado de cerca.
 
-Luhai empujó hacia arriba a un niño primero,
-y Seorin levantó un lado de la camilla y lo encajó sobre la rampa.
-Nasim, empujando de vuelta hacia dentro a los que hasta el último momento intentaban salirse de la fila, gritó con la garganta partida.
+Han Jiwoo, en la entrada del casco, trazó una línea con la mano.
 
-—¡No se detengan!
+—Hasta aquí, siete.
 
-Esas palabras iban dirigidas a toda la fila de embarque,
-y también parecían dichas para sí mismo.
+Subieron siete.
 
-No hay que detenerse.
-En el instante en que te detienes ahora,
-el tiempo de los que aguantan atrás muere tal cual.
+—Alto.
 
-Han Jiwoo, en la entrada del casco, recibía las manos de la gente casi con los dientes apretados.
+Se detuvieron. Siete quedaron de pie sobre la rampa y abajo esperaban trece. Entre unos y otros pasaron unos tres segundos, pero a Sion le parecieron mucho más largos.
 
-—¡De uno en uno! —dijo ella en voz baja—. ¡No empujen, de uno en uno!
+Porque en esos tres segundos vio cambiar las caras de los que estaban abajo. Los siete que habían subido ya eran gente del otro lado, y los trece que no habían subido todavía eran gente de aquí. Era una frontera de tres segundos.
 
-El casco aún no había revivido del todo.
-La rampa también era improvisada,
-y la junta de la entrada tampoco era perfecta.
-Si la gente se agolpaba toda a la vez,
-el barco podía ser el primero en no aguantar.
+—Los siete siguientes.
 
-Aka, a su lado, escuchaba al mismo tiempo el flujo de la gente y el temblor del casco.
+Subieron.
 
-—La segunda, rápido —dijo en voz baja—. La tercera, tarde.
+—Alto.
 
-Al principio no captó qué quería decir,
-pero Han Jiwoo lo entendió enseguida.
+Aka escuchaba todo aquello con la palma pegada a la pared exterior del casco.
 
-La segunda camilla había que subirla más rápido,
-y la tercera tanda había que dejarla con un breve respiro.
-Porque el peso y la sacudida que el barco tragaba de una vez eran distintos.
+—La izquierda pesa.
 
-Han Jiwoo gritó al instante.
+—¿Cuánto?
+Lo preguntó Han Jiwoo.
 
-—¡Ahora la segunda primero!
+—Como dos personas.
 
-Con esa sola frase,
-Sion volvió a sentir que Aka, en ese momento, no escuchaba el número de personas
-sino el orden que el barco podía soportar.
+—Entonces los últimos seis, por la derecha.
 
-Los dos primeros niños entraron en el casco.
-Un herido subió detrás,
-y un anciano lento, sostenido por dos personas, cruzó a duras penas la rampa.
+—Sí.
 
-Esos pocos segundos
-se sintieron extrañamente largos.
+Escuchando ese breve ir y venir, Sion supo qué estaba haciendo Aka en ese momento.
 
-De verdad los estaban haciendo pasar.
+Antes, con la chatarra, solo había medido el peso total. Las personas son distintas. Las personas, cuando tienen miedo, se amontonan hacia un lado. Por eso el peso no se asienta en el centro. Aka estaba escuchando en qué punto del barco apretaba el miedo de la gente.
 
-Ese hecho
-pesaba, más bien, todavía más.
+Los últimos seis subieron por la derecha.
 
-Harún, dejando todo aquello a su espalda,
-seguía sosteniendo el pasaje de la derecha.
+—Veinte.
+Lo dijo Han Jiwoo.
 
-El lado de los androides también empezó a leer qué estaba pasando ahora.
-En el momento en que captaron que la aglomeración frente al casco no era simple pánico,
-sino el flujo justo antes de una salida real,
-la presión de aquel lado también se volvió más obstinada.
+Luego tocó una vez la junta con el dorso de la mano. No sonó nada.
 
-Sern dijo breve.
+—Aguantó.
 
-—Suben la velocidad.
+Con esa sola palabra, Sion sintió que se le aflojaban las piernas.
 
-Ater lo recibió enseguida.
+Que aguantara quería decir que no se había roto, no que estuviera bien. Sion ya conocía esa diferencia. Tres días en Hazran bastan para aprender eso.
 
-—Han visto que estamos embarcando.
+En la rampa, el último en subir se volvió a mirar atrás.
 
-En cuanto cayeron esas palabras,
-los dos cuerpos negros que entraban por el pasaje de la derecha cerraron el ángulo con más audacia que antes. El cuerpo de delante, asumiendo la pérdida, se metió directo hacia el emplazamiento, y el de detrás superpuso una línea de corte tras esa sombra.
+Nadie le había dicho que no mirara atrás. Antes Luhai se lo había dicho a los niños, pero aquí ahora no había niños, y a un adulto nadie puede decirle que mire solo hacia delante.
 
-Harún, en cuanto lo vio, dio un paso más al frente.
+Esa persona se quedó mirando un buen rato.
 
-Sion, en ese instante,
-quiso de verdad detenerlo.
+Hacia la línea central derrumbada, en la dirección donde, más allá, debía de haber estado el callejón en que vivía. Ahora se había posado encima una capa de gris parduzco y ni siquiera se distinguía qué era qué.
 
-Pero no le salieron las palabras.
+Luego entró.
 
-Porque si ahora faltaba ese único paso,
-algunas de las personas que subían detrás podían quedarse sin subir tal cual.
+Nasim trazó una marca en la tablilla.
 
-Harún dijo en voz baja.
+—Salieron veinte.
 
-—Sern, abajo.
+—¿Entonces quedan…?
+Lo preguntó Sion.
 
-Sern bajó el cuerpo de inmediato,
-y Ater, medio tiempo por delante, disparó arriba a la derecha.
-En el instante en que la mirada de uno de los cuerpos negros se desvió hacia allí muy brevemente,
-Harún empujó de frente los restos del emplazamiento.
+—Ciento ochenta y ocho.
 
-Era una fuerza para matar el impulso.
+Sion le dio una vuelta a la cifra por dentro. De doscientos ocho habían salido veinte. Era la primera vez que bajaba.
 
-El androide no se detuvo.
-Pero el ángulo, una vez chocado,
-quedó torcido sin duda.
-En ese hueco Sern cortó el acople de abajo y se retiró,
-y Ater clavó al instante un disparo corto en el eje prioritario de dentro.
+—Entonces quedan diez viajes.
 
-Un cuerpo negro se derrumbó tapando la mitad del pasaje.
+—Sí.
+Lo dijo Nasim.
+—Diez.
 
-Pero el segundo pasó por encima de aquello otra vez.
+Y enseguida fue a formar la siguiente tanda. Nadie sabía mejor que él que no era momento de celebrar.
 
-Sion apretó los dientes.
+Y quedaron once.
 
-No tiene fin.
-De verdad parece que no tiene fin.
+De los treinta y uno que antes habían cruzado juntos los treinta pasos sin techo, veinte habían subido y once no.
 
-Aun así,
-esos tiempos que parecían no tener fin
-estaban metiendo más adentro, de una en una, a la gente que estaba sobre el casco.
+Sion miró a esos once.
 
-Nasim se volvió hacia atrás y gritó.
+Nadie hizo ruido. No empujaron, no se aferraron a nadie, no preguntaron por qué no les tocaba a ellos. Solo se quedaron de pie al pie de la rampa, mirando hacia arriba.
 
-—¡Primera tanda lista!
+Uno de ellos levantó la mano. No la agitó; solo la levantó. Por lo visto, arriba había alguien conocido.
 
-Esas palabras no eran alegría,
-sino la señal para tirar de la siguiente tanda.
+Desde arriba también se alzó una mano.
 
-Luhai, en cuanto confirmó que los tres niños habían subido todos, se volvió enseguida
-y tiró de las manos de los siguientes.
-Seorin, en cuanto soltó una camilla, fue de inmediato hacia la segunda. Sion cortó una cuerda corta enganchada bajo la rampa y despejó el camino para que la gente no tropezara.
+Eso fue todo.
 
-Y justo entonces,
-una línea de corte pasó rozando la parte baja de la pared exterior del casco.
+Sion vio cómo esas dos manos se reconocían, y después vio también cómo se plegaba la rampa.
 
-La esquina de la placa de acople que Kael había dejado puesta saltó con fuerza,
-y unos cuantos fragmentos de metal salieron despedidos al suelo frente al casco.
+El barco se elevó.
 
-La cara de Han Jiwoo se quedó blanca como la cal.
+No se elevó mucho. Unos dos palmos sobre el suelo. Así, como deslizándose de lado, salió y se metió en la sombra del callejón oeste derrumbado, y desde ahí ya no se vio.
 
-—No pueden acercarse más —dijo ella en voz baja.
+Los once que quedaban seguían de pie en el mismo sitio.
 
-Aquello no era una súplica.
-Estaba más cerca de una advertencia.
+Sion se acercó.
 
-Si el casco recibía más golpes,
-la línea de salida que apenas se había abierto moriría.
-Y entonces todo lo aguantado hasta ahora se terminaba también.
+—Son los siguientes.
 
-Zahir escuchó esas palabras,
-y seguramente sacó la conclusión más rápido que nadie.
+Nada más decirlo, se arrepintió. Porque recordó lo que Nasim había dicho antes. Eso habrá que verlo entonces.
 
-—Pego la segunda tanda —dijo muy bajo, pero esta vez con una voz que ya no dejaba margen para retroceder.
+—¿De verdad?
+Alguien lo preguntó.
 
-Sion, en el instante en que escuchó esas palabras,
-sintió que el corazón se le venía abajo.
+Sion no mintió.
 
-Porque ahora, cuando la primera tanda apenas había subido,
-significaba que ya había que pegar la segunda tanda,
-que no había tiempo.
+—No lo sé.
 
-Bajo el fuego,
-la primera salida de Hazran empezó así.
+Quien había preguntado no se enfadó con esa respuesta. Al contrario, pareció que le aliviaba un poco. Por lo visto, aquí no haber oído una mentira servía de consuelo.
 
-Apenas unas pocas personas.
-Pero el solo hecho de que esas pocas personas hubieran empezado a cruzar de verdad hacia fuera
-pesó todavía más sobre los hombros de los que se quedaban.
+—¿Pero podemos quedarnos aquí de pie?
+Lo preguntó otro.
 
-Ahora todos lo saben.
+—No.
+Lo dijo Sion.
+—Métanse bajo el techo.
 
-Que alguien se irá de verdad,
-y que alguien, hasta que esa partida termine,
-tiene que quedarse aquí a comprar tiempo.
+Los once se movieron. Unos once pasos hacia atrás. Y luego volvieron a detenerse. No entraron más.
+
+Sion no los empujó más allá. Esa gente no quería apartarse del sitio desde donde se veía la rampa.
+
+Era extraño. Era algo bueno, pero la sensación de que fuera bueno no llegaba. Hacía un momento habían desaparecido de aquí veinte personas. Habían desaparecido vivas, pero desaparecer era desaparecer.
+
+Han Jiwoo habló en voz baja a su lado.
+
+—Tiene que volver.
+
+—¿Vuelve?
+
+—Sí.
+
+—¿Hasta dónde va?
+
+—Los deja detrás de la capa térmica y vuelve.
+
+Solo entonces Sion entendió que este barco tenía que hacer once viajes de ida y vuelta. Cargar, ir, vaciarse, volver y cargar otra vez.
+
+—¿Cuánto tarda cada viaje?
+
+Antes de responder, Han Jiwoo miró un momento al cielo.
+
+—La ida es corta, y la vuelta, más corta.
+
+—¿Entonces por qué miras al cielo?
+
+—…
+
+Ella no respondió y volvió a bajar la mano hacia la rampa.
+
+Sion lo supo sin preguntar. Estaba midiendo qué era más rápido, la velocidad a la que se posaba el polvo o la velocidad a la que el barco iba y volvía.
+
+Afuera, el metal volvió a chirriar.
+
+Venía del lado de Harún. Quería decir que allá también habían visto elevarse el barco.
+
+Aka habló con los ojos cerrados.
+
+—Va más rápido.
+
+—¿Qué cosa?
+Lo preguntó Han Jiwoo.
+
+—Lo de afuera.
+
+—Entonces nosotros también tenemos que ir más rápido.
+
+—Entonces la izquierda pesa más.
+
+Han Jiwoo se quedó un momento sin decir nada.
+
+—De eso me encargo yo.
+
+—No puedes.
+Lo dijo Aka.
+
+—¿Entonces qué hago?
+
+—No veinte por viaje. Dieciocho.
+
+La mano de Han Jiwoo se detuvo.
+
+—Con dieciocho no se termina en once viajes.
+
+—Sí.
+
+—Son doce.
+
+—Sí.
+
+Con esa sola palabra, a Sion se le heló la espalda.
+
+Hacía un momento este barco había terminado uno de los once viajes. Y al instante siguiente el número necesario había pasado a doce. Era como haber ganado uno y que se sumaran dos.
+
+—Entonces el tiempo…
+
+—Lo sé.
+Lo dijo Han Jiwoo.
+
+—¿Y no se puede ir con veinte?
+
+—Si vamos con veinte, la izquierda cede primero.
+
+—¿Entonces qué hacemos?
+
+Solo entonces Han Jiwoo miró a Sion.
+
+—Voy a arreglar la izquierda.
+
+—¿Ahora?
+
+—Mientras el barco vuelve.
+
+Sion entendió lo que quería decir. En ese breve intervalo en que el barco dejaba a la gente y volvía, Han Jiwoo iba a asegurar otra vez a mano la junta izquierda. Sin que nadie la ayudara, sin luz, en un intervalo que nadie le iba a cronometrar.
+
+—¿Te ayudo?
+
+—Tú sal y forma a la gente.
+Lo dijo ella.
+—Eso es ayudar.
+
+Sion se dio la vuelta.
+
+Al girarse miró una vez atrás, y Han Jiwoo ya tenía medio cuerpo metido debajo del casco.
+
+Lo primero que hizo Sion al salir fue contar.
+
+Cuántos había en la segunda tanda. Si llegaban a veinte. Si no, de dónde había que completarla.
+
+Contando, se dio cuenta. Contar a la gente era cosa de Nasim, y ahora lo estaba haciendo él. A Nasim no se le veía desde hacía rato. Alguien que se ha quedado sin voz no sirve para formar filas.
+
+La segunda tanda era de dieciocho.
+
+Al ver que faltaban dos, Sion se quedó quieto un momento.
+
+Para completarla bastaba con sacar a dos de aquellos once. Esa gente ya había cruzado los treinta pasos sin techo, era la que estaba más cerca y antes hasta había levantado la mano para saludar.
+
+Sion fue hacia allí.
+
+—Dos.
+
+Eso fue todo lo que dijo. Le pareció que, si añadía cualquier otra explicación, los once dirían cada uno su propio nombre.
+
+De los once salieron dos. Sion no vio quién lo decidió. Parecía que entre ellos ya habían fijado el orden.
+
+Los dos que salieron se pusieron en camino, y los nueve que quedaban volvieron a cerrar el hueco.
+
+Sion caminó dándoles la espalda a esos nueve.
+
+Los veinte que ahora estaban en esta fila subirían al siguiente barco. Detrás había nueve, y detrás de ellos, ciento y tantos. Y todo eso dependía de una sola persona que en ese momento trabajaba con las manos debajo del barco.
+
+Diez viajes.
+
+Sion volvió a contar la cifra. Podían ser diez viajes o podían ser doce. Esa diferencia la estaba decidiendo ahora, con las manos, aquella persona debajo del barco.
 
 ---
 

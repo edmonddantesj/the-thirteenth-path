@@ -1,114 +1,129 @@
 # Capítulo 63 — El umbral que ella no abrió para todos
 
-Incluso después de que Zahir hablara de «la resolución de entrar más adentro», nadie respondió de inmediato.
+Incluso después de que Zahir dijera «La disposición a entrar todavía más adentro», nadie respondió de inmediato.
 
 A Sion no le desagradó aquel breve silencio.
 
-Más bien, si alguien, habiendo llegado hasta aquí, dijera demasiado fácil «voy», habría parecido alguien que no entiende cuán grande es el precio que ahora cuelga ante sus ojos.
+Al contrario: si, habiendo llegado hasta aquí, hubieran dicho «vamos» con demasiada facilidad, habrían parecido gente que no sabe lo grande que es el precio que tiene colgado delante de los ojos.
 
 Eterita.
 El casco que no había muerto.
-Y las palabras que Aka daría.
+Y las palabras que Aka iba a darles.
 
-Los tres hacían falta.
-Pero ninguno de los tres era de los que se reciben con solo tender la mano. Zahir lo sabía demasiado bien, y por eso parecía alguien que había dejado a propósito un último umbral.
+Hacían falta las tres cosas.
+Pero ninguna de las tres era de las que se reciben con solo tender la mano. Zahir lo sabía demasiado bien, y por eso parecía alguien que había dejado a propósito un último umbral.
 
-Sion creyó que Han Jiwoo hablaría primero.
-Pero, contra toda previsión, la primera en moverse fue Seorin.
+Sion había creído que Han Jiwoo hablaría primero.
+Pero, contra lo esperado, la primera en moverse fue Seorin.
 
-—Escuchemos las condiciones hasta el final —dijo en voz baja—. Aquí parece haber mucho de los que añaden cláusulas una vez que ya has entrado.
+—Escuchemos las condiciones hasta el final.
+Lo dijo en voz baja.
+—Aquí parece muy común que te salgan con otra cosa cuando ya estás dentro.
 
-Nasim, al oír eso, sonrió de forma apenas perceptible.
+Al oír eso, Nasim sonrió de forma apenas perceptible.
 
-—Por eso vives mucho, supongo.
+—Así que por eso vives tanto.
 
-Seorin no miró hacia ese lado.
+Seorin no miró hacia él.
 
-—No tengo intención de vivir mucho —dijo—. Solo quiero morir un poco menos estúpidamente.
+—No pienso vivir mucho.
+Lo dijo ella.
+—Solo quiero morir de una forma menos estúpida.
 
-Ante esas palabras, Luhai se tragó una risa sin querer. Harún seguía sin expresión, y Zahir, incluso después de oír todas esas réplicas breves, no puso ninguna emoción encima de inmediato.
+Al oír eso, Luhai se tragó una risa sin querer. Harún seguía sin expresión, y Zahir, aun después de oír todas esas frases cortas, no les puso emoción encima de inmediato.
 
-En su lugar, dijo muy bajo.
+En cambio, habló muy bajo.
 
-—Bien —dijo—. Entonces empiezo por lo que este adentro exige.
+—Bien.
+Lo dijo él.
+—Entonces empezaré por lo que exige este interior.
 
-Ante esas palabras, Sion apretó con naturalidad la brasa más firme en el hueco de su mano.
+Al oír eso, Sion apretó con más firmeza, casi sin pensarlo, la brasa que tenía en la mano.
 
-La mirada de Zahir fue hacia ese lado.
+La mirada de Zahir fue hacia allí.
 
-—Esa brasa es una prueba —dijo—. La prueba de que el camino no ha muerto del todo. Pero una prueba sola no pone nada en movimiento.
+—Esa brasa es una prueba.
+Lo dijo él.
+—La prueba de que el camino no ha muerto del todo. Pero con una prueba sola no se mueve nada.
 
 Aka no lo interrumpió.
 
-Más bien tenía el rostro de quien escucha hasta dónde hablaría Zahir en su lugar.
+Más bien tenía la cara de quien escucha hasta dónde hablaría Zahir por ella.
 
-—Ese casco, igual —continuó Zahir—. Que no esté muerto no significa que se eleve enseguida. Hace falta eterita, hacen falta ojos para enlazar, y hacen falta las palabras que sepan adónde ir.
+—Con ese casco pasa lo mismo.
+Zahir siguió hablando.
+—Que no esté muerto no significa que vaya a elevarse enseguida. Hace falta eterita, hacen falta ojos que lo enlacen, y hacen falta palabras que sepan adónde ir.
 
-Sion sintió que todo aquello convergía en un solo punto.
+Sion sintió que todo aquello acababa reuniéndose en una sola cosa.
 
 La brasa,
 el casco,
 Aka.
 
-Los tres colgaban por separado, como recompensas, pero en verdad estaban más cerca de un solo haz que solo cobraba sentido al unirse.
+Los tres colgaban por separado, como recompensas, pero en realidad se parecían más a un solo atado que solo cobraba sentido si se unía.
 
-Han Jiwoo preguntó esta vez en voz baja.
+Esta vez, Han Jiwoo preguntó en voz baja.
 
 —¿Y qué más quieres que veamos?
 
 Zahir respondió breve.
 
-—El adentro.
+—Adentro.
 
-Esa sola palabra no bastaba como explicación, y sin embargo, por extraño que fuera, todos pudieron notar que no señalaba un simple lugar. Un compartimento más profundo. Registros más ocultos. O quizá el sitio donde Aka leía de verdad las vías y la gramática. Lo que les habían mostrado hasta ahora era apenas el umbral, y para ver lo que de verdad debía enlazarse había que entrar más adentro.
+Esa sola palabra no alcanzaba como explicación, pero, por extraño que fuera, todos pudieron entender que no hablaba de un simple lugar. Un compartimento más profundo. Registros más ocultos. O el sitio donde Aka leía de verdad el camino y la gramática. Lo que les habían mostrado hasta ahora era apenas el umbral; para ver lo que de verdad había que enlazar, tenían que entrar más adentro.
 
 Sern preguntó muy bajo.
 
-—¿Entran todos?
+—¿Entramos todos?
 
 Esta vez, antes de que Zahir respondiera, Aka habló primero.
 
 —No.
 
-El aire dentro del patio interior se detuvo de forma apenas perceptible.
+El aire del fondo del patio se detuvo de forma apenas perceptible.
 
-Aka seguía con el rostro tranquilo.
-Pero esta vez, dentro de esa calma, había una línea nítida. No todos podían entrar juntos. No todos debían ver lo mismo. Quién entraba hasta dónde era, al parecer, una de las reglas más importantes de este adentro.
+Aka seguía con la cara tranquila.
+Pero esta vez, dentro de esa calma, había una línea clara. No podían entrar todos juntos. No todos debían ver lo mismo. Como si quién entraba y hasta dónde fuera una de las reglas más importantes de este interior.
 
-Sion se encontró mirando a Aka sin querer.
+Sion miró a Aka sin darse cuenta.
 
-Aka posó los ojos una vez en la brasa de la mano de Sion, otra en el casco que no había muerto del lado de Han Jiwoo, y solo entonces continuó muy bajo.
+Aka miró una vez la brasa en la mano de Sion y otra el casco que no había muerto, del lado de Han Jiwoo, y solo entonces siguió hablando, muy bajo.
 
-—Si dejas entrar a todos, vuelve a haber demasiados —dijo—. Y cuando hay demasiados, vuelven a pegarse los que fingen estar muertos.
+—Si dejas entrar a todos, vuelven a ser muchos.
+Lo dijo ella.
+—Y cuando son muchos, se pega otra vez lo que finge estar muerto.
 
-Esa frase era corta, pero contenía todo el mecanismo por el que Hazran entera había rodado hasta ahora.
+La frase era corta, pero en ella estaba todo el modo en que Hazran entera había funcionado hasta ahora.
 
 Demasiadas manos.
-Demasiadas apuestas.
+Demasiados precios.
 Demasiadas reacciones falsas.
 
-Así que, en el momento en que había que enlazar lo verdadero,
-eran al contrario las manos lo que había que reducir.
+Por eso, en el momento de enlazar lo verdadero, lo que había que hacer era, al contrario, reducir las manos.
 
 Seorin fue la primera en captar el sentido.
 
-—O sea, que solo entren las manos que hacen falta —dijo.
+—O sea, que solo entren las manos que hacen falta.
+Lo dijo ella.
 
-Aka asintió breve con un gesto de cabeza.
+Aka asintió con un gesto breve.
 
-—La mano que sostiene la brasa —dijo, mirando hacia Sion—. La mano que ve lo que no está muerto en lo que está muerto.
+—La mano que lleva la brasa.
+Lo dijo mirando hacia Sion.
+—La mano que ve si lo muerto está muerto o no.
 
 Esta vez su mirada fue hacia Han Jiwoo.
 
-—Y la mano que no romperá nada al enlazar.
+—Y la mano que no lo rompa al enlazarlo.
 
-Han Jiwoo, al oír eso, entrecerró los ojos de forma apenas perceptible por primera vez.
+Al oír eso, Han Jiwoo entrecerró los ojos por primera vez, de forma apenas perceptible.
 
-No parecía un elogio, ni confianza. Pero al menos estaba claro que Aka veía en ella algo más que alguien que manejaba máquinas.
+No parecía un elogio, ni tampoco confianza.
+Pero al menos estaba claro que Aka la veía como algo más que alguien que maneja aparatos.
 
-Sern, esta vez, guardó silencio.
+Esta vez, Sern se guardó las palabras.
 
-Sion sintió que aquel silencio era lo más propio de Sern. Él también querría entrar y ver. Tanto más como alguien que leía estructuras. Pero tenía a la vez el rostro de quien acababa de entender que ahora mismo no era la mano más necesaria.
+A Sion ese silencio le pareció, al contrario, muy propio de Sern. Él también querría entrar a ver. Más aún siendo alguien que lee estructuras. Pero al mismo tiempo tenía la cara de quien acaba de entender que ahora no era la mano más necesaria.
 
 Kael le echó una mirada de reojo.
 
@@ -116,73 +131,122 @@ Kael le echó una mirada de reojo.
 
 Sern respondió breve.
 
-—Aunque me fastidie, lo correcto es lo correcto.
+—Aunque no me guste, lo correcto es lo correcto.
 
-Luhai abrió la boca y la cerró de nuevo. Debía de querer pedir que lo llevaran también a él, pero esta vez tenía los ojos de quien acababa de entender por cuán poco valor sería tomada su palabra.
+—Que es lo correcto, ya lo entendí.
+
+Habló Kael.
+
+—Te pregunté si estabas bien.
+
+Esta vez Sern no respondió.
+
+Al oír ese breve ir y venir, Sion lo entendió. Quedarse fuera aquí quería decir no poder ver si algo salía mal ahí dentro. Para alguien que lee estructuras, lo peor no era equivocarse, sino no poder ver.
+
+Luhai abrió la boca y la volvió a cerrar. Seguramente quería pedir que lo llevaran también, pero tenía los ojos de quien, al menos esta vez, ya había entendido a qué precio tan bajo se tomarían sus palabras.
+
+Al ver esa cara, Sion sintió un poco de culpa.
+
+En la tribuna, el que más tiempo había aguantado colgado era ese chico. Él había visto separarse a los dos equipos, él había sido el primero en enterarse de que los precios se disparaban, y él había empujado a los niños desde el lado oeste.
+
+Y aun así, no podía ponerse en la fila de los que entraban.
+
+Aquí no te dejaban pasar por haber hecho mucho. Solo miraban si eras la mano que hacía falta ahora.
 
 Ater miró alternativamente a Zahir y a Aka.
 
-Él también habría querido entrar. Si el problema mezclaba la vía y el reconocimiento, las secuencias rotas y la intervención del sellado, podría tener derecho a pensar que era a él a quien tocaba ver. Pero aquí, ahora, la gramática viva pasaba antes que los registros. Ater, como quien acepta esa diferencia, reguló su respiración muy despacio.
+Él también habría querido entrar. Si se trataba de un problema donde se enredaban el camino y la aprobación, las secuencias cortadas y la intervención del sello, bien podía pensar que lo correcto era que lo viera él. Pero aquí y ahora la gramática viva iba antes que los registros. Ater recuperó el aliento muy despacio, como quien acepta esa diferencia.
 
-—¿Solo dos? —preguntó en voz baja.
+—¿Solo dos?
+Lo preguntó en voz baja.
 
-Esta vez no fue Aka, sino Nahira quien respondió.
+Esta vez no fue Aka quien respondió, sino Nahira.
 
-—Dos es poco —dijo—. A partir de tres, vuelve a ser demasiado.
+No lo hizo con palabras.
 
-Sion comprendió esas palabras.
+Levantó la mano y extendió dos dedos. Luego extendió el tercero y lo dobló enseguida.
 
-Lo que hacía falta ahora no era un lugar donde estirar largo las explicaciones, sino un lugar donde comprobar si el enlace podía hacerse de verdad. Entonces los que miraban, como los que tocaban, debían ser pocos.
+Sion vio ese gesto dos veces.
+
+Dos, sí. Tres, no. En cuanto fueran tres, volvería a empezar lo que Aka había dicho antes.
+
+Ater asintió, breve, y se retiró. No pidió más explicaciones.
+
+A Sion eso le resultó extraño. Aquel hombre era de los que exigían razones dichas con palabras.
+
+Luego lo entendió. Durante días, Nahira les había dado medicinas, les había dado agua y les había vendado las heridas, y en todo ese tiempo casi no había hablado. Aquí dentro todos sabían ya qué quería decir esa mano cuando se movía.
+
+Aquí, esa mano iba antes que las palabras.
+
+Sion entendió el sentido.
+
+Lo que hacía falta ahora no era alargar las explicaciones, sino comprobar si de verdad se podía enlazar.
+Y para eso, tanto los que miraban como los que tocaban tenían que ser pocos.
 
 Solo entonces Zahir trazó la última línea.
 
-—Sion —dijo—. Han Jiwoo.
+—Sion.
+Lo dijo él.
+—Han Jiwoo.
 
 Un breve silencio.
 
-—Entran.
+—Ustedes entran.
 
-Han Jiwoo respondió la primera.
+Han Jiwoo respondió primero.
 
 —Bien.
 
-Sion asintió con un gesto de cabeza, un poco más tarde.
+Sion asintió un poco más tarde.
 
-La emoción que lo tomó antes que las palabras fue la tensión. Pero bajo esa tensión, por extraño que fuera, había la sensación de tocar al fin el verdadero umbral del lado de Aka. Hasta ahora habían seguido nombres, rumores, el tablero. Era a partir de ahora cuando ponía de verdad el pie adentro.
+Antes que las palabras le llegó la tensión.
+Pero bajo esa tensión había, por extraño que fuera, la sensación de que por fin tocaba el verdadero umbral de Aka. Hasta ahora habían seguido nombres, rumores y la partida; desde hacía un momento ponían de verdad el pie dentro.
 
 Seorin preguntó enseguida.
 
-—¿Y nosotros, entonces?
+—¿Y nosotros?
 
 Zahir la miró y dijo en voz baja.
 
 —Esperen.
 
-El rostro de Seorin se endureció al instante.
+A Seorin se le endureció la cara al instante.
 
-Pero Aka posó muy quedo una palabra encima de aquellas.
+Pero Aka puso, muy en silencio, una frase encima de esa palabra.
 
-—Si no esperan, no podrán salir.
+—Si no esperan, no se puede salir.
 
-En cuanto eso cayó, ni siquiera Seorin pudo replicar de inmediato.
+Seorin se volvió hacia Aka.
 
-No eran palabras de exclusión, sino palabras que, dentro de las reglas de este adentro, separaban a los que hacían falta de los que debían esperar.
+—¿Qué quieres decir con eso?
 
-Sion miró la brasa en el hueco de su mano, y de nuevo a Aka.
+—Si los que entraron salen y afuera no hay nadie.
+
+Aka se interrumpió ahí un momento.
+
+—Nadie sabe si salieron de verdad.
+
+Ante eso, Seorin cerró la boca.
+
+A Sion también se le enfrió la espalda. Que les dijeran que esperaran no era consideración. Quería decir que tenía que quedar alguien afuera para que los que entraban contaran como salidos de verdad.
+
+Cuando eso cayó, tampoco Seorin pudo replicar enseguida.
+
+No eran palabras de exclusión, sino palabras que, dentro de las reglas de este interior, separaban a los que hacían falta de los que tenían que esperar.
+
+Sion miró la brasa en su mano y luego volvió a mirar a Aka.
 
 Aka no explicó nada más.
-En su lugar, dio media vuelta y se adentró la primera en el compartimento más profundo, detrás del casco.
+En cambio, dio media vuelta y fue la primera en adentrarse en el compartimento más profundo, detrás del casco.
 
-En el instante en que vio eso, Sion lo supo.
+En el instante en que lo vio, Sion lo supo.
 
-Esto no era abrirle una puerta a alguien.
+Esto no era abrirles una puerta.
 Aka siempre había sido así.
-No le abría la misma puerta a todos.
-En cambio, solo a la mano capaz de seguir hasta el final
-le mostraba el umbral siguiente.
+No le abría la misma puerta a cualquiera.
+En cambio, a las manos capaces de seguirla hasta el final, les mostraba hasta el siguiente umbral.
 
-Y ahora,
-ese umbral por fin se estaba abriendo.
+Y ahora, ese umbral por fin se estaba abriendo.
 
 ---
 

@@ -1,136 +1,311 @@
 # Chapitre 96 — Le temps acheté par le sang s'amincit
 
-Lorsque le deuxième groupe fut passé, Hazran avait poussé quelques personnes de plus dehors.
+Sion ne perdit pas le compte une seule fois.
 
-Mais proportionnellement, le temps à l'intérieur ne s'épaissit pas. Il s'amincit.
+Il comptait en passant entre les gens, il comptait en déblayant les débris, il comptait même en vérifiant les marques sur le tableau. Les chiffres roulaient sans cesse au fond de sa tête.
 
-Sion le constata aussitôt.
+Une heure passa.
 
-À mesure que les gens partaient, la zone proche de la coque aurait dû se vider un peu. Mais la réalité était tout le contraire. Une plus grande part retomba sur les épaules des personnes restantes. La ligne s'amincit. Les mains qui devaient tenir devinrent moins nombreuses.
+Sion alla vers le couloir.
 
-Le temps acheté avec du sang ne s'accumule pas.
+Haroun se tenait collé au corps noir incliné. De la main droite, il étayait les débris, le bras gauche serré contre lui. Sous le garrot, les doigts avaient pris une couleur plus étrange que tout à l'heure.
 
-Chaque fois qu'il est dépensé, il devient plus fin.
+« Ça fait une heure. »
 
-Il en alla de même pour le sang qui coulait du bras de Haroun.
+« Pas encore. »
 
-Le tissu enroulé à la hâte autour était déjà à moitié trempé. Il utilisait désormais sa gauche presque uniquement comme une attelle. Comme Ater l'avait dit, il cessa de recevoir de front, se mit à tordre son corps, à dévier les angles — il changea complètement sa façon de bouger.
+« Sern a dit une heure… »
 
-Mais peu importe comment, un corps qui saigne ne peut pas rester longtemps à la même intensité.
+« J'ai dit pas encore. »
 
-Sern le regarda, le visage crispé comme s'il se mordait l'intérieur de la lèvre. Lui aussi était blessé. C'est pourquoi il le savait mieux que personne : ils n'en étaient plus au stade où endurer seul suffisait.
+Sion n'ajouta rien.
 
-Ater réduisit encore ses paroles.
+Il avait vu plusieurs fois aujourd'hui que parler ne servait à rien. À la place, il regarda encore une fois ces doigts, puis se détourna. En se détournant, il se remit à compter. Les chiffres qu'il comptait passé l'heure n'étaient plus les mêmes que ceux d'avant.
 
-Uniquement le nécessaire.
+Du côté de la rampe, les gens étaient encore plus serrés que tout à l'heure.
 
-« Deuxième unité à droite : tremblement de la vision. »
+La quatrième file attendait. Pas vingt, plutôt vingt et quelques. Derrière, les gens poussaient et se collaient sans cesse, si bien qu'on ne distinguait plus une file d'une masse.
 
-« Abandonnez à nouveau la barrière de gauche. »
+Luhai, debout à côté, regardait le tableau.
 
-« Haroun, recule pour l'instant. »
+« Sion. »
 
-Entre ces mots courts, la précarité de la ligne de front se dévoila.
+« Quoi ? »
 
-À un moment donné, Haroun avait presque cessé de répondre.
+« C'est bizarre. »
 
-Il bougea simplement.
+« Quoi donc ? »
 
-C'était plus troublant.
+Luhai désigna le tableau. Trois marques. Comme tout à l'heure.
 
-Sion, naviguant entre la ligne de front et la coque, dut se forcer à détourner son regard du côté d'Haroun.
+« Là, ça a pas augmenté depuis tout à l'heure. »
 
-S'il continuait à surveiller cet homme, la ligne ici se briserait. Si la ligne ici se brisait, le sens de cet homme qui tenait bon en saignant disparaîtrait.
+« Je sais. Il n'a pas encore décollé. »
 
-Alors il continua d'avancer.
+« Pas ça. »
 
-Compter la ligne suivante. Écarter ce qui pouvait faire trébucher. Pousser de l'épaule pour que la ligne d'évacuation ne penche pas d'un côté. Tasser de nouveau le sable sous la rampe de la coque.
+Luhai secoua la tête. Le visage de quelqu'un qui s'impatiente.
 
-Seorin était pareille.
+« Le premier décollage et le troisième, c'est pas pareil. »
 
-À présent, ses mains bougeaient avant ses mots. Tourner les épaules des gens. Régler les angles du brancard. Rattraper un enfant sur le point de tomber. Repousser les bagages du pied.
+« Qu'est-ce qui est pas pareil ? »
 
-Mais Sion le savait.
+« Le premier, on a juste fait monter les gens. Le deuxième, il a fallu réparer le vaisseau. Le troisième, il a fallu que ce truc tombe. »
 
-Plus ses mains allaient vite, plus l'intérieur se brisait en silence.
+Sion comprit ces mots avec un demi-temps de retard.
 
-Le visage de Luhai était trempé de sueur, le souffle court, mais il continuait à compter les têtes.
+« Donc ? »
 
-« Trois restants, » dit-il à mi-voix. « Trois de plus encore. »
+« Ce qu'on met dedans, ça augmente tout le temps. »
 
-Nassim comprit aussitôt, de sa voix rauque.
+Luhai tapota deux fois le tableau du doigt.
 
-« Alors tirez-en trois. »
+« Mais ce qui en sort, c'est toujours vingt. »
 
-La chose la plus évidente au monde. Mais en cet instant même, Hazran brûlait du sang humain, du métal et du temps commun pour concrétiser cette évidence.
+Sion regarda le tableau.
 
-Jiwoo regarda la préparation à l'embarquement du troisième groupe et son visage se durcit.
+Trois marques. Vingt, vingt, vingt. À ne regarder que le tableau, on aurait dit que la même chose s'était produite trois fois.
 
-Le vaisseau tenait encore. Mais tenir signifiait également que chaque nouveau poids entrant désormais rognait ce qui maintenait l'ensemble.
+Pourtant, la première fois, les gens étaient simplement montés à pied. La deuxième, quelqu'un l'avait obtenue en s'écorchant les deux mains sous le vaisseau. La troisième était venue de ce que la chose noire avait bien voulu tomber dans le couloir, et pour cela, deux corps s'étaient ouverts.
 
-Aka, écoutant les tremblements de la coque, parla très bas.
+« Un registre comme ça, ça tient pas. »
+C'était Luhai.
 
-« Le troisième ne peut pas prendre longtemps. »
+« Pourquoi ? »
 
-Jiwoo demanda aussitôt.
+« Si ce qu'on met augmente et que ce qui sort reste pareil, un jour on peut plus payer. »
 
-« Combien à la fois. »
+Sion savait d'où venaient ces mots. Ce gamin avait vu, dans les ruelles de Hazran, les jours où les lignes des registres bougeaient de travers. Il regardait maintenant cette ville avec ces yeux-là.
 
-Aka ferma brièvement les yeux, puis dit.
+« Alors on fait comment ? »
 
-« Salves courtes. Une longue file fait bouger le tout. »
+Luhai ne répondit pas. Son visage disait que ce n'était pas son affaire. Lui, il voyait seulement quand une ligne était bizarre ; quoi en faire, c'était l'affaire des autres.
 
-Cela signifiait qu'il ne s'agissait plus de charger davantage de personnes à la fois. Ils devaient couper en grappes courtes et embarquer rapidement.
+« Mais je sais une chose. »
+Luhai avait repris.
 
-Jiwoo décida aussitôt.
+« Quoi ? »
 
-« Troisième groupe : trois à la fois ! » cria-t-elle. « Ne les alignez pas longtemps ! »
+« Le prix de la suivante, il part déjà. »
 
-Nassim entendit cela et réorganisa aussitôt la file.
+« Qu'est-ce que tu racontes ? »
 
-« Groupes de trois ! Trois premiers, prêts ! »
+« Elle a pas encore décollé, et on la paie déjà. »
 
-Les personnes restées à l'intérieur de Hazran étaient désormais comprimées au point où elles pouvaient à peine dire s'il s'agissait d'une ligne, d'un groupe ou simplement du corps à pousser ensuite.
+Luhai leva le menton vers le couloir. Haroun s'y tenait.
 
-Mais à travers tout cela, les gens montèrent.
+« Ce qui part là-bas en ce moment, c'est le prix de la quatrième file. Et la quatrième, elle est même pas encore au tableau. »
 
-Parce qu'ils le devaient.
+Sion fit tourner ce calcul une fois dans sa tête.
 
-Derrière le couloir droit, la lutte pour verrouiller le briseur incliné en obstacle permanent se poursuivit.
+Une fois tourné, c'était pire. Un registre où l'on payait d'abord et recevait la marchandise ensuite. Et la marchandise pouvait ne jamais arriver.
 
-Sern cibla de nouveau l'axe de renfort arrière. Ater continua de déchirer les angles et les lignes de vision pour empêcher les unités régulières de grimper sur le corps. Haroun, avec son bras restant et tout son corps, maintenait le poids effondré tordu pour qu'il ne puisse plus aplatir le chemin.
+À l'avant de la file, Seorin poussait les gens à bord.
 
-Mais Sion le voyait maintenant.
+Elle ne parlait presque pas. Ses mains partaient d'abord. Elle faisait pivoter une épaule, changeait l'angle d'une civière, rattrapait le poignet de quelqu'un qui allait tomber, écartait un bagage du pied. Pas un vide entre deux gestes.
 
-Le mouvement d'Haroun avait ralenti, très légèrement. Une prise, puis l'intervalle jusqu'à la prise suivante un peu plus long qu'avant. Personne ne le dit à haute voix, mais c'était le genre de changement qui se manifeste trop clairement sur un champ de bataille.
+En la regardant, Sion vit une chose.
 
-Et à ce moment-là, Ater éleva légèrement la voix pour la première fois.
+Seorin poussa vers les civières quelqu'un qui pouvait marcher. La personne fit un demi-pas, s'arrêta d'elle-même, et ce n'est qu'alors que Seorin la lâcha.
 
-« Appui suivant en approche. »
+Une seule fois. Personne ne l'avait vu.
 
-Sern parla presque simultanément.
+Sion l'avait vu.
 
-« Cette fois, ce n'est pas seulement la droite. »
+« Seorin. »
 
-Sion eut le souffle coupé.
+« Quoi ? »
 
-C'était pire. Alors qu'Haroun saignait déjà et tenait d'un côté, si un autre couloir tremblait en même temps, toute la dernière zone de survie près de la coque risquait de s'effondrer.
+« À l'instant. »
 
-Zahir entendit cela et ferma les yeux un bref instant avant de les rouvrir.
+Seorin répondit sans arrêter ses mains.
 
-Son visage ne contenait aucune hésitation. À la place, c'était le calcul d'un homme qui sait combien il reste peu de coups à jouer.
+« Je sais. »
 
-« Attachez le troisième groupe, » dit-il à mi-voix, « puis redistribuez les mains restantes. »
+Sion ne savait pas comment dire la suite. Jusque-là, faire semblant de ne pas voir avait été la bonne chose. Dans le couloir aussi, et quand il avait saisi la poignée de la civière aussi. Mais cette fois, si cette personne avait été chargée sur une civière, quelqu'un d'autre n'aurait pas pu l'être.
 
-Au moment où ces mots tombèrent, Sion sentit sa poitrine s'alourdir.
+« La prochaine fois, c'est moi qui surveille. »
 
-*Mains restantes.*
+Ce n'est qu'alors que Seorin arrêta ses mains.
 
-Les gens étaient désormais comptés non pas par leurs noms ou leurs relations, mais par le temps restant et leur capacité à tenir.
+Elle regarda brièvement Sion. Ce n'était pas un visage en colère.
 
-La guerre pousse toujours aussi loin.
+« D'accord. »
 
-Et Hazran en était arrivé précisément là.
+Sion se rappela le moment où il avait pris l'autre poignée de la civière. Ce jour-là, Seorin n'avait dit ni merci ni c'est bon. Elle avait simplement continué de porter.
+
+Cette fois, elle avait dit « d'accord ». Un mot de plus.
+
+Seorin tendit de nouveau la main vers la file.
+
+Mais cette fois, ce fut différent. Avant de tendre la main, elle parcourut la file entière du regard.
+
+« Ça va pas, ça. »
+C'était Seorin.
+
+« Quoi donc ? »
+
+« On peut pas les aligner aussi long. »
+
+« Pourquoi ? »
+
+« Si l'avant vacille, l'arrière vacille avec. »
+
+Seorin désigna de la main à peu près le milieu de la file. À partir de là, les gens se tenaient les uns les autres par l'épaule.
+
+« À partir de là, ils tiennent plus sur leurs pieds. Ils tiennent appuyés sur celui de devant. »
+
+Ce n'est qu'alors que Sion le vit.
+
+C'était vrai. À l'avant, les vingt se tenaient chacun pour soi, mais à l'arrière, collés les uns aux autres, ils tenaient comme un seul corps. Si un seul s'effondrait devant, tout l'arrière tombait d'un bloc.
+
+« Coupe par trois. »
+Seorin avait tranché.
+
+« Par trois ? »
+
+« Trois. Pas collés. Deux pas d'écart entre chaque groupe. »
+
+« Mais ça va prendre plus de temps pour les faire monter. »
+
+« S'ils tombent, ça en prendra plus. »
+
+Sion reprit l'ordre à son compte et courut vers l'arrière de la file.
+
+Écarter les gens de deux pas prenait du temps, lui aussi. Ils ne voulaient pas se séparer. Leur corps croyait déjà, avant eux, que rester collés était plus sûr.
+
+Sion les détacha un par un, de la main. En les détachant, il parlait.
+
+« Deux pas. Juste deux pas. »
+
+Ceux qu'il avait écartés se recollaient. Il les écartait de nouveau.
+
+Quelqu'un refusa de se détacher.
+
+Il agrippait le pan de vêtement de celui de devant, et quand Sion le toucha, il serra plus fort.
+
+« Lâchez. »
+
+« Non. »
+
+« Deux pas seulement. »
+
+« À deux pas, je ne peux plus le tenir. »
+
+Sion comprit ce que cela voulait dire. Cet homme ne s'agrippait pas par peur de tomber. Il s'agrippait au moment où celui de devant monterait à bord et pas lui.
+
+Sion resta un instant immobile.
+
+« Alors passez devant. »
+
+« Quoi ? »
+
+« Passez devant lui. Comme ça, vous n'aurez pas à lâcher. »
+
+L'homme regarda Sion une fois et passa devant. En passant, il lâcha le pan de vêtement.
+
+Sa main, qui n'avait plus où aller, resta un instant en l'air. Sion le vit.
+
+Il fallut longtemps pour que la file, coupée par trois, se mette en place.
+
+Pendant ce temps, le vaisseau ne décolla pas.
+
+Sion regarda de nouveau le tableau. Toujours trois marques.
+
+Huit fois.
+
+Rien n'avait diminué. Mais pendant tout ce temps, Haroun était resté debout, le flanc de celui qui avait donné le tissu du garrot n'avait cessé de s'imbiber, et les gens, écartés de deux pas, avaient encore plus peur.
+
+Luhai avait raison. Seul ce qu'on mettait dedans augmentait.
+
+Sion courut au couloir.
+
+« Haroun. »
+
+Haroun ne se retourna pas.
+
+« Ça fait plus d'une heure. »
+
+« De combien ? »
+
+« De beaucoup. »
+
+« Exactement. »
+
+Sion lui donna le chiffre qu'il avait compté. En l'entendant, Haroun tendit pour la première fois son bras gauche.
+
+« Défais-le. »
+
+Sion porta la main au nœud. Le nœud de tout à l'heure se défaisait mal. Il dut creuser avec les ongles.
+
+À l'instant où il céda, Haroun serra les dents.
+
+Le sang sortit. Ce qui s'était arrêté jusque-là jaillit d'un coup et vint jusque sur le dos de la main de Sion. Il était chaud.
+
+« Refais-le. »
+
+« Maintenant ? »
+
+« Maintenant. »
+
+« Si on attend encore un peu… »
+
+« Alors ils le verront, de là-bas. »
+
+Sion ne se retourna pas. Inutile, il savait. La file coupée par trois regardait de ce côté.
+
+Sion refit le garrot. Deux tours, et un nœud comme il l'avait vu faire. La première fois, ça ne prit pas. La deuxième, si.
+
+« Voilà. »
+
+Haroun plia le bras pour essayer.
+
+« Une heure. »
+C'était Haroun.
+
+« Encore ? »
+
+« Encore. »
+
+Sion essuya sur ses vêtements ce qu'il avait sur le dos de la main. Ça partait mal.
+
+« Haroun. »
+
+« Quoi ? »
+
+« On va faire ça combien de fois encore ? »
+
+Haroun répondit en remontant la main vers les débris.
+
+« Qui sait. »
+
+« Je compte ? »
+
+Ce n'est qu'alors que Haroun regarda Sion.
+
+« Ça, ne le compte pas. »
+
+Sion avait déjà entendu ces mots. Le premier jour, cet homme avait dit exactement la même chose. Que si l'on comptait, on saurait aussi quand viendrait la dernière fois.
+
+Il avait cru alors qu'il parlait du nombre de décollages.
+
+« Pourquoi ? »
+
+« Si je le sais, ma main change. »
+
+Sion allait partir, puis s'arrêta pour demander :
+
+« Et moi, j'ai le droit de compter ? »
+
+« Toi, compte. »
+
+« Pourquoi ? »
+
+« Si tu comptes, moi, je n'ai pas besoin de le faire. »
+
+Sion se détourna, emportant cette réponse.
+
+Et il se remit à compter. Ce que Haroun lui avait dit de ne pas compter, il ne le compta pas. Il ne compta que l'heure.
 
 ---
 

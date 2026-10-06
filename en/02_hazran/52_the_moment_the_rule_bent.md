@@ -1,205 +1,240 @@
 # Episode 52. The Moment the Rule Bent
 
-The instant three surviving teams converged before nearly the same ember candidate, the air of the heat-layer ember zone itself seemed to narrow.
+The moment the three surviving teams closed in on nearly the same ember candidate, the air of the heat-layer ember zone itself felt as if it had narrowed.
 
-Sion steadied his breath—not because he was winded, but because every line around him was collapsing toward a single point.
+Sion kept his breathing shallow, not because he was short of breath but because of the sense that every line around him was converging on a single point.
 
-Lower left, at the boundary where metal fragments met vitrified ground. A very small red dot clinging there.
+Down to the left, the border where metal shards met the glassy ground.
+The very small red point clinging there.
 
-So dull it had not even looked like a light at first. So quiet it had been buried among the flashier reactions.
+It was so dull that at first it had not even looked like a light, and so quiet that it had been buried among the other, showier responses.
 
-But now all three were looking there.
+But now all three were looking at it.
 
-Jiwoo and Sion. The dark-red glider. Kael and Sern.
+Han Jiwoo and Sion.
+The dark-red glider.
+Kael and Sern.
 
-The single fact that the surviving hands had all converged on the same spot told Sion his eyes had not been entirely wrong.
+From that one fact alone—that the surviving hands had all ended up reaching for the same place—Sion could tell his eyes had not missed entirely.
 
 The problem was what came next.
 
-Not who touched it first—but who moved wrong first.
+Not who reached it first, but who moved wrong first.
 
-Jiwoo settled the skiff lower. The right hover plate response had already died one more degree, and beneath the hull the sound of metal grinding continued in a steady line. The craft would not last much longer. Which made it all the more important that the last move be precise.
+Han Jiwoo laid the skiff down lower. The right hover plate's response had already died one notch further, and under the hull the scrape of metal went on, steady. The craft would not last long. All the more reason the last attempt had to be exact.
 
-"Just hold the distance."
-She said low.
-"When I bring us over, you grab it."
+"Just hold the distance,"
+she said, low.
+"I get you there, you grab it."
 
 Sion lowered his body instead of answering.
 
-The dark-red glider closing from the outer right had far sharper responses. Even with speed killed, its hull did not slide loosely—it clung low at exactly the needed height, reading the ground's rebound. True to being last year's champions, their survival this far was clearly not luck.
+The dark-red glider closing in from the outside on the right had far sharper responses. Even with its speed killed, the hull did not slide loosely; it hugged the ground only as low as it needed, reading the push of the surface. Like the previous year's winners they were, it showed that surviving this far had not been luck.
 
-Both riders were visible. The pilot up front barely moved his arms. The other, body already leaning back, was already reading the angle to extend a hand. Not the hands of people who grabbed fast, but people who seized the beat when others hesitated first.
+Its two riders were visible too.
+The pilot holding the front barely moved an arm, and the other one, leaning out from the back, was already studying the angle to reach. These were the hands of people who took not the fast grab but the split second when someone else hesitated first.
 
-Kael and Sern's team, descending from the north, was half a beat behind the other two.
+Kael and Sern's pair, coming down from the north, were half a beat behind the other two.
 
-But it was closer to careful than slow. Sern was watching to the end what the other two teams discarded and what they chased. Kael was not pressing the glider beyond what was needed. Those two were not the side that pounced first—they were the side that endured until only the real thing remained.
+But that was closer to caution than slowness. Sern was watching to the very end what the other two teams were discarding and what they were chasing, and Kael did not press the glider any more than he had to. Those two were not the side that pounced first now; they were the side that held on until only the real thing was left at the end.
 
-"All three on the same spot."
-Kael said low.
+"All three of us are on the same spot,"
+Kael said, low.
 
-Sern answered shortly.
+Sern answered short.
 
-"That's why it gets dangerous now."
+"That is why it is dangerous from here."
 
 Sion felt it too.
 
-People fail twice before an ember. Once when they believe the fake is real. And once when they see the real thing but ruin the board trying to grab it before someone else.
+In front of an ember, people ruined themselves two ways.
+One, when they believed a fake was real; the other, when they had seen the real thing but ruined the board trying to grab it before anyone else.
 
-Right now, they were closer to the latter.
+And right now it was closer to the second.
 
-Jiwoo twisted the skiff's nose by a fraction to adjust the angle with the dark-red glider. Instead of driving head-on, she created a line where both sides would find it awkward to extend a hand at the same time. Sion read the intent immediately. What was needed now was not collision but half a beat. Half a beat in which he could grab it.
+Han Jiwoo twisted the skiff's nose ever so slightly, adjusting her angle to the dark-red glider. Instead of ramming head-on, she made a line where it was awkward for either of them to reach at the same time. Sion read the intent at once. What they needed now was not a collision but half a beat. Half a beat in which he could grab it.
 
-Then the rear rider of the dark-red glider leaned out first.
+Then the rider at the back of the dark-red glider leaned out first.
 
 Too fast.
 
-Sion knew almost by reflex. That was not the speed of someone moving with certainty—it was the speed of someone who just wanted to get a hand there before anyone else.
+Sion knew it almost by reflex.
+That was not the speed of someone moving out of certainty, but the speed of someone who only meant to get a hand on it before anyone else.
 
-"Not now."
-Sion said, nearly shouting.
+"Not now,"
+Sion said, almost shouting.
 
-But almost simultaneously with those words, the opponent's hand reached toward the red dot.
+But almost the same instant he said it, the rival's hand shot toward the red point.
 
-And in that exact moment, the air beneath the heat layer warped once more—bigger this time.
+And at that very moment, the air beneath the heat layer twisted hard once more.
 
 It was different from before.
 
-Not a natural distortion. As though something beneath the vitrified ground was forcing a hot breath upward, the air layer curled up to one side. Three low-sitting lights all pretended to surge alive at once, and around the small red dot Sion had marked, two other red reactions suddenly erupted alongside it.
+It was not a natural distortion.
+As if somewhere in the glassy ground below someone were forcing a hot breath upward, a layer of air rolled up to one side. Three lights that had clung low all pretended to come more alive at once, and around the small red point Sion had marked, two other red responses suddenly burst up as well.
 
-Too blatant.
+It was far too blatant.
 
-In that instant Sion was nearly certain.
+In that moment Sion was almost certain.
 
-Someone had touched the board.
+Someone had tampered with it.
+With the board.
 
-The rear hand of the dark-red glider wavered for one moment at the changed reaction. That single short waver was enough.
+The hand at the back of the dark-red glider wavered for an instant at the changed responses.
+That one brief waver was enough.
 
-Jiwoo pushed the skiff lower immediately.
+Han Jiwoo immediately drove the skiff in lower.
 
 "Now."
 
-Sion's body moved before his thoughts.
+Sion's body moved before his thoughts did.
 
-The moment he kicked off the rear footplate and threw himself forward, hot air struck his face. Up close, the lights were even more of a mess. The large ones were too showy, and even the small dot he had been certain about was briefly buried in the air's trembling.
+The moment he kicked off the rear footplate and threw himself forward, hot air lashed his face. Seen up close, the lights were even more of a mess. The big ones were too loud, if anything, and even the small point he had been sure was real a moment ago was buried for an instant in the wavering air.
 
-But Sion refused to look at the large reactions.
+But Sion did not let himself look at the big responses.
 
-The ones pretending to be alive always grew bigger first.
+Things pretending to be alive always grew big first.
 
 The real thing held.
 
 He lowered his gaze close to the ground.
 
-Beneath the vitrified gap, beside the shadow of a metal fragment—one red dot that kept staying small.
+Under a crack in the glass,
+beside the shadow of a metal shard,
+one red point that kept staying small.
 
-While everything else shook, that one had not tried to prove what it was. It simply remained.
+Even while the others wavered, that one did not try to prove what it was.
+It just remained.
 
-Sion's hand reached toward it.
+Sion's hand reached for it.
 
-Right beside him, the hand from the dark-red glider's side came in at almost the same time.
+Right beside him, a hand from the dark-red glider came in almost at the same time.
 
-The opponent touched down first.
+The rival touched first.
 
-Sion felt his heart plunge.
+Sion felt his heart drop.
 
-But the next moment, what burst in the opponent's hand was another light that came far too easily.
+But the next instant, what burst in the rival's hand was, once again, a light that came far too easily.
 
-A red reaction bloomed vividly.
+A red response bloomed up, showy.
 
-So vividly that Sion knew.
+So showy that Sion knew, if anything.
 
 Fake.
 
 "That's not it!"
-Sion shouted immediately.
+Sion shouted at once.
 
-The opponent was already too late.
+The rival was already too late.
 
-That light pretended to surge alive once in his hand, then died as though burning out. At the same time, the vitrified ground beneath cracked faintly, and the glider's balance shook hard.
+The light pretended to come hugely alive in the hand once, then went out at once as if burned up. At the same time the glassy ground below cracked finely, and the glider's balance lurched hard.
 
-Jiwoo spat a curse.
+Han Jiwoo spat a curse.
 
-"Duck!"
+"Get down!"
 
-Sion pressed himself lower as he was.
+Sion pressed himself lower, just as he was.
 
-At nearly the same instant, Kael's glider drove deep from the outer line inward. Kael had watched another hand reach first and had not pounced alongside. Instead, he had held to the end on the least-shaking line Sern had identified, and because of that, he was able to cut in most stably past the ground that had just cracked.
+Almost the same moment, the glider Kael rode came in deep from the outside line. Kael had seen the other hand reach first and still had not pounced along with it. Instead he had held to the end the least-shaken line that Sern had picked out, and thanks to that he could drive in most steadily along the outside of the ground that had just cracked.
 
-"Underneath."
-Sern said shortly.
-"Not the big reaction. Below."
+"It is below,"
+Sern said, short.
+"Not the big response. Below."
 
-That was already the same thing Sion had seen.
+The words matched what Sion had already seen.
 
-Sion's fingertip finally touched the small red dot.
+Sion's fingertips finally touched the small red point.
 
-The first sensation was closer to heat than light.
+The first feeling was closer to heat than to light.
 
-But that heat was not vivid. It did not leap into his hand. It did not flaunt itself. It simply had not died.
+But that heat was not showy.
+It did not leap up into his hand, and it did not show itself off.
+It just did not die.
 
-In that moment, Sion knew.
+In that moment Sion knew.
 
 Real.
 
-At the same time, from somewhere beneath the heat layer, a low rough metal sound rang.
+At the same time, somewhere below the heat layer, a low, rough metallic sound rang out.
 
 Once.
 
-Then a second time.
+Then, soon after, a second.
 
-That sound was different from the arena's natural noise. Less the sound of something collapsing—closer to the sound of a device someone had pre-set, now being pulled.
+That sound was different from the course's natural noise. It was less the sound of something collapsing than the sound of someone finally pulling a device they had set in advance.
 
-Sern lifted his head at almost the same instant.
+Sern raised his head almost at the same moment.
 
-"Something's wrong."
+"This is wrong."
 
-Kael asked shortly.
+Kael asked short.
 
-"What."
+"What is?"
 
-"Too fast."
+"It is too fast,"
 Sern said.
-"There's no reason for the air layer to channel to one side like this."
+"There is no reason for the air layer to pile to one side like this."
 
-In that moment, from the stands, what erupted was not murmuring but genuine commotion.
+At that moment, from the viewing stand too, broke not murmuring but a real uproar.
 
-Luhai leaned so far over the railing he nearly fell, shouting.
+Luhai leaned out so far he nearly fell off the railing and shouted.
 
-"Someone tampered with that!"
+"Who messed with that!"
 
-Ater immediately looked at the heat flow below. Seorin was already looking at something else.
+Ater looked at once at the heat flow below, and Seorin was already looking at something else.
 
 People.
 
-At the heat-layer zone's edge, in positions that should have been outside the race line, several shadows were moving far too quickly. They were not race hands. Not recovery hands. Not standard monitors. They moved like people who had been placed inside beforehand—movements that knew where the devices were.
+At the edge of the heat-layer area, in positions that should have been outside the course line, a few shadows were moving far too fast. They were not racing hands. Not recovery hands either, nor ordinary watchers. Like people who had gone in ahead of time, their movements knew where the devices were.
 
-Seorin murmured very low.
+Seorin murmured, very low.
 
-"They're here."
+"There they are."
 
-Aka did not speak to the end.
+Aka was not looking that way.
 
-But standing beside Nahira, she drew a very short breath for the first time. That single subtle reaction was enough to confirm that what was breaking was no simple accident.
+What Seorin had seen were the moving shadows. Aka was looking not at the shadows but at the lower part of the viewing stand, and nothing was happening there.
 
-Sion still held the ember tight in his hand.
+"Those people aren't watching the race."
 
-It was not vivid like a fake. But in his hand, it was alive—low and tenacious.
+Seorin turned her head toward Aka.
+
+"What?"
+
+"Not the ones who went in."
+
+Aka pointed down with her chin.
+
+"The ones standing there."
+
+Seorin looked.
+
+A few people were standing at the lower edge of the viewing stand. Everyone else was looking up and shouting, but not those few. They kept their heads turned away from the course and stood at matched intervals from each other.
+
+They were not people who had come to watch the race.
+
+Nahira moved one step and stood in front of Aka.
+
+Sion was still clutching the ember in his hand.
+
+This was not showy the way the fakes were.
+But in his hand it was alive, very low and stubborn.
 
 It was real.
 
-The problem was that from here on, the road back carrying this real thing might no longer lie within the rules of the race.
+The problem was that from now on, the way back carrying this real thing might no longer lie only within the rules of the race.
 
-Jiwoo wrenched the skiff toward Sion and called out.
+Han Jiwoo wrenched the skiff around and brought it up against Sion, saying,
 
 "Get on!"
 
-At the same time, the air beneath the heat layer warped a third time—violently.
+At the same time, the air beneath the heat layer twisted hard a third time.
 
-This time, several lights pretending to be alive burst upward at once, beginning to shred the very entry lines that had remained until just now.
+This time several of the lights that pretended to be alive burst upward at once and began tearing to shreds the very approach lines that had still been left a moment ago.
 
 And Sion knew.
 
-The rules had just bent first.
+The rule had just bent first.
 
 ---
 

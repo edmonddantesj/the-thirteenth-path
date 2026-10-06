@@ -1,146 +1,213 @@
 # Episode 168. Stop Lying
 
-After the report came in about the new circulation line opening, the old layer went quiet again — but this time the quiet was different from the day before.
+After the report came in that a new circulation line had opened,
+the air in the old layer went quiet again,
+but this time the quiet was different from the day before.
 
-Everyone knew now that standing still alone would not be enough.
+Now everyone
+knew that standing still would not be enough.
 
-But they could not simply drag the androids out and go, either.
+But that didn't mean they could just drag the androids out with them, either.
 
 The problem was still the same.
 
-It was not whether they could trust those things. First, it was whether they could stop insisting those things were empty.
+It wasn't whether they could trust those things.
+First,
+it was whether they could stop insisting those things were empty.
 
-Seorin did not gather everyone for long.
+Seorin didn't keep everyone gathered for long.
 
-She kept only the necessary faces, as the day before. Sion, Jiwoo, Sern, Ater, Luhai, two old machines, and the outside hands.
+As the day before, she kept only the faces she needed.
+Sion,
+Han Jiwoo,
+Sern,
+Ater,
+Luhai,
+and two old machines and the outside hands.
 
 This time no one spoke first.
 
-Seorin broke the silence.
+It was Seorin who broke the silence.
 
-"Let us sort this." She said it low. "There is still much we do not know. But at least, the stage of pretending not to see what we have seen has passed."
+"Let's lay it out,"
+she said, low.
+"There's a lot we still don't know."
+"But at the very least,
+we're past pretending we didn't see what we saw."
 
-That was less a conclusion and more the drawing of a line that could no longer be fled from.
+It was less a conclusion
+than a line drawn that there was no running from.
 
-Sern continued quietly.
+Sern followed, quietly.
 
-"The variance has repeated. Under the same conditions, responses that are not the same have appeared multiple times."
+"The variance has repeated."
+"Under the same conditions,
+responses that are not the same have already appeared several times."
 
-Luhai asked immediately.
+Luhai asked at once.
 
-"So they have will?"
+"So they've got a will?"
 
-Sern did not shake his head right away.
+Sern didn't shake his head right away.
 
-"That cannot be concluded either. But concluding they do not is now the more dangerous side."
+"That cannot be concluded either."
+"But concluding that there is none
+is now the more dangerous position."
 
-The words were cold in a very Sern-like way. But precisely because of that, they shook harder.
+It was cold in a very Sern way.
+And that was exactly why it shook them more.
 
-Jiwoo, hearing those words, realized belatedly that the answer she had wanted was not a precise conclusion but an attitude that refused to cut carelessly.
+Listening, Han Jiwoo
+realized belatedly that what she had wanted was not an exact conclusion,
+but an attitude that refused to cut the matter off with a careless verdict.
 
-Ater spoke from the wall, arms crossed, low.
+Ater, arms folded by the wall, spoke low.
 
-"The old machines react first. Before the humans. Before the outside hands."
+"The old machines react first."
+"Before the people.
+Before the outside hands."
 
 Seorin looked at him.
 
-Ater continued with his gaze on the androids.
+Ater kept his eyes on the androids and went on.
 
-"That is not only the pause of seeing an enemy. It is closer to seeing something unfamiliar that is not entirely unfamiliar."
+"That is not only the pause of seeing an enemy."
+"It is closer to seeing something unfamiliar,
+but not entirely unfamiliar."
 
-One old machine did not argue with that. The silence itself felt like perhaps the largest agreement.
+One of the old machines did not dispute it.
+That silence itself
+felt like perhaps the strongest agreement of all.
 
-Sion watched and thought: what mattered first here might not be trust but honesty.
+Watching it, Sion thought
+that what mattered first here might not be trust,
+but honesty.
 
-It was too early to say they could be trusted. It was too early to cut and say they could not.
+It was too early to say they could be trusted,
+and too early to cut them off as untrustworthy.
 
-But at least, it had to start from saying what had been seen was seen.
+But at the very least,
+they had to begin by saying that what they had seen, they had seen.
 
-Then one man from Hazran asked, his face uncomfortable, low.
+Then a man from Hazran,
+his face uneasy, asked low.
 
-"So what are we actually doing about it. Say those things might not be empty. Does that not make it more frightening for us?"
+"So what are we actually going to do?"
+"Say those things might not be empty.
+Doesn't that make them scarier for us?"
 
-The words were not cruel. They were so obvious they hurt more.
+It wasn't cruel.
+It was so obvious that it hurt more.
 
-If it is a weapon without will, at least control can be imagined. But if there might be will, fear could grow even larger.
+With a weapon that has no will, you can at least imagine control.
+But if it might have one,
+the fear could grow even larger.
 
-Jiwoo looked at him, then said it slowly.
+Han Jiwoo looked at him, then spoke slowly.
 
-"Right. It could be more frightening. But being frightened is not a reason to push toward the side where there is nothing."
+"You're right."
+"It could be scarier."
+"But being scared
+doesn't mean we get to force them over to the side of nothing."
 
-Brief silence.
+A short silence.
 
-She looked toward the androids and continued lower.
+She looked toward the androids and went on, lower.
 
-"We already saw where that method goes."
+"We've already seen where that way of doing things goes."
 
 No one could argue.
 
-Serakion had done exactly that — concluded there was nothing, then sorted, then elevated, then never returned.
+Serakion had done exactly that:
+after deciding there was nothing, it sorted;
+after sorting, it sent them up;
+after sending them up, it never brought them back.
 
-Seorin picked up from there.
+Seorin picked it up from there.
 
-"Good. Then we decide this much here."
+"All right. Then we settle this much."
 
 Everyone looked at her.
 
-"We do not immediately calculate those as full forces. But we do not first calculate them as empty, either."
+"We don't count them as strength right away."
+"But we don't count them as empty first, either."
 
-Luhai narrowed his brow.
+Luhai narrowed his brows.
 
-"What is the difference."
+"What's the difference?"
 
-"An enormous difference." Seorin cut in. "The first looks for the method of use first. The second guards the line first."
+"A huge difference,"
+Seorin said flatly.
+"The first starts by looking for how to use them,
+the second starts by holding the line."
 
-The words were simple, but strangely made the room quieter.
+It was simple,
+but strangely it made the room quieter.
 
-Everyone knew now.
+Now everyone knew.
 
-What had to be decided right now was not utilization. It was what they would refuse to do.
+What they had to decide now was not how to use them,
+but how far they themselves would refuse to go.
 
-Then one outside hand said it very low.
+Then one of the outside hands spoke, very low.
 
-"That side will not wait."
+"They will not wait."
 
 Seorin nodded.
 
 "I know."
 
-"If the circulation line goes to two layers, the retrieval speed will change next."
+"Once the circulation lines go to two layers,
+the retrieval speed will change next."
 
-Sern received that.
+Sern took that up.
 
-"We have to move before that."
+"We must move before then."
 
-"Yes." Seorin said. "But what we move with has to be decided without us getting it wrong first."
+"Right,"
+Seorin said.
+"But what we move with,
+we have to decide first, without getting it wrong."
 
-In that moment, one old machine inside passed in front of the androids again.
+In that moment,
+one of the old machines inside brushed past the androids again.
 
-Closer this time than before.
+Closer than before, this time.
 
-Two androids' gazes followed in that direction almost simultaneously — but at beats that were not entirely the same.
+Two androids' gazes,
+almost at once,
+but not on quite the same beat, followed it.
 
-Sern swallowed very low. Ater came off the wall for the first time.
+Sern held his breath, very quietly.
+Ater pushed off the wall for the first time.
 
-Luhai could not say another word.
+Luhai couldn't say anything more.
 
-Sion felt that small misalignment was strangely like a massive door opening just barely.
+To Sion, that small misalignment
+strangely felt like a huge door opening just a crack.
 
-No one could yet put a name in front of that door. But it had also become hard to pretend it was a closed wall.
+No one could yet put a name in front of that door.
+But it had become hard to pretend it was a closed wall.
 
-Jiwoo said it almost to herself.
+Han Jiwoo said, almost to herself,
 
-"They have been watching all along."
+"They've been watching all along."
 
-Who had been watching whom, how far, with what feeling — that could not yet be known.
+Who had been watching whom,
+how far,
+with what kind of heart,
+no one could know yet.
 
-But after those words, the air in the room was clearly different from every day before.
+But after those words,
+the air in the room was clearly different from all the days before.
 
 They had not come to trust the androids.
 
-Instead, they could no longer cover what they had seen with a lie.
+Instead,
+they could no longer cover what they had seen with a lie.
 
-And from exactly that point, the way they would break Serakion seemed like it would begin to change, little by little.
+And from that very point,
+it seemed the way they would break Serakion would begin, little by little, to change too.
 
 ---
 

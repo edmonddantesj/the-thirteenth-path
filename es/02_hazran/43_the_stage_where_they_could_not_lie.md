@@ -1,133 +1,234 @@
 # Capítulo 43 — La escena donde la mentira no se sostenía
 
-Cuando la gente de dentro empezó a dispersarse, Sion sintió por primera vez que este espacio entero no era un simple alojamiento ni un almacén, sino algo parecido a una antecámara.
+Desde que Kael salió, el interior se volvió extrañamente normal.
 
-Entre la entrada desde el mercado de la capa exterior hacia el interior,
-y el paso hacia un nivel más profundo.
+Eso era lo que más incomodaba a Sion. Habían dejado a una persona de pie a doce pasos de distancia, y los que quedaban aquí seguían con lo que estaban haciendo. Se movieron bidones de agua, se volvieron a cerrar los faldones de las lonas, y alguien rascaba con un gancho fino la arena metida entre las planchas de metal del suelo.
 
-Un entre-dos donde los precios se separaban, donde los objetos, las personas y las palabras se desprendían unos de otros,
-para volver a ordenarse luego bajo la mano de alguien.
+Aquí la separación no funcionaba como un castigo, sino como algo de todos los días.
 
-Harún seguía dando solo órdenes breves, y la gente de dentro se movía aún más breve. Sin preguntas, sin réplicas. Ver las manos que trasladaban un bidón de agua y las que apartaban a una persona rodando en el mismo ritmo resultaba, si acaso, más desagradable. Aquí la separación no funcionaba como un castigo, sino como una rutina.
+Luhai se había quedado más callado que antes, y, curiosamente, aquello no parecía resignación. Se parecía más al momento en que los cálculos giran tan deprisa dentro de la cabeza que la boca no alcanza a seguirlos. Un chico así es más sospechoso cuando calla.
 
-Dos individuos cubiertos de tela negra se habían pegado al lado de Kael, y otros dos al de Luhai. Nadie los había atado ni empujado abiertamente, pero qué dirección podía tomar cada cual ya estaba decidido. Sion, Seorin y Ater seguían de pie juntos, pero eso parecía menos un signo de confianza que el hecho de que aún no había caído el último veredicto sobre en qué orden cortarlos.
+Mientras esperaban, entró en el interior otro cliente.
 
-Luhai se había quedado más callado que antes, y sin embargo, por extraño que pareciera, no daba la impresión de una resignación completa. Estaba más cerca del instante en que los cálculos giran tan deprisa dentro de una cabeza que la boca ya no alcanza a seguirlos. Esta clase de crío era más sospechosa cuando callaba.
+Era un hombre. Llevaba una tela sobre los hombros y algo abrazado contra el pecho. Lo primero que le llamó la atención a Sion fue la manera de abrazarlo. No lo abrazaba porque pesara, sino con la postura de quien quiere que no se vea.
 
-Kael, al contrario, se movía aún menos. De pie, con el fragmento apretado más hondo contra el pecho, como alguien que memoriza solo con el cuerpo a qué distancia estaba cada uno de su lado. Al ver esa postura, Sion lo entendió una vez más. Este hombre no se derrumbaba en cuanto lo apresaban. Era del tipo que guarda sus fuerzas hasta el momento en que de verdad hay que cortar.
+Nasim giró el cuerpo hacia él. La cara sonriente seguía igual, pero esta vez la sonrisa tenía una veta distinta de la que les dirigía a ellos.
 
-Nasim los observó a los dos por turnos y luego habló muy despacio.
+—¿Qué traes hoy?
 
-—Bien —dijo sonriendo—. Ahora cada uno empieza a entrever dónde se sitúa su propio valor.
+El hombre retiró la tela.
 
-Seorin cortó en seco.
+Era un dispositivo de acople del tamaño de dos palmas. Por fuera estaba intacto. En las juntas casi no había marcas de calor, y la pintura apenas se había desprendido.
 
-—Eres el único que se divierte.
+—Está vivo.
+Eso dijo el hombre.
+—Lo saqué de la franja de restos de afuera, y todavía reacciona.
 
-Nasim se encogió levemente de hombros.
+—Reaccionar, reaccionan todos.
 
-—No me divierto —dijo—. Es solo que, a estas alturas, lo que cada uno trajo al entrar se aclara un poco más, nada más.
+—Este es distinto.
 
-Aquello era verdad.
+En lugar de contestar, Nasim hizo un solo gesto con la mano.
 
-El grupo de Sion necesitaba eterita.
-Aka tenía un juicio más hondo que esa necesidad.
-Luhai era el crío que tocaba los flujos interiores y los registros.
-El fragmento de Kael aún no se había leído del todo, pero estaba al menos hondamente ligado a lo que Aka había apartado como «no una puerta».
+Uno de la gente de dentro trajo un plato de metal poco hondo. Dentro había arena calentada durante el día. Todavía no despedía vapor, pero Sion, a dos pasos de distancia, sintió que ese calor le llegaba a la cara.
 
-De aquí en adelante venía la etapa de examinar cada cosa por separado.
+La cara del hombre se tensó de forma casi imperceptible.
 
-Nahira dirigió la mirada hacia Aka y dijo:
+—¿De verdad hay que hacer eso?
 
-—Esa niña tiene que descansar un poco.
+—Aquí solo hacemos eso.
+Eso dijo Nasim.
 
-Harún preguntó breve:
+Pusieron el dispositivo sobre la arena.
 
-—¿Ahora?
+Nadie habló.
 
-—Ahora —respondió Nahira—. Ya vio demasiado hace un momento.
+Sion no sabía qué iba a pasar, así que se limitó a mirar. Durante los primeros compases no ocurrió de verdad nada. Luego se encendió una luz en una ventanita diminuta del costado del dispositivo. Empezó tenue y enseguida se avivó. Tan deprisa que se veía cómo crecía.
 
-Sion creyó entender lo que aquello significaba. Aka no era alguien que gastara sus fuerzas en explicaciones, sino en distinciones. Es decir, si miraba demasiado tiempo de un tirón lo verdadero y lo falso, la imitación y el eco, lo que había que guardar y lo que había que cortar, podía cerrarse la primera.
+Los hombros del hombre se enderezaron un poco.
 
-Aka oyó ese intercambio y no dijo nada. Ni objeción, ni acuerdo: solo se quedó de pie en silencio. Pero ese silencio no era el de una niña arrastrada de forma pasiva. Estaba más cerca del silencio de una niña que ya leía qué valor habían sacudido sus propias palabras, y qué mano iba a manejarla a continuación.
+—Mire. Está vivo.
 
-Nasim volvió el cuerpo esta vez hacia el grupo de Sion.
+Nasim no contestó.
 
-—Entonces quedan ustedes tres —dijo—. Por qué necesitan eterita, quién dejó el nombre de Aka, y por qué vinieron hasta aquí justo ahora.
+La luz siguió avivándose. Luego, en cierto momento, se detuvo, mantuvo ese brillo un instante y de pronto se apagó. Dentro de la ventanita quedó hollín.
 
-—Falta uno —dijo Seorin en voz baja—. Por qué deberíamos aceptar las reglas de tu terreno.
+El hombre no pudo decir nada.
 
-Nasim sonrió.
+Solo entonces abrió Nasim la boca.
 
-—Eso es fácil —dijo—. Ya entraron hasta dentro.
+—Lo que está vivo no hace eso.
 
-Sion sintió que aquella frase era fría y precisa hasta un grado extraño. En la capa exterior, quizá aún habría sido posible regatear, huir, engañar. Pero ya no. Ahora ya habían entrado en el perímetro de las reglas interiores. A partir de aquí, lo quisieran o no, serían cortados, atados y tasados según el orden del otro.
+—…El calor era demasiado fuerte.
 
-Ater dijo en voz baja:
+—Este plato es más flojo que el día.
+Eso dijo Nasim.
+—Aquí todos venden sus cosas encima de este plato. Si el calor fuera fuerte, aquí no se podría vender nada.
 
-—¿Adónde piensan llevarnos?
+Solo entonces entendió Sion cómo funcionaba aquel examen.
 
-Nasim no respondió de inmediato. En cambio, cruzó una mirada muy breve con Harún. Ese solo intercambio le bastó a Sion para entender: la decisión final estaba todavía un escalón más arriba.
+El examen no era dar calor. El examen era ver si se encendía con prisa. Un objeto que ha pasado por manos humanas para que luzca bien, cuando recibe calor, se apresura a demostrar que está vivo. Lo verdadero no tiene por qué hacerlo. Lo verdadero simplemente se calienta y luego se enfría despacio.
 
-—Una escena donde la mentira no se sostiene mucho tiempo —dijo Nasim con suavidad—. A estas alturas, creo que se puede explicar así.
+Aquí la mentira es lo primero que se enciende ante el calor.
 
-Luhai, al oír esas palabras, arrugó levemente la cara.
+El hombre habló deprisa.
 
-—Eso no suena a un sitio nada agradable.
+—No intenté engañar a nadie. Yo también lo compré así.
 
-—Cierto —dijo Kael muy bajo—. No será agradable.
+—Eso es otra cosa.
+Eso dijo Nasim.
 
-Que los dos hablaran de un modo extraño desde la misma intuición casi le hizo a Sion contener el aliento un instante. Aún no eran del todo aliados, y sin embargo, en momentos así, una especie de complicidad torpe seguía naciendo entre ellos, y encajaba de forma curiosa.
+—Entonces, ¿cómo…?
 
-En ese momento, desde un compartimento más profundo de dentro, volvió a resonar un sonido metálico.
+—¿Dónde lo compraste?
 
-Esta vez fue más nítido que antes. El ruido de algo que se abría. No una estructura largo tiempo cerrada con llave, sino un lugar que unas manos humanas abrían y cerraban con costumbre. Y con ese solo sonido, todas las manos alrededor se realinearon de forma mínima. Nasim recortó un poco su sonrisa, y la cara de Harún se volvió la de alguien que ya no tenía nada más que añadir. Nahira reajustó una vez más la lona del lado de Aka, y dos personas que estaban de pie dentro se pegaron en silencio al grupo de Sion.
+El hombre no pudo responder.
 
-Sion tomó una inspiración corta.
+Nasim borró del todo la sonrisa. Luego trazó algo breve sobre una placa delgada que sostenía el que tenía al lado. No era papel, sino una plancha de metal, y la raya trazada no se borraba.
 
-Aquí llegaba.
+—No apunto tu precio, sino el del sitio donde lo compraste.
+Eso dijo.
+—La próxima vez, todo lo que venga de ese sitio sube primero a este plato.
 
-El umbral que cruzaba hacia algo más profundo.
+Al hombre no lo golpearon, no lo arrastraron, y nadie alzó la voz. Envolvió de nuevo en la tela el dispositivo chamuscado y salió. Sus pasos al irse eran más rápidos que al entrar.
 
-Harún dijo breve:
+Luhai murmuró muy bajo.
+
+—Eso da más miedo.
+
+Sion pensaba lo mismo.
+
+Un golpe se acaba de una vez. Una raya hace que los sitios donde esa persona puede comprar y vender se sigan encogiendo. Esta ciudad no castiga a las personas: castiga sus tratos.
+
+Sion miró hacia Aka.
+
+Aka no miraba el plato. Miraba el faldón de la lona por donde había salido el hombre.
+
+—¿Eso lo sabes sin mirar?
+Lo preguntó Sion.
+
+—Lo vi.
+Eso dijo Aka.
+—Cuando entró.
+
+—Entonces, ¿por qué no dijiste nada?
+
+Aka tardó un momento en responder.
+
+—Si lo digo, ese hombre no lo sube. Si no lo sube, la gente de aquí no aprende.
+
+Sion no supo qué decir de inmediato ante esa respuesta. Podía juzgar, y se había guardado el juicio. Y quizá esa fuera la manera en que Aka había sobrevivido en este interior.
+
+Luhai echó un vistazo hacia el corredor.
+
+—¿Hasta cuándo tiene que estar ese ahí de pie?
+
+Nasim respondió como si no tuviera importancia.
+
+—Hasta que haya veredicto.
+
+—¿Y eso cuándo es?
+
+—Eso lo deciden arriba.
+
+Luhai arrugó la cara.
+
+—¿Sabes cuántos grados hace afuera ahora mismo?
+
+—Lo sé.
+Eso dijo Nasim.
+—Vivo aquí.
+
+Sion miró hacia la lona. El calor que había entrado de golpe cuando Kael salió parecía seguir aún junto a sus pies. Doce pasos, dichos como número, eran pocos. Si al final de ese número había alguien de pie, ya no eran pocos.
+
+—¿Se le puede mandar agua?
+Lo preguntó Sion.
+
+Nasim sonrió por primera vez un poco de verdad.
+
+—Eso sí.
+
+Nahira, sin decir nada, le pasó un odre de agua a uno de la gente de dentro, y esa persona entró en el corredor, caminó hasta el nueve y se detuvo. Allí dejó el odre en el suelo y volvió. Los tres pasos, al final, no los cruzó nadie.
+
+Sion se quedó mirando largo rato esos tres pasos.
+
+Seorin habló en voz baja.
+
+—Entonces, ¿con qué subimos nosotros?
+
+Nasim la miró.
+
+—A ustedes el plato no les sirve.
+
+—¿Por qué?
+
+—Porque no son de un tamaño que quepa en el plato.
+
+Aquello sonó a broma, pero nadie se rio.
+
+Ater preguntó en voz baja.
+
+—Entonces, ¿cómo nos examinan a nosotros?
+
+Esta vez, en lugar de responder, Nasim cruzó una mirada muy breve con Harún. Ese breve intercambio le bastó a Sion para saberlo. La decisión final estaba todavía un escalón más arriba.
+
+—Una escena donde la mentira no se sostiene mucho tiempo.
+Nasim lo dijo con suavidad.
+—A estas alturas, creo que se puede explicar así.
+
+—¿Y dónde es eso?
+Lo preguntó Luhai.
+
+—Lo acabas de ver.
+Eso dijo Nasim.
+—Solo que el plato es mucho más grande.
+
+Nahira, mientras arreglaba la lona del lado de Aka, habló brevemente.
+
+—Esa niña no sube.
+
+—Eso lo deciden arriba.
+Eso dijo Harún.
+
+—Por eso lo digo ahora.
+
+Entre los dos pasó un breve silencio. Sion supo que era la misma clase de silencio que cuando, poco antes, Nahira había cerrado el paso a la lona del otro lado del corredor. En este interior, la única que no retrocedía cuando se trataba de Aka era Nahira.
+
+En ese momento resonó un sonido metálico desde un compartimento más profundo del interior.
+
+Era el sonido de algo que unas manos humanas abrían y cerraban por costumbre. Al compás de ese único sonido, todas las manos de alrededor se realinearon de forma mínima. Nasim recortó un poco la sonrisa, y Harún puso la cara de quien ya no necesita decir más.
+
+Harún habló, breve.
 
 —Vamos.
 
 Esta vez nadie volvió a preguntar.
 
-Hasta Luhai cerró la boca, y Kael no hizo más que apretar más firme el brazo que sostenía el fragmento. Seorin levantó el mentón apenas un poco, y la mirada de Ater se ordenó más fría. Sion, con la mano apretada sobre el papel del interior de su chaqueta, sintió que su propio corazón se volvía extrañamente tranquilo. No era ausencia de miedo. Era más bien que había demasiadas cosas en juego a la vez, y que ya no le quedaba margen para temblar.
+Hasta Luhai cerró la boca, Seorin levantó el mentón apenas un poco y la mirada de Ater se ordenó, más fría. Sion sintió que su propio corazón se volvía extrañamente tranquilo. No era que no tuviera miedo. Era, más bien, que había demasiadas cosas en juego a la vez y ya no le quedaba margen para temblar.
+
+También Kael, que había estado de pie al final de los doce pasos, volvió dentro de la lona a una sola seña de Harún y se pegó al final de la fila.
 
 El corredor se estrechó todavía más.
 
-El calor y el olor a polvo del mercado exterior se atenuaron, y el olor de un metal largo tiempo pulido y de telas sin humedad se hizo más cercano. Había menos gente, pero la posición de cada uno era más deliberada. Un espacio donde importaba menos quién miraba hacia este lado que quién había decidido no mirar.
+El calor y el olor a polvo que había sentido en el mercado de la capa exterior, al contrario, se atenuaron, y el olor a metal largamente pulido y a tela sin humedad se hizo más cercano. Había menos gente, pero el sitio donde estaba de pie cada uno era más deliberado. Un espacio donde se notaba menos quién los miraba que quién había decidido no mirarlos.
 
-Caminando por aquel interior, a Sion le cruzó de pronto este pensamiento:
+Mientras caminaba, a Sion le cruzó de pronto este pensamiento.
 
-Hazran quizá no fuera una tierra sin ley,
-sino un lugar donde, en vez de la ley, se había empujado el valor hasta el final.
+Que quizá Hazran no fuera una tierra sin ley, sino un lugar que, en vez de la ley, había llevado el precio hasta el final.
 
-Y en un sitio así,
-hasta la mentira, para sostenerse mucho tiempo, necesitaba un valor.
+Y que en un sitio así, hasta la mentira, para sostenerse mucho tiempo, necesita un precio.
 
-Incluso fingir ser una puerta.
+Incluso lo que finge ser una puerta.
 
 Al final del corredor, bajo la sombra de la última lona, Harún se detuvo.
 
-Detrás de él se extendía un espacio que aún no se veía.
+Detrás había un espacio que aún no se veía.
 
-Pero esa invisibilidad era ya en sí misma una presión. Como si la persona de dentro, sin siquiera revelar su rostro, conociera ya el valor de todo lo que había sido arrastrado hasta aquí.
+Sion recordó el plato que acababa de ver. Fuera lo que fuera lo que hubiera allá dentro, ellos también subirían pronto sobre el calor. Y esta ciudad no miraría cuánto se encendían, sino con cuánta prisa lo hacían.
 
-Nasim dijo muy bajo:
+Así que, a partir de ahora, solo había una cosa que hacer.
 
-—Bien —añadió sonriendo—. De aquí en adelante, el que esconde es el que sale perdiendo de verdad.
-
-A Sion no le gustó esa frase, pero tampoco pudo negarla.
-
-Habiendo llegado hasta aquí,
-ya nadie podría aferrarse mucho tiempo a una mentira como antes.
-
-Y dentro de aquel espacio,
-por fin, esperaba la mano que tenía el juego.
+No tener prisa.
 
 ---
 

@@ -1,56 +1,56 @@
 # Episode 16. On the Same Route
 
-The shuttle ran longer than expected.
+The shuttle ran longer than they had expected.
 
-The engine sound lay low and even, but beneath it, a faint tremor that seemed to stutter occasionally climbed through the hull. An old ship's habit. Not a malfunction — but the kind of sound that tells you one would not be surprising.
+The engine noise lay low and even, but now and then a fine tremor, almost a stutter, climbed up through the hull beneath it. A habit peculiar to old ships. Not a breakdown, but the kind of sound that lets you know it wouldn't be strange if one came at any moment.
 
-Sion and Seorin had settled in the forward compartment; Ater and Sern leaned against the wall at the cargo hold boundary in the rear. Yona was at the cockpit-slash-comm station. Maximum distance possible inside a narrow ship — though honestly, it was not enough to call distance. Within range of hearing each other breathe.
+Sion and Seorin had taken the forward compartment, and Ater and Sern sat with their backs against the edge of the cargo bay at the rear. Yona had gone to the pilot's seat, which doubled as the communications seat. It was as much distance as the narrow ship allowed, but honestly, it hardly counted as distance. Within earshot of each other's breathing.
 
-For a long time, no one spoke.
+For a while, no one said anything.
 
-While running, silence was fine. There was work to do, and tension closed mouths in its place. But once movement began and time free of immediate pursuit arrived, a different kind of tension started filling the space between people who did not know each other.
+While they were running, it had been fine not to talk. There were things to do, and the tension had kept their mouths shut for them. But once you're moving, and a stretch comes when nothing is chasing you right then, a different kind of tension starts to fill the space between people who don't know each other.
 
 Sion broke the silence first.
 
-"Not sleeping?"
+"Not going to sleep?"
 
-Directed at Seorin.
+It was meant for Seorin.
 
 "Sleep in a place like this and you don't wake up."
 
-"What? You slept in the cargo hold of a collection vessel before."
+"What are you talking about. You slept in the cargo hold of that collection ship before."
 
 "That was a ship I knew."
 
-Sion smirked but did not push further.
-Seorin was right. Known ship and unknown ship — the sleep was different. Hear a known sound and the body releases; hear an unknown sound and the brain does not switch off.
+Sion gave a short laugh but didn't push it.
+A ship you know and a ship you don't make for different sleep. When the sounds are ones you know, the body lets go; when they aren't, the brain won't switch off.
 
-From the back, Sern said low.
+From the back, Sern spoke, low.
 
-"Is there a way to confirm whether we have deviated from the route."
+"Is there a way to check whether we have left the route?"
 
-Yona answered from the cockpit.
+Yona answered from the pilot's seat.
 
 "No."
 
-Short silence.
+A short silence.
 
-"Precisely — this ship does have a route tracker, but the direction we're heading isn't an official route, so there's no baseline to compare."
+"To be exact, there's a route tracker on this ship, but where we're going isn't an official route, so there's no baseline to compare against."
 
-Sern thought briefly, then asked.
+Sern thought about that for a moment, then asked.
 
-"Then how do you know the heading is correct."
+"Then how do you know the heading is right?"
 
-"Feel."
+"Gut."
 
 Sion looked back and laughed.
 
-"Don't bother. Demanding accuracy on a ship like this only hurts your mind."
+"Forget it. Ask for precision on a ship like this and you'll just wreck your head."
 
-Sern did not rebut, but a grain of clear disagreement remained in his expression.
-Ater was watching Sern quietly from beside. This person was always calculating the next move first — during boarding order, and just now too. But currently, the route that served as the basis for his calculations was itself unstable. For Sern, that would be quite uncomfortable.
+Sern didn't argue, but a grain of plain disagreement stayed on his face.
+Ater watched Sern quietly from beside him. Just now, and when they had settled the boarding order, and always, this man was the first to calculate the next move. But right now the route itself, the baseline for that calculation, was shaking. For Sern, that would be a fairly uncomfortable situation.
 
-Ater said low.
+Ater spoke, low.
 
 "Sern."
 
@@ -58,169 +58,258 @@ Ater said low.
 
 "For now, there is nothing to do but wait."
 
-Sern lifted his gaze very briefly, then lowered it again.
+Sern raised his eyes, then lowered them again.
 
-"I know."
+"I am aware."
 
 Their exchange ended there.
-But Sion did not miss that brief one. Whether Ater had calmed Sern, or simply spoken out of his own unease — it was unclear. Probably both. And either way, between those two there was a different kind of line than between him and Seorin.
+But Sion didn't miss it. Whether Ater had been calming Sern down, or had simply spoken because he was uneasy himself, wasn't clear. Probably both. And whichever it was, there was a different kind of line between those two than the one between Sion and Seorin.
 
-Seorin read the atmosphere and redirected, perfectly natural.
+Seorin read the mood and turned the talk, very naturally.
 
-"Any food on this ship?"
+"Anything to eat on this ship?"
 
-Yona laughed short.
+Yona laughed.
 
-"Lower left of the cargo hold."
+"Cargo bay, lower left."
 
-Seorin rose and went to the cargo hold side.
-Opening the old steel box, inside were several sealed food packets and water. Not luxury, but edible.
+Seorin got up and went to the cargo bay.
+She opened an old steel box, and inside were a few sealed ration packets and some water. Not good stuff, but edible.
 
-"Nice. Emergency rations."
+"Emergency rations."
 
 "It's an emergency."
 
-Seorin tore one packet open and tossed it toward Sion.
-Sion caught it — then she held one out toward Ater as well.
+Seorin pulled one packet loose and tossed it to Sion.
+Sion caught it. Seorin held out the next one toward Ater as well.
 
-Ater looked at Seorin briefly.
-Seorin said, expressionless.
+Ater looked at Seorin for a moment.
+Seorin spoke without much expression.
 
-"Hungry and your judgment drops."
+"Hungry people make bad calls."
 
-Ater nodded short and took it.
-One went to Sern too. Sern received it and quietly broke the seal.
+Ater nodded and took it.
+One went to Sern too. Sern took it and quietly tore open the seal.
 
-Who distributed and who received — strangely — was making the relationships inside this ship slightly more visible. Seorin had chosen to be the one who gave; Ater had not refused. That was not trust, but at least it acknowledged: for now, they were people who ate together.
+Who handed things out and who took them was, oddly, making the relationships on this ship a little clearer. Seorin had chosen to be the one handing out, and Ater hadn't refused. Even if it wasn't trust, it at least amounted to admitting that, for now, they were people who ate together.
 
-Sion said, tearing his packet.
+Tearing open his packet, Sion said.
 
-"Can I ask one thing?"
+"Can I ask you something?"
 
-He was not looking at Ater's direction, but everyone knew where the words were headed.
+He wasn't looking at Ater, but everyone knew who it was meant for.
 
-"What."
+"What is it?"
 
-Ater received it, calm.
+Ater took it evenly.
 
-"Why did you come."
+"Why did you come?"
 
-Direct.
-Seorin frowned slightly but did not stop him.
+It was blunt.
+Seorin frowned slightly, but didn't stop him.
 
-Sion continued.
+Sion went on.
 
-"To be more precise. You don't need to be here right now. Normally."
+"Let me put it more precisely.
+You don't need to be here. Normally."
 
-Ater took one bite of the packet, swallowed slowly, and answered.
+Ater bit off a piece of the packet, swallowed slowly, and answered.
 
-"Because a person who should not normally be here — is here."
+"Because someone who normally should not be here is here."
 
-"That applies to me too."
+"That goes for me too."
 
 "I know."
 
 Sion laughed.
 
-"Is that your answer?"
+"That's your answer?"
 
 Ater thought for a moment.
-Then, in a voice slightly lower than usual, he said.
+Then he spoke in a voice a little lower than usual.
 
-"At first, I came to confirm an incorrect sequence. As someone from the Approval Bureau."
+"At first, I came to verify a wrong sequence.
+On behalf of the Approval Bureau."
 
 "And?"
 
-"I confirmed it."
-Ater said short.
-"But if I go back after confirming, that turns the confirmation into something that never happened."
-He paused very briefly, then added.
-"There are parts that cannot be explained by documents alone. If I do not confirm those at the scene, then even in my own language, it becomes a lie."
+"I verified it,"
+Ater said.
+"But if I go back after verifying it, that turns what I verified into something that never happened."
+He paused for just a moment, then added.
+"Some of it cannot be explained by documents alone. If I do not confirm that on site, then in the end it becomes a lie even in my own language."
 
-Sion heard that and took another bite of his packet.
-Chewed and thought. This person had not come out of resentment. Not rage either. More precisely — within his own system, he had encountered the kind of problem where seeing it and passing would make the system itself a lie.
+Sion listened and took another bite of the packet.
+He thought as he chewed. This man hadn't come out of grievance. Not out of anger, either. More precisely, he had run into the kind of problem where, judged from inside his own system, seeing it and letting it pass would make the system itself a lie.
 
-That was entirely different in entrance from where Sion had caught the scent of an erased name — but the endpoint was strangely the same.
+It was a completely different way in from Sion catching the scent of an erased name, but the end point was strangely the same.
 
-Sion said low.
+Sion swallowed what he'd been chewing.
 
-Sion swallowed what he was chewing.
-"So it's equally troublesome for both of us."
+"So either way, it's a pain for both of us."
 
-Ater showed no reaction and took another bite of the packet.
-But he did not deny it.
+Ater ate another bite of his packet without much reaction.
+But he didn't deny it either.
 
-Sern only listened to that exchange.
-His lord opening his own mouth to explain his reason — in Sern's memory, this was the first time. Until now, Ater had given orders and asked questions, but had never explained why he was here. That meant something had peeled one more layer off, inside this narrow ship.
+Sern only listened to the conversation.
+As far as Sern could remember, this was the first time his lordship had opened his mouth of his own accord to give his reason. Until now he had given orders and asked questions, but he had never explained why he was here. It also meant that something had been peeled back one more layer inside this narrow ship.
 
-Seorin opened a water packet and said.
+Opening a water packet, Seorin said.
 
-"Then let's confirm one more thing."
+"Then let's confirm just one more thing."
 
-Sion looked.
+Sion looked at her.
 
 "What."
 
 "What we do first when we arrive."
-Seorin's voice was not light. If the direction diverged from here, the functional cooperation barely aligned inside this ship could split again immediately.
+Seorin's voice wasn't light. If their directions split from here, the working cooperation they had only just pieced together on this ship could come apart again right away.
 
-Yona answered from the cockpit.
+Yona answered from the pilot's seat.
 
-"When you hit the access point, a connecting ship will be waiting. You transfer to the outer cluster line there — on that ship, there'll be someone Elia attached."
+"When we reach the access point, a connecting ship's on standby.
+There you switch to the outer line into the cluster, and on that line there'll be someone Elia set up."
 
 "Name?"
 
-"Not given yet."
+"Not giving it yet."
 
 Seorin clicked her tongue.
 
-"Till the end."
+"Right to the end, huh."
 
-"That's safest in places like this."
-Yona said, plain.
-"Know a name too early, and when you're caught — more to sell."
+"Out here, that's the safest way,"
+Yona said evenly.
+"Learn a name too early, and you've got more to sell when you get caught."
 
-Sion laughed small.
+Sion laughed quietly.
 
-"Nice. Second time today someone's talked about selling me out."
+"Second time today someone's brought up what I'd sell."
 
 "Not a good thing."
 
-"I know."
+"I know that too."
 
-Short silence passed.
-The air inside the ship was slightly thinner than before. Still not comfortable, but at least past the level of reflexively tensing at each other's breathing.
+The air in the ship had thinned a little since before. It still wasn't comfortable, but at least they were past tensing up at each other's breathing by reflex.
 
-Ater looked at the windowless outer wall.
-Not seeing outside was oddly better. Not knowing how far they'd come seemed, strangely, to lighten the weight of the choice. If the distance back were visible, it would shake — but invisible, there was nothing to do but go forward.
+Ater glanced once at the windowless outer wall.
+Not being able to see outside was actually better. Not knowing where they were seemed, strangely, to lighten the weight of the choice. When you can see how far it is back, you waver; when you can't, there's nothing to do but go forward.
 
-Sern said, very low.
+Sern spoke, very low.
 
-"How long until the access point."
+"How long until the access point?"
 
-Yona answered short.
+Yona answered.
 
 "Couple of hours."
 
-Sion leaned his back against the wall and said.
+Leaning his back against the wall, Sion said.
 
-"Then let's rest. We're going to run again the moment we arrive anyway."
+"Then let's rest a bit.
+We'll be running again once we get there anyway."
 
-Seorin, for the first time, did not argue.
-Instead she leaned her shoulder against the wall and half-closed her eyes. Not truly sleeping. Just the habit of resting the body as much as possible when it could. Though inside her head she was already sorting: at the next access point, who should speak first, who should cut, who should step back to minimize damage.
+For the first time, Seorin didn't argue with him.
+Instead she leaned her shoulder against the wall and half closed her eyes. She wasn't really sleeping. It was just her habit of resting as much as she could whenever her body could. Though in her head she was already working out, for the next access point, who should speak first, who should cut in and who should step back so they'd fail less badly.
 
 Ater closed his eyes too.
-In the darkness, his father Kairon's voice no longer surfaced.
-Instead, the words he had just spoken remained in his mind.
+In the dark, his father Kairon's voice no longer came to him.
+Instead, what he himself had just said stayed in his head.
 
-*If I go back after confirming, that turns the confirmation into something that never happened.*
+If I go back after verifying it, that turns what I verified into something that never happened.
 
-Those words had been said to Sion — but at the same time, to himself.
+He had said it to Sion, but he had also said it to himself.
 
 Only Sern still had his eyes open.
-He did not never-sleep, but in situations like this, he knew: staying awake last was always his share.
+It wasn't that he never slept, but he knew that in a situation like this, being the last one awake was always his share.
 
-## The ship kept running through the dark.<br>The destination was still far — but the place to return to had already grown farther.
+After a long while, he spoke, very low.
+
+"My lord."
+
+Ater did not open his eyes.
+
+"Speak."
+
+"About what I asked you in the repository."
+
+"When I entered the Approval Bureau."
+
+"Yes."
+
+"I did not answer."
+
+"I know."
+
+Sern glanced once toward the forward compartment. Both of them had their eyes closed. There was no telling whether they were asleep.
+
+"May I say it in your place?"
+
+"Do."
+
+"In the year you entered the Approval Bureau, my lord, I was sorting documents on the floor below."
+
+"I remember."
+
+"I also remember who held the adjudicator's seat that year."
+
+Ater opened his eyes.
+
+The hull's vibration surged up once, hard, then settled again. From the forward compartment, there was no sound.
+
+"Sern."
+
+"Yes."
+
+"Stop there."
+
+"I have stopped."
+
+"…Meaning you have not said anything yet?"
+
+"I have said nothing." Sern's voice did not change in the least. "Nor have you given any answer, my lord."
+
+For a while neither of them spoke.
+
+It was Ater who spoke first.
+
+"Sern. What do you call my father?"
+
+"His lordship, Kairon Valkar."
+
+"By his title."
+
+Sern did not answer for a moment. It was not that he didn't know the answer.
+
+"Standing Adjudicator of the Empire Approval Bureau."
+
+"Yes." Ater looked at the ceiling. "And I am his son, and right now I am chasing a sequence that was cut out from his own seat."
+
+Sern did not answer.
+
+"You are not answering?"
+
+"There was no question in what you just said, my lord."
+
+Ater held on to that answer for a long time.
+
+Then he laughed. It was the first time he had laughed today, and it was closer to one short breath let out than to anything you could call a laugh.
+
+"You really are an Approval Bureau man."
+
+"Yes."
+
+"That was not a compliment."
+
+"I know."
+
+Ater closed his eyes again.
+
+Being able to open something does not mean you should open it.
+
+His father had always been sitting where he could open things when he said it. All this time, Ater had heard only the first half of that sentence. Today, for the first time, he heard the second.
+
+The ship kept running through the dark.
+The destination was still far off, but the place they could go back to was already farther.
 
 ---
 

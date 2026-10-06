@@ -1,16 +1,16 @@
 # Capítulo 34 — El nombre que la gente tragaba
 
-Entrar en Hazran no significaba caminar derecho hacia el mercado que se veía a lo lejos.
+Entrar en Hazran no significaba caminar en línea recta hacia el mercado que se veía a lo lejos.
 
 Más bien era casi lo contrario.
 
-Si entrabas derecho, el aire de forastero se notaba demasiado. En cuanto dejaron la sombra del casco, los cuatro aflojaron el paso. Más que mover los pies deprisa, importaba ajustar antes el cuerpo al viento de este planeta y a las sombras de las naves muertas. Hazran no se sentía como un lugar que hablara primero, sino como un lugar que le ponía precio antes que nada al que se mostraba primero.
+Entrar en línea recta delataba demasiado el aire de forasteros. En cuanto salieron de la sombra del casco, los cuatro aflojaron el paso. Más que caminar deprisa, importaba ajustar antes el cuerpo al viento de este planeta y a las sombras de las naves muertas.
 
-Seorin caminaba más adelante que nadie. Sion iba pegado medio paso atrás, y Ater miraba más a menudo las huellas que quedaban bajo los pies y el eco adherido a las superficies metálicas que el campo de visión abierto. Kael, el último de todos, estaba menos atento a quién los seguía que a quién los miraba primero a ellos.
+Seorin iba en cabeza. Sion la seguía pegado, medio paso atrás, y Ater miraba más a menudo las huellas que quedaban bajo los pies y el eco adherido a las superficies metálicas que el campo abierto. Kael, el último, se ocupaba menos de quién les seguía los pasos que de leer quién los estaba mirando primero.
 
-La arena era más pesada de lo que parecía vista desde fuera. No era esa blandura en la que el pie se hunde, sino más bien un suelo prensado desde hacía mucho, mezclado con limaduras y ceniza. A cada paso, en vez de dispersarse con suavidad, un polvo seco raspaba fino bajo las suelas. Dentro de la sombra de las naves muertas todavía se aguantaba, pero en cuanto salías al sol, el calor atravesaba la tela al instante.
+A cada paso, un polvo seco raspaba fino bajo las suelas. Dentro de la sombra de las naves muertas todavía se aguantaba, pero en cuanto salías una vez al sol, el calor atravesaba la tela al instante.
 
-Tras caminar largo rato en silencio, Sion preguntó en voz baja:
+Tras caminar largo rato sin hablar, Sion preguntó en voz baja.
 
 —¿Siempre está así de silencioso?
 
@@ -18,219 +18,239 @@ Kael respondió en pocas palabras.
 
 —No es que esté silencioso.
 
-Lo dijo sin levantar la cabeza.
+Él lo dijo sin levantar la cabeza.
 
-—Es que nos están mirando primero.
+—Es que nos están viendo ellos primero.
 
-En cuanto terminaron esas palabras, Sion también lo sintió.
+En cuanto terminó de decirlo, Sion también lo sintió.
 
-Lo que había tomado por un vacío entre las naves muertas era en realidad un silencio tan hondo que no dejaba rastro humano. En las grietas de las cubiertas medio hundidas, en la sombra de las bodegas destripadas, bajo los paneles de casco ennegrecidos por el fuego, en cada punto había miradas. No se mostraban abiertamente, pero eran ojos que calculaban quién había entrado de dónde y qué traía. Hazran no era un lugar vacío, sino un lugar que callaba hasta terminar de fijar el precio.
+Los huecos entre las naves muertas, que había creído vacíos de gente, en realidad estaban tan callados que no delataban a nadie. En las grietas de las cubiertas medio hundidas, en la sombra de las bodegas destripadas, bajo cada panel exterior ennegrecido por el fuego, había miradas. Solo que no se mostraban abiertamente: eran ojos que medían quién había entrado por dónde y qué traía.
 
-Seorin dijo muy bajo:
+Seorin movió solo los labios.
 
 —Mira al frente.
 
-Sion no giró la cabeza. En momentos así, poner cara de saberlo todo era aún más peligroso.
+Sion no giró la cabeza. En momentos así, poner cara de saberlo todo era más peligroso.
 
-Un poco más adentro apareció algo que se podía llamar camino. Al principio eran solo huellas pisadas una y otra vez entre las sombras de las naves muertas; luego se superpusieron rodadas de ruedas, y un poco después llegó incluso un tramo corto con planchas de metal puestas en el suelo. No era una carretera oficial. Pero era una línea trazada por gente que entraba y salía sin parar en la misma dirección.
+Un poco más adentro apareció un rastro que podía llamarse camino. Al principio no eran más que pisadas marcadas una y otra vez entre las sombras de las naves muertas; luego se les superpusieron rodadas, y un poco después apareció incluso un tramo corto con planchas de hierro puestas en el suelo. No era una carretera oficial. Pero era una línea que la gente había hecho entrando y saliendo una y otra vez en la misma dirección.
 
-Ater dijo mirando hacia el suelo:
+Ater habló mirando al suelo.
 
-—Huellas de transporte.
+—Son huellas de transporte.
 
 —¿Qué crees que ha pasado por aquí?
-Sion preguntó.
+Sion lo preguntó.
 
-—Algo pesado.
-Ater respondió en pocas palabras.
+—Algo con peso.
+Ater respondió con brevedad.
 —Y a menudo.
 
-Kael añadió:
+Kael añadió.
 
 —Gente también.
 
-Sion no dejó pasar esas palabras. Ya sospechaba que en Hazran las piezas, el agua, el combustible y el valor de una persona podían quedar todos sobre la misma línea. Aquí parecía que distinguir quién era mercancía y quién era cliente llevaría mucho tiempo.
+Sion no dejó pasar esas palabras. Querían decir que aquí las piezas, el agua, el combustible y el precio de las personas se ponían todos sobre la misma línea.
 
-Lo primero que apareció al final del camino no era tanto un mercado, sino algo más cercano a la capa exterior de un mercado.
+Lo primero que apareció al final del camino, más que un mercado, era un paisaje cercano a la capa exterior de un mercado.
 
-Jirones de lona desgarrada colgaban torcidos entre armazones metálicos, y bidones de agua y de combustible empalmados a las prisas se amontonaban cerca del suelo, junto a viejas bodegas. Alguien limaba chatarra para hacer pequeñas planchas; alguien tendía tela de filtro a secar. En apariencia todo parecía provisional, y precisamente por eso parecía un lugar que había aguantado más tiempo. Como si aquí lo que no parecía nada decente sobreviviera más que lo que sí lo parecía.
+Jirones de lona rasgada colgaban torpemente entre armazones de metal, y junto al costado de viejas bodegas se amontonaban, cerca del suelo, bidones de agua y de combustible empalmados a toda prisa. Alguien limaba chatarra para hacer pequeñas planchas; alguien tendía a secar tela de filtro. A simple vista todo parecía provisional, y por eso mismo parecía un lugar que había aguantado más tiempo.
 
 El primero en hablar fue un niño.
 
-Un niño que no aparentaba ni diez años, mientras cargaba un cubo con restos de metal, se detuvo en seco y se quedó mirando fijo a los cuatro. Por mucho que hubieran querido ocultar el aire de forasteros, no se había borrado del todo, al parecer. El niño recorrió la cara de Sion, la ropa de Seorin, el equipo en las manos de Ater y, por último, el interior del abrigo de Kael, uno tras otro, y luego murmuró muy bajo:
+Un niño que no aparentaba ni diez años dejó a medias de cargar un cubo de virutas de metal y se quedó mirando fijo a los cuatro. Por mucho que hubieran querido esconder el aire de forasteros, por lo visto no se había borrado del todo. El niño recorrió, uno tras otro, la cara de Sion, la ropa de Seorin, el equipo que Ater llevaba en la mano y, por último, el interior de la ropa de Kael, y murmuró muy bajito.
 
 —Otra vez vinieron.
 
-Sion no fingió no haber oído.
+Sion no fingió que no lo había oído.
 
-—El qué —preguntó.
+—¿Qué cosa?
+Sion lo preguntó.
 
-El niño no respondió. En vez de eso, le dio la espalda y miró hacia la lona del fondo. Justo al instante siguiente, una mujer que estaba allí tiró del brazo del niño.
+El niño no respondió. En lugar de eso, se dio la vuelta y miró hacia la lona del fondo. Al instante siguiente, la mujer que estaba allí le tiró del brazo al niño.
 
-—No mires —dijo, baja y rápida—. Si te pillan mirando a los forasteros, lo primero que te recortan es tu propio precio.
+—No mires.
+Ella lo dijo bajo y rápido.
+—Si te enredas por mirar a los forasteros, lo primero que te rebajan es tu precio.
 
-Hablaba al niño, pero la mirada rozó un momento hacia Seorin.
+Se lo decía al niño, pero la mirada rozó un momento a Seorin.
 
-Seorin no reaccionó en absoluto. Solo que, sin detener el paso, pasó junto a la mujer y al niño con total naturalidad. Sion tampoco rompió ese ritmo. En un sitio así, en el momento en que te parabas a preguntar, ya empezaba el atraco.
+Seorin no reaccionó en absoluto. Solo que, sin detener el paso, pasó junto a la mujer y al niño con toda naturalidad. Sion tampoco rompió ese ritmo. En un sitio así, parecía que en el momento en que te parabas a preguntar ya empezaban a cobrarte de más.
 
 Un poco más adentro, el olor cambió de golpe.
 
-Entre el olor de la arena y las limaduras, empezaron a mezclarse el del aceite hervido mucho rato, el sudor humano y el de la tela de filtro empapada. Solo entonces se sintió que el mercado estaba cerca. Todavía eran las afueras, pero a partir de aquí no solo las mercancías, sino también las voces eran dinero.
+Entre el olor a arena y a limaduras de hierro empezaron a mezclarse el del aceite hervido largo rato, el sudor humano y el de la tela de filtro empapada. Solo entonces notaron que el mercado estaba cerca. Todavía eran las afueras, pero a partir de aquí no solo las mercancías: también las voces eran dinero.
 
-Kael dijo muy bajo:
+Kael habló muy bajo.
 
-—A partir de ahí, cada palabra lleva precio.
+—De ahí en adelante, hasta una palabra lleva precio.
 
-—Que lo digas tú lo hace todavía peor.
-Sion masculló.
+—Que lo digas tú me gusta todavía menos.
+Sion lo masculló.
 
-Kael, en vez de contestar, movió apenas la comisura de los labios, muy brevemente.
+Kael, en lugar de contestar, solo movió muy brevemente la comisura de los labios.
 
-Ese pequeño cambio, por extraño que pareciera, incomodó aún más a Sion. Este hombre no estaba descubriendo este lugar como algo ajeno; al contrario, lo leía con una soltura muy hecha.
+Aquel pequeño cambio, por extraño que fuera, incomodó todavía más a Sion. Este hombre no sentía este lugar como algo ajeno; al contrario, lo leía con mucha familiaridad.
 
-Seorin dijo mirando hacia delante:
+Seorin habló mirando hacia delante.
 
-—La información primero.
+—Información primero.
 
 Sion lo recogió enseguida.
 
 —¿La eterita y Aka?
 
 —Las dos.
-Seorin dijo.
-—Pero lo urgente es la eterita. Si el barco no puede despegar, dar con el nombre tampoco sirve de nada.
+Seorin lo dijo.
+—Pero lo urgente es la eterita. Si el barco no despega, aunque encontremos el nombre, se acabó todo.
 
-Ater rellenó en voz baja el hueco entre esas palabras:
+Ater llenó en voz baja el hueco entre esas palabras.
 
-—Es mejor separar las preguntas. En el momento en que la misma boca pregunta las dos, lo más probable es que el precio se dispare o que las aten juntas.
+—Sería mejor separar las preguntas. En cuanto la misma boca pregunte por las dos cosas, lo más probable es que el precio se dispare o que las aten juntas.
 
-Era verdad. Un forastero que busca eterita; un forastero que además busca un nombre desconocido. Cualquiera de las dos cosas por sí sola ya llamaba la atención; preguntar las dos a la vez, aquí, era casi como colgarse uno mismo una marca al cuello.
+Seorin miró una vez a Ater.
 
-Seorin lo resumió en pocas palabras:
+—¿Dónde aprendiste eso?
 
-—Bien. La eterita la toco yo primero. Sion, tú solo mira la reacción al nombre.
+—Así funcionaba ese trabajo.
 
-Sion asintió con la cabeza.
+Seorin no volvió a preguntar.
+
+Seorin lo resumió en pocas palabras.
+
+—Bien. La eterita la toco yo primero. Sion, tú solo mira cómo reaccionan al nombre.
+
+Sion asintió.
 
 —¿Y Ater?
 
-—Si alguno de los dos dice algo equivocado, lo cortas.
+—Tú, si entre las dos sale algo que no cuadra, lo cortas.
 Seorin respondió.
 
-Kael, sin preguntar siquiera, ya recorría con la vista los puestos y las manos de la gente alrededor. Quién tocaba la mercancía en persona, quién solo hablaba y se retiraba, quién no era el dueño y fingía serlo. Eran los ojos de alguien para quien los mercados no eran nada nuevo.
+Kael, sin preguntar nada más, recorría con la vista los puestos y las manos de la gente alrededor. Quién tocaba la mercancía con sus propias manos, quién solo hablaba y se echaba atrás, quién no era el dueño de aquí pero fingía serlo. Cosas así. Eran los ojos de alguien para quien un mercado no era nada nuevo.
 
-El primero en picar fue un hombre parecido a un vendedor de agua.
+El primero en picar fue un hombre con pinta de aguador.
 
-En cuanto vio acercarse a los cuatro, sonrió. No una sonrisa de bienvenida, sino la de alguien cuyo cálculo ya estaba hecho en la cabeza antes de abrir la boca.
+En cuanto vio acercarse a los cuatro, sonrió. No era la cara de quien sonríe por alegría, sino la sonrisa de alguien que ya había terminado de calcular, en su cabeza, hasta cuánto podía sacarles.
 
-—Caras que no había visto —dijo—. Tienen pinta de sed. Compren agua primero. En Hazran, el que tiene prisa es el que paga más caro.
+—Caras nuevas.
+Eso dijo él.
+—Tienen pinta de sed. Compren agua primero. En Hazran, el que tiene prisa es el que compra más caro.
 
 Seorin se detuvo.
 
-—¿Has visto eterita alguna vez?
+—¿Has visto eterita?
 
-La sonrisa del hombre vaciló de forma apenas perceptible.
+La sonrisa del hombre vaciló de forma casi imperceptible.
 
-—Mucha —respondió con desparpajo.
+—Mucha.
+Él respondió con desparpajo.
 —En polvo, en migajas, medio muerta. Si el precio cuadra, no hay nada que no se consiga.
 
-Seorin no pasó enseguida a la siguiente pregunta. En vez de eso, le miró un momento a los ojos y dijo en voz baja:
+Seorin no pasó enseguida a la siguiente pregunta. En lugar de eso, lo miró a los ojos un momento y habló bajo.
 
-—¿De la de verdad también?
+—¿Y de la de verdad?
 
 Esta vez fue el hombre quien calló primero.
 
-La sonrisa seguía ahí, pero los ojos cambiaron un poco. Era la cara de quien acababa de leer que esto no era una novata del mercado que había pillado un nombre cualquiera, sino al menos una mano que sabía lo que estaba preguntando.
+La sonrisa seguía ahí, pero los ojos cambiaron un poco. Era la expresión de quien acababa de leer que aquello no era una novata del mercado que había recogido un nombre cualquiera, sino, por lo menos, una mano que sabía lo que estaba preguntando.
 
-—¿Buscas de la de verdad? —preguntó a su vez.
+—¿Buscas de la de verdad?
+Él se lo preguntó de vuelta.
 —Entonces vas a tener que poner algo más que dinero.
 
-Kael dijo al lado, muy bajo:
+Kael soltó una frase desde el lado.
 
-—Es un atraco.
+—Eso es un robo.
 
-La oreja del hombre no perdió esas palabras.
+El oído del hombre no dejó escapar eso.
 
-—Tú, el del abrigo negro —dijo sonriendo—. ¿Vienes a Hazran y te extraña que sea un atraco?
+—Tú, el de negro.
+Él lo dijo sonriendo.
+—¿Dónde has visto algo en Hazran que no sea un robo?
 
-Sion, en ese hueco, estaba mirando hacia otro lado.
+Sion, en ese hueco, miraba hacia otro lado.
 
-Mientras la conversación giraba en torno a la eterita, las reacciones de la gente alrededor se dividían en dos. Una era la de los que solo olían el precio. La otra era la de los que, en cuanto oían esa palabra, fingían no haber oído nada y se alejaban aún más. La reacción que sale cuando es el nombre de algo de verdad valioso, o un nombre con el que enredarse trae problemas.
+Mientras se hablaba de eterita, las reacciones de la gente alrededor se dividieron en dos. Unos simplemente olían el precio. Otros, en cuanto oían esa palabra, fingían no haberla oído y se alejaban aún más. Era la reacción de cuando se trata del nombre de algo de verdad valioso, o de un nombre que, si te enredas con él, trae problemas.
 
-Por eso Sion preguntó, con una voz deliberadamente indiferente:
+Por eso Sion preguntó con una voz deliberadamente despreocupada.
 
-—Pues ya que estamos, déjame preguntar también por un nombre.
+—Entonces, déjame preguntar también por un nombre.
 
-La mirada de Seorin vino muy brevemente hacia aquí y pasó de largo. No lo cortó. Sion siguió hablando:
+La mirada de Seorin vino un instante hacia él y pasó de largo. No lo frenó. Sion siguió hablando.
 
 —Aka.
 
-Esta vez la cara del hombre se paró más claramente.
+Esta vez la cara del hombre se detuvo de forma más clara.
 
-Fue un instante, pero inconfundible. Antes de componer la cara de no saber, pasó primero la expresión de quien ya sabía.
+Fue apenas un instante, pero claro. Antes de componer la cara de no saber, cruzó primero la de quien sí sabía.
 
-Y más rápida aún fue una voz de niño que saltó desde el callejón de al lado.
+Y más rápida que eso fue una voz de niño que saltó desde el callejón de al lado.
 
-—¿La Aka de la brasa roja?
+—¿Aka, la de la brasa roja?
 
-Justo al instante siguiente, otra mano tapó la boca del niño.
+Al instante siguiente, otra mano le tapó la boca al niño.
 
-—Calla.
+—Cállate.
 
-Una voz baja y áspera.
+Era una voz baja y áspera.
 
-Las miradas de la gente se juntaron un momento en un solo punto y luego se dispersaron como si no hubiera pasado nada. Muy de Hazran: nadie se sorprendió abiertamente, nadie reaccionó de frente. En cambio, todos fingieron no haber oído demasiado deprisa. Y eso, en sí mismo, era la reacción más segura.
+Las miradas de la gente se juntaron un momento en un solo punto y luego se dispersaron como si no hubiera pasado nada. Todos fingieron no haber oído demasiado deprisa. Y eso era una reacción todavía más reveladora.
 
 Sion lo supo dentro de aquel breve silencio.
 
 Existe.
 
-Al menos, el nombre no es una ilusión.
+Al menos, el nombre no es un espejismo.
 Y aquí es un nombre que no se pronuncia a la ligera.
 
 Seorin habló primero.
 
-—Vaya —dijo en voz baja—. Ahora ya no vas a poder decir que no sabes nada.
+—Bien.
+Ella lo dijo en voz baja.
+—Ahora ya no vas a poder decir que no sabes.
 
-El vendedor de agua se volvió a colgar una sonrisa forzada.
+El aguador volvió a colgarse una sonrisa forzada.
 
-—¿Qué cambia por saber un nombre? —dijo—. En Hazran, el precio va antes que el nombre.
+—¿Qué cambia por saber un nombre?
+Eso dijo él.
+—En Hazran, el precio va antes que el nombre.
 
 —Eso es asunto tuyo.
-Seorin cortó.
-—Nosotros solo necesitamos encontrar dónde se fija ese precio.
+Seorin lo cortó.
+—Nosotros solo tenemos que encontrar dónde se fija ese precio.
 
-El hombre sonrió en vez de responder. Pero esta vez la sonrisa no tenía la ligereza de antes. Más que el gusto de desplumar a un forastero, lo que le entró primero a la cara fue la incomodidad de quien había tocado un nombre demasiado profundo y temía que se le moviera también su propio precio.
+El hombre sonrió en lugar de responder. Pero esta sonrisa no tenía la ligereza de antes. Lo que le entró primero en la cara no era el gusto de desplumar a un forastero, sino la incomodidad de quien teme que, por meter la mano sin necesidad en un nombre tan hondo, hasta su propio precio pueda tambalearse.
 
-Ater dijo muy bajo:
+Ater bajó la voz.
 
 —Esquiva el nombre.
 
-—Y la eterita la quiere vender.
-Sion masculló.
+—Y la eterita sí la quiere vender.
+Sion lo masculló.
 
-Kael dijo en pocas palabras:
+Kael habló con brevedad.
 
-—Las dos cosas podrían estar bajo la misma mano.
+—Puede que las dos cosas estén bajo la misma mano.
 
-Sion oyó esas palabras y aun así no las recogió enseguida. Ahora no era la fase de comprobar esa posibilidad, sino la de ver desde dónde empezaba el mercado a andar con cuidado.
+Sion lo oyó, pero no lo recogió enseguida. Lo que tocaba comprobar ahora no era eso, sino desde dónde empezaba este mercado a andarse con cuidado.
 
 En ese momento, un poco hacia fuera del centro del mercado, estalló un grito breve.
 
 —Eh, suelta eso.
 
-Antes de que pudieran girar la cabeza, saltaron uno tras otro golpes de metal contra metal. El ruido de una vieja bodega que se venía abajo, una voz que tragaba como un insulto, y los curiosos retrocediendo un compás tarde.
+Antes de que pudieran girar la cabeza, saltaron uno tras otro choques de metal. El ruido de una vieja bodega que se venía abajo, una voz que escupía un insulto como si se lo tragara, y los curiosos retrocediendo un compás tarde.
 
-Con aquel breve alboroto le bastó a Sion para saberlo.
+Sion lo supo solo con aquel breve alboroto.
 
-El aire de la capa exterior del mercado había cambiado una vez más.
+El aire de la capa exterior del mercado había cambiado otra vez.
 
-Del aire que tragaba los nombres,
-a un aire en el que todos veían quién había tocado por error lo de verdad.
+Del aire que se tragaba los nombres a un aire en el que todos miraban quién había tocado mal lo de verdad.
 
 Seorin ya tenía en los ojos la misma lectura.
 
-—Bien —dijo muy bajo—. Ahora sí que empieza de verdad.
+—Bien.
+Ella lo dijo sin sonreír.
+—Ahora empieza de verdad.
 
 ---
 

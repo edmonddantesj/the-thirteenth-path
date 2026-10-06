@@ -71,7 +71,7 @@ En cambio, dijo muy bajo.
 —Aquí no se salva lo roto.
 —Se hace más vistoso lo aprovechable.
 
-Esa sola frase clavó con demasiada exactitud toda la sensación del bajo nivel superior de Serakion.
+Esa sola frase clavó con demasiada exactitud toda la sensación de lo que hay bajo el nivel superior de Serakion.
 
 Salvar.
 Recuperar.
@@ -139,7 +139,7 @@ Kael dijo en voz baja.
 —Este lado no está hecho para extraer,
 sino para entregar.
 
-La segunda mano de recuperación reaccionó corta.
+La segunda mano de recuperación reaccionó corto.
 
 —Sí.
 —Por eso, si tocas algo aquí, casi todo se acaba.

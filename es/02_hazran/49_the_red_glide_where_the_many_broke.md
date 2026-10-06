@@ -1,171 +1,183 @@
 # Capítulo 49 — La pista roja donde tantos se quebraron
 
-En el instante en que la mano que sostenía la carga incandescente se alzó, hasta el aire de fuera del patio central se contrajo a la vez.
+En el instante en que la mano que sostenía la carga incandescente se alzó, hasta el aire de fuera del patio se tensó a la vez.
 
-Sion sintió la vibración de la nave antes que su propio corazón.
+Sion sintió la vibración del aparato antes que su propio corazón.
 
-El esquife que Han Jiwoo había elegido se veía aún más lamentable de cerca. El flanco izquierdo del casco había sido raspado y abierto de mala manera tiempo atrás y mostraba huellas de haber sido cosido a la fuerza; de las dos placas de sustentación de abajo, la derecha tardaba en elevarse de un modo visible a simple vista. La carcasa del motor estaba claramente atada una y otra vez con bandas metálicas gastadas y trozos de tela. Pero ella no dudó ni un instante en cuanto la vio. Una nave que, aun muriéndose, no ocultaba nada. Una que respondía solo en la medida exacta de la fuerza que le quedaba.
+El esquife que había escogido Han Jiwoo se veía todavía peor de cerca. El costado izquierdo del casco mostraba la huella de haberse abierto hacía mucho de un gran raspón y de haber sido cosido a la fuerza, y de las dos placas de sustentación inferiores, la derecha respondía con un retraso evidente al elevarse. La carcasa del motor también delataba que la habían atado varias veces con viejas bandas de metal y jirones de tela. Pero Han Jiwoo, nada más verlo, no dudó. Un aparato que, aunque se estaba muriendo, no escondía nada. Uno que respondía con exactitud solo en la medida de la fuerza que le quedaba.
 
-Cuando puso las manos, la barra de dirección y la palanca auxiliar temblaron un instante.
+Cuando ella puso las manos encima, la barra de dirección y la palanca auxiliar temblaron un instante.
 
-—Sube —dijo ella, breve.
+—Sube.
+Ella lo dijo, breve.
 
-Sion no preguntó nada más y subió al estribo auxiliar trasero. Bajo las plantas de los pies le subió de inmediato un fino temblor metálico. Inestable, pero una vibración que no mentía. Esta nave quizá no aguantara mucho, pero al menos le avisaría con el cuerpo, de antemano, por dónde iba a ceder.
+Sion no preguntó más y subió al estribo auxiliar de atrás. Bajo las plantas de los pies le subió enseguida un temblor fino de metal. Una vibración inestable, pero que no mentía. Quizá aquel aparato no aguantara mucho, pero al menos parecía que le avisaría con el cuerpo, de antemano, por dónde se iba a venir abajo.
 
-En el lado opuesto, Kael y Sern se montaron en un planeador más grueso y más torpe. El casco se veía pesado y romo, pero la armazón era sólida, y el bastidor inferior, bajo, parecía hecho para encajar los golpes de la zona de chatarra. Antes de subir, Sern presionó con la yema de un dedo uno de los ejes de dirección, midió con el ojo el leve desalineamiento y luego se acomodó sin una palabra. Kael, como si hubiera esperado a que terminara ese cálculo, bajó enseguida el cuerpo y encontró su centro.
+En el lado contrario, Kael y Sern se subieron a un planeador más grueso y torpe. El casco parecía pesado y lento, pero el armazón era sólido, y el bastidor inferior, bajo: un aparato que parecía capaz de aguantar bien los golpes de la zona de restos. Antes de subir, Sern presionó una vez con la yema de los dedos uno de los ejes de dirección, midió con la vista el ángulo levemente torcido y se acomodó sin decir gran cosa. Kael, como si hubiera esperado a que terminara ese cálculo, bajó el cuerpo enseguida y buscó el equilibrio.
 
-Los equipos locales de alrededor estaban mucho más curtidos.
+Los equipos locales de alrededor estaban mucho más acostumbrados.
 
-Algún equipo había atado al costado de su esquife unas cuantas placas metálicas más, como talismanes; otro, ya desde antes de la salida, empujaba con el hombro la nave vecina para crisparle los nervios. Un equipo con nombre —los campeones del año pasado, al parecer— conducía un planeador rojo oscuro, pulcro y sin nada de sobra, y se había colocado en la primera fila; dos equipos de forasteros temerarios hacían ya demasiado ruido. Sion supo por instinto que esa clase solía ser la primera en quebrarse.
+Algún equipo había atado unas cuantas placas de metal más al costado del esquife, como amuletos; otro, ya antes de la salida, empujaba con el hombro el aparato del equipo vecino para crisparle los nervios. Un equipo con nombre, quizá el campeón del año pasado, llevaba un planeador rojo oscuro bien puesto a punto, sin nada de sobra, y se había colocado en la primera fila; los dos equipos de temerarios de paso ya hacían demasiado ruido. Sion supo por instinto que esa clase solía ser la primera en romperse.
 
-Entre las carpas rojas y las gradas improvisadas, vendedores de agua y apostadores, desguazadores y pistoleros, todos se inclinaban hacia delante. Uno apretaba su apuesta en el puño, otro gritaba ya nombres, otro contaba cuántos equipos volcarían esta noche.
+Entre las lonas rojas y las gradas improvisadas, aguadores y apostadores, desguazadores y pistoleros, todos se inclinaban hacia delante. Unos apretaban su apuesta, otros ya gritaban nombres, otros contaban cuántos equipos iban a volcar esa noche.
 
-Harún estaba de pie junto a la línea de salida; Nasim, un poco más atrás, barría las caras como si leyera, a la vez, de qué modo se movían las cuotas. Aka no salió finalmente de la sombra del fondo, pero incluso desde lejos Sion sintió que su mirada miraba antes la primera ruta que se alejaba de la línea de salida.
+Harún estaba de pie junto a la línea de salida; Nasim, un poco más atrás, recorría las caras de la gente como si leyera, a la vez, hacia dónde se movían las cuotas. Aka no llegó a salir de la sombra del interior, pero incluso desde lejos Sion sintió que su mirada estaba puesta antes en la línea de salida y en la primera ruta que se alejaba de ella.
 
-En lo alto del pilar, la carga incandescente estalló.
+En lo alto del pilar estalló la carga incandescente.
 
-Una llama roja saltó breve y áspera sobre el aire nocturno,
+Una llama roja saltó breve y áspera sobre el aire de la noche,
 y en el instante en que esa brasa trazó una parábola y cayó sobre la arena,
-doce naves salieron disparadas casi al mismo tiempo.
+los doce aparatos salieron disparados casi a la vez.
 
-El primer impacto no fue el sonido, sino la arena.
+El primer impacto no fue el ruido, sino la arena.
 
-Cuando los esquifes alzaron de golpe sus placas de sustentación a la entrada de la pista roja, una arena fina y seca se levantó como un muro. Justo antes de perder del todo la vista, Sion sintió que Han Jiwoo se metía precisamente en ese instante en que la visión moría. En el momento en que los demás perdían un compás buscando confirmar sus posiciones, ella ya había leído con el cuerpo la línea más despejada.
+Cuando los esquifes alzaron a la vez sus placas de sustentación a la entrada de la pista roja, una arena fina y seca se levantó como un muro. Justo antes de perder del todo la vista de delante, Sion sintió que Han Jiwoo, al contrario, se metía la primera en ese momento en que moría la visión. En el instante en que los demás perdían un compás tratando de comprobar sus posiciones, Han Jiwoo ya había leído con el cuerpo la línea más vacía.
 
 A la izquierda sonó un chirrido de metal.
 
-Un equipo trató de empujar la nave de al lado y destrozó antes el borde de su propia placa de sustentación. Chispas y arena saltaron de golpe, y antes de que nadie alcanzara a soltar una maldición, esa nave se torció de lado y se incrustó fuera de la pista.
+Un equipo, al intentar apartar el aparato de al lado, se destrozó antes la punta de su propia placa de sustentación. Chispas y arena saltaron a la vez y, antes de que nadie alcanzara a soltar un insulto, el aparato de ese equipo se torció de lado y se estrelló fuera de la pista.
 
-Desde un lado de las gradas estallaron a la vez gritos de espanto y vítores.
+En un lado de las gradas estallaron a la vez gritos y vítores.
 
-—Mira solo al frente —dijo Han Jiwoo en voz baja—. Los lados los miro yo.
+—Mira solo al frente.
+Han Jiwoo lo dijo en voz baja.
+—Los lados los miro yo.
 
 Sion fijó la mirada al frente de inmediato.
 
-La pista roja no era un simple camino de arena llano. Era un tramo donde el suelo apisonado de las afueras del mercado de chatarra mezclaba por zonas finos hilos metálicos y terreno vitrificado endurecido, hecho para dar velocidad y, al mismo tiempo, para hacerte resbalar en cuanto fallaras una vez. En la superficie todas las líneas parecían iguales, pero según el flujo de los granos de arena, la dirección del viento y las huellas dejadas por otras naves, la línea que aguantaba variaba de manera imperceptible.
+La pista roja no era un simple camino de arena llano. Era un tramo hecho con el suelo apisonado de las afueras del mercado de chatarra, mezclado aquí y allá con finas líneas metálicas y suelo vítreo endurecido: un tramo que te hacía correr y, al mismo tiempo, te hacía resbalar en cuanto fallabas una vez. Por fuera todas las líneas parecían iguales, pero según el flujo de los granos de arena, la dirección del viento y las huellas que dejaban otros aparatos, la línea que aguantaba cambiaba un poco.
 
-Sion empezó a leer dónde, delante de él, la arena se adelgazaba en una línea y dónde, de pronto, se compactaba en otra. Dónde acababa de pasar alguien, qué lado era más firme, dónde se formaría el próximo punto de choque. Aún no había tiempo de pensar a fondo. En su lugar, el cuerpo leía primero.
+Sion empezó a ver en qué línea se adelgazaba el flujo de arena que tenía delante y en cuál, de pronto, se comprimía. Por dónde acababa de pasar alguien, qué lado era más firme, dónde estaría el próximo punto de choque. Todavía no había tiempo de pensarlo a fondo. En cambio, el cuerpo lo leía primero.
 
-—Dos líneas a la derecha, atrás, está libre —dijo.
+—Dos líneas a la derecha, detrás, está libre.
+Lo dijo él.
 
-Han Jiwoo, sin preguntar, tumbó la nave hacia ese lado.
+Han Jiwoo, sin preguntar siquiera, inclinó el aparato hacia ese lado.
 
-El esquife se coló rozando el borde del muro de arena. Justo delante, dos equipos se empujaban entre sí y chocaron casco contra casco; uno perdió la dirección y giró fuera de la pista, al otro se le atragantó el motor y perdió velocidad. Han Jiwoo cortó ese hueco casi como una hoja.
+El esquife se metió casi rozando el borde del muro de arena. Justo delante, dos equipos se empujaban y chocaron casco contra casco; uno perdió la dirección y salió girando fuera de la pista, y al otro el motor le dio un hipo y perdió velocidad. Han Jiwoo atravesó ese hueco cortándolo casi como una hoja.
 
-Sion solo entonces respiró, con retraso.
+Solo entonces, con retraso, respiró Sion.
 
-Un pilotaje demente.
+Era un pilotaje de locos.
 
-No era que fuera rápida,
-sino un pilotaje que leía de antemano el instante en que los demás se hacían pedazos y lo convertía en pasadizo.
+No era que fuese rápido, sino un pilotaje que leía de antemano el momento en que los demás se hacían pedazos y lo convertía en pasadizo.
 
-En la línea exterior del norte, el equipo de Kael y Sern aún no iba en cabeza. En cambio, aquel planeador de aspecto torpe se sacudía menos de lo previsto. Cuando los demás, embriagados por la velocidad inicial, alzaban con brusquedad sus placas de sustentación, Kael no forzaba más la nave. Cuando Sern hacía un breve gesto con la mano, él cambiaba el ángulo justo esa medida, y gracias a ello, incluso en el borde exterior donde se amontonaban los choques menores, su línea apenas se deshacía.
+En la línea exterior norte, el equipo de Kael y Sern todavía no iba en cabeza. Pero aquel planeador de aspecto torpe se sacudía menos de lo esperado. Cuando los demás, embriagados por la velocidad del principio, alzaban con brusquedad las placas de sustentación, Kael no forzaba más el aparato. Cuando Sern hacía un gesto breve con la mano, cambiaba el ángulo solo esa medida, y gracias a eso su línea apenas se deshacía, incluso en el borde exterior donde se amontonaban los choques menores.
 
-—¿Ahora estás guardando? —preguntó Kael, breve.
+—Ahora estás ahorrando, ¿no?
+Kael lo preguntó, breve.
 
-—Si nos quebramos ahora, se acabó —respondió Sern—. La pista parece larga, pero es un tramo donde primero se amontonan los equipos que se tiran a perder.
+—Si nos rompemos ahora, se acabó.
+Eso respondió Sern.
+—La pista parece larga, pero es el tramo donde primero se amontonan los equipos descartados.
 
-Antes de que terminara esa frase, un esquife de delante raspó el costado a lo ancho y salió rebotado. Uno de los ocupantes perdió el equilibrio y estuvo a punto de caer, y Kael, por instinto, empujó la nave fuera de aquella línea de choque. El planeador era lento, pero sólido. Cuando las naves finas y rápidas se retorcían, aquella sencillamente aguantaba.
+Antes de que terminara de decirlo, delante, un esquife se raspó el costado a lo largo y salió rebotado hacia arriba. Uno de los que iban montados perdió el equilibrio y estuvo a punto de caerse, y Kael, por instinto, sacó el aparato fuera de esa línea de choque. El planeador era lento, pero sólido. Cuando los aparatos finos y rápidos se retorcían, aquel simplemente aguantaba.
 
-Desde las gradas del patio central, los nombres empezaron a estallar más fuerte.
+Desde las gradas del patio, los nombres empezaron a estallar más fuerte.
 
 Alguien gritaba el nombre del equipo campeón del año pasado,
-alguien lanzaba abucheos redoblados a los dos equipos forasteros,
-alguien voceaba que el dinero ya había cambiado de manos.
+alguien les lanzaba abucheos más fuertes a los dos equipos forasteros,
+alguien voceaba que el dinero ya había cambiado de lado.
 
-Luhai se había encaramado, casi colgado, a la baranda de la carpa roja, y miraba hacia abajo.
+Luhai se había subido a la baranda de una lona roja, casi colgado de ella, y miraba hacia abajo.
 
-—Vaya, qué locura de verdad —murmuró—. Aquí filtran a la gente desde el principio.
+—Vaya, esto es una locura.
+Lo murmuró.
+—Aquí van descartando gente desde el principio.
 
-Seorin, en vez de responder, clavó la mirada en el fondo de la pista.
+Seorin, en lugar de responder, clavó la vista en el fondo de la pista.
 
-—Cuantos más se quiebren al principio, más preciso se vuelve el final —dijo Ater en voz baja—. Querrán dejar solo las manos capaces de llegar hasta la capa de calor.
+—Cuantos más se rompen al principio, más exacto se vuelve lo de atrás.
+Ater lo dijo en voz baja.
+—Querrán dejar solo las manos que puedan llegar hasta la capa térmica.
 
-Luhai oyó eso y cerró la boca. Porque, para su fastidio, era verdad.
+Luhai, al oírlo, cerró la boca. Porque, para su fastidio, tenía razón.
 
-Cuando entraron en la mitad de la pista, los huecos entre los equipos supervivientes empezaron a abrirse muy poco a poco.
+Al entrar en la mitad de la pista, los huecos entre los equipos supervivientes empezaron a abrirse muy poco a poco.
 
-De los dos equipos de forasteros temerarios, uno ya se había incrustado fuera de la pista, volcado; un equipo de contrabandistas había esquivado los choques iniciales, pero se quedaba atrás con el motor muerto. En cambio, el planeador rojo oscuro que parecía el de los campeones del año pasado corría sin nada de sobra por la línea exterior más firme, manteniéndose en cabeza.
+De los dos equipos de temerarios de paso, uno ya se había estrellado fuera de la pista y había volcado; un equipo de contrabandistas había esquivado los choques del principio, pero, con la respuesta del motor muerta, se iba quedando atrás. En cambio, el planeador rojo oscuro que parecía del equipo campeón del año pasado iba por la línea firme más exterior, sin nada de sobra, y se mantenía en el grupo de cabeza.
 
-Han Jiwoo miró un instante a ese equipo y dijo.
+Han Jiwoo miró a ese equipo de pasada y habló.
 
-—Esa lleva otra clase de nave desde el principio.
+—Ese aparato es distinto desde el principio.
 
 Sion también lo vio.
 
-Menos una nave demasiado buena que la sensación de algo perfeccionado con el tiempo por alguien que había sobrevivido mucho en este terreno. Rápida, baja, y la respuesta no dudaba.
+No tanto un aparato demasiado bueno como la sensación de algo terminado a fuerza de arreglos por alguien que había aguantado mucho tiempo en ese terreno. Rápido, bajo, con una respuesta que no dudaba.
 
-—¿Puedes pegarte? —preguntó Sion.
+—¿Puedes pegarte?
+Lo preguntó Sion.
 
 Han Jiwoo no respondió enseguida.
 
-En cambio, torció muy brevemente la barra de dirección para leer el temblor del esquife y dijo en voz baja.
+En su lugar, torció muy brevemente la barra de dirección para leer el temblor del esquife y habló en voz baja.
 
-—Ahora no —dijo—. A esta hay que encontrarle primero la línea donde aguanta.
+—Ahora no me pego.
+Ella lo dijo.
+—A este hay que encontrarle primero la línea en la que aguanta.
 
-A Sion le gustó esa respuesta. No perseguir la cabeza a lo loco y quebrarse, sino buscar primero la línea donde esta nave podía vivir. Eso también era lo más propio de Han Jiwoo en ese momento.
+A Sion le gustó esa respuesta. No perseguir a la fuerza la cabeza hasta romperse, sino buscar primero la línea en la que ese aparato podía vivir. Eso, además, era muy propio de Han Jiwoo en ese momento.
 
-Al entrar en la parte final de la pista, la dirección del viento cambió de forma imperceptible.
+Al entrar en la última parte de la pista, la dirección del viento cambió un poco.
 
-Las columnas de arena levantadas delante no taparon la vista de golpe, pero sacudieron las líneas de las naves supervivientes de un modo más solapado. En apariencia era una llanura ancha, pero en realidad era una criba, el último filtro que apartaba a la gente una vez más antes de la entrada al tramo siguiente.
+Las columnas de arena levantadas delante no taparon la vista de golpe, pero sacudieron con más astucia las líneas de los aparatos supervivientes. Parecía una llanura ancha, pero en realidad era una especie de criba que filtraba a la gente por última vez antes de entrar en el tramo siguiente.
 
-Sion lo captó de inmediato.
+Sion se dio cuenta enseguida.
 
-A la izquierda, la arena era fina; a la derecha, el choque de antes había dejado al descubierto la placa endurecida de abajo. En la superficie la derecha parecía más firme, pero en un tramo así la nave salta al instante siguiente.
+A la izquierda la arena era fina; a la derecha, el choque de hacía un momento había dejado al descubierto la placa dura de abajo. Por fuera la derecha parecía más firme, pero en tramos así el aparato salía rebotado al instante siguiente.
 
-—La tercera por la izquierda —dijo en el acto—. Ahora mismo, ahí es donde menos se muere.
+—La tercera de la izquierda.
+Lo dijo enseguida.
+—Ahora ahí se muere menos.
 
-Han Jiwoo, sin esbozar siquiera una sonrisa, mordió esa línea.
+Han Jiwoo, sin sonreír siquiera, mordió esa línea.
 
-Justo al lado, otro equipo tomó la placa expuesta de la derecha. El primer medio compás pareció más rápido. Pero pronto el casco saltó con fuerza desde abajo y la dirección se desvió un poco. Aquel solo y mínimo desfase bastó: la placa de sustentación del equipo de detrás raspó el costado, y las dos naves perdieron el equilibrio a la vez.
+Justo al lado, otro equipo tomó la placa expuesta de la derecha. El primer medio compás pareció más rápido. Pero enseguida el casco dio un gran salto desde abajo y la dirección se torció un poco. Con ese único y breve desajuste, la placa de sustentación del equipo de detrás le raspó el costado, y los dos aparatos perdieron el equilibrio a la vez.
 
-Han Jiwoo se escabulló hacia fuera y dijo, muy breve.
+Han Jiwoo se escabulló por fuera y habló muy breve.
 
-—Bien visto.
+—Cierto.
 
-A Sion esas dos palabras le entraron con un peso extrañamente mayor.
+A Sion esa sola palabra le entró, extrañamente, con más fuerza.
 
-Porque en esta pista, ahora mismo,
-sus ojos no eran un simple apoyo,
-sino que estaban salvando de verdad la nave.
+Porque quería decir que, en esa pista, sus ojos no eran un simple apoyo, sino que estaban salvando de verdad el aparato.
 
-En la línea del norte, Kael y Sern también remontaban poco a poco.
+En la línea norte, Kael y Sern también iban subiendo poco a poco.
 
-Sern leía los ángulos de los restos dejados por los equipos caídos y las huellas de deslizamiento para señalar la siguiente línea libre, y Kael empujaba la nave solo lo bruscamente que podía soportar. Los dos no eran nada vistosos, pero a medida que se amontonaban los equipos que se hacían pedazos antes, su puesto, al contrario, subía.
+Sern miraba el ángulo de los restos y las huellas de deslizamiento que dejaban los equipos caídos y le señalaba la siguiente línea vacía, y Kael empujaba el aparato con toda la brusquedad que este podía aguantar. No eran nada vistosos, pero cuantos más equipos se hacían pedazos antes, más subían ellos en la clasificación.
 
-—Quedan tres —dijo Sern, breve.
+—Quedan tres.
+Sern lo dijo, breve.
 
 —¿Delante?
 
 —De los que pueden cerrarnos el paso.
 
-Kael, en vez de responder, bajó aún más el morro del planeador.
+Kael, en lugar de contestar, bajó todavía más el morro del planeador.
 
-Cuanto más se acercaba el final de la pista, menos buscaban empujarse los equipos supervivientes y más empezaban a leer primero la línea de entrada al tramo siguiente. La verdadera carrera aún no había terminado, y todos sabían que esto no era más que la primera criba.
+Cuanto más se acercaba el final de la pista, menos se apartaban unos a otros los equipos supervivientes y más empezaban a leer primero la línea de entrada al tramo siguiente. La carrera de verdad todavía no había terminado, y todos sabían que aquello no era más que la primera criba.
 
-Sion vio a lo lejos la primera armazón de la zona de chatarra de cascos desguazados alzarse en la oscuridad.
+A lo lejos, Sion vio alzarse en la oscuridad el primer armazón de la zona de restos de naves muertas.
 
-Si la pista roja había filtrado a la gente por la velocidad,
-lo siguiente filtraría por la lectura del camino.
+Si la pista roja había filtrado a la gente por la velocidad, lo siguiente la filtraría por la lectura del camino.
 
-Y a partir de ahí,
-su papel pesaría aún más.
+Y a partir de ahí, su papel iba a ser más grande.
 
-Han Jiwoo dijo en voz baja.
+Han Jiwoo habló en voz baja.
 
-—Ahora empieza de verdad.
+—Ahora empieza lo de verdad.
 
-Sion respondió en el acto.
+Sion respondió enseguida.
 
 —Lo sé.
 
-En ese instante, salvando la última curva de la pista roja, las naves supervivientes empezaron a dejarse aspirar casi a la vez hacia la entrada del tramo siguiente.
+En ese momento, pasando la última curva de la pista roja, los aparatos supervivientes empezaron a ser absorbidos casi a la vez por la entrada del tramo siguiente.
 
-Detrás seguía estallando el ruido del metal que se rompía y los insultos,
-delante, la sombra de la chatarra de cascos desguazados abría la boca,
-y en el patio central, los gritos y las apuestas seguían vivos y en movimiento.
+Detrás seguían estallando ruidos de metal roto e insultos,
+delante, la sombra de los restos de naves muertas abría la boca,
+y en el patio todavía seguían vivos los gritos y las apuestas.
 
-La carrera de la brasa no hacía más que empezar.
+La carrera de la brasa no había hecho más que empezar.
 
 ---
 

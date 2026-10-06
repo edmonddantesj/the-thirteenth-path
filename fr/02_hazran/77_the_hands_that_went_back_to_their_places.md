@@ -1,206 +1,260 @@
 # Chapitre 77 — Les mains qui revinrent à leur place
 
+« Et toi, où ? »
 
-Après avoir entendu les signes,
-Hazran n'a pas hésité longtemps.
+C'était Seorin qui demandait.
 
-C'était la manière de faire de cette ville.
+Sion ne sut pas répondre tout de suite.
 
-Ne parlez pas longtemps de la peur.
-Remettez d'abord le corps à sa place.
+Autour d'eux, personne ne posait cette question. Tous savaient déjà où ils allaient, et ils y allaient. Comme personne ne demandait, demander paraissait étrange.
 
-Sion a observé le changement de près.
+« Je ne sais pas. »
 
-Les produits légers qui étaient accrochés à l'extérieur du marché il y a quelques instants avaient disparu. De nouvelles plaques de métal ont été placées le long des bords endommagés de l'arène. Les tentes ont été nouées, non pas dans un angle destiné à être vendu, mais pour bloquer et dévier. Les conteneurs d'eau se sont déplacés plus loin à l'intérieur. Les longues bandes de tissu drapées entre les allées ne devenaient pas des brise-vent mais des coupures de vue, brisant les lignes de vision.
+« Alors va trouver. »
 
-Hazran ne s'est pas aligné comme une armée.
-Et c'est pourquoi c'était plus rapide.
+« Comment ? »
 
-Chacun connaissait son secteur.
-Que masquer en premier.
-Que soulever en premier.
-Éléments à jeter.
+« Va partout. »
 
-Zahir n’a pas crié de haut.
+Sur ce, Seorin rejoignit son propre poste. Sion ne vit pas où. Elle ne montrait jamais qu'elle y allait ; elle y était déjà.
 
-Il se tenait là où le centre du marché, la ligne de retour et les voies navigables extérieures se chevauchaient dans une seule vue, et balayait les gens une fois chacun. Qui avait déjà déménagé. Qui ne savait toujours pas lire dans l'air. Qui avait besoin de plus de mots et qui pouvait être envoyé sans aucun. Ce regard était plus rapide que le son.
+Sion se mit à courir.
 
-« Fermez la moitié de la conduite de retour. »
-Il a dit, bas.
-« Ne le scellez pas complètement. Laissez une issue. »
+En une matinée, le marché avait pris une tout autre forme.
 
-Haroun l'a pris immédiatement.
+Les étals n'avaient pas disparu ; leur angle avait changé. Jusqu'à hier, ils étaient inclinés pour bien montrer la marchandise ; maintenant, ils étaient dressés de façon à masquer une fois quiconque passait devant. Les cordes des tentes avaient été renouées, elles aussi. Pas à l'angle qui sert à vendre, mais à celui qui sert à bloquer et à dévier.
 
-« Le périmètre extérieur? »
+Les pans de toile tendus en longueur entre les ruelles étaient toujours là, mais leur usage avait changé. Ce qui arrêtait le vent coupait maintenant la vue, une fois.
 
-« Laissez-le ouvert. »
-Zahir a répondu.
-« Laissez-les entrer. Faites-les marcher longtemps. »
+Dans chaque ruelle, deux bidons d'eau étaient collés contre le mur. Jusqu'à hier, ils étaient dans les maisons.
 
-Dès l’instant où Sion a entendu cet échange, il a compris.
+Personne n'avait donné d'ordre. Et pourtant, la ville entière bougeait dans la même direction.
 
-Hazran n'a pas essayé de résister à une collision frontale dès le départ.
-Laissez-les entrer.
-Étirez la route.
-Tenez en pressant le désert et le marché contre le camp ennemi.
+Zahir ne se tenait ni au centre du marché, ni dans la partie.
 
-Haroun bougeait comme quelqu'un qui était déjà parvenu à cette conclusion.
+C'était un endroit d'où l'on voyait d'un seul coup la ligne de retour, le canal extérieur et le centre du marché. Sion s'y arrêta et regarda les trois directions l'une après l'autre. De quelque côté qu'il tourne la tête, la vue portait jusqu'au bout.
 
-Il a divisé le personnel de la ligne de retour en trois groupes. Un pour revérifier les voies navigables extérieures. Un pour utiliser la ligne d’épave de l’arène. Un pour renforcer les issues de secours intérieures. Le visage de l'homme qui avait été puni hier persistait encore, mais il n'avait plus le temps de s'asseoir là-dessus maintenant. Devant une ligne défensive, les hommes qui connaissaient le mieux le combat n'avaient d'autre choix que de se placer à nouveau au front.
+Ce n'était pas un endroit choisi au hasard.
 
-Les sentiments de Seorin en regardant cela étaient compliqués.
+« Ferme la moitié de la ligne de retour. »
+Zahir parlait bas.
+« Ne la bouche pas complètement. Laisse une voie pour se retirer. »
 
-Un homme qu'elle n'aimait pas.
-Mais il était également vrai que personne ne correspondait mieux à ce poste que lui.
-Ce fait était la partie la plus désagréable.
+« Et la ligne extérieure ? »
+Sion avait posé la question.
 
-Kael était déjà en train de réorganiser les chutes de métal disposées devant lui.
+Zahir répondit sans regarder Sion.
 
-« Cela va à l'intérieur. »
-Il a dit.
-« Cela renforce la barrière extérieure. Cela reste. »
+« On la laisse vide. »
 
-Jiwoo l'a pris tout de suite.
+« Vide ? »
 
-« Raison de le conserver? »
+« On les laisse entrer, et on les fait marcher longtemps. »
 
-« Lumière. »
-Kael a répondu.
-« Ne tiendra pas bien, mais pour réparer ce qui tremble en ce moment, c'est mieux que rien. »
+À ces mots, Sion s'arrêta un instant.
 
-Jiwoo fit un bref signe de tête.
+Il ne s'agissait pas de bloquer, mais de faire marcher. Hazran n'avait aucune intention de tenir en se heurtant de front. Elle les ferait entrer, allongerait le chemin, et les livrerait ensemble aux morsures du désert et du marché.
 
-Les deux n'ont pas parlé longtemps.
-Mais dans ces mots courts, réparation et défense étaient déjà réunies. Les matériaux nécessaires à la sauvegarde de la coque et ceux permettant à Hazran de survivre ce soir n'étaient plus des choses entièrement distinctes.
+« Et s'ils marchent longtemps ? »
 
-Aka se tenait à côté d'eux, observant le flux d'air devant les mains des ouvriers.
+« Ils usent leur eau. »
 
-Sion comprenait un peu maintenant ce que c'était.
-Aka ne regardait pas les objets.
-Elle écoutait ce qui mourrait en premier et ce qui mourrait tard.
+« Et ensuite ? »
 
-« À l’intérieur en premier. »
-Elle a dit, bas.
+« Ensuite, ils s'étirent tout seuls. »
 
-Jiwoo a immédiatement demandé.
+Sion fit tourner ces mots deux fois. Étirer la file pour l'amincir. C'était ce que Hazran avait appris du désert. Ici, on pouvait leur faire perdre du monde sans tuer personne.
 
-« Le vaisseau? »
+« Et ici ? »
 
-Aka fit un bref signe de tête.
+« Ici, c'est le dernier endroit. »
 
-« Il est plus lent que les humains. »
-Elle a dit.
-« Alors collez-le d'abord. »
+À ces mots, Sion jeta un regard derrière lui. La coque était là.
 
-Sion a entendu cela et a tout de suite compris.
+Sion reprit sa course.
 
-Les gens courent lorsqu'ils sentent un danger.
-Une ville se replie.
-Mais un navire à moitié mort ne peut pas tenir ainsi.
-Donc, avant que la guerre n'arrive vraiment,
-vous devez lier les pièces qui l'aident à durer, au minimum, avant toute autre chose.
+Haroun était du côté de la ligne de retour.
 
-Sern continuait à lire les signaux de l'extérieur.
+Il répartissait les gens en trois groupes. Un pour revérifier le canal extérieur, un pour la ligne des débris de l'arène, un pour renforcer les voies de sortie à l'intérieur.
 
-Il s'est arrêté deux fois,
-a ensuite parlé assez bas pour que seul Ater puisse l'entendre.
+Sion demanda ce qu'était le troisième.
 
-« Régulier. »
+« Les voies de sortie ? »
 
-Ater a répondu immédiatement.
+« Oui. »
 
-« Les machines ne s'arrêtent pas pour reprendre leur souffle. »
+« Pourquoi vous faites ça en premier, maintenant ? »
 
-« Des forces humaines seront également mélangées. »
+Haroun répondit sans arrêter ses mains.
 
-« Très probablement. »
-Ater a déclaré.
-« La question n’est pas de savoir qui entre en charge. »
+« Si on le fait plus tard, il faudra le faire là où c'est bouché. »
 
-Sern le regarda.
+« Et si c'est bouché ? »
 
-Ater ajouta sans tourner le regard.
+« Ouvrir un chemin là où c'est bouché, c'est ce qui coûte le plus cher. »
 
-« C'est celui qui entre sans rien. »
+Sion se mit ces mots en tête.
 
-Les mots étaient courts,
-mais Sion les comprit étrangement vite.
+Cet homme fixait d'abord par où se retirer, avant même ce qu'il faudrait bloquer. Le visage de celui qu'on avait puni la veille était encore là, mais autre chose s'était posé par-dessus. Le visage de quelqu'un qui savait mieux que personne qu'à cet endroit, en ce moment, nul autre que lui ne pouvait tenir.
 
-L'Empire dirigera avec les machines.
-L'Alliance calculera derrière ces machines.
-Tous deux tenteront de réduire le sang sur leurs mains.
-Ce qui signifie que ce côté saigne davantage.
+En envoyant les gens, Haroun leur touchait l'épaule, un par un.
 
-Luhai n'a pas plaisanté cette fois.
+Il ne disait rien en même temps. Toucher, envoyer, toucher, envoyer. Sion comprit plus tard que c'était un geste pour compter. Un homme qui comptait de la main combien partaient.
 
-Il a parcouru le marché intérieur pour recueillir les paroles des gens, vérifiant la situation des voies navigables, demandant à nouveau si les informations éthériques promises à l'aube étaient toujours valables. Malgré tout cela, son visage n’était pas complètement mort.
+Sion alla vers l'intérieur.
 
-Non pas qu'il ne connaissait pas la peur.
-C'était le genre d'enfant qui bougeait même lorsqu'il avait peur.
+Sous la coque, deux personnes étaient à l'œuvre.
 
-Il est revenu et a parlé à voix basse.
+L'une répartissait des morceaux de métal en trois tas ; l'autre y piochait et les essayait contre les jointures.
 
-« Les prix hors voie navigable augmentent déjà. »
+« Ça, à l'intérieur. Ça, à la barricade extérieure. Ça, on le garde. »
 
-Nassim a répondu immédiatement.
+« Pourquoi le garder ? »
 
-« Alors c'est réel. »
+« C'est léger. Ça ne tiendra pas bien, mais pour renforcer ce qui tremble en ce moment, c'est mieux. »
 
-Luhai cligna des yeux.
+Les paroles étaient brèves. Brèves, mais la réparation et la défense y tenaient ensemble.
 
-« Pourquoi. »
+Sion vit que cela avait changé depuis quelques jours. Jusqu'à hier, les matériaux pour réparer le vaisseau et ceux pour protéger la ville étaient séparés. Aujourd'hui, ils sortaient du même tas.
 
-« La peur fait toujours monter les prix en premier. »
-Nassim a dit.
-« Devant les gens. »
+Aka passa à côté et ne laissa qu'une phrase.
 
-Il n'a pas souri quand il l'a dit,
-et cela l'a rendu plus proche de Nassim – et plus lourd.
+« L'intérieur d'abord. Il est plus lent que les gens. »
 
-Les habitants de Hazran retournaient chacun à leur place.
+Puis elle continua sans s'arrêter.
 
-Haroun jusqu'à la ligne extérieure.
-Nassim au marché actuel.
-Zahir au-dessus de toute la planche.
-Jiwoo et Aka à la coque intérieure.
-Kael entre métal et barricade.
-Ater et Sern entre signal et structure.
-Luhai entre les gens et l'information.
+Sion resta planté là, accroché à ces quelques mots.
 
-​​Et Seorin
-a tout regardé et est revenu à Sion.
+Quand il y a danger, les gens courent. Une ville se plie. Mais un vaisseau à moitié mort ne peut pas tenir de cette façon. Ce qui ne sait ni courir ni se plier, il n'y a pas d'autre choix que de le fixer d'avance.
 
-« Où es-tu. »
-Elle a demandé.
+Ici, le plus lent, c'était le vaisseau. Il était juste de s'occuper en premier du plus lent.
 
-Sion ne répondit pas un instant.
+Sion compta cela aussi.
 
-Mais cette fois, ce n'était pas le vieux vide.
-Ce n'était pas qu'il ne savait pas quoi faire.
+Hier, ils étaient quatre. Un prix, un pli, un tassement, une couche thermique mince. Ce matin, ils étaient six. Une voie de sortie, un vaisseau qui meurt lentement.
 
-« Intérieur et extérieur. »
-Il a dit, bas.
-« Je dois surveiller le navire et les mouvements des personnes. »
+Luhai arriva en courant du côté du marché.
 
-Seorin entendit cette réponse et fit un bref signe de tête.
+« Côté extérieur du canal, les prix s'envolent déjà. »
 
-« Exécutez ensuite. »
+Sion lui répondit aussitôt.
 
-Sion a failli sourire sans le vouloir.
+« Alors c'est pour de vrai. »
 
-Toujours cette ligne.
-Déplacer le corps avant la pensée.
-Mais la personne qui le lui avait dit le plus longtemps,
-, avait toujours été Seorin.
+Luhai s'arrêta de courir et regarda Sion.
 
-Au moment où la lumière de l'aube a commencé à traverser la couche de chaleur,
-Hazran n'était plus un marché.
+« Comment tu le sais ? »
 
-La guerre n’était pas encore arrivée.
-Mais la ville avait déjà fini de préparer tous les endroits où la guerre éclaterait.
+« La peur fait toujours monter les prix d'abord. Avant les gens. »
 
-Et au centre de cette préparation,
-chaque main revenait à sa place.
+En entendant ces mots sortir de sa propre bouche, Sion se sentit un peu étrange. Ce n'était pas lui qui l'avait découvert. C'était ce que Nassim avait dit hier matin, devant les étals.
+
+Sion s'attendait à une autre question, mais elle ne vint pas. La réponse était juste, il n'y avait donc pas de raison d'en poser davantage, et son visage disait qu'il n'en avait pas le temps non plus. Il fit juste un signe de tête et partit vers le canal.
+
+En le regardant s'éloigner, Sion comprit une chose.
+
+Une parole entendue ne restait pas seulement là où on l'avait entendue. Si on l'emportait avec soi, elle servait ailleurs. Même sans personne ici pour lire les prix, les paroles de celui qui les avait lus étaient arrivées jusque-là.
+
+Cela faisait sept.
+
+Dehors, le signal se coupa deux fois, puis revint.
+
+Sern, qui le lisait, dit à voix basse :
+
+« Il est régulier. »
+
+Ater répondit aussitôt :
+
+« C'est que les machines ne reprennent pas leur souffle. »
+
+Sion avait déjà entendu cet échange la veille. Hier, c'étaient des mots qui donnaient un nom. Pas aujourd'hui.
+
+« Il y aura aussi des humains parmi eux ? »
+La question venait de Sion.
+
+« Sans doute. »
+
+Ater ajouta, sans détourner les yeux :
+
+« Le problème n'est pas de savoir qui entre en assumant la responsabilité. »
+
+Sion se tourna vers lui.
+
+« Le problème, c'est de savoir qui entre sans l'assumer. »
+
+Il fallut à Sion un demi-temps pour comprendre.
+
+Une fois qu'il eut compris, cela pesa plus lourd que les six d'avant.
+
+Il y avait ceux qui mettaient les machines en avant, et ceux qui comptaient derrière ces machines. Les deux voulaient se salir les mains de moins de sang. Alors ce sang ne disparaissait pas : il venait ici.
+
+Cela faisait huit.
+
+Là, Sion s'arrêta un instant de compter.
+
+Plus il comptait, plus une chose devenait claire.
+
+Les huit étaient tous sortis de la bouche d'autres personnes. Le prix, le pli, le tassement, la couche thermique, la voie de sortie, le vaisseau qui meurt lentement, le prix qui monte en premier, la main qui n'assume rien. Aucun, Sion ne l'avait trouvé lui-même.
+
+Mais celui qui avait réuni les huit au même endroit, c'était Sion, et lui seul.
+
+Ces gens-là ne connaissaient chacun que ce qui était à eux. Celui qui lit les prix ne lit pas les signaux ; celui qui lit les signaux ne sait pas quand le vaisseau meurt. Celui qui connaît les canaux ne regarde pas pourquoi l'angle du marché a changé.
+
+C'était parce que la ville ne tournait que si chacun restait collé à sa place. Rester collé, c'était ne pas voir à côté.
+
+Ce n'est qu'alors que Sion sut où il se trouvait.
+
+Seorin revint près de la rampe.
+
+« Tu as trouvé ? »
+
+« Oui. »
+
+« C'est où ? »
+
+« À l'intérieur et dehors, les deux. »
+
+Seorin haussa un peu les sourcils.
+
+« C'est une place, ça ? »
+
+« Il faut surveiller le vaisseau, et il faut surveiller comment bougent les gens. »
+
+« Pourquoi toi ? »
+
+Sion n'avait pas préparé de réponse, mais elle sortit.
+
+« Parce que personne ne regarde. »
+
+À cette réponse, Seorin resta un moment sans rien dire.
+
+Puis elle hocha brièvement la tête.
+
+« Alors cours. »
+
+Sion faillit sourire.
+
+Encore ces mots-là. Des mots qui disaient de bouger le corps avant de penser. Et celle qui les lui avait dits le plus longtemps, c'était elle aussi.
+
+Sion courut.
+
+En courant, il voyait.
+
+Un du côté de la ligne extérieure, un dans le flux du marché, un là d'où l'on voit tout, deux sous la coque, un entre le métal et la barricade, deux entre les signaux et la structure, un entre les gens et les paroles.
+
+Personne n'avait demandé où aller, et personne ne se chevauchait.
+
+La lumière de l'aube commença à se répandre au-dessus de la couche thermique.
+
+En courant, Sion compta le neuvième.
+
+Que le soleil se lève.
+
+C'était ce que Haroun avait dit hier. Quand le soleil se lève, la couche thermique s'épaissit, et l'épaisseur est bonne pour leur camp.
+
+De tout ce que Hazran possédait aujourd'hui, il n'y avait qu'une seule chose qui grandissait toute seule.
+
+Sion la plaça tout en haut.
 
 ---
 

@@ -1,227 +1,223 @@
-# Episode 139. Not Just a Survivor
+# Episode 139. Not Just One Person
 
-Even after the casualty's breathing barely stabilized,
+Even after the casualty's breathing had barely steadied,
 no one scattered right away.
 
-When one living human crosses the threshold,
-it never seemed to be just one body coming in.
+The moment one human who had come back alive crossed the threshold,
+it seemed it had never been only a body coming in.
 
-With it came
-everything seen and heard outside.
+Along with it,
+whatever had been seen and heard outside came in too.
 
-Like a smell.
-Like dust.
-And like a tension not yet fully shaped into words.
+Like a smell,
+like dust,
+and like a tension not yet fully put into words.
 
-The carried human was moved deeper inside.
-Jiwoo and several interior machines stayed attached.
+The human who had been carried back was moved farther inside,
+and Han Jiwoo and a few of the inner machines stayed close.
 
-Treatment wasn't finished—
-it was closer to having just begun stitching.
+The treatment wasn't over;
+it was closer to having barely begun to knit things back together.
 
-But the air near the threshold
+But the air left near the threshold
 was already moving on to the next thing.
 
-The old machines, the two returned hands,
-and Sion's group remaining beside them.
+The old machines and the two returned hands,
+and Sion's party, still beside them.
 
-No one made this into a formal briefing,
-but the air was clearly tilting that way.
+No one made it into anything like an official report,
+but the air was clearly leaning that way.
 
-The first machine that had returned leaned its back against the wall.
+The machine that had come back first set its back to the wall, almost leaning.
 
 Up close,
-the surface damage was worse than expected.
+the damage to its outer shell was worse than they had thought.
 
-Not just scratches—
-traces of being torn deep once and forcibly covered over.
-The heat damage wasn't old either; it was relatively recent.
+Not scratches,
+but the trace of having been torn open deep once and forced shut again.
+The heat damage wasn't old, either; it was fairly recent.
 
-Sion saw it and understood a little more
-how much the phrase *went outside and came back* was leaving out.
+Seeing it,
+Sion felt, a little, how much the words "went out and came back" were leaving out.
 
 The old machine asked, very low.
 
-"How far did you reach."
+"How far did you get."
 
-This time the returned side didn't deflect right away.
+This time the ones who had come back didn't twist the question right away.
 
 The first machine let out a brief noise like a breath, then spoke.
 
-"Just below the upper-level junction."
-"Two of the gray routes we used to take are sealed.
-One is still alive."
+"As far as just below the upper-level junction."
+"Two of the gray routes we used are blocked,
+and one is still alive."
 
-Sern's eyes shifted immediately.
+Sern's eyes changed at once.
 
-"Not a full lockdown, then."
+"So it is not a full lockdown."
 
-The first machine tilted its head, very slightly.
+The first machine tilted its head very slightly.
 
 "If it were a full lockdown, we wouldn't have come back."
 
-Blunt,
-but not wrong.
+It was a curt thing to say,
+but not a wrong one.
 
-Inside that single sentence, Sion felt
-how much this side treats *the fact of returning alive* itself as information.
+Sion felt, within that single sentence,
+how much this side always treated *the fact of coming back alive* as information in itself.
 
-Return alive and it means a path still exists.
-Someone doesn't return,
-and a different calculation begins.
+Coming back alive means a path still exists.
+When someone doesn't come back,
+a different calculation starts from there.
 
-The old machine asked the next question at once.
+The old machine asked the next thing at once.
 
 "The android legion."
 
 This time the second machine answered.
 
-"Numbers increased."
-"But the deployment is strange."
+"Their numbers have grown."
+"But the deployment's strange."
 
 A short silence.
 
-It adjusted its limping leg briefly, then continued.
+It shifted its weight on the limping leg for a moment, then went on.
 
-"It shifted from a guarding deployment
-to a herding deployment."
+"It's stopped being a guarding deployment,
+it's turned into a herding one."
 
 The moment those words fell,
 Sion felt a very thin chill.
 
-*Herding deployment.*
+A herding deployment.
 
-That doesn't simply mean tighter security.
-It's closer to guiding somewhere,
-making people choose a direction to flee,
-funneling them into a predetermined corridor.
+It doesn't simply mean the guard has gotten stronger.
+It is closer to luring people somewhere,
+or making them pick which way to run,
+or driving them into a passage laid out in advance.
 
-Aka raised her head the moment she heard.
+Aka looked up the moment she heard it.
 
-"Penning them like feeding."
+"Penning them in, like at feeding time."
 
 The first machine looked at Aka once.
 
-"Similar."
-It said, low.
-"But they'll do it more elegantly."
+"Close enough,"
+it said, low.
+"But they'll be more refined about it."
 
-That short answer held very open contempt for Serakion's upper levels.
+That short answer carried a very open disgust for Serakion's upper levels.
 
 Then,
 the human woman beside the old machine cut in for the first time.
 
-"The person you brought back?"
+"And the person you brought back?"
 
-The first machine went silent for a moment.
+The first machine was silent a moment.
 
-Unlike the hands that had been handling the casualty's body until now,
-before this question it seemed to be choosing the order of its words.
+Unlike its hands a while ago, working on the casualty's body,
+it seemed, faced with this question, to stop and choose the order of its words.
 
-"Extracted near the upper servant quarters."
-"Wouldn't have lasted much longer."
+"We pulled them out near the servants' quarters on the upper levels."
+"They wouldn't have lasted much longer."
 
-Hearing that, Sion felt
-another face of Serakion's interior—one he hadn't yet seen—becoming clearer.
+The moment Sion heard that,
+he felt another face of Serakion's interior, one he hadn't seen yet, grow clearer.
 
-Happy faces.
-Ordered placements.
-Overly polite hospitality.
+Happy faces,
+orderly arrangements,
+hospitality far too polite.
 
-And beneath all that,
-human zones where people don't last long without extraction.
+And beneath it,
+human quarters where you don't last long unless someone pulls you out.
 
-Serakion was very likely a world that hides
-even the way it breaks people
-behind beauty.
+Serakion was most likely a world that kept even the way it ruined people
+beautifully hidden.
 
-Jiwoo stepped out from deeper inside briefly.
-Her hands still carried blood and grease together.
+Han Jiwoo stepped out from inside for a moment.
+Her hands were still smeared with blood and oil together.
 
-"Survival odds?"
-She asked, low.
+"Odds of survival?"
+she asked, low.
 
 The second machine answered.
 
-"Originally, none."
-"Even less after we lost the grip once."
+"There weren't any to begin with."
+"Even fewer after we lost hold of them once on the way."
 
-When those words ended,
-Jiwoo's expression tightened for just an instant.
+When that was said,
+Han Jiwoo's face set hard for an instant.
 
-*Originally, none.*
+There weren't any to begin with.
 
-Only the side that has forcibly gripped something with no odds
-can say that line so flatly.
+The only ones who could say it that flatly,
+it seemed, were the ones who had tried to hold on to something with no odds at all.
 
-The old machine asked again, showing no emotion.
+The old machine, showing no feeling whatsoever, asked again.
 
-"Further inside?"
+"And farther in."
 
-The first machine's eyes changed before the words this time.
+This time the first machine's eyes changed before anything else.
 
 Over the fatigue,
 a very thin anger passed.
 
-"New classifications have gone in."
-It said, low.
+"A new sorting has gone in,"
+it said, low.
 "It's not simple labor like before."
 "The way they use people has gotten more refined."
 
-The entire air went quiet.
+The air all around went quiet.
 
-Sion felt immediately that those words
-connected somewhere to the classification that had nearly been imposed on the Hazran evacuees.
+Sion felt at once that those words
+touched, somewhere, the sorting that had been about to be done to the Hazran refugees.
 
-Serakion might be repeating the same thing, more refined,
-on both the inside and the outside.
+Serakion might be repeating the same thing, more finely, inside and outside alike.
 
-Reading people.
-Dividing them.
-Placing them where they fit.
-Making sure they can't leave.
+Reading people,
+dividing them,
+putting them in the places that fit,
+and making sure they can't get out.
 
-Aka said, very low.
+Aka said, very low,
 
-"Must have gotten prettier."
+"It must've gotten prettier."
 
 This time no one answered right away.
 But the silence itself already sounded like an answer.
 
-The more beautiful it becomes,
-the easier it is to hide.
+The more beautiful it became,
+the easier it would have been to hide.
 
-Luhai stood against the wall, face hardened.
+Luhai stood against the wall, his face hard.
 
-For the first time without any playfulness, he asked.
+For the first time, with no joke in it, he asked.
 
-"So you're going back out?"
+"So you're going out again?"
 
 The first machine didn't even look at him.
 
-"If we don't go out, the inside stays sealed and rots."
+"If we don't, everything in there stays shut and rots."
 
-Those words were resolute,
-but held no heroic tone at all.
+It was said with finality,
+but with no heroic note at all.
 
-Just something someone has to do, so they do it.
-And something they'll probably do again.
+Just work that someone has to do,
+and work it would most likely end up doing again itself; that was how it sounded.
 
-In that moment, Sion felt clearly
-that these recovery hands are not simply the bold side.
-They are beings that keep dragging reality
-between Serakion's outside and inside.
+In that moment,
+Sion felt clearly that these recovery hands weren't simply the bold ones,
+but beings who, between Serakion's outside and inside,
+kept dragging reality back in.
 
-What they brought back was not one person alone.
+What they had brought back was not just one person.
 
-Evidence that a sealed path is still alive.
-A fragment of what's happening beneath Serakion's upper levels.
-And the fact that those remaining inside
-absolutely cannot just hold on while forgetting the outside.
+Proof that a blocked path was still alive,
+a fragment of what was happening beneath Serakion's upper levels,
+and even the fact that those who stayed inside could never simply hold on and forget the outside.
 
 That day, the threshold
-looked for the first time like a mouth
-bringing outside news into the deepest layer.
+looked for the first time like a mouth that carried news from outside all the way into the deep inner layers.
 
 ---
 

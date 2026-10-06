@@ -1,213 +1,214 @@
 # Episode 137. Smell of Outside
 
-The first thing visible wasn't a face.
+The first thing they saw was not a face.
 
-From the darkness beyond the gap,
-what pushed through first was sound and smell.
+From the dark beyond that gap,
+what pushed out first was sound and smell.
 
-Not the slow metal hum from inside the old layer—
-shorter,
-more urgent,
+Not the slow metallic sounds of the old layer's interior,
+but a sound that was shorter,
+more hurried,
 more worn.
 
-And not the long-settled metal scent—
-the smell of a machine that carried outdoor air, heat, dust, and burning together.
+And not long-stagnant metal,
+but the smell of a machine that carried outside air and heat and dust and burning all at once.
 
-Aka was right.
+Aka had been right.
 
-This was the smell of a place that travels.
+This was the smell of coming and going.
 
-The darkness inside the gap shifted first.
-Then, with a very low friction sound,
-someone twisted through the narrow opening and emerged.
+The dark inside the gap stirred first,
+then, with a very low scrape,
+a figure twisted its body and squeezed out through the narrow gap.
 
-The moment Sion saw the shape,
-he knew immediately.
+The moment he saw it,
+Sion knew at once.
 
-This was the same side as the old machines he'd seen here,
-yet a being moving at an entirely different speed.
+This was on the same side as the old machines they had seen here so far,
+and yet a being of an entirely different speed.
 
-The outer surface bore marks of being swapped multiple times.
-One shoulder plate was reinforced with parts that didn't match the original spec.
-One arm carried scratches and heat damage blatant enough
-to never be allowed in Serakion's upper zones.
+Its outer shell showed signs of having been replaced many times over,
+one shoulder plate was patched with parts that didn't match the original spec,
+and one arm carried scratches and heat damage so blatant they would never be allowed in Serakion's upper districts.
 
 But strangely,
-all that damage didn't make this being look more broken—
-it made it look sharper.
+all that damage made this being look not more broken
+but sharper.
 
-If the old layer's machines were beings that had endured,
-this one looked like a being that had been wearing down while going in and out.
+If the old layer's machines were beings that had held out,
+this one looked like a being that kept going in and out as it wore down.
 
-The machine, the moment it emerged from the gap,
-scanned not Sion's group first but the surrounding structure and entrance condition.
+As soon as it was out of the gap,
+the machine scanned not Sion's party but the surrounding structure and the state of the entrance.
 
-In that gaze, confirmation came before relief.
+In that look, checking came before relief.
 
-Whether it survived.
-Whether anything was exposed.
-Whether the threshold was still intact—reading those first.
+Whether they had made it back alive,
+whether anything had been exposed,
+whether the threshold was still holding—eyes that read those things first.
 
-And one beat late,
+And a beat late,
 it looked at the humans standing there.
 
-In that moment, Sion saw
-the machine's gaze shift, very faintly.
+In that moment, Sion
+saw the machine's look shift, very slightly.
 
-Not gladness.
-Not wariness alone.
-For exactly one instant, the eyes of something calculating *why are humans this far in*.
+Not gladness,
+not wariness alone,
+but for just one instant, eyes calculating, "Why have humans come this far?"
 
-Luhai seemed to read that right away—
-his jaw tightened, very slightly.
+Luhai seemed to read that right away;
+his jaw set a little.
 
-But unexpectedly, the machine spoke first.
+But the one who spoke first, unexpectedly, was the machine.
 
 "Lot of new faces."
 
 The voice was younger than expected.
 But rough.
 
-Not the voice worn low from erosion like the old layer's machines—
-closer to a voice whose edges had been ground down
-from continuously passing through outside noise and impact.
+Not a voice worn down low like the machines inside the old layer,
+but closer to one whose edges had worn off
+from passing again and again through outside noise and impact and coming back.
 
-The old machine said from beside it, very low.
+The old machine said, very low, beside it,
 
 "They came from Hazran."
 
 A short silence.
 
-The machine looked over Sion's group once more.
-This section with the hidden path wasn't completely empty—
-a few human shadows moved further out.
+The machine looked Sion's party over once more.
+This section with the blocked path was not entirely empty,
+and a little way off, toward the outer side, a few human shadows were moving.
 
-Then it said, very brief.
+Then it said, very briefly,
 
-"Brought a lot."
+"Brought a whole crowd, then."
 
-That could have sounded cold.
-But strangely, Sion felt
-calculation, fatigue, and something close to relief packed inside at once.
+It could have sounded cold.
+But Sion, strangely,
+felt something like calculation and fatigue and relief packed into it all at once.
 
-More living humans means more problems.
+More living humans meant more problems.
 But at the same time,
-it means the number rescued is large.
+it also meant more had been saved.
 
-It sounded like the words of a being that faces that contradiction with its body every time.
+It sounded like the words of a being that lived through that contradiction in its own body every time.
 
-From inside the gap, a second shadow followed soon.
-This one looked far heavier than the first.
+A second shadow soon followed out of the gap.
+This one looked much heavier than the first.
 
-One leg dragged with a slight limp.
-The back was tangled with folded equipment and recovery straps.
+It was limping slightly on one leg,
+and folded gear and recovery straps were tangled across its back.
 
 And behind it,
-one human was pulled out, nearly carried.
+a person was dragged out, all but carried on its back.
 
-That moment,
-the entire air froze for the briefest instant.
+In that moment,
+the whole air froze, very briefly.
 
-Jiwoo moved first.
-Luhai reacted almost simultaneously.
-And Sion finally understood that these weren't beings returning from simple reconnaissance or patrol.
+Han Jiwoo moved first,
+Luhai reacted almost at the same time,
+and only then did Sion understand that they had not simply come back from scouting or a patrol.
 
-They hadn't gone out and done something.
-They had gone out and brought someone back.
+They had not gone out to do something;
+they had come back bringing someone.
 
-The carried human looked barely conscious.
-The clothing was torn and dirtied in a way entirely unlike the ordered upper Serakion—
-less the trace of escape
-and closer to the trace of being barely extracted.
+The human who had been carried out seemed barely conscious,
+and their clothes were torn and filthy in a way that had nothing to do with the tidy order of Serakion's upper level.
 
-The moment Jiwoo reached to receive the human,
-the first machine said, very brief.
+It looked less like the trace of an escape
+than the trace of someone barely pulled out.
 
-"Watch the shoulder."
+Just as Han Jiwoo moved to take the human,
+the machine that had come out first said, very briefly,
+
+"Mind the shoulder."
 "Left ribs too."
 
-Those words came so fast and precise
-that Jiwoo followed them reflexively.
+It was so fast and so exact
+that Han Jiwoo followed it on reflex.
 
-That single brief scene
-gave Sion a sense of how these machines treat humans.
+From that one short scene alone,
+Sion got a little sense of how those machines dealt with humans.
 
-Not tender.
-But familiar.
+Not gentle.
+But practiced.
 
-Not machines that imagine humans from afar—
-but hands that have actually carried, dragged, extracted, lost, and caught again.
+Not machines imagining humans from a distance,
+but the hands of machines that had actually carried, dragged, pulled out, lost, and caught hold of humans again.
 
-Which made them seem
-more directly in contact with humans than even the old layer's interior.
+Which was why, if anything,
+they seemed to touch humans more directly than even the inside of this old layer did.
 
-Aka watched the first machine for a long time, then said low.
+Aka looked at that first machine for a long time, then said, low,
 
-"That one wears down differently."
+"That side wears down differently."
 
 The machine looked at Aka.
-Then made a brief sound that was almost like a laugh.
+Then it made a very short noise, something like a laugh.
 
-"Faster than the ones inside."
+"We break down faster than the ones inside, you know."
 
-At those words,
-the old machine beside it showed no reaction.
-But Sion felt that silence like a familiar tension.
+At that,
+the old machine beside it gave no reaction at all.
+But to Sion, that silence already felt like a familiar conflict.
 
-The hands that stay and hold.
-The hands that go out and come back.
+The hands that stayed and held out,
+and the hands that went out and came back.
 
-Both are the same community,
-but their wear is different.
-So probably, the way they understand each other is slightly different too.
+They were the same community,
+but their wear was different.
+So they probably understood each other a little differently too.
 
-Luhai, still guarded, asked.
+Luhai, still wary, asked,
 
-"You go out there every time?"
+"You go out there every day?"
 
-The first machine glanced at Luhai briefly, then answered.
+The first machine looked at Luhai for a moment and answered.
 
-"If I come back alive, I went.
-If not, I didn't."
+"If we come back alive, then we went.
+If not, then we never did."
 
-That was neither joke
-nor bravado.
-Just this side's reality.
+It wasn't a joke,
+or bravado,
+just how things were on that side.
 
-In that single line, Sion felt
-a weight of a different grain from everything he'd felt inside this old layer.
+With that one line, Sion
+felt a weight with a different grain from the weight he had felt inside this old layer so far.
 
-Here was the place that counts what was lost.
-And out there was the side that goes back out knowing what will be lost.
+This was a place that counted what it had lost.
+And that side
+was the side that went out again, knowing it would lose more.
 
-Two worlds, before the same gap,
-breathing the same air for the first time.
+Two worlds, in front of the same gap,
+were breathing the same air for the first time.
 
-Then the first machine,
-after rechecking the carried human's condition,
-looked at Sion's group once more.
+Then the machine that had come out first,
+after checking the carried human's condition again,
+looked toward Sion's party once more.
 
-This time with a little less calculation,
+This time there was a little less calculation,
 and instead a very faint mix of fatigue and curiosity.
 
-"It was so quiet inside,"
+"It was quiet in here,"
 it said, low.
-"I thought everyone had died again."
+"So I figured you'd all died off again."
 
-Those were harsh words.
-But strangely, no one could get angry right away.
+It was a harsh thing to say,
+but strangely no one could get angry right away.
 
 Because that machine had just
-actually carried a living human in on its back.
+truly carried in a human who was not dead.
 
-And in that moment, Sion understood.
+And in that moment Sion knew.
 
-What this old layer had shown until now
-were the hands that hold so things don't collapse.
+What this old layer had shown them so far
+were hands that held on so nothing would collapse.
 
-But now, from beyond the threshold,
-the hands that grab what is about to collapse and drag it in by force
-had begun to show themselves for the first time.
+But now, beyond the threshold,
+hands that grabbed what was about to collapse and dragged it in by force
+were beginning, for the first time, to show themselves.
 
 ---
 

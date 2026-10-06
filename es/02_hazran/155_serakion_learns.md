@@ -24,13 +24,13 @@ Kael dijo muy bajo.
 
 —Más rápido de lo previsto.
 
-La primera máquina de recuperación respondió.
+La primera mano de recuperación respondió.
 
 —Aquí siempre es así.
 —Más que el ruido grande,
 lo temible es a partir de la segunda vez.
 
-Esas palabras sonaban como una verdad que explicaba todo Serakion.
+Esas palabras sonaban como una verdad que explicaba toda Serakion.
 
 Este mundo no corrige exhibiendo el error en grande.
 En vez de eso, para que el mismo desajuste no vuelva a salir,
@@ -57,7 +57,7 @@ Han Jiwoo dijo bajo.
 
 —Hasta a los niños los mezclaron.
 
-La segunda máquina de recuperación respondió muy corta.
+La segunda mano de recuperación respondió muy corta.
 
 —Porque una vez se escapó.
 
@@ -106,7 +106,7 @@ Kael leyó esa estructura y casi enseguida sacó una conclusión.
 
 —Así no se puede.
 
-La primera máquina de recuperación preguntó.
+La primera mano de recuperación preguntó.
 
 —¿Cómo cambia?
 
@@ -125,8 +125,8 @@ Un breve silencio.
 
 Ater fue el primero en entender el sentido.
 
-—¿En vez de sacudir la fila entera,
-partir primero el compás desde dentro?
+—¿Quiere decir que, en vez de sacudir la fila entera,
+hay que partir primero el compás desde dentro?
 
 Kael asintió.
 
@@ -169,13 +169,13 @@ Esta vez nadie preguntó qué quería decir.
 
 Lo que quedaba eran los niños.
 Lo que quedaba era su propio compás.
-Lo que quedaba podía ser también el tiempo que recuerda Hazran.
+Lo que quedaba podía ser también el tiempo que recuerda a Hazran.
 
 Y quizá,
 el hecho de que una vez una mano hubiera entrado desde afuera
 también quedara ahora en algún punto de adentro.
 
-La segunda máquina de recuperación preguntó bajo.
+La segunda mano de recuperación preguntó bajo.
 
 —¿A quién miramos primero esta vez?
 
@@ -183,7 +183,7 @@ La pregunta era sencilla,
 pero el peso que cargaba dentro era mayor que antes.
 
 Ahora ya no se trataba de elegir tres como al principio.
-Dentro del Serakion que había cambiado tras el primer rescate,
+Dentro de la Serakion que había cambiado tras el primer rescate,
 había que releer quién todavía podía ser una grieta.
 
 Y entonces,
@@ -198,7 +198,7 @@ Ater miró hacia allí casi a la vez.
 
 Kael leyó la reacción de los dos y dijo muy bajo.
 
-—Lo viste.
+—Lo vieron.
 
 Han Jiwoo no respondió.
 Pero no apartó la vista.
@@ -218,7 +218,7 @@ y hay que leer con más precisión quién sostiene aún el tiempo del lado human
 Serakion ya aprendió una vez.
 
 Pero el grupo de reconocimiento,
-las máquinas de recuperación,
+las manos de recuperación,
 y quizá también los niños que quedan dentro,
 ya tampoco eran los mismos de antes.
 

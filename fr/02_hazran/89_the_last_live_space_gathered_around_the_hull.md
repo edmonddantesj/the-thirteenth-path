@@ -1,144 +1,271 @@
 # Chapitre 89 — Le dernier espace vivant se rassembla autour de la coque
 
-Après que la ligne centrale du marché eut été coupée et que les premiers groupes eurent commencé à être envoyés dehors, la sensation même d'espace à l'intérieur de Hazran changea.
+Avant de voir l'espace rétrécir, Sion l'entendit.
 
-Le marché, l'intérieur et la coque n'étaient plus séparés.
+Tout à l'heure encore, les bruits venaient de plusieurs directions. Des cris arrivaient de l'ouest, le métal gémissait au nord, et dans les tentes de l'intérieur un enfant pleurait. Maintenant, tout venait d'un seul côté.
 
-Les vivants, les mains qui pouvaient encore bouger, le vaisseau capable de les emporter et la dernière ligne défensive qui tenait toujours — tout commença à converger en un seul point.
+Les vivants,
+les mains qui pouvaient encore bouger,
+le vaisseau qui pouvait les emporter,
+la dernière ligne de défense qui tenait encore : tout se tassait contre un seul point.
 
 Près de la coque.
 
-Sion le sentit dans son corps avant de le voir de ses yeux.
+Sion monta sur la rampe et regarda une fois en contrebas.
 
-La direction vers laquelle chacun se repliait devint la même. Les pleurs, les jurons, le bruit du métal frappant le métal — tout se dirigeait vers le même côté.
+De là, c'était évident. Tout à l'heure, les gens étaient dispersés dans chaque ruelle. Maintenant, ils étaient pressés en cercle autour de la coque, et ce cercle se resserrait peu à peu.
 
-Les évacués, dispersés dans plusieurs couloirs quelques instants plus tôt, se rassemblaient désormais dans la clairière basse devant la section de coque, dans l'espace jouxtant les barrières effondrées et autour de la ligne d'embarquement de fortune.
+Il ne se resserrait pas parce que les gens reculaient. Il se resserrait parce qu'il n'y avait plus d'arrière.
 
-Les enfants étaient poussés dans l'ombre de la coque. Les blessés serraient les dents sur des civières arrachées à la toile des tentes. Ceux qui pouvaient encore travailler charriaient autour d'eux du matériel défensif.
+Chaque fois qu'une ruelle extérieure se fermait, les gens qui s'y trouvaient étaient refoulés vers l'intérieur, et le cercle s'épaississait d'autant. Plus il s'épaississait, moins il bougeait.
 
-La distinction entre l'arrière et le front avait presque disparu.
+Au bord de ce cercle, Sion vit un enfant coincé entre les jambes des adultes. L'enfant ne pleurait même pas. Il n'avait pas la place de pleurer, alors il ne pleurait pas.
 
-Jiwoo ravala un bref juron devant ce spectacle.
+Devant ce spectacle, Han Jiwoo ravala un bref juron.
 
-« Trop proche, » dit-elle à voix basse.
+« Ils sont trop serrés. »
 
-Elle avait raison.
+« Si c'est près, c'est bien, non ? »
+C'était Sion.
 
-Les gens rassemblés près de la coque signifiaient que Hazran avait perdu encore davantage de son arrière. Mais en même temps, si ce vaisseau ne pouvait pas décoller, toutes les personnes réunies ici seraient prises au piège ensemble.
+« Pour faire monter les gens, oui. »
+Elle poursuivit :
+« Pour prendre des coups aussi. »
 
-Aka se tenait là avec le visage de quelqu'un qui écoute chaque souffle venant de l'extérieur.
+Tout en parlant, Han Jiwoo n'arrêtait pas ses mains. Collée contre le côté de la rampe, sous la coque, elle touchait sans relâche le même endroit depuis tout à l'heure.
 
-« C'est le dernier endroit, » dit-elle très bas.
+Ce n'est qu'alors que Sion posa la question qu'il n'avait encore jamais posée.
 
-On ne savait pas à qui elle s'adressait, ce qui rendait ses mots plus justes encore.
+« Il peut en prendre vingt, ce vaisseau ? »
 
-Le dernier espace vivant à l'intérieur d'Hazran, c'était bien ici, et nulle part ailleurs.
+Les mains de Han Jiwoo s'arrêtèrent.
 
-Zahir le savait aussi.
+« Qui t'a dit vingt ? »
 
-Il regarda la zone devant la section de coque, balaya une dernière fois les étroits couloirs extérieurs et parla brièvement.
+« Celui qui fixe les prix. »
 
-« Tirez sur la ligne plus serrée. »
+« Lui, ce qu'il mesure, c'est le nombre de gens. »
+Elle poursuivit :
+« Moi, ce que je mesure, c'est le poids. »
 
-Nassim répondit aussitôt.
+Elle tapa du dos de la main sur un joint de la rampe. Le son sortit deux fois différent. À l'oreille de Sion, c'était le même, mais Han Jiwoo semblait en tirer quelque chose.
 
-« Plus serré que ça? »
+« Si ça prend vingt d'un coup, c'est ce joint-là qui encaisse tout. Quand les gens montent en même temps, le poids part vers l'avant. »
 
-« Resserrez-les, » dit Zahir. « Trop étalés, ça casse. »
+« Alors on ne peut pas les faire monter ? »
 
-Cela signifiait rendre la ligne d'évacuation plus courte et plus dense. Mieux valait se regrouper près de la coque que de disperser les gens, chacun risquant d'être coupé en chemin.
+« Si. »
+Han Jiwoo poursuivit :
+« Mais pas tous en même temps. »
 
-Cruel, mais vrai.
+Du doigt, elle traça des lignes sur la rampe. Cela fit trois cases.
 
-Nassim bougea aussitôt malgré la grimace qui lui tordait le visage.
+« Jusqu'ici, sept. On arrête. Jusqu'ici, sept. On arrête. Le reste, six. »
 
-« Vous avez entendu ! » cria-t-il. « Ceux qui tiennent debout, poussez plus loin à l'intérieur ! Couchez d'abord les blessés, poussez les enfants dans l'ombre de la coque ! »
+« Mais ça prend plus de temps. »
 
-Luhai se colla aux enfants dès qu'il entendit.
+« Oui. »
 
-Il s'accroupit à la hauteur de leurs yeux.
+« Il y a des gens qui attendent dehors. »
 
-« À partir de là, ne courez pas, » dit-il. « Si on vous pousse, vous tombez. Ne lâchez pas les mains. »
+« Je sais. »
 
-Sa voix était étrangement calme. Lui aussi avait peur, mais son visage avait soudain appris que, à son âge, il ne pouvait plus la laisser paraître.
+Han Jiwoo n'expliqua rien de plus. À la place, elle resserra un joint de plus.
 
-Seorin traversa rapidement les rangées de blessés, resserrant l'espace.
+Debout à côté d'elle, Sion comprit contre quoi elle se battait. Dehors, on pressait pour faire monter les gens ne serait-ce qu'un peu plus vite. Mais si le vaisseau se brisait d'abord, ceux qu'on avait fait monter mourraient avec lui. Han Jiwoo mesurait cet entre-deux avec ses mains.
 
-« Personnes allongées, côté gauche. »
+« Ça prend combien de secondes de plus ? »
 
-« Si vous pouvez marcher, restez en retrait. »
+« Dix, à peu près. »
 
-« Plus aucun bagage à partir de maintenant. »
+« Dix secondes. »
 
-Elle ne réconfortait plus personne. Elle ne se précipitait pas non plus. Elle réorganisait simplement les gens, avec précision, dans la forme qui leur donnait les meilleures chances de survie.
+« Dix secondes à chaque fois. Sur onze fois. »
 
-Sion travaillait à ses côtés, reliant les gens pour que la ligne ne se rompe pas.
+Sion n'alla pas au bout de ce calcul. Il n'en avait pas envie.
 
-Qui devait passer en premier. Qui devait soutenir un blessé et avancer. Quel espace restait vide.
+Un peu plus loin, Aka avait posé la paume contre la paroi extérieure de la coque.
 
-Mais malgré tout cela, ses yeux revenaient sans cesse vers l'avant de la coque.
+« Il y a combien de gens dessus, là ? »
+Elle avait posé la question.
 
-Trop proche.
+« Personne encore. »
+C'était Sion.
 
-Les gens, la guerre et le vaisseau.
+« Alors c'est le vaisseau tout seul qui tremble. »
 
-Si tout était aussi serré, un seul impact mal placé pouvait tout ébranler d'un coup.
+Aka ne retira pas sa main. Sion ne comprenait qu'à moitié ce qu'elle faisait. Jusqu'ici, Aka avait départagé le vrai et la simple imitation. Que ce vaisseau soit vrai ou non, c'était une affaire déjà réglée, là-dedans. Ce qu'elle mesurait maintenant, c'était autre chose.
 
-Haroun le savait aussi.
+« Tu entends quoi ? »
 
-Il ne recula donc pas davantage. Au lieu de cela, il continua d'engager l'ennemi une section en amont du dernier couloir étroit menant à la zone de la coque.
+« Le poids. »
+C'était Aka.
+« Quand les gens monteront, à partir d'où ça va s'enfoncer. »
 
-Il parla sans se retourner.
+« Tu peux le savoir à l'avance ? »
 
-« On peut encore en envoyer ? »
+« Pas encore. »
+Elle poursuivit :
+« Il faut qu'ils montent pour savoir. Mais une fois qu'ils seront montés, après, je saurai. »
 
-Sion répondit en reprenant son souffle.
+Sion mit un moment à comprendre ce qu'elle voulait dire. Les vingt premiers monteraient sans que personne ne sache rien. Ce n'est qu'après qu'Aka aurait entendu où et comment ces vingt-là pesaient qu'on pourrait corriger l'ordre, à partir de la deuxième fois.
 
-« Le premier groupe est sorti. Le deuxième groupe embarque. »
+La première file était un essai.
 
-Haroun fit un bref signe de tête.
+Sion détesta cela.
 
-« Puis je me lève une fois de plus. »
+« Alors on n'a qu'à essayer avant. »
+C'était Sion.
 
-Seorin entendit et jura à voix basse.
+Aka le regarda.
 
-Mais elle ne l'arrêta pas.
+« Avec quoi ? »
 
-Si Haroun se retirait maintenant, l'ennemi atteindrait trop vite les gens massés tout près. Tout le monde ici le savait mieux que quiconque.
+« Avec quelque chose de lourd. À la place des gens. »
 
-Ater lisait de nouveau la ligne de front, adossé à un sac de sable effondré.
+En l'entendant, Han Jiwoo arrêta un instant ses mains.
 
-« Cette fois, ils tenteront de déchirer plutôt que de pousser, » dit-il à voix basse. « Ils ne viendront pas en une seule ligne. Ils se diviseront en deux et viseront la masse devant la coque. »
+« Kael. »
 
-Sern hocha la tête, pressant sa blessure au côté.
+« Oui. »
 
-« Ils ont vu la foule. »
+« Ramène toutes les plaques qu'on a arrachées, là-bas. »
 
-Au moment où ces mots tombèrent, Sion sentit un frisson lui parcourir le dos.
+Kael ne demanda pas pourquoi. Il traîna les plaques de métal arrachées et les charpentes hors d'usage et les empila sur la rampe. Han Jiwoo les posait en comptant à la main. La part d'une personne à chaque fois.
 
-L'autre côté le savait aussi. Que cet espace près de la coque était l'endroit le plus vivant qui restait à Hazran. Et donc le meilleur endroit à lacérer.
+Quand on arriva à sept, le joint fit un bruit.
 
-Jiwoo l'entendit et se plaqua aussitôt contre le mur extérieur de la coque.
+Sion l'entendit lui aussi. Le son que Han Jiwoo avait fait sortir différent en tapant tout à l'heure, cette fois, sortait tout seul.
 
-« Kael ! » cria-t-elle. « Installe une plaque d'accouplement supplémentaire ici ! Si l'explosion touche aussi les gens, c'est fini ! »
+« Là. »
+C'était Aka.
 
-Kael bougea sans répondre. Il tira de ce qui restait la plaque de métal la moins tordue et la cala en biais entre le dessous de la coque et la ligne d'embarquement de fortune. Ce n'était pas une barrière parfaite. Mais pour l'instant, tout ce qui comptait était de dévier ne serait-ce qu'un seul tir.
+« Où ? »
 
-Aka, au centre de cet air précaire, murmura :
+« En bas à gauche. »
+
+Han Jiwoo glissa la main de ce côté. Elle tâta longtemps.
+
+« C'est ça. »
+
+« C'est grave comment ? »
+Sion avait posé la question.
+
+« Sept, ça passe. À partir de huit, non. »
+
+« Tout à l'heure, tu as dit trois fois sept. »
+
+« C'est pour ça que j'ai dit sept. »
+Han Jiwoo poursuivit :
+« Mais maintenant, je le sais. Tout à l'heure, c'était une estimation. »
+
+Sion comprit la différence. Dire sept à l'estime et dire sept après avoir mesuré, cela n'avait pas le même poids. Ce vaisseau venait de montrer ce qu'il ne pouvait pas faire, et il l'avait montré avec de la ferraille, pas avec des gens.
+
+Ce que la ferraille pouvait apprendre s'arrêtait là. Vers où les gens se masseraient, il faudrait que des gens montent pour le savoir.
+
+« Il faudrait quand même le dire aux gens, non ? »
+Sion avait posé la question à Aka.
+
+« Non. »
+
+« Pourquoi ? »
+
+« Si on le dit, la première file ne se formera pas. »
+
+Après ces mots, Aka retira la main pour la première fois. Puis elle regarda Sion.
+
+« Toi non plus, ne dis rien. »
+
+C'était la deuxième fois aujourd'hui qu'on demandait la même chose à Sion. Le matin, on lui avait demandé de ne pas dire le chiffre ; maintenant, on lui demandait de ne pas dire l'ordre.
+
+Pour sauver les gens, cette ville ne leur disait rien.
+
+Pendant ce temps, Kael dressait une plaque d'accouplement.
+
+Il traîna la moins tordue des plaques de métal qui restaient et la cala en biais entre le dessous de la coque et la file d'embarquement de fortune. Ce n'était pas une barricade parfaite. Pour l'instant, il suffisait qu'elle puisse faire dévier une seule fois ce qui viendrait.
+
+« Il en faudrait une de plus. »
+Han Jiwoo parla en regardant de ce côté.
+
+« Il n'y en a plus. »
+C'était Kael.
+
+« Nulle part ? »
+
+« J'ai tout utilisé. »
+
+Han Jiwoo resta un moment sans rien dire.
+
+Puis, du bout des doigts, elle toucha un fragment de revêtement fixé à la coque, juste à côté d'elle. Kael l'avait acheté au marché de Hazran, et c'est elle qui l'avait posé de ses propres mains.
+
+« Enlève ça. »
+
+« C'est toi qui l'as posé. »
+
+« Justement, c'est à moi de décider aussi quand on l'enlève. »
+
+Kael la regarda un instant. Puis, sans un mot, il prit ses outils.
+
+En voyant cela, Sion eut mal à un endroit inattendu. Le jour où elle avait posé ce fragment, Han Jiwoo y avait passé deux heures. Ce jour-là, elle avait dit que c'était l'endroit qui tiendrait le plus longtemps sans céder.
+
+Pour l'enlever, il ne fallut même pas deux minutes.
+
+L'endroit d'où on l'avait arraché apparut tel quel. Il paraissait même plus laid qu'avant qu'on le pose.
+
+« Ça va ? »
+Sion avait posé la question.
+
+« Quoi donc ? »
+
+« Ça. »
+
+Han Jiwoo tendit le fragment arraché à Kael et répondit :
+
+« Le vaisseau n'a pas mal. »
+
+Sion savait que ce n'était pas la réponse à sa question. Mais il ne demanda rien de plus.
+
+Aka parla très bas.
 
 « Tout est ici. »
 
-Sion entendit ces mots et sentit sa poitrine se serrer sans raison.
+À ces mots, Sion regarda de nouveau autour de lui.
 
-Oui. Pour l'instant, vraiment, tout ce qui vivait encore était rassemblé ici.
+C'était vrai. Le dernier air auquel Hazran se raccrochait jusqu'au bout, les gens qui n'avaient pas lâché jusqu'au bout, le vaisseau tout juste revenu à la vie, et les mains qui achetaient du temps pour le faire partir. Tout était ici.
 
-Le dernier air qu'Hazran respirait encore. Des gens qui n'avaient pas lâché prise jusqu'au bout. Le vaisseau qui venait à peine de reprendre vie. Et les mains qui gagnaient du temps une dernière fois pour tout envoyer.
+Que tout soit rassemblé en un seul point voulait dire que ce qu'il fallait protéger se réduisait à une seule chose.
 
-Tout se pressait contre la coque.
+Et cela voulait dire, en même temps, qu'on pouvait tout perdre d'un seul coup.
 
-Et désormais, cette bataille était devenue plus dangereuse.
+Sion remonta sur la rampe.
 
-Mais en même temps, ce qu'il fallait protéger n'avait jamais été aussi clair.
+Le cercle s'était encore resserré depuis tout à l'heure. L'enfant était toujours au même endroit, et il ne pleurait toujours pas.
+
+Et au-delà, du côté de la ligne centrale effondrée, le ciel était plus rouge que tout à l'heure.
+
+Le soleil baissait.
+
+En le voyant, Sion sentit pour la première fois un froid lui descendre dans le dos. Il avait vu plusieurs fois les gens de Hazran accueillir la nuit avec soulagement. L'heure où la chaleur tombe et où l'on peut enfin vivre. Mais maintenant, cette heure-là ne devait pas venir.
+
+Quand la chaleur tombe, la poussière retombe.
+
+Quand la poussière retombe, les trente pas sans toit redeviennent trente pas, rien de plus.
+
+« Han Jiwoo. »
+
+« Quoi ? »
+
+« Qu'est-ce qui se passe quand le soleil se couche ? »
+
+Han Jiwoo arrêta ses mains et leva une fois les yeux vers le ciel. Puis elle ramena la main sur le joint.
+
+« Ne me dis pas de faire vite. »
+Elle poursuivit :
+« Je suis déjà au plus vite. »
+
+Sion ne dit rien.
+
+Ce vaisseau devait faire monter les gens onze fois, chaque fois prenait dix secondes de plus, et le soleil se couchait.
 
 ---
 

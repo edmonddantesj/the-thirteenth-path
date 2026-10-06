@@ -1,193 +1,264 @@
 # Capítulo 84 — La orden que partió el mercado en dos
 
-Cuando llega el instante en que el método ya no basta para aguantar,
-lo que hace falta después no es un método mejor.
+Zahir no estaba en el frente.
 
-Es la decisión de alguien
-sobre qué abandonar y qué salvar.
+Estaba un tramo más atrás, en un sitio desde donde se veía todo el mercado. Era el mismo lugar que Sion había visto unos días antes. Un sitio desde donde se veían a la vez la línea de retorno, el canal exterior y el centro del mercado.
 
-En Hazran esa decisión,
-al final, la tomó Zahir.
+Entonces había creído que lo había elegido para ver lo que entraba.
 
-A medida que el frente dentro del mercado retrocedía casilla a casilla,
-lo que se movía más rápido que la velocidad con que el enemigo entraba hacia dentro era la cara de la gente.
-Ahora todos lo sabían.
-Esto no era un alboroto pasajero que terminaría con solo aguantar.
-Si una sola vez se plegaba mal,
-el mercado entero quedaría desgarrado desde dentro.
+Ahora que lo veía, no era eso. Lo había elegido para ver qué se podía abandonar para que el resto siguiera unido.
 
-Harún seguía sosteniendo el frente del pasillo.
-Sern y Ater todavía retrasaban aquella ola casilla a casilla,
-y Nasim, empujando a la gente que huía hacia dentro, casi se había quedado sin voz.
+Zahir habló en voz baja.
 
-Pero Zahir
-miraba todo aquello desde un paso atrás.
+—Cortamos la línea central del mercado.
 
-No era para escapar.
-
-Estaba observando, desde esa altura, el tablero entero:
-qué punto abandonar
-para que el resto siguiera vivo.
-
-—Cortamos la línea central del mercado —dijo muy bajo.
-
-Al principio,
-nadie entendió de inmediato lo que quería decir.
+Nadie lo entendió enseguida.
 
 Nasim fue el primero en levantar la cabeza.
 
 —¿Qué?
 
-Zahir, sin apartar la mirada, volvió a hablar.
+—Abandonamos la línea central del mercado.
 
-—Abandonamos la línea central del mercado —dijo—. Corten la línea de energía del interior y cierren el pasillo oeste.
+Zahir no apartó la mirada.
 
-En el instante en que cayeron esas palabras,
-el aire de alrededor se enfrió de golpe.
+—Corten la línea de energía de dentro y cierren el pasillo oeste.
 
-La línea central del mercado no era un simple paso.
-Era el flujo más ancho por donde Hazran respiraba como Hazran,
-el tronco por el que más circulaban las mercancías, la gente y los rumores dentro del mercado.
-Cortarla
-no era partir un frente,
-era casi lo mismo que decir que se iba a desgarrar la ciudad en dos.
+Al oírlo, Sion miró hacia la línea central del mercado.
 
-Nasim, por primera vez, le sacó filo a Zahir.
+Unos días antes, allí, Seorin había regateado un precio. Había discutido un buen rato por un cordón térmico, y Nasim se había reído a su lado. Los puestos se alineaban largos a ambos lados y la gente pasaba chocando los hombros.
 
-—Si cortas ahí, también se cierra el interior.
+Era la línea más ancha de Hazran. Por ahí pasaban las mercancías, pasaba la gente y pasaban las palabras.
 
-—Lo sé —dijo Zahir.
+Cortarla no era dividir el frente. Era desgarrar la ciudad por la mitad.
 
-—Entonces la gente tampoco puede salir.
+Nasim dio un paso hacia Zahir.
 
-—Por eso, los sacamos ahora.
+—Si cortas ahí, también se tapa lo de dentro.
 
-Una respuesta corta y fría.
+—Lo sé.
 
-Nasim apretó los dientes.
+—Entonces la gente tampoco podrá salir.
 
-No era una afirmación equivocada.
-Pero, justo por ser acertada, era más cruel.
+—Por eso la sacamos ahora.
 
-Harún escuchó aquel breve intercambio
-y al principio no dijo nada.
-Parecía alguien que, quizá más rápido que nadie, ya había terminado el cálculo.
+Al oír ese breve ir y venir, a Sion se le tensó la espalda.
 
-Si no se cortaba la línea central del mercado,
-el enemigo, montado en el flujo ancho, se extendería más hondo.
-Entonces los compartimentos interiores del casco y el pasillo de los que huían quedarían en peligro a la vez.
-Pero si se cortaba ahora,
-había que abandonar de hecho la mitad del mercado.
+Sion tragó saliva una vez. Aun después de tragar, el pecho no se le aflojó.
 
-Era una orden de defensa
-y, al mismo tiempo, una orden de despedida.
+Harún no decía nada.
 
-Harún habló muy bajo.
+Sion miró la cara de Harún. Era una cara que ya había terminado de calcular. Seguramente había terminado antes de que Zahir hablara.
 
-—Es posible.
+—Se puede hacer.
 
-Nasim se volvió hacia él.
+Lo dijo Harún, en voz baja.
 
-En aquella mirada había rabia.
-Pero Harún no la rehuyó.
+Nasim se volvió hacia Harún.
 
-—Pero la gente que queda en el oeste —dijo Nasim, apretando los dientes—, la estamos abandonando.
+—Pero la gente que quede en el oeste…
 
-Harún también respondió bajo.
+A Nasim se le quebró la voz.
 
-—No —dijo—. Es que hay que sacarlos desde ya.
+—… la estamos abandonando.
+
+Harún no apartó los ojos.
+
+—No.
+
+—¿No qué?
+
+—Es que hay que sacarla desde ya.
 
 Los dos tenían razón.
-Por eso era más cruel.
+
+Sion no podía elegir cuál de los dos acertaba. Si Nasim tenía razón, Harún abandonaba a la gente; si Harún tenía razón, Nasim desperdiciaba el tiempo. Como los dos tenían razón, los dos tenían motivos para odiar al otro.
+
+—¿Cuántos minutos?
+
+Fue Nasim quien lo preguntó.
+
+Harún no respondió enseguida.
+
+—Te pregunto cuántos minutos.
+
+—Lo que tardes en traerlos a todos.
+
+—Te estoy preguntando cuántos minutos son eso.
+
+—Eso lo decides tú.
+
+Nasim miró a Harún una vez más.
+
+Sion entendió por qué esa respuesta era cruel. Harún no le había dado tiempo. Si Nasim los traía rápido, saldría esa gente; si tardaba, esa gente se quedaría dentro. Cortar no dependía de las manos de Nasim, pero cuántos salían, sí.
+
+Era un tiempo que nadie le daba.
+
+—Doce.
+
+Lo dijo Nasim.
+
+—Sáquenlos a todos mientras cuento hasta doce.
+
+No era un número que alguien le hubiera contado. Era un número que Nasim acababa de fijar con su propia boca.
 
 Zahir no explicó nada más.
 
-—Nasim —dijo—. Reúne a toda la gente del oeste.
+—Nasim.
+
+—…
+
+—Trae a toda la gente del oeste.
+
+Nasim se tragó una maldición, se dio la vuelta y echó a correr.
 
 —Harún.
 
-—Entendido —respondió Harún, corto.
+—Lo sé.
 
 —Sion.
 
-A Sion le entró tarde que lo habían llamado a él.
+Sion se dio cuenta de que lo habían llamado con medio tiempo de retraso.
 
-—Tú, pégate entre el interior y el oeste —dijo Zahir—. Conecta sin que falte nadie.
+—Tú ponte entre lo de dentro y el oeste.
 
-Sion asintió de inmediato.
+Lo dijo Zahir.
 
-No era momento de preguntar nada más.
+—Que no quede ningún hueco. Mantenlo unido.
 
-Seorin ya se estaba moviendo.
-Sin decir palabra, corrió primero hacia el pasillo oeste.
-Luhai la siguió.
-Nasim se tragó una maldición y salió corriendo a juntar gente tal cual.
+Sion asintió y echó a correr. No era momento de preguntar más.
 
-Pensaba que dentro del mercado el ruido iba a crecer,
-pero fue al revés.
+Creyó que el mercado se volvería más ruidoso, pero fue al revés.
 
-Cuando cae una orden de verdad mala,
-la gente se queda un momento más callada.
+Cuando cae una orden de verdad mala, la gente se queda callada un momento. La gente de Hazran no gritó y cada uno fue hacia lo que le tocaba hacer. Nadie preguntó.
 
-En medio de aquel silencio,
-Hazran empezó a partirse el propio cuerpo.
+Después, la ciudad empezó a partirse a sí misma.
 
-Kael prestó las manos enseguida a los que arrancaban la placa de sujeción junto a la columna central,
-y Ater señaló en pocas palabras desde dónde había que cortar la línea de energía para que el enemigo no pudiera aprovecharla en contra.
-Sern todavía ganaba tiempo frente al frente,
-y Harún seguía cambiando el ángulo del pasillo para que él pudiera ganar siquiera un compás más.
+Kael echó una mano a los que arrancaban las placas de sujeción de la columna central. Ater indicó dónde había que cortar la línea de energía para que el otro lado no pudiera usarla. Sern seguía ganando tiempo al frente, y Harún no dejaba de cambiar el ángulo de los pasillos para que él ganara un tiempo más.
 
-En el compartimento interior,
-Han Jiwoo, oyendo los ruidos de fuera, apretó fuerte los labios.
+La columna central no la había levantado Hazran.
 
-Ella también lo sabía.
-Lo que estaban cortando ahí fuera en ese momento.
-Y también que eso, al final,
-era el precio para comprar tiempo y salvar este barco.
+Era algo que ya estaba aquí y que habían puesto en pie para usarlo. Habían juntado dos viejas cuadernas de casco, habían trabado el espacio entre ellas con placas de sujeción y, encima, habían colgado todo lo que se podía colgar, desde los toldos de los puestos hasta los techos de los pasillos. Hasta unos días antes, Sion había creído que aquello era una columna.
 
-Aka habló muy bajo.
+Para arrancar una placa de sujeción hacían falta seis personas.
 
-—Hay que partir para vivir.
+Cuatro metieron palancas y dos apretaron desde arriba. Al principio no salió. Al tirar otra vez, la placa se abolló y uno de sus lados se levantó primero.
 
-Han Jiwoo no contestó de inmediato.
+Por donde se había levantado, otra persona metió una barra de hierro.
 
-En vez de eso, apretó más la mano sobre la junta que temblaba.
+La primera placa de sujeción salió.
 
-—Lo sé —dijo ella en voz baja—. Por eso lo odio más.
+Al salir, lo que tenía encima se vino abajo. El ruido fue bajo y largo, y seguía sin terminar en ninguna parte. Aun después de que se asentara lo grande, las cosas pequeñas siguieron deslizándose un buen rato.
 
-El lado del pasillo oeste ya era un caos.
+Después, algo subió.
 
-Cuando Sion llegó,
-tres de los que aún quedaban no lograban renunciar a su carga,
-y Nasim casi a la fuerza se la arrancaba y la arrojaba.
-Luhai empujaba a dos niños, uno a cada lado, abriendo paso,
-y Seorin, oyendo el sonido metálico que se acercaba por detrás, casi empujaba a la gente por la espalda.
+Al principio Sion no supo qué era. Creyó que era polvo.
 
-—Si no van ahora, se cierran con todo —dijo Seorin, cortante.
+Para ser polvo, brillaba.
 
-Aquellas palabras no eran una amenaza.
-Eran, sin más, un hecho.
+Era el polvillo que soltaron dos placas de metal que habían estado trabadas mucho tiempo, al rozarse entre sí. Después de años apretadas, se habían molido en un solo golpe al separarse.
 
-A lo lejos,
-el lado de Harún levantó la señal de que se vaciaba el último ángulo de la línea central.
+El polvillo subió y no bajó.
 
-Casi no quedaba tiempo.
+El calor del día todavía subía desde el suelo. El polvillo se posó encima y quedó flotando. Flotando, se extendió hacia los lados, y la parte alta del pasillo se enturbió.
+
+Sion levantó la mano y miró. No se le posaba nada en el dorso. Solo flotaba, no bajaba.
+
+Lo vio, pero no sabía qué hacía aquello.
+
+Los que arrancaban tampoco lo miraron. Estaban ocupados arrancando, y ahora nadie tenía tiempo de mirar aquello.
+
+Solo Harún miró hacia arriba.
+
+Después de mirar, miró también la parte alta del pasillo opuesto. Allí también se había enturbiado. Tenía la cara de quien mide algo con los ojos una vez, pero no dijo qué medía.
+
+Y luego, sin decir nada, volvió a corregir el ángulo de los pasillos.
+
+En el compartimento interior, Aka habló en voz baja.
+
+—Hay que partirlo para vivir.
+
+Han Jiwoo apretó más la mano sobre la junta.
+
+—Lo que se parte no vuelve a pegarse.
+
+Se oyó salir la segunda placa de sujeción.
+
+Sion corrió hacia el pasillo oeste.
+
+Allí ya estaba todo enredado.
+
+Tres de los que quedaban todavía no habían soltado sus bultos, y Nasim casi se los arrancaba y los tiraba. Luhai abría camino empujando a dos niños pequeños, uno a cada lado.
+
+Seorin miraba hacia atrás. Hacia donde venía el ruido.
+
+—Si no se van ahora, se cierra con ustedes dentro.
+
+Seorin lo dijo cortante.
+
+Seorin lo dijo y se dio la vuelta enseguida. No miró a Sion.
+
+Sion se puso entre lo de dentro y el oeste. Era el sitio que le había dado Zahir.
+
+Al llegar entendió qué quería decir eso de que no quedara ningún hueco. Si la fila se corta, los de atrás no ven lo de delante y se paran. Si se paran, se retrasan, y si se retrasan, no salen.
+
+Sion giró el cuerpo donde estaba para ver los dos lados.
+
+Levantó una mano para hacer señas hacia dentro y, por el otro lado, miró el final de la fila del oeste.
+
+Se cortó una vez.
+
+Hacia la mitad, una persona se cayó y los de detrás se detuvieron. Desde donde se detuvieron, todo lo de atrás se empujó de golpe.
+
+Sion gritó.
+
+—¡Adelante! ¡Sigan!
+
+Al que se cayó lo levantaron los de al lado, y los que estaban detrás volvieron a andar. Volver a andar les costó unos pasos.
+
+Esos pocos pasos crecían cuanto más atrás. Lo que delante era un alto de dos pasos, al final de todo se volvía de diez.
+
+Solo entonces entendió Sion por qué lo habían puesto ahí.
+
+Aquí nadie podía evitar que se cortara. Lo que hacía Sion era volver a unirla cada vez que se cortaba.
+
+Sion puso la mano en el hombro del de delante. No empujó. Solo la apoyó, y esa persona dio medio paso adelante.
+
+Alguien que se ha detenido aguanta si lo empujas. Si solo lo tocas, va por sí mismo.
+
+A partir de la tercera vez, la mano salía antes de pensar.
+
+Nasim estaba contando.
+
+Contaba mientras metía gente. No contaba en voz alta, solo movía la boca, pero Sion podía leer la forma de sus labios.
+
+Iba por nueve.
+
+Del final de la fila del oeste todavía salía gente. No se veía si eran tres o cuatro.
+
+Llegó a diez.
+
+Sion dio dos pasos hacia el final de la fila y se detuvo. No podía dejar vacío este sitio. Si este sitio quedaba vacío, lo de dentro y el oeste se cortaban.
+
+Once.
+
+Los dos últimos doblaron la esquina. Uno corría y el otro cojeaba.
+
+Nasim dejó de contar.
+
+No llegó a doce. Sion vio que la boca de Nasim se detenía, y no supo si se había detenido porque habían salido todos o porque ya no podía contar más.
+
+A lo lejos, el lado de Harún levantó la señal de que vaciaban el último ángulo de la línea central.
 
 Sion miró atrás por última vez.
 
-En mitad del mercado de Hazran,
-aquella línea central por la que habían pasado innumerables mercancías y rumores, por la que la gente había reído y peleado y puesto precio,
-se preparaba ahora para cortarse a sí misma.
+Allí estaba la línea donde unos días antes se regateaban los precios. Las armazones de los puestos seguían en pie y quedaban algunas cuerdas de toldo. Por encima flotaba el polvillo, y no se veía el otro extremo.
 
-Aquella escena era tan extraña
-que, al revés, parecía un sueño.
+Esta ciudad estaba cortando ahora la parte más ancha de su propio cuerpo.
 
-Pero la guerra siempre
-convierte la realidad en sueño y luego cobra de verdad el precio de ese sueño.
+Sion todavía no sabía qué ganaba con cortarla.
 
-Con una sola orden de Zahir,
-Hazran ahora
-intentaba, para sobrevivir, partir en dos su propio corazón.
+Aparte del polvillo que flotaba, no se veía que hubiera ganado nada. Y eso ni siquiera parecía una ganancia. Solo era lo que había salido al romperse.
 
 ---
 

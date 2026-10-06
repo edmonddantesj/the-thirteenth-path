@@ -7,7 +7,7 @@ Que hubieran logrado regresar
 no significaba que estuvieran a salvo de inmediato.
 
 No habían salido fuera de Serakion,
-sino que más bien se habían plegado a una grieta más profunda dentro de él.
+sino que más bien se habían plegado a una grieta más profunda de su interior.
 
 Y, sobre todo,
 había que ver primero en qué estado estaban los tres que habían traído.
@@ -19,7 +19,7 @@ Aquel que hasta hacía poco salía disparado, con el cuerpo lanzándose por dela
 cuando por fin quedó del todo fuera de la fila del orden
 respiraba agitado, como si no aguantara su propia velocidad.
 
-La primera máquina de recuperación se agachó primero.
+La primera mano de recuperación se agachó primero.
 
 El niño no se retiró como quien huye.
 Pero tampoco vino enseguida hacia el lado de quien lo sostiene.
@@ -66,7 +66,7 @@ sino que incluía también el hábito de un cuerpo que había vivido demasiado t
 
 —Va a llevar tiempo —dijo él en voz baja.
 
-La segunda máquina de recuperación respondió corto:
+La segunda mano de recuperación respondió corto:
 
 —A todos les pasa.
 
@@ -110,7 +110,7 @@ Ater, junto a la pared, miró uno por uno a los tres niños.
 Kael ya repasaba en su cabeza la reacción de cierre del camino de vuelta.
 
 Y el primero en romper ese silencio
-fue la primera máquina de recuperación.
+fue la primera mano de recuperación.
 
 —Ahora viene lo más difícil.
 
@@ -127,7 +127,7 @@ Kael dijo en voz baja:
 
 —Cambiará el orden de pliegue.
 
-La segunda máquina de recuperación asintió.
+La segunda mano de recuperación asintió.
 
 —Seguramente mezclen más gente.
 —Quizá no los dejen en la misma fila,
@@ -161,7 +161,7 @@ Más bien estaban cerca de un hay que volver a hacerlo.
 una vez lo hicimos —volvió a decir ella—.
 Entonces tampoco es que no haya un próximo.
 
-Ante esas palabras, la primera máquina de recuperación calló largo rato.
+Ante esas palabras, la primera mano de recuperación calló largo rato.
 
 Luego respondió muy bajo:
 

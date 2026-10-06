@@ -1,200 +1,303 @@
 # Capítulo 111 — La nave partió cargando también lo que era de ellos
 
-Después de ver la última línea de Hazran sepultarse bajo la legión de androides,
-en el casco no quedó ninguna palabra por un buen rato.
+Dentro de la capa térmica no se veía nada.
 
-Solo había respiración,
-solo había el sonido del metal aguantando,
-solo había el temblor inestable de una nave que debía partir pero aún no había partido del todo.
+No era que el exterior hubiera desaparecido, sino que ya no se podía ver, y para quien estaba dentro las dos cosas eran lo mismo.
 
-Sion, de pie dentro de la entrada,
-sintió que su corazón todavía seguía afuera.
+El casco soltó un quejido largo. Era el sonido de un metal que no se fiaba de su propio grosor. No se parecía al que hacía antes, al subir por encima del mercado de chatarra.
 
-La escena que acababa de ver era tan horrible
-que, al contrario, la tenía más nítida frente a los ojos.
+Sion se agarraba a la baranda del lado de dentro de la entrada.
 
-Nasim sosteniendo hasta el final,
-Nahira sin soltar el límite interior,
-Zahir levantando la línea en medio de todo aquello,
-y la legión de androides cubriéndolo todo de golpe, fríamente.
+Lo primero que le dolía no era la mano que se agarraba, sino la cara interna del codo. Llevaba un buen rato aguantando en el mismo ángulo.
 
-Más que quién cayó exactamente y cómo,
-fue la imagen de esa forma entera sepultándose bajo una violencia ordenada la que quedó por más tiempo.
+Con dieciséis dentro, el casco era estrecho.
 
-Aquello no era tanto una muerte
-como la escena de una ciudad entera siendo tragada.
+Doce iban pegados a la pared y cuatro sentados en el suelo. De los cuatro sentados, tres eran de Hazran, y cada vez que el barco se sacudía aguantaban apretándose las rodillas unos a otros. Nadie hacía ningún ruido.
 
-Han Jiwoo fue la primera en moverse.
+Eso era lo que más extraño le parecía a Sion.
 
-Con manos casi temblorosas, volvió a revisar el dispositivo de fijación,
-recorrió el estado de la entrada
-y leyó la vibración del motor.
+Con una sacudida así, lo normal es que alguien suelte un ruido, aunque sea corto. Aquí nadie lo soltaba. Era gente que ya había gastado hoy todos los momentos en que tocaba hacer ruido.
 
-—Despegamos ahora —dijo en voz baja—. Si tardamos más, nos sepultan también.
+Han Jiwoo no despegaba la espalda del asiento del piloto.
 
-Esas palabras eran un hecho que nadie podía negar.
+—Izquierda.
+Lo dijo ella.
 
-El barco aún no estaba entero.
-Pero si no partían ahora,
-la elección que Hazran había empujado hasta el final,
-y aquella última línea,
-todo se hundiría dentro de los mismos restos.
+Sern respondió sin despegarse del panel.
 
-Sion se mordió el labio.
+—Sigue igual.
 
-Lo entendía.
-Pero entenderlo no significaba aceptarlo.
+—No es que siga igual, es que no ha cambiado.
 
-Seorin habló casi masticando las palabras.
+—Sí.
 
-—Irse así parece de verdad el final.
+—En cuanto cambie, dímelo.
 
-Han Jiwoo respondió.
+Ese intercambio corto se repitió cuatro veces más mientras atravesaban la capa térmica. Cada vez las mismas palabras y cada vez con la misma fuerza.
 
-—Nos vamos para que no sea el final.
+Sion supo que esa repetición sostenía a la gente. Aquellos dos no estaban arreglando el barco: se estaban confirmando el uno al otro, una y otra vez, que el barco seguía vivo.
 
-Palabras cortas.
-Pero dentro había la terquedad de quien tiene que avanzar aunque sea a la fuerza.
+Kael, de pie junto a la entrada, no dejaba de mirar una rendija por la que ni siquiera se veía el exterior.
 
-Luhai seguía mirando afuera.
-No podía apartar los ojos del lugar donde su ciudad quedaba cubierta bajo la legión.
+—¿Ves algo?
+Lo preguntó Sion.
 
-—Ahí todavía hay gente —dijo muy bajo.
+—No.
 
-No era una réplica,
-sino unas palabras donde se mezclaban la plegaria y el rencor a la vez.
+—¿Entonces por qué miras?
 
-Aka, a su lado, habló por primera vez, despacio.
+Kael se quedó un momento callado y luego respondió.
 
-—Por eso hay que ir.
+—Si te acostumbras a no mirar, la próxima vez se te escapa.
 
-Luhai miró hacia ella.
+Sion se guardó esas palabras.
 
-Aka, con el rostro pálido y la vista puesta afuera, continuó.
+Y la capa térmica terminó.
+
+El momento en que terminó no fue ruidoso. El sonido que arañaba el casco simplemente desapareció, el temblor bajó de golpe y el aire de dentro quedó de pronto en silencio.
+
+Con el silencio fue peor.
+
+Mientras se sacudían, el cuerpo solo se ocupaba de aguantar. Al pararse, otra cosa entró a ocupar ese lugar.
+
+Sion abrió la mano con la que se agarraba.
+
+En la palma tenía hundida la marca de la baranda. Mientras la miraba, de pronto le vinieron unos números.
+
+Diez, cinco, ocho, cuatro.
+
+Era la tablilla que había visto arriba. La tablilla que había quedado en pie en medio de la ciudad derrumbada, la tablilla con números trazados que nadie iba a mirar.
+
+Los había trazado Sion.
+
+Cada uno de los cuatro grupos contaba una cosa distinta.
+
+Diez eran las veces que este barco había despegado. Veinte por diez veces. Cinco era el tiempo que había trazado porque Seorin le dijo que no lo guardara en la cabeza y lo trazara allí. Ocho eran los que no habían salido hasta el final, y hacía un momento esos ocho habían subido primero por la rampa.
+
+Cuatro eran los que se quedaban.
+
+Esos cuatro eran los cuatro que habían hecho esta ciudad.
+
+La tablilla seguía ahora allá abajo.
+
+Y la undécima marca no se trazó. Esta vez habían subido dieciséis, pero la tablilla donde trazarla estaba fuera y Sion, dentro.
+
+Sion estiró los dedos.
+
+Despegó la mano de la baranda y apoyó la yema de los dedos en una pared donde no había nada. No quedó ninguna marca. Aun así, trazó una vez.
+
+Esa fue la última raya.
+
+Era un sitio que nadie podía ver.
+
+—¿Qué haces?
+
+Era Seorin.
+
+Sion bajó la mano.
+
+—Estoy contando.
+
+Seorin no dijo nada enseguida. Miró un momento la pared que había tocado la mano de Sion y luego habló.
+
+—¿Cuántos van?
+
+—Once veces.
+
+—¿De qué?
+
+—Las que ha despegado este barco.
+
+Solo entonces Seorin se volvió del todo hacia Sion.
+
+—Diez están en la tablilla, y esta no está en ninguna parte.
+
+Seorin se quedó un largo rato sin decir nada.
+
+Después habló muy bajo.
+
+—A los cuatro que quedaron los estás contando aparte.
+
+Sion no pudo decir que no.
+
+Los estaba contando. Había intentado no contarlos, pero ya los estaba contando.
+
+Una de las personas de Hazran sentadas en el suelo oyó esas palabras. No levantó la cabeza. Solo la mano que tenía sobre la rodilla se movió muy poco.
+
+Sion miró esa mano.
+
+Esa persona le estaba poniendo ahora, a un número, una cara que conocía. El que cuenta y el que es contado oyen el mismo número de maneras completamente distintas.
+
+Solo entonces supo Sion qué había hecho mal.
+
+Aquí no había que decir los números en voz alta.
+
+—Lo siento.
+Lo dijo Sion.
+
+La persona negó con la cabeza. No quería decir que no pasaba nada; se acercaba más a decir que no era él quien tenía que pedir perdón.
+
+Mientras tanto, Kael había dado una vuelta por el interior y había vuelto.
+
+—¿Cuánta agua hay?
+Lo preguntó él.
+
+Han Jiwoo no respondió enseguida. Sern habló en su lugar.
+
+—Se cargó contando con ocho.
+
+—Ahora somos dieciséis.
+
+—Sí.
+
+Kael no preguntó más. Preguntando, solo iba a salir un número.
+
+En ese intercambio corto, Sion volvió a saber qué había estado contando hasta hacía un momento.
+
+Contar a los que salían se había terminado. A partir de ahora se contaba lo que había dentro. Cuántos días de agua, cuántos días de aire, cuántas personas caben sentadas.
+
+Eso era lo que había aprendido en Hazran. Lo que no se cuenta pasa a no haber existido.
+
+Aquí era al revés. Si cuentas, lo que falta se ve con exactitud.
+
+—Repártanla a la mitad.
+Lo dijo Han Jiwoo.
+
+—¿Quién la reparte?
+Lo preguntó Sion.
+
+—Tú.
+
+Sion se detuvo un momento.
+
+—¿Por qué yo?
+
+—Porque eres tú el que cuenta.
+
+Luhai estaba sentado contra la pared de enfrente, abrazándose las rodillas.
+
+Llevaba un buen rato sin decir una sola palabra. Dentro de este barco, el que más tiempo había vivido en Hazran era el que menos hablaba.
+
+Mientras repartía las cantimploras, Sion le dejó una también delante a Luhai.
+
+Luhai no la tomó.
+
+—¿No vas a beber?
+
+—Yo soy de Hazran.
+Lo dijo Luhai.
+—Esta no es agua de Hazran.
+
+No tenía sentido. Sion no le dijo que no tenía sentido.
+
+Al rato, Luhai tomó la cantimplora. Aun después de tomarla, tardó mucho en abrirla.
+
+Aka estaba de pie junto a la entrada.
+
+Estaba pálida. Más que estar de pie, se apoyaba en la pared para no derrumbarse. Pero los ojos seguían mirando hacia donde había estado el exterior.
+
+—Siéntate.
+Lo dijo Han Jiwoo sin volverse siquiera.
+
+Aka no se sentó.
+
+—Que te sientes.
+
+—Tengo que mirar.
+
+—Ya no se ve.
+
+—Por eso tengo que mirar.
+
+Han Jiwoo no insistió más.
+
+Sion fue a su lado.
+
+—¿Qué miras?
+
+Aka respondió al cabo de un largo rato.
 
 —El que vio eso tiene que ir.
 
-Sion sintió que esas palabras le atravesaban el pecho.
+Sion sintió que esas palabras le daban de lleno en lo más hondo del pecho.
 
-Era cierto.
-Partir ahora no era una exención.
-Era partir como testigo.
+No habían subido a este barco por suerte. Zahir los había llevado hasta el umbral y los había metido dentro, Nasim les había empujado la espalda, Nahira les había soltado la mano. Lo último que había hecho aquella gente era sacar afuera a los de este lado.
 
-Cómo se cerró Hazran,
-qué cubrió aquella línea,
-quién no soltó su lugar hasta el final.
-Los que vieron eso eran los que iban hacia lo siguiente.
+Entonces no habían sobrevivido: los habían enviado.
 
-Kael, revisando el último estado fuera de la entrada, dijo en voz baja.
+Quien es enviado tiene que llevarse lo que vio.
 
-—Si no es ahora, ni el casco sale.
+Ater habló muy quedo, desde atrás.
 
-En cuanto cayeron esas palabras,
-Han Jiwoo ya no vaciló.
+—No hay registro.
 
-—Suelten la fijación —dijo—. Subo la potencia.
+Sion se volvió.
 
-El casco entero tembló una vez con fuerza.
+—¿Qué registro?
 
-Todos los que estaban dentro se sacudieron junto con él,
-y Sion, por instinto, se agarró a la baranda de la entrada.
+—De lo que pasó aquí.
+Lo dijo Ater.
+—Dejamos atrás la tablilla, y la ciudad se cerró. En los registros del Imperio quedará de otra manera.
 
-El momento de partir siempre se dibuja como una especie de liberación,
-pero la sensación de esta nave moviéndose no era en absoluto así.
+Sern añadió sin apartar los ojos del panel.
 
-No era la sensación de quedar libre,
-sino más bien la de ser arrancado a la fuerza.
+—Seguramente ya ha llegado de otra manera.
 
-De Hazran,
-de la última línea,
-del lado de aquella gente.
+—¿Qué pondrán?
+Lo preguntó Sion.
 
-Cuando la nave fue empujada hacia adelante de manera muy brusca,
-Luhai habló casi como un grito.
+Ater se quedó un momento callado y luego respondió.
 
-—Espera, todavía…
+—Pondrán que fue una limpieza.
 
-Pero esas palabras no llegaron hasta el final.
+Sion oyó esa palabra como si fuera la primera vez.
 
-Porque el motor cobró vida a la fuerza
-y el último sonido de metal que sujetaba el casco se desgarró.
+Si a los muertos los llamas limpieza, a partir de ahí nadie vuelve a contar cuántos son.
 
-Han Jiwoo, apretando los dientes, gritó.
+Al pensarlo, a Sion se le heló la espalda.
 
-—¡Aguanten! ¡Hay que romper y salir ahora!
+Fuera, esto quedaría escrito con otro nombre. Quién hizo qué y quién no retrocedió hasta el final no entraría en ese registro.
 
-El barco temblaba como una bestia herida
-y aun así, poco a poco, empezó a sacar su cuerpo hacia afuera.
+Entonces lo único que queda son los que lo vieron.
 
-Sion, incluso en medio de aquella sacudida, miró afuera hasta el final.
+Sion volvió a apoyar los dedos en la pared.
 
-Ahora la forma de Hazran ya casi no se veía.
-Solo el lugar que la legión de androides había cubierto,
-y bajo él la última línea sepultada,
-quedaban, horriblemente.
+Esta vez no trazó nada. Solo los apoyó.
 
-Cuanto más se alejaba esa escena,
-más nítida era, al contrario, la emoción que Sion sentía.
+La tablilla estaba allá abajo y la marca no quedaba en ninguna parte, pero los números estaban aquí. No solo habían traído personas.
 
-Esto no era una despedida.
-Esto era una responsabilidad cedida.
+—Han Jiwoo.
+Lo dijo Sion.
 
-Una responsabilidad que aquella gente, gastando del todo lo que era suyo,
-había transferido a este lado.
+—¿Qué?
 
-Seorin habló muy bajo.
+—Sobre el planeta de las máquinas…
 
-—Hay que volver, sin falta.
+La mano de Han Jiwoo se detuvo un instante.
 
-Esta vez nadie dejó pasar esas palabras.
+—Eso no es un destino, ¿verdad?
 
-Han Jiwoo no apartaba los ojos de las lecturas de potencia,
-Kael, tras revisar afuera, endureció la mandíbula,
-Luhai se mordía el labio con tanta fuerza que casi se rompía.
-Aka también, con el rostro pálido, seguía mirando al frente tal cual.
+Han Jiwoo no respondió enseguida. Comprobó una vez más los valores de potencia y luego habló.
 
-Sion inhaló despacio.
+—No.
 
-Las palabras de Zahir volvieron.
+—¿Entonces?
 
-Busquen el planeta de las máquinas.
+—Una deuda.
 
-Eso ya no era un simple destino siguiente.
-Era el camino hacia la causa que había hecho a Hazran así,
-y el camino que había que recorrer sin falta para que el tiempo de los que quedaron no se desperdiciara.
+Lo dijo cortando en seco y volvió al panel.
 
-Sion dijo en voz baja.
+Sion sostuvo mucho tiempo aquella sola palabra.
 
-—Hay que proteger a los que quedaron.
+No iban a buscarlo: iban a saldar algo. Lo que había que saldar estaba allá, pero quienes les habían dejado la deuda iban cargados a la espalda de los de aquí.
 
-Seorin lo tomó enseguida.
+El casco volvió a soltar un quejido bajo.
 
-—Y recuperarlo.
+Esta vez era el sonido de algo que aguantaba.
 
-Luhai, mucho más tarde, añadió casi con la voz quebrada.
+El barco todavía tenía pocas partes sanas y tampoco había fijado bien el rumbo. Dentro iban dieciséis, y cada uno de esos dieciséis llevaba consigo una raya sin trazar.
 
-—A Hazran también.
-
-Tres frases cortas.
-Pero con eso bastaba.
-
-Proteger a los que quedaron.
-Buscar el planeta de las máquinas.
-Algún día recuperar Hazran.
-
-Esas tres cosas
-fijaron de golpe la próxima vida de los que quedaban dentro del casco.
-
-La nave todavía temblaba inestable,
-y tampoco había entrado en una ruta del todo segura.
-Pero al menos una cosa estaba clara.
-
-Este barco no se limitaba a llevarse a los que habían sobrevivido.
-
-El precio que la última línea de Hazran pagó aguantando hasta el final,
-la responsabilidad de los que lo vieron,
-y hasta el voto de tener que volver,
-todo eso lo cargaba consigo mientras partía.
+Así se alejó la nave de Hazran.
 
 ---
 

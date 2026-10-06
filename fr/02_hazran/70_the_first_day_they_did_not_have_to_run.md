@@ -1,129 +1,121 @@
-# Chapitre 70 — Le premier jour où ils n'eurent plus à courir
+# Chapitre 70 — Un corps qu'il faut encore ranimer
 
+Même après que le feu eut pris pour la première fois dans le couplage auxiliaire, le travail à l'intérieur ne s'arrêta pas là. Il ne pouvait pas s'arrêter là.
 
-Même après que la première flamme eut pris dans le couplage auxiliaire,
-le travail à l'intérieur ne s'arrêta pas là.
+Pendant que, dehors, le règlement de comptes de Haroun s'achevait et que l'air du marché de récupération retombait une première fois, à l'intérieur, ils avaient passé la nuit presque entière.
 
-Il ne pouvait pas s'arrêter là.
+Même après avoir un peu reculé la main qui tenait la braise, Sion ne cessait de repenser à ce frémissement qui venait de courir, bref, à l'intérieur de la coque.
 
-Dehors, le règlement de comptes de Haroun était terminé,
-et pendant que l'air du marché de récupération retombait une première fois,
-à l'intérieur, ils avaient englouti la nuit presque entière.
+C'était très bref et très petit. C'est pour cela que c'était d'autant plus net.
 
-Sion, même après avoir légèrement retiré la braise au creux de sa main,
-ne cessait de repenser à ce frémissement infime qui venait de traverser la coque.
+Sion ne pensait pas que c'était quelque chose de nouveau. Quelque part dans cette coque, quelque chose se souvenait encore de la façon dont ça passait.
 
-C'avait été très bref.
-Très faible.
-
-Et c'est justement pour ça que c'était aussi net.
-
-Si ç'avait été faux, ça aurait été plus spectaculaire.
-Le son aurait été plus fort, la lumière plus visible.
-Mais ce qui venait de se produire n'était pas de cet ordre.
-
-C'était si petit que, paradoxalement,
-cela ressemblait davantage à la preuve que quelque part dans cette coque, quelque chose se souvenait encore de la manière dont les choses passaient autrefois.
+Se souvenir voulait dire que c'était passé au moins une fois. Sur cette pensée, Sion regarda de nouveau le creux de sa main.
 
 Han Jiwoo regardait déjà la suite.
 
-Elle observait tour à tour l'intérieur du couplage auxiliaire,
-la structure centrale qu'ils n'avaient pas encore touchée,
-et les fines traces de brûlure sur le réceptacle.
+Elle regardait tour à tour l'intérieur du couplage auxiliaire, la structure centrale à laquelle ils n'avaient pas encore touché et les fines traces de chaleur absorbée qui restaient sur le cadre de réception.
 
-« On ne pousse pas plus loin tout de suite. »
-dit-elle à voix basse.
+« On ne peut pas aller plus loin tout de suite. »
+Elle l'avait dit à voix basse.
 
-Sion demanda.
+Sion demanda :
 
 « Pourquoi ? »
 
-« S'accrocher et tenir, c'est pas la même chose. »
-répondit Han Jiwoo.
-« Ce qu'on vient de voir, c'est que ça n'a pas rejeté — pas que ça tiendra indéfiniment. »
+« Prendre et tenir, c'est pas pareil. »
+Han Jiwoo expliqua :
+« Ça veut juste dire que ça n'a pas repoussé. Pas que ça va tenir. »
 
-Aka ajouta calmement par-dessus ces mots.
+Aka ajouta doucement, par-dessus ces mots :
 
-« Si on en remet maintenant, ça meurt encore. »
+« Si on en donne plus maintenant, ça meurt encore. »
 
 Une phrase courte.
 
-Mais Sion la comprit presque avec le corps.
-Tout à l'heure, quand il avait à peine abaissé la main un peu plus,
-la tension entre le réceptacle et le couplage auxiliaire avait changé du tout au tout. La différence était infime, et pourtant la sensation qu'il ne fallait pas aller plus loin était parfaitement nette.
+Sion la comprit avec son corps. Tout à l'heure, quand il avait abaissé la main à peine un peu plus, tout avait changé d'un coup entre le cadre de réception et le couplage auxiliaire. La différence était minuscule, mais une chose au moins était claire : il ne fallait pas aller plus loin.
 
-Alors ce qu'il fallait maintenant, ce n'était pas agrandir la scène du succès,
-mais donner du temps à cette petite connexion qui venait de renaître — le temps de ne pas refroidir.
+Sans s'en rendre compte, Sion recula un peu la main. Ce n'est qu'après l'avoir reculée qu'il s'en aperçut.
 
 Han Jiwoo se pencha davantage sous la coque.
 
 « Le couplage auxiliaire, on peut le sauver. »
-dit-elle.
-« Mais pour ramener le centre, ça ne suffira pas. Il faut créer un autre axe capable de porter le poids. »
+Elle poursuivit :
+« Mais pour tirer jusqu'au centre, ça ne suffira pas. Il faut aussi un autre axe pour porter le poids. »
 
 Aka hocha la tête.
 
-« Et il faut plus de matériau du même grain. »
-dit-elle.
+« Et il faut plus du même grain. »
+Ce fut tout ce qu'elle dit.
 
-Sion comprit immédiatement.
+Sion comprit aussitôt.
 
-Ce genre de fragment d'éthérite terne et mal dégrossi, mais qui tenait longtemps.
-Un matériau capable de recevoir d'abord une petite flamme, comme maintenant.
-Quelque chose qu'on ne pouvait pas remplacer par n'importe quoi.
+Quelque chose comme ce fragment d'éthérite, trouble et laid, qui avait tenu si longtemps. Un matériau qui recevrait d'abord la petite flamme. Quelque chose qu'on ne pouvait pas remplacer par n'importe quoi.
 
 « Il n'y en a pas beaucoup ? »
-demanda Sion.
+Sion avait posé la question.
 
-Aka répondit brièvement.
+Aka répondit brièvement :
 
-« Pas ici dedans. »
+« Ici dedans, il y en a peu. »
 
-En substance, cela voulait dire qu'il fallait en chercher dehors.
+Autrement dit, il fallait en trouver davantage dehors.
 
 Han Jiwoo était arrivée à la même conclusion.
 
-« Il faut fabriquer un deuxième réceptacle. »
-dit-elle.
-« Et il y a des endroits où il faudra changer le métal de la coque extérieure. Même si l'intérieur tient pour l'instant, au niveau où on pourrait faire bouger le vaisseau, c'est le dehors qui se déchirerait en premier. »
+« Il faut fabriquer un deuxième cadre de réception. »
+Elle poursuivit :
+« Et je vois des endroits où il faudra changer le métal de la peau extérieure. Même si ça tient de l'intérieur pour l'instant, quand on en sera à faire bouger la coque, c'est le dehors qui risque de se déchirer en premier. »
 
 Sion regarda de nouveau la coque.
 
-Jusqu'à hier encore, elle ressemblait à un corps à moitié mort,
-et maintenant il commençait à distinguer, peu à peu, ce qui tenait déjà et ce qui ne tenait pas encore.
+Jusqu'à hier, elle lui avait simplement paru un corps à moitié mort. Maintenant, il commençait à voir, peu à peu, ce qui tiendrait le premier et ce qui ne tenait pas encore.
 
-C'est justement pour ça qu'il comprit mieux.
+De le voir, il comprit mieux. Ce n'était pas un travail qui se finirait en un jour ou deux. Ce qu'ils venaient de faire était un début, pas un achèvement.
 
-Ce n'était pas un travail qui se finirait en un jour ou deux.
-Ce qu'ils venaient de faire était un début,
-pas un achèvement.
-
-Aka, au lieu de retirer avec précaution le réceptacle,
-choisit de le fixer provisoirement en place. Elle ajouta un liant de couplage très léger et de fines lamelles de métal, de manière à retenir la première réaction qui venait de naître avant qu'elle ne se disperse.
+Au lieu de détacher de nouveau le cadre de réception avec précaution, Aka choisit de le fixer provisoirement sur place. Elle y ajouta un fil de liaison très fin et une mince lamelle de métal, de façon à retenir la première réaction qui venait de naître pour qu'elle ne se disperse pas aussitôt.
 
 « On laisse ça. »
-dit-elle.
-« Je veux voir si ça refroidit. »
+Elle ajouta :
+« Je vais voir si ça refroidit. »
 
-Han Jiwoo hocha aussitôt la tête.
+Ces mots pesèrent étrangement sur Sion.
 
-« C'est juste. »
-dit-elle.
-« Ce qui compte maintenant, c'est pas d'en remettre — c'est de voir si ça tient vraiment. »
+Jusque-là, ils avaient regardé si ça marchait. Maintenant, ils regardaient si ça durait.
 
-Sion referma la braise au creux de sa main.
+Que ça marche, une fois suffit ; que ça dure, il faut le surveiller sans cesse. Si ça ne refroidissait pas de la nuit, ils feraient un pas de plus demain ; si ça refroidissait, ce qu'ils avaient fait aujourd'hui n'aurait servi à rien.
 
-Pour la première fois, l'idée que cette flamme aussi avait besoin de repos lui vint.
-Il l'avait tenue sans relâche,
-mais cette envie même de la poser sur quelque chose en permanence
-pouvait au contraire devenir dangereuse.
+« Il faut surveiller combien de temps ? »
+
+« Toute la nuit. »
+
+Ce fut Aka qui répondit.
+
+« Qui va surveiller ? »
+
+« Pas besoin. Le matin, en touchant, on saura. »
+
+Sion trouva cela encore plus effrayant.
+
+Tant qu'on surveille, on peut toujours faire quelque chose. Si ça refroidit pendant qu'on dort, personne ne peut l'empêcher.
+
+Han Jiwoo hocha aussitôt la tête à ces mots.
+
+« C'est ça. »
+Elle continua :
+« Ce qui compte maintenant, c'est pas d'en pousser plus dedans, c'est de voir si ça tient vraiment. »
+
+Sion enveloppa de nouveau la braise dans sa main.
+
+Pour la première fois, l'idée lui vint que ce feu aussi avait besoin de repos.
+Il le tenait sans relâche, mais cette envie même de toujours l'approcher de quelque chose pouvait être plus dangereuse encore.
 
 Aka se tourna vers Sion.
 
 « Toi aussi. »
-dit-elle.
+Elle s'adressait à lui.
 
-Sion répondit.
+Sion répliqua :
 
 « Quoi ? »
 
@@ -131,82 +123,113 @@ Sion répondit.
 
 Sion resta un instant sans voix.
 
-C'était étrange à entendre.
-Depuis qu'il était arrivé à Hazran,
-presque personne ne lui avait dit une chose pareille. La plupart du temps, il fallait courir plus, tenir plus, juger plus vite.
+C'était étrange. Depuis son arrivée à Hazran, presque personne ne lui avait dit ça. La plupart du temps, il avait fallu courir plus, tenir plus, juger plus vite.
 
-Mais Aka le dit comme si cela faisait partie du travail,
-comme si se reposer était la chose la plus évidente du monde.
+Aka parlait du repos comme d'une évidence, comme si cela aussi faisait partie du travail.
 
-Han Jiwoo laissa échapper un rire très bas à côté d'elle.
+Alors seulement, Sion comprit qu'Aka venait de lui dire la même chose qu'au vaisseau tout à l'heure.
 
-« Elle a raison. »
-dit-elle.
+Si on en donne plus maintenant, ça meurt encore. Si on le met directement, ça brûle encore. Il faut d'abord un cadre de réception.
+
+Les mots dits au vaisseau valaient tels quels pour une personne.
+
+Sion savait aussi que ce n'était pas une image. Pour cette enfant, c'était le même problème. Pour sauver quelque chose, il fallait d'abord que ce qui le recevait ne se brise pas.
+
+Ce qui recevait ce vaisseau, maintenant, c'était la main de Sion.
+
+Alors ce cadre-là aussi, il fallait voir s'il refroidissait pendant la nuit.
+
+À côté, Han Jiwoo eut un rire très bas.
+
+« C'est bien vrai. »
+Elle ajouta :
 « Si tes mains perdent leur sensibilité maintenant, ce qui a pris tout à l'heure, tu ne pourras pas le refaire la prochaine fois. »
 
-Sion finit par lâcher un bref soupir.
+À ces mots, Sion finit par lâcher un bref soupir.
 
-C'est vrai.
+Sion ouvrit et referma la main.
 
-Ce qu'il fallait maintenant, ce n'était pas foncer bravement plus loin,
-mais préserver un état qui lui permettrait de recommencer avec précision la prochaine fois.
+À force de garder la même position depuis tout à l'heure, le bout de ses doigts s'était un peu engourdi. En touchant, il aurait dû savoir ; mais maintenant, il lui semblait que même en touchant, il ne sentirait pas la différence.
 
-Aka recula d'un pas par rapport à la coque.
+Sion toucha une fois le métal du bas de la coque. C'était un endroit resté longtemps à l'air de la nuit ; il devait être froid.
 
-Et pour la première fois,
-elle parla comme quelqu'un qui n'irait pas plus loin aujourd'hui.
+Il était froid, oui. Mais il ne savait pas à quel point.
 
-« On s'arrête là. »
+Tout à l'heure, quand il avait posé la main près du couplage auxiliaire, la différence lui venait séparément à chaque phalange. Sa main savait avant lui jusqu'où c'était revenu à la vie et à partir d'où c'était encore mort. Maintenant, toute sa main lui arrivait d'un seul bloc.
 
-Court, mais sans appel.
+Cela voulait dire que ses sens étaient morts.
 
-En entendant ces mots, Sion
-sentit moins que le travail intérieur s'était arrêté
-que le fait que le dehors était désormais nécessaire.
+Ce qui effrayait Sion davantage, c'était de ne pas l'avoir remarqué lui-même. S'il avait cru pouvoir aller plus loin, c'était en réalité parce qu'il sentait moins.
 
-Plus de matériaux.
-Un métal qui convienne mieux.
-Du temps.
-Et les mains de gens qui vivaient dehors.
+Aka recula d'un pas, loin de la coque.
+
+Puis, pour la première fois, elle parla comme quelqu'un qui n'irait pas plus loin aujourd'hui.
+
+« On s'arrête ici. »
+
+Une déclaration courte, mais sans appel.
+
+En l'entendant, plutôt que de sentir que le travail intérieur s'arrêtait, Sion sentit d'abord qu'ils avaient désormais besoin du dehors.
+
+Plus de matériaux, un métal qui convienne mieux, du temps. Et les mains des gens qui vivaient dehors.
 
 Han Jiwoo pensait déjà la même chose.
 
-« Il faut trouver d'autres pièces. »
-dit-elle.
-« Plus d'éthérite aussi, et il faut choisir un métal pour remplacer la coque extérieure. »
+« Il faut chercher plus de pièces. »
+Elle poursuivit :
+« Il faut aussi plus d'éthérite, et choisir un métal pour remplacer la peau extérieure de la coque. »
 
-Aka dit brièvement.
+Aka dit brièvement :
 
 « Il y en a au marché de récupération. »
 
-En entendant cela, Sion faillit sourire, très légèrement.
+« Mais tout y a été renversé ? »
 
-Au bout du compte, c'était encore le dehors.
-Mais cette fois, ce n'était pas qu'on les chassait —
-c'était pour sauver quelque chose qu'ils sortaient.
+Sion s'en étonnait.
 
-Cette différence était immense.
+« C'est parce que c'est renversé que ça sort. »
 
-Juste avant de franchir le seuil intérieur,
-Sion se retourna une fois.
+Aka poursuivit :
 
-Le premier réceptacle, fixé provisoirement au couplage auxiliaire.
-La chaleur infime qui subsistait encore à l'intérieur.
-Et la coque qui venait tout juste d'entendre qu'elle n'était pas un corps tout à fait mort.
+« Ce qui n'est pas cassé, on ne le vend pas. »
 
-C'était encore loin.
-Mais ce n'était pas non plus une chimère.
+Sion mit un moment à comprendre.
 
-Emportant cette seule sensation,
-tous les trois ressortirent.
+Le terrain avait été brisé, les dispositifs arrachés, les tentes effondrées. Alors le métal cassé sortait d'un seul coup. Ce dont quelqu'un se servait encore hier montait aujourd'hui sur les tableaux de prix.
 
-L'air du dehors était plus rude que celui de l'intérieur,
-mais cette rudesse n'avait plus rien de l'accablement d'avant.
+Le métal qui sauverait ce vaisseau était né de cette ville qui s'était brisée hier.
 
-Parce que ce qu'il y avait à faire était devenu clair.
+Sion n'aimait pas ça. Il n'aimait pas ça, mais c'était nécessaire.
 
-Hazran n'était pas encore l'endroit qu'on quitte,
-mais celui où l'on reste un peu plus longtemps pour rassembler ce qui sauverait ce vaisseau.
+Et les gens d'ici n'y trouveraient sans doute rien à redire. Rassembler ce qui est cassé et le vendre, c'était la façon de vivre de cet endroit, et Sion l'avait apprise en quelques jours.
+
+À ces mots, Sion faillit esquisser un tout petit sourire.
+
+Au bout du compte, c'était de nouveau le dehors. Mais cette fois, il n'avait pas besoin de regarder derrière lui.
+
+Juste avant de franchir le seuil intérieur, Sion se retourna une fois.
+
+Il y avait le premier cadre de réception, fixé provisoirement au couplage auxiliaire. À l'intérieur, une chaleur infime subsistait encore, et au-dessus était suspendue la coque qui venait tout juste d'entendre qu'elle n'était pas un corps tout à fait mort.
+
+C'était encore loin. Ce n'était pas non plus une chimère.
+
+Quelques jours plus tôt, ce vaisseau était un fardeau en train de mourir. Le traîner avec soi coûtait déjà un prix, et on n'aurait pu le vendre nulle part.
+
+Maintenant, il y avait une liste. Qu'il y ait une liste voulait dire qu'on pouvait le réparer.
+
+Pour la première fois depuis son arrivée à Hazran, Sion compta une liste.
+
+Un deuxième cadre de réception. De l'éthérite du même grain. Du métal pour remplacer la peau extérieure. Et les quelques jours qu'il faudrait pour trouver les trois.
+
+Ce n'était pas ce qu'il comptait avant de venir ici. Alors, il comptait ce qui restait. Maintenant, il comptait ce dont ils avaient besoin.
+
+Compter ce qui diminue et compter ce qu'il faut remplir, ce n'était pas le même calcul.
+
+Tous les trois ressortirent.
+
+L'air du dehors était plus rude que celui de l'intérieur, mais il n'avait plus rien de l'impasse d'avant. Ce qu'il y avait à faire était devenu clair.
+
+Hazran n'était plus l'endroit qu'on quitte. C'était devenu celui où l'on reste un peu plus longtemps pour rassembler de quoi sauver ce vaisseau.
 
 ---
 

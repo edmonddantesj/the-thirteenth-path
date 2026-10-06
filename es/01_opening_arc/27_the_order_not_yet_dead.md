@@ -1,232 +1,341 @@
 # Capítulo 27 — El orden que aún no ha muerto
 
-El aire entre las aristas había cambiado desde hacía un momento.
+El aire entre las esquinas era distinto del de hacía un momento.
 
-Seguía igual de estrecho, igual de inestable, igual de cerca de un mal gesto que pudiera matar el fragmento, el camino y la reacción que quedaba, todo de golpe. Solo que ahora sabían al menos una cosa, los tres. El que sostenía el fragmento más grande sabía ya, él también, que no podría llevarlo hasta el final solo.
+Seguía siendo estrecho, seguía siendo inestable, y seguía siendo una distancia en la que, si alguien tocaba algo mal antes que los demás, el fragmento y el camino podían morir juntos.
 
-Sin apartar los ojos del fragmento, Sion dijo:
+Sion habló sin apartar los ojos del fragmento.
 
-—Si tiramos de esto más tiempo, morimos todos. El fragmento, el camino, la reacción que queda.
+—Si alargamos esto más, morimos todos. El fragmento, el camino y la reacción que queda.
 
-El hombre, dejando apenas algo de fuerza en la mano que sostenía el fragmento más grande, respondió:
+El hombre respondió dejando solo un poco de fuerza en la mano que sostenía el fragmento más grande.
 
 —Por eso no eché a correr.
 
-Sern, mirando alternativamente la pared y el borde del fragmento, dijo en voz baja:
+Sern, mirando alternativamente la pared y el borde del fragmento, habló en voz baja.
 
-—El discriminador puede responder una última vez todavía. Pero si el orden es el equivocado, se acabó.
+—El siguiente discriminador puede reaccionar quizá una última vez. Pero si nos equivocamos de orden, ahí se acaba.
 
-Ater añadió:
+Ater continuó esas palabras.
 
-—Lo que hace falta ahora es la apertura, no la recuperación.
+—Lo que hace falta ahora es abrir, más que recuperar.
 
-El hombre, al oír esa frase, miró a Ater por primera vez un poco más largo.
+El hombre, al oír esa frase, miró por primera vez a Ater durante un poco más de tiempo.
 
-—Para ser del Imperio, raras veces tienes razón. Ahora la tienes.
+—Para venir del lado del Imperio, es raro oír algo tan acertado.
 
-Ater no cambió de expresión.
+Ater no cambió en absoluto de expresión.
 
-—Y tú haces menos ruido que la gente del puerto.
+—Y usted, por su parte, hace menos ruido que un peón de los bajos fondos.
 
-Por el canal cercano, la voz de Seorin se intercaló, breve.
+Por el canal de proximidad, Seorin se metió en voz baja.
 
-—Sigan, pero solo mientras los dos estén vivos.
+—Sigan con eso solo mientras los dos estén vivos.
 
-Esa frase corta bastó para volver a centrar a todos.
-
-Sion preguntó:
+Sion preguntó.
 
 —Tu nombre.
 
-El hombre calló un instante.
-Aquel silencio se parecía menos a una vacilación que al hábito de alguien para quien la verdad de un nombre, en ese momento exacto, ya no tiene mucha importancia.
+El hombre se quedó callado un momento.
+Aquel silencio no parecía tanto una duda como la costumbre de alguien para quien da igual que el nombre que va a decir sea verdadero o no.
 
 —Kael.
 
-Sion hizo rodar el nombre en silencio, una vez.
+Sion hizo rodar ese nombre una vez por dentro.
 
-Corto, ligero, un nombre que podría cortarse demasiado fácil. Y precisamente por eso parecía la clase de nombre que elegiría alguien que había vivido mucho tiempo fuera de los registros. Alguien que deja primero el nombre que se puede pronunciar ahora, antes que el verdadero.
+Un nombre corto, ligero, que se podía cortar con demasiada facilidad. Pero, precisamente por eso, también parecía la clase de nombre que elegiría alguien que había pasado mucho tiempo fuera de los registros. Alguien que, antes que su nombre verdadero, deja primero un nombre con el que se le pueda llamar ahora.
 
-Por el canal, Seorin guardó silencio una fracción de segundo.
-No era la clase de pausa que hacía de costumbre para juzgar.
+Seorin se quedó en silencio, muy brevemente.
+Aquel silencio era de otra clase que las pausas de juicio que solía hacer.
 
-—¿…Kael?
+—…¿Kael?
 
 Sion lo notó enseguida.
 
-—¿Qué?
+—¿Qué pasa?
 
 —Nada.
-La voz de Seorin recuperó su tono de siempre.
-—Es mi apellido.
+La voz de Seorin volvió enseguida a ser la de siempre.
+—Es que es igual que mi apellido.
 
-A Sion se le escapó una sonrisa.
+Sion soltó una risita.
 
-—Kael es un apellido cualquiera entre los Myo. Afuera, uno de cada tres se llama Kael.
+—¿Desde cuándo Kael es un apellido especial entre los Myo? Afuera, uno de cada tres es Kael.
 
 —Eso es verdad.
-Seorin no insistió más.
-Solo que, por un breve instante, pareció pensarlo una vez más, como alguien que acababa de confirmar, antes que nada, que ese nombre era falso.
+Seorin no lo alargó más.
 
-Sern dijo en voz baja:
+Solo que, un compás después, hizo una pregunta más. Con la misma voz de antes.
 
-—Bien. Kael. Entonces empecemos por ajustar hasta dónde leyó cada uno.
+—¿Kael de dónde?
 
-La mirada de Kael se afiló.
+Del lado de Kael hubo un momento de silencio.
 
-—¿Me quieres poner a prueba?
+—¿Para qué preguntas eso?
 
-—No.
-Sern respondió con frialdad.
-—Quiero que no pisemos el orden equivocado.
+—Si afuera uno de cada tres es Kael, como dicen, entonces habrá que preguntar de qué Kael se trata.
 
-No era cuestión de orgullo, era cuestión de supervivencia concreta. Kael lo entendió enseguida y no discutió.
+Otra vez silencio. Más largo que antes.
 
-Ater dio un paso adelante con mucho cuidado. Manteniendo la distancia propia de quien lee las estructuras, se acercó lo mínimo necesario para ver los motivos y las líneas de daño del fragmento más grande.
-
-—Usted lo leyó primero, es cierto.
-Dijo en voz baja.
-—Entonces también sabe dónde se rompió.
-
-Kael señaló con el mentón un punto algo por debajo del centro del fragmento.
-
-—Aquí. El motivo exterior está vivo, pero la línea de aprobación interior muere a mitad de camino.
-
-La mirada de Ater cambió al instante.
-
-—No está muerta. Está cortada.
-
-Un breve silencio.
-
-Kael lo miró.
-
-—¿Hay alguna diferencia?
-
-—Grande.
-La voz de Ater era baja y nítida.
-—Un registro muerto obliga a pensar en la restauración. Un registro cortado cambia el método mismo de empalme.
-
-Sion miró a los dos, uno y otro.
-
-—En una palabra.
-
-Esta vez fue Sern quien resumió.
-
-—Que este fragmento solo no basta para abrir.
-
-Nadie lo rebatió.
-
-Dicho en voz alta, el peso cambió.
-
-Sion dijo en voz baja:
-
-—Así que por eso no escapaste.
-
-Kael no lo negó.
-
-—Escapar podría.
-Respondió despacio.
-—Pero si lo hiciera, esto no sería más que chatarra cara.
-
-Por el canal cercano, la voz de Han Jiwoo entró, breve.
-
-—La reacción de la estructura vuelve a bajar. No aguanta mucho.
-
-Ante esas palabras, todas las miradas convergieron un instante hacia el interior.
-
-Sion sacó la conclusión enseguida.
-
-—Bien. Entonces repartamos los papeles primero.
-
-Kael, al oírlo, no se sorprendió. Más bien volvió los ojos hacia Sion, como si lo hubiera estado esperando.
-
-Sion habló primero.
-
-—Yo enlazo la luz residual y los rastros.
-
-Ater siguió de inmediato.
-
-—Yo leo las líneas de discriminación y la estructura de aprobación.
-
-Sern añadió en voz baja:
-
-—Yo sostengo el orden y los intervalos.
-
-Tras un breve silencio, Kael dijo:
+—…No me acuerdo.
 
 —Bien.
 
-Reacomodó un poco el fragmento más grande en la mano.
+Seorin lo dejó ahí.
 
-—Esto lo cargo yo. Por el peso, sí, pero también porque, si la reacción se descontrola, el que tiene que cortarse primero es el que sostiene esto.
+Sion no entendió qué había sido aquel ir y venir tan corto. Pensó que a ella le había alegrado oír un apellido conocido, y que, como el otro no contestaba, se había retirado por cortesía.
 
-A Sion se le levantó apenas la comisura del labio.
+Sern no lo entendió, pero contó. Era la cuarta vez en el día que el otro no respondía, y las tres anteriores habían sido todas sobre el fragmento y el camino. Era la primera vez que se detenía el mismo tiempo ante una pregunta sobre su apellido.
 
-—Es la primera cosa que dices que me gusta de verdad.
+Sern habló en voz baja.
+
+—Bien. Kael. Entonces empecemos por poner en común hasta dónde ha leído cada uno.
+
+Kael entornó los ojos.
+
+—¿Me estás diciendo que me vas a poner a prueba?
+
+—No.
+Sern respondió con frialdad.
+—Le estoy diciendo que ninguno de nosotros va a pisar un orden equivocado.
+
+Kael, como si eso lo hubiera entendido al momento, no discutió más.
+
+Ater dio un paso al frente con muchísimo cuidado. Era el acercamiento mínimo para ver el motivo y las líneas de daño del fragmento más grande.
+
+—Es cierto que usted lo leyó primero.
+Lo dijo en voz baja.
+—Entonces también sabrá dónde se cortó.
+
+Kael señaló con la barbilla un punto un poco por debajo del centro del fragmento.
+
+—Aquí. El motivo de fuera está vivo, pero la línea de aprobación de dentro se muere a la mitad.
+
+La mirada de Ater cambió en el acto.
+
+—No está muerta. Está cortada.
+
+Kael lo miró.
+
+—¿Hay diferencia?
+
+—Mucha.
+
+Al oír esas dos palabras, Sion levantó la cabeza.
+
+Ya había cruzado las mismas palabras con Seorin en el muelle. «Lo abrieron y lo volvieron a cerrar.» «No, intentaron abrirlo y lo dejaron a medias.» «¿Hay diferencia?» «Mucha.»
+
+Aquella vez había sido una cápsula de almacenamiento; ahora era un camino.
+
+Ater siguió hablando.
+
+—Con un registro muerto hay que plantearse la recuperación, pero con un registro cortado cambia hasta la manera de volver a unirlo.
+
+—¿Cómo cambia? —preguntó Kael.
+
+—Lo muerto devuelve a la vida lo que ya estaba. Con lo cortado, primero hay que decidir dónde encajar lo que no está.
+
+—¿Y por qué es distinto?
+
+—Con lo muerto no hay forma de equivocarse, porque vuelve lo que ya estaba —dijo Ater, sin apartar los ojos del fragmento—. Con lo cortado, sí. Si se encaja mal, aparece un orden que no existía.
+
+Los dedos de Kael se detuvieron un momento en el borde del fragmento. Luego volvieron a moverse.
+
+—Eso es justo lo que hicieron ellos, ¿no?
+
+—Sí.
+
+—Crear un orden que no existía.
+
+—Sí.
+
+Sion, mirando alternativamente a los dos, habló en voz baja.
+
+—O sea, que si lo unimos mal, estaremos haciendo exactamente lo mismo que hicieron ellos.
+
+Sern recogió esas palabras.
+
+—Así es. Y, a diferencia de ellos, nosotros no tenemos ningún registro con el que deshacerlo.
+
+—¿En resumen? —preguntó Sion.
+
+—Quiere decir que con este fragmento solo no se abre.
+
+Nadie lo rebatió.
+
+Una vez confirmado en voz alta, el peso cambió.
+
+Sion habló en voz baja.
+
+—Por eso no huiste.
+
+—Huir, podría.
+Kael respondió despacio.
+—Pero entonces esto se queda en chatarra cara y nada más.
+
+Por el canal de proximidad entró la voz de Han Jiwoo.
+
+—La reacción de la estructura vuelve a bajar. No podemos alargarlo mucho.
+
+Al oírlo, todas las miradas se fueron un instante hacia el interior a la vez.
+
+Sion sacó la conclusión enseguida.
+
+—Entonces, primero repartamos los papeles.
+
+Kael, al oírlo, no se sorprendió. Más bien miró a Sion como si lo hubiera estado esperando.
+
+Sion habló primero.
+
+—Yo enlazo el resplandor residual y las huellas.
+
+Ater siguió enseguida.
+
+—Yo me ocupo de las líneas de discriminación y de la estructura de aprobación.
+
+Sern también añadió en voz baja.
+
+—Yo me encargaré del orden y de los intervalos.
+
+Kael habló.
+
+—Entonces, yo.
+
+Reacomodó un poco en la mano el fragmento más grande.
+
+—Esto lo llevo yo. En parte por el peso, y también porque, si la reacción se tuerce, el primero que tiene que quedar cortado es el que lo sostiene.
+
+—¿Por qué te van a cortar a ti? —preguntó Sion.
+
+—El que lo lleva es el que está más cerca, ¿no?
+
+—También se puede cambiar de manos.
+
+—Entonces te cortan a ti.
+
+—Sí.
+
+Kael miró por primera vez a Sion durante un poco más de tiempo.
+
+—…Es la primera vez que veo a alguien dar esa respuesta tan rápido.
+
+—No es que la haya dado rápido —dijo Sion, mirando hacia el fragmento—: es que lo llevo pensando desde hace rato.
+
+Kael volvió a acercarse el fragmento.
+
+—Por eso lo llevo yo.
+
+Sion levantó muy poco la comisura de los labios.
+
+—Por fin dices algo que me gusta.
 
 Kael no reaccionó a eso.
 
-—A cambio, si entro yo primero —dijo en voz baja—, tú enlazas la luz residual que se me escape. La estructura va detrás, y el orden se corta después.
+—A cambio, si entro yo primero…
+Lo dijo en voz baja.
+—…tú enlazas el resplandor residual que se me escape. La estructura se une detrás, y el orden se corta después.
 
-Sern preguntó con calma:
+Sern preguntó con calma.
 
 —¿Y si sale mal?
 
-Por el canal cercano, Seorin cortó primero.
+Seorin cortó antes que nadie.
 
 —Corto yo.
 
-Sion fue a replicar y se detuvo.
+Sion fue a replicar y no lo hizo.
 
-La voz de Seorin era baja, sin temblor.
+La voz de Seorin era baja, pero no temblaba.
 
-—Si juzgo que aguantan demasiado y van a morir todos, corto. Lo digo de antemano.
+—Si veo que, por aguantar más, van a morir todos juntos, corto yo. Eso lo digo desde ya.
 
 Esta vez nadie lo rebatió.
 
-Kael tampoco respondió nada a eso. Solo bajó los ojos una fracción de segundo y los volvió a levantar. Como si no hiciera falta confirmar que aquello no era un farol, que era alguien que de verdad podía hacerlo.
+Kael fue la única excepción.
 
-Ater dijo en voz baja:
+—Eso no.
 
-—La posibilidad es una.
+—¿Y tú quién eres? —preguntó Seorin.
 
-Sern siguió de inmediato:
+—El que está fuera no puede cortar al que está dentro.
+
+—¿Por qué?
+
+—Porque desde fuera no se ve.
+
+—Precisamente porque desde dentro tampoco se ve, hay alguien fuera.
+
+—Eso es verdad —dijo Kael, reacomodando el fragmento en la mano—. Pero así fue como yo perdí a alguien.
+
+Un breve silencio.
+
+—¿Cortó el que estaba fuera? —preguntó Seorin.
+
+—No. El que estaba fuera era yo.
+
+Nadie respondió.
+
+Solo entonces entendió Sion por qué aquel hombre había puesto tres condiciones hacía un rato, y por qué solo la última la había dicho con tantas palabras.
+
+La voz de Seorin bajó un poco.
+
+—Entonces, ¿qué propones?
+
+—Que lo tengamos los dos —respondió Kael—. Si tú dices que cortemos, yo obedezco, y si yo digo que paremos, tú también paras. Basta con que lo diga uno de los dos para detenerse.
+
+—Entonces nos detendremos más a menudo.
+
+—Sí.
+
+—¿Y eso es mejor?
+
+—Yo perdí a gente por no detenerme una vez, y nunca he perdido a nadie por detenerme a menudo.
+
+Seorin se quedó un momento sin responder.
+
+—…De acuerdo. Los dos.
+
+Kael no contestó nada a eso. Solo bajó los ojos y los volvió a levantar.
+
+Ater habló en voz baja.
+
+—Hay una sola oportunidad.
+
+Sern siguió enseguida.
 
 —Y esa única vez es ahora.
 
-Kael rozó con un gesto el corto mango metálico sujeto a su cintura. Demasiado corto para llamarlo espada, demasiado familiar en la mano para llamarlo herramienta. La clase de metal que servía para abrir caminos, para bloquear cuando hacía falta, y que al final se lleva pegado al cuerpo para sobrevivir.
+Kael rozó de pasada una empuñadura corta de metal que llevaba sujeta a la cintura. No llegaba a ser tanto como para llamarla espada, y para llamarla herramienta tenía una forma demasiado hecha a la mano. Era la clase de metal que se usa para abrir caminos y también cuando hay que cerrar el paso, y que, al final, uno lleva pegado al cuerpo para sobrevivir.
 
-Sion lo miró y preguntó en voz baja:
+Sion lo vio y preguntó en voz baja.
 
 —¿Eso también lo usas para abrir caminos?
 
-Kael, sin bajar la mirada, respondió:
+Kael respondió sin bajar la mirada.
 
 —No lo uso solo para abrir caminos.
 
-Una respuesta corta, pero suficiente.
+En esas palabras había la sensación de que aquel metal, ya fuera para atacar, para defenderse o para algo entre las dos cosas, llevaba mucho tiempo rodando con él como una parte más de su cuerpo.
 
-En esas palabras estaba la sensación de que aquel metal —ataque, defensa, o algo a medio camino entre los dos— era desde hacía mucho parte de su cuerpo.
-
-Por el canal cercano, Han Jiwoo dijo brevemente:
+Han Jiwoo habló.
 
 —La reacción baja más.
 
-Sion tomó aire una vez.
+Sion recuperó el aliento una vez.
 
 —Vamos.
 
-Tras esa sola palabra, todo el movimiento se ordenó a la vez.
+Tras esa sola palabra, todos los movimientos se ordenaron a la vez.
 
-Kael inclinó muy poco el fragmento más grande hasta el ángulo en que Ater podía verlo, y Ater, a la distancia de un brazo extendido, empezó a leer las líneas del motivo y la parte de aprobación cortada. Sern bajó la mirada para medir el espacio donde poner los pies y la velocidad a la que la reacción temblaba, y Sion movió los ojos siguiendo la veta más fina de la luz residual que aún seguía enlazada dentro de la estructura.
+Kael giró muy poco el fragmento más grande hasta un ángulo en el que Ater pudiera verlo, y Ater, a la distancia justo antes de estirar la mano, empezó a leer las líneas del motivo y la parte de aprobación cortada. Sern bajó la mirada para ver el espacio donde apoyar los pies y la velocidad a la que temblaba la reacción, y Sion fue moviendo los ojos siguiendo la veta más fina por la que el resplandor residual seguía enlazado dentro de la estructura.
 
-Por el canal, Seorin y Han Jiwoo no añadieron una palabra más.
+Al otro lado del canal, Seorin y Han Jiwoo tampoco añadieron ya ni una palabra.
 
-En ese instante, los seis miraban todos el mismo fracaso.
-Abrir mal, se acaba.
-Pero no abrir ahora, también se acaba.
+En ese instante, los seis estaban mirando el mismo fracaso.
+Si abrían mal, se acababa.
+Pero si no abrían ahora, también se acababa.
 
-Y justo entonces, el discriminador, que había llegado al borde de la muerte, volvió a encenderse una vez más, muy débilmente.
+Y justo entonces, el discriminador, que había llegado a punto de morir, volvió a encenderse una vez más, muy débilmente.
 
 ---
 

@@ -135,7 +135,7 @@ Ater preguntó de inmediato:
 Sern respondió sin volver siquiera la mirada:
 
 —El flujo de la gente es demasiado limpio.
-Casi no hay solapamientos casuales.
+—Casi no hay solapamientos casuales.
 
 Esas palabras eran pequeñas,
 y por eso resultaban aún más inquietantes.
@@ -195,7 +195,7 @@ Ellas conocen la avería.
 Conocen el daño.
 Conocen también las piezas.
 
-Pero no hay manos que han reparado de verdad.
+Pero «manos que hayan reparado» no hay.
 
 Manos que murmuran por dentro «aguanta»,
 incapaces de tocar a la ligera lo que está roto.

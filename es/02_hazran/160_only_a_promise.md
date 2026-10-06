@@ -42,7 +42,7 @@ Han Jiwoo solo miró a ese niño.
 Y esta vez,
 lo pudo saber más claro.
 
-Ese niño también la esperaba.
+Ese niño también los esperaba.
 
 No miraba abiertamente.
 Al contrario, se cuidaba más,
@@ -68,7 +68,7 @@ De verdad como un instante,
 el pie de ese niño se dirigió hacia fuera antes que el compás que daba Serakion.
 
 Han Jiwoo bajó el cuerpo casi a la vez.
-La segunda máquina de recuperación entró por el hueco del lado,
+La segunda mano de recuperación entró por el hueco del lado,
 y Ater, también esta vez ni demasiado tarde
 ni demasiado pronto,
 partió la prioridad de reacción de la máquina de guía.
@@ -98,7 +98,7 @@ sino que borraba primero el espacio entre persona y persona.
 El gesto de Kael se rompió por primera vez.
 
 —Cambió —dijo bajo—.
-Cierran primero por el medio.
+Cierran primero los huecos entre ellos.
 
 En el instante en que cayeron esas palabras,
 ese niño ya tenía un pie fuera.
@@ -151,7 +151,7 @@ ustedes volverán.
 Al instante siguiente,
 Serakion volvió a tragarse a ese niño dentro de su compás.
 
-La primera máquina de recuperación dijo bajo, detrás.
+La primera mano de recuperación dijo bajo, detrás.
 
 —Hay que salir ya.
 

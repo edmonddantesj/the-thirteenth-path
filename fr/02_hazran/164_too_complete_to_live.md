@@ -154,7 +154,7 @@ et pourtant elle semblait étrangement fichée au centre de tous les protocoles.
 
 Aka la regarda longtemps, puis dit très bas :
 
-« Ça... c'est trop complet pour avoir l'air vivant. »
+« Ça… c'est trop complet pour avoir l'air vivant. »
 
 À l'instant où ces mots tombèrent,
 l'air de la pièce se figea très légèrement.
@@ -224,7 +224,7 @@ Seorin réorganisa la plaque et dit très bas :
 « Nous ne regardons pas seulement les chemins et les approbations ;
 nous devons aussi comprendre pourquoi le haut répète à ce point une même forme. »
 
-Cela signifiait que la stratégie contre la couche supérieure de Serakion
+Cela signifiait que l'entreprise visant la couche supérieure de Serakion
 n'entrait plus seulement dans une phase d'infiltration ou de perturbation structurelle,
 mais dans une phase d'anatomie de la politique centrale et du protocole lui-même.
 

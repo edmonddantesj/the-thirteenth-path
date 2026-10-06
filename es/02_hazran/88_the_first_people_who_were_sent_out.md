@@ -1,192 +1,267 @@
 # Capítulo 88 — Las primeras personas enviadas afuera
 
-Cuando solo se dice «la lucha por hacer pasar a la gente»,
-y cuando de verdad se empieza a sacar a alguien primero
-es completamente distinto.
+Una cosa es llamarla, solo de palabra, una pelea para enviar a la gente, y otra muy distinta es empezar de verdad a sacar primero a alguien.
 
-Esa diferencia
-se revela antes que nada en la mirada de la gente.
+Esa diferencia aparece antes que en ningún otro sitio en la mirada de la gente.
 
-Después de que cayeran las palabras de Zahir —sacar primero a los de adentro—,
-por dentro de Hazran recorrió un temblor muy breve.
+Después de que se dijera que primero sacarían a los de dentro, por el interior de Hazran corrió una sacudida muy breve. Una sacudida en la que la tenue luz de poder vivir y el oscuro cálculo de quién se quedaría entonces subían juntos a las caras en un mismo instante.
 
-La luz tenue de que se podía vivir,
-y el cálculo oscuro de quién, entonces, se quedaba,
-un temblor que en un instante subía a la vez al rostro.
+Al verlo, Sion pensó que a partir de ahora iba a ser de verdad más difícil.
 
-Sion lo veía,
-y pensaba que de ahora en adelante sería de verdad mucho más duro.
+Frenar al enemigo que entra es un tipo de miedo. Pero cuando se empieza a fijar el turno entre los que vivirán y los que se quedarán, el miedo de pronto se vuelve mucho más humano y más cruel.
 
-Impedir que entrara el enemigo es un terror.
-Pero cuando se empieza a fijar el orden de quién vive y quién se queda,
-el terror se vuelve de pronto mucho más humano y cruel.
+Nasim empezó a separar a la gente y a ponerla en fila.
 
-Zahir no vaciló.
+—Los niños primero. Los heridos, los de manos lentas, los que no pueden trabajar dentro.
 
-—Los niños primero —dijo en voz baja—. Los heridos, los de manos lentas, los que no pueden trabajar adentro, primero.
+Tenía la voz ya ronca, pero, por extraño que fuera, sonaba más firme.
 
-Nadie pudo replicar.
+Él también lo sabía. Que aquello no era poner las cosas en su sitio, sino un trabajo en el que había que fijar un turno aunque se le desgarrara el corazón a la gente.
 
-Las palabras que fijan quién debe vivir primero siempre son crueles,
-pero en esta situación eran demasiado ciertas.
+Mientras lo ayudaba, Sion se dio cuenta de una cosa.
 
-Nasim empezó enseguida a separar y formar a la gente.
+Nasim estaba contando. Contaba dos cosas por separado.
 
-—Tú, con los dos niños, pégate a la fila de adentro.
-—Usted, atrás.
-—No, ahora no hay tiempo para llorar. Muévete.
+—¿Cuántos hay ahora?
+Lo preguntó Sion.
 
-La voz ya estaba ronca,
-pero, por extraño que fuera, sonaba más firme.
+—En la fila, treinta y dos.
 
-Él también lo sabía.
-Que esto no era poner orden,
-sino hacer un orden aunque desgarrara el corazón de la gente.
+—¿Y los que han salido?
+
+—Ninguno.
+
+Sion se detuvo un momento.
+
+—¿Todavía no ha salido ni uno?
+
+—Ponerse en la fila y salir no es lo mismo.
+Lo dijo Nasim.
+—El barco todavía no ha despegado.
+
+Solo al oír eso entendió Sion en qué se había equivocado.
+
+Poner a la gente delante de la rampa no era salvarla. Era prepararse para salvarla. Los treinta y dos que estaban allí de pie seguían dentro de Hazran, y si esto se rompía, morirían juntos, con fila y todo.
+
+—Entonces, ¿por qué los pone en fila desde antes?
+
+—Porque si los juntas en el momento en que despega el barco, ya es tarde.
+Eso dijo Nasim.
+—Y la gente solo se mueve si ve la fila.
+
+Era cierto. Desde que se formó la fila, el aire de dentro había cambiado claramente. Hasta hacía un momento todos estaban pegados a las paredes; ahora todos miraban hacia esa fila.
+
+Solo con mirarla, la gente revive un poco.
+
+Y al mismo tiempo, solo con mirarla, sabe qué número le toca.
 
 Luhai reunió primero a tres niños pequeños.
 
 Uno aguantaba el llanto,
-otro ni siquiera entendía bien la situación y estaba aturdido,
+otro estaba aturdido, sin entender bien lo que pasaba,
 y el último no dejaba de mirar atrás.
 
-Luhai no pudo hacer sus bromas de siempre.
-En cambio, con una voz extrañamente serena, dijo:
+Luhai no pudo bromear como siempre. En cambio, habló con una voz extrañamente tranquila.
 
-—Mira solo al frente. Ahora mira de verdad solo al frente.
+—Miren solo hacia delante. Ahora, de verdad, solo hacia delante.
 
-Los tres niños, con esa sola palabra,
-de verdad volvieron la cabeza.
+Con solo esas palabras, los tres niños giraron de verdad la cabeza.
 
-Seorin sostenía la fila de los heridos.
+Al verlo, a Sion algo le chirrió. Luhai no se puso en esa fila. Colocó a los tres niños y él se apartó a un lado.
 
-Ella no hacía nada parecido a consolar.
-En cambio, qué brazo había que apoyar en qué hombro para ir rápido,
-quién no podía caminar solo,
-qué carga había que abandonar ahora mismo,
-lo iba cortando con frialdad.
+—¿Y tú?
 
-—Deja eso y vete.
-—Si no te levantas ahora, te tumbas tú también.
-—Puedes caminar, ¿no? Entonces camina.
+—Yo no tengo las manos lentas.
+Lo dijo Luhai.
 
-Suena cruel,
-pero Sion lo sabe.
-Eso es lo mejor que sabe dar Seorin.
+—Ese no es el criterio.
 
-Cuando hay que salvar,
-las palabras vagamente suaves vuelven más lenta a la gente.
+—Sí que lo es.
+Luhai lo dijo.
+—Es justo lo que dijo Nasim. Los de manos lentas. Yo no soy lento.
 
-Sion volvió a correr entre la fila de adentro y la primera fila.
+Sion supo que el chico estaba poniéndose precio a sí mismo. Un niño criado en Hazran no deja que otro le ponga precio. Eso era lo que enseñaba esta ciudad, y en ese momento funcionaba de la manera más cruel.
 
-Quién faltaba,
-si el camino estaba despejado,
-cuánto tiempo más podía ganar el lado de Harún.
-Eso lo iba confirmando y lo pasaba al lado de Zahir.
+Seorin mantenía unida la fila de los heridos.
 
-El campo de batalla y la nave de evacuación
-ya se superponían por completo en uno solo.
+No consolaba a nadie. En cambio, cortaba en frío: el brazo de quién había que pasar por el hombro de quién para ir más rápido, quién no podía caminar solo, qué bulto había que tirar ahora mismo.
 
-Harún, en medio de todo, seguía de pie al final del paso del cebo.
+—Deja eso.
+—Si no te levantas ahora, acabas tumbado tú también.
+—Puedes caminar, ¿no? Pues camina.
 
-Cuando el enemigo empieza a buscar el camino vacío,
-alguien tiene que quedarse fingiendo que ese camino es el correcto.
-Harún cumplía ahora ese papel.
+Suena cruel, pero Sion lo sabe. Esa es la mejor manera de Seorin. Cuando hay que salvar a alguien, las palabras blandas a medias solo lo retrasan más.
 
-Miró un momento hacia atrás y preguntó:
+Entonces hubo uno que no se movió.
 
-—¿Cuántos?
+Era un hombre viejo. Tenía las piernas sanas y aun así se retiró medio paso de la fila. Cuando Seorin quiso agarrarlo del brazo, apartó la mano.
 
-Sion respondió enseguida:
+—Yo, atrás.
 
-—Cinco en la primera tanda.
+—¿Por qué?
 
-Harún asintió.
+—Si me pongo ahí delante, otro se queda atrás.
 
-—Saco cinco y va la siguiente tanda.
+Seorin no le contestó enseguida.
 
-Esas palabras eran tan serenas
-que, al contrario, a Sion se le apretó el pecho.
+Sion habló en su lugar.
 
-Porque, para sacar a cinco personas,
-ese hombre se quedaría de pie sin abandonar su sitio una vez más.
+—Nadie se queda atrás. La fila da once vueltas.
 
-Ater y Sern, a ambos lados del paso,
-esta vez luchaban más por «cuánto retrasar» que por «bloquear».
+El viejo miró a Sion.
 
-—Los dos de la izquierda, avance falso —dijo Ater en voz baja—. El verdadero es un individuo de atrás. Lo van a desviar hacia la derecha.
+—¿Y da las once?
 
-Sern se movió enseguida.
+Sion no pudo responder.
 
-Aunque tenía heridas, usó el cuerpo de forma más corta y precisa que antes.
-En lugar de entrar una vez a fondo,
-cortó dos veces corto y se retiró de inmediato.
-Como el otro lado ya empezaba a leer los movimientos de Sern,
-quedarse mucho rato se había vuelto más peligroso.
+Eso valía si el barco podía despegar once veces. Para ganar el tiempo de trasladar una tanda, Harún había gastado entera, de una vez, una barricada de tres filas. Para trasladar once tandas había que hacer algo así once veces. Con qué se harían las diez restantes, nadie lo había dicho.
 
-Una vez,
-dos veces.
+El viejo le vio la cara a Sion y oyó la respuesta.
 
-Cada vez que la cizalla de cable mordía la línea de acople,
-la fila de androides perdía velocidad aunque fuera mínimamente.
-Esos compases
-estaban salvando ahora unos cuantos pasos más de la gente de adentro.
+Y sin más se fue hacia atrás.
 
-En el sector de adentro,
-Han Jiwoo por fin se incorporó junto al casco.
+—Eh.
+Seorin lo llamó.
 
-No es que el preparativo para partir del todo estuviera terminado.
-Pero al menos ahora
-había quedado en estado de poder cargar gente.
+—Déjalo.
+Lo dijo el hombre.
+—Yo he vivido aquí cuarenta años. Si uno que ha vivido cuarenta años se pone delante de uno que ha vivido cuarenta días, el precio no cuadra.
 
-Ella se enjugó el sudor con el dorso de la mano y miró hacia Zahir.
+Esta vez Seorin no lo retuvo.
 
-—Primer embarque posible —dijo en voz baja.
+A Sion eso le pareció más extraño. Seorin era de las que salvan a la gente aunque sea a empujones. Pero ahora no había empujado.
 
-Cuando cayeron esas palabras,
-el aire de adentro de Hazran tembló una vez de otra manera.
+—¿Por qué no lo retuviste?
 
-Para llamarlo esperanza estaba demasiado empapado,
-y para llamarlo alivio era demasiado tarde.
-Pero, sin duda,
-eran palabras que de verdad ponían en movimiento a la gente.
+—Si lo retengo, luego se arrepiente.
+Lo dijo Seorin.
+—Ese hombre acaba de decidir su turno él mismo. Si se lo quitas, no le queda nada.
 
-Aka tocó con la punta de los dedos la superficie del casco
-y dijo muy bajo:
+Esas palabras se le quedaron a Sion mucho tiempo.
 
-—Sigue rota.
+Esta ciudad le pone precio a la gente. Pero aquel hombre acababa de ponerse precio él mismo, y Seorin no lo había tocado.
 
-Han Jiwoo respondió:
+Aquí, eso parecía lo último que una persona podía tener.
 
-—Nosotros también.
+Nasim miró hacia allí y, sin decir nada, trazó algo en su tablilla. Sion no preguntó qué marca era.
 
-Palabras breves.
-Pero, por extraño que fuera, a Sion le pareció que esas palabras quedarían mucho tiempo.
+—En la fila, treinta y uno.
+Nasim lo dijo.
 
-Zahir dijo de inmediato:
+Había uno menos.
 
-—Envío la primera tanda.
+Y era la cifra de alguien que había salido por su propio pie del sitio donde iba a vivir.
 
-En ese instante,
-Luhai empujó a los niños,
-Seorin pegó hacia adentro a un herido más,
-Sion corrió a confirmar otra vez el camino vacío,
-y Nasim, arrastrando hasta el final a la gente que quedaba, casi gritó.
+Sion odió aquella cifra por primera vez.
 
-En Hazran, por primera vez,
-alguien empezó de verdad a ser enviado afuera.
+Y los primeros treinta y uno se pusieron en marcha.
 
-Todavía no han partido del todo.
-Todavía tampoco ha terminado.
+Desde los toldos de dentro hasta la sección del casco no había mucho. Unos cien pasos a pie. Pero treinta de esos cien pasos no tenían techo. Al derrumbarse la línea central del mercado, lo que la cubría se había venido abajo con ella.
 
-Pero desde este instante,
-la batalla cambió sin duda.
+Nasim se puso al frente de la fila.
 
-Ahora la defensa ya no era simplemente impedir al enemigo,
-sino que existía para pasar a alguien, una persona a la vez, fuera del campo de batalla.
+—Desde aquí, no corran.
 
-Y ese cambio
-estaba volviendo un poco más pesados
-los hombros de quienes se quedarían en Hazran.
+—¿Corriendo no es más rápido?
+Alguien lo preguntó.
+
+—Si corres, los de atrás corren detrás.
+Lo dijo Nasim.
+—Y entonces alguien se cae. Si alguien se cae, la fila se para, y si la fila se para, todos se quedan aquí de pie.
+
+Sion sabía que tenía razón, y aun así le picaban los pies. Treinta pasos sin techo se hacían largos solo de mirarlos.
+
+La fila arrancó.
+
+El viento pasó por encima. La arena que no dejaba de entrar desde lo derrumbado se levantó de golpe bajo el cielo abierto, y la espalda del de delante se emborronó un momento.
+
+—Bien.
+Nasim lo dijo en voz baja.
+
+Sion lo miró.
+
+—¿Bien, ahora?
+
+—El polvillo nos tapa.
+
+Solo entonces lo entendió Sion. No tener techo no significaba solo que a ellos se les viera. El otro lado también tenía que medirlos. Y ahora, entre unos y otros, flotaba el polvillo gris pardo.
+
+Hazran ocultaba a su gente con el polvo que había salido al cortarse el corazón.
+
+Hacia la mitad de la fila, un niño aflojó el paso. Era, de los tres que había dejado Luhai, el que no dejaba de mirar atrás. Esta vez también miró.
+
+—Te dije que miraras solo hacia delante.
+
+La voz de Luhai llegó desde atrás. No se había puesto en la fila, pero caminaba a su lado, acompañándola.
+
+—El señor no viene.
+Lo dijo el niño.
+
+—Viene detrás.
+
+—Pero no viene.
+
+Luhai no respondió durante un momento.
+
+—Entonces tienes que ir tú primero, para que él tenga un sitio adonde llegar detrás.
+
+No era mentira. Pero tampoco era verdad. El niño se lo creyó a medias y volvió a mirar hacia delante.
+
+Seorin, a su lado, lo oyó y habló muy bajo.
+
+—Se te da bien.
+
+—No se me da nada bien.
+Lo dijo Luhai.
+
+Se acabaron los treinta pasos. La fila entró en la sombra de la sección del casco, y en el instante en que la última persona se metió bajo techo, Sion se dio cuenta de que había estado aguantando la respiración.
+
+No le habían dado a nadie.
+
+Esta vez.
+
+Sion se quedó allí y volvió a mirar los treinta pasos que acababan de cruzar.
+
+En el suelo habían quedado huellas. Treinta y un pares marcados en la misma dirección, y sobre ellos ya empezaba a posarse una capa fina de polvillo. Para cuando saliera la siguiente fila, esas huellas ya no se verían.
+
+Sion no sabía si eso era bueno o malo.
+
+Si no se veían, el otro lado tampoco podía leerlas. Pero si no se veían, tampoco quedaría en ningún sitio que por aquí habían pasado treinta y una personas.
+
+—¿Cuándo sale la siguiente fila?
+Lo preguntó él.
+
+—Cuando el barco reciba a la gente.
+Nasim respondió.
+—Ya te dije que eran veinte cada vez.
+
+—Pero han llegado treinta y uno.
+
+—Por eso once esperan aquí.
+
+Sion miró a esos once. Era gente que acababa de cruzar con ellos los treinta pasos. Habían cruzado juntos, pero veinte subían y once se quedaban. Dentro de la fila se había formado otra fila.
+
+—¿Y esos once van los primeros la próxima vez?
+
+Antes de responder, Nasim miró un momento la tablilla.
+
+—Eso habrá que verlo entonces.
+
+Sion entendió qué quería decir esa respuesta. Si la próxima vez aparecía alguien más urgente, esos once volverían a quedarse atrás. Aquí el turno no se fijaba una vez y ya: se volvía a fijar cada vez.
+
+En una ciudad donde los precios se ponían una y otra vez, los turnos de la gente también funcionaban así.
+
+Nasim trazó una marca más en la tablilla.
+
+—Treinta y uno, llegados.
+Lo dijo él.
+—Pero todavía no ha salido ninguno.
+
+Sion quiso corregirlo. Treinta y una personas acababan de cruzar treinta pasos sin techo. Eso no era cualquier cosa.
+
+Pero Nasim tenía razón.
+
+Hasta que el barco despegara, todos los que estaban aquí seguían dentro de Hazran.
 
 ---
 

@@ -142,7 +142,7 @@ Il dépassa délibérément à moitié le seuil du naturel.
 Désormais, il ne s'agissait plus de retarder les soupçons,
 mais d'extraire les gens avant que les soupçons ne montent.
 
-« Emmène-les. »
+« Emmenez-les. »
 dit-il à voix basse.
 
 Cette fois, la première main de récupération se joignit par l'arrière.
@@ -174,7 +174,7 @@ La voix de guidage, basse et douce,
 se fit cette fois nettement plus proche.
 
 Serakion ne hausse jamais le ton pour poursuivre.
-Il propose simplement, de plus en plus doucement,
+Ce monde propose simplement, de plus en plus doucement,
 de plus en plus sûrement,
 la position où il faudrait revenir.
 

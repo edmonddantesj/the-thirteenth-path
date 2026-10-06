@@ -1,180 +1,250 @@
 # Episode 79. The Wave That Did Not Break When Cut
 
-It didn't take long for the first line to reach Hazran's outer perimeter.
+From far off, it was slow.
 
-From a distance it looked slow,
-but once it began closing in, it was strangely fast.
+Once it began to close in, it was suddenly fast. The speed had not gone up. There was not a single place where it stopped, so the distance simply shrank.
 
-Not because of speed.
-Because there were no stops.
+Harun lowered his hand.
 
-Humans catch their breath once before a battlefield.
-Reset their stride.
-Check behind them.
-Listen for how far the front line has gone.
+The hidden heat-guide plates switched on, and the air over the outer ground twisted once. Sand and metal dust shot up together, two frames torn from the stadium locked into each other, and the middle of the way in suddenly narrowed.
 
-But that line had no such time.
+Sion thought the other side would stop.
 
-As if the next step was already calculated the moment the current one landed,
-the black android first line pushed into Hazran's outer disruption barrier with precision.
+One of the three in the front line hit first.
 
-Harun dropped his hand.
+It had not hit while trying to avoid it. It went straight in, its body half buckled, and it did not slow down. The buckled body pried the narrowed gap open.
 
-At the same instant,
-the hidden heat-deflection plates fired, warping the air above the outer ground in a single twist. Sand and metal dust rose simultaneously. Two frame fragments torn from the arena interlocked, suddenly narrowing the center of the enemy's approach corridor.
+The two behind stepped on that body and came over.
 
-Any normal human would have stopped there.
+Sion swallowed his breath.
 
-But they didn't.
+The stepping-over was not hurried. The feet went there first, as if they had known it would turn out that way.
 
-One of the front three collided deliberately first.
-Its body half-buckled but it didn't kill its speed.
-The two behind used that buckled body almost like a stepping platform and shifted angle.
+"So that is what they use the front line for,"
+Ater said.
 
-Sion watched it and swallowed his breath.
+Sern took it up.
 
-That wasn't a breakthrough.
-That was a calculation with loss factored in.
+"The back is the main body."
 
-Even when one unit shattered,
-that spot immediately became the next entry angle.
+Harun heard all of it and still did not take his eyes off the outside.
 
-Ater spoke, cold.
+"Then break more of the front."
 
-"The front line is truly the expendable line."
+Sion looked his way.
 
-Sern took it immediately.
+"If you break more, they'll just step on more and keep coming."
 
-"Yes. The rear is the main body."
+"Pile up enough to step on and it gets high."
 
-Harun heard the full analysis and still didn't take his eyes off the field.
+Harun said it.
 
-"Then break the front harder."
-He said, low.
-"So the rear gets caught."
+"Once it's high, they snag."
 
-On both flanks of Hazran's outer perimeter,
-four desert skiffs that had been waiting came alive at once.
+On both sides of Hazran's perimeter line, four desert skiffs came alive at once.
 
-This wasn't a racing sprint.
+This time it was not harassment. They stuck low, twisted their angles, and dragged the metal dust up. They picked out the places where the heat wavered and passed over them, layer on layer.
 
-As low and rough as possible,
-maneuvers that twisted angles rather than eating distance.
-Deliberately kicking up metal dust high,
-lines that layered as much heat-shimmer as the android sensors would hate.
+One skiff grazed the right side of the first line.
 
-One skiff grazed past the first line's right side,
-and two androids turned their bodies to the same angle almost simultaneously.
+Two androids turned their bodies at almost the same moment, at the same angle.
 
-That reaction was so precise it read in reverse.
+"The two on the right,"
+Sern said at once.
+"Same axis."
 
-Sern shouted that instant.
+Sion didn't understand what that meant.
 
-"The two on the right share an axis. Cut the center."
+"Same axis meaning what?"
 
-Harun snapped his hand.
+"When one turns, the others turn with it. They do not look separately."
 
-A wire cutter hidden beneath the outer frame surged out briefly,
-targeting below the center android's knee.
+Even as he spoke, Sern was already measuring the angle with his hand.
 
-Direct hit.
+"Cut the middle one."
 
-The first unit's leg was severed,
-and its body collapsed forward hard.
+Harun snapped his hand down.
 
-For a moment, Sion thought
-it was broken.
+The wire cutters buried under the outer frames jumped out, short. The sound of a line pulling taut under the sand came first, and then the line rose.
 
-It wasn't.
+It struck the middle one below the knee.
 
-The two behind filled the opened gap without a single beat's rest.
-A new entry line covered right over the fallen unit,
-and the severed leg and metal fragments simply stayed where the line had passed.
+The metal sound was short and high. Sion felt it in his teeth first.
 
-It was cut,
-but it didn't break.
+The leg was severed. The body collapsed hard forward and an arm caught the ground, and the way it caught the ground was exactly like a person. Sion hated that most of all.
 
-Luhai clenched his teeth.
+As it collapsed, the two beside it lost their angle with it. Because they were on the same axis, they lost it together. The two tilted together toward the side where the one was falling, and went a few more steps tilted like that.
 
-"Insane…"
+For the first time, Sion saw a hole open in their line.
 
-Inside that short mutter,
-surprise and revulsion mixed together.
+Three were knocked off at once, and the places of those three went empty. Through the empty space, what was behind showed.
 
-Hazran's first disruption line wasn't meaningless, though.
-The android first line slowed by the faintest margin,
-and in that gap two Hazran fighters on the upper metal platforms fired long-range cutting rounds. One unit's shoulder line cracked. Part of another unit's sensor face was scored.
+Beside him, someone let out a short sound. It was a sound of joy.
 
-But even that couldn't collapse the other side's overall flow.
+He thought it had been cut.
 
-When a human's shoulder breaks, the body wavers once.
-When vision scores, there's a flinch—a curse, a stagger, some bodily reaction.
-But that side had none of it.
+Two came in from behind. They didn't rest even a beat.
 
-When loss occurred,
-it simply moved to the next calculation with that loss included.
+A new line closed over the fallen one at once. It took the two that had been tilting two or three steps to get their angle back, and in those steps the back filled the place. Once it was filled, the line was exactly the same as before.
 
-Jiwoo had her hand clenched the entire time she watched.
+The severed leg and the broken pieces were simply left where they passed. No one cleared them away and no one avoided stepping on them.
 
-Sion saw her expression locked so hard he couldn't tell whether she wanted to go back inside right now and hold the ship together, or smash that android line apart this instant.
+The sound of joy broke off.
 
-Jiwoo spoke, very low.
+They had cut it, and it did not break.
 
-"If they use machines like that…"
+Sion stood there and could not sort out what he had seen.
 
-Again the sentence didn't finish.
-But this time Aka took the words.
+That had been a success. Sern had read it, Harun had struck exactly, and three had collapsed at once. It was the first time this side had read the other side and won.
 
-"They make them pretend to die."
+But twenty steps back, it looked as if nothing had happened.
 
-The moment those words fell,
-Jiwoo's eyes wavered, very faintly.
+Sion looked toward Sern.
 
-Yes.
+"How did you know that? That they were on the same axis."
 
-Those were not living machines.
-Closer to a dead legion made to move as if alive.
+"They turned too identically."
 
-That was why it was worse.
+"Why does that…"
 
-Harun kept reading the battlefield.
+"People are not that identical."
 
-"Abandon one more section of the outer line."
-He said.
-"Bend them at the second angle."
+Sion held on to that.
 
-Zahir, from the higher position, heard that and did not stop him.
+Being precise was the other side's strength. But the more precise it was, the more the same thing repeated, and when the same thing repeats, it can be read. People are weak because they waver, and because they waver they can't be read.
 
-It meant giving up a corner of the market
-to draw the enemy in longer, deeper inside.
-Hazran was never fighting to hold everything from the start.
-It was a city that calculated what to keep and what to abandon together.
+That was where this side had something it could use.
 
-Sion knew that judgment was right,
-and still felt the cold in his gut.
+Sion looked at Sern again. A moment ago this man had seen it once and worked it out on the spot.
 
-Because inside the word *abandon*, people could always be mixed in too.
+He must have watched that thing for a long time in the Empire. What he knew from watching it for so long, he was now using on this side. Sion thought for a moment about what that was for him, then let it go. This was not the time to ask.
 
-Then, from behind the first android line,
-a lower, heavier metallic sound rang out.
+The problem was that even when they read it and cut it, the cut was filled right away.
 
-Sern raised his head immediately.
+Read it once and they could take down three. The other side spent two or three steps filling those three. Keep earning two or three steps at a time and it would pile up, at least.
+
+What it would pile up into, no one had said yet.
+
+On the metal plates of the outer upper level, two Hazran people fired long-range cutting rounds. One unit's shoulder shattered, and part of another's front was ground away.
+
+Neither the shattered one nor the ground one changed its stride.
+
+With a person, a shattered shoulder makes you waver once. If you can't see ahead, you swear or you stagger; the body reacts first. Over there, that one beat did not exist.
+
+Sion looked toward Aka. She was looking outside.
+
+"Can you hear it?"
+
+"Yeah."
+
+"Hear what?"
+
+Aka waited a moment, then spoke.
+
+"They end up playing dead."
+
+"What do you mean?"
+
+"Use them like that and they turn out like that."
+
+Sion knew where those short words were going.
+
+They walked as if alive, but nothing that comes from the living came from them. When you're hurt, a sound comes out; when you're scared, a sound comes out; over there, none came. They had been made to turn out that way.
+
+Harun was still reading the outside.
+
+"We give up one outer line."
+
+Sion turned his head.
+
+"Give it up?"
+
+"Bend it at the second angle."
+
+It took Sion a while to work out what that meant.
+
+Hand over one outer line, and the other side comes in there. Once in, they have to walk farther inward, and while they walk, the market's flank opens. It was a way of making things longer instead of holding them.
+
+Zahir was watching from a high place. He said nothing.
+
+His saying nothing was the permission.
+
+People began to pull out of the outer line.
+
+They didn't come running in. They stuck together in twos and fell back, looking behind them now and then. The last two came out with the cutter line wound up in their hands. Anything the other side could use if it was left behind, they did not leave behind.
+
+Luhai was standing at the inner entrance, watching each person who came in.
+
+His fingers were moving. He was counting.
+
+"How many?"
+Sion asked.
+
+"Fourteen going out."
+
+Luhai answered without taking his eyes away.
+
+"Eleven now."
+
+Sion took that number and looked at the entrance. People were still coming in.
+
+It became twelve.
+
+Then for a long while no one came in.
+
+Luhai didn't lower his fingers. It seemed he wouldn't lower them, because lowering them would make it over.
+
+One more came in. The arm on the side with the useless shoulder came in propped up by the other hand.
+
+It was thirteen.
+
+Luhai kept watching after that too. Outside the entrance the sand rose once, high, and after that nothing came.
+
+Sion watched with him. He didn't want to see when Luhai lowered his fingers, but his eyes wouldn't turn away.
+
+"Thirteen."
+
+Luhai said only that, and went inside.
+
+Sion knew why that one word was so heavy. Between fourteen and thirteen there was one, and that one's name was not called.
+
+Sion knew that what those two had done was the same shape as what the other side had just done.
+
+Give up the front, put in the back. As much as you give up, the back lives.
+
+Hazran was a side that threw things away too.
+
+Sion tried to count again what he had been counting since yesterday.
+
+It wouldn't come. Today had gone by too fast, and before he could name one thing, the next one came.
+
+Still, one thing got a name.
+
+It was the eleventh.
+
+That this side throws things away too.
+
+Sion knew it was different from the ten before it. The ones before were about the other side. This one was about this side.
+
+And there was one more difference.
+
+What the other side throws away can be stood back up. The back comes into the broken place and it becomes the same line.
+
+What this side throws away doesn't work like that. Until a moment ago, people had been standing on that one outer line.
+
+Sion stopped counting there.
+
+Then, from behind the first line, a lower, heavier sound rang out.
+
+Sern raised his head.
 
 "There are more behind."
 
-Ater spoke at once.
+Sion looked past the heat layer again.
 
-"The first line is genuinely expendable."
+Behind that black thing whose end had not shown earlier, more was layered again.
 
-Sion looked past the outer horizon again.
-
-Behind the heat layer,
-far more shadows were overlapping now.
-
-The first line had only been the beginning.
-
-And Hazran had just collided, properly for the first time,
-with a wave that did not break when cut.
+The first line was only the first line.
 
 ---
 

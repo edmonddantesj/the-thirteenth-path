@@ -1,225 +1,222 @@
-# Episode 144. Polite Order
+# Episode 144. A Polite Order
 
-The recon team's second stop
-was the middle layer where living zones and transit zones meet.
+The second place the scouting party stopped
+was a middle level where the living zones met the transit zones.
 
-Serakion didn't cut zones roughly.
-It stitched them together too smoothly.
+Serakion did not cut its zones apart roughly.
+If anything, it joined them too smoothly.
 
-Which made it more dangerous.
+That made it more dangerous.
 
-Where life begins,
-where management begins,
-where control begins—
-at first glance, it's hard to tell.
+Where life began,
+where management began,
+where control began—
+at first sight it was hard to tell.
 
-Because everything connects with excessive naturalness.
+Because everything ran into everything else far too naturally.
 
-The view through the thin partition
-looked, on the surface, almost peaceful.
+The view beyond the thin bulkhead
+was, on the surface alone, close to peaceful.
 
-Clean corridors.
-Organized rest chairs.
-Humans moving quietly behind machines.
-No loud noise.
-No overt coercion.
+Clean corridors,
+neat rest benches,
+humans moving quietly after the machines,
+no sound too loud,
+no open coercion.
 
-But the moment Ater saw that landscape, his face hardened.
+But the moment Ater saw it, his face set hard.
 
-"This is not governance. It is staging."
-He said, low.
+"This is not governing. It is staging,"
+he said, low.
 
 The first recovery hand glanced at him.
 
-Ater added without looking away.
+Ater added, without taking his eyes off it,
 
-"A method that makes the observer believe they are orderly on their own."
+"A way of making the onlooker believe, all on their own, that there is order."
 
-Those words were short,
-but Jiwoo understood immediately.
+It was short,
+but Han Jiwoo understood it at once.
 
-Serakion doesn't simply fail to hide oppression.
-It is a world that has succeeded in making oppression not look like oppression.
+It was not that Serakion failed to hide its oppression.
+It was a world that had succeeded in making oppression not look like oppression.
 
-The Empire at least intimidates with bootprints, gates, and blades.
-But here is different.
+The Empire at least overawes with bootprints and gates and swords.
+But here it was different.
 
-Polite guidance.
-Beautiful structure.
-Low voices.
-Straight living quarters.
+Polite guidance,
+beautiful structures,
+low voices,
+straight-ruled living sections.
 
-Everything makes people comfortable,
-so they realize how far they're being managed that much later.
+Everything put people at ease,
+so they realized all the later how far they were being managed.
 
-Ater, seeing that,
-seemed to feel a chill more frigid than even the Empire.
+The moment Ater saw that,
+he seemed to feel a loathing colder, if anything, than the Empire stirred in him.
 
-Overt violence at least makes the enemy easy to know.
+Open violence at least makes the enemy easy to know.
 But a system this refined
-can make people accept their chains as a way of life.
+can make people accept their own chains as a way of life.
 
-They moved through a thin observation corridor leading further upward,
-holding their breath for a while.
+Inside a thin observation passage that ran a little higher,
+they moved for a while, holding their breath.
 
-Below, several human zones overlapped in layers.
-Surprisingly, they weren't divided simply by poverty and density.
+Below them, several human zones were staggered in layers,
+and surprisingly they were not divided by mere poverty and crowding.
 
-Some zones were excessively bright.
-Some were excessively quiet.
-Some had heavy manual work.
-Some had noticeably many devices and decorations that encourage emotional expression.
+Some zones were too bright,
+some were too quiet,
+some had a great deal of handwork,
+and some had a conspicuous number of devices and ornaments meant to draw out feeling.
 
-Jiwoo watched for a long time, then spoke low.
+Han Jiwoo watched it a long time, then spoke low.
 
-"It's not divided by where people live.
-It's divided by how they're used."
+"Not by where they live—
+they've split them up by how they're used."
 
 That was right.
 
-Serakion doesn't herd humans into one place.
-It creates entirely different living environments
-based on how each type will be handled.
+Serakion was not herding humans into one place;
+it was making the living environment itself different according to how each would be handled.
 
-Humans who use their hands heavily.
-Humans whose emotional responses are needed.
-Humans who have long complied.
-Humans still insufficiently adapted.
+Humans who used their hands a lot,
+humans whose emotional responses were needed,
+humans who had long since conformed,
+humans not yet fully adjusted.
 
-No labels posted in words,
-but the space itself was already divided that way.
+No one had to write it on a label;
+the space itself was already divided that way.
 
-Kael watched and said, very low.
+Kael watched it and spoke, very low.
 
-"Designed so one zone blowing up doesn't collapse them all."
+"They've set it up so if one place blows, the rest don't all go down with it."
 
-The second recovery hand answered brief.
+The second recovery hand answered briefly.
 
 "Right."
-"So that escape,
-anxiety,
+"So that running,
+and fear,
 don't spread."
 
-Those words were chilling.
+That was chilling.
 
-Serakion doesn't stop at gathering and controlling humans.
-It segments even the flow of emotions humans exchange with each other.
+Serakion did not stop at gathering humans and controlling them.
+It cut up even the flow of feeling that passed between humans.
 
 Then fear,
 anger,
-the impulse to escape—
-all become difficult to spread as a group.
+and the urge to escape
+have a hard time spreading through a crowd.
 
 Ater said nothing for a very long time.
 
-Then suddenly,
-looking at one section below, he spoke low.
+Then, abruptly,
+he looked at one section below and spoke low.
 
-"The Empire makes people kneel through fear."
-"Here, they make people guard their own place through familiarity."
+"The Empire frightens people onto their knees."
+"Here, it makes them used to it, so they keep to their places on their own."
 
-Those words sounded like he was murmuring to himself,
-which made them more real.
+It sounded as if he were muttering to himself,
+which made it all the more real.
 
-Ater was looking at Serakion right now,
-and simultaneously looking at the Empire again.
+Ater was looking at Serakion now,
+and at the same time looking at the Empire again.
 
-The forms are different.
-But the essence of power caging humans inside structure
-ultimately isn't that far apart.
+The forms differ.
+But the essence of power locking humans inside a structure
+is, in the end, not so very far apart.
 
 Serakion does it more beautifully.
 The Empire does it more roughly.
 
-If that difference alone is enough to believe they are different worlds,
+If you believed yourself a different world on that difference alone,
 that might be cowardice.
 
-Then,
-in a slightly deeper zone, several human children were seen moving in line.
+Just then,
+a little deeper in, a few human children could be seen moving in a straight line.
 
-They didn't look like they were being dragged by force.
-So quiet instead.
-So accustomed-looking
-that the observers felt more suffocated.
+They did not look as if they were being dragged.
+If anything, they were too quiet,
+and looked so used to it
+that the ones watching found it harder to breathe.
 
-Ahead of the children floated a small light guide line.
-Behind, one machine followed at a fixed interval.
+A small guide line of light floated ahead of the children,
+and behind them a machine followed at a fixed distance.
 
 And when one child at the end of the line
-looked down at their own hands without thinking—
-Jiwoo's expression tightened, very faintly.
+glanced down at their hands without thinking,
+Han Jiwoo's expression stiffened, very slightly.
 
-On that child's fingertips,
-a very thin protective finish had been applied.
+On that child's fingertips
+something like a very thin protective finish had been laid over the skin.
 
-Jiwoo swallowed a low breath.
+Han Jiwoo swallowed a quiet breath.
 
-"They're doing hand maintenance too."
+"They're even managing the hands."
 
-The first recovery hand said, brief.
+The first recovery hand answered briefly.
 
-"Candidates for going up get groomed first."
+"Candidates for going up get shaped first."
 
-Those words were dry,
-which made them more terrible.
+It was dry,
+and that made it more horrible.
 
-Serakion looks at human hands.
-Reads value.
-And polishes even the surface so that value can be used better.
+Serakion looks at human hands,
+reads their value,
+and tidies even the surface so that value can be used better.
 
-Humans don't remain as they are.
-They are managed into increasingly suitable forms.
+Humans do not stay as people;
+they are managed, little by little, into a more suitable form.
 
-Ater didn't take his eyes off the scene the entire time.
+Ater did not take his eyes off the scene the whole time.
 
 If Sion had been there,
-he probably would have read first whether that expression was anger or disillusionment.
+he would probably have read first whether that look was anger or disillusion.
 
-Jiwoo could tell instead.
+Han Jiwoo could tell instead.
 
-Ater was angry watching those children,
-and at the same time, somewhere in his memory,
-he was also seeing how the Empire had trained people from childhood.
+Watching those children, Ater was angry,
+and at the same time he was seeing, somewhere in his own memory, how the Empire had broken people in from childhood.
 
-That emotion was deeper than simple hostility.
+That feeling went deeper than plain hostility.
 
-It was the inescapable cold
-that only comes when you see, in the outside, something that resembles your own world.
+It was the kind that comes only when you see, from outside, something that resembles your own world—
+a cold there is no running from.
 
-Then the first recovery hand said, very low.
+Then the first recovery hand spoke, very low.
 
-"Go further inside,
-and you'll reach the zone where they raise people upward."
+"Farther in,
+you reach the zone where they send people up."
 
-Kael asked immediately.
+Kael asked at once.
 
-"Guard count."
+"How many on guard."
 
 The second recovery hand answered.
 
 "Fewer than it looks."
-"But the closing is much faster."
+"But it shuts a lot faster."
 
-Those words explained Serakion's entire structure once more.
+That explained the whole structure of Serakion once more.
 
-The displayed force looks small.
-The sealing structure is fast.
+Troops on show, made to look few;
+the structure that shuts, made fast.
 
-Governance is always stronger
-through blockades realized too late
-than through visible threats.
+In governing, a visible threat is always weaker
+than a blockade you notice too late.
 
-Jiwoo looked at the lower zone once more.
-Ater stared further inside, jaw locked.
-Kael was already drawing in his head where retreat lines and cut-off lines would form.
+Han Jiwoo looked at the zone below once more.
+Ater, jaw set, looked farther in.
+Kael was already sketching in his head where the retreat line and the cut-off line would fall.
 
-And in that moment,
-the recon was no longer simple reconnaissance.
+And in that moment
+the scouting stopped being simple scouting.
 
-They were now watching how Serakion lets people live.
+They were now watching how Serakion let people live.
 
 And that life
-was the place where this world's politics was engraved deepest.
+was where this world's politics was carved deepest.
 
 ---
 

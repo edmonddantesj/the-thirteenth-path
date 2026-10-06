@@ -1,215 +1,289 @@
 # Episode 15. First Transfer
 
-The outer access layer was far quieter than the neutral port city's interior.
-This had once been a grey transfer level that sorted and loaded disposal cargo, unofficial deliveries, and people pushed outside the records — so dead markers and living access lines always clung together here.
+The outer access layer was far quieter than the inside of the neutral port city.
+It had once been a gray transfer layer where disposal cargo, unofficial deliveries and people pushed outside the records changed ships, and so dead markers and live access lines always clung together here.
 
 Quiet did not mean peaceful.
-Rather the opposite. With fewer people, every single movement was heard more clearly. The metallic sound of a cargo tow passing in the distance, the tremor of a power line just before shutdown, a blast door closing somewhere belatedly. If the port's inside hid things in noise, this side hid things in silence.
-
-The steel lift door opened fully and cold air rushed in.
-Sion went out first, followed in order by Seorin, Sern, and Ater. Yona came out last and touched the lift panel once more. The faint power light died, and the steel door closed again — still, like a dead structure.
-
-"Good."
-Yona said low.
-"From here, it's really outside the port."
+If anything, it was the opposite. With so few people, every single thing that moved could be heard more clearly. The metal groan of a cargo tow passing far off, the tremor of a power line just before it cut out, a bulkhead closing somewhere, late. If the inside of the port covered things with noise, this side hid them in stillness.
 
 Sion looked around.
-Outer access layer, they called it — but even that was only half-true. Neither a formal passenger zone nor a complete disposal yard. A middle ground. Old transfer bridges discarded long ago and a few living access lines forced together. Signs had faded, lighting was half-dead, and the steel plates underfoot seemed worn not by human traffic but by wind and dust.
+They called it the outer access layer, but even that was only half true. Not a proper passenger zone, not a full scrapyard either, but something in between. A space where long-abandoned transfer bridges and a few live access lines had been forced together. The signs had faded, half the lights were dead, and the steel plating underfoot looked worn down not by people walking on it but by wind and dust.
 
 Seorin muttered beside him.
 
-"Nice. Not a place for living."
+"Not a place for people to live."
 
-"That's why it's a transfer point."
+"Which is why it's where you switch ships,"
 Yona replied.
 
-Sern was already scanning the surrounding structure.
-Upper surveillance lines, empty tracks below, emergency power connection traces, marks of recent human presence. This zone was less complex than the port proper, but in return — misread it, and there was nowhere to hide.
+Sern was already scanning the structure around them.
+The surveillance line above, the empty track below, traces of emergency power hookups, marks where people's feet had touched recently. This area was less complicated than the main port blocks, but read it wrong and there was nowhere to hide.
 
-Ater received the landscape one beat late.
-Still part of the city, even though it was outside the neutral port city. No — closer to a shadow where only the parts the city refused to take responsibility for remained. The kind of place that would not merit a single line in formal records, yet someone was still using. That contradiction kept catching his eye.
-
-Yona pointed with his chin toward the dark tracks ahead.
+Yona jerked her chin at the dark track ahead.
 
 "That way."
 
-In the distance, inside a long shadow wedged between two dead hulls, a small shuttle was hiding.
-Not flashy, not new. Closer to a cargo shuttle that had endured a long time. Its exterior markings were half-ground off, and the registration number showed signs of deliberate overpainting. The face of a ship that had long survived pretending to be neither legal nor illegal.
+Far off, inside a long shadow wedged between two dead hulls, a small shuttle was hidden.
+It was neither flashy nor anything like new. If anything, it was closer to a cargo shuttle that had held out a long time. Its outer markings were half ground away, and its registration number showed signs of being painted over on purpose. The face of a ship that had lasted a long time pretending to be neither legal nor illegal.
 
 Sion looked at it and asked.
 
-"That one?"
+"That's it?"
 
-"Yeah. First transfer."
-Yona answered short.
-"Far as I can take you is here. From there, you cross over to the outer cluster line."
+"Yeah. First transfer,"
+Yona answered.
+"I'll take you as far as the next access point on this, and there I hand you over to the outer line into the cluster."
 
-Seorin grimaced.
+Seorin frowned.
 
-"Don't like it."
+"I don't like it."
 
-"Ships you'd like don't come to places like this."
+"Ships you'd like don't come to places like this,"
 Yona said.
 
 Ater asked quietly.
 
-"Who operates it."
+"Who runs the ship on the cluster side?"
 
-Yona did not answer that immediately.
-Instead he glanced at Sion. When Sion gave the smallest nod, only then did he speak.
+Yona didn't answer the question right away.
+Instead she glanced at Sion. Only when Sion gave a very small nod did she open her mouth.
 
-"No name yet."
-He said, dry.
-"Elia opened the access point for you. The name after — she said you'd hear it there."
+"I'm not saying the name yet,"
+she said dryly.
+"Elia opened things up as far as the access point, and she said you'd hear the name after that, once you're there."
 
-Sion smirked.
+Sion let out a short laugh.
 
-"Never trusting people all the way. Same as always."
+"Still can't trust anyone, right to the end."
 
-"That's why she's not dead yet."
+"That's why I'm not dead yet."
 
-Short silence passed.
+A short silence passed.
 
-Then, from far off, a single low vibration traveled along the track.
-Not an Empire-class capital ship. Not a civilian cargo ship either. Lighter, faster — the speed of those coming to search.
+Then, far off, a single very low vibration ran along the track.
+Not a large Empire-style ship. Not a civilian freighter either. Lighter, faster: the speed of something coming to look.
 
-Sern raised his head first.
+Sern was the first to raise his head.
 
-"They have attached."
+"They are on us."
 
-Seorin turned back at the same time.
+Seorin turned around at the same moment.
 
 "From above?"
 
-"From the side, for now."
-Sern answered short.
-"Not a gate ship — a search vessel. Deployed faster than standard pursuit."
+"From the side, for now,"
+Sern answered.
+"Not a gate ship. A search ship. Sent out faster than a regular pursuit."
 
 Yona swallowed a curse.
 
 "Fast."
-That meant something worse than simple pursuit. It was closer to a signal that someone had already detected this dead path being walked again.
+That meant something worse than a simple pursuit. It was closer to a sign that someone had already sensed this dead route being walked again.
 
-Sion looked between the shuttle, the dark tracks, and the vibration behind.
-At this point, the options were simple. Wait and they attach; run and they might transfer. The problem was that all four did not decide at the same speed. And if they were one beat late here, it was not merely missing the ship — the name of the first transfer vessel and the access point itself would both be contaminated. Which would likely shut the dead-path approach lines behind them, one after another.
+"Same side as whoever did the burning a few days back?" Sion asked.
 
-Ater said, short.
+"I do not know," Sern said.
 
-"We should hurry boarding."
+Sion looked back and forth between the shuttle, the track in the dark, and the vibration behind them.
+Put one foot wrong here by a single beat, and it wasn't simply a matter of missing the ship. The name of the ship they were switching to and the access point itself would get dirtied along with it, and then the access lines still alive on this dead layer would shut down one after another. What people like Yona had spent ten years building would be cut off in a single night.
 
-Seorin followed at once.
+His body tipped forward first. The stance he took on the docks when he had to grab something in a hurry.
 
-Seorin scoffed.
-"Fast with words when it suits you."
+Ater spoke.
 
-"Because now is when speed is needed."
+"Let us board quickly."
 
-Sion smirked at that.
-This man was definitely annoying normally, but the type that pivoted immediately when urgency hit. That part — honestly — was slightly useful.
+"No."
 
-Sern had already moved to the next step.
+It was Sern. It was the first time today he had cut his lordship off head-on.
 
-"Boarding order should be Sion, Seorin, sir, then me."
+"Your reason."
 
-Yona raised an eyebrow.
+"Ten steps." Sern said it without looking toward the shuttle. "Ten steps to there, and four seconds at a run. The gap when this level is clear after the searchlight passes is shorter than that."
 
-"Why."
+"How many seconds?"
 
-"The front two need to read the ship's interior immediately. Sir is better securing sightlines from the middle. I will sever any pursuit that attaches at the end."
+"I counted. Three."
 
-Sion laughed brief.
+Yona swore, very low.
 
-"Hey, this is actually starting to feel like role assignment."
+"So what do we do?"
 
-Seorin cut immediately.
+"We do not move."
 
-"Don't enjoy it. I still hate this."
+Sion turned his head toward Sern.
 
-"Likewise."
+"You want us to just stand here?"
 
-Ater layered onto that so naturally.
+"We are not standing. We are stopped." Sern still didn't look back. "The searchlight does not look for people. It looks for movement. There are hundreds of shapes standing among the dead hulls on this level, and if just one of them moves, that one is the only one left."
 
-A short laugh passed.
-Very brief, but the kind that only emerges between people pressed together to survive. Not because they were comfortable — because if they did not laugh now, things would stiffen so much they might snap.
+Seorin answered half a beat later.
 
-Yona moved to the front first.
-The path through the dead hull shadows was narrow, and the steel plates underfoot lifted in places. The sound changed depending on who stepped where. He walked picking only the quieter sections, precisely.
+"…That's right."
 
-Sion followed directly behind, saying low.
+"Do you agree?"
 
-"That guy's footwork is annoyingly precise, every time."
+"I hate it, but it's right."
 
-Seorin laughed small.
+Then she took hold of Sion's arm. Not to keep him from going forward; it was a hand that pressed his weight down and pinned his feet to the floor.
 
-"Is that a compliment?"
+"Sion."
 
-"I hate it, but I acknowledge it."
+"What."
 
-From behind, the vibration grew again.
-This time a thin light was visible, sweeping along the metal tracks. The distance was truly almost gone.
+"Your heels are off the floor right now."
 
-Sern said without looking back.
+Sion looked down at his feet. They really were.
 
-"Increase speed."
+The moment he set his feet down, the first light came.
 
-Yona answered immediately.
+The searchlight passed far more slowly than he had expected. It swept along the flank of a dead hull, swept beneath the broken transfer bridge, came up to the edge of the shadow where the five of them stood, and stopped there, once.
 
-"Speed up now and it makes noise."
+It stopped.
 
-"Do not speed up and a louder noise attaches."
+No one breathed.
 
-"Yeah, fair point."
+Sion could see everything inside that light. Floating dust, water stains on the steel plating, the edge of the light come within half a hand of the tip of his boot. Half a hand. It would have been easier with his eyes shut, but his eyes would not close.
 
-Ten-odd steps to the shuttle now.
-Short if short — but with pursuit following, that kind of distance feels longer.
+The light moved again.
 
-Sion steadied one breath and closed the last few steps almost in a slide.
-The instant his hand touched the shuttle's outer wall, the metal chill hit like ice. Beneath his palm, the heavy tremor particular to old shuttles lived. Not a dead ship. That fact was slightly reassuring — and strangely, more unsettling.
+It passed.
 
-The ramp was only half-lowered.
-Sion vaulted up first and scanned the interior. Narrow but structurally simple. Two front compartments, one rear cargo hold, emergency exit port-side. Not a ship built to carry many people — one built to pass what was needed, fast.
+"Two," Sern said, very low.
 
-"Clear!"
+"Two what?" Yona whispered.
 
-He signaled immediately.
+"It comes twice more. At this angle it sweeps three times."
 
-Seorin came up second, then Ater followed.
-Sern watched behind until the very end, then placed his hand on the ramp last.
+"How do you know that?"
 
-In that instant, from the darkness behind — a search light stretched long.
+"The Empire uses them."
 
-"Confirmed!"
+The second light came.
 
-Someone's shout was not very far.
+This time the angle was low. It came skimming the steel plating underfoot, and the five shadows stretched long across the outer wall of the dead hull behind them. Sion watched his own shadow sway on the wall. It swayed even though he hadn't moved. The light moved, so the shadow moved.
 
-Sern looked that way once, then pushed himself inside without delay.
-Yona immediately dropped the ramp's manual lock, and the shuttle's outer wall began trembling shut.
+Ater spoke, very quietly.
 
-Just before the metal fully sealed — from outside, something scraped along the hull.
-The sound of pursuit arriving one step late, grazing past. It did not simply mean a close call. It meant, more precisely, that someone now knew a living transit line existed on this dead transfer level.
+"Are the shadows all right?"
 
-Everyone held their breath.
+"They are fine. Every shadow sways." Sern's voice was just as small. "One that does not sway is the strange one."
 
-And the next moment — the shuttle's engine hummed once, low, from somewhere deep.
+The second one passed too.
 
-The ship that had been still came alive and began to move.
+Seorin was still holding Sion's arm. There was strength in her hand, but it wasn't the strength of holding Sion back; it was the strength she was using to keep herself from moving.
 
-Sion braced his hand against the backrest-less wall and laughed, very brief.
+Sion knew that. She had always been better at running. Of everyone here, Seorin was holding the stance that suited her least.
 
-"Nice."
+Before the third light came, Yona said one thing.
 
-Seorin asked, steadying her breath.
+"My legs have gone numb."
+
+"Bear it."
+
+"I'm bearing it."
+
+The third came.
+
+This time it was head-on. It passed exactly between the shuttle and the five of them, and in that instant the whole outer hull of the shuttle caught the light and stood exposed. The ground-off markings, the painted-over registration number, the half-lowered ramp.
+
+Sion thought about what the other side would decide on seeing it.
+
+A dead ship. A wreck left standing with its ramp still open. There were several more like it on this level.
+
+The light lingered on the shuttle for a moment, then slid off to the side.
+
+And drew away.
+
+A long while later, the vibration on the track behind them died down. After that there was no sound at all.
+
+Yona was the first to let out her breath. Only after she let it out did she realize she'd been holding it.
+
+"Gone?"
+
+"It is gone."
+
+"Why'd it go?"
+
+Only then did Sern look back.
+
+"Because nothing moved."
+
+Seorin let go of Sion's arm. Where she had let go, a handprint was left.
+
+"That's a first."
 
 "What is."
 
-"We're really going now."
+"Surviving without running."
 
-The words seemed tossed light, but no one inside heard them lightly.
+Sion looked down at his arm. The marks of five fingers were still white on it.
 
-Away from the neutral port city, toward the outer cluster.
-Chasing behind an erased name, following the first fragment of a severed path.
+"You grabbed me hard enough to hurt."
 
-## Now, truly — going had become more immediate than coming back.
+"If I hadn't, you'd have run."
+
+"I didn't run."
+
+"Heels."
+
+Sion shut his mouth.
+
+Beside them, Ater spoke, very low.
+
+"I closed my eyes all three times."
+
+The three of them looked at him at once.
+
+"…Is that allowed?"
+
+"It is," Sern answered. "Eyelids do not cast shadows."
+
+"You could have said so sooner."
+
+"You did not ask, my lord."
+
+Sion said nothing. His heart was still pounding, but it wasn't a heart that had raced and then stopped; it had only raced, and never been used for anything. That was harder.
+
+Yona shook out her legs and walked toward the shuttle.
+
+"Let's board now. Slowly."
+
+This time no one hurried.
+
+The ramp was only halfway down. Sion went up first and swept his eyes over the inside. Cramped, but the layout was simple. Two compartments up front, one cargo bay behind, emergency hatch on the left. Not a ship for carrying many people, but one for passing along only what was needed, fast.
+
+"Come on."
+
+He waved them in.
+
+Seorin, Ater and Sern climbed up in that order. Yona came last and threw the ramp's manual lock.
+
+Even the sound of metal locking together came as slowly as that light had.
+
+Somewhere deep inside, the shuttle's engine gave one low hum.
+
+Sion smiled, one hand braced against a wall that didn't even have a seat back.
+
+"Sern."
+
+"Yes."
+
+"That thing earlier. Counting three."
+
+"Yes."
+
+"What if you'd been wrong?"
+
+Sern didn't answer for a moment.
+
+"If I had been wrong, this conversation would not be happening."
+
+"…You're insufferable."
+
+"Yes."
+
+The ship that had been sitting still came alive and began to move.
 
 ---
 

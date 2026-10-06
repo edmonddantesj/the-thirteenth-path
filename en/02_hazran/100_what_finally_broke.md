@@ -1,160 +1,346 @@
 # Episode 100. What Finally Broke
 
-The fracture sound
-came from the line before it came from a person.
+Sion didn't reach him.
 
-Before any human scream,
-before gunfire or cursing,
-one low metal barrier that had barely been holding across the right corridor
-twisted and burst away completely.
+It came down with three steps still left.
 
-That instant,
-the angle Harun had been holding collapsed with it.
+There were two sounds. The first was what had torn loose above hitting the floor, and the second was the rest pouring down on top of it. The second was much longer.
 
-Sion watched it almost like feeling it.
+Inside that second sound, Sion heard one more. Short and low, and neither stone nor metal.
 
-When one line that had been holding vanished,
-the pressure that had been forcibly compressed behind it
-began spilling inward all at once.
+It came only once.
 
-The black weight draped like a breacher corpse shuddered hard.
-Two regular units filling in behind seized deeper angles simultaneously.
-One low.
-One high.
+Sion didn't want to know what that sound was.
 
-No longer a single line.
+Dust filled the corridor. Not powder—broken wall. It was heavy, and it settled fast.
 
-Two blades that had waited for the path to open
-and were now tearing in at once.
+When it settled, what Sion saw wasn't a person.
 
-Ater raised his voice for nearly the first time.
+Stone and metal filled the one-person width entirely. Where Harun had been standing a moment ago, there was no space left at all.
 
-"Harun, back!"
+"Harun!"
 
-But those words were late.
+No answer.
 
-Harun was already twisting his body to block the upper angle that had entered through the gap where the barrier had been. His right arm wrenched the forward weight once. His wounded left served almost only as a pin. In that instant the second unit coming from below drew a low cutting beam,
-and Harun's body shook hard.
+Sion went forward. Two steps in, a hand came from behind.
 
-Sion felt his heart drop.
+"We don't break the line."
 
-Sern threw his body in immediately.
+It was Zahir.
 
-He drove under and severed the second unit's coupling line in a rush.
-Ater simultaneously drove a round into the upper unit's sensor surface,
-tearing the timing apart by one beat so both angles couldn't overlap completely.
+Sion tried to shake the hand off. It wouldn't shake off. This man never raised his voice; his hands were strong instead.
 
-But in that gap,
-Harun had already gone down once.
+"There's someone in there."
 
-Not a full collapse.
-But his knee folded first.
-His body struck the corridor floor wreckage heavily.
+"I know."
 
-The moment everyone saw that,
-the air inside Hazran truly went dark for one instant.
+"We have to dig now."
 
-Nasim burst out a curse in his hoarse voice.
-Seorin's face openly hardened for the first time.
-Sion stepped forward without realizing.
+"I know."
 
-Then Zahir cut in—very cold, for the first time.
+"Then…"
 
-"Do not break the line."
+"We don't break the line."
 
-That single line
-held people's bodies again.
+That was the second time Sion had heard it.
 
-Cruel.
-But without those words,
-that one scene would have collapsed the entire evacuation line together.
+Both times it was the same words, but the second sounded different. The first had been an order, and the second was an answer.
 
-Sion clenched his teeth and turned his body back.
-If he goes to Harun's side now,
-this side dies too.
+"Why?"
 
-That fact was so terrible it made his breath rise.
+Zahir looked at the corridor, still holding Sion's shoulder.
 
-Jiwoo, from the hull entrance, spoke as if swallowing a scream.
+"That's blocking them too, right now."
 
-"Keep loading!"
+Sion heard that and looked at the collapse again.
 
-She had seen it too.
-Harun going down.
-But that made her more ferocious.
+It was true. If the one-person width was gone, they couldn't come in through it either. A black thing stood stopped in front of it. It was looking for a way in, and there wasn't one.
 
-Stop and it truly ends.
+"Clear that away,"
+Zahir said,
+"and they come in as far as it's cleared."
 
-Aka, listening outward,
-spoke very low and cold.
+It took Sion no time at all to understand that sentence.
 
-"He is not dead yet."
+He hated understanding it that fast.
 
-Those words drove in with strangely immense force.
+"Then what about him?"
 
-Sion gripped that one line
-and pushed the fourth group's first three toward the ramp again.
-Luhai covered a child's eyes with his hand as tears were about to burst.
-Seorin gripped the stretcher's rear, nearly grinding her teeth.
-Nasim screamed in his cracked voice.
+Zahir didn't answer.
 
-"Eyes forward!"
+"I'm asking what we do about him."
 
-Everyone was shaking.
-But through it, people climbed.
+"We can't dig now."
 
-And in the right corridor,
-Sern and Ater began truly filling the spot where Harun had fallen.
+"Then when?"
 
-Sern severed below.
-Ater shook above.
-Both were wounded.
-Both were already near their limits.
-But right now, whether they could hold mattered less
-than the fact that the position could not be left empty.
+"I don't know."
 
-Harun braced one hand on the floor
-and was barely trying to raise himself again.
+It made Sion angrier that the answer wasn't a lie.
 
-In that moment,
-Sion realized for the first time.
+"At how many do you dig?"
 
-What had just broken wasn't simply one corridor barrier.
+"What?"
 
-The feeling that *Harun would never go down* had broken with it.
+"How many have to be buried in there before you dig?"
 
-That man falls too.
-That man, in the end, bleeds,
-his knee folds,
-and if the timing slips once, it can end right there—he's that kind of person too.
+For the first time, Zahir looked at Sion.
 
-That truth
-drove into everyone inside Hazran at once.
+"Don't ask that."
 
-And precisely because of that,
-this battle became more frightening.
+"Before, you told me to count hands."
 
-The remaining people
-could no longer lean on *someone will hold for us*.
-Truly,
-the stage had come where each person had to hold their own share of time with their own body.
+"That was counting to put them in place."
 
-The fourth group's first three crossed into the hull.
+"And now?"
 
-Just three.
-But while those three crossed,
-Harun went down once,
-Sern and Ater filled that empty spot with their bodies,
-and Hazran, in the end, did not break the line.
+"Now we don't count."
 
-And so Sion understood.
+Sion turned those words over twice.
 
-What finally broke
-wasn't only the metal,
-or only the path.
+This man had, with his own mouth, made him count people as time today. And now he said he didn't count. Because if you counted, an answer came out, and you had to do what the answer said.
 
-It was the last illusion
-that someone would hold without ever falling.
+Here there were eighty-eight, and under there was one.
+
+Sion had already done that sum too. He had done it before Zahir said he didn't count. And once he had done it, he hated that he had.
+
+The strength went out of his legs. He didn't sink down only because Zahir's hand was still on his shoulder.
+
+There was a voice from above. It was Sern. He was pushing at something beside the collapsed pile.
+
+"He is alive."
+
+Sion turned his head that way.
+
+"How do you know?"
+
+"He is knocking from below."
+
+Knocking meant his hand was moving. At that one word, Sion let his breath out.
+
+"How deep is he?"
+
+"I do not know."
+
+"How long would it take to dig?"
+
+He didn't answer right away. He was measuring the pile with his eyes.
+
+"If I do it alone, it will not be done today."
+
+"And if a few of us get on it?"
+
+"It is not wide enough for a few."
+
+It was one person wide. The ones digging could only go in one at a time, too.
+
+Ater was watching the angle on the far side of the pile. So that no one could come that way.
+
+"We will watch this side,"
+he said.
+"Go."
+
+"Where?"
+
+"The line."
+
+"The line?"
+
+"That is what the time down there is buying."
+
+Sion heard that and turned around.
+
+Turning took a long time. His body wouldn't turn. But once he had turned, his legs walked. That they walked was stranger.
+
+All the way to the ramp, Sion didn't look back once.
+
+The sixth line was standing. In threes. Two steps apart.
+
+Every one of them was looking toward the corridor.
+
+Sion looked at those faces. They would have heard all of it. They didn't know what had collapsed or who was under it, but they had heard the sound.
+
+"Three."
+
+Nobody moved.
+
+The person standing at the very front asked,
+
+"Is someone in there?"
+
+Sion didn't answer.
+
+"I'm asking if someone's in there."
+
+"Go."
+
+"Can't you tell us?"
+
+Sion looked into that person's eyes. They didn't want to know. They were asking whether it was all right for them to go up.
+
+"You have to go."
+
+"…Yes."
+
+The person went up. Going up, they looked back once—not toward the corridor, but toward Sion.
+
+"Three."
+
+The next three went up.
+
+One of them fell on the ramp.
+
+Because of the two steps, the back didn't get shoved. While the fallen one got up alone, the three behind stood and waited, and while they waited, no one looked toward the corridor. The two steps Seorin had made paid for themselves for the third time today.
+
+Sion pushed the next three. And the next. His hands kept going. From behind there was no sound at all. Whether no sound was good or bad, he didn't know.
+
+Aka had her hand against the outer wall of the hull.
+
+Sion sent off a three and went over to her.
+
+"Aka."
+
+"Mm."
+
+"Can you hear it?"
+
+Aka tilted her head a little, her hand still against the wall.
+
+It was a long while.
+
+"Not dead yet."
+
+At that, Sion's knees buckled once and straightened.
+
+"How do you know?"
+
+"Knocking."
+
+"Knocking?"
+
+"Down there. Knocking with something."
+
+Sion looked at the collapse. From here he couldn't hear a thing.
+
+"How many times?"
+
+Aka counted for a moment, then answered.
+
+"Knock once, then rest. Knock once, then rest."
+
+"How long's the rest?"
+
+"About ten."
+
+Sion counted to ten in his head.
+
+One knock in the time it took to count ten. Right now that was the only way of knowing a person was alive down there. And it was a number that could be counted.
+
+"Aka."
+
+"Mm."
+
+"If that ten gets longer, tell me."
+
+Aka looked at Sion once. Her eyes had understood what he meant.
+
+"Mm."
+
+"If it gets shorter, you don't have to say."
+
+"It won't get shorter."
+
+"Is it ten now?"
+
+Aka counted again.
+
+"Eleven."
+
+"It was ten before."
+
+"Mm."
+
+Sion stood there holding that one extra count.
+
+Seorin came over from the ramp. She came with her hands still up the way they had been, cutting the line into threes.
+
+"How many?"
+
+Sion thought she meant heads and started to answer, then stopped. Seorin's eyes were on the collapse, not the ramp.
+
+"Eleven."
+
+"Before?"
+
+"Ten."
+
+Seorin said nothing. Then she went back to the ramp.
+
+Sion watched her back. For days she had kept from looking toward Harun on purpose. Just now she had looked, and asked, and gone back.
+
+She went back and cut them into threes again. Her hands were faster than before.
+
+Between before and now, the ship had lifted once. In that time, it had gone up by one.
+
+Aka moved her hand half a span higher on the wall. It was the motion of looking for a place to hear better.
+
+Sion looked at her hand and went back to the line.
+
+"Three."
+
+The sixth line took a long time. People kept looking back. Look back and your feet slow, and when your feet slow the threes don't hold.
+
+Sion turned them by the shoulders one at a time and faced them forward. He didn't say anything. If he told them to look only ahead, they would ask why, so he didn't.
+
+The last two went up.
+
+"Twenty."
+
+The ramp folded. The ship lifted.
+
+Sion went to the board. There were six marks now.
+
+Twenty off a hundred and eight. Eighty-eight.
+
+Five runs.
+
+Beside them was the one short mark. The hour he had marked earlier.
+
+Sion looked at that mark.
+
+The hour was up.
+
+But he couldn't go untie it now. He knew where the arm was, but his hands couldn't reach it.
+
+Standing there, Sion did the math for the first time.
+
+The hour he counted from now was an hour with no blood getting into Harun's arm. The next hour too, and the one after that. As long as Sion counted, the arm under there would be dying.
+
+And to stop that they had to clear the pile, and if they cleared it the enemy came in, and if the enemy came in, the eighty-eight here couldn't get out.
+
+Sion didn't scratch the next notch on the board.
+
+He stood there a moment, not knowing what good scratching it would do.
+
+Then he scratched it.
+
+The counting had to go on. If he stopped counting, no one would count the time passing down there.
+
+Only then did Sion look back.
+
+Two people were pressed against the collapse. In front of it, a few black things kept knocking, looking for a way in. The knocking hadn't stopped since before.
+
+Sion put his hand on the floor.
+
+Nothing came. It was just like earlier, when he had put his hand on the wall beside Aka.
+
+Back then, Aka had said it was better not to hear.
+
+Not now.
+
+Until this morning, Sion had never once imagined that corridor coming down.
+
+He had thought that as long as a person stood in it, it wouldn't fall.
 
 ---
 

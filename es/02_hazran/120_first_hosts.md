@@ -120,7 +120,7 @@ Un breve silencio.
 
 Ese nombre,
 ahora ya no como un tono de guía que se oía rozar a lo lejos,
-sino claramente por primera vez desde la boca de un ser que pertenecía a aquel mundo.
+sino que se oyó claramente, por primera vez, desde la boca de un ser que pertenecía a aquel mundo.
 
 —Su casco alcanzó el umbral de un modo no previsto.
 —Aun así, el acceso actual ha sido autorizado.

@@ -1,196 +1,383 @@
 # Chapitre 104 — Le couloir ne vivait que parce qu'ils en payaient le prix
 
-Après que les trois premiers du cinquième groupe eurent été tirés vers l'avant,
-l'intérieur de Hazran sembla répéter une fois de plus le même mouvement.
+« Dix-huit. »
 
-Séparer les gens.
-Arrimer la file.
-Tenir le front.
-Maintenir la coque debout.
+Quand Aka dit cela, Sion crut avoir mal entendu.
 
-Mais Sion le savait désormais.
+« Tout à l'heure, c'était quinze. »
 
-Se ressembler ne signifiait pas être pareil.
+« Oui. »
 
-Les mêmes gestes avaient beau se répéter,
-la force déjà drainée de l'intérieur n'était plus la même,
-l'état des corps qui tenaient n'était plus le même,
-et le prix attaché à chaque mouvement différait de celui d'avant.
+« Encore trois de plus d'un coup. »
 
-Le couloir droit en était l'illustration exacte.
+« Oui. »
 
-En surface, il tenait toujours.
-Haroun était là,
-Sern était là,
-Ater était là,
-et l'androïde de percée incliné bloquait encore à moitié le passage.
+Sion faillit redemander, puis y renonça. Même s'il redemandait, ce serait dix-huit.
 
-Mais en réalité,
-ce couloir ne survivait plus parce qu'il était solide.
-Il ne survivait que parce que ceux qui se tenaient devant
-continuaient d'en payer le prix.
+Là où la main d'Aka était collée au mur, la peau était blanche, écrasée. C'était d'être restée appuyée si longtemps.
 
-Haroun avait encore ralenti.
+« Ta main, elle ne te fait pas mal ? »
 
-Le temps qu'il prenait pour reprendre son souffle s'était allongé,
-et après chaque changement d'angle, le mouvement suivant arrivait avec un infime retard.
-Chacun de ces infimes retards,
-Sern et Ater le comblaient en courant davantage.
+« Ça fait mal. »
 
-Depuis sa chute de tout à l'heure, Sern
-avait réduit la profondeur de ses percées,
-passant à deux frappes courtes suivies d'un retrait immédiat.
-Mais cela l'obligeait à engager tout son corps plus souvent.
+« Alors enlève-la. »
 
-Ater observa la scène et dit brièvement :
+« Si je l'enlève, je n'entends plus. »
 
-« Sern, en bas à droite seulement pour l'instant. »
+« Même si tu l'enlèves juste un peu… »
 
-« Compris. »
+« Si je l'enlève un peu, j'entends un peu moins. »
 
-« Haroun, recule un temps. »
+Sion n'insista pas.
 
-Haroun répondit très brièvement, cette fois.
+« Continue de compter pour moi. »
 
-« … Juste un. »
+« Oui. »
 
-Sion crut comprendre pourquoi ces mots pesaient si lourd.
+Sion courut.
 
-Ce n'était plus un combat pour *tenir plus longtemps*.
-Cela devenait un combat de *juste une fois de plus*.
+Devant le couloir, Ater surveillait l'angle. À côté de lui, Sern était assis, le dos contre le mur ; c'était la première fois aujourd'hui qu'il s'asseyait.
 
-Kael, sur la gauche, n'allait pas mieux.
+« Dix-huit. »
 
-Il avait déjà préparé la fermeture du deuxième écran,
-ce qui signifiait
-qu'il ne restait plus, côté gauche, qu'une seule épaisseur d'espace de repli.
+Ater ne quitta pas l'angle des yeux.
 
-Kael lança brièvement :
+« Combien de minutes ? »
 
-« Le prochain qui passe, je ferme ! »
+« Quoi ? »
 
-Zahir hocha la tête — à peine.
+« Dix-huit, cela fait combien de minutes ? »
 
-Ce jugement non plus
-n'était pas faux.
+À cette question, Sion convertit pour la première fois le compte en temps.
 
-De plus en plus d'endroits arrivaient au stade
-où ce n'était plus *faut-il sauver ceci ?* qu'on se demandait,
-mais *quand l'abandonner ?*
+Combien de temps il fallait pour compter jusqu'à dix-huit, il le savait. Il n'avait pas cessé de compter depuis tout à l'heure.
 
-La file devant la coque se densifiait.
+« Entre deux coups, à peu près vingt souffles. »
 
-Nassim, de sa voix éraillée, tailla une fois de plus dans les rangs.
+« Et au début ? »
 
-« Les trois de devant, bougez ! »
-« Derrière, en attente ! »
-« Ne collez pas — coupez ! »
+« C'était dix, alors à peu près dix souffles. »
 
-Seorin ne prit pas la peine de répéter ces mots.
-Elle tranchait déjà la file de son corps.
-Pousser le dos de celui de devant,
-bloquer la poitrine de celui de derrière,
-ajuster l'angle de la civière,
-dégager ce qui pouvait faire trébucher.
+« Donc c'est le double. »
 
-Luhai faisait ressaisir leurs mains à ceux qui les avaient lâchées d'épuisement.
-Sion comptait un à un les pieds chancelants sous la rampe,
-bloquant chaque chute avant qu'elle ne se produise.
+Après quoi, pour la première fois, Ater quitta l'angle des yeux.
 
-Tous, désormais,
-fonctionnaient avant de ressentir.
+« Cela signifie que ce qui prenait une heure au début en prend maintenant deux. »
 
-Ils savaient que durer trop longtemps ainsi userait l'intérieur en premier,
-mais ils ne pouvaient pas s'arrêter.
+Sion voyait où menait ce calcul.
 
-Han Jiwoo se préparait à réceptionner les trois premiers du cinquième groupe
-quand les vibrations de la coque et les bruits métalliques de l'extérieur se chevauchèrent ; elle jura à voix basse.
+« Et ensuite ? »
 
-« Ça ne va vraiment pas durer. »
+« Ensuite, quatre heures. Puis huit. »
 
-Aka répondit très doucement :
+« Mais ça, c'est juste… »
 
-« Pas besoin que ça dure. »
+« Oui. À partir de là, simplement, il ne frappe plus. »
 
-Jiwoo tourna aussitôt la tête.
+Sion ne put pas bouger les pieds.
 
-Aka, la main posée sur la paroi de la coque, dit :
+Jusqu'ici, il avait reçu un par un les douze devenus quinze, puis les quinze devenus dix-huit. Il croyait que ça augmentait d'un cran à chaque fois. Ce n'était pas ça. C'était l'écart lui-même qui grandissait.
 
-« Il suffit que ça dure assez pour les envoyer. »
+« C'est bien lui qui frappe ? »
 
-Cruel, et exact.
+« Qu'entends-tu par là ? »
 
-Cette coque n'avait pas besoin de renaître tout entière.
-Pour l'instant, il suffisait qu'il tienne
-le temps d'expédier un peu plus loin ceux qu'il fallait envoyer.
+« Ça pourrait juste être le bruit des pierres qui bougent. »
 
-Hazran était pareil.
-La ville entière ne survivrait pas.
-Il suffisait de tenir assez longtemps pour envoyer ceux qui devaient l'être.
+Ater répondit aussitôt.
 
-Cette pensée pressa de nouveau la poitrine de Sion.
+« Non. »
 
-Tous tenaient, en cet instant,
-non pour survivre ensemble,
-mais pour pousser quelqu'un dehors en premier.
+« Comment tu le sais ? »
 
-Et au-delà de cette poussée,
-ceux qui restaient et ceux qui partaient naissaient en même temps.
+« Les pierres n'ont pas d'intervalle. »
 
-Juste avant que les trois premiers du cinquième groupe n'atteignent le pied de la rampe,
-Sern, dans le couloir droit, déglutit bruyamment une fois de plus.
-Ater le vit aussitôt.
-Haroun, cette fois, ne put pas non plus détourner le regard.
+Cette réponse soulagea un peu Sion. S'il y avait une règle, c'est qu'il y avait encore quelqu'un pour compter.
 
-Un court silence.
+Mais cette règle venait de doubler.
 
-Puis Haroun dit, très bas :
+« Ceux qui creusent en haut, il leur reste combien ? »
 
-« Sern, laisse celui-là. »
+« Je ne sais pas. »
 
-Sern voulut protester immédiatement,
-mais Haroun le coupa.
+« Et en bas ? »
 
-« Celui-là, c'est moi qui le prends. »
+Ater regarda le bas de l'amas.
 
-À l'instant où ces mots tombèrent,
-Sion sut d'instinct que ce n'était pas une bonne chose.
+« Cela, je le sais. Avant la fin du jour. »
 
-Laisser quelqu'un se retirer une seule fois,
-c'était acheter cette fois-là avec son propre corps.
+En se retournant, Sion regarda de ce côté.
 
-Ater avait le visage de quelqu'un qui le savait aussi.
+Assis, l'homme gardait les yeux fermés. Il ne dormait pas. Ses mains bougeaient un peu sur ses genoux, comme si elles saisissaient quelque chose.
 
-Il parla sur-le-champ.
+« Il va bien ? »
 
-« Alors j'avance. »
+« Il se repose. »
 
-Haroun secoua brièvement la tête.
+« Combien de minutes ? »
 
-« Non, » dit-il à voix basse.
-« Toi, tu restes les yeux. »
+« Le temps que je compte jusqu'à dix. »
 
-C'était un jugement de combat.
-Et en même temps,
-c'était le signe qu'Haroun avait commencé à répartir plus clairement
-qui paierait quel prix.
+À ces mots, Sion regarda Ater.
 
-Les trois premiers du cinquième groupe se mirent en mouvement.
+« Et tu en es à combien ? »
 
-Nassim cria de sa voix cassée,
-Seorin trancha le chemin,
-Luhai poussa les gens,
-Sion dégagea le sable et les éclats de métal qui tremblaient sous ses pieds.
+« Sept. »
 
-Dans le couloir droit,
-Haroun se préparait réellement à avancer son corps une fois de plus.
+Sion compta les trois derniers avec lui, sur place.
 
-Si ce couloir était encore vivant,
-ce n'était pas grâce à sa structure,
-ni grâce à la chance.
+Huit, neuf, dix.
 
-C'était parce que ceux qui se tenaient devant
-continuaient de payer leur part du prix.
+L'homme ouvrit les yeux. Pour se lever en s'appuyant au mur, il lui fallut deux essais.
+
+Sion le vit et se mit à courir.
+
+Zahir était devant le tableau. Il regardait les marques que Sion avait tracées. Huit marques de vaisseau, et à côté, quatre traits courts.
+
+« Dix-huit. »
+
+Zahir ne se retourna pas.
+
+« Et l'autre camp va percer avant la fin du jour, paraît-il. »
+
+« Je sais. »
+
+« Vous savez ? »
+
+« Il est passé tout à l'heure. »
+
+Sion ignorait quand Ater était venu jusqu'ici et reparti. Il ignorait aussi comment un homme qui ne quittait pas l'angle des yeux avait pu faire l'aller-retour.
+
+« Alors on fait quoi ? »
+
+« Je suis en train de décider. »
+
+« Décider quoi ? »
+
+Alors seulement, Zahir regarda Sion.
+
+« Si on creuse ou pas. »
+
+« Mais si on creuse, ils entrent, vous l'avez dit. »
+
+« Oui. »
+
+« Alors il ne faut pas creuser. »
+
+« Même sans creuser, ils entreront. »
+
+À ces mots, Sion eut le souffle coupé.
+
+« S'ils percent avant la fin du jour, ça s'ouvre même si nous ne creusons pas. »
+
+Zahir parla.
+
+« Alors pour nous, ça s'ouvre qu'on creuse ou non. »
+
+« Alors… »
+
+« Donc il n'y a qu'une seule chose à décider. »
+
+Sion attendit la suite.
+
+Zahir ne dit rien. C'était le visage de quelqu'un qui attendait que Sion parle.
+
+Sur place, Sion sentit quelque chose accrocher. Pas une chose entendue aujourd'hui, mais quelques jours plus tôt.
+
+Il se rappela quelqu'un, sous la rampe, qui déplaçait une plaque de métal d'un demi-empan.
+
+« Pourquoi tu la déplaces ? »
+« Pour décider moi-même de l'endroit où ça va frapper. »
+
+Sion expira une fois.
+
+« Quand ? »
+
+Les yeux de Zahir bougèrent légèrement.
+
+« Quoi ? »
+
+« Si ça s'ouvre qu'on creuse ou non… »
+Sion parla.
+« … la seule chose à décider, c'est quand ça s'ouvre, non ? »
+
+À ces mots, Zahir resta longtemps silencieux.
+
+« Qui t'a appris ça ? »
+
+« Celle qui répare le vaisseau. »
+
+« Quand ? »
+
+« Quand l'unité de brèche est arrivée. Elle ne pouvait pas l'arrêter, alors elle a choisi elle-même où ça frapperait. »
+
+Zahir hocha très légèrement la tête.
+
+« C'est juste. »
+
+Puis il se tourna vers le tableau.
+
+« Le moment où ça s'ouvre, c'est nous qui le décidons. »
+
+« Alors quand ? »
+
+« Quand la neuvième file sera toute montée. »
+
+Sion suivit le calcul.
+
+Une fois les vingt de la neuvième file partis, il en resterait vingt-huit. Pendant que ces vingt-huit se tiendraient en retrait, là-bas, on percerait l'amas. Percé, le couloir s'ouvrirait, et ouvert, l'autre camp entrerait ; à ce moment-là, il n'y aurait plus que ces vingt-huit ici.
+
+« Et les vingt-huit ? »
+
+« Colle-les au flanc du vaisseau. »
+
+« C'est tout ? »
+
+« C'est tout. »
+
+« Et lui ? »
+
+« Qui ? »
+
+« Celui qui est en dessous. »
+
+Pour la première fois, Zahir détacha son regard du tableau.
+
+« Si on perce, il sort. »
+
+« Et une fois sorti ? »
+
+« Ce qu'il pourra faire une fois sorti, on le saura quand il sera sorti. »
+
+« Et s'il ne peut pas marcher ? »
+
+« Alors porte-le. »
+
+« Là où le couloir sera ouvert ? »
+
+Zahir ne répondit pas.
+
+Ce silence, Sion l'avait entendu plusieurs fois aujourd'hui. Il n'avait même plus besoin d'en demander le sens.
+
+« Et ceux qui creusent ? »
+
+Zahir ne répondit pas.
+
+« Les douze qui creusent en haut. Au moment où ça s'ouvrira, ils seront là. »
+
+« Je sais. »
+
+« Ces gens-là… »
+
+« Je sais. »
+
+Sion ne demanda plus rien. S'il demandait, ce seraient les deux mêmes mots.
+
+« C'est moi qui le dirai. »
+Zahir parla.
+
+« Comment ? »
+
+« À eux, c'est moi qui le dirai. »
+
+En l'entendant, Sion comprit de nouveau pourquoi cet homme était descendu jusque sous la rampe.
+
+Décider, on pouvait le faire d'en haut ; dire ce qu'on avait décidé, il le faisait lui-même.
+
+« Vous y allez maintenant ? »
+
+« Non. »
+
+« Pourquoi ? »
+
+« Si je le dis maintenant, ils lâchent. »
+
+Zahir regarda le tableau encore une fois.
+
+« Je le dirai quand la neuvième file sera toute montée. »
+
+Sion fit le compte de ce qui pesait sur cette seule file.
+
+Ces douze-là creuseraient encore plusieurs heures sans savoir ce que leur travail ouvrait. S'ils savaient, ils lâcheraient sans doute, et s'ils lâchaient, l'autre camp percerait en premier. Si ça cédait d'abord de l'autre côté, on ne pourrait plus choisir.
+
+« Mais c'est les tromper. »
+
+« Oui. »
+
+Zahir ne le nia pas.
+
+« C'est les tromper. »
+
+Sion voulut dire autre chose et n'y parvint pas.
+
+« Il suffit de faire autrement. »
+
+« Comment ? »
+
+Sion avait une réponse, mais il ne la donna pas.
+
+Il y avait le moyen de leur dire maintenant et de leur demander de creuser quand même. Mais s'ils acceptaient, ces douze resteraient. S'ils restaient, ils seraient là quand ça s'ouvrirait. Qu'ils y soient en sachant ou sans savoir, ils y seraient tout autant.
+
+Il y avait une seule différence. S'ils y étaient en sachant, c'était eux qui l'auraient choisi.
+
+« Dites-le-leur. »
+Sion parla.
+
+Zahir regarda Sion.
+
+« Maintenant ? »
+
+« Maintenant. »
+
+« Et s'ils lâchent ? »
+
+« S'ils lâchent, eh bien, c'est eux qui l'auront choisi. »
+
+Zahir ne bougea pas tout de suite à cette réponse.
+
+Au bout d'un long moment, il demanda.
+
+« Et si, du coup, on n'arrive pas à percer ? »
+
+« Alors ce sont eux qui perceront. »
+
+« Alors nous ne pourrons pas choisir. »
+
+« Ça, je le sais. »
+
+Sion entendit sa propre voix trembler.
+
+« Mais c'est à ces gens de choisir d'abord, non ? »
+
+Zahir resta longtemps debout devant le tableau sans rien dire.
+
+Puis il s'en alla vers l'amas.
+
+Sion ne le suivit pas. S'il le suivait, il entendrait ce que cet homme allait dire et comment, et après l'avoir entendu, il ne se sentait pas capable de remettre la file en ordre.
+
+À la place, il traça un cinquième trait sur le tableau.
+
+Trois fois. Puis la cinquième heure. Puis dix-huit.
+
+Les trois étaient côte à côte. Sion ne parvenait pas à les voir d'un seul regard. Il devait les regarder un par un.
+
+Longtemps après, il regarda du côté de l'amas.
+
+Il y avait encore des gens accrochés.
+
+Sion compta.
+
+Onze.
+
+Il en manquait un. Il ne savait pas lequel. Il n'avait pas retenu tous les visages.
+
+Sion regarda vers la file pour le chercher, puis renonça. Il ne savait pas lui-même ce qu'il ferait en le trouvant.
+
+Les onze restants creusaient à la même vitesse qu'avant. Même après avoir su, leurs mains ne ralentissaient pas.
+
+C'était ce qui effrayait le plus Sion.
+
+Entre savoir et ne pas savoir, il n'y avait qu'une main de différence.
 
 ---
 

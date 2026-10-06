@@ -1,202 +1,282 @@
 # Episode 61. The Word She Gave After Watching
 
-After Zahir's question dropped, the courtyard air paused only very briefly.
+The courtyard was still split.
 
-But that brief pause was sharper.
+Those who had drawn back half a step and those who had not stood just as they were. No one filled in the space between them again.
 
-Who broke the board.
+Zahir did not ask again what he had asked before.
 
-That was a question no one present could let pass lightly. The arena had genuinely broken. The rules had been twisted by someone's hand. And yet the real ember had returned alive. So now the settlement was one of two things. Say who won, or say who broke the rules. Zahir's face said he would take both at once.
+That frightened Sion more. Zahir had asked once who ruined the board, the answer had come from the stands, and no one had taken up that answer. No one took it up, and still the people split.
 
-Sion did not open and close his hand around the ember again.
+Here, once a word dropped, what came next rolled on by itself.
 
-He had shown it. He had confirmed it was alive. From here it was the stage where even how close to whose hand he kept it had to be calculated.
+The first to move was Sern.
 
-Sion expected Seorin to speak first. But the one who moved first was Sern.
+He stepped forward one pace and spoke, low.
 
-He stepped one pace forward and said, very low.
+"It was not an accident."
 
-"It was not accidental."
+Zahir's gaze moved to him.
 
-Zahir's gaze shifted to him.
+Sern did not pick his words.
 
-Sern did not choose more words.
+"The distortion in the heat layer did not spread on its own. The sequence in which the return lines broke, the timing of the reactions coming alive all at once, even the speed of the intervention at the edge devices—none of it fit."
 
-"The heat-layer distortion did not spread naturally. The sequence of return lines breaking, the timing of reactions surging simultaneously, the intervention speed near the edge devices—none of it matched."
-He said.
-"Someone twisted the race's breathing from the inside."
+He went on.
 
-That sentence was so definitive it landed harder.
+"Someone on the inside twisted the breathing of the race once."
 
-Luhai muttered as though holding his breath.
+Sion knew those words pointed at the same place as what Aka had just said.
 
-"Wow, going straight for the throat."
+Aka had pointed at people. The people standing there who were not watching the race. Sern had pointed at the devices. A sequence that does not happen by itself.
+
+One had seen it from above and one had read it from inside, and they had come to the same place.
+
+Luhai muttered, almost holding his breath.
+
+"Wow, straight for the throat."
 
 Nasim did not smile.
 
-Harun did not react.
+Harun did not react either.
 
-But precisely because of that silence, Sion felt Sern's words sink deeper into this place. The most frightening thing here was not commotion—it was the moment when the side that had been struck went too quiet.
+That silence, if anything, made Sion feel Sern's words go in deeper. The most frightening thing here was not an uproar, but the side that had been stabbed going too quiet.
 
-Zahir did not look at Harun. Instead, he asked again.
+Zahir did not look toward Harun.
 
-"So."
-He said.
-"Whose hand."
+Instead, he asked again.
 
-This time Seorin smiled.
+"So. Whose hand?"
 
-A very short, thin smile.
+Seorin gave a short laugh.
 
-"Should I spell out the name for you."
-She said.
-"You're not someone unfamiliar with the inside lines of Hazran."
+"Do I have to say the name for you, too?"
 
-Harun's gaze changed by the smallest fraction.
+Seorin went on.
 
-Not blatant. But Sion could tell. That was a reaction closer than anger. The eyes of someone who had been struck head-on and was still calculating how to receive it here.
+"It's hardly someone who doesn't know Hazran's inner lines."
 
-Ater did not miss that brief gap.
+Harun's eyes changed, very slightly.
 
-"Not many hands could enter all the way inside the arena's edge."
-He said quietly.
-"Especially hands capable of touching both recovery lines and heat devices simultaneously."
+Sion knew it was not an angry face. It was the face of someone who had been stabbed head-on and was weighing how best to take it here.
 
-Zahir looked at Harun for the first time only after those words ended.
+Ater did not miss that opening.
 
-The entire courtyard went quiet together.
+"There cannot be many hands that can get all the way inside the arena's edge."
 
-From that single brief glance alone, Sion could tell. In this place, stature and timing held greater value than evidence. Not who actually touched the devices, but whose responsibility it was sorted under—that changed the entire board.
+He spoke quietly.
 
-Only then did Harun speak, very low.
+"And hands that can touch the recovery line and the heat devices at the same time would be fewer still."
 
-"My hands protect the arena."
+Only after he finished did Zahir look at Harun for the first time.
 
-Seorin caught it immediately.
+The courtyard went quiet with him.
 
-"Didn't do a great job tonight."
+That one short look told Sion. Here, who said what and when was worth more than evidence. Not who had actually touched the devices, but whose share it was entered under—that was what changed the board.
 
-Luhai nearly swallowed a laugh by reflex.
+Only then did Harun speak, low.
 
-Nasim finally opened his mouth, very slowly.
+"My hand guards the arena."
 
-"Everyone ran a bit hot tonight."
-He said.
-"Too many real things landed on the board at once."
+Sion heard something strange in that.
 
-"The devices were too precise to blame the heat."
-Sern cut in.
+He had not said he didn't do it. He had only said what his hand does.
 
-Nasim's expression stiffened by the smallest degree.
+Seorin picked it up at once.
 
-Aka was still silent.
+"Didn't guard it very well today."
 
-But among everyone in the courtyard right now, she was the one enduring silence the longest. Aka was watching not the ember but the people. Precisely: the hand that had brought the real thing back, and the other hands splitting as they watched that hand. Who was shaken before the real thing, who was still counting value, who was still trying to tidy their lies even in this moment.
+"The race wasn't broken."
 
-Zahir looked at the ember in Sion's direction again.
+That was Harun.
+
+"What broke was outside the race."
+
+Sion turned that sentence over twice.
+
+If what broke was outside the race, then the hand that guarded the race had broken nothing. Even if it had touched the devices, as long as it had not touched them inside the race, it had guarded the race, true enough.
+
+That was how words were made here. You could say something else without telling a lie.
+
+Luhai swallowed a laugh.
+
+Nasim opened his mouth slowly.
+
+"Everyone ran a little hot today."
+
+Nasim went on.
+
+"Too many real things came onto the board at once."
+
+"The devices were too precise to blame on the heat."
+
+Sern cut him off.
+
+The corners of Nasim's mouth stiffened slightly.
+
+Sion glanced once toward the stands.
+
+Aka was standing right where she had been. She had said one thing and then nothing more. This time Nahira was not blocking her front either; she stood beside her.
+
+The one who had spoken was watching what her words were doing.
+
+Only then did Sion understand. That kid had known all through the race.
+
+She had seen first where the two teams would overlap, seen first who was standing there not watching the race, and seen first that the hand holding the real thing would not let go.
+
+She had seen all of it from the stands. And from the stands, you can do nothing.
+
+All the way here, the only thing Aka had done was tell the person beside her. The person beside her listened and turned their head, and in the meantime, down below, it had already happened.
+
+Today, for the first time, her words had reached all the way down.
+
+Now she was watching how far what she had thrown would roll.
+
+Zahir looked again at the ember Sion held.
 
 "Still, you came back."
-He said.
-"And it did not die."
+
+Zahir said it.
+
+"And it didn't die."
 
 That was a verdict.
 
-The board was broken, but the real thing came back, and the hand holding it had not died.
+The board had broken, the real thing had come back, and the hand holding it had not died either. Then at least one side of it was already over.
 
-Then at minimum, one side of the contest was already finished.
+Kael muttered, low.
 
-Kael murmured very low.
+"Only now they hand out the score."
 
-"Now they're finally scoring."
+Han Jiwoo picked it up as if in passing.
 
-Jiwoo caught it, almost letting it pass.
+"Here things only start after they're over, don't they."
 
-"This place always starts after it's over."
+Sion thought she was right. Hazran had always been like that. The moment you thought you had gotten something, the real price started to attach.
 
-Sion liked those words in a strange way. Hazran was always like that. The moment you thought you had gained something, the real value started.
+Zahir spoke slowly.
 
-Zahir spoke very slowly.
+"Your hand carried the ember."
 
-"Your hand held the ember."
-He said to Sion.
-"Then you speak first. What do you want, carrying it."
+He was speaking to Sion.
 
-This time Sion paused briefly.
+"Then you speak first. Holding that, what do you want?"
 
-The question was simple, but the value was not. He needed etherite. He had to save the ship. He needed to hear the next word connecting to Aka. And wanting too much in this place could make everything look shallow.
+Sion stopped for a moment.
 
-At the end of that short calculation, Sion put forward what was needed first.
+The question was simple, but the price was not. They needed Etherite, they had to save the ship, and they had to hear the next word that led on to Aka. But if he wanted too much here, all of it would look shallow.
 
-"The metal to save the ship."
-He said.
-"And the word that tells us where this ember connects."
+Sion put into words what they needed first.
 
-Zahir's eyes narrowed by the faintest degree.
+"Metal to save the ship."
 
-"Both are large."
+He said it.
 
-"I didn't come all the way back carrying something small."
-Sion answered.
+"And a word to confirm what that ember connects to."
+
+Zahir's eyes narrowed slightly.
+
+"Both are big."
+
+"I didn't come all the way back here holding something small."
 
 A short silence.
 
-What broke that silence was, unexpectedly, Aka.
+What broke that silence was Aka, again.
 
-Half-hidden in front of Nahira, Aka opened her mouth for the first time.
+This time no one had asked.
 
-"That is not an ember that opened a path."
-She said low.
-"But it serves as proof that the path has not died."
+"That isn't the ember that opened the path."
 
-The courtyard air stopped again.
+Her voice was low.
 
-Hearing those words, Sion felt everything he had been chasing rearrange into a different shape one more time.
+"But it's proof that the path hasn't died."
 
-Not the door itself. Not the complete key that opened a path. But proof that the path had not fully died.
+The courtyard stopped again.
 
-Then this ember was less a destination and more a right to move forward—closer to a proof of passage.
+The moment he heard it, Sion felt what he had been chasing all this time settle, once more, into a different shape.
+
+Not the door itself. Not a key to open the path, either. Proof that the path was not completely dead.
+
+Then this was less a destination than something close to the right to move on to what came next.
+
+Sion looked into his hand again.
+
+For days he had carried it thinking it was a key. He had thought something would open if he held it, and so he could not open his hand for fear of losing it.
+
+It was not a key. It was a ticket.
+
+Holding a ticket does not open a door. You have to carry it along so the next place will take you in.
+
+And a ticket is only a ticket in front of someone who recognizes it. It had become a ticket because that kid had just recognized it. Without those words, what was in Sion's hand would have been just one ember that had not gone out.
 
 Zahir looked at Aka for a long time.
 
-This time he did not stop her.
+This time, too, he did not stop her.
 
-That was what mattered more.
+Sion counted that as the second time today. Before, Zahir had asked whether the child could be asked and then let her speak; now she had spoken without even being asked, and he had let it stand.
 
-Letting Aka speak directly in this place meant Zahir also saw the result that had just returned as something beyond a simple race victory.
+Once is permission. Twice is a place.
 
-Nahira drew a very quiet breath beside her. From the moment Aka began speaking, she looked like someone who already knew where this conversation would flow.
+Beside her, Nahira quietly steadied her breath. Like someone who had known, from the moment Aka opened her mouth, where this conversation would go.
 
-Aka looked at Sion this time.
+This time Aka looked toward Sion.
 
 "Hold it outside and everyone bites."
-She said.
-"It needs to go inside."
 
-Sion understood immediately that those words were not a simple warning but closer to an invitation.
+Aka said it.
+
+"It has to go inside."
+
+Sion knew at once it was not a warning.
 
 Inside.
 
-Deeper inside Hazran. The domain where Aka actually stayed. Or perhaps the next compartment Zahir had not shown easily.
+Deeper inside Hazran. Where Aka actually lived. The next quarter that Zahir rarely let anyone see.
 
-Luhai muttered as though swallowing his breath.
+Luhai muttered, as if swallowing his breath.
 
 "Wow."
 
-Even Seorin said nothing this time, only watching Aka.
+This time Seorin, too, said nothing and only watched Aka.
 
-Zahir was silent for a long while, then finally spoke very low.
+Zahir was silent a long while, then spoke, low.
 
 "Good."
-He said.
+
+He said it.
+
 "Then this board ends here."
 
-And added, very short.
+Then he added, short.
 
-"Compensation will be settled inside."
+"The reward will be settled inside."
 
-That single sentence changed the courtyard air once more.
+With that one sentence, the air in the courtyard changed again.
 
-The arena was over. But the real Hazran felt as though it was only now opening.
+Sion understood what it meant, in two layers.
+
+One was that they would get it. The metal and the word, both, would be given inside.
+
+The other was that they would not get it here. Nothing would be decided in front of the people standing in the courtyard now. The people here would never know who had received what.
+
+The moment those words dropped, Sion saw the people's faces change once more.
+
+Once the price goes inside, whoever is left outside drops out of the count. The hands that had been clinging to this board until a moment ago all found themselves outside at once.
+
+Among the people leaving, Sion looked for the few who had drawn back earlier.
+
+He could not see them.
+
+No one had seen when they slipped away. Here, the ones with a price on them are the first to disappear.
+
+Harun did not leave. Without looking toward Zahir either, he stood where he was.
+
+Sion knew that meant today was not over. In this city, not leaving your place was a sign you still had something to say.
+
+The arena was over.
+
+Hazran seemed to be opening only now.
 
 ---
 

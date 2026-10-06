@@ -1,12 +1,12 @@
 # Chapitre 24 — La main en avance sur l'ombre
 
-Le frottement métallique venu de l'obscurité devant eux fut bref — mais trop net pour être mis sur le compte d'une illusion.
+Le frottement métallique venu de l'obscurité, devant eux, fut bref, mais trop net pour qu'on puisse le mettre sur le compte d'une illusion.
 
-Les trois s'arrêtèrent au même instant. L'intérieur de la structure était silencieux depuis le début, mais ce silence-là était plus tranchant. Au loin, la vibration des débris. Depuis la coque, le murmure ténu du vaisseau de Han Jiwoo qui se maintenait. Et juste devant, dans l'obscurité immédiate, une seule certitude : quelqu'un était encore là.
+Les trois s'arrêtèrent au même instant. L'intérieur de la structure était silencieux depuis le début, mais ce silence-là était plus tranchant. Il ne restait que la vibration lointaine des débris, le ronronnement ténu du vaisseau de Han Jiwoo qui montait faiblement depuis la coque, et la certitude que quelqu'un se trouvait encore là, quelque part dans l'obscurité juste devant eux.
 
-Sion inspira à peine — le souffle le plus plat possible. Odeur d'huile, poussière métallique, effluve d'ozone vieilli. Et mêlée à tout ça, une odeur infime, nouvelle. Ni sang, ni trace de combustion. Plutôt cette sécheresse fibreuse qu'on retrouve dans les vêtements de quelqu'un qui marche longtemps — et cette note qui reste sur les doigts d'une main qui touche souvent le métal.
+Sion inspira à peine. Odeur d'huile, poussière de métal, vieil écho d'ozone. Et, mêlée à tout cela, une odeur nouvelle, infime. Ni du sang, ni une trace de combustion. Plutôt l'odeur de fibre sèche que prennent les vêtements de quelqu'un qui a longtemps marché, et celle que laisse au bout des doigts une main qui touche souvent le métal.
 
-Il articula sans presque ouvrir la bouche.
+Il parla presque sans voix, du seul mouvement des lèvres.
 
 « Il est là. »
 
@@ -14,107 +14,193 @@ Sern répondit plus bas encore.
 
 « Oui. »
 
-Ater ne dit rien. Il fixa la jonction étroite au fond de l'obscurité. Le bruit qui venait de sortir ne ressemblait pas à une maladresse — plutôt à celui d'un corps qui se repositionne, qui cherche une nouvelle prise. Autrement dit : l'adversaire lisait lui aussi cette structure. Il ne fuyait pas aveuglément. Il savait où tenir.
+Ater, sans un mot, fixa son regard sur l'étroite jonction au fond de l'obscurité. Le bruit qui venait de retentir tenait moins de la maladresse que du geste de quelqu'un qui reprend sa position d'arrêt.
 
-Par le canal fermé de proximité, la voix de Seorin arriva, à peine audible.
+Par le canal de proximité, la voix de Seorin arriva, basse.
 
-« On est dessus ? »
+« On colle ? »
 
 Sion secoua aussitôt la tête.
 
 « Pas encore. »
 
-Dans une structure aussi resserrée, courir en premier — c'était risquer de se faire coincer plutôt que de prendre. Ce qui comptait à cette distance, ce n'était pas qui était arrivé avant, mais qui ferait la première erreur.
+Dans une structure aussi étroite, s'élancer le premier, c'était risquer de devenir celui qu'on prend plutôt que celui qui chasse. À cette distance, ce qui comptait n'était pas de savoir qui était arrivé le premier, mais qui commettrait la première erreur.
 
-Sern dit presque à voix blanche :
+Sern dit dans un murmure :
 
-« Dans l'ossature supérieure droite, il y a un espace vide. De quoi cacher un corps, pivoter, repartir. »
+« Il y a un espace vide dans l'ossature supérieure droite. Assez large pour qu'un homme s'y cache une fois, puis pivote pour repartir. »
 
-Sion inclina très légèrement la tête.
+Sion se contenta d'un très léger signe de tête.
 
-« Je l'avais vu. »
+« Je l'ai vu aussi. »
 
-Ater regardait le dessous de cette charpente et ajouta :
+Ater, les yeux sur le dessous de cette ossature, ajouta :
 
-« Ce n'est pas un cul-de-sac. C'est à la fois un abri et un point d'observation pour la prochaine ligne d'évasion. »
+« Ce n'est pas un passage entièrement fermé. C'est un endroit où se cacher, et en même temps un endroit d'où l'on voit la prochaine ligne d'évasion, semble-t-il. »
 
-Sion laissa remonter imperceptiblement le coin de sa lèvre.
+À ces mots, le coin des lèvres de Sion se releva un instant.
 
-« On commence à regarder dans la même direction. »
+« On commence enfin à regarder du même côté. »
 
-Et à cet instant précis, l'obscurité devant eux bougea — à peine.
+Et à cet instant précis, l'obscurité, devant, bougea très faiblement.
 
-Ce n'était pas quelqu'un qui se montrait. C'était dans les interstices de la structure, traversant une fraction de seconde la lueur morte d'un éclairage éteint, l'ombre d'un pan de manteau — ou quelque chose qui y ressemblait — qui frôla et disparut. Trop bref pour saisir un visage, une silhouette. Mais une chose était claire.
+Personne ne se montra. Mais entre deux interstices de la structure, coupant un bref instant la lueur résiduelle d'un éclairage mort, une ombre passa, comme le pan d'un manteau, puis disparut. Trop vite pour saisir un visage, ni même une silhouette entière. Une chose, pourtant, était claire.
 
-L'adversaire savait qu'on le suivait.
+L'autre aussi savait qu'on était sur ses talons.
 
-Par le canal fermé de proximité, Seorin murmura très bas :
+Seorin murmura très bas :
 
-« Il nous a repérés. »
+« Il a compris. »
 
-Sern dit, plus froid :
+Sern dit, plus froidement :
 
 « Il est possible qu'il l'ait su dès le début. »
 
-Sion ne réagit pas à ces mots. Il regardait l'endroit exact où l'ombre venait de disparaître. L'adversaire n'était pas simplement en train de se cacher — il reculait en intégrant le fait même d'être traqué dans son calcul. Ce profil-là ne s'enfuyait pas par peur. Il cherchait à faire lire faux ceux qui le poursuivaient.
+Sion ne réagit pas tout de suite. Il fixait jusqu'au bout l'endroit où l'ombre venait de disparaître. L'autre ne se contentait pas de se cacher : il reculait en faisant entrer dans son calcul le fait même d'être suivi. Les gens de cette espèce ne s'enfuient pas sous l'effet de la peur ; ils cherchent à faire lire faux, une fois de plus, ceux qui les poursuivent.
 
-Ater dit posément :
+Ater dit calmement :
 
-« Ce pourrait être une manœuvre d'attraction. »
+« Ce peut être un leurre. »
 
-« Je sais. »  
-Sion répondit à voix basse.  
-« Mais maintenant qu'on est entrés jusqu'ici, on ne peut pas non plus s'abstenir. »
+« Je sais. »
+Sion répondit à voix basse, lui aussi.
+« Mais maintenant qu'on est entrés jusqu'ici, on ne peut pas non plus éviter d'y mettre le pied. »
 
-Ces mots s'appliquaient également aux trois sur le terrain et aux deux restés à bord. Toucher ça de travers — et la réaction du discriminateur restante s'éteignait, et la main qui tenait le fragment le plus grand leur filait entre les doigts. Attendre trop — et l'adversaire disparaissait par la prochaine ligne d'évasion. À cette distance, l'hésitation était déjà une perte.
+Ces mots valaient autant pour les trois qui collaient au terrain que pour les deux restés sur la coque. Toucher mal à cet endroit, et la réaction du discriminateur qui subsistait mourrait, et la main qui tenait le plus grand fragment leur échapperait du même coup. À l'inverse, trop tarder, et l'autre disparaîtrait par la prochaine ligne d'évasion. À cette distance, hésiter, c'était déjà perdre.
 
-La voix de Han Jiwoo traversa la ligne de communication, infime.
+La voix de Han Jiwoo effleura la ligne de communication, toute petite.
 
 « La réaction monte de votre côté. »
 
 Seorin demanda aussitôt :
 
-« Dans quelle direction. »
+« Où ça ? »
 
-« L'extérieur de la structure est encore calme, mais la réaction métallique intérieure se réveille par petites touches. »  
-Han Jiwoo dit à voix basse.  
-« Comme si quelqu'un en passant avait ranimé certaines réactions. »
+« Pas là-dedans, là où c'est mort tout à l'heure. Ailleurs. »
+Han Jiwoo baissa la voix.
+« Ça se réveille une par une, dans votre direction. »
 
-Le regard de Sern s'assombrit.
+Sern s'arrêta net à ces mots.
 
-« Ce n'est pas quelqu'un qui a effacé ses traces en fuyant — c'est quelqu'un qui les a délibérément laissées. »
+« Une par une ? »
 
-Ater reprit, dans le prolongement de ces mots :
+« Oui. »
 
-« Il nous entraîne derrière lui. »
+« Avec des intervalles ? »
+
+Han Jiwoo se tut un instant.
+
+« …Oui, il y en a. »
+
+Sern se retourna sans quitter sa place. Les traces qu'ils avaient dépassées jusque-là se remirent en ligne dans sa tête.
+
+La première marque de transfert de poids. Puis la brûlure laissée par un dos de main. Puis le bout de fibre. Puis le frottement métallique.
+
+« Excellence. »
+
+« Parlez. »
+
+« Les traces sont régulièrement espacées. »
+
+Ater tourna la tête.
+
+« Régulièrement ? »
+
+« Quelqu'un qu'on poursuit ne laisse pas ses traces à intervalles réguliers. Elles se resserrent là où il se presse, et disparaissent là où il se sent en sécurité. » La voix de Sern était d'un demi-ton plus basse que d'habitude. « Ici, l'intervalle est le même du début à la fin. »
 
 Court silence.
 
-À l'instant où ces mots tombèrent, Sion, au contraire, eut une certitude. Quelqu'un qui aurait lâché le fragment par peur ne bougerait pas ainsi. C'était le mouvement de quelqu'un qui, après avoir emporté le fragment le plus grand, estimait pouvoir encore gérer au minimum ses poursuivants. Autrement dit : pas un simple porteur.
+Sion se retourna très lentement.
 
-Il dit très bas :
+À bien y penser, c'était étrange. Depuis qu'ils avançaient dans cette étroite jonction, il n'avait pas hésité une seule fois. À chaque embranchement, il y avait exactement une trace suivante.
 
-« On a affaire à quelqu'un qui a lu ça avant nous. »
+Sur un chemin pareil, c'était impossible.
 
-Par le canal fermé de proximité, Seorin demanda brièvement :
+« Il les a laissées. »
 
-« C'est une bonne nouvelle ? »
+« Il ne les a pas effacées, reprit Sern. Il les a laissées. »
+
+Ater prolongea ces mots, comme s'il les recevait.
+
+« Il nous mène derrière lui. »
+
+Seorin demanda :
+
+« Alors on fait demi-tour ? »
+
+« Ce serait pire, répondit Sion. »
+
+« Pourquoi ? »
+
+« Quelqu'un qui nous a traînés jusqu'ici surveille aussi le moment où on fera demi-tour. À l'instant où on se retourne, il saura exactement où se trouve notre vaisseau. »
+
+Han Jiwoo lâcha un bref juron.
+
+« Je peux pas changer d'angle, là. »
+
+« Je sais. C'est pour ça qu'on ne se retourne pas. »
+
+Sion regarda devant lui.
+
+Quelqu'un qui aurait lâché le fragment sous l'effet de la peur ne bougerait pas ainsi. C'était la façon de bouger de quelqu'un qui, même après avoir emporté le plus grand fragment avant tout le monde, s'estimait encore capable de tenir tête, dans une certaine mesure, à ses poursuivants.
+
+« Il a lu avant nous. »
+
+« C'est une bonne nouvelle ? demanda Seorin. »
 
 « Pas du tout. »
 
-Sion fit un pas de plus vers la jonction étroite au fond de la structure. Le plancher métallique était instable, mais en suivant la ligne de charge que Sern avait repérée tout à l'heure, ça tenait. Sern, derrière, continuait à surveiller l'ordre de ses appuis. Ater lisait les marques sur les parois et les schémas d'endommagement, cherchant uniquement la prochaine ligne d'évasion que l'adversaire choisirait.
+« Alors tu fais quoi ? »
 
-Ces trois mouvements-là étaient désormais bien moins gauches qu'au début. On ne pouvait pas encore appeler ça une équipe. Mais au moins, dans cette structure resserrée, ce que chacun devait regarder convergeait presque complètement.
+Sion ne répondit pas tout de suite.
 
-À l'extrémité de l'ombre devant eux, le métal frôla à nouveau quelque chose.
+« On le suit. Mais on ne marche pas là où il a posé quelque chose. »
 
-Cette fois, une toute courte lueur résiduelle suivit le son.
+« Qu'est-ce que tu racontes ? »
 
-Comme si une plaque fine avait réfléchi la lumière une fraction de seconde avant de disparaître dans l'obscurité.
+« Si on suit les traces, on va là où il a décidé qu'on irait. » Sion détacha son regard de la brûlure sur la paroi et le porta sur le côté. « Mais c'est un homme, lui aussi. Il a choisi où laisser des traces, mais il y a des endroits qu'il a évités pour ne pas en laisser. »
+
+Sern comprit aussitôt.
+
+« Vous voulez dire qu'il faut compter les endroits qu'il a évités ? »
+
+« Oui. Ce qu'il a laissé, il l'a laissé pour qu'on le voie. Ce qu'il a évité, c'est le vrai. »
+
+Ater dit très bas :
+
+« C'est beaucoup plus lent. »
+
+« Oui. »
+
+« Pendant ce temps, il prendra de l'avance. »
+
+« Oui. »
+
+« Et tu veux tout de même le faire ? »
+
+Alors seulement, Sion regarda Ater.
+
+« Tu l'as dit tout à l'heure. Abandonner une chose en connaissant son prix, ou l'abandonner sans le connaître, ce n'est pas la même chose. »
+
+Ater resta un instant sans rien dire.
+
+« …Je l'ai dit. »
+
+« Cette fois, c'est moi qui abandonne en connaissant le prix. J'abandonne la vitesse. »
+
+Sion fit encore un pas vers l'étroite jonction au fond de la structure. La plaque de métal sous ses pieds était instable, mais en suivant la ligne de charge que Sern lui avait indiquée tout à l'heure, elle tiendrait. Derrière lui, Sern ne quittait pas des yeux l'ordre de ses pas, et Ater, lisant les marques sur les parois et les motifs de dégradation, ne regardait que la prochaine ligne d'évasion que l'autre pourrait choisir.
+
+Leurs trois mouvements étaient désormais bien moins maladroits qu'au début. On ne pouvait pas encore parler d'une équipe. Mais au moins dans cette structure étroite, ce que chacun devait regarder en était presque à se recouper.
+
+Au bout de l'ombre, devant, le métal frotta encore une fois.
+
+Cette fois, une très brève lueur suivit le bruit.
+
+Comme si une fine surface plane avait renvoyé la lumière une fois dans l'obscurité, avant de disparaître.
 
 Le regard de Sion changea d'un coup.
 
-« Tu as vu. »
+« Vu ? »
 
 Ater regardait le même point.
 
@@ -122,61 +208,85 @@ Ater regardait le même point.
 
 Sern dit très bas :
 
-« C'est la plaque. »
+« Une plaque. »
 
-Par le canal fermé de proximité, Seorin plissa les sourcils.
+Seorin fronça les sourcils.
 
-« Le fragment le plus grand ? »
+« Le plus grand fragment ? »
 
-« Probablement. »  
-Sion répondit.  
-« Je ne suis pas sûr à cent pour cent, mais du simple matériel, on ne le porte pas comme ça. »
+« Sans doute. »
+Ce fut Sion qui répondit.
+« Je ne suis pas sûr que ce soit tout à fait ça, mais du simple matériel, on ne le porte pas comme ça en se déplaçant. »
 
-Court silence.
+Ce fragment, en ce moment même, était entre les mains de quelqu'un.
 
-Ce fragment était, là, maintenant, entre des mains.
+Han Jiwoo chuchota de nouveau :
 
-Et rien que ce fait rendait toutes les hypothèses formulées jusque-là une étape plus réelles. Quelqu'un avait lu ce chemin avant eux, avait emporté le fragment le plus grand — et se déplaçait encore, sans l'avoir lâché.
+« Je tiendrai pas longtemps. La réaction de la structure grossit. »
 
-Han Jiwoo murmura à nouveau :
+Sion, les yeux devant lui, reprit très lentement son souffle.
 
-« Ça ne tiendra plus longtemps. La réaction dans la structure grossit. »
+Le saisir ici, et ils mettraient peut-être aussitôt la main, au moins, sur le plus grand fragment. Mais forcer risquait d'ébranler toute la structure. À l'inverse, aller trop lentement, et l'autre filerait par une ligne d'évasion plus profonde.
 
-Sion, les yeux droit devant, reprit son souffle très lentement.
+Au prochain embranchement, Sion n'alla pas du côté des traces.
 
-Attraper ici — et peut-être qu'on mettait la main directement sur le fragment le plus grand. Mais forcer — et l'ensemble de la structure pouvait vaciller. Aller trop lentement — et l'adversaire s'enfoncerait par une ligne d'évasion plus profonde.
+Il se colla contre la paroi opposée et en balaya le bas du regard. Il n'y avait rien. C'était bien ça, l'étrange. À cette largeur, en passant, on frôle forcément la paroi au moins une fois, de l'épaule ou du coude.
+
+« Il n'a pas frotté ici. »
+
+« Et donc ? demanda Ater. »
+
+« À cette largeur, pour ne pas frotter, il faut tourner le corps. Et pour le tourner, il faut changer de côté ce qu'on porte. »
+
+Sion abaissa la main vers le sol.
+
+Dans la poussière, il y avait une marque très légère. Pas une empreinte de pas. Étroite, avec un bout anguleux.
+
+« Le coin de la plaque, dit Sern le premier. »
+
+« Oui. Il l'a posée une fois par terre en tournant le corps. »
+
+« De quelle taille ? »
+
+Sion posa les doigts aux deux extrémités de la marque. Un empan, et un peu plus.
+
+« …Bien plus grande que ça, je dirais. »
+
+Ater baissa les yeux sur la marque. Le morceau resté cassé dans la rainure n'était pas plus grand qu'un ongle. Si la plaque à laquelle il tenait avait cette taille, ce que l'homme portait là-devant n'était pas un fragment, mais une plaque entière.
+
+« Cela, il ne l'a pas laissé pour qu'on le voie. »
+
+« Non. » Sion se redressa. « C'est la première chose qu'il ne nous a pas montrée. »
 
 Ater dit à voix basse :
 
 « Sion. »
 
-« Quoi. »
+« Quoi ? »
 
-« À cette distance, il marquera un arrêt au prochain angle. »
+« À cette distance, il s'arrêtera une fois au prochain angle. »
 
-Sion demanda brièvement :
+Sion répliqua :
 
 « Tu en es sûr ? »
 
-« Oui. »  
-La voix d'Ater était froide, nette.  
-« Quelqu'un qui lit cette structure ne court pas droit. Il prendra une respiration pour voir le prochain discriminateur. »
+« Oui. »
+La voix d'Ater était froide et nette.
+« Quelqu'un qui lit cette structure ne court pas d'emblée. Il reprendra son souffle une fois pour regarder le discriminateur suivant. »
 
 Sern enchaîna aussitôt :
 
-« Et c'est là qu'on sera le plus près. »
+« Et c'est à ce moment-là qu'il sera le plus proche. »
 
-Sion les regarda l'un après l'autre. L'un lisait la structure, l'autre l'ordre des choses. Chacun parlait une langue différente de la sienne — et pourtant, là, étrangement, toutes les réponses convergeaient au même endroit.
+Sion les regarda l'un après l'autre. L'un lisait la structure, l'autre l'ordre. Tous deux parlaient une langue différente de la sienne, et pourtant, étrangement, tout convergeait à présent vers la même réponse.
 
 Il dit très bas :
 
 « On le prend au prochain angle. »
 
-Et à cet instant précis, de l'autre côté de l'angle, un souffle s'échappa — bref, à peine profond. Pas un simple bruit de pas ni un frottement métallique : une respiration vivante — le genre de souffle qu'un corps portant quelque chose de lourd laisse échapper quand il s'arrête un instant.
+De l'autre côté de l'angle, un souffle très court, très faible, s'échappa. Pas un simple bruit de pas ni un frottement de métal : une respiration vivante, de celles que seul laisse échapper quelqu'un qui porte une chose lourde et s'arrête un instant.
 
-Les trois regards convergèrent en même temps vers ce fond d'obscurité, et le silence de l'autre côté du canal se figea avec eux.
-
-La main qui avait pris en premier le fragment le plus grand était là — vraiment, juste de l'autre côté.
+Les trois regards convergèrent en même temps vers le fond de cette obscurité, et le silence, de l'autre côté du canal, se figea avec eux.
 
 ---
 

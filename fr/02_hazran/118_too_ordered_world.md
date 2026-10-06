@@ -2,7 +2,7 @@
 
 La première chose visible n’était pas une ville.
 
-Il faisait clair.
+C'était de la lumière.
 
 Bien au-delà de la fenêtre,
 des grains d'argent posés trop soigneusement sur le noir de l'espace se levèrent en premier.
@@ -126,7 +126,7 @@ Ordonné de façon éblouissante.
 
 Mais il n’y avait aucun sentiment d’être accueilli.
 Au lieu de cela, de loin,
-cela semblait plus proche d'un monde qui demande d'abord *qu'est-ce que tu*, cherchant à classer.
+cela semblait plus proche d'un monde qui demande d'abord *qu'êtes-vous*, cherchant à classer.
 
 Sion regardait par la fenêtre
 et ressentit à nouveau à quel point cela était opposé à Hazran.
@@ -149,7 +149,7 @@ dit Luhai, très bas.
 Ater, sans prendre ces mots,
 a continué à regarder dehors et a parlé brièvement.
 
-« Nous entrons. »
+« Nous entrons ? »
 
 La question était courte.
 Mais la réponse était déjà décidée.
@@ -170,7 +170,7 @@ Il s’agissait plutôt d’accepter le fait qu’il ne restait plus d’autre c
 Jiwoo vérifia les lectures de la coque une fois de plus.
 Sern a lu les structures extérieures et les intervalles de surveillance.
 Seorin n'avait toujours pas quitté la fenêtre des yeux.
-Aka resta silencieux le plus longtemps.
+Aka resta silencieuse le plus longtemps.
 
 Et bien plus tard,
 c'était presque comme se parler à elle-même, dit-elle.

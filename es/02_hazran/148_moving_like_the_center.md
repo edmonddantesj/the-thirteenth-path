@@ -10,7 +10,7 @@ el paso,
 el momento de detenerse.
 
 Este mundo, cuanto más arriba, no es que sea simplemente más lujoso.
-Más bien se parecía más.
+Más bien todo se volvía más parecido.
 
 Los seres que se mueven van teniendo el mismo ritmo.
 
@@ -70,7 +70,7 @@ Han Jiwoo, al ver eso, dijo muy bajo.
 
 —Ahora hasta el modo de vestir a la gente es distinto.
 
-La primera máquina de recuperación respondió corto.
+La primera mano de recuperación respondió corto.
 
 —Porque cuanto más arriba,
 el modo de usarlos es más claro.
@@ -150,7 +150,7 @@ Ater, al contrario, no perdió esa pequeña reacción y la miró más largo.
 
 —Aunque no se vea, todos ya lo saben y se mueven —dijo bajo.
 
-La segunda máquina de recuperación respondió muy corto.
+La segunda mano de recuperación respondió muy corto.
 
 —Aquí es donde más hay de eso.
 
@@ -187,7 +187,7 @@ Han Jiwoo, al verlo, dijo casi rechinando los dientes.
 
 —A este punto, hasta la respiración la tendrán acompasada.
 
-La primera máquina de recuperación respondió corto.
+La primera mano de recuperación respondió corto.
 
 —Casi.
 
@@ -209,8 +209,8 @@ El grupo de reconocimiento
 empezaba ya casi a entender ese hecho con el cuerpo.
 
 Y esa misma comprensión
-volvía cada vez más claro por qué la estructura que pronto se acercaba
-no acabaría simplemente abriendo una puerta y corriendo.
+volvía cada vez más claro por qué el rescate que pronto llegaría
+no acabaría simplemente en abrir una puerta y correr.
 
 ---
 

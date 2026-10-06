@@ -1,189 +1,358 @@
 # Episode 95. The Line Held, but the Blood Remained
 
-When the breacher unit finally tilted and stopped in the middle of the corridor,
-the air inside Hazran clearly came alive once.
+Harun wouldn't give up the arm.
 
-But it was less relief
-and closer to a breath barely drawn right before dying.
+"It's fine."
 
-No one could easily think of it as *blocked*.
-Because everyone had seen.
+"It is not fine,"
+Sern said.
 
-How precariously the line had bent
-to buy those few seconds.
-And at the end of it,
-the blood that had clearly spread down Harun's arm.
+"I can stand."
 
-The moment Sion saw that blood,
-he almost stepped forward without thinking.
+"I know you can stand. After that, you will not be able to hold."
 
-But Harun spoke first, low.
+Harun stopped at that.
 
-"Don't come."
+Sion saw the stop. This man didn't stop for being told he was hurt. He stopped for being told he couldn't hold.
 
-Short words.
+Even so, instead of holding out the arm, he looked toward the ramp.
 
-But inside them:
-right now, sympathy and concern are both in the way.
+Sion looked too. The third line, all twenty, stood there watching this way.
 
-Harun shook his left arm once, very brief,
-then immediately re-gripped his weapon with his right.
-The bleeding didn't stop,
-but neither did the movement.
+"They can see from there,"
+Harun said.
 
-That was more frightening.
+"See what?"
 
-Not because he was fine.
-Because he wasn't fine, but couldn't stop right now—that was why he looked like that.
+"A bound arm."
 
-Sern saw it too.
+Only then did Sion understand why the man was holding out. It wasn't the pain that kept the arm back. He was counting what those twenty were standing there looking at.
 
-Pressing his side wound, he spoke for the first time, very low.
+"If it is not bound, they will see more,"
+Sern said.
 
-"You should pull back."
+"See what?"
 
-Harun shook his head.
+"They will see it dripping. They have been watching it for a while."
 
-"Not yet."
+Harun turned his head toward the corridor, then back again.
 
-Ater looked between the two.
+"Make it quick."
 
-His expression showed almost no emotion,
-which made it more taut.
+Sern pushed the sleeve up with his right hand. One long cut along the inside of the left arm. Sion couldn't tell whether it was deep, but from the way the blood kept welling up without drying, it wasn't shallow.
 
-He knew too.
-Harun should pull back.
-But if Harun pulled back now,
-there was no hand to fill that spot immediately.
+Sern looked around. There was nothing to bind it with. All the cloth had gone to the people a while ago.
 
-So he chose different words.
+Sion's hand went to his own wrist.
 
-"Reduce the angle on the arm."
-He said, brief.
-"Do not receive head-on. Only deflect."
+A thin cord was wound there. The one Seorin had bought in an evening alley, quitting halfway through haggling the price and just buying it and pressing it into his hand. The color had all faded and it had no ornament, but the knot was strangely firm.
 
-Harun exhaled shortly instead of answering.
-Whether that was agreement was unclear,
-but it at least meant he heard.
+"That will not do,"
+Sern said. He said it without even looking.
 
-The hull line behind couldn't stop.
+"Why not?"
 
-Nasim shouted again in his cracked voice.
+"It is thin. Tighten it with that and it cuts the flesh."
 
-"Second group, keep going!"
+Sion lowered his hand.
 
-That call had more edge than before.
-Because he knew now too—
-if he let anyone pause even briefly to look at who was hurt,
-how much longer someone was holding,
-the whole line would waver.
+"Then what do we bind it with?"
 
-Luhai was already gripping the next person's hand.
-Seorin lifted the axle of a stretcher herself to keep it from catching below the ramp.
-Sion tamped the sand beneath the ramp again,
-pushing people to look only forward so they wouldn't keep turning toward Harun's side.
+Instead of answering, Sern brought a hand to his own side.
 
-But humans don't truly stop looking just because they're told to.
+Cloth was wound there. Wound over a cut from a few days ago, and that spot was wet again now too.
 
-Fear knows its direction.
-Even without words,
-people could feel in their bodies that the line over there was holding
-and that the line was bleeding.
+"Don't."
 
-So the queue actually grew more urgent.
+"I use my right hand."
 
-Jiwoo, receiving the second group's boarding at the hull entrance,
-glanced once at the blood on Harun's side and her expression hardened.
+"You said that earlier too."
 
-"If that side falls, everything here ends."
-Her gaze lingered on the blood.
+Sern unwound the cloth. As he did, the lower part opened once more, but he made no sound. Sion could see him set his jaw to keep from making one.
 
-That was a confirmation of fact,
-not new information.
-But being fact made it crueler.
+He wrapped the cloth twice around Harun's upper arm and tied a knot. The knot held.
 
-Aka, her hand on the hull's outer wall, spoke very quietly.
+Harun bent the arm once and straightened it.
 
-"Still holding."
+"It holds."
 
-Jiwoo asked back immediately.
+"One hour,"
+Sern said.
+"After that it must be loosened again."
+
+"An hour's enough."
+
+The words frightened Sion. They meant the man had already decided what he would be doing an hour from now.
+
+Harun walked toward the corridor.
+
+The black thing, stopped where it had tilted, blocked half the corridor. Its upper body, lying on its side, was caught on the rubble of the collapsed wall, and its broken left leg pressed the floor on the opposite side. Between them was barely enough width for one person to get through.
+
+Harun stood in front of it and looked for a long time.
+
+Then he kicked its side once.
+
+It didn't move.
+
+"Sern."
+
+"Yes."
+
+"Will this shift?"
+
+Sern went around to the other side and checked the angle.
+
+"Pushed from that side, it will shift. But not in one push. It is wedged in the wall rubble."
+
+"How many pushes to get it out?"
+
+"Three. Possibly four."
+
+For the first time, Harun laughed, very briefly. The laughing face didn't look good.
+
+"Then this is the fourth barrier."
+
+Hearing that, Sion looked at the black thing again.
+
+Until a while ago, that had been something come to break Hazran. Now it was wedged in the corridor, standing there blocking for Hazran. With its own weight.
+
+"May we not strip it and use it?"
+Sern asked.
+"There is something usable inside the joints."
+
+"No."
+
+"Why not?"
+
+"If it comes out, the wall gets thinner."
+
+Sern measured the remaining gap with his hand. The space between the black body and the collapsed wall.
+
+"One person can get through."
+
+"I know."
+
+"Once one gets through, more will keep coming behind."
+
+"If they come one at a time, we stop them one at a time."
+
+"Who stops them?"
+
+Harun didn't answer.
+
+Sion started counting how many times today he had heard that silence, then gave up.
+
+"You said an hour,"
+Harun said.
+
+"Yes."
+
+"Then ask me again in an hour."
+
+Rather than ask more, Sern pressed with his own foot on the spot Harun had kicked.
+
+"Three,"
+he said.
+"Three pushes from that side and it comes out."
+
+"Then get two more off within those three."
+
+Sion ran toward the hull.
+
+The third line was still standing at the foot of the ramp. Twenty, just as before. No one had dropped out and no one had been added.
+
+Aka had her palm pressed to the hull's outer wall.
+
+"Aka."
+
+"Yeah."
+
+"Can we load them now?"
+
+Aka didn't answer right away. With her hand still on the wall, she only tilted her head a little.
+
+"It's still holding."
 
 "The ship?"
 
-Aka shook her head briefly.
-
 "The person."
 
-At that single word,
-Jiwoo's eyes wavered for a moment too.
+Sion's breath caught once.
 
-Sion watched from a distance and felt strangely unable to breathe.
+The child wasn't listening to the ship right now. She was listening through the floor to one person standing in the corridor over there.
 
-Aka kept speaking like someone who hears first
-who will break next.
-And right now, she was saying
-Harun had not broken yet.
+"How long will he hold?"
 
-But that also sounded like it meant he could, eventually—
-and that was what made it more unsettling.
+"I don't know."
 
-Inside the right corridor,
-behind the tilted, stopped breacher unit,
-two regular units began finding their angle again.
+Sion didn't ask any more. Asking wouldn't get it out.
 
-Ater spoke immediately.
+"And the ship?"
 
-"It has not stopped. The rear is reattaching."
+"It's okay."
 
-Sern lowered his body.
+"The left side?"
 
-"Must sever them before they fill the path."
+For the first time Aka moved her hand a little. Half a span along the wall.
 
-Harun spoke, very low.
+"Fixed."
 
-"Good."
-He said.
-"Then we make that thing a corpse."
+"Really?"
 
-The moment those words fell,
-Sion thought he heard something like the real smell of blood inside Harun's voice for the first time.
+"Yeah."
 
-Not just cold calculation.
-The voice of a person holding on now with his own flowing blood factored in.
+At that answer Sion let out his breath. The person under the ship, with both hands scraped raw, had really fixed it.
 
-Harun didn't go head-on.
-As Ater had said,
-he reduced the angle of receiving,
-shifted his stance to use the tilted breacher's body as an obstacle instead. Sern found position to target the rear reinforcement axis again. Ater mixed in short suppressive rounds so the two regular units' attention didn't converge solely on Harun.
+"Then it's twenty?"
 
-The line held.
+"Twenty."
 
-But now that holding
-was no longer clean defense.
-It was closer to a temporary structure with blood on it.
+"Load them."
 
-By the time the second group's last stretcher climbed the ramp,
-Nasim shouted in his cracked voice.
+The ramp came down.
 
-"Second group done!"
+Seven. Stop. Seven. Stop. Six.
 
-When those words fell,
-Hazran had pushed a few more people outside again.
+This time too, Sion didn't count; he watched the people. The one who had looked at him from the front earlier went up third. Going up, that person didn't look back at anything.
 
-People were actually getting out.
-The ship was still holding.
-The line still hadn't collapsed.
+The last six kept to the right. Just as Aka had said earlier.
 
-But none of those three
-were free anymore.
+One of them stopped on the ramp.
 
-Sion looked again at the blood spreading down Harun's arm.
+Sion looked at where that person was looking. Toward the corridor. Someone was still standing there.
 
-And he understood.
+"Hurry."
 
-What Hazran was gripping now
-was not just time,
-but the blood-price itself, growing clearer by the moment.
+The person moved. Moving, they raised a hand once and lowered it.
+
+No one in the corridor returned it. Harun's eyes were fixed on the end of the line. If he took his eyes off it now, one person's width would open.
+
+The ramp folded.
+
+The ship lifted.
+
+Sion heard the sound. It was quiet. The pressed-down sound of a ship loaded with people.
+
+Toward the back of the line, a few people raised their heads at the same time. By now they all knew the difference.
+
+Sion went to the tally board. The marks had become three.
+
+Twenty off a hundred and sixty-eight. A hundred and forty-eight.
+
+Eight runs.
+
+Sion didn't say the number aloud. Instead he counted the other side.
+
+Twenty-some. The same as before. Not one fewer.
+
+It hadn't gone down, yet Sion felt as if it had grown. Two of those twenty-some were bleeding right now, and those two were holding up all the rest.
+
+Then he went back over to Aka.
+
+Aka still hadn't taken her hand away.
+
+"Aka."
+
+"Yeah."
+
+"You can't hear that thing anymore?"
+
+"Yeah."
+
+"Could you hear it before?"
+
+"Yeah."
+
+"What did you hear?"
+
+Aka thought for a moment.
+
+"Feet."
+
+"Feet?"
+
+"Feet walking this way."
+
+"And now?"
+
+"Not walking."
+
+Sion started to ask the next question, then didn't. He had been about to ask whether it was dead, but he didn't know himself whether that word was the right one for that thing.
+
+Aka spoke first.
+
+"It's there even if it's not walking."
+
+"Where?"
+
+"There."
+
+Aka didn't take her hand off the wall.
+
+"Want to take your hand away?"
+Sion asked.
+
+"Why?"
+
+"You keep listening."
+
+"I have to listen."
+
+"Why?"
+
+Aka didn't answer that question. Instead, for the first time, she turned her head toward Sion.
+
+"You can't hear it?"
+
+Sion put his hand to the wall.
+
+Nothing came. Only a little trembling from people moving inside the ship. From the corridor, truly nothing came.
+
+"I can't hear it."
+
+Aka looked ahead again.
+
+"Lucky."
+
+Sion couldn't say anything to that one word.
+
+Earlier, the child had said she felt sorry for that thing. And just now, because of that thing, twenty people had gotten out. Because it was that thing blocking the corridor, they could open the ship's door.
+
+Sion didn't tell Aka that.
+
+He thought saying it might make it a little better, but he wasn't sure better was the right way for it to go.
+
+Passing the tally board, Harun looked at Sion.
+
+"How many left?"
+
+"Eight runs."
+
+Harun nodded. Then he walked back toward the corridor. His steps were slower than before, but whether that was the arm or something else, Sion couldn't see.
+
+Following behind him, Sern looked back at Sion once.
+
+"How much of the hour has passed?"
+
+"I don't know."
+
+"Count it."
+
+Earlier, Harun had told him not to count. Sern told him to count.
+
+Sion began to count.
+
+Counting, he looked at his wrist.
+
+The cord was still wound there. A thing that had done nothing today.
+
+Ahead of him Sern was walking. The cloth that had been wrapped around his side was on Harun's arm now, so his clothes on that side were already soaking through dark.
+
+Sion counted, watching that back.
+
+One, two, three.
+
+He hadn't known counting could be this slow.
 
 ---
 

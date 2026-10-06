@@ -13,13 +13,13 @@ venía justo después.
 
 Cuando volvieron al estrato oculto
 y se detuvieron bajo la luz tenue,
-el primero en hablar fue la primera máquina de recuperación.
+el primero en hablar fue la primera mano de recuperación.
 
 —No.
 
 Han Jiwoo lo miró casi como si lo hubiera estado esperando.
 
-La primera máquina de recuperación habló con una voz más baja y más firme.
+La primera mano de recuperación habló con una voz más baja y más firme.
 
 —Si nos movemos ahora,
 no rescatamos: perdemos más.
@@ -33,7 +33,7 @@ Han Jiwoo no retrocedió de inmediato.
 Mientras entendían la estructura,
 ¿dejaban que siguieran llevándose a los niños?
 
-La segunda máquina de recuperación intervino corto.
+La segunda mano de recuperación intervino corto.
 
 —No es que solo miráramos.
 Es que no pudimos movernos.
@@ -61,7 +61,7 @@ y empezó a trazar líneas sencillas sobre el polvo.
 Justo antes de la entrega,
 antes de entrar del todo en el compás de arriba.
 
-La primera máquina de recuperación respondió enseguida.
+La primera mano de recuperación respondió enseguida.
 
 —Es corto.
 
@@ -77,7 +77,7 @@ Es el flujo justo anterior.
 Aunque sea medio compás, hay que retrasarlo,
 hacer que se desajuste antes de que la alineación se cierre del todo.
 
-La segunda máquina de recuperación preguntó.
+La segunda mano de recuperación preguntó.
 
 —¿Con qué?
 
@@ -100,7 +100,7 @@ pero también se puede usar al revés.
 
 Ater dijo muy bajo.
 
-—¿Convertir el propio desfase en paso?
+—¿Quiere decir convertir el propio desfase en un paso?
 
 Han Jiwoo asintió corto.
 
@@ -114,7 +114,7 @@ y por eso eran más verdaderas.
 Salvar a los niños
 quizá tendría que apoyarse en el hecho de que los niños aún no habían entrado del todo en el mismo ritmo.
 
-La primera máquina de recuperación calló largo y luego dijo.
+La primera mano de recuperación calló largo y luego dijo.
 
 —Eso deja demasiado al azar.
 
@@ -134,7 +134,7 @@ Y aquí no peleen.
 Aquí se cierra de forma bonita;
 si nos descubren, la estructura se pliega más rápido que la gente corriendo.
 
-La expresión de la segunda máquina de recuperación cambió de forma mínima.
+La expresión de la segunda mano de recuperación cambió de forma mínima.
 
 Era algo cercano a la conformidad.
 
@@ -147,7 +147,7 @@ La última es un punto que frene la velocidad de cierre.
 
 Ater miró abajo esas líneas y preguntó bajo.
 
-—Quién se encarga de qué.
+—¿Quién se encarga de qué?
 
 La respuesta ya estaba casi decidida.
 
@@ -171,13 +171,13 @@ Las lentes de los tres
 empezaban por primera vez a superponerse en una sola operación.
 
 Pero justo entonces,
-la primera máquina de recuperación volvió a hablar.
+la primera mano de recuperación volvió a hablar.
 
 —Aun así, no.
 
 La mirada de Han Jiwoo volvió a afilarse.
 
-La primera máquina de recuperación habló esta vez más despacio.
+La primera mano de recuperación habló esta vez más despacio.
 
 —Conozco la posibilidad.
 Pero también tenemos que proteger lo de aquí dentro.
@@ -186,8 +186,8 @@ se pliega hasta aquí.
 
 No era una palabra equivocada.
 
-El Serakion que el grupo de reconocimiento había visto desde fuera era enorme,
-pero este estrato que aguantaba por dentro se sostenía con manos mucho más pocas y mucho más gastadas de lo que parecía.
+La Serakion que el grupo de reconocimiento había visto desde fuera era enorme,
+pero este estrato que aguantaba por dentro se sostenía con muchas menos manos, y mucho más gastadas, de lo que parecía.
 
 Si una sola operación de rescate fracasaba,
 no era solo que no pudieran sacar a los niños:
@@ -200,7 +200,7 @@ No se puede ser preciso en la dirección de no hacerlo.
 
 Esa frase cruzó el cuarto una vez en silencio.
 
-La segunda máquina de recuperación soltó el aire despacio.
+La segunda mano de recuperación soltó el aire despacio.
 
 —¿Cuántos? —preguntó.
 

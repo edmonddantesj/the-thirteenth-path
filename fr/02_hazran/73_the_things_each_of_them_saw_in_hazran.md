@@ -2,111 +2,217 @@
 
 Même en marchant dans le même soir, chacun voyait autre chose à Hazran.
 
-L'un y voyait une route qui n'était pas encore morte. Un autre, des pièces à vendre. Un autre, un ordre effondré qui se relevait. Un autre encore, une beauté à peine survivante sous des tentes rapiécées.
+L'un y voyait une route qui n'était pas encore morte,
+un autre, des pièces bonnes à vendre,
+un autre, un ordre qui s'effondrait et se relevait,
+un autre encore, une beauté qui avait tout juste survécu sous des tentes rapiécées.
 
-Hazran n'avait jamais un seul visage. C'est pourquoi, en traversant la même ruelle, chacun finissait par emporter quelque chose de différent.
+Hazran n'était pas un lieu qui se tenait toujours avec un seul visage.
 
-Kael n'avait presque pas bougé depuis une heure dans la ruelle des métaux, au coeur du marché.
+Kael, dans la ruelle des métaux au cœur du marché, n'avait presque pas bougé depuis près d'une heure.
 
-De l'extérieur, tout ressemblait à des tas de pièces hors d'usage. Mais lui repérait seulement ce qui était nécessaire. Ce que Han Jiwoo avait demandé pour la coque intérieure n'était pas du simple « bon métal »: des fragments d'enveloppe qui ne fendraient pas brusquement sous la chaleur, du métal de soutien qui ne forcerait pas les anciennes structures d'assemblage, des pièces qu'une main étrangère à leur grammaire pourrait croire ordinaires alors qu'elles portaient une tout autre valeur.
+De l'extérieur, ce n'étaient que des tas de pièces de rebut toutes pareilles. Mais lui, d'un seul regard, n'en retirait que ce qui était vraiment nécessaire. Ce que Han Jiwoo demandait maintenant, depuis la coque intérieure, ce n'était pas simplement du bon métal. Des morceaux d'enveloppe qui ne se fendraient pas brusquement après avoir pris la chaleur, du métal d'appui qui ne forcerait pas les vieilles structures d'accouplement, des pièces qu'une main ignorant la grammaire d'aujourd'hui pourrait tant bien que mal ajuster, mais qui, en vérité, avaient une tout autre valeur.
 
-Devant ce genre de choses, le visage de Kael changeait.
+Devant ce genre de choses, le visage de Kael changeait. Moins celui d'un marchand que celui de quelqu'un qui choisit ses chargeurs juste avant un combat.
 
-Moins marchand que soldat choisissant ses chargeurs juste avant un combat.
+Ce qu'il faisait, c'était mesurer avec les mains. Il prenait un morceau, le posait sur sa paume et en jaugeait le poids. Puis il en pressait la surface du pouce. Le métal qui a longtemps pris la chaleur ne cède pas de la même façon sous le doigt. Des pièces intactes en surface mais déjà rongées à l'intérieur comme un biscuit, Hazran en était pleine.
 
-Dans une boutique, il observa longtemps trois plaques d'enveloppe usées et une plaque d'assemblage presque décolorée.
+Dans une boutique, il examina longtemps trois vieux morceaux d'enveloppe et une plaque d'accouplement presque décolorée.
 
-Le vendeur lança:
+Le marchand engagea la conversation.
 
-« C'est plus cher que ça n'en a l'air. »
+« Ça, c'est plus cher que ça en a l'air. »
 
-Kael répondit:
+Kael répliqua :
 
-« Si ça tient plus longtemps que ça n'en a l'air, le prix se défend. »
+« Si ça tient plus longtemps que ça en a l'air, le prix est juste. »
 
-« Une main qui sait s'en servir, alors. »
+« T'as l'air d'une main qui sait s'en servir. »
 
-Kael eut un sourire bref.
+Kael eut un petit rire.
 
-« Sinon je ne serais pas arrivé jusqu'ici. »
+« Si je le savais pas, je serais pas arrivé jusqu'ici. »
 
-Il ne prit finalement que deux pièces. La troisième passa plusieurs fois de sa main au comptoir, puis resta là. Bonne au premier regard, trop lourde au second. À Hazran, ce qu'il fallait n'était pas la meilleure pièce, mais celle qui pouvait survivre maintenant.
+Il ne choisit finalement que les deux dont il avait besoin. Le troisième, il le prit et le reposa plusieurs fois jusqu'au bout, puis finit par le laisser. Il avait jugé que, même s'il avait l'air bon pour l'instant, il pesait trop.
+
+En le reposant, il ne dit qu'une phrase.
+
+« Celui-là alourdit le vaisseau. »
+
+Le marchand ne comprit pas ce qu'il voulait dire, et lui tendit les deux pièces choisies, enveloppées dans un tissu.
+
+Pendant que Kael payait, le marchand demanda :
+
+« C'est pour quel vaisseau ? »
+
+Kael répondit en glissant les morceaux dans son sac :
+
+« C'est pas encore un vaisseau. »
+
+« Alors c'est quoi ? »
+
+« Un truc en réparation. »
+
+Le marchand rit.
+
+« Ici, tout est en réparation. »
+
+À cela, Kael se contenta de hausser une fois les épaules. Jusqu'au bout, il ne prononça ni son nom ni l'endroit d'où il venait, et le marchand laissa simplement cette case vide. À Hazran, ce n'était pas une impolitesse.
 
 Dans une autre ruelle, Ater et Sern marchaient ensemble.
 
-Ni l'un ni l'autre ne parlait beaucoup. Ils se remarquaient donc moins. Mais dans un lieu comme Hazran, ce silence voyait davantage.
+Tous deux parlaient peu. C'est pourquoi on les remarquait encore moins.
 
-Ater observait les traces encore mal rangées près de la ligne de retour: comment les dispositifs de chaleur étaient remis en état, dans quel ordre les hommes de Haroun reprenaient position, jusqu'où les gens de Zahir intervenaient et où ils retiraient la main. Ici, l'ordre ne passait pas par des documents approuvés comme dans l'Empire. Cela ne voulait pas dire qu'il n'y avait pas d'ordre.
+Ce qu'Ater observait, c'était la zone de remise en état. Plus précisément, combien de personnes s'y trouvaient, et au geste de qui ces quelques personnes bougeaient.
 
-Sern dit très bas:
+Six personnes du côté de Haroun. Quatre du côté de Zahir. Les six étaient attelées aux dispositifs de chaleur, et les quatre se tenaient là d'où elles pouvaient voir ce que faisaient les six. Aucune des quatre ne touchait à rien. Mais quand l'une des six souleva une plaque dans le mauvais ordre, l'une des quatre leva très brièvement un doigt. Les six s'arrêtèrent aussitôt.
 
-« Vous apprenez encore? »
+Ater regarda ce doigt.
 
-Sans quitter la scène des yeux, Ater répondit:
+« Il n'y a pas une seule feuille de papier. »
 
-« C'est un lieu dont il faut apprendre. »
+Sern répondit à voix basse :
 
-Sern sourit à peine.
+« Et pourtant, ils se sont arrêtés. »
 
-« Différent de l'Empire. »
+« Dans l'Empire, ce doigt aurait un nom. Surveillant, ou arbitre. »
+Ater poursuivit :
+« Ici, il n'en a pas, et les six s'arrêtent. »
 
-« C'est pour cela que c'est plus inconfortable. Par moments, on ne voit pas qui autorise. »
+Sern garda un instant le silence, puis dit :
 
-Sern garda le silence, puis dit:
+« Ce n'est peut-être pas invisible. Il se peut que ce soit visible, et seulement dépourvu de nom. »
 
-« Ce n'est peut-être pas invisible. C'est peut-être visible, mais sans nom. »
+En entendant cela, Ater regarda Sern, très brièvement.
 
-Ater le regarda brièvement.
+Cette phrase semblait parler de Hazran, et pourtant pas seulement de Hazran.
 
-Cette phrase semblait parler de Hazran, et pas seulement de Hazran.
+Un peu plus loin, Haroun travaillait encore.
 
-Un peu plus loin, dans une zone de réparation, Haroun travaillait encore.
+Il soulevait seul la plaque extérieure du dispositif de chaleur qu'il avait lui-même brisé. Une plaque qui se portait normalement à deux. Ce n'était pas qu'il n'y avait personne à côté de lui : l'ordre avait déjà été donné que personne ne s'y mette.
 
-Ater ne le regarda pas longtemps, mais il ne détourna pas tout à fait les yeux. Un homme qui avait prétendu tenir l'ordre avait franchi une ligne et payait maintenant de ses propres mains. Même dans l'Empire, ce genre de scène était rare.
+Ater détourna les yeux de cette scène, puis se retourna pour la regarder une fois encore.
 
-Sern dit:
+Sern dit :
 
 « Il va quand même jusqu'au bout. »
 
-Ater répondit brièvement:
+Ater répondit brièvement :
 
-« Il le faut, si ses mots doivent rester. »
+« Il le faut, pour que sa parole reste. »
 
-Cela valait pour Haroun. Peut-être aussi pour lui-même.
+Ces mots valaient pour Haroun, et peut-être aussi pour lui-même.
 
-Au bout d'une autre ruelle, près d'un canal accroché de fines lanternes, Luhai vivait très bien seul.
+Au bout d'une autre ruelle, le long d'un canal où pendaient de nombreuses lanternes fines, Luhai, même seul, se mouvait avec une aisance pleine de vie.
 
-Il n'hésitait pas à glisser entre les gens. Il prenait un prix chez un vendeur d'eau et filait, écartait d'un sourire un homme qui lançait de fausses informations devant une boutique d'épices. Après trois échoppes, il était du genre à sentir quelle ruelle cachait une vraie valeur et laquelle jouait avec les étrangers.
+Il frôlait les gens sans la moindre gêne. Devant une boutique d'épices, il était tout aussi rapide à écarter en souriant un type qui laissait traîner de fausses informations.
 
-Sous ses pas rapides, pourtant, un regard plus calme restait.
+Devant le vendeur d'eau, il s'arrêta encore une fois. C'était l'endroit où Sion et Seorin avaient pris leurs gobelets tout à l'heure.
 
-Luhai s'arrêta devant la tente d'un vieux marchand de pièces.
+« Toujours le même prix ? »
 
-Parmi des fragments empilés comme des déchets, un ancien motif d'étoile apparaissait à moitié.
+Le vendeur d'eau désigna du menton les graduations sur le flanc du bidon.
 
-Il ne le ramassa pas. Il le regarda seulement et murmura:
+« Descendu d'un cran. »
 
-« Toi aussi, tu as dérivé jusque-là. »
+Luhai regarda les graduations. Puis il eut un rire bref.
 
-Il n'y avait aucune plaisanterie dans sa voix.
+« Alors, pas de vent aujourd'hui. »
 
-C'était là que se trouvait sa fierté pour Hazran. Les choses jetées n'étaient pas forcément la fin. Elles pouvaient être relues ailleurs.
+« On le saura quand il viendra. »
 
-Luhai n'acheta pas le fragment. À la place, il tira du propriétaire une rumeur: une éthérite d'une texture proche de celle qu'Aka cherchait pourrait sortir une nouvelle fois à l'aube, de l'autre côté du canal.
+« Non, je le sais déjà. »
+Luhai continua :
+« Tout à l'heure, t'as ajouté le prix du joint. Mais là, les graduations sont redescendues. Ça veut dire que t'auras pas à le changer. »
 
-Quand il repartit avec l'information, son visage eut pendant un instant quelque chose de plus proche d'un habitant du lieu que sous le soleil.
+Au lieu de répondre, le vendeur d'eau entrechoqua ses deux gobelets, tac, tac. Ici, ce son voulait dire qu'il lui donnait raison.
 
-Et à l'intérieur, Han Jiwoo et Aka se tenaient encore devant la même coque.
+Luhai n'acheta pas d'eau. Il était venu vérifier le prix, pas boire.
 
-Pendant que le marché s'ouvrait à la lumière du soir, la zone de travail s'enfonçait sous une petite lampe dans une concentration plus profonde. Han Jiwoo mesurait d'avance les points où les pièces de métal envoyées par Kael devraient prendre appui. Aka vérifiait encore si le premier cadre de réception, fixé provisoirement, tenait sans se refroidir.
+Ce qu'il regardait vraiment, ce n'étaient pas les marchandises.
 
-Elles parlaient peu. Mais toutes deux savaient ceci:
+C'étaient les tableaux de prix.
 
-qu'importe qui achetait quoi dehors, qui rapportait quelle information, qui revenait avec quelle image de Hazran; au moment de tout raccorder ici, tout serait éprouvé une fois de plus.
+En marchant, il parcourait d'un coup d'œil les vieux tableaux de prix que chaque boutique accrochait à une planche. Un regard qui ne cherchait pas ce que les gens vendaient, mais ce qu'ils avaient corrigé après avoir vendu quelque chose.
+
+Devant un marchand de pièces, il ralentit le pas.
+
+Sur le tableau, trois lignes avaient été repeintes à neuf. Seulement les trois du haut. Plus bas, la poussière était restée telle quelle.
+
+« Cette boutique a refilé un gros morceau aujourd'hui. »
+
+Il se parlait à lui-même.
+
+Quand on vend une petite chose, on ne corrige pas les prix. Cela voulait dire qu'une grosse pièce était entrée et que tout le reste avait été décalé. Et si seules les trois lignes du haut avaient été corrigées, ce qui était parti comptait parmi les plus chers de la boutique.
+
+Luhai entra dans la boutique.
+
+Il ne regarda pas les marchandises. Il demanda plutôt au patron ce qui se vendait bien aujourd'hui, et pendant que celui-ci répondait vaguement, il mesura des yeux la taille d'une caisse vide posée contre la planche. La caisse était grande.
+
+En sortant, il avait obtenu une rumeur venue d'une autre ruelle. De l'éthérite d'un grain proche de celle que cherchait Aka pourrait de nouveau être lâchée demain à l'aube, de l'autre côté du canal.
+
+Parti de trois lignes sur un tableau de prix, il en ressortait avec une rumeur.
+
+Même sous ces pas rapides, il restait un regard silencieux.
+
+Luhai s'arrêta devant la tente d'un vieux marchand de pièces. Là, parmi des fragments entassés comme des déchets, un motif de carte stellaire, ancien à l'évidence, apparaissait à moitié.
+
+Au lieu de ramasser le fragment, il le regarda un moment, puis murmura très bas :
+
+« Toi aussi, t'as dérivé jusqu'ici ? »
+
+Il n'y avait aucune malice dans ces mots.
+
+Si Luhai était fier de Hazran, c'était pour ce genre de chose. La possibilité que les choses abandonnées ne soient pas une fin, et qu'elles puissent être relues ailleurs.
+
+Luhai ne l'acheta finalement pas. C'était un objet qui ne figurait pas encore sur le tableau de prix, et il savait que s'il en demandait le prix maintenant, c'est à partir de ce moment-là qu'il en aurait un.
+
+Sur son visage, quand il se détourna, passa un instant une lueur qui le faisait ressembler, bien plus qu'en plein jour, à quelqu'un d'ici.
+
+Et à l'intérieur, Han Jiwoo et Aka se tenaient toujours devant la même coque.
+
+Pendant que le marché du dehors s'ouvrait à la lumière du soir, la zone de travail intérieure était plongée, sous une petite lampe, dans une concentration plus profonde. Han Jiwoo mesurait d'avance la place des morceaux de métal que Kael allait envoyer, et Aka ne cessait de vérifier si le premier cadre de réception, fixé provisoirement, tenait sans refroidir.
+
+Han Jiwoo s'essuya le front du revers de la main et demanda :
+
+« Et dehors, qu'est-ce qu'ils font ? »
+
+Aka ne quitta pas la coque des yeux.
+
+« Chacun achète autre chose. »
+
+« C'est un problème ? »
+
+« Non. »
+
+Aka se tut un instant, puis ajouta :
+
+« Tout vient ici. »
+
+À ces mots, Han Jiwoo arrêta ses mains et regarda du côté du cadre de réception.
+
+« Il a refroidi ? »
+
+« Il refroidit plus lentement que tout à l'heure. »
+
+« C'est bon ou c'est mauvais ? »
+
+« Je sais pas. »
+Aka poursuivit :
+« Si c'est qu'il tient, c'est bon. Si c'est que quelque chose continue de brûler dedans, c'est mauvais. On saura demain matin en le touchant. »
+
+Han Jiwoo souffla brièvement et rabaissa les mains.
+
+Elles parlaient peu. Mais toutes deux le savaient.
+
+Peu importe qui rapporterait quoi du dehors,
+qui ramènerait quelle information,
+et comment chacun reviendrait après avoir vu Hazran :
+au bout du compte, au moment de tout raccorder ici, à l'intérieur, chaque chose serait mise à l'épreuve une fois de plus.
 
 Hazran montrait à chacun autre chose.
 
-Et pourtant, ces fragments différents se rassemblaient peu à peu dans la même direction: sauver le même vaisseau.
+Et pourtant, tous ces fragments différents se rassemblaient peu à peu, étrangement, vers un même but : sauver le même vaisseau.
 
 ---
 

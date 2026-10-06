@@ -1,162 +1,270 @@
 # Chapitre 23 — La main passée en premier
 
-La réaction résiduelle qui s'était rallumée à l'intérieur de la structure était faible — mais les traces d'une fuite récente, elles, étaient nettes.
+La réaction de guidage revenue à la vie à l'intérieur de la structure était faible, et la trace d'un départ récent était nette.
 
-S'il n'y en avait eu qu'une seule, le choix aurait été simple. La réaction seule : on fouillait plus profond. Les traces seules : on poursuivait sans attendre. Le problème, c'est que les deux étaient là en même temps. La voie qui restait au fond n'était pas morte, et celui qui avait emporté le fragment le plus grand n'avait pas disparu depuis si longtemps.
+S'il n'y en avait eu qu'une des deux, la décision aurait été facile. S'il ne restait que la réaction de guidage, ils seraient allés voir plus loin à l'intérieur ; s'il n'y avait eu que la trace récente, ils l'auraient suivie aussitôt. Le problème, c'est qu'il y avait les deux. La voie restante n'était pas encore morte, et celui qui avait emporté le plus gros fragment avant eux n'avait pas disparu depuis bien longtemps.
 
-Sion prit la parole le premier.
+À l'autre bout du canal de courte portée, ce fut Seorin qui parla la première.
 
-« On tranche. On va voir plus loin à l'intérieur, ou on colle au plus près maintenant. »
+« Décide. On va voir plus loin à l'intérieur d'abord, ou on mord la piste tout de suite. »
 
-Sion ne trancha pas tout de suite. Ses yeux allaient encore de l'obscurité au fond de la structure aux traces fraîches au bord de la rainure. La trace de poids laissée par celui qui avait pris le fragment — un déplacement de centre de gravité, une égratignure à peine visible sur le métal, et la torsion du corps au moment de pivoter pour s'en aller. Des traces de fuite, oui — mais en même temps, des traces de quelqu'un qui savait lire cette structure.
+Sion ne répondit pas tout de suite. Ses yeux allaient toujours de l'obscurité intérieure de la structure à la trace récente, hors de la rainure. Les marques du transfert de poids laissées par celui qui avait emporté le plus gros fragment, une surface de métal finement éraflée, et la trace d'un corps qui s'était tordu une fois en faisant demi-tour à toute vitesse.
 
 Sern dit à voix basse :
 
-« Si on suit, c'est maintenant qu'on est le plus près. Trop attendre, et la poussière et les vibrations vont tuer les traces. »
+« Si nous le poursuivons, c'est maintenant que nous en sommes le plus près. Plus tard, la couche de poussière et les vibrations tueront la trace. »
 
-Ater prit l'autre côté presque au même instant.
+« Il reste combien de temps ? »
 
-« Mais si la réaction résiduelle au fond s'éteint, rouvrir toute cette structure coûtera cher. »
+« D'après la trace, moins de dix minutes. Au-delà, il ne restera que la direction ; l'écart aura disparu. »
 
-Han Jiwoo, du côté de la coque, dit posément :
+« Avec seulement la direction, on ne peut pas suivre ? »
 
-« Vous avez tous les deux raison. C'est pour ça que c'est désagréable. »
+« Hors de cette structure, il y a quatre embranchements. » Sern s'interrompit un instant. « Avec la seule direction, cela revient à en choisir un sur quatre. »
 
-Sion regardait l'obscurité intérieure. Il dit très lentement :
+Presque au même instant, Ater désigna l'autre côté.
 
-« On peut pas tout prendre. »
+« La réaction intérieure dispose-t-elle elle aussi de dix minutes ? »
 
-« Évidemment, dit Sion à voix basse. C'est pour ça que je te demande de trancher maintenant. »
+« Cela, je ne peux pas le mesurer. Son cycle n'est pas régulier. »
 
-Sern réexamina les traces de la fuite récente. La poussière était interrompue une fois, et de fines particules métalliques s'étaient dispersées vers l'extérieur. Quelqu'un qui aurait arraché l'objet à la hâte aurait eu le centre de gravité bien plus instable — or ces traces étaient étonnamment ordonnées. Un mouvement pressé, mais qui n'avait pas perdu son équilibre. Quelqu'un à l'aise avec ce genre d'endroit.
+Ater regarda l'obscurité intérieure.
 
-Il dit très bas :
+« Alors c'est pire. D'un côté, quelque chose dont on ignore quand il mourra ; de l'autre, quelque chose qui s'estompera dans dix minutes. Remettre à plus tard ce dont on ignore l'heure de la mort, ce n'est pas un calcul, c'est un pari. »
 
-« L'adversaire n'est pas amateur. Ce sont les traces de quelqu'un qui sait se presser et ranger en même temps. »
+« Vous proposez donc de commencer par l'intérieur ? »
 
-Ater regarda à nouveau les éraflures récentes. L'emplacement exact où le fragment avait été extrait, l'angle selon lequel les débris s'étaient coincés, le degré d'endommagement au bord de la rainure. Ça concordait. Ce n'était pas la trace d'une main qui avait arraché sans comprendre. C'était une main qui s'était d'abord donné la peine de lire cette logique, puis avait agi.
+« Je n'ai pas dit cela. » La voix d'Ater baissa un peu. « J'ai dit quel était le prix de ce côté-là. Abandonner une chose en connaissant son prix, ou l'abandonner sans le connaître, ce n'est pas la même chose. »
 
-Il dit tranquillement :
+À ces mots, Sion le regarda un instant.
 
-« Celui qui est passé en premier peut lire cette structure. »
+C'étaient les paroles d'un homme de la Chambre de Reconnaissance impériale, et pourtant, cette fois, ce n'était pas la langue de l'autorité. Cela voulait dire : si l'on abandonne quelque chose, qu'on sache au moins ce qu'on abandonne.
 
-Sion ne réagit pas tout de suite à ces mots. Pas simplement un voleur — quelqu'un qui avait dépassé le seuil du jugement et pris avec précision le fragment le plus grand. Alors ce n'est pas une affaire de vol. C'est la question de savoir qui a lu ce chemin en premier.
+Han Jiwoo dit à voix basse depuis la coque :
 
-Par le canal proche, la voix de Seorin arriva, brève.
+« Aucun des deux n'a tort. C'est bien pour ça que c'est pénible. On ne peut pas emporter les deux. »
 
-« C'est encore plus une raison de le suivre maintenant. »
+« Évidemment. »
+La réponse venait de Sion.
+« C'est justement pour ça qu'il faut décider maintenant. »
+
+Sern examina de nouveau les abords de la trace récente. La couche de poussière était interrompue une fois, et une fine poudre métallique s'était dispersée vers l'extérieur. Quelqu'un qui aurait arraché un objet dans la précipitation aurait vacillé bien plus fort, or cette trace était étonnamment ordonnée. Un mouvement pressé, mais qui ne s'était pas effondré. Autrement dit, quelqu'un d'habitué au terrain.
+
+Il dit, très bas :
+
+« L'autre n'est pas un amateur, au minimum. C'est la trace de quelqu'un qui sait faire place nette même dans la précipitation. »
+
+Ater regarda de nouveau les éraflures récentes. L'endroit d'où le plus gros fragment avait été extrait, l'angle sous lequel l'éclat était resté coincé, l'état du bord de la rainure.
+
+Il dit calmement :
+
+« Celui qui est passé en premier est de ceux qui savent lire cette structure. »
+
+Sion ne réagit pas tout de suite à ces mots.
+
+Seorin dit :
+
+« Raison de plus pour le poursuivre maintenant. »
 
 Ater leva les yeux.
 
-« Argument. »
+« Sur quel fondement ? »
 
-« Le fond peut attendre. La main qui est passée en premier, elle, ne le peut pas. »  
-Seorin dit, sans détour.  
-« La structure peut être relue. Une personne, une fois perdue, c'est fini. »
+« L'intérieur, même s'il reste, la main passée en premier, elle, ne restera pas. »
+Seorin avait tranché net.
+« Une structure, on peut la relire. Une personne, si on la perd encore une fois, c'est fini. »
 
-Court silence.
+« Une structure morte ne se lit plus non plus, répondit Ater. »
 
-Sion, à ces mots, laissa remonter imperceptiblement le coin de sa lèvre. Seorin avait raison. La réaction au fond était instable, mais encore vivante. Mais une personne, si elle s'éloignait encore dans ce secteur de l'amas stellaire extérieur, se dissoudrait simplement dans l'espace.
+« Morte, elle est toujours là. »
+
+« Même là, si elle ne se lit pas, elle n'existe pas. »
+
+« Alors je pose une question. » La voix de Seorin baissa un peu. « Ce qu'il y a là-dedans, on n'en sait rien. Mais celui qui est devant nous sait déjà ce qu'on sait. Il a lu avant nous, il a pris avant nous, et en ce moment même il l'emporte. Lequel des deux en sait le plus ? »
+
+Ater ne répondit pas.
+
+« La structure, il suffira de revenir la lire. Cette personne-là, même si on revient, ne sera plus ici. »
+
+À ces mots, Sion eut un très léger sourire en coin. La réaction intérieure était instable, mais encore vivante. Une personne, en revanche, pour peu qu'elle s'éloigne encore un peu, se dissolvait tout simplement dans l'espace, de ce côté-ci de l'amas stellaire extérieur.
 
 Il releva enfin la tête.
 
-« On suit. »
+« On le poursuit. »
 
-Ater ne demanda rien de plus. Ce choix semblait presque émotionnel, mais en réalité c'était la décision la plus pragmatique. Et le fait qu'il n'avait lui-même trouvé aucune raison de s'y opposer lui était désagréable — et parfaitement clair.
+Ater ne demanda rien de plus.
+
+Seulement, il ne se détourna pas non plus. Pendant que les deux autres s'orientaient vers la trace, il continuait de regarder l'obscurité intérieure.
+
+« Excellence. »
+
+C'était Sern qui l'appelait.
+
+« Nous partons. »
+
+Il eut pourtant encore un temps de retard.
+
+Dans ce temps-là, la lueur intérieure apparut encore une fois. Plus faible que tout à l'heure. Puis elle disparut très lentement, moins en s'éteignant qu'en s'estompant.
+
+Ater la regarda finir jusqu'au bout.
+
+« … Elle est morte. »
+
+Sion se retourna.
+
+« Quoi donc ? »
+
+« La réaction intérieure. À l'instant. »
+
+Tous trois regardèrent de ce côté. L'obscurité était aussi obscure que tout à l'heure. Pour savoir ce qui avait été là puis avait disparu, il aurait fallu regarder depuis tout à l'heure, et le seul à regarder depuis tout à l'heure, c'était Ater.
+
+Le canal de courte portée resta un moment silencieux.
+
+« Elle va revivre ? demanda Seorin. »
+
+« Je ne sais pas. »
+
+« Je ne sais pas, ça veut dire non. »
+
+« … Oui. »
+
+Sion ne dit rien.
+
+Il venait de voir, sous ses yeux, non pas le côté qu'il avait choisi, mais celui qu'il n'avait pas choisi payer le prix. Au moment de choisir, il avait cru qu'il s'agissait d'obtenir l'un des deux ; en réalité, il s'agissait d'en tuer un.
+
+« C'est ma décision, dit-il. »
+
+« C'est bien ta décision, enchaîna Seorin. Mais l'argument, c'est moi qui l'ai donné. »
+
+« On partagera ça plus tard. »
+
+« Il n'y a pas de plus tard. Si on ne partage pas maintenant, plus tard, tu le porteras tout seul. »
+
+Ce n'est qu'alors qu'Ater se détourna. En se détournant, il regarda encore une fois derrière lui, mais cette fois, il n'y avait plus rien à voir.
 
 Sern demanda aussitôt :
 
-« Ordre de progression. »
+« L'ordre de progression ? »
 
-Sion pointa du doigt la direction que suivaient les traces fraîches.
+Sion désigna du doigt la direction que suivait la trace récente.
 
-« Celui qui a fui n'est pas sorti directement par l'extérieur. Il a d'abord caché son corps dans l'ombre de la structure intérieure, puis de là il s'est retourné vers la bande d'accès extérieure. »
+« Celui qui est parti n'est pas sorti directement. Il s'est d'abord caché dans l'ombre de la structure intérieure, et de là, il a bifurqué vers la bande d'accès extérieure. »
 
-Han Jiwoo enchaîna immédiatement.
+Han Jiwoo enchaîna aussitôt.
 
-« Alors je sors un peu la coque pour créer l'angle de récupération. »
+« Alors je sors un peu la coque pour préparer l'angle de la ligne de récupération. »
 
-« Non. »  
-Sion secoua la tête.  
-« Jiwoo, toi tu maintiens la coque. Si quelqu'un s'accroche à nous, il nous faut un vaisseau pour rentrer. »
+« Non. »
+Sion secoua la tête.
+« Han Jiwoo, toi, tu maintiens la coque. Si quelqu'un s'accole de nouveau, il nous faudra un vaisseau pour revenir. »
 
-Han Jiwoo ne répliqua pas. À la place, par le canal proche, rien qu'un court souffle lui parvint.
+Han Jiwoo ne répliqua pas. Seul un souffle très bref passa à travers le canal de courte portée.
 
-Par le canal proche, la voix de Seorin s'éleva.
+Seorin demanda :
 
-« Qui en tête. »
+« Qui passe en tête ? »
 
-« Moi. »  
-Sion dit.  
-« Sern au milieu. Ater derrière, tu lis la structure. »
+« Moi. »
+Sion avait répondu.
+« Sern au milieu. Ater derrière, il lit la structure. »
 
-Un instant plus tard, Seorin dit brièvement :
+Un instant plus tard, Seorin dit :
 
-« Si tu forces, c'est moi qui coupe en premier. »
+« Si tu forces, c'est moi qui coupe la première. »
 
-Sion, les yeux sur ce qui était devant, répondit :
+Sion répondit, les yeux droit devant :
 
 « Je sais. »
 
-Le court échange terminé, les trois se mirent en mouvement très vite. Sion pivota le premier sur les traces de poids fraîches, orientant son corps vers l'extérieur de la structure. Le chemin n'avait rien d'un chemin. Des anneaux tranchés et des marches rompues, des débris d'alignement extérieur, un squelette de maintenance de dock à moitié nu dans une fissure étroite. Ce n'était pas un couloir — c'était une jonction que seul quelqu'un qui connaissait la structure pouvait à peine franchir. Autrement dit : celui qui était passé en premier savait lire ce chemin.
+Le court échange terminé, les trois se mirent en mouvement très vite. Sion, le premier, suivit la trace récente du transfert de poids et se tourna vers l'extérieur de la structure. Le chemin n'avait rien d'un chemin. Des anneaux tranchés et des passerelles rompues, des débris de l'alignement extérieur, une fente étroite où l'ossature de maintenance du dock affleurait à moitié.
 
-Sern dit aussitôt depuis l'arrière :
+Sern dit aussitôt derrière lui :
 
-« Marche gauche — charge morte. »
+« Passerelle de gauche, la charge est morte. »
 
-À peine les mots entendus, Sion pivota le pied. L'instant d'après, la plaque métallique qu'il allait fouler s'effondra silencieusement. Pas une chute — plutôt le silence de quelque chose qui s'était soutenu avant de s'effondrer de lui-même.
+Sion dévia le pied dès qu'il l'entendit. L'instant d'après, sous la plaque de métal qu'il allait fouler, quelque chose céda sans bruit. Moins une chute qu'un silence, comme si ce qui tenait encore s'était effondré de soi-même.
 
-Par le canal proche, Seorin retint son souffle.
+Seorin retint son souffle.
 
-« Seul, t'aurais déjà chuté. »
+« Seul, tu serais déjà tombé. »
 
-« Seul, j'aurais pas été là au départ. »
+« Seul, je ne serais même pas venu. »
 
-« C'est un mensonge. »
+« Menteur. »
 
-Sion ne répondit pas et regarda droit devant.
+« … Ouais. »
 
-Sur la paroi intérieure de l'ombre de la structure, une trace nettement plus visible cette fois. Sur le métal : une brûlure légère, comme le dos d'une main qui aurait effleuré la surface — et juste à côté, un court fragment de la fibre, rompu très brièvement. Cela ressemblait à la trace d'un pan de manteau ou d'une doublure de gant raclée contre la paroi.
+« Tu serais venu. Tout seul. »
 
-Sern tendit la main et souleva la fibre avec une précision extrême.
+« Ça aussi, ouais. »
 
-« Elle est fraîche. »
+« C'est pour ça que je suis restée à bord. »
 
-Ater la regarda, et son regard s'alourdit.
+Sion ne répondit pas. On n'entendait plus, derrière lui, que Sern qui indiquait la ligne de charge suivante.
 
-« Ce n'est pas du tissu impérial. »
+Sur la paroi intérieure, dans l'ombre de la structure, il restait cette fois une trace bien plus nette. Une brûlure à la surface du métal, comme si un dos de main l'avait frôlée, et à côté, un bout de fibre très court, rompu. On aurait dit la marque laissée par un pan de manteau ou la doublure d'un gant, raclés contre la paroi.
+
+Sern tendit la main et saisit la fibre avec une extrême précaution.
+
+« Elle est récente. »
+
+À peine Ater l'eut-il vue que son regard s'assombrit.
+
+« Ce n'est pas impérial. »
 
 Sion demanda aussitôt :
 
-« Alliance ? »
+« Côté Alliance ? »
 
-Ater n'était pas certain.
+Ater ne se prononça pas avec certitude.
 
-« Ce n'est pas non plus du format homologué de la Chambre de Reconnaissance. Et ce n'est pas du matériel de docker. »
+« En tout cas, ce n'est pas aux normes de la Chambre de Reconnaissance impériale. Ni du matériel d'ouvrier de dock. »
 
-C'était le genre le plus inconfortable. Ni impérial, ni alliance, ni petit revendeur de fond de cale. Une main grise qui avait lu la structure depuis l'extérieur du pouvoir et était entrée en premier.
+C'était le genre le plus inconfortable. Ni l'Empire, ni l'Alliance, ni pour autant un petit revendeur des bas-fonds. Une main grise, entrée la première depuis l'extérieur du pouvoir.
 
-Sion regarda moins la fibre que la trace du dos de la main restée sur la surface métallique à côté.
+Sion regarda moins la fibre que la trace de dos de main restée sur le métal, à côté.
 
-« C'est pas une trace de fuite en courant. C'est une trace de quelqu'un qui s'est arrêté pour tenir bon. »
+« Ça, ce n'est pas une éraflure en courant. C'est la marque de quelqu'un qui s'est arrêté pour tenir. »
 
 Ater reprit calmement :
 
-« Alors l'adversaire aussi a lu la direction ici avant de se remettre en mouvement. »
+« Dans ce cas, cela veut dire que l'autre aussi a lu la direction ici avant de repartir. »
 
-Sion pointa très lentement vers l'avant.
+Sion désigna l'avant, très lentement.
 
 « Par là. »
 
-À l'endroit où l'ombre extérieure de la structure prenait fin — là où les débris de la bande d'accès extérieure se superposaient à une vieille plaque d'alignement. L'endroit le plus propice pour quelqu'un qui se serait caché puis ressorti.
+C'était là où finissait l'ombre extérieure de la structure, là où les débris de la bande d'accès extérieure chevauchaient une vieille plaque d'alignement. L'endroit le plus commode pour se cacher, puis ressortir.
 
-L'objectif était désormais clair. Continuer à lire la réaction au fond avait son importance — mais ce qui pressait davantage en ce moment, c'était de ne pas laisser filer la main qui était passée en premier avec le fragment le plus grand. La réaction restante était faible, et les traces mouraient vite. Et ceux qui pouvaient lire cette scène, là, dans cet instant précis, et en suivre le fil — c'était eux seuls, et personne d'autre.
+Sion s'arrêta là un instant.
 
-Les quatre retinrent leur souffle en même temps.
+« Sern. »
 
-Et à cet instant précis, dans l'obscurité devant eux, le métal émit un son — très léger, très bref, comme si quelque chose avait frôlé le métal.
+« Oui. »
 
-Comme si quelqu'un n'était pas encore loin.
+« Tout à l'heure, c'était dix minutes, non ? »
+
+« Oui. »
+
+« Combien de minutes se sont écoulées ? »
+
+Sern compta un instant avant de répondre.
+
+« Six minutes. »
+
+« Et combien de temps il a fallu pour que l'intérieur meure ? »
+
+« … Deux minutes. »
+
+Sion expira une fois.
+
+Deux minutes. Entre le choix et le moment où le prix avait été réclamé, il s'était écoulé deux minutes. Il ne savait pas si c'était rapide ou lent, mais il savait au moins une chose. La prochaine fois qu'il choisirait quelque chose, le prix viendrait encore ainsi, par-derrière.
+
+« Allons-y. »
+
+Tous trois retinrent leur souffle en même temps.
+
+Dans l'obscurité, devant eux, du métal frotta, très légèrement.
 
 ---
 

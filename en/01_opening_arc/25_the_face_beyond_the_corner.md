@@ -1,192 +1,271 @@
 # Episode 25. The Face Beyond the Corner
 
-The distance to the next corner was not long.
+The distance left to the next corner was not long.
 
-The problem was the shortness itself. At this range, one mistake ended it — for both the chaser and the chased. Moreover, what they stood on now was not a proper corridor but a boundary section where long-severed external junctions and half-collapsed discrimination structures barely connected. One wrong step and below was not a path but space; reach one wrong hand and the discrimination reaction still remaining could die with it.
+The problem was the shortness itself. At this range, chaser and chased alike were finished by a single mistake. On top of that, what they were standing on now was not an intact passage but a border section, where long-severed outer junctions and half-collapsed classification structures barely held together. One wrong foot and below them was not a path but space; one wrong reach of a hand, and even the judgment response still left could die along with it.
 
-Sern said, very low.
+Sern said, very low,
 
-"Maintain speed. Too fast and we lose them; too slow and we lose them."
+"Hold speed. Too fast and we lose them. Too late and we lose them."
 
-Sion said nothing — only looked ahead.
+Sion didn't answer, only looked ahead.
 
-The afterglow of the plate that had reflected a moment ago still lingered in his eyes. Not equipment. Not structure metal catching light by accident. Someone was in this inner darkness right now, holding the larger fragment, looking for their next stopping point.
+Ater spoke low.
 
-Ater said low.
+"Behind the next corner it is narrow. They cannot stay there long either."
 
-"Beyond the next corner it narrows. They cannot stay there long either."
+Over the close-range channel, Seorin answered at once.
 
-Seorin followed immediately from beyond the channel.
+"So the room to hide and the room to run are both short."
 
-"Nice. So neither the space to hide nor the space to run is long."
+"Right,"
+Sion said.
+"That's why now's the closest we'll get."
 
-"Right."
-Sion said short.
-"That's why right now is the closest."
+Han Jiwoo's voice brushed through the comm-line again.
 
-Jiwoo's voice grazed through the comm line again, brief.
+"Structure response is going up one more time. Dragging this out is bad."
 
-"Structure reaction climbing one more time. Dragging this out is bad."
+In front of the corner, the three of them slowed at the same moment.
 
-That was not simple urging. The longer they stalled here, the more they lost — two things. The hand that passed first would also pull further away, and this structure's final discrimination reaction would die with it. Then even if the small shard in hand remained as evidence, the scene it was supposed to connect to would close.
+Sion raised a hand first to signal a stop. Sern halted right behind him, and Ater moved his eyes along the damage lines on the wall. Seorin, left on the ship, was holding her breath too, waiting for the next response.
 
-Sion said, very low.
+The breath beyond the corner was still there. Not ragged, but not entirely steady either. Less the breath of someone who had run a long way than that of someone who had kept holding up under something heavy and had stopped for a moment.
 
-"So we catch them now."
+Sion said, almost in a whisper,
 
-That was not impatience — it was closer to conclusion. The reason these five had come here personally lay exactly there. Sion could read traces before they were lost; Ater could turn remaining discrimination logic into structure; Sern held the sequence and timing between those two; Seorin could cut the moment someone pushed too far; Jiwoo was holding the hull so all of this had a way back. Not the kind of work that could be handed off or further prepared. Read now, attach now — or lose it. That was this scene's only rule.
+"They're there."
 
-The three slowed simultaneously before the corner.
+This time, instead of an answer, a very low voice dropped first from beyond the corner.
 
-Sion raised his hand first, signaling stop. Sern halted just behind; Ater moved his gaze along the wall's damage lines. Seorin, remaining on the ship side, held her breath beyond the channel, waiting for the next reaction.
+"Come any farther than that and I'll have no choice but to cut from this side too."
 
-A very short silence.
+All three of them went still at once.
 
-Then — beyond the corner, a breath grazed past.
-
-A living person's breathing. Not rough, but not fully stable either. Less the breath of someone who had fled far — closer to the breath of someone carrying something heavy, who had been holding and briefly stopped.
-
-Sion said, almost whispering.
-
-"There."
-
-This time, instead of an answer, a very low voice fell from beyond the corner first.
-
-"Come closer and I'll have to cut this side too."
-
-All three gazes hardened at once, and the breath beyond the channel stopped for a moment.
-
-The voice was low, and younger than expected. But not a weak voice. Not a warning shouted in panic — the kind of sound exhaled after calculating the exact line that would need cutting. The voice of someone who could read this structure.
+The voice was low, and younger than they'd expected. But it wasn't a weak voice. Not a warning yelled out in fear, but the kind of voice that comes out after working out which line really has to be cut.
 
 Sion answered.
 
-"You can't go far with that fragment."
+"You won't get far carrying that fragment."
 
-A brief silence passed.
-
-Then the voice beyond the corner came again.
+And the voice from beyond the corner came again.
 
 "I know."
 
-That single line changed the air.
+With that one word, the air changed.
 
-The fleeing side was not unaware of their own situation. They knew the larger fragment was unstable; knew they could not exit safely before passing the next discrimination section; knew the ones pursuing were not simple trackers — all of it.
+The one running was not blind to their own situation either. It meant they knew all of it: that the larger fragment was unstable, that they could not get out safely before passing the next judgment unit, even that the ones who had chased them here were not mere pursuers.
 
-Ater asked, very low.
+Ater asked, very low,
 
-"Who are you."
+"Who are you?"
 
-This time the answer did not come immediately.
+This time the answer didn't come right away.
 
-Instead, from below the shadow at the corner's edge, a hand appeared briefly and vanished. A gloved hand. Layered scrape marks overlapped on the back, and at the edge of the plate held beneath — a faint pattern line grazed past. Not the spec of Empire Approval Bureau equipment, nor the grain of Alliance field-craft tools. The hand of someone who had traced old paths directly, by touch.
+Instead, beneath the shadow at the edge of the corner, a hand came down very briefly and vanished. A gloved hand. Old scratches overlapped on its back, and from the edge of the plate held below it a faint pattern line flickered past. It matched neither the specifications of Empire Approval Bureau equipment nor the grain of Alliance field tools. It was the hand of someone who had felt their way along old paths with their own hands.
 
-Sern said, very low.
+Sern said, very low,
 
 "They are alone."
 
-Seorin asked from beyond the channel immediately.
+Seorin asked at once.
 
-"Certain?"
+"Sure?"
 
 "Yes."
-Sern answered short.
-"Only one reaction."
+Sern answered.
+"There is only one breath."
 
-That single line made the presence beyond the corner slightly clearer.
+With that one remark, the presence beyond the corner grew a little clearer.
 
-Not an Empire enforcement squad, not an Alliance recovery team, not a floor broker moving in numbers. A person who read this path alone and entered first, took the larger fragment into their hand first, and now — still alone — held on while calculating the next exit line.
+Sion said, very slowly,
 
-Sion said, very slowly.
+"Not the Empire, and not the Alliance either."
 
-"Not Empire. Not Alliance either."
+From beyond the corner came a short breath, like a laugh.
 
-From beyond the corner, something like a short laugh of breath escaped.
+"If it were either of those, they'd have shot the people first by now."
 
-"If it were either of those, they would've shot first."
+Seorin, left on the ship, would have changed expression at that one short remark too.
 
-Seorin, remaining on the ship side, must have changed expression at that single brief line too.
-
-That one short line was enough. The other party had not come to fight directly. Their purpose was still closer to recovery and extraction. But that was no reason to relax. A hand that took the fragment first; a hand that read this structure first. One wrong move and it becomes an enemy.
+That one short remark was enough. The other side had not come here to fight. The aim was still closer to recovery and getting out. That was no reason to relax, though. One wrong move and they would be an enemy on the spot.
 
 Sion asked.
 
-"That fragment — why did you take it."
+"That fragment. Why did you take it?"
 
-This time the answer came slightly late.
+This time the answer came a little late.
 
-"Because leaving it would kill it."
+"Because if I left it, it'd die."
 
-"Kill what."
+"What would?"
 
-"The fragment."
-Short breath.
+"The fragment would."
+A short breath.
 "And the path."
 
-This time Ater was the one who fell silent first.
+Sion held on to that for a moment.
 
-Those words did not sound like an excuse. Rather — so short, they sounded like the words of someone who had been moving holding onto that single conclusion for a long time. And inside that brevity, the fact that this person was not a simple thief was clear. They were not someone who only knew the fragment's value — but someone who also knew why this path remained, and why it was dying.
+"If you'd left it in the slot, it wouldn't have died."
 
-Sion felt it too. That was why he could not rush in more recklessly. What mattered now was not catching them per se. It was confirming what that hand knew, how far they had read, and why they had walked this structure alone and first.
+"It would."
 
-From inside the structure, one more low vibration rose.
+"Why?"
 
-Jiwoo's voice came through, mixed with noise.
+"You know what that slot does?" For the first time, the voice beyond the corner ran a little longer. "While it's in there, the response keeps reading it. Every read wears it down a little."
 
-"No time. Inner reaction's dying again."
+Sern understood at once.
 
-Sern said immediately.
+"Being read is itself the drain?"
 
-"A decision must be made."
+"Yeah."
 
-He was right.
+"How much is left?"
 
-Push further and it collides. Pull back and they're lost. Yet right now, for the first time, both the chasing side and the chased side knew the same fact. The longer they stalled here, the path would die first.
+"Don't know. But when I pulled it, the edge had already broken off."
 
-Sion looked toward the darkness beyond the corner and said low.
+Sion's hand went to his retrieval pocket on its own. The fingernail-sized crumb he'd picked up under the slot was in there.
 
-"Fine. Then let's confirm one thing first."
+They had left it knowing it was broken. Not out of ignorance.
 
-He steadied his breath and continued.
+"We picked that up," Sion said.
+
+"I threw it away."
+
+"Why?"
+
+"To carry that out too, I'd have needed one more hand."
+
+At that, Sern looked up.
+
+One more hand. Meaning that with one more person, it would not have been thrown away.
+
+Sion couldn't lunge in any more hastily. What mattered now wasn't the catching itself. It was finding out what that hand knew, how far it had read, and why it had walked through this structure first, alone.
+
+From inside the structure, another low vibration rose.
+
+Han Jiwoo's voice came in, laced with static.
+
+"No time. Responses elsewhere are going out too."
+
+Sern said at once,
+
+"We have to decide."
+
+Push any harder and there would be a clash. Fall back any farther and they would lose them. And yet now, for the first time, chasers and chased alike knew the same fact. The longer they dragged this out, the sooner the path would die.
+
+Looking into the darkness beyond the corner, Sion spoke low.
+
+"Then let me check one thing first."
+
+He steadied his breath and went on.
 
 "Did you come here because of Jun Aster's name too?"
 
-This time the silence stretched longer.
+The shadow beyond the corner wavered, very slightly. The reaction was neither a no nor a yes. But one thing was clear: the name was not a sound heard just now for the first time.
 
-The shadow beyond the corner wavered, very faintly. That reaction was neither denial nor affirmation. But it was clear — that name was not a sound heard just now for the first time.
-
-And finally, that low voice fell again.
+And at last, that low voice dropped again.
 
 "I didn't come because of the name."
-A brief silence passed.
-"I came because I saw the place where that name was cut away."
+"I came because I saw where that name was cut out."
 
-The words were short but large enough.
+Sion couldn't ask anything more.
 
-Sion could not ask further; Ater could not continue immediately either. Many people might chase Jun Aster. But someone who chased because they *saw the place where that name was severed* — that was different. It meant someone who saw structure before name, who read the severed sequence before the incident.
+Ater asked instead.
 
-From beyond the channel, Seorin exhaled very slowly.
+"Where did you see the places it was cut out?"
 
-"Now we're getting somewhere."
+"Not just one place."
 
-The presence beyond the corner did not answer that.
+"How many?"
 
-Instead, in the next moment, the edge of the larger plate they held showed more clearly in the darkness — very briefly. Not a full surrender. Not a threat either. It looked, simply, like the other party had no intention of fully cutting this conversation.
+The answer from beyond the corner came late.
 
-But right then — from deeper inside the structure, one discrimination reaction died sharply.
+"I counted. Then I forgot."
 
-Sern spoke almost simultaneously.
+"The ones you remember?"
 
-"Now."
+"Why are you asking?"
 
-No one needed to explain what that meant. If a decision was not made now — fragment, conversation, and path could all be lost together.
+For a moment, Ater did not answer.
 
-Sion said, very low, toward the darkness beyond the corner.
+"To see whether they overlap with places I have closed."
 
-"If you're going to run — now's the time."
-He steadied one beat of breath.
-"If not — let's see a face first."
+This time the far side of the corner stayed silent much longer.
 
-## And the shadow beyond the corner — finally, very slowly — began stepping one foot into the side where light could reach.
+Sion looked at Ater beside him. The man had just said, first, which side he was on. If the other one heard that and backed away, the conversation ended there.
+
+"…You're Approval Bureau?"
+
+"Yes."
+
+"And yet you're here."
+
+"Yes."
+
+"Why?"
+
+"Because I do not know what was among the things I closed."
+
+A very low sound came from beyond the corner. Whether it was a laugh or a breath, there was no telling.
+
+"…That's a reason I've never heard before."
+
+Seorin let out a breath, very slowly.
+
+"Now we're finally talking."
+
+The presence beyond the corner didn't answer that.
+
+Instead, the next moment, the edge of the larger plate in those hands showed a little more clearly in the dark, just for an instant. Not a handover. Not a threat, either. It only seemed to mean that the other side had no intention of cutting this conversation off completely.
+
+But right then, deeper inside the structure, a judgment response went out abruptly.
+
+Sern spoke almost at the same moment.
+
+"It is now."
+
+No one needed it explained again what that meant. If they didn't decide now, they could lose all three together: the fragment, the conversation, and the path.
+
+Then the retrieval line at Sion's waist was tugged once.
+
+Once.
+
+Twice meant get out and three times meant cut, so once was a signal that wasn't part of the agreement.
+
+Sion opened the channel, very low.
+
+"What."
+
+"Because I'm choosing right now between pulling twice and pulling three times." Seorin's voice was the same as always. "Once was so you'd know that."
+
+"Who tells you they're in the middle of choosing?"
+
+"I'm right here, aren't I."
+
+Sion wound the line once around his hand.
+
+"A little longer."
+
+"How long's a little?"
+
+"Till I see a face."
+
+The channel went quiet for a moment.
+
+"That's something I can't measure."
+
+"I know."
+
+"I still won't pull. Not now."
+
+The line went slack again.
+
+Sion spoke toward the far side of the corner, very low.
+
+"If you're going to run, it's now."
+Sion steadied his breath for one beat.
+"If not, let's see a face first."
 
 ---
 

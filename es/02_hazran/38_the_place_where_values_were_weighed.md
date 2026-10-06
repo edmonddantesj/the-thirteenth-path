@@ -1,215 +1,273 @@
 # Capítulo 38 — El lugar donde se pesaban los valores
 
-Mientras seguían a Harún y a Nasim hacia el interior, el aire de la capa exterior del mercado se les iba despegando del cuerpo poco a poco.
+Mientras seguían a Harún y a Nasim hacia dentro, el aire de la capa exterior del mercado se les fue despegando del cuerpo poco a poco.
 
-En apariencia, no era más que un pasaje corriente que unía tiendas y armazones, pero después de unos cuantos quiebros fue el sonido lo que cambió primero. Afuera, el escándalo se superponía hasta sonar como un solo mercado; adentro, en cambio, el ruido estaba cortado en trozos finos. Un martilleo, el sonido de limalla que se sacude, un regateo breve, la tapa de un bidón que se cierra, una risa que estalla de cuando en cuando a lo lejos. Todo se oía, y sin embargo nada se enredaba con lo demás. Parecía un lugar donde ya estaba ordenado quién hacía qué y dónde.
+A la vista no era más que un pasaje corriente que unía tiendas y armazones, pero, tras doblar unas cuantas veces, lo primero que cambió fue el sonido. Si afuera el bullicio se superponía hasta sonar como un solo mercado, aquí dentro, en cambio, el ruido estaba cortado en trozos menudos. Golpes de martillo, el sonido de la limalla al sacudirse, un regateo breve, la tapa de un bidón al cerrarse, una risa que estallaba de vez en cuando a lo lejos. Todo se oía, pero nada se enredaba con lo demás. Parecía un lugar donde ya estaba ordenado quién hacía qué y dónde.
 
-A Sion esa diferencia le resultaba aún más incómoda.
+A Sion esa diferencia le resultaba más incómoda.
 
-El alboroto de la capa exterior, al menos, daba la sensación de un sitio vivo. Pero este interior tenía orden. Y esa clase de orden suele nacer cuando ya está decidido quién puede tener qué, y en qué cantidad.
+El alboroto de la capa exterior, al menos, se sentía como el de un lugar vivo. Pero este interior tenía orden. Y esa clase de orden suele nacer cuando ya está decidido quién puede tener qué y cuánto.
 
-Nasim seguía caminando delante, con la sonrisa en la cara, y Harún se limitaba a abrir el camino sin una palabra. Luhai seguía medio sujeto por la mano de Kael, sin que por eso lo arrastraran del todo. En lugar de buscar el ángulo para huir, ahora tenía los ojos de quien memoriza la estructura interior. Sion sabía que esta clase de crío no se rinde: recuerda más rápido.
+Nasim seguía caminando delante con la cara sonriente, y Harún se limitaba a abrir camino sin decir nada. Luhai seguía medio sujeto por la mano de Kael, pero no lo llevaban arrastrando del todo. En lugar de buscar un ángulo para escapar, ahora tenía los ojos de quien intenta aprenderse de memoria la estructura de dentro. Sion sabía que los chicos así no se rinden: memorizan más rápido.
 
-Ater echó un vistazo a los armazones y los tabiques que iban pasando y dijo muy bajo:
+Ater echó un vistazo a los armazones y las paredes que iban dejando atrás y habló muy bajo.
 
-—Son bodegas.
+—Es un almacén.
 
-Sion preguntó en voz baja:
+Sion preguntó en voz baja.
 
-—¿No el interior del mercado?
+—¿No es la parte de dentro del mercado?
 
-—Las dos cosas —respondió Ater—. Pero no es un sitio donde cualquiera regatee como afuera. Aquí manda más el lado que amontona, separa y deja en suspenso.
+—Las dos cosas.
+Ater lo respondió.
+—Pero no es un sitio donde cualquiera regatee, como afuera. Aquí pesa más lo de reunir, separar y dejar en suspenso.
 
-Kael dijo, breve:
+Kael habló con brevedad.
 
-—Un sitio donde atan las cosas un rato hasta que se fija el precio.
+—Es donde atan las cosas un rato hasta que se fija el precio.
 
-Harún aflojó el paso una sola vez, a una cadencia que no dejaba saber si había oído esas palabras o no. Fue una reacción breve, pero Sion no la dejó pasar. Quería decir que Harún también había leído que Kael no era alguien del todo ajeno a este mundillo.
+Harún aflojó el paso una sola vez, a una velocidad que no dejaba saber si lo había oído o no. Fue una reacción breve, pero Sion no la dejó escapar. Quería decir que también Harún estaba leyendo que Kael no era del todo ajeno a este suelo.
 
-Lo que apareció al final del pasaje no fue una plaza abierta.
+Al llegar al final del pasaje, lo primero que vieron no fue una plaza abierta.
 
-Era un taller amplio, con el techo cubierto solo a medias. Bajo un techo hecho de armazones de cascos muertos unidos, se alineaban mesas largas, plataformas de carga bajas, aparatos a medio desmontar, bidones sellados, cajas de metal apiladas capa sobre capa. Había mucha gente, eso estaba claro, pero nadie gritaba como en el mercado de afuera. Cada uno trasladaba lo que tenía asignado, limpiaba, medía, cruzaba unas pocas palabras y volvía a las manos. Aquí parecía que las manos trabajaban antes que la voz.
+Era un taller amplio, techado a medias. Bajo un techo hecho de armazones de naves muertas unidos entre sí, había mesas largas, plataformas de carga bajas, aparatos medio desmontados, bidones sellados y cajas de metal colocados en capas. Gente había mucha, eso estaba claro, pero no gritaban como en el mercado de afuera. Cada uno movía lo que le tocaba, lo limpiaba, lo medía, hablaba solo un momento y volvía a las manos. Aquí parecía que las manos trabajaban antes que la voz.
 
-Sion se dio cuenta enseguida de varias cosas.
+Sion se dio cuenta enseguida de unas cuantas cosas.
 
-Primero: si había un sitio donde rodara una materia tan valiosa como la eterita, justamente un interior como este encajaba mejor.
-Segundo: entendió un poco mejor por qué el nombre de Aka se había tragado afuera. Si era un nombre atado a una estructura como esta, en el momento en que se pronunciara a la ligera en la capa exterior, no podía sino llegar de inmediato a los oídos de adentro, lo oyera quien lo oyera.
-Tercero: Luhai, nada más ver esta estructura interior, en lugar de asustarse miraba con más empeño. Eso no era buena señal. Esta clase de crío, cuanto más miedo tiene, más busca el ángulo para robar.
+Primero: si había un sitio por donde rodara una materia tan valiosa como la eterita, un interior como este encajaba mejor.
+Segundo: también entendía un poco por qué el nombre de Aka se había tragado afuera. Si era un nombre atado dentro de una estructura así, en cuanto alguien lo pronunciara a la ligera en la capa exterior, lo oyera quien lo oyera, no podía sino entrar de inmediato en los oídos de dentro.
+Tercero: Luhai, nada más ver la estructura de dentro, en lugar de asustarse, miraba con más empeño. Eso no era buena señal. Un chico así, cuanto más miedo tiene, más busca el ángulo para robar.
 
-Nasim se volvió muy despacio.
+Nasim se dio la vuelta muy despacio.
 
-—Bien —dijo—. Ya sacudimos el aire de afuera; aquí hablemos como personas.
+—Bien.
+Lo dijo él.
+—Ahora que nos sacudimos todo el aire de afuera, aquí hablemos como personas.
 
-Seorin replicó:
+Seorin le replicó.
 
-—Si tuvieras la intención de hablar como una persona, no nos habrías arrastrado desde afuera de esa manera.
+—Si hubieras pensado hablar como personas, no nos habrías traído arrastrados así desde afuera.
 
 Nasim sonrió.
 
-—Afuera había demasiados oídos —dijo—. Aquí, al menos, soy yo el que ve primero hasta dónde sube el precio.
+—Es que afuera hay demasiados oídos.
+Lo dijo él.
+—Aquí, al menos, hasta dónde sube el precio lo veo yo primero.
 
-—¿Y qué es lo que quieres oír primero? —preguntó Sion.
+—¿Y qué es lo que quieres oír primero?
+Sion lo preguntó.
 
-Nasim, como si hubiera esperado esa pregunta, miró por turnos a Sion, a Kael, a Luhai y, por último, el equipo en la mano de Ater.
+Nasim, como si hubiera estado esperando esa pregunta, miró uno tras otro a Sion, a Kael, a Luhai y el instrumento en la mano de Ater.
 
-—¿En orden? —dijo—. Por qué necesitan eterita. Por qué vinieron sabiendo el nombre de Aka. Y por qué ese crío justo hoy agarró una pieza de verdad y echó a correr.
+—¿Por orden?
+Lo dijo él.
+—Por qué necesitan eterita. Por qué vinieron sabiendo el nombre de Aka. Y por qué ese chico, precisamente hoy, agarró lo verdadero y salió corriendo.
 
-Luhai se metió de inmediato.
+Luhai se metió enseguida.
 
 —Eso no hace falta que lo explique yo, ¿no?
 
-—Sí —cortó Harún—. Tú eres el primero que tiene que hacerlo.
+—No.
+Harún lo cortó.
+—Tú tienes que hacerlo el primero.
 
-Luhai cerró la boca. Hasta hacía un momento la boca le iba por delante; ahora era distinto. Tenía la cara de quien ya sabe en el cuerpo que, delante de Harún, soltar una palabra de más podía cortarlo de verdad.
+Luhai cerró la boca. Hasta hacía un momento, la boca le iba por delante, pero ahora era distinto. Tenía la cara de quien ya sabe con el cuerpo que, delante de Harún, en cuanto añade una palabra más, pueden cortarlo de verdad.
 
-Seorin miró primero hacia Sion.
+Seorin miró primero una vez hacia Sion.
 
-Sion asintió con un breve movimiento de cabeza.
+Sion asintió con un breve gesto.
 
-Una vez que habían entrado hasta aquí, no podían ocultarlo todo. Pero tampoco hacía falta soltarlo todo de entrada. Solo lo necesario, eso sí, sin mentir. Esa era la manera que, en ese momento, parecía la menos débil.
+Una vez que habían entrado hasta aquí, no podían ocultarlo todo. Pero tampoco hacía falta soltarlo todo primero. Solo lo necesario, pero sin mentiras. Esa era, ahora mismo, la manera de parecer menos débiles.
 
-Sion habló primero.
+Sion fue el primero en abrir la boca.
 
-—El barco está a punto de morir —dijo—. El eje casi se fue en el aterrizaje forzado, y si le pegamos eterita falsa, se acaba aún más rápido.
+—El barco está a punto de morir.
+Lo dijo él.
+—En el aterrizaje forzoso el eje casi se fue, y si le montamos eterita falsa, se acaba antes.
 
-Nasim preguntó:
+Nasim preguntó.
 
-—¿Dónde está el barco?
+—¿Y dónde está el barco?
 
-—Eso es para más tarde —cortó Seorin.
+—Eso es para luego.
+Seorin lo cortó.
 
-Nasim no lo presionó más. En cambio, solo inclinó la cabeza una vez, con la sonrisa en la cara. No era de los que fuerzan las cosas en el acto, sino de los que saben que lo que no empujan ahora acabará por decirse más tarde.
+Nasim no insistió. En lugar de eso, se limitó a ladear una vez la cabeza con la cara sonriente. No era de los que presionan en el acto, sino de los que saben que, aunque ahora no empujen hasta cierto punto, al final uno acabará diciéndolo.
 
-Ater añadió en voz baja:
+Ater añadió en voz baja.
 
-—Hacía falta una mano capaz de distinguir lo verdadero de lo falso. Por eso buscamos ese nombre.
+—Necesitábamos una mano capaz de distinguir lo verdadero de lo falso. Por eso buscamos ese nombre.
 
-Harún recogió esas palabras:
+Harún recogió esas palabras.
 
 —Aka.
 
 Un breve silencio.
 
-—Sí —dijo Sion—. Hubo alguien que dejó ese nombre.
+—Sí.
+Sion lo dijo.
+—Hubo alguien que dejó ese nombre.
 
-Nasim redujo la sonrisa un punto apenas.
+Nasim redujo la sonrisa apenas un poco.
 
-—¿Dejó? —preguntó—. ¿No vendió?
+—¿Que lo dejó?
+Lo preguntó él.
+—No que lo vendió.
 
-—Para saberlo, primero tendrían que decirnos más ustedes —respondió Seorin.
+—Eso lo sabremos cuando ustedes nos cuenten más primero.
+Seorin lo respondió.
 
-Harún escuchó ese cruce sin cambiar de cara. En cambio, por primera vez, miró de frente a Luhai.
+Harún escuchó ese cruce sin cambiar de expresión. En cambio, por primera vez miró de verdad hacia Luhai.
 
 —Tú.
 
-Luhai apartó los ojos un instante, luego los volvió a levantar. Era la manera de quien sabe que escabullirse no lo hará invisible ante este hombre.
+Luhai apartó los ojos un momento y luego volvió a levantarlos. Era la manera de quien sabe que ese no es alguien que deje de verlo a uno porque aparte la vista.
 
-—Solo lo agarré —dijo.
+—Solo lo agarré.
+Lo dijo él.
 
 Harún dio un paso hacia él.
 
 —Mentira.
 
-Luhai se mordió un instante el interior del labio. Sion lo leyó en esa cara: el crío no estaba del todo descubierto, buscaba las palabras para decir un poco menos.
+Luhai se mordió un instante el interior del labio. Al ver esa cara, Sion lo supo. Al chico no lo habían descubierto del todo: estaba buscando qué decir para contar lo justo y no más.
 
-—No del todo. No solo lo agarré —dijo Luhai a regañadientes—. Entre los falsos había uno que se hacía demasiado el muerto.
+—No fue del todo así sin más.
+Luhai lo dijo a regañadientes.
+—Entre las falsas se hacía demasiado el muerto.
 
-—¿Y entonces? —preguntó Harún.
+—¿Y?
+Harún lo preguntó.
 
-Luhai calló un instante y luego dijo más bajo:
+Luhai se quedó callado un momento y luego habló más bajo.
 
-—Y hoy la línea por la que salían las piezas de adentro estaba un poco rara.
+—Y hoy la línea por donde salían las cosas de dentro estaba un poco rara.
 
-La mirada de Sion cambió de forma imperceptible.
+La mirada de Sion cambió de forma mínima.
 
-Eso era importante. Era una información más de adentro que un simple intento de robo. Luhai no era un crío al que pillaron robando un objeto, sino uno que rondaba el flujo interior en sí.
+Aquello no era lo que diría un chico al que pillan intentando robar.
 
-Nasim pareció entenderlo también.
+Nasim también pareció entenderlo.
 
-—¿Quién te enseñó eso? —preguntó con suavidad.
+—¿Quién te enseñó eso?
+Lo preguntó con suavidad.
 
-—Nadie —respondió Luhai enseguida—. Mirando los libros de cuentas se nota.
+—Nadie.
+Luhai lo respondió enseguida.
+—Se nota con solo mirar el libro de cuentas.
 
-El aire del callejón se detuvo un instante.
+Nasim retiró un poco la sonrisa.
 
-Esta vez no fue solo Sion quien lo sintió. También Ater, también Kael, Seorin, Nasim, Harún. Todos percibieron que la palabra «libros de cuentas» había caído con una textura muy distinta a la excusa de un ratero.
+—Entonces míralo.
+
+Nasim señaló con el mentón la tablilla de precios colgada en el borde del puesto de al lado. La del día seguía allí, borrada a medias.
+
+Luhai dio dos pasos y la miró. No la miró mucho rato.
+
+—Aquí. La tercera línea.
+
+—¿Por qué?
+
+—Debajo de lo borrado quedó la marca. El número bajó.
+
+—¿Y qué tiene de raro que bajara?
+
+—Todas las demás líneas subieron, y solo esta bajó.
+
+Luhai lo dijo sin apartar los ojos de la tablilla.
+
+—Que el que vende baje el precio solo quiere decir una cosa. Que tiene que deshacerse de algo rápido.
+
+—¿Sabes de quién es el puesto?
+
+—No. Ni hace falta saberlo.
+
+—¿Por qué?
+
+—Porque, si solo baja esa línea, es que por ahí se está escapando algo.
+
+El aire del taller se detuvo un momento.
+
+Esta vez no fue solo Sion quien lo sintió. También Ater, Kael, Seorin, Nasim y Harún. Todos sintieron que la expresión «libro de cuentas» había caído con una textura distinta a la de la simple excusa de un ratero.
 
 Nasim sonrió muy despacio.
 
-—Ah —dijo—. Así que eras de esos.
+—Ah.
+Lo dijo él.
+—Así que eras de esos.
 
-Luhai no puso cara de que aquello le agradara. Más bien era la de quien se había dejado descubrir demasiado rápido su propio valor.
+Luhai no puso cara de que eso le alegrara. Más bien era la de quien ha dejado ver su propio precio demasiado pronto.
 
-Sion sintió en ese instante que una pieza más encajaba en el rompecabezas.
+En ese instante, Sion sintió que encajaba una pieza más del rompecabezas.
 
-Luhai no era simplemente un crío de manos rápidas.
-Leía los registros y los flujos,
-escogía entre los falsos el que no estaba muerto,
-y veía los días en que la línea de los libros de cuentas se movía de través.
+Lo más calladamente peligroso de aquel lugar era ese chico de hace un momento.
 
-Esa era, quizá, en ese preciso instante, la capacidad más calladamente peligrosa de todas.
+Harún habló muy bajo.
 
-Harún dijo muy bajo:
+—Así que por eso le pusiste la mano a las cosas de dentro.
 
-—Así que por eso tocaste las piezas de adentro.
+Esta vez, Luhai no contestó.
 
-Luhai, esta vez, no contestó.
+En su lugar, Nasim siguió hablando con más suavidad.
 
-En cambio, Nasim siguió hablando con más suavidad:
+—Bien. Entonces el cálculo cambia un poco.
+Lo dijo él.
+—Los forasteros necesitan eterita y vinieron con el nombre de Aka. Y este chico lee el libro de cuentas.
 
-—Bien. Entonces el cálculo cambia un poco —dijo—. Los forasteros necesitan eterita y vinieron con el nombre de Aka. Y este crío lee los libros de cuentas.
+Sion supo que esa sola frase era el sonido de atarlos a los cuatro y a Luhai en una misma línea.
 
-En cuanto ese resumen quedó puesto, Sion sintió que esa gente ya no los miraba por separado.
+En la capa exterior habían sido tres asuntos enganchados por separado. Dentro se habían vuelto un solo renglón.
 
-Ahora eran un solo lote.
-Un lote donde problema, precio y posibilidad se mezclaban en un todo.
-
-Lo que en la capa exterior había parecido un azar, una vez dentro, se alineaba todo en una sola línea.
-
-Seorin preguntó en voz baja:
+Seorin preguntó en voz baja.
 
 —¿Y entonces?
 
-Nasim, esta vez, no respondió antes que Harún. En cambio, miró muy brevemente hacia un lado. Esa mirada quería decir que ya estaba designado quién tomaba la decisión final.
+Esta vez, Nasim no respondió antes que Harún. En lugar de eso, miró muy brevemente a un lado. Esa mirada quería decir que ya estaba decidido quién tomaba la decisión final.
 
-Harún dijo:
+Harún habló.
 
-—Se los llevan.
+—Nos los llevamos.
 
 Un breve silencio.
 
-Luhai reaccionó de inmediato.
+Luhai reaccionó al instante.
 
 —¿Adónde?
 
 Harún ni siquiera lo miró.
 
-—Si te callas y vienes, a un sitio menos molesto.
+—A un sitio menos molesto, si cierras la boca y vienes.
 
-—Eso no me tranquiliza nada —masculló Luhai.
+—Eso no me tranquiliza nada.
+Luhai lo murmuró.
 
-Kael dijo muy bajo:
+Kael habló muy bajo.
 
 —Cállate un poco.
 
-Sion, con esas palabras, miró más adentro, hacia el fondo.
+Con esas palabras, Sion miró hacia lo más hondo de dentro.
 
-Detrás del taller había otro sector, tapado por tiendas y armazones. Más silencioso que la capa exterior, con menos gente, pero donde cada mano que entraba y salía no se movía nunca en vano. Si había un sitio capaz de atraer de golpe la eterita, a Aka y los libros de cuentas de Luhai, lo más probable era que fuera ese.
+Detrás del taller había otro sector, tapado por tiendas y armazones. Un área más silenciosa que la capa exterior, con menos gente, pero donde todas las manos que entraban y salían no se movían nunca en vano. Si había un lugar adonde podían arrastrar de golpe la eterita, a Aka y el libro de cuentas de Luhai, todo a la vez, parecía que sería ese.
 
-Y en algún punto de aquel interior,
-tenía que estar la persona que de verdad sostenía la mesa de este mundillo.
+Y en algún lugar de ese interior estaría, de verdad, quien tenía en la mano la partida de este suelo.
 
-Sion apretó una vez más el papel dentro de su chaqueta.
+Sion volvió a pensar en cómo Luhai acababa de leer la tablilla.
 
-*Hazran.*
-*Aka.*
+Había dicho que no hacía falta saber de quién era el puesto. Que bastaba ver que una línea bajaba para saber que algo se estaba escapando.
 
-Las dos palabras seguían sin explicación.
+Sion miró lo que él tenía de esa misma manera.
 
-Pero ahora una cosa estaba clara.
+**Hazran** es un lugar. Ya estamos aquí, así que esa mitad ya está usada.
 
-El camino para encontrar este nombre
-no podía sino atravesar el centro mismo del lugar donde se pesaban los valores.
+**Aka** no era un lugar.
+
+Elia los había escrito uno al lado del otro. Escribirlos uno al lado del otro quería decir escribirlos con el mismo peso. Entonces los dos tendrían que ser lugares, pero lo que había visto hoy apuntaba a que el segundo era una persona.
+
+En la misma línea hay, uno junto al otro, un lugar y una persona.
+
+Por qué pesaban lo mismo, todavía no lo sabía. Aun así, hoy había quedado claro dónde estaba lo que no sabía.
+
+Que el camino para encontrar ese nombre no podía sino atravesar el centro mismo del lugar donde se pesaban los valores.
 
 ---
 

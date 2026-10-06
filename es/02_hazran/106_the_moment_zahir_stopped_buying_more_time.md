@@ -1,176 +1,347 @@
 # Capítulo 106 — El instante en que Zahir dejó de comprar más tiempo
 
-Después de que Harún, todavía de rodillas, mantuviera el paso abierto,
-y de que los tres primeros de la quinta tanda se deslizaran por aquella rendija,
-dentro de Hazran cayó un silencio muy breve.
+Cuando habían pasado doce de los veinte minutos, Zahir bajó al pasillo.
 
-Nadie se había detenido de verdad.
-Pero todos sentían lo mismo.
+Sion estaba entonces sentado junto a Harún. Estaba sentado con el agua en las manos, pero Harún todavía no había bebido.
 
-Hasta aquí.
+Zahir miró a Harún.
 
-Ya no se puede seguir por el lado de comprar tiempo de la misma manera.
+Lo miró mucho rato.
 
-Sion sintió cómo esa certeza
-se le clavaba en el cuerpo antes de que nadie la dijera.
+Hasta entonces, aquel hombre nunca había mirado a nadie mucho rato. Incluso al decidir la disposición, miraba una vez y hablaba.
 
-Harún todavía bloquea el camino.
-Sern y Ater tampoco han caído aún.
-Kael también sostiene la izquierda.
-El casco todavía recibe gente.
+—Hasta aquí.
 
-Pero todo eso,
-ya no garantiza la siguiente vez.
+Harún levantó la cabeza.
 
-Hasta hacía un momento «solo una vez más» era posible.
-De ahora en adelante, ni siquiera ese «solo una vez más»;
-no hay manera de saber quién sobrevivirá para pagarlo.
+—¿Qué cosa?
 
-Zahir lo estaba mirando todo.
+—Lo de comprar.
 
-A la derecha, Harún de rodillas, sangrando,
-Sern y Ater llenando aquel hueco,
-a la izquierda, Kael sosteniendo la única capa de biombo que quedaba,
-la gente prensada delante del casco,
-y Nasim, Seorin, Luhai y Sion empujándolos hacia afuera aunque fuera a la fuerza.
+Sion no tardó en entender esas dos frases.
 
-Él no se detuvo ni un instante en el sentimentalismo.
+Todo lo que Hazran había hecho hasta entonces era comprar tiempo. Con una barricada, una tanda; con un brazo, una hora; con doce manos, un agujero. Pagaban el precio y compraban tiempo.
 
-—Hasta aquí —dijo muy corto.
+—Ya no compramos.
+Lo dijo Zahir.
 
-Esas tres palabras
-volvieron a cambiar el campo de batalla entero una vez más.
+Al oír eso, Harún pasó un buen rato sin decir nada.
 
-Nasim levantó la cabeza primero.
+Después soltó el aire muy bajo. No era una risa.
 
-—Qué quieres decir.
+—Por fin.
 
-Zahir habló esta vez con claridad.
+Esas dos palabras le cerraron la garganta a Sion.
 
-—Ya no compro más —dijo en voz baja—. Pego a los que quedan y mando primero a los que se van. Lo de atrás se cierra.
+Aquel hombre había pasado noventa y tantas horas comprando tiempo. No había estado esperando que le dijeran que parara; había seguido comprando por miedo a que nadie lo dijera.
 
-Aquellas palabras no eran un simple ajuste de ritmo.
+—Entonces, ¿qué hacemos?
+Lo preguntó Sion.
 
-El modo que había usado hasta hacía un instante,
-es decir, esa defensa de comprar una fila más, un paso más, un compás más,
-significaba terminarla aquí.
+Zahir miraba hacia la tablilla. Desde aquí la tablilla no se veía, pero aun así miraba hacia allí.
 
-De ahora en adelante, más que aguantar,
-lo primero es a quién mandar y qué cerrar.
+—¿Cuántos quedan?
 
-Sion sintió cómo el pecho se le venía abajo.
+—Dos veces.
 
-Cierto.
-Ahora tiene que ser así.
-Pero precisamente por ser cierto, duele más.
+—¿Hay tiempo para comprar dos?
 
-Porque esas palabras quieren decir
-que también la parte de los que se quedan se vuelve aquí mucho más clara.
+Sion calculó.
 
-Nasim apretó los dientes.
+Veinte cada vez. El tiempo que tardaba el barco en ir y volver. Veinte minutos para que se ensanchara el agujero. De esos veinte minutos, ya habían pasado doce.
 
-—Entonces los que se quedan atrás.
+—No.
 
-Zahir lo cortó al instante.
+—Entonces es uno.
 
-—Hago que no quede nadie.
+—Pero los veintiocho…
 
-Palabras cortas y frías.
+—Sube a veinte y deja a ocho.
 
-Pero Sion entendió lo que querían decir.
-No era agarrar a cualquiera y sacrificarlo hasta el final.
-Al contrario.
-De ahora en adelante, para que no quede nadie atrás,
-significaba decidir más rápido a quién sacar y qué espacio cerrar.
+Al oír eso, a Sion se le cortó la respiración.
 
-Harún también oyó esas palabras.
+—¿Y los ocho?
 
-Todavía tenía una rodilla apoyada sobre los escombros, recobrando el aliento,
-y al oír lo que dijo Zahir soltó un aliento muy bajo que no llegaba a ser risa.
+—Los ocho se van al final, con los forasteros.
 
-—Por fin —dijo en voz baja.
+Al oír esa respuesta, Sion tardó medio tiempo en darse cuenta de lo que acababa de oír.
 
-En esa sola palabra
-había alivio y burla de sí mismo a la vez.
+Los forasteros.
 
-Si le hubieran dicho que comprara más, todavía habría tenido que hacerlo.
-Pero como Zahir había dicho que ya no compraba más,
-solo entonces este precio en sangre tenía un final a la vista.
+—¿Nosotros?
 
-Sern, mirando hacia Harún, habló corto.
+Zahir no respondió. No responder era la respuesta.
 
-—Entonces ahora retírese.
+Nasim vino hacia el pasillo. Preguntó con la voz rota.
 
-Esta vez Harún ya no lo negó.
-
-Asintió de manera apenas perceptible.
-
-Ater lo vio y volvió a leer la línea del frente de inmediato.
-
-—Mientras se retira, la derecha la cubro yo —dijo—. Sern, déjame solo el eje de refuerzo de atrás. Y no muerdas de frente mucho rato.
-
-Sern también respondió corto.
+—¿Que lo reduces a uno?
 
 —Sí.
 
-Hacia el paso de la izquierda, Kael lo oyó y gritó casi al mismo tiempo.
+—¿Y qué hacemos con los ocho?
 
-—¡Aquí también pliego una capa!
+—Haré que no se quede nadie.
 
-Zahir, sin volver la cabeza, dijo:
+Ante esa respuesta, Nasim se detuvo un momento.
 
-—Pliégala.
+Sion también creyó haber oído mal. Porque sonaba a agarrar a cualquiera y usarlo hasta el final.
 
-Ahora ya no hay ni vacilación.
-Más que salvar a la fuerza lo que va a caer,
-plegar rápido lo que hay que plegar
-para volver más nítido el camino que queda: la dirección había girado del todo.
+Pero no era eso.
 
-La fila delante del casco también cambió con ello.
+Quería decir que iba a decidir más rápido a quién había que sacar y qué había que cerrar, para que no quedara nadie abandonado.
 
-Nasim gritó como exprimiéndose la garganta.
+—Tú subes al final.
 
-—¡De ahora en adelante no esperes!
-—¡Que solo se pegue la tanda que sube!
-—¡Lo que no pueda embarcar, atrás, y la tanda que embarca, adelante!
+—¿Va a haber un último?
 
-Era cruel.
-Pero ahora esto no era crueldad,
-sino el último reparto para salvar a la gente.
+Zahir no respondió enseguida a esa pregunta.
 
-Seorin, sin decir palabra, partió la fila en dos.
-Los que iban a subir,
-los que iban a echarse atrás.
-Aquel movimiento fue tan rápido
-que parecía alguien que llevara preparándose para este instante desde el principio.
+Sion sabía qué significaba ese silencio. Para que despegara el último barco, esto tenía que seguir en pie hasta entonces. Y para que siguiera en pie, alguien tenía que estar de pie.
 
-Luhai corría entre los dos
-separando a los que de verdad no podían caminar
-de los que podían pero estaban atados por el miedo.
-Sion, mientras tanto, iba llenando los huecos,
-volviendo de nuevo hacia adelante los hombros de quienes no dejaban de mirar atrás.
+—Hay que hacer que lo haya.
+Lo dijo Zahir.
 
-Han Jiwoo, en la entrada del casco, captó todo aquel cambio.
+—¿Quién?
 
-—De verdad se va —dijo ella en voz baja.
+—Yo.
 
-Aka respondió muy quedo.
+Ante esa respuesta, Nasim dio por primera vez un paso hacia Zahir.
 
-—Ahora va.
+—¿Y tú qué vas a hacer?
 
-Esas palabras, esta vez, no sonaron a una sensación,
-sino casi a una declaración.
+—Colocar.
 
-Sion lo supo en el instante en que las oyó.
+—No te quedan manos que colocar.
 
-Lo que había cambiado no era una simple táctica.
+—Sí que quedan.
 
-Zahir acababa de hacer que Hazran cruzara del todo:
-de una ciudad que compra tiempo hasta el final
-a una ciudad que despide gente al final.
+Dicho eso, Zahir miró hacia el pasillo.
 
-Y a partir de aquel instante,
-también el final de esta batalla empezó por fin a verse.
+—Abandonen el pasillo.
+
+Sion creyó haber oído mal esas tres palabras.
+
+—¿Abandonarlo?
+
+—Sí.
+
+—Entonces esas cosas van a entrar sin más.
+
+—Que entren.
+
+Harún se levantó apoyándose en la pared. Esta vez necesitó cuatro intentos.
+
+—Eso funciona.
+
+—¿Qué cosa?
+Lo preguntó Sion.
+
+Antes de responder, Harún miró una vez el pasillo.
+
+—Si ahora esas cosas golpean aquí, es porque aquí está cerrado.
+
+—Sí.
+
+—Si no lo cerramos, esto ya no es nada.
+
+Solo entonces lo entendió Sion.
+
+Ater había dicho algo hacía un rato. Que esas cosas volvían a contar una y otra vez dónde les convenía más golpear. Y que, si les cambiaban el precio, volvían a contar.
+
+Si abandonaban el pasillo, el pasillo dejaba de tener precio.
+
+—Entonces, ¿dónde está el siguiente precio?
+
+Zahir respondió.
+
+—En el barco.
+
+Al oír esa respuesta, a Sion se le heló la espalda.
+
+—Entonces es peor.
+
+—Es peor.
+
+—Pero ¿por qué…?
+
+—Para llegar hasta el barco tardan más que en perforar el pasillo.
+
+Sion siguió ese cálculo.
+
+El pasillo era estrecho y estaba cerca. El barco estaba lejos, y por el camino había muros derrumbados, escombros y cosas negras caídas. Mientras esas cosas volvían a contar ese camino, se ganaba tiempo.
+
+Estaban usando el tiempo que contaba el otro lado.
+
+—¿Cuánto se gana?
+
+—Quién sabe.
+
+Lo dijo Zahir.
+
+—Pero sale más barato que comprarlo ahora.
+
+Harún dio un paso hacia el pasillo.
+
+Zahir habló de inmediato.
+
+—No.
+
+—¿Qué?
+
+—Todavía estás intentando comprar.
+
+Harún se detuvo.
+
+—Si me quedo aquí de pie…
+
+—Si te quedas de pie, esas cosas le vuelven a poner precio a esto.
+
+Zahir no alzó la voz. No la había alzado ni una sola vez.
+
+—Mientras tú estés ahí de pie, esto sigue siendo un sitio caro.
+
+Harún no pudo replicar nada a eso.
+
+Nasim se acercó al lado de Zahir.
+
+—Si hacemos lo que dices.
+
+—Sí.
+
+—¿Yo qué hago?
+
+—Ordena la fila.
+
+—Son ocho. Eso no es una fila.
+
+—Entonces ordena a los ocho.
+
+Ante esa respuesta, Nasim se quedó un momento sin decir nada.
+
+—Toda la vida poniendo precios y, al final, ordeno a ocho.
+
+—Los ocho son lo más caro.
+
+Nasim se rio por primera vez. La risa no hizo ruido. No lo hizo porque se había quedado sin voz.
+
+Al verlo, Sion sintió algo extraño.
+
+Hasta entonces, lo que había aguantado Harún había salvado a esta ciudad, y Zahir acababa de decir que ese aguante ahora fabricaba un blanco. Las dos cosas eran ciertas. Hasta ayer era cierta la primera, y desde hoy, la segunda.
+
+—Retírate.
+Lo dijo Zahir.
+
+Harún no se movió.
+
+—Harún.
+
+—…De acuerdo.
+
+Esas dos palabras tardaron mucho en salir.
+
+Después, Harún le dio la espalda al pasillo. Era la primera vez en noventa y tantas horas.
+
+Sion miró esa espalda.
+
+Caminaba despacio. Andaba apoyando la mano derecha en la pared, y el brazo izquierdo seguía, como desde hacía rato, simplemente pegado al cuerpo. Pero mientras se alejaba de espaldas al pasillo, no se volvió ni una vez.
+
+Eso fue lo que más miedo le dio a Sion. No volverse es lo que se hace cuando uno sabe que no va a regresar a un sitio.
+
+Sion todavía tenía el cuenco de agua en las manos. Corrió y se le plantó delante.
+
+—Ahora beba.
+
+Solo entonces Harún lo tomó. Bebió un trago y se lo devolvió.
+
+—Queda.
+
+—Después lo beben los ocho.
+
+Sion no pudo bajar el cuenco.
+
+Ese día, tres personas habían tenido ese cuenco en las manos, y las tres habían dejado su parte. Ninguna se había puesto de acuerdo con las otras.
+
+—La décima tanda.
+Lo dijo Zahir.
+—Ahora.
+
+Sion corrió.
+
+La fila ya estaba formada. De los veintiocho, veinte estaban cortados de tres en tres, y los otros ocho estaban aparte, a un lado. Nadie había decidido quiénes serían los ocho, pero ya estaban separados.
+
+Sion miró a esos ocho.
+
+Todos eran las manos que antes habían cavado en el montón. Tenían el dorso de las manos despellejado, y a dos les faltaban uñas.
+
+Antes eran once, y ahora eran ocho. Tres se habían metido en el agujero y habían salido dos, y de esos dos, uno no podía tenerse en pie y estaba sentado a un lado.
+
+Decir que nadie había decidido quiénes serían los ocho era falso. Ya estaba decidido. Esa gente no se había puesto en la fila ni una sola vez en todo el día.
+
+—Tres.
+
+Subieron tres.
+
+—Uno. Dos.
+
+La fila contó con él. Los ocho también contaron.
+
+Seis bloques de tres. Al final, dos.
+
+—Veinte.
+
+La rampa se plegó. El barco despegó.
+
+De veintiocho se fueron veinte. Ocho.
+
+Una vez.
+
+Sion trazó en la tablilla la décima marca.
+
+Las rayas cortas de al lado se habían quedado en cinco. Nadie le había dicho que siguiera contándolas. Como el brazo había salido, ya no hacía falta contar, pero Sion sentía que aquello estaba más cerca de haber dejado de contar que de haber terminado.
+
+Y en el extremo derecho de la tablilla había una línea que antes había trazado para no contar nada.
+
+Sion trazó en ella la primera raya.
+
+Ocho.
+
+Era el número de los que se quedaban. Hasta entonces, en la tablilla solo había números de los que salían.
+
+Y entonces sonó algo por el lado del pasillo.
+
+Era el ruido del agujero al ensancharse.
+
+Sion se volvió. No había nadie allí.
+
+Una de las cosas negras entró por el agujero. No se atascó. La segunda tampoco. Ni la tercera.
+
+Mientras las veía entrar, Sion vio una cosa más.
+
+Las tres de la primera fila no se desviaron.
+
+La primera vez que Harún usó una barricada, las tres de la primera fila se torcieron medio palmo cada una. Fue por el polvo. El polvo de hierro suspendido les engañó los ojos medio palmo.
+
+Ahora el polvo se había asentado del todo. Estaba en el suelo, no en el aire.
+
+Las tres entraron una al lado de otra y se plantaron una al lado de otra. No se torcieron ni medio palmo.
+
+Solo entonces supo Sion con exactitud qué era lo que esta ciudad había ganado cortándose el propio corazón.
+
+Medio palmo.
+
+Ese medio palmo había desaparecido ese día.
+
+Entraron en fila y se plantaron dentro del pasillo.
+
+Y allí se detuvieron.
+
+Nadie les cerraba el paso, y aun así no avanzaron.
+
+Mientras lo veía, Sion volvió a recordar lo que había oído antes. Estaban volviendo a contar.
+
+Cuánto tardarían en llegar hasta aquí, y cuál era ese precio.
+
+Sion empezó a contar ese tiempo en que ellas contaban.
 
 ---
 

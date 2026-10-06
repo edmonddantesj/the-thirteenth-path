@@ -1,275 +1,289 @@
 # Episode 116. What the Ship Revealed After It Vanished
 
-That they had vanished—
-the first to realize it were the people inside, not the ones outside.
+The inside knew it had vanished before the outside did.
 
-Precisely,
-the silence left after the movement ended was different.
+The hull was too quiet.
 
-It wasn't the residual vibration from when a ship normally shakes.
-It wasn't the creaking left behind after a forcibly stitched hull strains to hold.
+This ship had never been quiet. The engine was always straining somewhere, every patched place showed its patching, and every piece set back on creaked for having been set there. Sion had grown so used to the noise that he noticed its absence as a sound.
 
-It was the opposite.
+Han Jiwoo couldn't take her hand off the panel.
 
-Too quiet.
+"What's wrong?"
 
-Jiwoo couldn't take her hand off the panel for a long time.
+"Something passed under my hand."
 
-Because the response that had passed beneath her hand just now
-resembled nothing of any helm response she knew.
+"Earlier?"
 
-The ship hadn't been pushed out.
-Something like an invisible reference line had aligned first,
-and the entire hull had followed it after.
+"Yeah."
 
-She lifted her hand very slowly
-and murmured, low.
+She took her hand away and put it back. This time she didn't do it three times like before. She touched once and took it right off.
 
-"That wasn't… movement."
+"If it were a steering response, I'd know,"
+Han Jiwoo said.
+"This wasn't a response."
 
-Kael asked immediately.
+Kael was the one who asked.
 
-"Then what was it."
+"Then what was it?"
 
-Jiwoo couldn't answer.
+Han Jiwoo had no answer.
 
-In the language she knew,
-what had just happened couldn't be precisely translated.
+Sion knew what that silence was. What Han Jiwoo had said yesterday had come straight back. Without a name, you can't hand it over to whoever comes next. Right now Han Jiwoo couldn't hand over what she had just been through, not even with her own hands.
 
-Sion held the railing and steadied his breathing for a while.
+Sion steadied his breathing, still holding the railing.
 
-The sense of direction that had been only faint until just now
-hadn't vanished.
-It felt more like it had unfolded into an entirely different grain, long and stretched.
+Until a while ago, that spot had felt like it was searching. Bring a hand close and something was there, and where it was going, no one knew.
 
-Less like grasping
-and more like the sensation, after something has already connected once,
-of no longer scattering into blankness the way before.
+Now it was different.
 
-He knew his words would sound strange,
-but he opened his mouth anyway.
+"It feels like it reached something once and came back,"
+Sion said.
 
-"Until just now it felt like searching,"
-he said, low.
-"Right now… it feels like something already touched once and came back."
+Seorin looked at Sion at once.
 
-Seorin looked at Sion immediately.
+Ordinarily she was someone who would have let a remark like that slide. This time she didn't.
 
-On a normal day she might have let words like that slide.
-But just now,
-no one could dismiss another person's senses lightly.
+"Reached where?"
 
-Seorin slowly released her hand from the railing and spoke.
+"I don't know."
 
-"Then where are we right now."
+"Then where are we right now?"
 
-That question was short,
-and therefore heavier.
+No one could answer.
 
-No one could answer yet.
+Sern was reading the screen again. The more he read, the harder his face set.
 
-Sern was already re-reading the tracking array and surrounding surveillance data.
-But his expression only hardened further.
+"It is not registering."
 
-"Nothing's catching."
-He said, low.
+"What isn't?"
+Han Jiwoo asked.
 
-Jiwoo turned.
-
-"What."
-
-Sern answered without taking his eyes from the screen.
-
-"The outer interference that was readable until just now."
-He said.
-"Whether Empire or Alliance—if there were eyes following us, there should be at least one trace by now."
+"The outer interference we were reading until a while ago,"
+Sern said.
+"If eyes had been following us, a trace should have been left at least once by now."
 
 A short silence.
 
-"There's none."
+"But there is none."
 
-Luhai swallowed something like a low curse.
+Luhai swallowed a curse.
 
-The kind of words where you can't immediately tell
-if it's good news or worse news.
+It was the kind of news you couldn't call good or bad right away.
 
-Ater unfolded his arms and asked.
+"Have we shaken them?"
+Ater asked.
 
-"Did we lose them?"
-
-Sern checked the data again briefly and spoke.
-
-"No."
+"No,"
+Sern said.
 "If we had shaken them, there would be traces."
 
-That sentence was strangely more ominous.
+That was more ominous.
 
-Shaking them off would be understandable.
-Deceiving them would make sense too.
-But no explanation at all
-meant this ship had moved outside the known categories of pursuit and evasion.
+Shaking them off would make sense. Fooling them would make sense too. That it couldn't be explained meant this ship had moved somewhere outside pursuit and evasion altogether.
 
-Aka was still silent.
+Sion looked at that spot.
 
-She had been looking at the condensed spot inside the panel for a long time.
-But strangely,
-that spot had grown quieter than before.
+It had gone quieter than a moment ago. Not gone, but more as if it had finished what it had to do and settled once.
 
-Not vanished.
-More like it had settled once after finishing its role.
+Aka was standing in front of it.
 
-Aka said, very low.
+Exactly where she had been when the ship leaned and she alone hadn't.
+
+Aka opened her mouth. Almost no voice came out.
 
 "It caught hold."
 
-Sion looked at her.
+Sion looked at Aka.
 
-Aka continued without turning her gaze.
+Without moving her eyes, Aka went on.
 
-"We did not find the path."
-After a brief pause,
-she said.
+"It isn't that we found the way."
+
+After a short pause, she said,
+
 "The ship caught hold first."
 
-At those words,
-a cool sensation descended slowly down Jiwoo's spine.
+Something cold slid slowly down Han Jiwoo's spine.
 
 The ship caught hold first.
 
-That was a sentence that overturned the entire way they'd been treating this ship.
+Those words overturned the whole way they had treated this ship until now.
 
-Until now it had always been the opposite.
-People held.
-People bonded.
-People forced it alive and dragged it here—that's what everyone believed.
+Until now it had been the other way around. They had believed that people held it together, people patched it, people forced it to live and dragged it this far. Every callus on Han Jiwoo's hands was the price of that belief.
 
-But what just happened
-looked as though somewhere inside this old hull,
-a layer that reads paths before people
-had briefly awakened.
+But what had happened just now was closer to something somewhere inside this hull, something that read the way before people did, waking for a moment.
 
-Seorin asked, quiet.
+Seorin asked quietly.
 
-"Then what was this ship, exactly."
+"Then what on earth was this ship?"
 
-Again no one answered easily.
+Again, no one could easily answer.
 
-Luhai looked down at the floor once
-and said, very low.
+Luhai looked down at the floor once and said, very low,
 
-"Not a Hazran patchwork job, I guess."
+"Guess it wasn't a Hazran patchwork ship."
 
-That single line didn't sound like a joke.
-It was closer to the minimum sentence
-everyone here could barely agree on
-because no one dared attach a larger name.
+It didn't sound like a joke.
 
-The shabby exterior.
-The traces of stitching.
-The broken frame.
+It was the smallest sentence the people here could barely agree on, because none of them could put a bigger name to it.
 
-None of that was a lie.
-But it wasn't the whole truth either.
+Hearing that, Sion looked toward the floor.
 
-Beneath it all,
-a far older order that no one yet knew was hidden.
-And just now,
-that order had revealed its own kind of movement for the first time.
+The eight Hazran people were against the wall. They had leaned when the ship leaned, and even after the quiet came they hadn't said a word.
+
+One of them slowly stood and walked up to the empty floor in front of that panel.
+
+There the person stopped. No farther in.
+
+Then they bowed their head once.
+
+Sion saw the movement.
+
+It was a greeting. Who it was for, Sion didn't know either. The ship, or what was left inside it, or Hazran.
+
+The person soon went back and sat down in the same place. No one asked what that had been.
+
+Once again Sion held back what he wanted to ask.
+
+These people knew more about this ship than his side did. But they had no intention of bringing it out now, and it wasn't the moment to press them for it.
+
+Sion went over to Aka.
+
+"Yesterday you said that if you name it, that's the end of it."
+
+Aka kept her eyes on that spot.
+
+"Didn't you just name it?"
+
+Aka shook her head.
+
+"That's not a name."
+
+"Then what is it?"
+
+"It's what it did."
+
+Sion didn't catch the difference right away. After a little while he did.
+
+Aka hadn't said what that thing was. She had said only what it had done. A name goes on a thing; what she had just said was something the thing had done.
+
+So they were words that didn't close it yet.
+
+Only then did Sion see that it was the same way Han Jiwoo had left the empty line on her list yesterday. Leaving it blank, writing not yet, saying only what it did. All three were ways of not ending it.
+
+The shabby outer skin, the seams where it had been pieced together, the broken frame.
+
+None of that was a lie. But it wasn't all of it either.
+
+Beneath it lay an older order no one knew yet, and just now that order had moved, for the first time, in its own way.
 
 ---
 
-Inside the Empire tracking vessel, the same sentences repeated for a while.
+On the Empire pursuit ship, the same sentences went back and forth for a while.
 
-"Reconfirm last trajectory."
-"Negative."
+"Recheck the last trajectory."
+
+"Nothing."
+
 "Residual signal."
-"Negative."
+
+"Nothing."
 
 The commander said nothing for a long time.
 
-The last trace on the screen
-was severed without the continuation that should have been there.
+The last trace on the screen was cut off, with nothing after it.
 
-No precursor for a jump.
-No residual noise for a cloak.
-The break was too clean for a loss.
+As a jump, there had been no warning;
+as concealment, there was none of the noise that should have remained;
+as a loss, the way it broke off was too clean.
 
-He spoke, very slowly.
+He spoke very slowly.
 
-"Who classified that hull as a Hazran patchwork vessel."
+"Who classified that hull as a Hazran patchwork ship?"
 
-No one could speak up right away.
+No one opened their mouth right away.
 
-It had looked like one from the start.
-Decrepit.
-No records.
-Looked like a hastily built evacuation ship.
+That was how it had looked from the start. Shabby, no records, like a refugee ship thrown together.
 
-So they had attached tracking,
-but kept the assessment low.
+So they had put a pursuit on it but rated it low.
 
-The cost of that was staring them in the face now.
+The price of that was in front of them now.
 
-The commander spoke low.
-
-"Revise the assessment."
+"Change the assessment,"
+the commander said.
 "From now on, that is an unidentified hull."
 
----
+The records officer corrected the entry.
 
-On the Alliance surveillance side, the mood was similar.
+It was the same record where, days ago, the same hand had written *Unknown* in place of a head count. This time the same word went in on the ship's side too.
 
-Kanus Han listened to the full report and still didn't close the folder for a while.
+At the same hour, it was much the same on the Alliance surveillance net.
 
-"It is not that we couldn't follow,"
+Kanus Han heard the report to the end and still didn't close the papers for a while.
+
+"It's not that we failed to follow,"
 she said, low.
-"It is more accurate to say we did not know what we were looking at in the first place."
+"It'd be truer to say we never knew what we were looking at in the first place."
 
-The conference room went quiet.
+The meeting room went quiet.
 
-Kanus continued without shifting her gaze toward the window.
+"It must have looked like a shabby ship,"
+Kanus went on.
+"So everyone relaxed, I'm sure."
 
-"It looked like a shabby ship."
-"So everyone felt safe."
+She tapped the table very faintly with her fingertips.
 
-She tapped the table very faintly with her fingertip.
+"But the moment it found its direction, it slipped out of our sight first."
 
-"But the moment it found its direction,
-it slipped out of our sight first."
+It wasn't a report of a mistake. It was closer to notice of a revised judgment.
 
-That wasn't a mistake report.
-It was closer to a judgment revision notice.
+"From now on, don't classify by the shape you see."
 
-"From now on,"
-Kanus said,
-"do not classify by what it looks like."
+Then Kanus picked up again the page she had pushed aside days before.
+
+The page listing the dead and the lost. The page she had called a finished number.
+
+This time she didn't close it. She read it to the end.
 
 ---
 
-The people inside the ship
-didn't yet know that they had just shaken the assessments of both the Empire and the Alliance simultaneously.
+The people in the ship didn't know they had just shaken the judgment of the Empire and the Alliance both at once.
 
-But they knew at least one thing.
+But they knew one thing.
 
-This ship
-no longer looked like it was merely an evacuation vessel barely stitched together to survive Hazran.
+This ship no longer looked like nothing more than a refugee ship Hazran had barely pieced together.
 
-Sion closed his eyes, then opened them again.
+Sion brought his fingernail out, then put it away again.
 
-The sense of direction hadn't fully vanished.
-Instead, from far away, very thinly,
-it remained like a grain that could be caught hold of again next time.
+He had been about to scratch one more line, then stopped. What had just happened wasn't something you could measure, and if he forced a line, it felt as though even the two before it would blur in meaning.
 
-The planet of the machines was still far.
-The fact of blankness remained unchanged.
+Instead he touched the two lines already there, once, with his fingertip.
 
-But now,
-one fact had been born inside that blankness—that the ship might react first.
+Half a span.
 
-And with that single fact alone,
-the journey carrying this group
-had already begun
-in a way no one had imagined.
+That was everything this ship had right now.
+
+The planet of machines was still far off. It was as bleak as ever.
+
+But inside that bleakness, one thing had appeared.
+
+This ship could react first.
+
+Sion closed his eyes and opened them.
+
+The direction hadn't vanished completely. Far off and very thin, enough of it remained to take hold of again next time.
+
+Sion put his back to the wall.
+
+All sixteen of them were still in here. Outside could not be seen, behind them was quiet, ahead was far.
+
+But one thing was different from before.
+
+Until now this ship had been something that went only when people pushed it. Not anymore.
+
+Hazran had closed.
+
+And what Hazran had sent off as it closed was now, inside this ship, moving of its own accord for the first time.
 
 ---
 

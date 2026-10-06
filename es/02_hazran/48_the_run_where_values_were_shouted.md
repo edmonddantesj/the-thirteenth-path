@@ -1,111 +1,116 @@
 # Capítulo 48 — La carrera donde se gritaban los valores
 
-Después de que Luhai recibiera su respuesta a medias, el aire del patio, lejos de apagarse, se avivó todavía más.
+Después de que Luhai recibiera su respuesta a medias, el aire del patio, lejos de calmarse, se avivó todavía más.
 
-Más que acertar de pleno,
-es acertar a medias
-lo que mantiene la partida hirviendo más tiempo.
+Más que acertar de lleno, acertar a medias es lo que mantiene la partida hirviendo por más tiempo.
 
-Sion lo sintió de inmediato. El murmullo que hasta hacía un instante seguía contenido se extendió esta vez de forma más descarada. La gente se burlaba del medio éxito de Luhai mientras calculaba ya hasta dónde podría crecer la siguiente partida. Si hasta la imitación llevaba un precio, y si bastaba con que el fracaso no fuera total para pasar a una partida mayor, entonces aquello no era un simple juego de selección. Era una ronda de calentamiento idónea para empujar de golpe más arriba todas las miradas, el dinero, los rumores y las expectativas que se habían acumulado en el patio.
+Sion lo sintió enseguida. El murmullo que hasta hacía un momento estaba contenido se extendió esta vez de forma más descarada. La gente se burlaba del medio éxito de Luhai y, al mismo tiempo, calculaba hasta dónde podía crecer ahora la siguiente partida. Si hasta una imitación tenía precio, y si bastaba con no fracasar del todo para pasar a una partida mayor, aquello no era un simple juego de selección. Era una ronda de calentamiento perfecta para empujar más arriba, de una sola vez, las miradas y el dinero, los rumores y las expectativas que se habían reunido hasta entonces en el patio.
 
-El conductor del centro no dejó a Luhai de pie mucho tiempo. Pronunció apenas que la mitad había sido correcta, que hasta la imitación tenía su valor, y enseguida lo apartó a un lado, y las tres peanas de tela negra fueron retiradas al punto por manos silenciosas. En este suelo no se demoraban con la respuesta. Sabían mejor cómo subir la siguiente apuesta antes de que el ritmo cayera.
+El presentador del centro no dejó a Luhai de pie mucho tiempo. Dejó dicho solo que había acertado la mitad, que hasta una imitación tenía precio, y enseguida lo apartó a un lado; unas manos silenciosas retiraron también al momento las tres peanas de tela negra. En ese terreno nadie se aferraba mucho tiempo a una respuesta. Sabían mejor cómo subir la siguiente apuesta antes de que muriera el ritmo.
 
-Luhai bajó murmurando, con la cara crispada.
+Luhai bajó con la cara crispada y murmuró.
 
-—El tipo de cosa que más rabia da.
+—La clase de cosa que más rabia da.
 
-Esta vez fue Seorin quien respondió en voz baja.
+Esta vez fue Seorin la que respondió en voz baja.
 
-—Porque no estabas del todo equivocado.
+—Porque no te equivocaste del todo.
 
-Luhai torció los labios. No encontró nada que replicar. Si el fracaso hubiera sido total, habría soltado una maldición y se habría terminado ahí, pero ahora lo que le quedaba más clavado era el hecho de que de veras había percibido algo cierto.
+Luhai torció los labios. No pudo replicar. Si hubiera sido un fracaso total, habría soltado una maldición y ahí se acababa; ahora, en cambio, lo que más le quedaba era que, al fin y al cabo, sí había olido bien.
 
-Fue entonces cuando, desde el asiento más reculado, en lo más hondo, Zahir se levantó muy despacio.
+En ese momento, desde el sitio más hondo del interior, Zahir se levantó muy despacio.
 
 El aire del patio se hundió de golpe.
 
-Hasta ese momento, el que hacía girar la partida era el conductor del centro, el que traducía las reglas con una sonrisa era Nasim, y el que ponía las manos en orden era Harún. Pero en el instante en que Zahir se movió en persona, Sion supo que lo que empezaba ahora era de un nivel por completo distinto a lo de antes. Este hombre no era de los que se limitan a poner un comentario sobre el resultado; era de los que vuelcan la partida misma a una escala mayor.
+Hasta entonces, el que hacía girar la partida era el presentador del centro; el que traducía las reglas con una sonrisa, Nasim; el que ponía en orden las manos, Harún. Pero en el instante en que Zahir se movió en persona, Sion supo que lo que empezaba ahora era una etapa del todo distinta. Aquel hombre no era de los que se limitan a añadir unas palabras al resultado, sino de los que dan la vuelta a la partida misma, a lo grande.
 
-Zahir no bajó hasta el centro. En su lugar, se detuvo al borde de la alta pasarela metálica del interior y, desde allí, contempló el patio desde lo alto.
+Zahir no bajó hasta el centro. Se quedó, en cambio, en el extremo de una alta pasarela metálica del interior y miró el patio desde arriba.
 
-—Los ojos ya los hemos visto —dijo en voz baja—. Ahora veamos las manos.
+—Los ojos ya los vimos todos.
+Lo dijo en voz baja.
+—Ahora veamos las manos.
 
-Aquella voz pequeña llegó con una nitidez extraña hasta el último confín.
+Aquella voz pequeña llegó con una nitidez extraña hasta muy lejos.
 
-El murmullo de alrededor murió por sí solo.
+El murmullo de alrededor se apagó solo.
 
-Zahir movió la mirada despacio. Sion, Seorin, Ater, Kael, Luhai, Aka al lado de Nahira. Y por último, sus ojos se demoraron largamente en un pasaje oscuro más allá del patio.
+Zahir movió la mirada despacio. Sion, Seorin, Ater, Kael, Luhai, Aka junto a Nahira. Y al final la mirada se le quedó largo rato en un pasaje oscuro, fuera del patio.
 
-Sion giró la cabeza siguiendo aquella dirección.
+Sion volvió la cabeza siguiendo esa dirección.
 
-Por la rendija de los toldos negros, dos siluetas familiares fueron empujadas hacia dentro.
+Por una rendija entre las lonas negras, dos siluetas conocidas fueron empujadas hacia dentro.
 
 Era Han Jiwoo.
 
 Y era Sern.
 
-El aliento de Sion se cortó antes que nada.
+A Sion se le cortó la respiración antes que nada.
 
-Han Jiwoo estaba viva. Aunque no del todo ilesa, no parecía tener problema para caminar. Tenía la cara curtida de polvo y de calor, y la expresión de alguien arrastrado a la fuerza, con el fastidio aplastado en el fondo de los rasgos; pero sus ojos aún no estaban muertos. Con Sern pasaba lo mismo. Se le veía pálido, pero no descompuesto, y sus ojos eran más bien los de quien, apenas entrado, leía primero la estructura del lugar. Ninguno de los dos estaba atado. En cambio, como gente cuyos límites de movimiento ya habían sido fijados, avanzaban hacia dentro flanqueados por manos a uno y otro lado.
+Han Jiwoo estaba viva. No estaba del todo ilesa, pero no parecía tener problemas para caminar. Tenía la cara curtida de polvo y calor, y la expresión de alguien arrastrado a la fuerza, con el fastidio aplastado a duras penas, pero sus ojos aún no estaban muertos. Con Sern pasaba lo mismo. Se le veía pálido, pero no descompuesto; al contrario, eran los ojos de alguien que, nada más entrar, leía antes que nada la estructura del lugar. Ninguno de los dos venía atado. Pero, como gente a la que ya le habían fijado hasta dónde podía moverse, avanzaban hacia dentro con una mano pegada a cada lado.
 
-En ese instante, Sion comprendió una vez más, y más hondo aún, qué clase de hombre era Zahir.
+En ese instante, Sion volvió a entender, más a fondo, qué clase de hombre era Zahir.
 
-Este hombre no había ignorado a Han Jiwoo y a Sern hasta ahora.
+No era que aquel hombre no hubiera sabido hasta ahora de Han Jiwoo y de Sern.
 Ya lo sabía,
-los había retenido justo lo necesario para retenerlos,
-y no había revelado su existencia hasta el momento en que cobraría el mayor valor.
+los había retenido justo lo necesario
+y no los había mostrado hasta el momento en que alcanzaran el precio más alto.
 
-Seorin exhaló un aliento tan bajo que sonó a maldición.
+Seorin soltó el aliento muy bajo, como una maldición.
 
-—Una locura.
+—Qué locura.
 
-Por primera vez, la mirada de Ater vaciló de forma del todo visible.
+Por primera vez, también la mirada de Ater vaciló de forma muy clara.
 
-Kael, que estaba en otra línea, giró el cuerpo al punto, y Luhai, con la boca entreabierta, se quedó mirando a Sern. Aka no se movió, pero Sion no dejó pasar que su mirada se detuvo un instante no en Han Jiwoo, sino del lado de Sern. Una mano que calcula. Distinta de una mano que lee, pero una mano que lee la partida por su estructura.
+Kael, aunque estaba en otra línea, giró el cuerpo al instante, y Luhai miró a Sern con la boca un poco abierta. Aka no se movió, pero Sion no pasó por alto que su mirada se detenía un momento no en Han Jiwoo, sino del lado de Sern. Una mano que calcula. Distinta de una mano que lee, pero una mano que lee la partida como estructura.
 
 Nasim sonrió muy fino.
 
-—Ahora sí el equipo está completo —murmuró.
+—Por fin cuadran los equipos.
+Lo murmuró.
 
-Zahir tomó la palabra.
+Zahir habló.
 
 —Querían salvar la nave.
-No se dirigía al grupo de Sion, sino a todo el patio.
-—Necesitaban eterita, y necesitaban manos que confirmaran el nombre.
+No le hablaba al grupo de Sion, sino a todo el patio.
+—Les hacía falta eterita, y también una mano que confirmara el nombre.
 
-Echó un brevísimo vistazo del lado de Han Jiwoo y de Sern.
+Miró un instante hacia Han Jiwoo y Sern.
 
-—Entonces hacen falta dos manos más.
+—Entonces, para que cuadre, hacen falta dos manos más.
 
-Era el instante en que Zahir volvía a emparejar a los cuatro forasteros llegados de fuera de Hazran, ajustándolos de nuevo a las reglas de su propia partida.
+Era el momento en que Zahir volvía a emparejar, según las reglas de su propia partida, a los cuatro forasteros que habían rodado hasta allí desde fuera de Hazran.
 
-Han Jiwoo, al ver a Sion, entrecerró los ojos muy brevemente.
+Han Jiwoo, nada más ver a Sion, entrecerró los ojos muy brevemente.
 
-¿Estás vivo? ¿No estás herido? ¿Qué circo es este?
-Todo eso cabía en aquella única mirada breve.
+¿Estás vivo? ¿No estás herido? ¿Qué desastre es este?
+Todo cabía en esa sola mirada breve.
 
-Sion, en lugar de responder, movió la barbilla en un gesto ínfimo.
+Sion, en lugar de contestar, movió la barbilla de forma mínima.
 
 Vivo.
 Por ahora.
 
-Sern barrió de una ojeada el lado de Kael y luego la estructura del patio central, y dijo muy bajo.
+Sern recorrió de una pasada a Kael y, de otra, la estructura del patio central, y habló muy bajo.
 
-—Se abrió más grande de lo que pensaba.
+—Se abrió más de lo que pensaba.
 
 Luhai soltó una risa burlona casi por reflejo.
 
-—Te las das de tranquilo cuando a ti también te arrastraron aquí.
+—A ti también te trajeron a rastras, y bien que finges calma.
 
-Sern apenas cambió de expresión ante esas palabras.
+Sern apenas cambió de expresión ante eso.
 
-—Para alguien arrastrado, me revelaron bastante tarde —dijo—. Entonces hay una razón.
+—Para alguien traído a rastras, me han mostrado tarde.
+Lo dijo.
+—Entonces hay una razón.
 
-Zahir enlazó la frase siguiente sin transición.
+Zahir enlazó sin más la frase siguiente.
 
-—La prueba de esta noche no terminará en el patio —dijo—. Se hará en los caminos que se extienden hacia fuera.
+—La prueba de esta noche no termina en el patio.
+Lo dijo.
+—Se decide en los caminos que salen hacia fuera.
 
-En el mismo instante, por todo el contorno del patio, a lo largo de los muros del casco exterior, resonaron uno tras otro los chasquidos de cerrojos metálicos al soltarse.
+Al mismo tiempo, por todas partes en el muro de casco exterior que rodeaba el patio circular, sonó una y otra vez el ruido de cerrojos metálicos al soltarse.
 
 Clac.
 Clac.
@@ -113,191 +118,208 @@ Clac.
 
 Todas las miradas se volvieron hacia fuera.
 
-Una parte de los muros que ceñían el patio se abrió, revelando las zonas periféricas que se ocultaban detrás. La pista de deslizamiento adosada más allá de la zona de los toldos rojos, la orilla de la llanura donde el viento de arena pasaba en finas capas, las alturas donde se sucedían armazones de casco a medio derrumbar, el sector donde, lejos, bajo la capa de calor, el suelo vitrificado relucía oscuro. Toda la periferia de Hazran se desplegaba como un solo campo de carrera.
+Parte del muro que envolvía el patio se abrió y dejó a la vista las zonas exteriores que se ocultaban detrás. La pista de deslizamiento pegada al exterior de la zona de lonas rojas, el borde de la llanura por donde el viento de arena pasaba en capas finas, las alturas donde se sucedían armazones de casco medio derrumbados, hasta el sector donde, a lo lejos, bajo la capa térmica, el suelo vitrificado relucía oscuro. Toda la periferia de Hazran se enlazaba como un solo estadio.
 
-Sion lo comprendió en el instante en que lo vio.
+Sion lo comprendió en cuanto lo vio.
 
-Esto no era una simple partida.
-Era la prueba insignia que Hazran venía mostrando desde siempre a su gente.
+Esto no era una partida cualquiera.
+Era la prueba estrella que Hazran llevaba mostrando desde siempre a la gente.
 
-El conductor del centro se adelantó.
+El presentador del centro dio un paso al frente.
 
-—La carrera de la brasa —gritó.
+—La carrera de la brasa.
+Lo gritó.
 —Ese es el nombre de la prueba de esta noche.
 
-Esta vez la multitud hirvió de veras.
+Esta vez la multitud hirvió de verdad.
 
-Hasta ahora se contentaba con tasar los valores con la mirada; ahora los cuerpos se inclinaron hacia delante por sí solos.
+Hasta entonces solo tasaban precios con los ojos; ahora era el cuerpo el que se inclinaba primero hacia delante.
 
-Aquella reacción decía más que cualquier explicación. Era ese el verdadero juego que la gente de Hazran esperaba desde el principio.
+Aquella reacción era más clara que cualquier explicación. Ese era, desde siempre, el plato fuerte que la gente de Hazran esperaba.
 
-Cuando el conductor del centro tendió la mano, los esquifes del desierto y los aparatos de deslizamiento que se ocultaban bajo la sombra más allá de los toldos rojos fueron apareciendo uno a uno.
+Cuando el presentador del centro extendió la mano, los esquifes del desierto y los aparatos de deslizamiento escondidos a la sombra, fuera de las lonas rojas, fueron apareciendo uno a uno.
 
-Placas de sustentación largas, bajas y afiladas, cascos que hendían la arena a poca profundidad, cárteres de motor remendados, carenados parcheados con jirones de tela y abrazaderas metálicas. Algunos casi parecían chatarra, otros habían sido afinados hasta la aerodinámica, otros eran tan cortantes que parecían hechos abiertamente para matar. Pero tenían un punto en común.
+Placas de sustentación bajas y alargadas, cascos que cortaban la arena a poca profundidad, carcasas de motor arrancadas y vueltas a arreglar, carenados resucitados a base de jirones de tela y abrazaderas de metal. Algunos parecían casi chatarra, otros estaban pulidos y afilados, otros eran tan cortantes que parecían hechos a propósito para matar gente. Pero tenían una cosa en común.
 
-Todos eran aparatos que deberían haber muerto al menos una vez,
-y a los que se había forzado a revivir y a volver a moverse.
+Eran todos aparatos que deberían haber muerto al menos una vez y a los que habían obligado a revivir y a moverse de nuevo.
 
-Por primera vez, la mirada de Han Jiwoo cambió de manera franca.
+La mirada de Han Jiwoo cambió por primera vez de forma clara.
 
-Por encima del fastidio y la cautela, subió primero el instinto del piloto que mira un aparato. No era la mirada de quien se pregunta si es bueno o malo, sino la de quien lee antes qué está muerto y qué se puede resucitar.
+Por encima del fastidio y la cautela subió primero el instinto de piloto que mira un aparato. Más que preguntarse si era bueno o malo, era una mirada que leía primero dónde estaba muerto y qué se podía salvar.
 
-El conductor gritó.
+El presentador gritó.
 
-—Doce equipos montan en los esquifes del desierto —dijo—. Todos van a por la misma brasa. Pero la línea por la que cada uno sobrevive es distinta.
+—Doce equipos montan en esquifes del desierto.
+Lo dijo.
+—Van a por la misma brasa. Pero la línea que sobrevive hasta el final es distinta para cada uno.
 
-Sobre la alta placa metálica, se izaron banderines uno tras otro.
+Sobre la alta placa de metal se izaron banderas, una tras otra.
 
-Nombres de equipos locales familiares brotaron de los labios de la multitud.
-El equipo regular de Ahmardan.
+De la boca de la multitud saltaron nombres conocidos de equipos locales.
+El equipo oficial de Ahmardan.
 El equipo del desguace independiente.
 El equipo de los contrabandistas.
 El equipo campeón del año pasado.
 El equipo de los temerarios de paso.
 
-Vítores y abucheos se mezclaron de un solo impulso.
+Vítores y abucheos se mezclaron a la vez.
 
-Esto no era una partida montada de improviso. Era una carrera prevista desde hacía tiempo, y Zahir había insertado en ella los dos equipos de forasteros como las cartas más caras del mazo.
+Aquello no era una partida armada sobre la marcha. Era una carrera que iba a celebrarse de todos modos, y Zahir había metido en ella a los dos equipos de forasteros como las cartas más caras.
 
-El conductor señaló tres direcciones.
+El presentador señaló tres direcciones.
 
-—Tres sectores —dijo—. La pista roja. La zona de restos de cascos. La zona de brasas bajo la capa de calor.
+—Tres sectores.
+Lo dijo.
+—La pista roja. La zona de restos de naves muertas. La zona de brasas de la capa térmica.
 
-Sion sintió que el terreno de carrera se transformaba ante sus ojos a medida que caía cada nombre.
+Sion sintió que, cada vez que caía uno de esos nombres, el estadio que tenía delante se veía distinto.
 
-La pista roja era el tramo inicial que desembocaba en la llanura de arena en la periferia del mercado de chatarra. Si no se conseguía coger velocidad, uno quedaba descolgado al punto; si solo se confiaba en la velocidad, lo trituraba el aparato de al lado.
+La pista roja era el tramo inicial que salía hacia la llanura de arena de las afueras del mercado de chatarra. Si no tomabas velocidad, te quedabas atrás en el acto; si solo te fiabas de la velocidad, el aparato de al lado te trituraba.
 
-La zona de restos de cascos sería un tramo donde se superponían líneas que parecían caminos sin serlo. La velocidad importaba menos que el ojo capaz de leer el recorrido.
+La zona de restos de naves muertas sería un tramo donde se superponían líneas que parecían caminos sin serlo. Ahí, más que la velocidad, tenía que estar vivo el ojo que lee el recorrido.
 
-La zona de brasas bajo la capa de calor estaba aún más lejos. Un lugar donde, entre el suelo vitrificado y las distorsiones del calor, se mezclaban reacciones verdaderas y falsas.
+La zona de brasas de la capa térmica quedaba aún más lejos. Un lugar donde, entre el suelo vitrificado y la distorsión del calor, se mezclarían reacciones verdaderas y falsas.
 
-El conductor prosiguió.
+El presentador siguió hablando.
 
-—La carrera de la brasa no termina por llegar primero —dijo—. Hay que elegir la brasa colocada en el punto final y traerla de vuelta viva.
+—En la carrera de la brasa, llegar primero no es el final.
+Lo dijo.
+—Hay que escoger la brasa que está en el punto de llegada y volver con ella viva.
 
-—¿Y si es falsa? —gritó alguien entre la multitud.
+—¿Y si es falsa?
+Lo gritó alguien entre la multitud.
 
-—Se recorta el valor —respondió el conductor.
+—Baja el precio.
+Eso respondió el presentador.
 
 —¿Y si vuelves con las manos vacías?
 
-—Se recorta mucho más.
+—Baja mucho más.
 
-Esta vez Nasim se insinuó con suavidad.
+Esta vez Nasim intervino con suavidad.
 
-—En Hazran, una mano que solo corre rápido cuesta menos que una mano que sujeta bien hasta el final.
+—En Hazran, una mano que agarra bien hasta el final sale más cara que una que solo es rápida.
 
-El comentario era irritante, pero exacto.
+Aquello era irritante, pero exacto.
 
-Esto no era simplemente una partida para ver quién salía disparado primero.
+Esto no era una partida para ver simplemente quién salía disparado primero.
 La mano que maneja el aparato,
 la mano que lee el camino,
-la mano que, al final, distingue lo verdadero de lo falso,
-y la mano que lo trae todo de vuelta sin dejarlo apagarse: eso era lo que esta partida medía a la vez.
+la mano que al final separa lo verdadero,
+y la mano que vuelve sin dejar que se apague: una partida que miraba todo eso a la vez.
 
-Por instinto, Sion buscó a Aka.
+Sion buscó a Aka por instinto.
 
-Aka seguía al lado de Nahira. Pero no estaba del todo inexpresiva. A cada nombre de sector que caía, su mirada se movía de forma ínfima, y solo al anunciarse la zona de brasas bajo la capa de calor sus ojos se demoraron un instante de más.
+Aka seguía junto a Nahira. Pero no estaba del todo inexpresiva. Cada vez que se nombraba un sector, su mirada se movía de forma mínima, y solo cuando salió la zona de brasas de la capa térmica se le quedaron los ojos un momento más.
 
-Sern miró en la misma dirección casi en el mismo momento.
+Sern miró hacia allí casi al mismo tiempo.
 
-Sion no dejó pasar aquella breve convergencia.
+Sion no dejó pasar esa breve coincidencia.
 
-El verdadero examen estaba en el último sector.
+La prueba de verdad estaba en el último sector.
 Y esos dos ya lo sabían.
 
-El conductor gritó.
+El presentador gritó.
 
-—Las dos manos exteriores quedan inscritas aparte, como excepción.
+—Las dos manos de fuera van aparte, como excepción.
 
-Las miradas de la multitud convergieron de golpe hacia ese lado.
+Las miradas de la multitud se volcaron de golpe hacia ellos.
 
-—Primera.
-Tendió la mano.
+—Primero.
+Extendió la mano.
 —Han Jiwoo. Sion.
 
-A Sion el corazón se le cayó de un bloque.
+A Sion el corazón le dio un vuelco.
 
-Eran nombres que había anticipado y, aun así, oírlos así apareados hizo reaccionar a su cuerpo antes que nada. Era la sensación de haber encontrado por fin su lugar justo solo tras llegar hasta aquí. Han Jiwoo y él. No era un emparejamiento fortuito, sino la combinación que, desde el principio, debía haberse ensamblado así.
+Eran nombres que esperaba y, aun así, al oírlos atados de ese modo, el cuerpo reaccionó primero. Era la sensación de haber encontrado por fin su sitio, solo después de llegar hasta allí. Han Jiwoo y él. No era una asignación caída del cielo, sino una combinación que debía ir así desde el principio.
 
-Han Jiwoo exhaló un aliento breve.
+Han Jiwoo soltó el aire brevemente.
 
-—Por fin algo que tiene sentido —dijo en voz baja.
+—Por fin algo tiene sentido.
+Ella lo dijo en voz baja.
 
-Sion estuvo a punto de sonreír.
+Sion estuvo a punto de reír.
 En plena tensión, aquellas palabras le enderezaron la espalda de un modo extraño.
 
-El conductor gritó la segunda pareja.
+El presentador gritó el segundo.
 
 —Kael. Sern.
 
-Kael miró al punto del lado de Sern, y Sern ya miraba en su dirección.
+Kael miró al instante hacia Sern, y Sern ya estaba mirando hacia él.
 
-No tenían la familiaridad de quienes se han coordinado antes. Pero, por extraño que pareciera, tenían la cara de quienes comprenden de un golpe qué eje les aporta el otro. La mano que aguanta con el cuerpo, y la mano que lee por la estructura. En una partida como la de Hazran, era una combinación que podía parecer lenta pero que no moría.
+No tenían la soltura de quienes ya se han coordinado alguna vez. Pero, curiosamente, tenían la cara de quienes entienden de golpe qué eje necesita cada uno del otro. La mano que aguanta con el cuerpo y la mano que lee la estructura. En una partida como la de Hazran, era una combinación que podía parecer lenta, pero que no moría.
 
-Luhai, al verlo, chasqueó la lengua bajo.
+Luhai, al verlo, chasqueó la lengua por lo bajo.
 
-—Vaya, de veras que lo han atado bien.
+—Vaya, sí que lo armaron bien.
 
 Nasim sonrió.
 
-—Por eso es divertido.
+—Por eso tiene gracia.
 
-El conductor añadió en último lugar.
+El presentador añadió por último.
 
-—La señal es una sola —dijo—. La carga incandescente estalla, y en el momento en que su brasa toca la arena, todos parten.
+—La señal es una sola.
+Lo dijo.
+—Estalla la carga incandescente y, en el momento en que su brasa toque la arena, salen todos.
 
-En lo alto de un alto pilar más allá de los toldos rojos, una ojiva metálica roja colgaba ya. Como si llevara mucho tiempo esperando solo esta noche.
+Sobre un pilar alto, fuera de las lonas rojas, ya colgaba una ojiva de metal rojo. Como si llevara mucho tiempo esperando solo esta noche.
 
-Han Jiwoo dijo en voz baja.
+Han Jiwoo habló en voz baja.
 
-—Primero hay que ver el aparato.
+—Primero hay que ver los aparatos.
 
-Sion giró la cabeza.
+Sion volvió la cabeza.
 
-Han Jiwoo tenía ya la cara de quien elige al mismo tiempo el aparato menos muerto y el aparato más moribundo.
+Han Jiwoo tenía ya la cara de estar eligiendo a la vez el aparato menos muerto y el que más se estaba muriendo.
 
-—Yo miro primero lo que puedo salvar —dijo—. Tú empieza por memorizar el recorrido.
+—Yo miro primero el que pueda salvar.
+Ella lo dijo.
+—Tú apréndete el camino primero.
 
-Sion respondió al punto.
+Sion respondió enseguida.
 
-—Bien.
+—Está bien.
 
 Fue breve.
 Pero esas dos palabras bastaban.
 
-Zahir tomó la palabra una última vez.
+Zahir habló por última vez.
 
-—Corran —dijo en voz baja—. Y prueben por qué esa brasa debe estar en sus manos.
+—Corran.
+Lo dijo en voz baja.
+—Y demuestren por qué esa brasa tiene que estar en sus manos.
 
-Aquella frase no se dirigía solo a los dos equipos de forasteros.
+Aquella frase no iba solo para los dos equipos de forasteros.
 Pero Sion lo sintió con claridad.
-Era sobre ellos donde caía más pesada en ese momento.
+Sobre ellos era donde caía más pesada en ese momento.
 
-Los doce equipos se separaron para alcanzar la línea de salida más allá de los toldos rojos.
+Los doce equipos se repartieron hacia la línea de salida, fuera de las lonas rojas.
 
-Los equipos locales montaron en sus aparatos con mano habituada.
+Los equipos locales montaron en sus aparatos con manos acostumbradas.
 
-Han Jiwoo barrió rápido con la mirada los esquifes alineados y se detuvo no ante el más reluciente, sino ante el que moría de la forma más honesta. La placa de sustentación derecha se elevaba más tarde que la otra, y las vibraciones del motor eran irregulares, pero la respuesta misma no mentía. Tenía la cara de quien sabe que un aparato que muestra de entrada dónde está muerto le conviene más a la mano que uno que esconde su fuerza o disimula estar bien.
+Han Jiwoo recorrió rápido con la mirada los esquifes en fila y se detuvo no ante el más reluciente, sino ante el que se moría con más honestidad. La placa de sustentación derecha se levantaba más tarde que la otra y el temblor del motor era irregular, pero la respuesta en sí no mentía. Han Jiwoo tenía la cara de quien sabe que un aparato que muestra enseguida dónde está muerto se ajusta mejor a la mano que uno que esconde a la fuerza su potencia o finge estar bien.
 
-—Este aguanta al menos una vez —dijo muy bajo.
+—Este aguanta una vez.
+Ella lo dijo muy bajo.
 
-Sion, al oír esas palabras, volvió a mirar sin querer aquel casco viejo. Cualquiera lo habría tomado por chatarra y, sin embargo, en las manos de Han Jiwoo las líneas que podían salvarse y las que había que abandonar parecían ya todas leídas.
+Sion, al oírlo, volvió a mirar sin querer aquel casco viejo. Cualquiera lo habría tomado casi por chatarra, pero en las manos de Han Jiwoo parecían estar ya leídas las líneas que se podían salvar y las que había que abandonar.
 
-En el otro lado, Kael se plantó no ante un aparato de deslizamiento afilado, sino ante uno de armazón gruesa y chasis inferior sólido. En velocidad pura podía quedar descolgado, pero al atravesar la zona de restos era ese tipo de aparato el que no se desgarraba hasta el final. Sern, a su lado, revisó brevemente la carga del casco y el desvío del eje de dirección, y luego asintió no en favor del trayecto más corto, sino del que ofrecía mayor probabilidad de volver vivo.
+En el otro lado, Kael se plantó no ante un planeador afilado, sino ante un aparato de armazón grueso y bastidor inferior sólido. En pura velocidad podía quedarse atrás, pero al cruzar la zona de restos eran aparatos así los que no se desgarraban hasta el final. Sern, a su lado, repasó brevemente la carga del casco y la desviación del eje de dirección y luego asintió, no por el trayecto más corto, sino por el que tenía más probabilidades de volver con vida.
 
-—Lento, pero no mortal —dijo Kael.
+—Lento, pero no se va a morir.
+Lo dijo Kael.
 
-—Por ahora, eso es lo que cuesta más caro —respondió Sern.
+—Ahora, eso es lo que sale más caro.
+Eso respondió Sern.
 
-Todo el patio se inclinó siguiendo aquel movimiento.
+Todo el patio se inclinó siguiendo ese movimiento.
 
-Y en el momento en que vio alzarse, en lo alto del alto pilar, la mano que sostenía la carga incandescente,
-Sion lo sintió una vez más, con certeza.
+Y en el momento en que vio subir, sobre el pilar alto, la mano que sostenía la carga incandescente, Sion volvió a sentirlo con certeza.
 
-Hazran, en ese instante,
-no buscaba matarlos,
-sino ver qué clase de mano eran: la que aguantaría hasta el final.
+Hazran, ahora,
+no quería matarlos,
+sino ver qué clase de manos eran: qué iban a sujetar hasta el final.
 
 ---
 

@@ -1,92 +1,103 @@
 # Capítulo 19 — La baliza muerta
 
-La nave de Han Jiwoo se deslizó un largo rato por una oscuridad sin señal alguna.
+El barco de Han Jiwoo avanzó un buen rato, como deslizándose, por una oscuridad sin ninguna señal.
 
-El casco apenas tenía ventanillas, así que el exterior no se veía directamente; en cambio, había variaciones mínimas. El ritmo con que los motores empujaban, el intervalo de la fricción exterior rozando el casco, la breve vibración que subía por el suelo en cada conexión de ruta. Para alguien de los Myo que llevara mucho tiempo viajando en naves así, esas diferencias bastaban para hacerse una idea aproximada de dónde estaban.
+Como el casco casi no tenía ventanas, el exterior no se veía directamente, pero a cambio había cambios mínimos.
+El ritmo con que el motor hacía fuerza, el intervalo del roce exterior contra el casco, la breve vibración que llegaba a través del suelo cada vez que se enlazaba con una ruta.
 
-Sion era de esa clase de Myo.
-No sabía leer coordenadas exactas, pero su cuerpo sabía antes que nada si la nave montaba una ruta viva o pisaba una muerta.
+Sion tenía la espalda pegada a la pared. No estaba ni sentado ni recostado. Apoyaba en la pared un solo omóplato y dejaba despegado el resto.
 
-Por eso, cuando Han Jiwoo ladeó apenas el mando y bajó la velocidad, Sion levantó los ojos casi en el mismo instante.
+Lo había aprendido en el muelle. Las cajas de carga se cuentan antes con la espalda que con los ojos. Por cuál va la grúa al bajarlas te lo dice antes el suelo.
 
-—Ya llegamos.
+Por eso, cuando Han Jiwoo torció apenas el mando y redujo la velocidad, Sion, que no estaba mirando el cuadro de instrumentos, levantó los ojos casi al mismo tiempo.
 
-Han Jiwoo sonrió de medio lado.
+—Ya llegó.
 
-—Bien. Todavía te queda el instinto.
+Han Jiwoo le echó una ojeada y sonrió.
+
+—Todavía no se te ha muerto el instinto.
+
+—Tú lo supiste por los instrumentos.
+
+—Saberlo por los instrumentos es mi trabajo; saberlo con la espalda es tu sino.
+
+Ater, que oía la conversación, preguntó.
+
+—¿Qué es lo que has notado?
+
+—El barco ha cambiado de camino —respondió Han Jiwoo en su lugar—. A uno que no se usa en las rutas oficiales.
+
+—¿Eso aparece en los instrumentos?
+
+—Aparece. Unos tres segundos después.
+
+Ater miró hacia Sion. Sion ya volvía a tener el hombro contra la pared.
+
+—¿Sirve de algo saberlo tres segundos antes?
+
+—Casi nunca —dijo Han Jiwoo sin soltar el mando—. Pero también hay gente que muere por saberlo tres segundos tarde.
 
 Seorin se despegó de la pared y preguntó.
 
-—¿Qué cambió?
+—¿Qué ha cambiado?
 
 Sion no lo explicó enseguida.
-En cambio, apoyó la palma plana contra la pared interior del casco. Entre las vibraciones bajas y constantes, un traqueteo muy fino se mezclaba de forma periódica. No era el flujo liso de una ruta oficial, sino la sensación de forzar el avance sobre una huella de conexión apartada del estándar hacía ya mucho.
+En su lugar, apoyó una vez la palma en la pared interior del casco. Entre la vibración baja y regular se mezclaba, periódicamente, un traqueteo finísimo. No era el flujo liso de una ruta oficial, sino la sensación de montar a la fuerza sobre una huella de acceso apartada del estándar hacía mucho.
 
-—La ruta no es lisa.
-dijo.
-—No es una línea continua, es un trecho cortado que se vuelve a unir a la fuerza.
+—El camino no es liso.
+Lo dijo él.
+—No es una línea continua, sino algo que une a la fuerza los sitios donde está cortada.
 
-Ater oyó eso y recordó al instante la frase de Elia, de antes.
+Han Jiwoo superpuso sobre el cuadro de instrumentos una capa más: una vieja malla de coordenadas.
+No era la pantalla de rutas oficial, sino marcas auxiliares que ella misma había dibujado encima. Puntos de acceso muertos, huellas de transbordos cerrados, zonas de sombra de comunicaciones, ecos de energía. No aparecían en los mapas oficiales, pero era la clase de mapa que, en la práctica, se pasaban entre sí los que seguían vivos.
 
-*No solo cortaron la frase. Cortaron también el camino.*
+Sern lo miró y habló.
 
-Quizá este camino que pisaban ahora era otro de los que se habían cortado de ese modo y se mantenía a la fuerza, lo que quedaba de él.
+—De cada tres marcas, dos están muertas.
 
-Han Jiwoo superpuso sobre el tablero una capa más de una vieja malla de coordenadas.
-No la pantalla de ruta oficial, sino marcas auxiliares que ella misma había trazado encima. Puntos de conexión muertos, huellas de transbordos cerrados, zonas de sombra de comunicaciones, restos de energía. No aparecían en ningún mapa oficial, pero en la práctica era de esa clase de mapas que la gente viva se pasaba entre sí.
+—Puse que están muertas, no que han desaparecido.
+Han Jiwoo contestó.
+—Si hubieran desaparecido del todo, tampoco las usaría.
 
-Sern lo miró y preguntó.
+Sion se rio por lo bajo.
 
-—Dos de las tres marcas están muertas.
+—El diccionario de este lado sigue siendo raro.
 
-—Escribí *muertas*, no *desaparecidas*.
-respondió Han Jiwoo.
-—Si hubieran desaparecido del todo, tampoco las pondría.
+—Los diccionarios vivos son así.
 
-Sion rió por lo bajo.
-
-—Decididamente, el diccionario de este lado es raro.
-
-—Un diccionario vivo siempre es así.
-
-Fue un intercambio breve, pero a Ater le sonó como si esa frase explicara todo este mundo.
-El Imperio escribe *desaparecido* para lo que desapareció, y *cerrado* para lo que está prohibido. Pero en este lado se escribe *muerto* y todavía se usa, se dice *cerrado* y alguien igual entra y sale. Las palabras son distintas, y por eso también es distinto el modo de percibir el mundo.
-
-La nave volvió a aminorar.
+El barco volvió a reducir la velocidad.
 
 Esta vez lo sintieron todos.
-No llegaba a ser una parada, pero era la velocidad de algo que pronto habría que comprobar.
+No llegaba a detenerse, pero era la velocidad de cuando pronto hay que comprobar algo.
 
-Han Jiwoo dijo, corto.
+Han Jiwoo habló.
 
-—Hay un primer vestigio de baliza delante.
+—Delante hay un primer vestigio de baliza.
 
 Seorin frunció el entrecejo.
 
 —¿Lo ves?
 
 —Todavía no.
-dijo Han Jiwoo.
+Eso dijo Han Jiwoo.
 —Pero hay un punto donde algo se vuelve raro antes del momento en que debería verse.
 
 Sion asintió.
-Aquello no era una explicación, estaba más cerca de compartir una sensación. Entre quienes sabían, con eso bastaba.
+Aquello no era una explicación; se parecía más a compartir una sensación. Entre quienes sabían, con eso bastaba.
 
-Ater escuchó y, por extraño que fuera, se sintió algo incómodo.
-Todavía no entendía del todo aquel lenguaje. Pero tampoco era que no lo entendiera. Y era justo ese estado intermedio lo que más le raspaba. Para trazar una línea y decir *este no es mi mundo*, ya había seguido demasiado lejos.
+Ater, al oírlo, se sintió curiosamente algo incómodo.
+Él todavía no entendía del todo ese lenguaje. Pero tampoco era que no lo entendiera en absoluto. Y era justo ese estado intermedio lo que más lo irritaba. Para trazar una línea y decir que no era su mundo, ya lo había seguido demasiado lejos.
 
 Sern preguntó en voz baja.
 
 —Si es un vestigio de baliza, ¿significa que queda una estructura?
 
-Han Jiwoo lo pensó un momento y dijo.
+Han Jiwoo lo pensó un momento y habló.
 
 —Puede ser una estructura, puede ser una señal, pueden ser las dos a medias.
-—En sitios así, de todos modos, casi nada queda entero.
+En sitios así, de entrada, casi nada está entero.
 
-Sion rió.
-
-Sion soltó una risa seca. Era lo más exacto que había oído en todo el día.
+Sion soltó una risita.
 
 En ese instante, una luz de alerta a la izquierda del puesto de mando parpadeó muy brevemente.
 
@@ -94,13 +105,13 @@ La mirada de Han Jiwoo cambió de inmediato.
 
 —Todos, silencio.
 
-El aire dentro del compartimento se asentó de golpe.
-Sion borró la risa; Seorin ya había llevado la mano hacia la bodega de carga. Sern calculaba a la vez el ciclo de la luz de alerta y la desaceleración de la nave; Ater, sin una palabra, miraba los tenues restos sobre el tablero.
+El aire de la cabina se asentó de golpe.
+Sion borró la sonrisa, y Seorin ya había llevado la mano hacia el arcón de carga. Sern calculaba a la vez el ciclo de la luz de alerta y la desaceleración del barco, y Ater, sin decir nada, miraba las tenues imágenes residuales sobre el cuadro de instrumentos.
 
-Han Jiwoo golpeó dos veces un lado del panel y el dispositivo de escucha exterior del casco se entreabrió, muy fino.
-Por un instante irrumpió el ruido, y debajo de él se mezclaba algo regular, un patrón de interferencia. No era ruido natural. Era el sonido de una baliza artificial dejada hacía mucho, que aún temblaba sin haber muerto del todo.
+Han Jiwoo golpeó dos veces un lado del panel, y el dispositivo de escucha exterior del casco se abrió, muy poco.
+Por un instante entró una oleada de ruido, y debajo se mezclaba un sonido de interferencia regular. No era ruido natural, sino el sonido de una marca artificial dejada hacía mucho, que aún no había muerto y seguía temblando.
 
-Sion dijo muy bajo.
+Sion habló muy bajo.
 
 —Es esto.
 
@@ -108,68 +119,126 @@ Seorin preguntó.
 
 —¿Qué es?
 
-—El vestigio de baliza.
-murmuró Sion, con la cara de quien escucha el ruido.
-—Creí que se había cortado por completo, pero un lado todavía tiembla.
+—Un vestigio de baliza.
+Sion lo murmuró con cara de estar escuchando el ruido.
+—Creí que se había cortado del todo, pero un lado todavía tiembla.
 
-Sern entrecerró los ojos como si lo entendiera de inmediato.
+Sern entornó los ojos, como si lo hubiera entendido al instante.
 
-—Señal de guía.
-Las palabras de Sern derivaron enseguida en una lectura de la estructura.
-—No una línea de guía oficial; lo más probable es que sea el vestigio de un dispositivo de orden de acceso.
+—Una señal de guía.
+No una línea de guía oficial; lo más probable es que sea el vestigio de un dispositivo de orden de acceso.
 
-Han Jiwoo chasqueó los dedos, corto.
+Han Jiwoo chasqueó los dedos.
 
 —Exacto.
-dijo.
-—No la línea de guía oficial, sino la media baliza que quedó después del corte.
-—Pero que esto siga aquí significa que alguien no pudo borrarlo del todo, o…
+Eso dijo ella.
+—No es una línea de guía oficial, sino una mitad que quedó después del corte.
+Pero que esto siga aquí quiere decir que alguien no pudo borrarlo del todo, o…
 No terminó la frase.
 
-Ater la retomó, en voz baja, como continuándola.
+Ater habló en voz baja, como recogiéndola.
 
-—O que alguien todavía lo estaba usando.
-
-Breve silencio.
+—Alguien lo seguía usando.
 
 Han Jiwoo miró a Ater de verdad por primera vez.
-Esta vez no eran los ojos de quien observa a un pasajero desconocido. Estaban más cerca de los ojos de quien pone a prueba si el otro entiende lo que se dice.
+Eran unos ojos más parecidos a los de quien pone a prueba si el otro entiende lo que se dice.
 
 Han Jiwoo asintió una vez.
-—Ahora sí hablamos de lo mismo.
+—Ahora sí empezamos a hablar de lo mismo.
 
 Sion no reaccionó a eso.
-En cambio, se concentraba más hondo. Buscaba un compás regular dentro del ruido, leía la dirección que quedaba entre los ciclos cortados. Era algo distinto de leer un registro, pero al final lo que Sion siempre sabía hacer era justo esto. En lo que los demás descartaban como desecho o ruido, encontrar antes que nadie la veta que aún no había muerto.
 
-Seorin lo miró de reojo.
+Se inclinó hacia el dispositivo de escucha y cerró los ojos.
+
+El ruido seguía sonando igual. Al principio fue así. A los cuarenta segundos, algo se desprendió de él. Algo un poco más corto que lo demás, y un poco más regular.
+
+Lo agarró y empezó a contar.
+
+Uno. Dos. Tres. Cuatro. Pausa.
+
+Uno. Dos. Tres. Cuatro. Pausa.
+
+Uno. Dos. Tres. — Pausa.
+
+Sion abrió los ojos.
+
+—El tercero es corto.
+
+Sern reaccionó al instante.
+
+—¿Es corto con regularidad?
+
+—Sí. Dos veces son cuatro, y una vez, tres.
+
+—Eso no es una avería.
+
+—Ya lo sé.
+
+Han Jiwoo preguntó sin soltar el mando.
+
+—Si no es una avería, ¿qué?
+
+Sion volvió a cerrar los ojos. Contó una vez más. Igual.
+
+—Le falta uno.
+
+La cabina se quedó en silencio.
+
+—En origen eran cuatro. Solo al tercero le desapareció uno. Y como en el hueco no pusieron nada, ahora suena simplemente como tres.
+
+Ater habló muy bajo.
+
+—Si se quita uno, cambia el orden.
+
+—Sí.
+
+—Pero sigue sonando.
+
+—Sí. Eso es lo peor.
+
+Sion despegó la espalda de la pared.
+
+—A una baliza averiada la gente no la sigue. Pero esta suena bien. Suena bien y le falta uno.
+
+Seorin le echó una ojeada.
 
 —¿Se lee?
 
-Sion no respondió enseguida.
-Solo unos segundos después dijo muy bajo.
-
 —No del todo.
-Pero esto… la baliza no apunta al destino, es de la clase que te hace torcer justo antes del destino.
+Pero esta no es una baliza que apunte al destino, sino de las que te hacen torcer justo antes del destino.
 
 Sern preguntó.
 
-—¿Una trampa?
+—¿Es una trampa?
 
-—Eso aún no lo sé.
-dijo Sion.
-—Pero está claro que quien dejó este camino no lo dejó recto.
+—Eso todavía no lo sé.
+Eso dijo Sion.
+—Pero lo que es seguro es que quien dejó este camino no lo dejó en línea recta.
 
-Ater oyó eso y bajó despacio la mirada.
-Los que borraron el orden.
-Los que cortaron hasta el camino.
-Si era la huella que dejaba esa gente, lo más probable era que, antes que el destino mismo, hubieran torcido la manera misma de acercarse al destino. Eso se parecía al modo en que la Cámara de Reconocimiento imperial diseñaba sus dispositivos de sellado. Lo importante no era la puerta en sí, sino controlar el orden de quienes llegaban hasta ella. Y si aquí se leía mal, no moría solo un vestigio: podía cortarse toda la línea de reacción restante que llevaba hasta el siguiente umbral.
+Ater lo oyó y bajó despacio la mirada.
+
+—La Cámara de Reconocimiento también los hace así.
+
+Los tres lo miraron.
+
+—Un sello no cierra la puerta. Cambia el orden en que se llega hasta la puerta. Quien no conoce el orden, aunque llegue hasta la puerta, se va a otro sitio. Porque es la manera más barata de impedir el paso.
+
+—¿Barata? —dijo Seorin.
+
+—Una puerta se puede romper. El orden no.
+
+Han Jiwoo preguntó sin soltar el mando.
+
+—¿Entonces lo que tenemos delante es eso?
+
+—No lo sé —respondió Ater con franqueza—. Pero la manera en que está hecho se parece a la mano de mi lado.
 
 Han Jiwoo volvió a ajustar el mando.
 
-—Bien. Entonces no vamos de frente.
-—Seguimos el vestigio, pero la última aproximación entramos de costado.
+—Entonces no vamos de frente.
+Seguimos el vestigio, pero la última aproximación la hacemos de lado.
 
-Seorin asintió, corto.
+Seorin asintió.
 
 —Eso me gusta.
 
@@ -177,30 +246,33 @@ Seorin asintió, corto.
 
 —Si llegamos vivos, lo pienso.
 
-Sion estuvo a punto de reír con eso, pero se contuvo.
-Ahora, más que la risa, le ocupaba ese resto de la baliza muerta que temblaba fuera, contra el casco. No era una simple coordenada. Era el eco aún vivo de un camino que alguien había cortado a propósito.
+Sion estuvo a punto de reírse al oírlo, pero se contuvo.
+Ahora, más que la risa, le inquietaba el eco de esa baliza muerta que temblaba fuera del casco. Era el sonido reflejado, todavía no muerto, de un camino que alguien había cortado a propósito.
 
-Y ese eco los estaba llamando a alguna parte.
+Y ese sonido reflejado los estaba llamando ahora hacia alguna parte.
 
-La nave viró despacio.
-El casco que iba de frente se torció apenas, cambiando a un ángulo que leía la huella de la señal dejándola pasar de lado. Un cambio bastante pequeño como para que todos lo sintieran incluso dentro del compartimento sin ventanillas. Esa elección importaba, no por elegante. Si una aproximación de frente quedaba registrada una vez, quien tanteara por detrás podría pegarse a las mismas huellas.
+El barco giró despacio.
+El casco, que iba de frente, se torció de forma mínima y pasó a un ángulo desde el que leía de lado el vestigio de la señal, dejándolo pasar. Era un cambio pequeño, pero que todos podían sentir incluso dentro de la cabina sin ventanas. La elección no importaba por elegante. Importaba porque, si una aproximación de frente quedaba registrada una sola vez, quien tanteaba por detrás también podía pegarse al mismo vestigio.
 
-Ater sintió en ese instante que, por extraño que fuera, la respiración se le volvía más corta.
-A partir de ahora ya no era una simple huida.
-Pronto llegaría el momento en que tocaría la primera huella real de un camino que alguien había cortado, no con los pies, sino con su propia elección.
+En ese instante, Ater sintió que, curiosamente, se le acortaba la respiración.
+Pronto llegaría el momento de tocar la huella real de un camino que alguien había cortado, no con sus pies, sino con su propia elección.
 
-Han Jiwoo dijo una última vez, corto.
+Han Jiwoo habló por última vez.
 
 —Prepárense todos.
-—Porque a partir de aquí, en serio, hay que leer solo lo que queda y entrar.
+Porque a partir de ahora, de verdad, hay que leer solo lo que queda y entrar.
 
-Sobre el compartimento volvió a posarse el silencio.
-Pero este silencio no era el de la espera, estaba más cerca del silencio entre gente que lee la misma señal, cada uno a su manera.
+No cerró el dispositivo de escucha. El ruido seguía extendido, bajo, y dentro de él la baliza seguía contando.
 
-Y al final de ese silencio,
-que la primera baliza del camino borrado
-todavía no había muerto del todo
-se volvía claro para cualquiera.
+Cuatro. Cuatro. Tres.
+
+Cuatro. Cuatro. Tres.
+
+Nadie sabía quién se había llevado uno. Solo que, en el lugar del que lo habían llevado, no habían puesto nada, y por eso lo que quedaba seguía llorando en tres.
+
+Sion, oyendo ese sonido, comprendió tarde que el fragmento que había tenido hoy en la mano también había estado llorando así.
+
+Suena bien, y falta uno.
 
 ---
 

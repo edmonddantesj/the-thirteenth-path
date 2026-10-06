@@ -1,191 +1,208 @@
 # Episode 41. The Thing Pretending to Be a Door
 
-After Aka's single line fell, the inside air could not move for a strangely long time.
+After Aka's remark dropped, the air inside could not move for a strangely long time.
 
-*It's not a door.*
+"It's not a door."
 
-The words were short — but that shortness drove deeper. Sion could tell immediately that the sentence did not land as simple metaphor or impression. This was not a question of whether something looked good or bad, nor a matter of belief or instinct. Aka had just issued a verdict. And that verdict struck directly at the center of what Sion's group had been chasing all the way here.
+The words were short, but the shortness drove them in deeper. Sion knew at once that the sentence didn't sound like a simple metaphor or a passing impression. This wasn't a question of whether something looked good or bad, nor a question of faith or instinct. Aka had just handed down a judgment on something. And that judgment stabbed straight into the middle of what Sion's group had chased all the way here.
 
-Ater reacted before Sion.
+The first to react, before Sion, was Ater.
 
-"What do you mean."
-He asked low.
+"What do you mean?"
+he asked, low.
 
-Aka did not look his way. She was still alternating between the fragment inside Kael's coat and the etherite in Luhai's hand. Eyes that read the misalignment itself — created when both were placed in the same space — before meeting anyone's gaze.
+Aka didn't look his way. She was still looking from the fragment inside Kael's coat to the Etherite in Luhai's hand and back. Rather than meeting people's eyes, hers were eyes that first read the misalignment itself, the one that formed when those two were placed in the same space.
 
-"It's imitating a door."
-She said, very low.
+"It's imitating a door,"
+she said, very low.
 "But it's not a door."
 
-Ater's expression hardened — faintly. Sion saw that face and understood. This was not the reaction of someone hearing one strange metaphor. It was the face of calculations arriving all at once — that the approval lines, the two sentences, the multiple-approval structure, the severed sequence — all of it might need to be turned over again.
+Ater's expression stiffened, very slightly. Sion could tell from that face. This wasn't the reaction of someone who had simply heard a strange metaphor. It was the face of someone hit all at once by the calculation that he might have to turn everything over again: the approval line they had gathered so far, the two lines, the multiple-approval structure, the severed sequence.
 
-"Are you saying it is fake."
+"Are you saying it is fake?"
 Ater asked.
 
-Aka shook her head this time — very slowly.
+This time Aka shook her head, very slowly.
 
-"Different from fake too."
-She said.
-"Not pretending to be dead — pretending to be a door."
+"It's different from fake too,"
+she said.
+"It isn't playing dead. It's pretending to be a door."
 
-Luhai murmured almost reflexively hearing that.
+Hearing that, Luhai muttered almost by reflex.
 
-"Is the difference big?"
+"Is that a big difference?"
 
-Aka's gaze touched Luhai for the first time.
+For the first time, Aka's gaze landed on Luhai.
 
-"Big."
-She said.
-"Dead things don't open. But that — it takes people with it, as if it will open."
+"It is,"
+she said.
+"Dead things don't open. But that leads people on, like it's going to open."
 
-The instant those words fell, Sion felt the inside of his back go cold.
+The moment those words dropped, Sion felt the inside of his back go cold.
 
-Something that does not open, and something that takes people as if it will open.
+Not opening, and leading people on like it's going to open.
 
-Those were entirely different dangers.
+Those were two completely different dangers.
 
-Until now they had thought: find the severed sequence, reconnect the undead approval lines, and eventually they could reach the real structure. But if Aka was right, the problem might not be simple loss or severance. A structure left from the start to lead someone in the wrong direction. Something that was not a door, made to look like one.
+Until now they had thought that if they found the severed sequence and joined up the approval lines that hadn't died, they could someday reach the real structure. But if Aka was right, the problem might not be simple loss or severing. A structure left there from the start to lead someone the wrong way. Something that was not a door, made to look like one.
 
-Nasim did not shed even a trace of his smile — but Sion could tell he had not heard those words lightly. Harun still did not move; Nahira only grew quieter. When Aka issued this kind of verdict, the inside people seemed not to pile words on carelessly. Not from familiarity — but because they knew how much value that verdict could shift.
+Nasim didn't put away even a bit of his smile, but Sion could tell he hadn't taken what was just said lightly. Harun still didn't move, and Nahira grew, if anything, quieter. When Aka handed down this kind of judgment, the people in here seemed not to pile words on top of it carelessly. Not because they were used to it, but because they knew how large a price those words could change.
 
 Seorin asked, very low.
 
-"Then what have we been chasing."
+"Then what have we been chasing?"
 
-Aka looked at the fragment on Sion's side slightly longer this time.
+This time Aka looked a little longer at the fragment on Sion's side.
 
-"The cut site."
-She said.
-"It's not a door — but you've been following the place where a door should have been."
+"A severed place,"
+she said.
+"It's not a door, but you followed the place where a door should be."
 
-Sion found that strangely, immediately comprehensible. The name survived but the sequence was severed; only part of the approval line remained; multiple approval had only muddied the structure. So what they had been chasing might not be a complete door — but the trace of the place where a door should have existed.
+Strangely, Sion understood that right away. The name had survived but the sequence had been severed, only part of the approval line remained, and multiple approval had made the structure even murkier. So what they had chased might not be a whole door, but the trace of the place where a door should have been.
 
-If someone had laid something else over that place.
+Suppose someone had laid something else over that place.
 Something pretending to be a door.
 
 Ater stepped one pace closer and asked.
 
-"Can you distinguish it."
+"Can you tell the two apart?"
 
-Aka did not answer his question immediately either. Instead she closed her eyes for the briefest moment, then opened them. Not searching memory, not selecting guesses — the brief pause of someone re-organizing, inside the body, the grain felt right here and now.
+Aka didn't answer his question right away either. Instead she closed her eyes for just a moment and opened them. It wasn't someone groping through memory or picking a guess; it was the brief pause of someone sorting, once more inside her own body, the grain she felt here and now.
 
-"Can't do it all alone."
-She said.
-"But when both are together, it's too loud."
+"I can't do it all alone,"
+she said.
+"But with the two together, it's too loud."
 
 This time everyone looked at the same place.
 
 The fragment inside Kael's coat.
-The etherite in Luhai's hand.
+The Etherite in Luhai's hand.
 
-Only then did Sion understand for the first time. Why Aka had been uncomfortable looking at both together. Each object, separate, was still bearable — but in the same space, they responded too strongly, muddying each other's grain. As if two real things, rather than making each other clearer, resonated so loudly they made it impossible to see anything else.
+Only then did Sion understand, for the first time, why Aka had been uneasy looking at the two together all along. Apart, each of the two objects could still hold; in the same space they reacted too strongly and blurred each other's grain. As if two real things, instead of making each other sharper, rang so hard that they kept anything else from being seen.
 
-Kael asked low.
+Kael asked, low.
 
-"Just separate them?"
+"So we keep them apart?"
 
-Aka nodded, brief.
+Instead of answering, Aka stepped back one pace.
 
-"Far."
-She said.
+Then she opened her palm toward Kael.
+
+"Lift it."
+
+Kael drew the fragment out of his coat a little. Only half its surface showed through a gap in the cloth, yet Aka's shoulders stiffened for an instant. She held on like that for a few beats, then closed her eyes.
+
+"Enough. Put it away."
+
+Kael covered it again.
+
+"Luhai."
+
+Luhai glanced around, then opened his hand a little. At that moment Aka stepped back another half pace, the other way. This time she didn't close her eyes. Instead her face went pale.
+
+"Stop."
+
+Luhai snapped his hand shut.
+
+"Why, what d'you see?"
+
+"I don't see anything,"
+Aka said.
+"That's the problem."
+
+Only then did Sion understand. When two real things were together, they didn't make each other sharper; they rang so hard that nothing could be seen. Aka's eyes hadn't grown keener just now. She had gone blind.
+
+"Far apart,"
+she said.
 "And somewhere quiet."
 
-Nasim finally spoke.
+Only then did Nasim open his mouth.
 
-"Good."
-He said.
-"Then the real problem is simple now. Etherite is needed, your verdict is needed, and that fragment can't be thrown away."
+"Then the problem's simple,"
+he said.
+"We need the Etherite, we need your judgment, and that fragment can't be thrown away either."
 
-Seorin answered cold.
+Seorin answered coldly.
 
-"Might be simple for you."
+"Simple for you, maybe."
 
 Nasim smiled.
 
-"The more complex — the more value attaches."
+"The more complicated it gets, the more a price attaches. That's how it goes."
 
-At that, Luhai's face scrunched.
+At that, Luhai screwed up his face.
 
-"Everything here ends with a price tag."
+"Seriously, every other word in here is price."
 
-Nahira cut that quietly.
+Nahira cut him off quietly.
 
-"On Hazran, that's how you live long."
+"That's how you live long in Hazran."
 
-Luhai could not reply. This time not just silenced — but wearing the face of someone who knew those words were not wrong.
+Luhai couldn't answer back. This time it wasn't just that his mouth had been stopped; it was the face of someone who knew she wasn't wrong.
 
 Sion looked at Aka again.
 
-She was still reading the grain between objects before people. Yet strangely, that method revealed people more clearly. Luhai was the child who arrived late through letters; Kael, the one who blocked with hands first; Seorin, someone who cut first even with her mouth closed; Ater, someone who tried to organize meaning. Aka had, in just a few words, made everyone see everything from a different angle.
+Aka was still looking at the grain between things before she looked at people. And yet, strangely, that was a way of showing people more clearly. Luhai was the kid who got there late, by way of letters; Kael was the one who blocked first, with his hands; Seorin was the one who cut first even with her mouth shut; and Ater was someone who tried to put meaning in order. With just a few words, Aka had made him see all of them again from another angle.
 
-Nahira said, very low.
+Nahira spoke, very low.
 
-"No more looking today."
+"She won't see any more today."
 
-Short silence.
+A short silence.
 
-Sion could not immediately judge whether she meant the etherite shard, or Aka, or drawing deeper truth from this space. But all three being possible was itself more Hazran.
+For a moment Sion couldn't decide whether she meant the Etherite fragment, or Aka, or bringing out any deeper truth here and now. But that all three might be right was all the more like Hazran.
 
 Seorin asked.
 
-"Why."
+"Why?"
 
-Nahira answered, plain.
+Nahira answered evenly.
 
-"Because you brought too much in at once."
-She said.
-"The fragment, the name, the kid, the ship's need. Bring it all together — here, it mixes first."
+"Because you brought too much in with you,"
+she said.
+"That fragment, the name, the kid, your need for a ship. Bring it all in together, and in here it gets mixed up first."
 
-Sion thought he understood what that meant, at least somewhat. Right now, even trying to see one thing — other values kept mixing in. The ship needed saving; etherite was required; whether to release or restrain Luhai still undecided; Aka's words needed hearing further. So a deeper verdict could not yet be issued.
+Sion thought he understood a little of what that meant. Right now, even if they tried to look at one thing, other prices kept mixing in. They had to save the ship, they needed Etherite, they had to decide whether to let Luhai go or keep him tied, and they had to hear more of what Aka said. Which meant no deeper judgment could be made yet.
 
-Harun said short.
+Harun spoke briefly.
 
-"That's why we separate."
+"So we separate them."
 
-Nasim received.
+Nasim took it from there.
 
-"Good. Fragment separate, etherite separate, conversations separate."
-He said.
-"Then from now — the values really start splitting."
+"That fragment apart, the Etherite apart, the talking apart too,"
+he said.
+"So now the prices really start to split."
 
-Hearing that sentence, Sion caught a dim glimpse of the next stage.
-
-From now:
-- Kael's fragment,
-- the etherite shard,
-- Aka's verdict,
-- Luhai's knowledge,
-- Jiwoo's ship repair need —
-
-each would separate, then begin tangling again.
-
-And that separation itself would likely push them all onto a larger board.
-
-Aka said one last thing, very low.
+Last of all, Aka spoke very low.
 
 "That's not a door."
 
-This time Sion asked immediately.
+This time Sion asked at once.
 
-"Then what is it."
+"Then what is it?"
 
-Aka was silent briefly.
+Aka was silent for a moment.
 
-That silence was not a person who did not know — but someone who knew, yet must not yet name it.
+It didn't seem the silence of someone who didn't know, but the silence of someone who knew and must not put a name to it yet.
 
-And she answered.
+And then she answered.
 
-"An imitation of remembering a door."
+"An imitation that remembers a door."
 
 Sion nearly lost his breath.
 
-An imitation of remembering a door.
+An imitation that remembers a door.
 
-That was more ominous than a dead door. Something neither fully severed nor fully alive. A structure survived in between — capable of continuously leading someone to the wrong place.
+A dead door doesn't open. And so a dead door doesn't lead anyone on.
 
-What they had been chasing was not merely a severed truth — it might be an imitation laid over the severed site.
+Sion counted again the things he had followed to get this far. The severed approval line. The markings with only two lines left. Multiple approval. The two words Elia had written on a piece of paper for him.
 
-## And to cut that apart — they had ended up entering the deepest board of this desert.
+He had thought all of it was what was left after someone erased the rest.
+
+It might have been made, and left there.
+
+The two had the same shape, but one was an accident and the other was a beckoning hand.
 
 ---
 

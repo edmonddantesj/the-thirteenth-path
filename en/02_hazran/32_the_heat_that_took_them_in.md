@@ -1,251 +1,276 @@
 # Episode 32. The Heat That Took Them In
 
-Falling was not the same as crashing.
+A drop was not the same as a crash.
 
-At least not once it was in Jiwoo's hands.
+Not once it was in Han Jiwoo's hands, at least.
 
-When the hull dug deeper beneath the debris shadow, the outside view flipped completely. Instead of empty space's black membrane — severed frames, empty loading rings, and burned cargo ship skins swept past without regard for up or down. A slight angle off and they would scrape or shatter. Yet Jiwoo did not kill the speed. Like someone who knew better than anyone that killing it meant dying — she forced a line between the broken axis and remaining thrust.
+The hull dug deeper beneath the shadow of the wreckage. The gaps between the frames were narrower than before. Get the angle even slightly wrong and they would scrape, or be smashed outright. Even so, Han Jiwoo didn't kill the speed. Like someone who knew better than anyone that killing it meant dying, she was forcing a line together between the broken axis and the thrust that was left.
 
-"Hold. Hold on."
-She muttered through gritted teeth.
-"Dying now would be too unfair."
+"Hold. Hold,"
+she muttered through clenched teeth.
+"Dying now would be a raw deal."
 
-Who she was talking to was unclear. The ship, the engine, or herself. But strangely, all three seemed right.
+It was hard to say who she was saying it to. The ship, the engine, or herself. But strangely, it sounded right for all three.
 
-Sern said, scanning the panel.
+Sern ran his eyes over the panel and spoke.
 
-"One still attached from behind."
+"One behind is still on us."
 
-"Persistent."
+"Persistent,"
 Seorin said low.
 
-"It's the catching hand."
-Kael answered short.
+"Because it's the catching hand,"
+Kael answered, short.
 
 This time no one let that pass.
 
-One more afterglow grazed the hull's side outside. Not a direct hit — but closer to deliberately shattering a frame fragment and scattering it. Broken metal shards swept past the slit like stardust. Not an intimidation line. A line that kept shaking until they finally dropped. The other side had clearly shifted from direct kill to forced crash.
+Another afterglow streaked past the side of the hull. Not a direct hit, but this time closer to shattering pieces of frame on purpose and scattering them. Broken bits of metal swept past outside the slit like star dust. Not a line meant to scare, but a line meant to keep shaking them until they finally fell. The other side had clearly switched from shooting them down head-on to forcing them down.
 
-Ater said short.
+Ater spoke, short.
 
-"Not good."
+"This is not good."
 
-"Has it ever been?"
-Jiwoo fired back.
+"When was it ever?"
+Han Jiwoo shot back.
 
-But even that was not as light as usual this time.
+But this time even that wasn't as light as usual.
 
-One more impact came and the lower hull rang as if nearly folding. Two panels below the cockpit went dark simultaneously; engine response cut for a split second, then revived roughly. The hull dropped hard — Jiwoo wrenched the posture back as if twisting it by hand.
+Another impact came, and the underside of the hull groaned as if it were nearly folding. Two panels beneath the pilot's seat went dark at once, and the engine response cut out for a bare instant before roughly coming back. The hull dropped sharply, and Han Jiwoo brought its attitude back almost by wrenching it.
 
-Sion gripped the handle harder. No room to read outside, but his body already knew how desperately the hull was being held together. This was not flight. It was endurance. Slowing the fall while choosing which direction to drop — the last brace.
+Sion tightened his grip on the handle. There was no room to read outside, but his body knew first how forcibly the hull was being held together right now. This wasn't flying; it was holding on. The last hold, slowing the crash so they could fall first in the direction they wanted.
 
-Sern said, very low.
+Sern spoke very low.
 
-"Heat layer boundary approaching."
+"The heat layer boundary is coming."
 
-Short silence.
+A short silence.
 
-Jiwoo said without laughter.
+Han Jiwoo spoke without a trace of a smile.
 
-"Good. From here it's pure feel."
+"Then from here on it's pure feel."
 
 Seorin asked.
 
-"Can you keep it alive?"
+"Can you save it?"
 
-Jiwoo did not answer immediately. Only after twisting the control once more did she say low.
+Han Jiwoo didn't answer right away. Only after bending the stick once more did she speak, low.
 
-"Can't land it without breaking it."
+"Can't bring it down without breaking it."
 
-That single line was enough.
+That one sentence was enough.
 
-This time no one asked *can you hold.* Asking would not change the state. There was nothing but ramming it in alive, somehow.
+This time nobody asked "Can it hold?" Asking wouldn't change the state they were in. There was nothing to do but get it down alive, somehow.
 
-The heat layer's exterior came faster than expected.
+The outside of the heat layer came sooner than expected.
 
-Through the slit, between the debris and the black membrane — a very thin, hazy distortion caught first. Then light stretched long. Things that had looked straight despite not being straight — all suddenly curved. The hot layer between space and desert, twisting everything entering and exiting once. Hazran's outer heat layer.
+Between the wreckage and the black curtain outside the slit, a very thin, faint distortion caught first. Then the light shook in long waves. Things that had looked straight, even when they weren't, all suddenly bent. A hot layer lying along the boundary between space and desert, a stretch that twisted everything coming in and going out once each. The heat layer outside Hazran.
 
-Sern said.
+Sern spoke.
 
-"Enter now and rear sightlines cut once."
+"If we go in now, their sight behind us will be cut once."
 
-"But we go blind too."
-Jiwoo answered.
+"But we'll go blind too,"
+Han Jiwoo answered.
 
 "Yes."
 
-"Good. Fair."
+"Good. That's fair."
 
-Jiwoo pushed the last of the thrust in.
+Han Jiwoo pushed in the last of the thrust.
 
-The instant the hull grazed the heat layer — it felt like the entire ship was seized by a massive hand and twisted at once.
+The moment the hull grazed the outside of the heat layer, it felt as if the whole ship had been seized by a giant hand and twisted in one go.
 
-Ater held the wall and swallowed breath. Sern pulled his eyes from the panel for the first time, tilting his body to read vibration itself instead of numbers. Kael gripped the floor brace and lowered his posture further; Seorin shifted her weight center so she could grab whoever flew out first.
+For the first time, Sern took his eyes off the panel. He leaned toward reading the vibration itself instead of the numbers.
 
-Sion, in that moment, felt the paper inside his jacket pressing hotter between sweat-damp cloth. *Hazran. Aka.* Two words written without explanation — felt like the force pulling the hull right now.
+Sion took the hand he had been bracing with off the wall. When he had grabbed it earlier, it had been cold.
 
-Outside, one short-long flash tangled.
+The heat was outside, but the wall was carrying it in. The mark left on his palm took a while to cool.
 
-Sern said almost instantly.
+Outside, a short flash and a long one tangled once.
 
-"Sightline severed."
+Sern spoke almost at once.
 
-Jiwoo gritted her teeth.
+"Their sight is cut."
 
-"Good. Then we drop first."
+Han Jiwoo clenched her teeth.
 
-But the heat layer was not a hiding place. It was a place that demanded a price.
+"Then we fall first."
 
-From somewhere in the lower hull — a massive rupture sounded.
+"Han Jiwoo,"
+Sern called.
+"How far is it to the bottom?"
 
-This time no one asked questions. The sound alone said everything. The one remaining lower balance axis had finally given.
+"Why ask me? You're the one reading it."
 
-The ship dropped hard.
+"What I read and what is visible are different."
 
-Precisely — began sinking.
+Han Jiwoo's hands stopped for the barest moment.
 
-Jiwoo pulled the control and spoke almost in a snarl.
+"By how much?"
 
-"Fine, come on. Let's see how far we fall."
+"About double."
 
-"Jiwoo."
-Seorin called low.
+A short silence.
 
-"I know."
-She cut at once.
-"I'm ramming it in alive."
+Sion understood, and his back went cold. Neither the one reading nor the one looking was lying, but the heat passing between them folded the distance once. Whichever one you trusted, you would end up somewhere wrong.
 
-The hull no longer moved like a spacecraft.
+"Then what do we go by?"
+Sion asked.
 
-Now it was a descent line. Using remaining thrust only to barely hold posture — spending all force on choosing the direction of the fall. The rules had changed: not who dies first, but who touches ground less broken.
+Instead of answering, Han Jiwoo half let go of the stick. Then she gripped it again.
 
-Through the slit, the black membrane cleared — and beneath it, desert began to reveal itself.
+"Body."
 
-What showed first was light.
+Somewhere under the hull, a loud rupture burst.
 
-Not starlight — the dead metallic glint of a surface cracked hot.
+This time nobody asked anything. The sound alone told them everything. The one lower balance axis that had been left had finally failed to hold.
+
+The ship tilted to one side and didn't come back.
+
+To be exact, it began to sink.
+
+Hauling on the stick, Han Jiwoo spoke almost in a growl.
+
+"Come on. Let's see how far we fall."
+
+"Han Jiwoo,"
+Seorin called, low.
+
+"I know,"
+she cut in at once.
+"I'm putting it down alive."
+
+The hull no longer moved like a spaceship.
+
+It was a descent craft now. A body that barely held its attitude with the thrust that was left and spent all its strength choosing which way to fall. The rules had changed: not who died first, but who reached the ground less broken.
+
+Outside the slit, the black curtain lifted, and the desert beneath began to show.
+
+The first thing they saw was light.
+
+Not starlight, but the dead metallic glare thrown back by hot, cracked ground.
 Then sand.
-Neither red nor gold — an ash-brown desert mixed with long-burned iron dust and char.
-And cutting long across it — shadows of dead hulls. Half-buried massive ship frames, half-torn external decks, vitrified plains with loading structures twisted and lying on top. Hazran looked less like a planet — more like a place where things that could never be fully abandoned still endured on the sand, not yet able to die.
+Neither red nor gold—a gray-brown desert of long-burned iron dust mixed with ash.
+And across it, the long shadows of hulks. Huge ship frames half buried, outer decks torn partway off, cargo structures lying twisted across a vitrified plain. Hazran looked less like a planet than a place where wreckage that had never quite managed to be thrown away still held on in the sand, unable yet to die.
 
-Sion swallowed one short breath.
+Sion swallowed a short breath.
 
 There.
 
-He could not explain why — but he knew it was there. The note pointed here, and this fall was already tilting toward it. Looking like coincidence but not coincidence. The kind of line you cannot read but must not lose.
+He couldn't explain why, but he could tell it was there. The note had pointed there, and this drop, in the end, was leaning that way too.
 
-Sern said rapidly.
+Sern spoke fast.
 
-"Left side — high density of dead hull clusters. Right side — vitrified surface, greater impact."
+"Hulk density is high on the left. On the right is vitrified ground; the impact will be greater."
 
-Ater followed at once.
+Ater followed straight on.
 
-"Full landing must be abandoned. Take the long-friction approach."
+"We must give up on a full landing. Draw the friction out long."
 
-"Sounds gruesome just hearing it."
-Jiwoo said low.
-"Fine. The less-dead side, then."
+"Sounds miserable just hearing it,"
+Han Jiwoo said low.
+"Then we go the way that kills us less."
 
-Kael, looking forward for the first time, said.
+Kael looked ahead for the first time and spoke.
 
-"Left, second frame's shadow below. Less wind."
+"The shadow under the second frame on the left. The wind turns less there."
 
-Sion said almost simultaneously.
+Sion spoke almost at the same moment.
 
-"Inside there — a line that hasn't collapsed yet."
+"In there. There's a line that hasn't collapsed yet."
 
-Jiwoo laughed short.
+Han Jiwoo laughed briefly.
 
-"Good. Now everyone's talking."
+"Now everybody's chiming in."
 
-She poured the remaining thrust leftward one more time.
+She poured the rest of the thrust to the left once more.
 
 The hull screamed.
 
-That scream was less a machine sound — closer to the sound of a body that no longer wanted to hold even by force. Somewhere on the left wall — a long strip tore away grinding against a frame, and the impact twisted the entire ship. Ater's knee struck once; Sern's knuckles went white on the panel edge. Seorin reflexively held the center weight; Kael, for one instant, threw his own body forward before the fragment — to block anyone from flying out.
+That scream was less a machine noise than the sound of a body that didn't want to hold on anymore, not even by force. Somewhere on the left outer wall a long strip tore away, scraping the frame, and the impact twisted the entire ship. Ater banged his knee hard once, and Sern's knuckles went white where he gripped the edge of the panel. Seorin dropped her weight to the center by reflex, and Kael, for an instant, threw his own body forward before the fragment. To stop anyone who got thrown.
 
-Jiwoo screamed through gritted teeth.
+Han Jiwoo shouted through clenched teeth.
 
-"Hold on — hold on!"
+"Hold on tight. I said hold on tight."
 
 The second impact was rougher.
 
-This time the underside ground against sand and scrap metal together. The friction sound rang like it was grinding the entire hull apart; through the slit, desert dust and metal fragments erupted at once. The ship slid, angled, lifted once more, then stamped down again. Not stopping — but breaking to the end in order to stop.
+This time the underside scraped sand and scrap metal together. The friction roared as if grinding the whole hull down, and outside the slit desert dust and shards of metal shot up all at once. The ship slid, buckled, lifted once more and slammed down again. Not stopping, but breaking all the way down in order to stop.
 
-Sion clenched his teeth. His hand felt like it would slip but he did not let go. What must not be lost right now was not just the handle. This ship, these people, the paper in his jacket, the fragment Kael held, and whatever lay inside Hazran still unseen — right now it was all one mass.
+Sion clenched his teeth. His hands felt like they would slip, but he didn't let go. The handle wasn't the only thing he couldn't lose right now. This ship, these people, the paper in his jacket, the fragment Kael was holding, and even something inside Hazran he hadn't yet seen. Right now it was all one mass.
 
-The final impact was strangely short.
+The last impact was strangely short.
 
-Instead of a sound that ended with a crash — the feeling of grinding long and suddenly stopping.
+Not a crash to finish it, but the feeling of being scraped hard and then suddenly stopping.
 
-After that — silence came.
+Then came silence.
 
-Precisely — the hollow silence born of all vibration that had covered everything suddenly vanishing.
+To be exact, an empty silence, left when the vibration that had covered everything a moment before suddenly vanished.
 
-No one spoke immediately.
+No one spoke right away.
 
-The engine was still trembling low somewhere, breathing like something that could not quite die; inside the hull, the smell of heated metal and burned circuits tangled. In the distance — wind. A sound that should not be audible inside a spacecraft. The dry planet's wind, sweeping between sand and scrap metal.
+Somewhere the engine was still trembling low, as if panting a breath it hadn't managed to die on, and inside the hull the smell of heated metal and burned circuitry was tangled together. Far off, wind was blowing. The kind of sound you could never hear inside a spaceship. The wind of a dry planet, sweeping between sand and scrap metal.
 
-Jiwoo exhaled first.
+Han Jiwoo was the first to let out a breath.
 
-"Good."
-She said like a half-laugh.
+"Ha."
+She said it like a hollow laugh.
 "Not dead."
 
-Seorin stood up at once.
+Seorin got up at once.
 
-"Everyone check status."
+"Everyone, check yourselves."
 
-Sern answered short.
+Sern answered, short.
 
 "Conscious."
 
-Ater braced on his knee and straightened, saying.
+Ater pressed a hand to his knee, pushed himself upright, and spoke.
 
-"Nothing seems badly broken."
+"Nothing appears to be badly broken."
 
-Kael checked the fragment before answering. Still inside his coat. Only then did he exhale, very brief.
+Kael checked the fragment before answering. It was still inside his coat. Only then did he let out a very short breath.
 
-Sion released the handle and rose slowly. The paper inside his jacket — still there.
+Sion took his hands off the handle too and slowly got up. He didn't put his hand inside his jacket. He knew where it was without checking.
 
-*Hazran.*
-*Aka.*
+**Hazran**
+**Aka**
 
-The two words were heavier now than when he first saw them.
+The two words had grown heavier than when he first saw them.
 
-Jiwoo was already scanning the cockpit panel as if tapping it. Her expression was less the relief of having survived — more the face of someone seeing where to start reviving what was broken.
+Han Jiwoo was already sweeping the cockpit panel, almost drumming on it. Her face showed less relief at surviving than a look at what was broken and where to start saving it.
 
-"Nice."
-She said low.
-"Engine's not dead yet, and the ship's half-alive. But in this state — absolutely cannot fly again."
+"Alive is alive,"
+she said low.
+"Engine's not dead yet, and the ship's half alive too. But in this state it's never getting off the ground again."
 
-Short silence.
+A short silence.
 
 Seorin asked.
 
-"How much do you need."
+"How much do you need?"
 
-Jiwoo pressed the broken response line below the panel once, then answered.
+Han Jiwoo pressed once on a cracked response line under the panel and answered.
 
 "Etherite."
 
-That name fell inside the hull for the first time.
+That name dropped inside the hull for the first time.
 
-"The real kind."
-Jiwoo added through gritted teeth.
-"Not fake — real. To float an axis this wrecked again, there's no answer without it."
+"And the proper stuff,"
+Han Jiwoo added through clenched teeth.
+"Not fake. Real. To get an axis this broken back up, there's no answer without it."
 
-Sion looked out the slit.
+Sion looked outside the slit.
 
-Beyond the half-buried dead hulls — sand and heat and dead metallic light stretched endlessly. A place owned by no one. A place where who had abandoned it mattered less than who was still holding on here, not yet dead.
+Beyond the half-buried hulks, sand and heat and dead metallic glare went on without end. A place not owned. A place where who was still here holding on, not yet dead, mattered more than who had thrown it away.
 
-Elia had left one name and one word.
-Jiwoo said etherite was needed.
-And somewhere in this desert — Aka existed.
+Elia had left only a name and a word.
+Han Jiwoo said she needed Etherite.
+And somewhere in this desert was Aka.
 
-Surviving was not the end.
+Surviving didn't mean it was over.
 
-## From now — the real beginning.
+This was where it really began.
 
 ---
 

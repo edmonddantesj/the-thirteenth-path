@@ -1,54 +1,54 @@
 # Chapitre 16 — Sur la même route
 
-La navette fila plus longtemps que prévu.
+La navette de liaison fila plus longtemps que prévu.
 
-Le bruit des moteurs était bas et régulier, mais en dessous affleurait par instants une légère vibration saccadée qui remontait le long de la coque. L'habitude propre aux vieux appareils. Pas une panne — plutôt la façon qu'avait ce vaisseau de rappeler qu'une panne pouvait survenir à tout moment.
+Le bruit des moteurs s'étalait, bas et régulier, mais par-dessous remontait parfois le long de la coque une infime vibration, comme hachée. Une manie propre aux vieux vaisseaux. Pas une panne — le genre de bruit qui rappelle qu'une panne, à n'importe quel moment, ne surprendrait personne.
 
-À l'avant, Sion et Seorin avaient trouvé leurs places. Dans le fond, à la frontière du compartiment de charge, Ater et Sern s'appuyaient dos à la paroi. Yona s'était installé au poste de pilotage qui faisait aussi office de poste de communication. Autant de distance que la coque étroite autorisait — mais franchement, on n'appelait pas ça de la distance. Ils étaient à portée de souffle les uns des autres.
+À l'avant, Sion et Seorin s'étaient installés ; au fond, à la limite de la soute, Ater et Sern s'adossaient à la paroi. Yona avait pris le poste de pilotage, qui servait aussi de poste de communication. Dans un vaisseau aussi étroit, c'était le maximum de distance possible — mais, franchement, cela ne méritait pas le nom de distance. Chacun entendait respirer les autres.
 
-Pendant un long moment, personne ne parla.
+Pendant un long moment, personne ne dit rien.
 
-En fuite, le silence ne pose pas de problème. Il y avait des choses à faire, et la tension fermait les bouches à leur place. Mais une fois en mouvement, une fois les poursuivants hors de portée immédiate, un autre genre de tension commence à s'insinuer entre des inconnus partageant le même espace.
+Tant qu'ils fuyaient, le silence ne gênait pas. Il y avait à faire, et la tension leur fermait la bouche à leur place. Mais dès qu'on est en route et qu'arrive un moment où personne ne vous talonne, une autre sorte de tension commence à monter entre des gens qui partagent un même espace sans se connaître.
 
-Ce fut Sion qui brisa le silence en premier.
+Ce fut Sion qui rompit le silence.
 
 « Tu dors pas ? »
 
 C'était pour Seorin.
 
-« Dans un endroit pareil, je me réveillerais pas. »
+« Si je dors dans un endroit pareil, je me réveille pas. »
 
-« N'importe quoi. T'as déjà dormi dans le compartiment de charge d'un vaisseau de récupération. »
+« Qu'est-ce que tu racontes. T'as bien dormi dans la soute d'un vaisseau de récupération, une fois. »
 
 « C'était un vaisseau que je connaissais. »
 
-Sion eut un sourire fugace mais n'insista pas.
-Ce que disait Seorin était juste. Un vaisseau connu et un vaisseau inconnu, ça donnait un sommeil différent. Les sons familiers déposent le corps — les sons étrangers, le cerveau ne s'éteint pas.
+Sion pouffa, mais n'insista pas.
+Un vaisseau connu et un vaisseau inconnu, ce n'était pas le même sommeil. Quand les bruits sont familiers, le corps se relâche ; quand ils ne le sont pas, le cerveau refuse de s'éteindre.
 
-Sern dit depuis le fond, à voix basse :
+Depuis le fond, Sern dit à voix basse :
 
-« Avons-nous un moyen de vérifier une éventuelle déviation de route ? »
+« Existe-t-il un moyen de vérifier si nous avons quitté notre route ? »
 
 Yona répondit depuis le poste de pilotage :
 
 « Non. »
 
-Bref silence.
+Un court silence.
 
-« Pour être précis, ce vaisseau est équipé d'un traqueur de route, mais là où on va, c'est pas la route officielle, alors il n'y a pas de référence à comparer. »
+« Pour être exacte, ce vaisseau a bien un traceur de route, mais on ne suit pas une route officielle, alors il n'y a même pas de référence à laquelle comparer. »
 
-Sern digéra l'information, réfléchit un instant, puis demanda :
+Sern réfléchit un instant à ces mots, puis demanda :
 
-« Dans ce cas, comment sait-on qu'on va dans la bonne direction ? »
+« Dans ce cas, comment savez-vous que la direction est la bonne ? »
 
-« L'instinct. »
+« Au jugé. »
 
 Sion se retourna en souriant.
 
-« Laisse tomber. Chercher la précision sur un vaisseau comme ça, c'est juste se faire du mal. »
+« Laisse tomber. Chercher la précision sur un rafiot pareil, c'est le meilleur moyen de devenir fou. »
 
-Sern ne répondit pas, mais son expression portait clairement une couche de désaccord non exprimé.
-Ater l'observait en silence depuis le côté. Cet homme calculait toujours le prochain coup en premier — à l'instant précédent, et déjà quand ils avaient établi l'ordre d'embarquement. Sauf qu'à présent, la route même qui servait de base à ses calculs était instable. Pour Sern, c'était une situation franchement inconfortable.
+Sern ne le contredit pas, mais son visage gardait la marque nette d'un désaccord.
+Ater l'observait en silence, à côté de lui. Cet homme, tout à l'heure encore, et déjà au moment de fixer l'ordre d'embarquement, avait toujours calculé le coup suivant avant tout le monde. Or la route même sur laquelle reposaient ses calculs était à présent mouvante. Pour Sern, la situation devait être passablement inconfortable.
 
 Ater dit à voix basse :
 
@@ -56,119 +56,119 @@ Ater dit à voix basse :
 
 « Oui. »
 
-« Pour l'instant, il n'y a qu'à attendre. »
+« Pour l'instant, nous ne pouvons qu'attendre. »
 
-Sern leva les yeux un très bref instant, puis les rabaissa.
+Sern leva les yeux, puis les baissa de nouveau.
 
 « Je le sais. »
 
 Leur échange s'arrêta là.
-Mais Sion n'avait pas raté ce bref échange. Difficile de dire si Ater cherchait à calmer Sern, ou si c'était lui-même qui avait parlé parce qu'il était anxieux. Probablement les deux. Et peu importe la forme que ça prenait, il existait entre ces deux-là un fil d'une autre nature que celui qui liait Sion et Seorin.
+Mais Sion n'en avait rien manqué. Ater avait-il voulu calmer Sern, ou avait-il parlé parce qu'il était inquiet lui-même ? Difficile à dire. Sans doute les deux. Et quoi qu'il en soit, il y avait entre ces deux-là un lien d'une autre nature que celui qui unissait Sion et Seorin.
 
-Seorin sentit le climat et changea de cap avec un naturel parfait.
+Seorin sentit le climat et changea de cap avec le plus grand naturel.
 
-« Il y a quelque chose à manger dans ce vaisseau ? »
+« Il y a de quoi manger, à bord ? »
 
-Yona eut un petit rire.
+Yona sourit.
 
-« En bas à gauche du compartiment de charge. »
+« Soute, en bas à gauche. »
 
-Seorin se leva et se dirigea vers le fond.
-Elle ouvrit une vieille caisse métallique : à l'intérieur, quelques paquets de rations hermétiquement scellés et de l'eau. Pas de luxe, mais consommable.
+Seorin se leva et alla vers la soute.
+Dans une vieille caisse en fer, il y avait quelques sachets de rations scellés et de l'eau. Rien de raffiné, mais c'était mangeable.
 
-« Bien. Des rations d'urgence. »
+« Des rations d'urgence. »
 
-« C'est une urgence. »
+« On est en urgence. »
 
-Seorin déchira un paquet et le lança vers Sion.
-Sion l'attrapa, puis tendit le suivant vers Ater.
+Seorin ouvrit un sachet et le lança vers Sion.
+Sion l'attrapa. Seorin en tendit ensuite un autre vers Ater.
 
-Ater jeta un bref regard à Seorin.
-Seorin dit, sans changer d'expression :
+Ater regarda brièvement Seorin.
+Seorin dit, sans expression particulière :
 
-« La faiblesse de jugement commence avec la faim. »
+« Le ventre vide, on juge mal. »
 
-Ater hocha la tête brièvement et accepta.
-Un paquet alla aussi à Sern. Sern le reçut et décacheta l'emballage en silence.
+Ater hocha la tête et le prit.
+Sern en reçut un aussi. Il le prit et en rompit l'opercule en silence.
 
-Qui distribuait et qui recevait — c'était étrange comme ça rendait un peu plus lisibles les relations à l'intérieur de cette coque. Seorin avait choisi d'être celle qui distribuait, et Ater n'avait pas refusé. Ce n'était pas de la confiance, mais au moins c'était la reconnaissance qu'ils mangeaient ensemble, pour l'heure.
+Qui distribuait, qui recevait : bizarrement, cela rendait un peu plus lisibles les rapports à bord. Seorin avait choisi d'être celle qui distribue, et Ater ne l'avait pas refusé. Ce n'était peut-être pas de la confiance, mais c'était au moins admettre que, pour l'instant, ils mangeaient ensemble.
 
-Sion dit en déchirant son paquet :
+Sion dit en ouvrant son sachet :
 
 « Je peux te poser une question ? »
 
-Ce n'était pas dirigé vers Ater — et pourtant tout le monde savait à qui c'était adressé.
+Il ne regardait pas Ater, mais tout le monde savait à qui elle s'adressait.
 
-« Laquelle. »
+« Laquelle ? »
 
-Ater reçut la question posément.
+Ater l'accueillit calmement.
 
-« Toi, pourquoi t'es venu ? »
+« Pourquoi t'es venu ? »
 
-Direct.
+C'était direct.
 Seorin fronça légèrement les sourcils, mais ne l'arrêta pas.
 
-Sion continua :
+Sion poursuivit :
 
-« Pour être plus précis :
-t'as pas besoin d'être là, normalement. »
+« Je reformule.
+T'as aucune raison d'être là. Normalement. »
 
-Ater mordit dans son paquet, mâcha lentement, puis répondit :
+Ater mordit dans son sachet, avala lentement, puis répondit :
 
-« Parce qu'il y a quelqu'un qui ne devrait pas être là, et qui y est quand même. »
+« Parce que quelqu'un qui, normalement, ne devrait pas être ici s'y trouve. »
 
 « Ça vaut aussi pour moi. »
 
 « Je le sais. »
 
-Sion sourit.
+Sion rit.
 
 « C'est ça, ta réponse ? »
 
-Ater réfléchit un moment.
-Puis, d'une voix légèrement plus basse que d'habitude, il dit :
+Ater réfléchit un instant.
+Puis il parla d'une voix un peu plus basse que d'habitude.
 
-« Au départ, je suis venu vérifier un ordre incorrect.
+« Au départ, je suis venu vérifier une séquence erronée.
 En tant que membre de la Chambre de Reconnaissance. »
 
 « Et ensuite ? »
 
 « J'ai vérifié. »
-Ater dit cela brièvement.
-« Mais si je rentre après avoir vérifié, ça revient à faire comme si ce que j'avais vérifié n'avait pas existé. »
-Il s'arrêta un très court instant, puis ajouta :
-« Il reste des éléments que les documents seuls ne peuvent pas expliquer. Si je ne les vérifie pas sur le terrain, ça finit par devenir un mensonge dans mon propre langage aussi. »
+Ater poursuivit :
+« Mais si je rentre après avoir vérifié, cela revient à faire comme si ce que j'ai vérifié n'avait jamais existé. »
+Il marqua un très bref arrêt, puis ajouta :
+« Il reste une part que les documents seuls n'expliquent pas. Si je ne la vérifie pas sur place, cela finira par devenir un mensonge, même dans ma propre langue. »
 
-Sion écouta, puis mordit encore dans son paquet.
-Il mâcha en réfléchissant. Cet homme n'était pas venu par indignation. Pas par colère non plus. Plus précisément : il avait rencontré un problème qui, vu de l'intérieur de son propre système, ferait de ce système lui-même un mensonge s'il fermait les yeux et continuait.
+Sion l'écouta, puis mordit de nouveau dans son sachet.
+Il réfléchit en mâchant. Cet homme n'était pas venu par rancœur. Ni par colère. Plus exactement, il était tombé sur un problème d'un genre particulier : vu de l'intérieur de son propre système, passer outre après l'avoir vu faisait du système tout entier un mensonge.
 
-L'entrée était totalement différente de la façon dont Sion avait flairé quelque chose autour d'un nom effacé — mais le point d'arrivée était étrangement le même.
+Par où il y était entré, cela n'avait rien à voir avec Sion, qui avait capté une odeur sur un nom effacé ; mais le point d'arrivée était étrangement le même.
 
-Sion avala ce qu'il mâchait, puis dit à voix basse :
+Sion avala sa bouchée.
 
-« En fin de compte, on est tous les deux dans les embrouilles. »
+« Bref, on s'est compliqué la vie tous les deux. »
 
-Ater ne réagit pas à ces mots et mangea encore une bouchée de son paquet.
-Mais il ne démentit pas non plus.
+Ater ne réagit pas et prit une autre bouchée.
+Mais il ne le nia pas non plus.
 
-Sern avait écouté toute la conversation sans rien dire.
-Que Son Excellence ouvre lui-même la bouche pour expliquer ses raisons — c'était la première fois, autant que Sern s'en souvienne. Jusqu'ici, il donnait des ordres, posait des questions, mais n'avait jamais expliqué pourquoi il se trouvait là. Ce qui signifiait aussi qu'à l'intérieur de cette coque étroite, quelque chose venait de se défaire d'une couche supplémentaire.
+Sern avait écouté sans rien dire.
+Que Son Excellence ouvre la bouche de lui-même pour donner ses raisons, c'était, d'aussi loin que Sern se souvienne, la première fois. Jusque-là, il avait donné des ordres, posé des questions, mais jamais expliqué pourquoi il était là. Cela voulait dire aussi que, dans ce vaisseau étroit, une couche de plus venait de tomber.
 
-Seorin dit en décachetant sa ration d'eau :
+Seorin dit en ouvrant un sachet d'eau :
 
-« Alors établissons encore une chose. »
+« Alors réglons encore une chose. »
 
 Sion la regarda.
 
-« Quoi. »
+« Laquelle ? »
 
-« Ce qu'on fait en arrivant. »
-La voix de Seorin n'était pas légère. Si la direction divergeait ici, la coopération fonctionnelle qu'ils avaient réussi à calibrer à l'intérieur de cette coque se fracasserait à nouveau immédiatement.
+« Ce qu'on fait en premier, en arrivant. »
+La voix de Seorin n'avait rien de léger. Si leurs directions divergeaient à partir d'ici, la coopération fonctionnelle qu'ils avaient péniblement ajustée dans ce vaisseau pouvait se rompre aussitôt.
 
 Yona répondit depuis le poste de pilotage :
 
-« Quand on arrive au point de jonction, une navette de connexion est en attente.
-Là, on prend la ligne extérieure côté amas stellaire — sur cette ligne, il y aura quelqu'un qu'Elia a placé là. »
+« Au point de jonction, une navette de correspondance nous attend.
+Là, on bascule sur une ligne extérieure vers l'amas, et sur cette ligne il y aura quelqu'un qu'Elia nous a trouvé. »
 
 « Son nom ? »
 
@@ -176,55 +176,140 @@ Là, on prend la ligne extérieure côté amas stellaire — sur cette ligne, il
 
 Seorin claqua la langue.
 
-« Jusqu'au bout, comme ça. »
+« Jusqu'au bout, hein. »
 
-« C'est ce qu'il y a de plus sûr dans ces situations. »
-Yona dit cela posément.
-« Connaître un nom trop tôt, ça donne plus de choses à vendre quand on se fait attraper. »
+« Ici, c'est ce qu'il y a de plus sûr. »
+Yona ajouta d'un ton égal :
+« Quand on connaît un nom trop tôt, on a plus de choses à vendre si on se fait prendre. »
 
-Sion rit doucement.
+Sion eut un petit rire.
 
-« Bien. C'est la deuxième fois aujourd'hui qu'on me parle de ce qu'il y a à vendre. »
+« Deuxième fois aujourd'hui qu'on me parle de ce que j'aurais à vendre. »
 
-« C'est pas une bonne chose. »
+« C'est pas bon signe. »
 
 « Je sais. »
 
-Un bref silence s'installa.
-L'air à l'intérieur s'était un peu allégé depuis tout à l'heure. Pas confortable encore, mais au moins ils avaient dépassé le stade où la respiration de l'autre déclenchait une tension réflexe.
+L'air, à bord, s'était un peu dilué. Ce n'était toujours pas confortable, mais ils avaient au moins passé le stade où la respiration des autres les crispait par réflexe.
 
-Ater regarda une fois la paroi extérieure, sans hublot.
-L'absence de vue sur l'extérieur était plutôt une bonne chose. Ne pas savoir où ils en étaient — c'était étrange comme ça allégeait le poids du choix. Voir la distance à laquelle on pourrait encore faire demi-tour, ça fait vaciller ; mais si on ne voit rien, il n'y a qu'à avancer.
+Ater regarda une fois la paroi extérieure sans hublot.
+Ne pas voir dehors valait plutôt mieux. Ne pas savoir où ils en étaient semblait, étrangement, alléger le poids du choix. Quand on voit la distance qui reste pour faire demi-tour, on vacille ; quand on ne la voit pas, il n'y a plus qu'à avancer.
 
-Sern dit, très bas :
+Sern dit très bas :
 
 « Combien de temps reste-t-il jusqu'au point de jonction ? »
 
-Yona répondit brièvement :
+Yona répondit :
 
-« Deux heures environ. »
+« Deux heures, à peu près. »
 
-Sion s'appuya le dos contre la paroi et dit :
+Sion s'adossa à la paroi et dit :
 
-« Alors reposons-nous un peu.
-De toute façon, à l'arrivée on va encore courir. »
+« Alors on se repose un peu.
+De toute façon, en arrivant, on va encore courir. »
 
-Seorin, pour la première fois, ne réfuta pas.
-À la place, elle appuya l'épaule contre la paroi et ferma les yeux à moitié. Pas vraiment pour dormir. Juste l'habitude de reposer le corps autant que possible quand il le pouvait encore. Mais dans sa tête, elle triait déjà : au prochain point de jonction, qui parlerait en premier, qui couperait, qui devrait reculer pour que les dégâts soient minimes.
+Pour la première fois, Seorin ne le contredit pas.
+Elle appuya plutôt l'épaule contre la paroi et ferma les yeux à moitié. Elle ne dormait pas vraiment. C'était seulement l'habitude de reposer le corps au maximum dès qu'il le pouvait. Mais dans sa tête, elle réglait déjà le prochain point de jonction : qui parlerait en premier, qui couperait, qui reculerait, pour que ce soit le moins désastreux possible.
 
 Ater ferma les yeux aussi.
-Dans l'obscurité, la voix de son père Kairon ne remonta plus.
-À la place, ce qu'il venait de dire lui-même restait dans sa tête.
+Dans le noir, la voix de son père, Kairon, ne remontait plus.
+À sa place, c'étaient ses propres mots, à l'instant, qui lui restaient en tête.
 
-*Si je rentre après avoir vérifié, ça revient à faire comme si ce que j'avais vérifié n'avait pas existé.*
+Si je rentre après avoir vérifié, cela revient à faire comme si ce que j'ai vérifié n'avait jamais existé.
 
-Ces mots avaient été pour Sion — mais en même temps, ils avaient été pour lui-même.
+Ces mots, il les avait adressés à Sion, mais en même temps à lui-même.
 
 Seul Sern gardait les yeux ouverts.
-Il ne dormait pas vraiment — mais dans ce genre de situation, rester éveillé jusqu'au bout avait toujours été sa part.
+Ce n'était pas qu'il ne dormait jamais, mais il savait que, dans ce genre de situation, rester éveillé jusqu'au bout lui revenait toujours.
 
-La navette continua de filer dans l'obscurité.
-La destination était encore loin — mais le chemin du retour l'était déjà davantage.
+Longtemps après, il dit très bas :
+
+« Excellence. »
+
+Ater n'ouvrit pas les yeux.
+
+« Parlez. »
+
+« Ce que je vous ai demandé au dépôt. »
+
+« Quand je suis entré à la Chambre de Reconnaissance. »
+
+« Oui. »
+
+« Vous n'avez pas répondu. »
+
+« Je sais. »
+
+Sern jeta un regard vers l'avant. Les deux autres avaient les yeux fermés. Impossible de savoir s'ils dormaient.
+
+« Me permettez-vous de le dire à votre place ? »
+
+« Faites. »
+
+« L'année où vous êtes entré à la Chambre de Reconnaissance, Excellence, je classais des documents à l'étage inférieur. »
+
+« Je m'en souviens. »
+
+« Je me souviens aussi de qui occupait le siège de juge, cette année-là. »
+
+Ater ouvrit les yeux.
+
+Une secousse plus forte monta dans la coque, puis retomba. À l'avant, pas un bruit.
+
+« Sern. »
+
+« Oui. »
+
+« Arrêtez-vous là. »
+
+« Je me suis arrêté. »
+
+« … Cela veut dire que vous n'avez encore rien dit ? »
+
+« Je n'ai rien dit. » La voix de Sern n'avait pas changé d'un iota. « Et vous non plus, Excellence, vous n'avez rien répondu. »
+
+Un long moment, ni l'un ni l'autre ne parla.
+
+Ce fut Ater qui reprit la parole le premier.
+
+« Sern. Comment appelle-t-on mon père ? »
+
+« Son Excellence Kairon Valkar. »
+
+« Par son titre. »
+
+Sern ne répondit pas tout de suite. Ce n'était pas qu'il ignorait la réponse.
+
+« Juge permanent de la Chambre de Reconnaissance impériale. »
+
+« Oui. » Ater regarda le plafond. « Et je suis son fils, et je poursuis en ce moment une séquence qui a été tranchée depuis son siège. »
+
+Sern ne répondit pas.
+
+« Vous ne répondez pas ? »
+
+« Ce que vous venez de dire, Excellence, ne contenait pas de question. »
+
+Ater garda longtemps cette réponse.
+
+Puis il rit. C'était la première fois qu'il riait de la journée, et cela tenait moins du rire que d'un bref souffle expulsé d'un coup.
+
+« Vous êtes vraiment un homme de la Chambre. »
+
+« Oui. »
+
+« Ce n'était pas un compliment. »
+
+« Je le sais. »
+
+Ater referma les yeux.
+
+Ce n'est pas parce qu'on peut ouvrir qu'on a le droit d'ouvrir.
+
+Son père, quand il prononçait cette phrase, était toujours assis à la place d'où l'on peut ouvrir. Jusqu'ici, Ater n'en avait entendu que la première moitié. Aujourd'hui, pour la première fois, il entendit la seconde.
+
+La navette continua de filer dans le noir.
+La destination était encore loin, mais l'endroit où revenir s'était déjà éloigné davantage.
 
 ---
 

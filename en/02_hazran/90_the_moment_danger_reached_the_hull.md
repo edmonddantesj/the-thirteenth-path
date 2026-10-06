@@ -1,192 +1,257 @@
 # Episode 90. The Moment Danger Reached the Hull
 
-That the last living space was pressed close to the hull
-meant danger could reach there too.
+If the last live space was being pressed up against the hull, it meant danger could reach that far too.
 
-And that moment
-came faster than expected.
+And that moment came sooner than anyone had thought.
 
-After Ater said *they will split into two and tear*,
-the android side's movement truly changed.
+The first thing to change was the air.
 
-No longer pushing a single thick line.
-Instead, touching two narrow corridors almost simultaneously,
-splitting Hazran's attention.
+Sion knew it with his face. The grit that had scraped the back of his throat with every breath until a moment ago was gone. As the heat drained away, the dust that had hung in the air was starting to settle.
 
-Harun read the intent immediately.
+Breathing got easier. The fact that it had gotten easier frightened Sion.
 
-"Left is a feint."
-He said, low.
-"The right is the real entry."
+Ater saw the same thing at the same moment.
+
+"It is settling."
+
+Harun answered without looking back.
+
+"I know."
+
+"Now they can watch both passages at once."
+
+"I know that too."
+
+Sion understood that the two of them had already worked this hour into their reckoning. That morning, when Zahir had asked, Harun had answered: as long as the sun was up, it would keep on; once things cooled, it would settle.
+
+At the time Sion had thought that was talk about a single day.
+
+Looking now, it had been a clock.
+
+The androids really had changed how they moved. Instead of pushing one thick line the way they had before, they touched two narrow passages almost at once and split Hazran's attention between them.
+
+Harun read the intent right away.
+
+"The left is a fake. The right is where they really come in."
 
 Sern shook his head at once.
 
-"Both are real."
+"It is both."
 
 A short silence.
 
-Ater took it immediately.
+Ater picked it up immediately.
 
-"The left is meant to make you cut.
-The right is meant to reach."
+"They want the left cut, and they want the right to reach."
 
-The moment those words fell,
-Sion felt his spine go cold.
+The instant those words fell, Sion felt his spine go cold.
 
-One was bait to tear further at the front line held by Harun, Sern, and Ater.
-The other was the blade meant to actually reach the congestion near the hull in that gap.
+It meant one was bait to tear wider the front that Harun and Sern were holding in their teeth, and the other was a blade meant to slip through that gap and actually reach the crowded line near the hull.
 
-Meaning from now on,
-the front line and the evacuation line get hit at the same time.
+From here on, the front and the evacuation line would be hit at the same time.
 
-Harun didn't even curse.
+Harun didn't even swear.
 
-He immediately raised his hand, pulled the two remaining on the left corridor further back,
-and pressed his own body to the right instead.
+He raised a hand at once, pulled the two still left in the left passage farther back, and put his own body against the right side instead.
 
-"Sern, bind the left for one beat."
-He said.
-"Ater, give me eyes on the right."
+"Sern, tie up the left for one beat."
 
-"Understood."
-"Yes."
+Sern moved.
 
-Both answers were short.
+But Sion saw something in that movement.
 
-From now on, one mistake
-reaches the people directly.
+It was slow.
 
-Nasim looked at the congestion line in front of the hull and his face hardened.
+Not by much. Half a beat, maybe. But Sern had never once been half a beat late until now. It had been days since the blade opened his side, and in all that time it had never shown. Now it showed.
 
-"Get the line down!"
-He shouted.
-"Lower everyone standing!"
+Ater saw it too.
 
-Seorin heard that and immediately bent the row of wounded lower.
-Luhai wrapped his own body over the children's heads.
-Sion, in the middle of the makeshift boarding line, pushed people with his hands to keep them from crowding to one side.
+"Sern."
 
-That instant,
-a metal plate at the end of the right narrow corridor was slashed diagonally and flew.
+"I know."
 
-The sound was short,
-but what followed was too fast.
+"One beat is enough. Do not take two."
 
-A black shape didn't fully push its body inside.
-But exactly one step—
-precisely one step deeper than before.
+"I know."
+
+Sion knew what that short exchange meant. Ater was telling Sern not to hold out long. Because they both knew that if he held out long, he would not come back out.
+
+Sern went in on the left.
+
+He cut once and pulled straight back out. It was precise. Only, once he was out, he leaned his shoulder against the wall. He had not been leaning on it before.
+
+"I bought one beat,"
+he said.
+
+His voice was short too.
+
+And during that one beat, on the right, a metal plate was sliced on a diagonal and sent flying.
+
+The sound was short, but what came after it was too fast.
+
+The black shape didn't push its whole body inside. But it came one step deeper, exactly one step.
 
 That one step was the problem.
 
-Until now, they had been cutting at the enemy outside the defensive line.
-But with that one step,
-danger had entered the air around the people near the hull for the first time.
+Until now they had been cutting them off outside the defense line. With that one step, danger had for the first time come inside the air of the people near the hull.
 
 A child screamed.
 
-At that short sound,
-the congestion before the hull lurched for an instant.
+At that short sound the crowd in front of the hull surged for an instant.
 
-One lurch and it's over.
-Sion knew that in his body first.
+One surge and it was over. Sion knew it with his body first. People pile up, fall, someone gets trampled, and in that moment the boarding line, the evacuation line and the defense line all break together.
 
-People pile up,
-fall,
-someone gets pinned underneath—
-and the boarding line,
-the evacuation line,
-the defensive line all break together.
-
-He shouted almost on reflex.
+He shouted, almost by reflex.
 
 "Don't push!"
 
-It felt like his throat would tear,
-but the sound cut through.
+It felt like his throat would tear, but the sound got through.
 
-Seorin shouted almost at the same time.
+And he didn't know what to do after that.
 
-"Get down!"
+Until now there had always been someone beside him at moments like this. Seorin cut the line, Luhai wrapped himself around a child, Nasim bellowed. Right now all three were somewhere else. The only ones here were Sion, Harun blocking the right, Sern who had barely gotten out of the left, and Ater watching both of them at once.
 
-Luhai pressed the two children flat to the ground and covered them.
-Nasim body-kicked a stretcher that was twisting and shoved it back into the line.
+Sion went into the line.
 
-But at the edge of that chaos,
-one android truly got line of sight to the coupling plate in front of the hull.
+He shoved his body in between the people, caught two shoulders tipping forward with his hands and pressed them back. Then one more. Then one more. He said nothing, just did it with his body. No one would have heard words anyway.
 
-Jiwoo felt her breath stop in that moment.
+When he pushed the fourth person, the person he pushed hit him.
 
-It wasn't just seeing the human line.
-It was seeing the hull's connection point too.
+Because they were afraid. Sion knew that. He was afraid right now too.
 
-She shouted almost on instinct.
+He took the blow and didn't back off. Instead he caught that person's shoulder again and set them back in place.
 
-"Kael, below!"
+The surge stopped.
 
-Kael didn't answer—he kicked the base of the angled coupling plate.
-The metal plate's angle buckled once more,
-deflecting the cutting beam that had just come in so it couldn't scrape the hull's underside.
+Only after it stopped did Sion notice his lip had split.
 
-A sharp grinding sound rang out.
+And he looked at the faces of the people he had just pushed back into place.
 
-A moment later,
-and the hull's outer wall and the boarding line would have been scored together.
+All four were looking at him. Some faces were angry, some were sorry, and one was no face at all. One of them was the person who had hit him.
 
-Jiwoo clenched her jaw.
+That person opened their mouth, then closed it.
 
-"One more hit and it actually connects."
+Sion said nothing either.
 
-Aka spoke, very low.
+Here, saying sorry eats time. Same reason you tell a child to look only ahead. Start talking and the line stops, and once the line stops, what he had just set up falls apart again.
 
-"Then push now."
+Sion gave that person's shoulder one light pat and moved past. That was all he could do.
 
-"Push what."
+"Are you all right?"
+Ater asked, his eyes never leaving the right passage.
 
-"People."
-Aka said.
-"Pull them away from the ship."
+"I'm fine."
 
-She was right.
+"Where words cannot get through, that is the right thing."
 
-The hull's side was the last living space,
-but if too many pressed against it, it became a target itself.
-Then even here,
-they'd have to create distance to survive.
+"What is?"
 
-Zahir heard that and made his decision immediately.
+"Holding them up with your body,"
+Ater said.
+"In the Empire, too, that is what we do at the very end."
 
-"Board the first group."
-He said, low.
-"Don't leave anyone standing."
+Sion didn't know whether that was comfort or not.
 
-The moment that order fell,
-the air inside Hazran flipped again.
+In the meantime, on the right, Harun pushed the one step back out. He couldn't push it all the way out. He pushed back only half a step, and the other half stayed where it was.
 
-No more time to wait and organize.
-Now that danger had reached the hull,
-anyone ready had to be loaded and pulled away immediately.
+"One step has become half a step,"
+Ater said.
 
-Nasim shouted in his cracked voice.
+"Half a step is still inside,"
+Harun answered.
 
-"First group, move!"
+That was true. Before today, inside had been inside. Now the outside had come in by half a step, and that half step was not going back out.
 
-Luhai pushed the children.
-Seorin grabbed a stretcher herself and pulled.
-Sion herded the stumbling people toward the hull's ramp.
-Jiwoo braced one hand against the hull's outer wall,
-gauging to the very end whether it would really hold.
+For the first time, Harun looked back.
 
-Harun kept his back to all of it
-and stood to push that one real step back out through the right corridor.
+"How many can you load right now?"
 
-The battle was clear now.
+"Seven, seven, six,"
+Sion answered.
+"Twenty a run."
 
-Danger had reached the hull.
-So there was no more waiting.
+"Time?"
 
-Hazran was now
-truly beginning to pull people away
-from its last living space.
+"She says each run takes ten seconds longer."
+
+Harun held those ten seconds and calculated for a moment. Even while he calculated, his eyes stayed on the right.
+
+"Then load them now."
+
+"Now?"
+
+"Half a step got in, didn't it."
+
+Sion knew what that meant. Until now, keeping people gathered had been the safe thing. With half a step inside, being gathered had become the most dangerous thing. The other side had already seen them crowded together.
+
+"But the barrier still—"
+
+"I'll watch the barrier,"
+Harun said.
+"You go tell them to load."
+
+"And you?"
+
+"As long as I'm here, it doesn't get past half a step."
+
+Sion believed him. Because he believed him, he hated it more.
+
+"How long can you stand there?"
+
+Instead of answering, Harun looked at Ater.
+
+Ater answered for him.
+
+"Until the dust has all settled."
+
+"When is that?"
+
+"I do not know,"
+Ater said.
+"But right now is when there is the most of it left."
+
+Sion held on to that sentence for a long time.
+
+Right now is when there is the most of it left. That meant from here on it would only keep shrinking. The one weapon Hazran had won by cutting out its own heart was disappearing at the speed of the setting sun.
+
+Sern took his shoulder off the wall.
+
+"I can go in once more."
+
+"You're not going in,"
+Harun said.
+
+"I can buy one more beat."
+
+"If you don't come out in that one beat, we lose the next ten."
+
+Sern didn't argue. Instead he looked at Ater, very briefly, and Ater said nothing. That silence was agreement.
+
+Before turning away, Sion asked once more.
+
+"Can you load all eleven runs?"
+
+This time Harun answered right away.
+
+"Don't know."
+
+"Then how many?"
+
+"Don't know that either,"
+Harun said.
+"But I know one thing."
+
+"What?"
+
+"If you don't load them now, eleven is definitely not happening."
+
+Sion heard that and ran.
+
+As he ran he heard the sounds behind him. Metal scraped again in the right passage, Harun was still there, and half a step was still half a step.
+
+The dust kept settling.
+
+Sion didn't look at the sky. He didn't look because he thought if he did, he would know how much was left.
 
 ---
 

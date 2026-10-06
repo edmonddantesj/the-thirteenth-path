@@ -1,174 +1,268 @@
 # Chapitre 87 — Le combat ne consistait plus à tenir
 
-Après que Zahir eut dit *maintenant nous nous battons pour les envoyer*, l'air à l'intérieur de Hazran changea nettement.
+C'était le même champ de bataille, mais les corps ne se déplaçaient plus dans la même direction.
 
-Même champ de bataille, mais la direction dans laquelle les corps se déplaçaient avait changé.
+Jusque-là, c'étaient des mains qui arrêtaient ce qui déferlait. Désormais, elles devenaient des mains qui calculaient quoi relier, jusqu'où, pour tirer qui des profondeurs de la ville vers l'extérieur.
 
-Jusqu'alors, les mains servaient à bloquer ce qui poussait. Désormais, elles devinrent des mains qui calculaient quoi relier, jusqu'où, pour tirer quelqu'un du plus profond de la ville vers l'autre côté.
+Un combat pour tenir et un combat pour faire partir se ressemblent, mais au-dedans ils n'ont rien de commun. Le premier consiste à s'agripper à une ligne ; le second, à l'abandonner pour ouvrir un chemin.
 
-Un combat pour tenir et un combat pour évacuer se ressemblent, mais au-dedans tout est différent.
+Haroun fit passer cette différence dans son corps plus vite que personne.
 
-Le premier consiste à agripper une ligne. Le second, à en abandonner une tout en traçant un chemin.
+Il jeta un nouveau regard sur le couloir du premier rang qu'il venait de dresser, puis fit reculer trois habitants de Hazran.
 
-Haroun grava cette différence dans son corps plus vite que quiconque.
+« Là, vous videz. »
+Il avait parlé bas.
+« Ce côté-là ne sert plus à bloquer. »
 
-Il regarda à nouveau la première ligne du couloir, puis fit immédiatement reculer trois Hazran.
+Un tireur, surpris, demanda :
 
-« Laissez-le vide, » dit-il à voix basse. « Ce côté ne sert plus à bloquer. »
-
-Un tireur demanda, surpris :
-
-« Alors ça s'ouvre en grand ? »
+« Mais alors ça s'ouvre tout de suite. »
 
 « Je sais. »
-
 Haroun lui coupa la parole.
+« Laissez-le s'ouvrir, et rabattez-les ici à la place. »
 
-« Laissez-le s'ouvrir. Dirigez-les plutôt ici. »
+Ce qu'il désignait, c'était un couloir latéral qui ne menait pas directement à la section de coque. Étroit, coudé deux fois, avec la charpente des tentes en haut et des plaques de métal basses qui se chevauchaient : un chemin où l'ennemi, une fois entré, aurait du mal à prendre de la vitesse.
 
-Ce qu'il désignait était un couloir latéral sans accès direct à la section de coque. Étroit. Deux virages. La charpente de toile et les plaques métalliques basses y étaient si denses que tout ennemi y pénétrant aurait du mal à prendre de la vitesse.
-
-Hazran ne bloquait plus l'ennemi. On était entré dans la phase où l'on décidait *par où le laisser entrer*.
+Hazran n'en était plus à arrêter l'ennemi. La ville entrait dans le moment où l'on décidait par où le laisser entrer.
 
 En voyant cela, Sion sentit un froid lui traverser la poitrine.
 
-C'était une défense plus habile. Mais elle ne fonctionnait que si quelqu'un se tenait au bout de cet appât.
+C'était une défense plus habile. Mais c'était aussi une défense qui n'existait que si quelqu'un se tenait au bout de l'appât.
 
-Et celui qui s'y tenait en premier, comme si c'était une évidence, c'était Haroun.
+Et le premier à prendre cette place, comme si cela allait de soi, c'était Haroun.
 
 Seorin le vit aussi.
 
-Elle serra la mâchoire et lâcha :
+« Il le fait vraiment jusqu'au bout, ce truc. »
 
-« Il fait vraiment ça jusqu'au bout. »
+Sion ne répondit pas. Il détestait cela, et il détestait plus encore que ce fût le bon choix.
 
-Sion ne répondit pas.
+Haroun ne garda que deux hommes à ses côtés et fit reculer tous les autres. Au bout du couloir qu'il avait vidé exprès, il y avait deux sacs de sable bas, une plaque de métal et une charpente de tente renversée en travers. Pas une structure pour bloquer : une structure pour casser une fois l'élan de ce qui entrait et l'obliger à choisir une direction.
 
-Il détestait cela. Plus encore, il détestait que ce fût la bonne décision.
+Il parla bas aux gens de Hazran.
 
-Nassim réorganisa le flux humain.
+« Quand je les fais dévier, là, vous tirez. »
 
-« Les enfants plus à l'intérieur en premier. »
+« On ne peut pas tirer avant ? »
+C'était l'homme à côté de lui.
 
-« Déposez toutes les marchandises maintenant, pour de vrai. »
+Haroun répondit sans détourner les yeux.
 
-« Un couloir traversé une fois ne sert plus à rien ! »
+« Si on tire avant, ils trouvent un autre chemin. »
 
-Sa voix était déjà presque brisée, mais il continuait de crier. Parce qu'il devait forcer davantage avant que les gens ne s'habituent à la peur.
+C'était exact. Ce qu'il fallait maintenant, ce n'était pas effrayer l'ennemi, c'était le tromper pour qu'il entre par le chemin qu'on voulait.
 
-Luhai comptait les têtes malgré tout.
+À cet instant, au loin, le bruit du métal qu'on déchire retentit de nouveau.
 
-Combien étaient entrés à l'intérieur. Qui manquait toujours. Qui était ressorti d'une file déjà passée.
+Cette fois, ce n'était plus comme avant. Pas un bruit qui poussait en ligne droite, mais plusieurs branches qui éprouvaient en même temps, chacune sous un angle différent, les murs, les tentes et les charpentes.
 
-Pas le genre dont les mains ralentissent sous la peur — le genre dont les yeux s'accélèrent.
+Ater comprit aussitôt.
 
-Il cria d'une voix contenue :
+« Ils cherchent. »
+Il avait parlé bas.
+« Pas une ligne droite. Un chemin vide. »
 
-« Il en reste deux! »
+« Alors il faut n'en laisser qu'un seul. »
+C'était Haroun.
 
-Nassim prit aussitôt le relais.
+« Cela aussi, ils le savent. »
+Ater poursuivit :
+« S'il n'y a qu'un seul chemin vide, ils comptent aussi qu'il s'agit d'un appât. »
 
-« Où. »
+Pour la première fois, Haroun tourna les yeux vers Ater.
 
-« Derrière la tente tournante, côté nord! »
+« Et l'Empire, comment il fait ? »
 
-Sion courut dès qu'il l'entendit. Seorin le suivit.
+« Il en laisse deux. »
+Ater répondit, puis ajouta :
+« Et l'un des deux, on le vide pour de vrai. »
 
-À présent, c'était presque naturel. Sans que personne ne le dise, tous deux tournèrent leur corps dans la même direction, au même rythme.
+« Si on le vide pour de vrai, il cède. »
 
-Derrière la tente tournante du côté nord restaient un jeune homme blessé et une femme qui le soutenait. Le jeune homme ne parvenait pas à poser correctement sa jambe. Le visage de la femme était ravagé — elle avait déjà pleuré.
+« Oui. C'est pourquoi on n'y met personne. »
 
-Sion passa aussitôt le bras du jeune homme autour de son épaule.
+Haroun resta un moment sans rien dire.
+
+« Et ceux qui entrent par là ? »
+
+« On les reçoit à l'intérieur. Tard, dans un endroit étroit. »
+
+Sion comprit de quoi les deux hommes étaient en train de parler. Ater proposait d'ouvrir un couloir de plus, où l'on ne posterait personne. Ce qui entrerait par là ne serait arrêté par personne et irait jusqu'à l'intérieur. En échange, on l'enfermerait à l'intérieur dans un endroit étroit pour s'en occuper.
+
+« Mais alors il faut quelqu'un à l'intérieur. »
+C'était Sion.
+
+Ater ne le nia pas.
+
+« Oui. »
+
+« Ça veut dire un appât de plus, non ? »
+
+« Pas un appât. Un poste où on les reçoit. »
+
+« Il n'y a que le nom qui change. »
+
+Cette fois, Ater ne répondit pas tout de suite. Et sans avoir répondu, il regarda Haroun.
+
+Haroun parla brièvement.
+
+« On le fait. »
+
+« Haroun. »
+Pour la première fois, Seorin l'appelait par son nom.
+
+« Quoi ? »
+
+« Ce deuxième poste, qui s'y tient ? »
+
+Au lieu de répondre, Haroun jeta un regard vers le fond du couloir. Sion vit où ce regard était allé, et parce qu'il l'avait vu, il ne put rien dire de plus.
+
+C'était le chemin par lequel Sion et Seorin ne cessaient de passer en faisant sortir les gens.
+
+« S'il y a des gens qui passent, c'est ça, le poste où on les reçoit. »
+Haroun poursuivit :
+« Je n'ai personne d'autre à y mettre. »
+
+Seorin resta longtemps sans rien dire.
+
+« Alors préviens-nous au moins avant. »
+Elle avait fini par parler.
+
+« Je viens de le faire. »
+
+« Tu appelles ça prévenir ? »
+
+« Ici, ça s'appelle prévenir. »
+
+Seorin fit claquer sa langue. Mais elle n'insista pas davantage. Elle savait qu'il n'y avait pas de quoi insister.
+
+En écoutant cet échange, Sion comprit que la bataille venait encore une fois de changer de nature.
+
+Tant que c'était un combat pour tenir, chacun avait sa place. L'avant était l'avant et l'arrière était l'arrière. Depuis que c'était devenu un combat pour faire partir, il n'y avait plus d'arrière. Le chemin par lequel on faisait sortir les gens était devenu celui par lequel l'ennemi entrait.
+
+« Il en reste deux ! »
+
+La voix venait du nord. Sion courait déjà dans cette direction, Seorin un demi-pas derrière lui.
+
+Derrière la tente du coude nord restaient un jeune homme blessé et une femme qui le soutenait. Le jeune homme n'arrivait pas à poser correctement sa jambe, et la femme avait le visage défait, comme si elle avait déjà pleuré une fois.
+
+Sion passa aussitôt le bras du jeune homme par-dessus son épaule.
 
 « Allons-y. »
 
 La femme demanda d'une voix tremblante :
 
-« On vivra, si on entre à l'intérieur ? »
+« Si on va à l'intérieur, on vivra ? »
 
-La question venait trop tard et était trop sincère. Pendant un instant, aucune réponse ne vint.
+La question venait trop tard et elle était trop honnête ; pendant un instant, la réponse resta coincée.
 
-Seorin trancha à sa place :
+Seorin trancha à sa place.
 
-« Reste ici et tu mourras plus vite. »
+« Si tu restes ici, tu mourras plus vite. »
 
-Des paroles cruelles. Mais dans cette situation, rien n'était plus juste.
+C'étaient des mots cruels. Mais dans cette situation, il n'y en avait pas de plus justes.
 
 La femme se mordit la lèvre et hocha la tête.
 
-À cet instant, le bruit du métal déchiré retentit de nouveau au loin.
+En revenant après avoir poussé les trois à l'intérieur, Sion regarda de nouveau le couloir qu'il venait de traverser.
 
-Cette fois, c'était différent.
+Tout à l'heure encore, c'était le chemin par lequel on faisait sortir les gens. Maintenant, le bout de ce chemin était ouvert, et personne ne s'y tenait.
 
-Non plus un bruit qui avançait en ligne droite, mais plusieurs embranchements testant simultanément les murs, les tentes et les charpentes sous différents angles.
+On l'avait vidé pour qu'ils entrent.
 
-Ater comprit immédiatement.
+Et à ce moment-là, ils entrèrent.
 
-« Ils cherchent, » dit-il à voix basse. « Pas un chemin droit. Un vide. »
+Le premier bruit ne fut pas fort. C'était quelque chose qui se prenait dans la charpente d'étal que Haroun avait couchée. Pas quelque chose qui avait voulu l'enjamber : quelque chose qui poussait droit devant et s'était accroché une fois, à hauteur de genou.
 
-Sern prit aussitôt le relais.
+Sion se plaqua contre le mur.
 
-« Alors nous devons d'abord leur en montrer un. »
+Un deuxième. Un troisième. Ils ne passaient pas par-dessus, ils entraient en basculant comme poussés. Comme l'avait dit Haroun, ce qui passait par-dessus avait le haut à découvert. Deux brèves détonations claquèrent dans le couloir latéral, et deux d'entre eux furent plaqués tels quels au sol du couloir.
 
-Haroun fit un bref signe de tête.
+À partir du quatrième, plus rien ne s'accrocha.
 
-« Je me lèverai. »
+C'est cela qui effraya Sion. Si trois s'accrochaient et qu'à partir du quatrième plus aucun ne s'accrochait, cela voulait dire qu'ils venaient d'intégrer cette hauteur à leurs calculs.
 
-Ces mots étaient si naturels qu'ils en devenaient grinçants.
+« Déviez-les ! »
 
-Seorin détourna le regard et serra la mâchoire.
+C'était la voix de Haroun.
 
-« Bien sûr qu'il le fait. »
+Un souffle de vent passa entre les plaques de métal au fond du couloir. La poussière gris-brun qui ne cessait d'arriver de la ligne centrale effondrée se souleva d'un coup dans cet endroit étroit.
 
-Mais elle ne put ajouter un juron. Parce que personne ici n'aurait su dire qui d'autre pouvait prendre cette place.
+À cet instant, Sion vit pour la première fois ce qui arrivait aux rangs d'androïdes.
 
-Haroun ne garda que deux personnes à ses côtés et renvoya les autres. Au bout du couloir qu'il avait délibérément vidé se trouvaient deux sacs de sable bas, une plaque de métal et une charpente de tente tombée en travers. Non pas une structure pour bloquer — une structure pour casser la vitesse de ce qui entrait et en fixer la direction.
+Ils ne s'arrêtèrent pas. Ils ne ralentirent pas non plus. Les trois du premier rang se décalèrent d'un demi-empan les uns par rapport aux autres. Jusque-là, leurs intervalles avaient été exacts. Même quand un rang tombait, le rang suivant se reformait à intervalles identiques. Mais dans la poussière, cet intervalle exact se faussa d'un demi-empan.
 
-Il parla bas aux hommes de Hazran.
+Les tirs de Hazran passèrent dans ce demi-empan.
 
-« Quand je les plie, c'est à ce moment-là que tu tires. »
+Sion laissa échapper son souffle sans s'en rendre compte.
 
-« On ne peut pas tirer en premier ? » demanda l'homme à côté de lui.
+Ça avait marché.
 
-Haroun répondit sans détourner le regard.
+« Je l'avais dit : une fois, ça tiendra. »
+Haroun avait parlé bas.
+« La voilà, cette fois. »
 
-« Tire en premier et ils trouveront un autre chemin. »
+Et aussitôt il se retira. Il avait gagné, et il reculait. En le voyant, Sion comprit. Dès qu'il l'avait dressée, cet homme savait que cette barricade ne marcherait plus à partir de la deuxième fois, et il avait seulement décidé à quoi servirait la première.
 
-Exact.
+Sion voulait savoir combien valait cette fois-là.
 
-Parce que l'enjeu n'était plus d'effrayer l'ennemi. C'était de l'inciter à suivre le chemin qu'on avait choisi pour lui.
+« Ça nous a rapporté combien ? »
 
-Dans la section intérieure, Jiwoo finit par poser un outil.
+Tout en se repliant, Haroun répondit quand même.
 
-Pas une réparation complète. Mais ce n'était plus seulement une *masse sur le point de se briser*. Le cadre de réception tenait bon. Le joint semblait pouvoir encaisser au moins une forte vibration.
+« Une file. »
 
-Aka regarda vers l'extérieur et parla très bas.
+« Une file, c'est-à-dire ? »
 
-« Ça peut bouger, maintenant. »
+« Vingt. »
 
-Jiwoo l'entendit, mais ne parvint pas à sourire.
+Sion resta un instant figé sur place.
 
-« Nous devons d'abord y arriver vivants. »
+Trois accrochés, deux plaqués au sol, un premier rang de trois décalé d'un demi-empan : le prix de tout cela, c'était vingt personnes. Et pour faire passer ces vingt-là, Haroun avait usé d'un coup toute une barricade à trois rangs.
 
-C'était le problème de tous, en ce moment.
+Le temps de faire passer une file valait une barricade.
 
-Même si le vaisseau reprenait vie, il serait inutile sans un chemin pour y amener les gens.
+Pour la première fois, Sion connaissait le taux de change.
 
-Zahir écoutait tout cela.
+Une file, c'était vingt, et vingt, c'était une fois. Donc, pendant que le vaisseau décollerait onze fois, il faudrait aussi onze barricades.
 
-Et finalement, d'une voix très calme, il prononça :
+« Alors pour faire passer onze files ? »
 
-« Dès que le côté coque est prêt, » dit-il, « nous commençons à tirer les gens de l'intérieur. »
+« Il faut onze barricades. »
+C'était Haroun.
 
-Sion entendit cela et comprit aussitôt.
+« Il y en a onze ? »
 
-Désormais, ce combat ne portait plus sur le temps qu'on pouvait protéger quelqu'un. C'était un calcul : qui envoyer en premier, et qui resterait jusqu'à la fin pour gagner du temps.
+Haroun ne répondit pas.
 
-Hazran ne s'était pas encore effondré.
+Sion comprit que ce silence était la réponse. Cette ville faisait ses barricades en déplaçant ce qui s'était effondré. Il restait encore des choses effondrées, donc on pouvait en faire. Seulement, en face, on ne se laissait jamais tromper deux fois par la même forme.
 
-Mais déjà, on décidait qui envoyer avant que tout ne cède.
+« Et la prochaine, vous la faites avec quoi ? »
 
-Cette bataille n'était donc plus un combat pour tenir.
+« La prochaine, avec autre chose. »
+Haroun poursuivit :
+« Et celle d'après, avec encore autre chose. »
+
+« Ça peut aller jusqu'à combien ? »
+
+Pour la première fois, Haroun regarda Sion.
+
+« Tu es en train de compter, là ? »
+
+« Depuis tout à l'heure. »
+
+« Ne compte pas. »
+
+« Pourquoi ? »
+
+« Si tu comptes, tu sauras aussi quand vient la dernière fois. »
+
+Sur ces mots, Haroun repartit vers l'avant. Sion regarda ce dos, et il comprit aussi que cet homme avait déjà calculé que la dernière fois serait sa place à lui.
+
+Sion s'arrêta un instant devant lui, puis passa son chemin et alla appeler la personne suivante.
+
+Passer par là voulait désormais dire les recevoir, mais pour l'instant, il n'y avait rien d'autre à faire.
 
 ---
 

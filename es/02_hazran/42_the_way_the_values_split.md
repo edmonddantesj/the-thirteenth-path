@@ -2,25 +2,17 @@
 
 Después de que cayera la palabra «separar», el aire del interior se volvió, al contrario, aún más silencioso.
 
-Sion sintió que ese breve silencio era distinto de una simple espera. No era que alguien hubiera decidido y los demás callaran para obedecer. Era el silencio de quienes tenían que recalcularlo todo de nuevo: qué dejar en manos de quién, qué apartar y a qué distancia, y quién, entre ellos, sería el primero en pagar el precio equivocado.
+Sion sintió que ese breve silencio era distinto de una simple espera. No era que alguien hubiera decidido y los demás callaran para obedecer. Era un silencio en el que había que volver a calcularlo todo: qué dejar en manos de quién, qué apartar y a cuánta distancia.
 
-Harún seguía de pie cerca de la entrada, y Nasim, aun con la cara sonriente, observaba cada vez más a menudo los movimientos de las manos de la gente de dentro. Nahira fingía no mirar a Aka, pero en realidad parecía la primera en haber captado cómo había cambiado el aire entero del interior después de las palabras de Aka.
+Seorin fue la primera en hablar.
 
-Luhai, por primera vez, aflojó un poco la presa sobre la eterita que tenía en la mano. Hasta hace poco su cara decía que perderla sería el fin; ahora era el rostro de alguien que había comprendido que esto ya no era un simple objeto robado, sino que se había metido dentro de una partida demasiado grande. Kael leyó ese cambio y aun así no soltó la mano del todo. Lo justo para impedir la fuga, pero sin apretar más de lo necesario. Una mano que ataba solo hasta el umbral de la incomodidad.
+—¿Cómo lo van a repartir?
 
-A Sion le vino de pronto Han Jiwoo a la cabeza.
-
-Mientras en el fondo de este desierto se separaban los valores entre las imitaciones de puertas, los fragmentos verdaderos y los nombres, el barco que había quedado afuera, en el punto del aterrizaje forzoso, seguramente seguía al borde de la muerte. Habían entrado a buscar eterita, y ahora ni siquiera esa única eterita podía comprarse y llevarse afuera sin más. La tarea de encontrar el nombre y la de salvar el barco se habían atado más fuerte en una sola línea.
-
-Seorin habló la primera.
-
-—¿Cómo piensas repartirlo?
-
-Harún respondió breve.
+Harún respondió con brevedad.
 
 —El fragmento, allá.
 
-Con un gesto del mentón, señaló el interior de la chaqueta de Kael.
+Señaló con el mentón lo que Kael llevaba contra el pecho.
 
 —La eterita, aquí.
 
@@ -28,7 +20,7 @@ Esta vez señaló la mano de Luhai.
 
 —La conversación, aparte.
 
-Esas palabras significaban, al final, que también iban a separar a las personas.
+Eso quería decir, al final, que también iban a separar a las personas.
 
 Sion preguntó enseguida.
 
@@ -36,148 +28,249 @@ Sion preguntó enseguida.
 
 Nasim sonrió con suavidad.
 
-—Buena pregunta —dijo—. Pero en Hazran siempre se cortan primero las cosas, y la gente viene detrás.
+—En Hazran siempre se cortan primero las cosas, y la gente viene detrás.
 
-—No somos cosas —dijo Sion en voz baja.
+—No somos cosas.
+Sion lo dijo en voz baja.
 
-—Eso es lo que dices tú —respondió Nasim—. Aquí dentro, todo es todavía un precio.
+—Eso lo dices tú.
+Así respondió Nasim.
+—Aquí dentro, todavía todo es precio.
 
-La frase era desagradable, pero no estaba equivocada. Al menos no dentro del orden que regía aquí.
+La frase era desagradable, pero no era falsa. Al menos, dentro del orden de este interior.
 
-Ater dijo con calma.
+Ater habló con calma.
 
-—Lo que Aka describió se acerca a una resonancia. Si lo que quiere decir es que hay que alejarlos uno de otro para que el próximo veredicto sea posible, entonces, como mínimo, no se los puede tener en el mismo espacio.
+—Lo que Aka describió se parece a una vibración por simpatía. Si quiere decir que hay que mantener los dos objetos separados para que el siguiente veredicto sea posible, no deben seguir en el mismo espacio.
 
-Harún recogió esas palabras.
+—Por eso se corta.
+Lo dijo Harún.
 
-—Por eso se cortan.
+Seorin respondió todavía más bajo.
 
-Seorin dijo más bajo aún.
-
-—Lo que no podemos creer es la mano que corta.
-
-Nasim sonrió de inmediato.
-
-—Bien. Ahora sí estamos hablando.
-
-Esta vez ese «bien» no sonó forzado en boca de Nasim. Menos una réplica afilada que la satisfacción superficial de un cálculo que cuadra.
-
-Nahira cortó el silencio entre ellos en voz baja.
-
-—No los pongas en la misma sala —dijo—. Eso es lo que quería decir Aka. Si lo dejas resonar aquí más tiempo, ella ya no verá nada, y ustedes tampoco.
-
-Sion se detuvo un instante cuando ella dijo «ella».
-
-Llamar así a Aka en vez de por su nombre no era rebajarla; era más bien la manera en que la gente de dentro trataba a Aka. Una forma de no dejar filtrar el nombre afuera, designándola al mismo tiempo por la distancia que ya hacía tiempo habían establecido entre ellos.
-
-Luhai, por primera vez, hizo una pregunta donde la inquietud verdadera había reemplazado al simple descontento.
-
-—¿Entonces me la quitan?
-
-Harún no respondió.
-
-En su lugar, Nasim recogió esas palabras a la ligera.
-
-—Si buscamos un término menos bonito que quitar, se podría decir: la confiamos un rato.
-
-—Eso es todavía más sospechoso —replicó Luhai al instante.
-
-Nasim se rió.
-
-—Tu lengua es de veras un desperdicio.
-
-Kael masculló al lado.
-
-—Justo estaba pensando lo mismo.
-
-Luhai lo oyó y le lanzó una mirada de reojo. En la cara, primero el fastidio, y sin embargo menos hostil que antes. A pesar de ser la mano que lo había frenado primero, parecía haber sentido por instinto que esa forma de retenerlo no era la de alguien dispuesto a venderlo.
-
-Sion, observando ese cambio, volvió a preguntarse por qué Kael se había lanzado sobre Luhai el primero. Menos simple compasión que, quizá, el olor de una traza parecida a la suya. El olor de un crío que, a fuerza de intentar salir solo, había acabado por usar las manos antes que nada. Aún no era el momento de ponerlo en palabras, pero en la escena quedaba sin duda presente.
-
-Con un gesto muy breve de Harún, dos personas de dentro se movieron en silencio. Una se colocó del lado de Luhai, la otra cerca de Kael. No apuntaban abiertamente con armas, pero la posición bastaba para hacer comprender que, más allá de ese punto, ya no se elegiría la propia distancia por simple voluntad.
-
-Seorin lo vio y preguntó.
-
-—Nos van a separar.
-
-—Un rato —dijo Harún—. Lo que haga falta.
-
-—Esa frase es la que menos me creo.
-Sion masculló.
+—Lo que pasa es que no nos fiamos de la mano que corta.
 
 Nasim sonrió.
 
+—Pues mídanlo.
+
+Aquello no era una burla.
+
+Nahira apartó el borde de la lona interior.
+
+Detrás no había una sala, sino un pasillo. Era estrecho, con el suelo cubierto de placas de metal, y en las paredes de ambos lados había unas muescas cortas abiertas a intervalos regulares. Las muescas tenían la profundidad de unas dos falanges, y había una por cada paso de una persona.
+
+Sion no supo enseguida qué era.
+
+Luhai sí.
+
+—Es un pasillo de medir.
+
+—Lo conoces.
+Eso dijo Nahira.
+
+—Es la primera vez que veo uno en uso.
+
+Luhai contó las muescas con los ojos y siguió.
+
+—Aquí la gente no pone juntas dos cosas de mucho precio. Se rebajan el precio la una a la otra. Por eso miden cuántos pasos hay que separarlas para que no se rebajen. Ese número de pasos es el precio de la cosa.
+
+Al oírlo, Sion entendió por primera vez cómo trataba esta ciudad los veredictos de Aka. Aquí la vibración por simpatía no era ningún misterio. Era una distancia que se contaba en pasos.
+
+Ater bajó la vista hacia una de las muescas.
+
+—¿Quién estableció esto?
+
+—Nadie lo estableció.
+Eso dijo Nahira.
+—Alguien las cavó, eso sí.
+
+—¿Y el registro?
+
+Nahira miró la pregunta un momento como si fuera rara.
+
+—Las muescas son el registro.
+
+En lugar de rebatir esa respuesta, Ater recorrió con los ojos, hasta el final, las muescas abiertas a lo largo de la pared. Unas eran hondas y otras poco profundas. Las que más se habían tocado estaban más gastadas.
+
+Sion creyó saber lo que pensaba Ater. El Imperio habría hecho de esto un documento. Cuántos pasos hacían falta, quién lo había juzgado así, quién había aprobado ese juicio. Habrían salido unas tres hojas, y esas hojas podían haberse borrado.
+
+Aquí estaba cavado en la pared. Para borrarlo, había que romper la pared.
+
+—Resulta incómodo.
+Ater lo dijo al fin.
+
+—¿Por qué?
+
+—Porque es correcto y no es de nadie.
+
+Nahira miró a Aka.
+
+—¿Cuántos?
+
+Aka miró una vez hacia el fondo del pasillo. Luego giró un poco la cabeza hacia el pecho de Kael y miró la mano de Luhai.
+
+—Doce.
+
+La mano de Nahira se detuvo un momento.
+
+—¿Doce?
+
+—Sí.
+
+—Aquí las muescas llegan hasta nueve.
+
+—Entonces no alcanza.
+
+Por primera vez se oyó un sonido entre la gente de dentro. Un sonido pequeño. Alguien soltó el aire de golpe, alguien miró a quien tenía al lado. Nada más, pero Sion entendió lo que significaba esa reacción.
+
+Este pasillo se había cavado para soportar hasta la cosa de mayor precio que Hazran había manejado jamás.
+
+Y ahora no alcanzaba.
+
+Esta vez, en lugar de sonreír, Nasim chasqueó la lengua muy brevemente.
+
+—Nueve era lo máximo.
+Eso dijo él.
+—¿Saben cuándo fue?
+
+Nadie preguntó.
+
+—El año en que llegué aquí.
+
+Solo después de eso volvió a sonreír. Una sonrisa más fina que antes.
+
+Harún dio por primera vez un paso fuera de su sitio.
+
+—Quiere decir que hay que sacarlo hasta afuera.
+
+—No.
+Lo dijo Aka.
+—Afuera hay más ruido.
+
+—¿Entonces adónde?
+
+Aka, en lugar de responder, miró al otro lado del pasillo, hacia una lona que nadie había abierto aún.
+
+Nahira siguió esa mirada y negó con la cabeza, muy brevemente.
+
+—Ahí no.
+
+—El único sitio donde llegan los doce es ese.
+
+—He dicho que ahí no.
+
+Las voces de las dos se superpusieron por primera vez. Era la primera vez que Nahira le cerraba el paso a Aka. En esa breve superposición, Sion supo que aquí dentro había todavía un sitio sin abrir. Y que ese sitio no lo guardaban ni Harún ni Nasim, sino Nahira.
+
+Quien cortó el silencio fue Kael.
+
+—Salgo yo.
+
+Todos miraron hacia él.
+
+—Voy con el fragmento hasta el nueve.
+Eso dijo él.
+—Los otros tres los gano yo caminando, ¿no? Tres pasos fuera del pasillo.
+
+Nasim recortó un poco la sonrisa.
+
+—Afuera no llegan nuestras manos.
+
+—Por eso salgo yo.
+
+Al oírlo, Sion volvió a mirar a Kael.
+
+Este hombre acababa de decir que se pondría a sí mismo en el sitio más peligroso. Dentro del pasillo era un sitio que Hazran custodiaba; tres pasos afuera, un sitio que no custodiaba nadie. Pero era también el sitio donde el fragmento no pasaba a manos de otro.
+
+Luhai fue el primero en darse cuenta.
+
+—Ese lo hace para no soltar el fragmento.
+
+Kael no lo negó.
+
+—Sí.
+
+—Qué fastidio que sea tan honesto.
+
+Nahira volvió a mirar a Aka.
+
+—¿Así sirve?
+
+Aka miró a Kael un buen rato. No eran ojos que miraran a una persona, sino ojos que medían cómo sonaba, a esa distancia, lo que aquel hombre llevaba en la mano.
+
+—Con doce, sí.
+Eso dijo ella.
+—Pero si se acorta uno solo, se vuelve a mezclar.
+
+—Pues que no se acorte.
+Lo dijo Luhai.
+
+Esta vez Aka miró a Luhai.
+
+—Si tú no te mueves, no se acorta.
+
+Luhai cerró la boca un momento. Era la cara de quien acaba de entender por qué lo que tiene en la mano decide su propio sitio.
+
+Harún hizo un breve gesto a dos personas de dentro. Una se colocó del lado de Kael y la otra del lado de Luhai. No les apuntaban abiertamente con armas, pero la posición bastaba para dejar claro que, a partir de ahí, ya no podrían decidir la distancia solo por su propia voluntad.
+
+Seorin lo vio y preguntó.
+
+—O sea, que nos van a separar.
+
+—Un momento.
+Eso dijo Harún.
+—Solo durante doce.
+
+—Eso es lo que menos me creo.
+Sion lo masculló.
+
 —Ya te dije que la confianza es cara.
+Lo dijo Nasim.
 
-Las palabras seguían siendo odiosas, pero, por extraño que pareciera, ahora sonaban como la ley de todo este lugar. En Hazran lo verdadero escasea, todo lleva un precio, abunda lo falso, y la confianza llega la última. Visto así, este proceso, según los usos de este sitio, podía ser un paso perfectamente natural.
+Las palabras seguían siendo odiosas, pero, por extraño que fuera, ahora sonaban como la ley de todo este lugar.
 
-Nahira envió una sola mirada hacia Aka.
+Kael entró en el pasillo.
 
-—¿Estás bien? —preguntó en voz baja.
+Cada vez que el pie tocaba la placa de metal sonaba un golpe bajo y sordo. Uno. Dos. Tres. Una persona de dentro contaba con él, tocando las muescas con la punta del dedo. No contaba en voz alta. Solo movía el dedo.
 
-Aka no respondió de inmediato. En cambio, volvió a recorrer con los ojos al grupo de Sion, a Luhai, la eterita y el fragmento dentro de la chaqueta de Kael. No eran los ojos de una niña asustada, sino los de alguien que se esforzaba por retener a la fuerza un hilo todavía no del todo desenredado.
+En el nueve detuvo la mano.
 
-—Aleja eso —dijo ella primero—. Y eso no puede quedarse cerca.
+Kael apartó la lona del final del pasillo y dio tres pasos más hacia afuera. En el último paso entró de golpe el calor de afuera, y la lona, al volver a caer, le cortó la espalda.
 
-Esta vez Luhai y Kael comprendieron casi a la vez que eran ellos los señalados. Sion, solo con ese breve desencuentro, sintió que Aka estaba volviendo a trazar el espacio mismo con los sentidos. No una manera de tranquilizar a la gente, sino una manera de cortar primero lo que había que cortar.
+Doce.
 
-Ater dijo en voz baja.
+En ese momento Sion se dio cuenta de que había estado conteniendo la respiración.
 
-—Entonces hace falta un orden.
+Seorin miraba el sitio donde había caído la lona.
 
-Sion siguió enseguida.
+—No es la primera vez que hace eso.
+Lo dijo en voz baja.
 
-—Quién carga qué primero y se mueve, quién se queda, quién vigila.
+—¿El qué?
 
-Nasim entornó los ojos con interés al oírlo.
+—Quedarse solo afuera.
 
-—Ahora sí empieza a sonar a partida —dijo.
+Al oírlo, Sion recordó que Kael no le había preguntado nada a nadie al entrar en el pasillo. ¿Voy?, ¿estará bien?, ¿cuánto? No preguntó nada. Era el paso de alguien que nunca ha preguntado.
 
-Seorin cortó en el acto.
+Luhai bajó la vista hacia la eterita que tenía en la mano.
 
-—La partida todavía no está montada.
+Hasta hacía un rato tenía cara de que, si se la quitaban, era el fin, pero ahora era distinto. Era la cara de quien sabe que, aunque eso no se le ha ido de la mano, ya ha decidido hasta dónde puede ir él.
 
-—Eso pronto se sabrá —replicó Nasim.
+—Si suelto esto, ¿quedo libre?
 
-En ese momento, desde un compartimento más profundo del interior, resonó una sola vez un sonido metálico, sordo y pesado. No parecía hecho a propósito. Estaba más cerca del ruido de un compartimento largo tiempo cerrado que se abría, o al contrario, se cerraba. Pero ese solo sonido breve bastó para que todas las manos de dentro se detuvieran de manera muy leve.
+—No.
+Eso respondió Nasim.
+—Entonces te quedas sin precio y es más peligroso.
 
-Sion vio ese cambio y lo entendió.
+Luhai no supo qué contestar.
 
-Había un interior más allá de este interior.
-Y el lugar al que habían llegado no era el final, sino que estaba más cerca de una zona de clasificación justo antes de la verdadera partida.
+Sion miró el pasillo vacío.
 
-Luhai también debió de sentirlo, porque esta vez tragó saliva de verdad, muy bajo.
+Doce pasos. Así mide esta ciudad la distancia entre dos cosas verdaderas. Y esos doce pasos acababan de dejar a uno del grupo de pie afuera.
 
-—Vaya —masculló.
-—De veras tocamos algo demasiado grande.
+La manera en que los valores se separaban no era un regateo.
 
-Kael respondió muy bajo.
-
-—¿Ahora te das cuenta?
-
-Luhai lo miró con la cara llena de fastidio, pero no pudo replicar.
-
-Harún dijo, como para zanjarlo.
-
-—Prepárense.
-
-Con esa sola palabra, el aire del interior volvió a moverse. Nadie corrió; nadie alzó la voz. En cambio, cada uno se dispersó como manos que se mueven en un orden ya fijado. Separación, transbordo, vigilancia: todo eso, aquí dentro, parecía rodar como una rutina.
-
-Sion presionó una vez más el papel del interior de su chaqueta.
-
-*Hazran.*
-*Aka.*
-
-Ahora esas dos palabras ya no eran un destino,
-sino el primer escalón de una escalera
-donde los valores se separaban,
-volvían a anudarse,
-y descendían hacia una partida aún más profunda.
-
-Lo que vendría después, seguramente,
-sería ver con más nitidez
-quién podía soportar lo verdadero, y hasta dónde,
-y quién, dentro de este lugar, tenía de veras la partida en la mano.
+Era una distancia.
 
 ---
 

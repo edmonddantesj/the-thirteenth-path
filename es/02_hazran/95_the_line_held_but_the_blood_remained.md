@@ -1,187 +1,358 @@
 # Capítulo 95 — La línea aguantó pero la sangre quedó
 
-Cuando el cuerpo de ruptura por fin se inclinó y se detuvo en mitad del pasillo,
-el aire dentro de Hazran revivió, sin duda, una vez.
+Harún no cedió el brazo.
 
-Pero aquello, más que alivio,
-se parecía a la bocanada que apenas se traga justo antes de morir.
+—No hace falta.
 
-Nadie pensó con facilidad que aquello lo hubieran «detenido».
-Porque todos lo habían visto.
+—Sí hace falta.
+Lo dijo Sern.
 
-Para vivir esos pocos segundos,
-con qué filo se había doblado la línea.
-Y al final de eso,
-que la sangre se había extendido, sin duda, por el brazo de Harún.
+—Puedo tenerme en pie.
 
-En cuanto Sion vio esa sangre,
-sin darse cuenta quiso dar un paso al frente.
+—Sé que puede tenerse en pie. Lo que no podrá después es sujetar.
 
-Pero Harún habló primero, en voz baja.
+Harún se detuvo ante eso.
 
-—No vengas.
+Sion vio esa pausa. A este hombre no lo detenía que le dijeran que estaba herido. Lo detenía que le dijeran que no podría sujetar.
 
-Pocas palabras.
+Aun así, en lugar de tender el brazo, miró hacia la rampa.
 
-Pero dentro de ellas
-estaba el sentido de que aquí y ahora la lástima y la preocupación estorbaban igual.
+Sion miró también. Los veinte de la tercera tanda estaban allí de pie, mirando hacia este lado.
 
-Harún se sacudió el brazo izquierdo una sola vez, muy breve,
-y enseguida volvió a afirmar el arma con la mano derecha.
-La sangre no se detenía,
-pero el movimiento tampoco se detenía.
+—Desde allí se ve.
+Eso dijo Harún.
 
-Eso daba más miedo.
+—¿Qué se ve?
 
-No porque estuviera bien,
-sino porque, aun sin estarlo, ahora no podía detenerse, y por eso hacía aquello.
+—Un brazo atado.
 
-Sern también lo vio.
+Solo entonces entendió Sion por qué aguantaba aquel hombre. No era el dolor lo que le impedía tender el brazo. Estaba contando qué era lo que aquellos veinte tenían ahora delante mientras esperaban de pie.
 
-Con la herida del costado apretada, habló por primera vez, muy bajo.
+—Si no se ata, se verá más.
+Era Sern quien hablaba.
 
-—Tiene que retirarse.
+—¿El qué?
 
-Harún negó con la cabeza.
+—Se ve cómo gotea. Llevan un rato mirándolo.
 
-—Todavía no.
+Harún volvió la cabeza hacia el pasillo y luego la giró de nuevo hacia ellos.
 
-Ater los miró a los dos por turnos.
+—Hazlo rápido.
 
-En esa cara casi no asomaba ninguna emoción,
-y por eso estaba más tensa.
+Sern le subió la manga con la mano derecha. Un corte largo por la cara interna del brazo izquierdo. Sion no sabía si era profundo o no, pero, viendo que la sangre no se secaba y seguía brotando, superficial no era.
 
-Él también lo sabía.
-Lo correcto era que Harún se retirara.
-Pero también sabía que, si Harún se retiraba ahora,
-no había una mano que ocupara de inmediato ese puesto.
+Sern miró alrededor. No había con qué atarlo. Hacía rato que toda la tela se había ido hacia la gente.
 
-Por eso escogió otras palabras.
+La mano de Sion fue a su propia muñeca.
 
-—Reduzca el ángulo con que usa el brazo —dijo él, breve—. No reciba de frente, solo tuerza.
+Allí llevaba enrollado un cordón fino. El que Seorin, en un callejón al atardecer, había dejado de regatear a medias y simplemente había comprado para ponérselo en la mano. Tenía el color ya muerto y ningún adorno, pero el nudo era extrañamente firme.
 
-Harún, en vez de responder, soltó un breve resoplido.
-No quedaba claro si era un sí o un no,
-pero al menos significaba que lo había oído.
+—Eso no sirve.
+Lo dijo Sern. Lo dijo sin mirar siquiera.
 
-La fila junto al casco, atrás, no podía detenerse.
+—¿Por qué?
 
-Con la garganta rota, Nasim volvió a gritar.
+—Es fino. Si se aprieta con eso, corta la carne.
 
-—¡La segunda tanda, sigan!
+Sion bajó la mano.
 
-En ese grito había más filo que antes.
-Ahora él también sabía
-que dejar ver, aunque fuera un instante, quién estaba herido,
-quién aguantaba y cuánto,
-hacía temblar la línea entera.
+—¿Y entonces con qué lo atamos?
 
-Luhai ya tenía agarrada la mano de la siguiente persona,
-y Seorin levantó ella misma el eje de la rueda para que una camilla no se trabara bajo la rampa del casco.
-Sion volvía a apretar la arena bajo la rampa,
-y empujaba a la gente a mirar solo al frente para que no se volvieran una y otra vez hacia Harún.
+En lugar de responder, Sern se llevó la mano al costado.
 
-Pero que una persona haga eso no quiere decir que de verdad no mire.
+Allí llevaba enrollada una tela. Se la había puesto sobre un corte de hacía unos días, y ahora ese sitio también volvía a estar empapado.
 
-La inquietud conoce su dirección.
-Aunque no lo dijeran con la boca,
-sentían con el cuerpo que ese lado era la línea que aguantaba
-y que en esa línea había salido sangre.
+—Eso no.
 
-Por eso, al contrario,
-la fila se volvió más frenética.
+—Yo uso la mano derecha.
 
-Han Jiwoo, que recibía la segunda tanda junto a la entrada del casco,
-miró una vez la sangre del lado de Harún y endureció el gesto.
+—Eso ya te lo oí antes.
 
-—Si ese lado cae, aquí se acaba todo.
-La mirada de Han Jiwoo se detuvo en la sangre del lado de Harún.
+Sern desató la tela. Al soltarla, la parte de abajo se abrió una vez más, pero no hizo ningún ruido. Se le notaba que apretaba la mandíbula para no hacerlo.
 
-Esas palabras eran una confirmación de un hecho,
-no una información nueva.
-Pero por ser un hecho resultaban más crueles.
+Con esa tela dio dos vueltas a la parte alta del brazo de Harún e hizo un nudo. El nudo no se soltó.
 
-Aka, con la mano apoyada en la pared exterior del casco, dijo muy callada.
+Harún dobló el brazo una vez y lo volvió a estirar.
+
+—Ya sujeto.
+
+—Una hora.
+Lo dijo Sern.
+—Después habrá que volver a aflojarlo.
+
+—Con una hora basta.
+
+A Sion esas palabras le dieron miedo. Querían decir que aquel hombre ya había decidido qué estaría haciendo dentro de una hora.
+
+Harún echó a andar hacia el pasillo.
+
+La cosa negra, detenida tal como se había inclinado, tapaba la mitad del pasillo. El torso, tumbado de costado, se había enganchado en los escombros del muro derrumbado, y la pierna izquierda rota aplastaba el suelo del lado contrario. Entre una cosa y otra solo quedaba el ancho justo para que pasara una persona.
+
+Harún se plantó delante y lo miró un buen rato.
+
+Luego le dio una patada en el costado.
+
+No se movió.
+
+—Sern.
+
+—Sí.
+
+—¿Esto se deja empujar?
+
+Sern rodeó hasta el otro lado y miró el ángulo.
+
+—Si lo empujan desde aquel lado, cederá. Pero no de un solo empujón. Está mordido por los escombros del muro.
+
+—¿Cuántos empujones hacen falta para sacarlo?
+
+—Tres. Puede que cuatro.
+
+Harún se rio por primera vez, muy brevemente. La cara al reír no tenía buen aspecto.
+
+—Entonces esta es la cuarta barricada.
+
+Al oír eso, Sion volvió a mirar la cosa negra.
+
+Hasta hacía un momento, aquello había sido un objeto venido a destrozar Hazran. Ahora estaba encajado en el pasillo, haciendo de muro para Hazran. Con su propio peso.
+
+—¿No podríamos desmontarlo y aprovecharlo?
+Lo preguntó Sern.
+—Dentro de las articulaciones hay cosas que sirven.
+
+—No.
+
+—¿Por qué?
+
+—Si se saca algo, el muro se queda más delgado.
+
+Sern midió con la mano el hueco que quedaba. Era el espacio entre el cuerpo negro y el muro derrumbado.
+
+—Una persona pasa.
+
+—Ya lo sé.
+
+—En cuanto pasa una, detrás no dejarán de entrar.
+
+—Si entran de uno en uno, se los para de uno en uno.
+
+—¿Quién los para?
+
+Harún no respondió.
+
+Sion empezó a contar cuántas veces había oído ya ese silencio aquel día y lo dejó.
+
+—Dijiste una hora, ¿no?
+Lo preguntó Harún.
+
+—Sí.
+
+—Entonces vuelve a preguntármelo dentro de una hora.
+
+En lugar de seguir preguntando, Sern apretó con su propio pie el sitio donde Harún había dado la patada.
+
+—Tres.
+Lo dijo él.
+—Con tres empujones desde aquel lado, sale.
+
+—Entonces, antes de esos tres, que despeguen dos más.
+
+Sion corrió hacia el casco.
+
+La tercera tanda seguía de pie al pie de la rampa. Los veinte, tal cual. No faltaba nadie ni se había sumado nadie.
+
+Aka tenía la palma pegada a la pared exterior del casco.
+
+—Aka.
+
+—Mm.
+
+—¿Puedo subirlos ya?
+
+Aka no respondió enseguida. Con la mano aún pegada a la pared, solo ladeó un poco la cabeza.
 
 —Todavía aguanta.
 
-Han Jiwoo le repreguntó enseguida.
-
 —¿El barco?
 
-Aka negó brevemente con la cabeza.
+—La persona.
 
-—La gente.
+A Sion se le cortó la respiración un instante.
 
-Con esa sola palabra,
-la mirada de Han Jiwoo también tembló un momento.
+La niña no estaba escuchando el barco. Estaba escuchando, a través del suelo, a una persona que seguía de pie en el pasillo de allá.
 
-Sion, viéndolo desde lejos, se quedó sin aire de una forma extraña.
+—¿Cuánto aguantará?
 
-Aka habla siempre
-como quien oye primero quién se va a quebrar antes.
-Y ahora estaba diciendo
-que Harún aún no se había quebrado.
+—No sé.
 
-Pero esas palabras, al mismo tiempo,
-sonaban como que algún día podría quebrarse, y eso inquietaba más.
+Sion no preguntó más. Por mucho que preguntara, no iba a salir.
 
-Dentro del pasillo derecho,
-detrás del cuerpo de ruptura inclinado y detenido,
-dos individuos comunes empezaron de nuevo a tomar ángulo.
+—¿Y el barco?
 
-Ater habló enseguida.
+—Está bien.
 
-—No se detuvo. Atrás se vuelven a pegar.
+—¿Y el lado izquierdo?
 
-Sern también bajó el cuerpo.
+Por primera vez, Aka movió un poco la mano. Media cuarta, siguiendo la pared.
 
-—Hay que cortar antes de que rellenen el camino.
+—Arreglado.
 
-Harún habló muy bajo.
+—¿De verdad?
 
-—Bien —dijo él—. Entonces lo convertimos en cadáver.
+—Sí.
 
-En el instante en que cayeron esas palabras,
-a Sion le pareció oír por primera vez algo como verdadero olor a sangre dentro de la voz de Harún.
+Con esa respuesta, Sion soltó el aire. La persona que estaba debajo del barco con las dos manos en carne viva lo había arreglado de verdad.
 
-No solo cálculo frío,
-sino la voz de quien ahora aguanta incluyendo hasta la sangre que mana de su propio cuerpo.
+—Entonces, ¿son veinte?
 
-Harún no fue de frente.
-Como había dicho Ater,
-redujo el ángulo con que recibía de frente
-y cambió la postura para usar, más bien, el cuerpo de ruptura inclinado y detenido como un obstáculo. Sern buscó otra vez el punto desde donde apuntar al eje de refuerzo detrás de aquello,
-y Ater intercaló disparos cortos de hostigamiento para que las miradas de los dos individuos comunes no se concentraran solo en Harún.
+—Veinte.
 
-La línea aguantó.
+—Que suban.
 
-Pero ahora ese aguante
-se parecía menos a una defensa limpia
-y más a una estructura provisional manchada de sangre.
+La rampa bajó.
 
-Cuando la última camilla de la segunda tanda subía por la rampa,
-Nasim gritó con la garganta rota.
+Siete. Alto. Siete. Alto. Seis.
 
-—¡La segunda tanda, terminada!
+También esta vez Sion no contó: miró a las personas. La que antes, desde el frente de la fila, lo había estado mirando subió la tercera. Al subir, no se volvió a mirar a ninguna parte.
 
-Cuando cayeron esas palabras,
-Hazran empujó una vez más a unas cuantas personas hacia afuera.
+Los últimos seis se arrimaron a la derecha. Tal como había dicho Aka antes.
 
-La gente se está retirando de verdad.
-El barco aún aguanta.
-La línea tampoco ha caído todavía.
+Uno de ellos se detuvo sobre la rampa.
 
-Pero ninguna de esas tres cosas
-seguía siendo gratis.
+Sion miró hacia dónde miraba esa persona. Hacia el pasillo. Allí todavía había alguien de pie.
 
-Sion volvió a ver la sangre que se extendía por el brazo de Harún.
+—Rápido.
 
-Y supo.
+La persona se movió. Mientras se movía, levantó una mano una vez y la bajó.
 
-Que lo que Hazran sostiene ahora
-no es solo el tiempo,
-sino el propio precio en sangre, cada vez más nítido.
+Desde el pasillo nadie le devolvió el gesto. Los ojos de Harún estaban clavados en el extremo de la fila. Si apartaba la vista ahora, se abriría el ancho de una persona.
+
+La rampa se plegó.
+
+El barco despegó.
+
+Sion oyó el sonido. Era silencioso. Era el sonido aplastado de un barco cargado de gente.
+
+Al fondo de la fila, unas cuantas personas levantaron la cabeza a la vez. Ahora todos conocían esa diferencia.
+
+Sion fue a la tablilla. Las marcas eran ya tres.
+
+A ciento sesenta y ocho se le restaban veinte. Ciento cuarenta y ocho.
+
+Ocho viajes.
+
+Sion no dijo ese número en voz alta. En cambio, contó el otro lado.
+
+Veintitantos. Igual que antes. No había bajado ni uno.
+
+No había bajado, pero Sion sintió como si hubiera aumentado. Dos de esos veintitantos estaban sangrando en ese momento, y esos dos sostenían a todos los demás.
+
+Después volvió junto a Aka.
+
+Aka todavía no había apartado la mano.
+
+—Aka.
+
+—Mm.
+
+—¿Eso ya no se oye?
+
+—No.
+
+—¿Antes sí se oía?
+
+—Sí.
+
+—¿Y qué se oía?
+
+Aka lo pensó un momento.
+
+—Pies.
+
+—¿Pies?
+
+—Pies que vienen andando.
+
+—¿Y ahora?
+
+—No anda.
+
+Sion iba a hacer la siguiente pregunta y se calló. Iba a preguntar si estaba muerto, pero ni él mismo sabía si esa palabra le correspondía a aquello o no.
+
+Aka habló primero.
+
+—Aunque no ande, está.
+
+—¿Dónde?
+
+—Ahí.
+
+Aka no apartó la mano de la pared.
+
+—¿Y si quitas la mano?
+Lo preguntó Sion.
+
+—¿Por qué?
+
+—Llevas todo el rato escuchando.
+
+—Tengo que escuchar.
+
+—¿Por qué?
+
+A esa pregunta Aka no respondió. En cambio, por primera vez, volvió la cabeza hacia Sion.
+
+—¿Tú no lo oyes?
+
+Sion puso la mano en la pared.
+
+No le llegó nada. Solo un poco de temblor de la gente que se movía dentro del barco. Del lado del pasillo no llegaba de verdad nada.
+
+—No lo oigo.
+
+Aka volvió a mirar al frente.
+
+—Qué suerte.
+
+Ante esas dos palabras, Sion no pudo decir nada.
+
+Antes, la niña había dicho que aquello le daba pena. Y hacía un momento, gracias a aquello, habían salido veinte personas. Como era aquello lo que tapaba el pasillo, habían podido abrir la puerta del barco.
+
+Sion no se lo dijo a Aka.
+
+Le parecía que, si se lo decía, las cosas mejorarían un poco, pero no estaba seguro de que mejorar fuera lo correcto.
+
+Al pasar junto a la tablilla, Harún miró a Sion.
+
+—¿Cuántos quedan?
+
+—Ocho viajes.
+
+Harún asintió con la cabeza. Luego volvió a echar a andar hacia el pasillo. Caminaba más despacio que antes, pero no se veía si era por el brazo o por otra cosa.
+
+Sern, que iba tras él, se volvió una vez a mirar a Sion.
+
+—¿Cuánto ha pasado de esa hora?
+
+—No sé.
+
+—Cuéntelo.
+
+Antes Harún le había dicho que no contara. Sern le decía que contara.
+
+Sion empezó a contar.
+
+Mientras contaba, se miró la muñeca.
+
+El cordón seguía allí enrollado. Era una cosa que hoy no había servido para nada.
+
+Delante caminaba Sern. La tela que le envolvía el costado estaba ahora en el brazo de Harún, y la ropa de ese lado ya se estaba empapando de oscuro.
+
+Sion contaba mirando esa espalda.
+
+Uno, dos, tres.
+
+No sabía que contar fuera algo tan lento.
 
 ---
 

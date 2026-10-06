@@ -1,104 +1,119 @@
 # Episode 70. The First Day They Did Not Have to Run
 
-Even after the first flame took at the auxiliary bonding joint, the work inside did not end there.
+Even after the first flame took at the auxiliary bonding joint, the work inside did not end there. It could not end.
 
-It could not.
+Outside, Harun's settlement had closed and the air over the scrap market had settled once; inside, they had used up nearly the whole night.
 
-While outside, Harun's settlement concluded and the scrap market air sank once, inside they had burned through nearly the entire night.
+Even with the ember in his hand drawn back a little, Sion kept going back to the tremor that had run, briefly, through the inside of the hull.
 
-Sion, even with the ember drawn slightly back in his hand, kept replaying the faint tremor that had briefly connected inside the hull.
+It had been very short and very small. That made it clearer.
 
-It was truly short. Truly small.
+Sion did not think it was something new. Some part of this hull still remembered the way things had once passed through it.
 
-And precisely because of that, more vivid.
+Remembering meant something had passed through at least once. Sion thought that, then looked into his hand again.
 
-If it were false, it would have been more vivid. Louder, more noticeable. But what had just happened was not that kind.
+Han Jiwoo was already looking at what came next.
 
-So small that it was closer, in fact, to proof that somewhere in this hull, the way things once passed through was still remembered.
+Her eyes went from the inside of the auxiliary bonding joint, to the central structure no one had touched yet, to the faint heat-marks left on the receiving frame, and back.
 
-Jiwoo was already looking at the next step.
-
-She looked between the auxiliary bonding joint's interior, the central structure not yet touched, and the faint heat marks left on the receiving frame.
-
-"We can't push further from here."
-She said low.
+"We can't go further from here right away,"
+she said, low.
 
 Sion asked.
 
 "Why."
 
-"Taking and holding are different."
-Jiwoo answered.
-"What just happened means it didn't repel. It doesn't mean it keeps enduring."
+"Taking hold and holding on are different,"
+Han Jiwoo answered.
+"Just now it didn't push back. That doesn't mean it'll keep bearing it."
 
-Aka added quietly on top of those words.
+Aka added to that, quietly.
 
 "Feed it more now and it dies again."
 
 A short sentence.
 
-But Sion understood it almost bodily. Earlier, when he had lowered his hand just a fraction more, the tension between the receiving frame and the auxiliary bonding joint had shifted sharply. A tiny difference, yet the sense that going further was wrong had been clear.
+Sion understood it with his body. Earlier, when he had lowered his hand only a little more, the space between the receiving frame and the auxiliary bonding joint had changed sharply. It was a very small difference, but one thing was clear: going further was wrong.
 
-So what was needed now was not making the success scene bigger, but giving the small connection that had just come alive time to hold without going cold.
+Without meaning to, Sion pulled his hand back a little. Only after he had pulled it back did he know he had.
 
-Jiwoo lowered herself further beneath the hull.
+Han Jiwoo bent lower under the hull.
 
-"The auxiliary bonding joint can be saved."
-She said.
-"But pulling it to the center won't work from here alone. We need to build another axis to take the weight."
+"The auxiliary bonding joint can be saved,"
+she said.
+"But to pull it through to the center, this alone won't do. We need another axis to take the weight."
 
 Aka nodded.
 
-"And we need more of the same grain."
-She said.
+"And we need more of the same grain,"
+she said.
 
-Sion understood immediately.
+Sion understood at once.
 
-More of that cloudy, ugly etherite fragment that had lasted because of its plainness. Material that could receive a small flame first, like now. Something that could not be replaced with just anything.
+Something like that Etherite fragment that had lasted so long because it was cloudy and ugly. Material that would take a small flame first. Not a thing you could replace with whatever was at hand.
 
-"Not much left?"
+"Not much of it?"
 Sion asked.
 
-Aka answered shortly.
+Aka answered briefly.
 
 "Not much in here."
 
-That was effectively saying they would need to find more outside.
+That meant, in effect, that they would have to find more outside.
 
-Jiwoo had reached the same conclusion.
+Han Jiwoo had reached the same conclusion.
 
-"We need to build one more receiving frame."
-She said.
-"And I can see places where the outer skin metal needs replacing. Even if the inside holds for now, at the level of actually moving the hull, the outside could tear first."
+"We need to make one more receiving frame,"
+she said.
+"And I can see places where the outer-skin metal has to be replaced. Even if the inside holds for now, once we get to the point of moving the hull, the outside could tear first."
 
 Sion looked at the hull again.
 
-Until yesterday, it had simply looked like a half-dead body. Now he was beginning to see which parts were holding first and which still could not.
+Until yesterday it had looked like nothing but a half-dead body. Now he was beginning to see where it held first and where it could not hold yet.
 
-And because of that, he understood even more.
+Seeing it, he knew more. This was not work that would be done in a day or two. What they had just done was a start, not a finish.
 
-This was not work that would finish in a day or two. What they had just done was a beginning, not a completion.
+Aka did not carefully take the receiving frame off again; she chose to fix it in place for now. She laid very weak binding thread and thin metal strips over it, a way of holding the first reaction that had just come alive so it would not scatter at once.
 
-Aka chose not to carefully remove the receiving frame, but to fix it in place temporarily. She added very thin bonding thread and thin metal strips to hold the first reaction that had just come alive so it would not scatter immediately.
+"Leave this,"
+she said.
+"I'm going to see if it cools."
 
-"Leave this."
-She said.
-"I'll watch whether it cools."
+Somehow those words sat heavy with Sion.
 
-Jiwoo nodded at once.
+Until now they had looked at whether it worked. Now they would look at whether it lasted.
 
-"Right."
-She said.
-"What matters now isn't pushing more in—it's seeing whether this truly holds."
+Working only has to happen once; lasting has to be watched the whole time. If it did not cool overnight, tomorrow they would take one more step. If it cooled, what they had done today would be as if it had never happened.
 
-Sion wrapped the ember in his hand again.
+"How long do we watch it."
 
-For the first time, the thought came that this flame needed to rest too. He had been holding it the whole time, but the constant desire to press it against something might itself be the greater danger.
+"All night."
 
-Aka looked at Sion.
+It was Aka who answered.
 
-"You too."
-She said.
+"Who's watching?"
+
+"No one has to. You touch it in the morning and you know."
+
+Sion thought that was more frightening.
+
+While you watched, you could at least do something. If it cooled while everyone slept, no one could stop it.
+
+Han Jiwoo nodded at that right away.
+
+"Right,"
+she said.
+"What matters now isn't pushing more in, it's seeing whether this really holds."
+
+Sion closed his hand around the ember again.
+
+For the first time he thought this flame needed rest too.
+He had kept holding it, but the urge itself, to keep setting it against something, might be the more dangerous thing.
+
+Aka looked over at Sion.
+
+"You too,"
+she said.
 
 Sion asked back.
 
@@ -106,65 +121,115 @@ Sion asked back.
 
 "Rest."
 
-Sion was momentarily lost for words.
+For a moment Sion had nothing to say.
 
-The instruction felt strange. Since entering Hazran, almost no one had said that to him. Most of the time he had to run more, endure more, decide faster.
+It was a strange thing to hear. Since he had come into Hazran, almost no one had said that to him. Mostly he had had to run more, hold out more, decide faster.
 
-But Aka said it as though resting were simply part of the work. Too natural to question.
+Aka said resting so plainly, as if it were part of the work too.
 
-Jiwoo laughed very low beside her.
+Only then did Sion realize Aka had said to him the same thing she had said to the ship a moment ago.
 
-"She's right."
-She said.
-"If your hand's senses die now, what just bonded won't bond next time."
+Feed it more now and it dies again. Put it straight in and it burns again. The receiving frame has to be there first.
 
-Sion finally let out a short breath at those words.
+Words meant for a ship applied, unchanged, to a person.
 
-Right.
+Sion knew it was not a metaphor, either. To that kid the two were the same problem. To keep something alive, whatever takes it in must not break first.
 
-What was needed now was not bravely pushing harder, but preserving the state that would let them bond precisely again next time.
+Right now, what was taking in this ship was Sion's hand.
+
+Then that frame, too, had to be watched all night to see if it cooled.
+
+Beside him, Han Jiwoo laughed very low.
+
+"She's got a point,"
+she said.
+"If your hand loses its feel now, you won't be able to make it take next time, even what took just now."
+
+At that, Sion finally let out a short breath.
+
+Sion opened and closed his hand.
+
+He had held the same position for a long while, and his fingertips were a little dull. Touching should tell him; right now he did not think touching would tell him what was different.
+
+Sion pressed once on the metal of the hull's underside. It had been out in the night air a long time, so it ought to be cold.
+
+It was cold. But he could not tell how cold.
+
+Earlier, when he had put his hand to the auxiliary bonding joint, the difference had come to him separately at every knuckle. His hand had known first where the living part ended and where the still-dead part began. Now his whole hand came back as one lump.
+
+That meant the feeling had gone dead.
+
+What frightened Sion more was that he had not noticed it himself. Thinking he could go further had really come from feeling less.
 
 Aka stepped back from the hull.
 
-And for the first time, she spoke like someone who would go no further today.
+Then, for the first time, she spoke like someone who would go no further today.
 
-"That's enough."
+"That's as far as we go."
 
-Short but certain.
+Short, but a definite declaration.
 
-Hearing that, Sion felt less that the inside work had stopped and more that the outside was now needed.
+Hearing it, Sion felt not so much that the work inside had stopped as that the outside was needed now.
 
-More material. Better-matched metal. Time. And the hands of people living on the outside.
+More material, better-matched metal, time. And the hands of the people who lived out there.
 
-Jiwoo was already thinking the same.
+Han Jiwoo was already thinking the same.
 
-"Need to look at more parts."
-She said.
-"More etherite too, and we have to pick metal to replace the hull skin."
+"We need to look at more parts,"
+she said.
+"We need more Etherite too, and we have to pick metal to replace the hull's outer skin."
 
-Aka said shortly.
+Aka spoke briefly.
 
-"It's in the scrap market."
+"At the scrap market."
 
-Sion nearly smiled, very faintly, hearing that.
+"Isn't that place all turned upside down?"
 
-Back outside after all. But this time, not driven out—going out to save something.
+It was Sion who asked.
 
-That difference was large.
+"Because it's turned over, it comes out."
 
-Just before crossing the inner threshold, Sion looked back once.
+That was Aka's answer.
 
-The first receiving frame, temporarily fixed at the auxiliary bonding joint. The very faint heat still lingering inside it. And the hull that had just been told it was no longer a dead body.
+"If it isn't broken, nobody sells it."
 
-Still far. But not entirely impossible either.
+It took Sion a while to understand what she meant.
 
-Carrying that single sense, the three stepped back outside.
+The arena had broken, the devices had been torn out, the tents had come down. Then broken metal came out all at once. Things someone had been using until yesterday went up on the price boards today.
 
-The outside air was rougher than inside, but now that roughness was no longer as bleak as before.
+The metal that would save this ship had come from that city breaking apart yesterday.
 
-Because what needed to be done had become clear.
+Sion hated that. He hated it, and he needed it.
 
-Hazran was no longer a place to leave, but a place to stay a while longer—gathering what was needed to save this ship.
+And the people here would not even hate it. Gathering what broke and selling it was how this place lived, and Sion had spent days learning that.
+
+Hearing that, Sion very nearly smiled.
+
+In the end it was the outside again. But this time he did not have to look behind him.
+
+Just before he stepped over the inner threshold, Sion looked back once.
+
+There was the first receiving frame, fixed for now at the auxiliary bonding joint. Inside it a very faint heat remained, and over it hung the hull, which had only just been told it was not an entirely dead body.
+
+It was still a long way off. It was not an empty hope, either.
+
+A few days ago this ship had been dying cargo. Hauling it around was a price in itself, and it was a thing you could not sell anywhere.
+
+Now it had a list. Having a list meant it could be fixed.
+
+For the first time since coming into Hazran, Sion counted a list.
+
+One more receiving frame. Etherite of the same grain. Metal to replace the skin. And the days it would take to find all three.
+
+It was different from what he used to count before he came here. Back then he counted how much was left. Now he counted what was needed.
+
+Counting what was shrinking and counting what was to be filled were not the same arithmetic.
+
+The three of them came back outside.
+
+The air outside was rougher than inside, but it did not feel as hopeless as before. What they had to do had become clear.
+
+Hazran was no longer a place to leave. It had become a place to stay a little longer and gather what would save this ship.
 
 ---
 

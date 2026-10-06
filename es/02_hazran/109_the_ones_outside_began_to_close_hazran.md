@@ -1,212 +1,323 @@
 # Capítulo 109 — Los que quedaron afuera empezaron a cerrar Hazran
 
-En el instante en que Sion puso el pie dentro del casco,
-lo primero que sintió no fue alivio.
+El barco no fue lejos.
 
-Fue una pérdida que le ahogaba.
+Se elevó unos dos palmos sobre el suelo, se deslizó hacia el oeste y se detuvo detrás de la sombra de una pared derrumbada.
 
-Aunque había entrado,
-una parte de su cuerpo parecía haber quedado todavía afuera.
+A Sion le pareció extraño y fue hacia delante.
 
-Seorin tampoco hablaba,
-y Luhai, apoyado en la pared, no lograba levantar la cabeza.
-Kael, de pie dentro de la rampa,
-seguía mirando hacia afuera.
+—¿Por qué no seguimos?
 
-Dentro del casco era estrecho, áspero e inestable.
-Pero más difícil de soportar
-era tener que mirar desde adentro a los que ahora quedaban afuera.
+Han Jiwoo tenía el dorso de la mano apoyado en la junta.
 
-Zahir,
-Nasim,
-Harún,
-Nahira,
-y las manos que debían morder el afuera de Hazran hasta el final.
+—Para pasar la capa térmica hay que ir subiendo.
 
-Ahora ya no eran «los que aguantan juntos»,
-sino los que quedaron afuera.
+—¿Cuánto?
 
-Esa verdad se hizo realidad tan rápido
-que Sion, incluso recién entrado en el casco,
-sentía una y otra vez el impulso de volver a salir.
+—Quién sabe. Subieron dieciséis, la izquierda va remendada y la derecha se raspó hace un rato.
 
-Pero las palabras de Zahir seguían dentro de su oído.
+—Entonces, mientras tanto…
 
-Llévate también a la espalda lo que pasó aquí.
+—Nos quedamos flotando aquí.
 
-Que quedarse no era pagar,
-sino que irse era cargar con todo.
+Han Jiwoo apartó el dorso de la mano y volvió a apoyarlo.
 
-Eso seguía sin convencerlo,
-y por eso pesaba más.
+—Esto de verdad no va a aguantar mucho.
 
-Han Jiwoo, justo dentro de la entrada del casco, revisaba el estado casi sin descanso.
+Aka respondió en voz baja.
 
-—Sujeten la fijación.
-—Despejen más adentro.
-—No bloqueen justo frente a la entrada.
+—No hace falta que aguante mucho.
 
-Su voz seguía siendo afilada.
-Pero Sion alcanzaba a oír el temblor mezclado en ella.
+Han Jiwoo giró la cabeza.
 
-Han Jiwoo también lo sabía.
-Que a partir de ahora todo movimiento hecho adentro
-solo era posible porque los que quedaron afuera compraban tiempo.
+Aka habló con la mano apoyada en la pared exterior.
 
-Seorin dijo en voz baja:
+—Basta con que llegue lo justo para enviarnos.
 
-—¿Entrar así es el final?
+Esas palabras eran crueles, pero exactas.
 
-Más que una pregunta,
-se parecía a una burla lanzada contra sí misma.
+Este barco no necesitaba revivir del todo. Ahora bastaba con que aguantara lo justo para llevar un poco más afuera a la gente que había que enviar.
 
-—Siendo una guerra que empezamos nosotros.
+Con Hazran pasaba lo mismo. No se trataba de que viviera la ciudad entera, sino de aguantar un poco más, lo justo para enviar con vida a otros.
 
-Nadie respondió de inmediato.
+Sion se quedó con esa respuesta y miró atrás.
 
-Esa frase atravesó exactamente el aire del casco.
+Desde aquí se veía Hazran. A dos palmos de altura, estaba un poco más arriba que donde había estado de pie antes, y ese poco hacía que se viera todo.
 
-Porque vinimos nosotros,
-Hazran pasó de refugio a campo de batalla.
-Entonces, ¿de verdad está bien entrar aquí y respirar?
+Solo entonces lo entendió.
 
-Luhai, apoyado en la pared, dijo muy bajo:
+La fuerza que este barco iba subiendo ahora no era gratis. Solo podía subirla mientras los cuatro siguieran de pie allá fuera. Si aquellas cosas llegaban hasta aquí, todo terminaría a medio subir.
 
-—Pero Zahir nos dijo que fuéramos.
+Lo que esos cuatro estaban ganando ahora era el tiempo para que despegara este barco.
 
-Pero incluso esas palabras
-se parecían más al sonido de alguien convenciéndose a sí mismo.
+Sern estaba sentado en el suelo. Era la segunda vez que se sentaba hoy. Ater, de pie a su lado, miraba afuera por la rendija de la entrada. Tenía la postura de quien lee ángulos, pero aunque los leyera no tenía en qué usarlos.
 
-Los ojos de Luhai seguían yéndose hacia afuera.
-Él es de Hazran.
-Ver desde adentro cómo se cierra esa ciudad
-desgarra a una persona de un modo distinto a la culpa que siente el grupo de Sion.
+—¿Cuántos se ven?
+Lo preguntó Sern.
 
-Nahira seguía afuera.
+—Unos doce.
 
-Aka, dentro de la entrada,
-la miraba en silencio hacia allá.
+—¿Vienen más?
 
-La persona más callada ahora dentro del casco era Aka,
-y por eso, más bien, a Sion ese silencio le costaba más soportar.
+—Vienen.
 
-Nahira había enviado a Aka.
-Pero ella se quedó.
-Eso era una despedida mucho más clara que cualquier palabra.
+Ninguno de los dos dijo lo siguiente. Aunque lo dijeran, aquí no había nada que hacer.
 
-Afuera, Nasim gritaba con la voz ronca:
+Seorin, con la espalda contra la pared, habló en voz baja.
+
+—¿Se acaba así, con meternos aquí dentro?
+
+No era una pregunta; se parecía más a una burla lanzada contra sí misma.
+
+—Con una guerra que empezamos nosotros.
+
+Nadie pudo responder enseguida.
+
+Esa frase pinchó con exactitud el aire de dentro del casco.
+
+Luhai, apoyado en la pared, habló.
+
+—Aun así, Zahir nos dijo que nos fuéramos.
+
+Eso también se parecía más a convencerse a sí mismo. Los ojos se le seguían yendo hacia fuera.
+
+Este chico era de Hazran. Ver desde dentro cómo se cierra tu propia ciudad desgarra a la gente de otra manera.
+
+—Allí todavía queda olor a gente.
+Lo dijo Luhai en voz baja.
+
+Con esas palabras, Sion se derrumbó una vez más.
+
+Lo que se cerraba ahora no era solo el pasillo. Eran los callejones, las casas, el olor al que volver. Para Sion, Hazran era un sitio al que había llegado por primera vez hacía tres días, pero para este chico era donde había nacido.
+
+—¿Qué olor?
+Lo preguntó Sion.
+
+Luhai tardó en responder.
+
+—Olor a agua hirviendo.
+
+—¿Todavía se huele?
+
+—No.
+
+Luego Luhai añadió algo más.
+
+—Como no se huele, dije que todavía queda.
+
+Sion sostuvo esas palabras mucho tiempo.
+
+Afuera se oyó la voz de Nasim.
 
 —¡Arrastren el biombo!
-—¡Reduzcan adentro!
-—¡Despejen ahí!
+—¡Achiquen lo de dentro!
+—¡Vacíen eso!
 
-Ese grito ya no era un orden para salvar gente,
-sino un sonido para plegar y cerrar Hazran misma.
+Ese ruido ya no era un ordenamiento para salvar gente. Era el ruido de una ciudad que se plegaba y se cerraba.
 
-Kael, dentro de la entrada, murmuró:
+Kael murmuró desde dentro de la entrada.
 
 —La izquierda ya muere del todo.
 
-Decía tal cual lo que veía con sus propios ojos.
-Sin mentira ni consuelo.
+Contaba tal cual lo que había visto con sus propios ojos. No había mentira ni consuelo.
 
 —Eso no se vuelve a abrir.
 
-Cuando cayeron esas palabras,
-Sion sintió de verdad que la ciudad llamada Hazran iba perdiendo sus funciones una a una,
-dejando en su lugar solo el último orden.
+Al oírlo, Sion sintió en carne propia que Hazran iba perdiendo sus funciones una a una y dejaba solo el último orden.
 
-Harún, apoyado lejos detrás de la línea de defensa interior,
-seguía mirando hacia el pasaje.
+Harún estaba de pie, apoyado detrás de la línea derrumbada. El cuerpo se le había derrumbado mucho; solo la mirada no. Aunque ya no podía ponerse delante, con que siguiera ahí bastaba para ver que todavía no era el final.
 
-Su cuerpo ya estaba muy destrozado,
-pero su mirada no se había destrozado hasta el final.
-Aunque él no pudiera ponerse al frente en persona,
-con solo quedarse en ese sitio
-parecía mostrar que Hazran aún no había terminado.
+Sion, de pie dentro de la entrada, se miró las manos.
 
-Sern y Ater todavía no habían entrado del todo.
+Hasta hacía un momento eran manos que sujetaban a la gente, tocaban el metal y recibían los cuerpos que caían. Ahora no podían hacer nada.
 
-Esos dos estaban más bien del lado de morder el último afuera,
-de retener el tiempo un poco más.
-Pero ahora ellos también lo saben.
-Que esta no es una línea para aguantar mucho,
-sino una línea que dura solo hasta que los que cierran ocupan su sitio.
+Esa impotencia le apretaba la garganta de forma más cruda que la deuda.
 
-Sion, de pie dentro de la entrada,
-se miró las manos.
+Nosotros trajimos la guerra, y los que cierran son ellos.
 
-Manos que hasta hacía poco habían sujetado gente,
-se habían apoyado en el metal,
-habían recogido cuerpos que caían.
-Pero ahora no pueden hacer nada.
+En el instante en que Sion, sin darse cuenta, iba a dar un paso al frente, Han Jiwoo lo agarró del brazo.
 
-Esa impotencia
-le apretaba la garganta más en carne viva que la culpa.
-
-Trajimos la guerra.
-Pero ahora los que la cierran son ellos.
-
-¿No es esta una estructura demasiado cobarde?
-
-En el instante en que Sion, sin pensarlo, iba a dar un paso adelante,
-Han Jiwoo le agarró el brazo de inmediato.
-
-—No —dijo ella en voz baja.
-—Si sales otra vez, todo se derrumba.
+—No.
+Lo dijo en voz baja.
+—Si vuelves a salir, se derrumba todo.
 
 Sion apretó los dientes.
 
-—Pero solo quedan ellos.
+—Pero solo se quedan ellos.
 
-Han Jiwoo tampoco pudo responder de inmediato.
+Tampoco Han Jiwoo pudo responder enseguida.
 
-Ese breve silencio
-fue, más bien, más honesto.
+Ese breve silencio, al contrario, fue más sincero.
 
-Es cierto.
-Solo quedan ellos.
-Por eso, ahora más que nunca,
-hay que aguantar adentro.
-Para que el barco siga vivo,
-para que la elección que Hazran metió a la fuerza no sea en vano.
+Cierto. Solo se quedan ellos. Por eso ahora había que aguantar todavía más aquí dentro. El barco tenía que seguir vivo para que la decisión que Hazran les había metido a la fuerza no fuera en vano.
 
-Aka, en ese momento, habló por primera vez muy bajo:
+Sion soltó el brazo.
 
-—Estoy mirando.
+Después de soltarlo, no fue a ninguna parte. No había adónde ir.
 
-Todos miraron hacia allá.
+El interior del casco seguía siendo estrecho. Los dieciséis estaban pegados a las paredes y nadie hablaba. Los ruidos de fuera no llegaban hasta aquí. Era una sola capa de metal delgado, y esa sola capa se tragaba todo el sonido.
 
-Aka seguía mirando hacia afuera.
+Eso era lo que a Sion le parecía más extraño. En todo el día lo había sabido todo por el sonido. Si el barco estaba vacío o lleno, cuántos pasos se habían acercado aquellos, si alguien golpeaba desde abajo: todo era sonido.
+
+Ahora solo tenía los ojos.
+
+En cambio, empezó a contar.
+
+Venía contando desde antes. Desde que Seorin le dijo que subiera contando, contaba sin cortar. Mientras los números rodaban dentro de la cabeza, las manos no le temblaban.
+
+Ahora era lo único que podía hacer.
+
+Fue entonces cuando Aka habló por primera vez, en voz baja.
+
+—Sigan mirando.
+
+Todos miraron hacia ella.
+
+Aka seguía mirando afuera.
 
 —Hay que mirar hasta el final.
 
-Palabras cortas.
-Pero Sion creía entender qué significaban.
+Fueron pocas palabras.
 
-El sentido de no vivir fingiendo no saber.
-El sentido de no irse como quien huye.
-Cómo se cierra Hazran,
-quién se queda y qué carga,
-mirarlo hasta el final con tus propios ojos.
+Sion creyó entender qué querían decir.
 
-Afuera del casco,
-Zahir miró una última vez hacia adentro.
+Querían decir que no viviera fingiendo no saber. Que no se fuera como quien huye, y que viera con sus propios ojos, hasta el final, cómo se cerraba Hazran y quién se quedaba a cargar con qué.
 
-Sion sintió que esa mirada los alcanzaba.
+Sion estaba mirando.
 
-Era una mirada que comprobaba.
-Si de verdad habían embarcado,
-si de verdad estaban listos para partir,
-si de verdad era ahora su turno de cerrar.
+Mientras miraba, contaba.
 
-Y Zahir se dio la vuelta despacio.
+—Sion.
 
-En ese instante,
-Sion lo supo claramente por primera vez.
+Aka miró hacia Sion. Era la primera vez hoy.
 
-Que ahora los que quedaron afuera
-de verdad empezaban a cerrar Hazran.
+—Sí.
+
+—¿Estás contando?
+
+—Estás contando, ¿no?
+
+—…Sí.
+
+—No cuentes.
+
+Sion le replicó enseguida.
+
+—Harún me dijo que contara.
+
+—Lo sé.
+
+—Y Seorin también me dijo que subiera contando.
+
+—Eso también lo sé.
+
+—¿Entonces por qué?
+
+Aka se quedó un momento callada y respondió.
+
+—Si cuentas, no miras.
+
+Sion se quedó con esas pocas palabras y no pudo decir nada.
+
+Era verdad.
+
+En todo el día, Sion había contado. Había contado de doscientos ocho a ocho, había contado cinco veces una hora, había contado de diez a dieciocho los intervalos de los golpes que llegaban desde abajo. Cada vez que contaba, aguantaba.
+
+Y si aguantaba era porque, mientras contaba, no veía.
+
+Contar era la forma de aguantar, y la forma de aguantar era a la vez la forma de no ver.
+
+—¿Entonces qué hago?
+Lo preguntó Sion.
+
+—Mira.
+
+—¿Y qué cambia si miro?
+
+—No cambia nada.
+
+Después Aka añadió algo más.
+
+—Pero ellos saben que estamos mirando.
+
+Con esas palabras, a Sion se le cortó la respiración un momento.
+
+Afuera, Zahir miró hacia aquí. Eran ojos que comprobaban. Si de verdad habían subido, si de verdad estaban listos para irse, si ahora les tocaba a ellos cerrar.
+
+Sion le sostuvo la mirada.
+
+Dejó de contar.
+
+Al dejarlo, las manos le temblaron enseguida. Eran manos que no habían temblado en todo el día.
+
+Miró temblando.
+
+Zahir se dio la vuelta despacio.
+
+Antes de darse la vuelta, durante un instante muy corto, no miró hacia el barco sino hacia la tablilla. Era la tablilla donde Sion había trazado las marcas.
+
+Desde aquí no se veía qué cara tenía.
+
+Después caminó hacia el pasillo.
+
+Sion miró esa espalda. La miró sin contar.
+
+Y los otros tres fueron cada uno a su sitio.
+
+Nasim arrastró los escombros de la izquierda, Nahira colocó algo bajo en la parte de dentro, y Harún se despegó de la pared.
+
+Los cuatro no se miraron entre sí. Ni una sola vez.
+
+Eran gente cuya disposición ya estaba decidida, y no necesitaban comprobarla.
+
+Han Jiwoo, entretanto, no apartaba las manos. Apoyaba el dorso en la junta, lo apartaba y lo volvía a apoyar, una y otra vez.
+
+—¿Qué haces ahora?
+Lo preguntó Sion.
+
+—Escucho.
+
+—¿El qué?
+
+—Cuándo cambia de sonido la izquierda.
+
+—¿Y si cambia?
+
+—Si cambia, hay que parar ahí.
+
+Con esa respuesta, Sion miró hacia la entrada. Parar aquí era parar encima de Hazran.
+
+—¿Y si no cambia?
+
+—Si no cambia, pasamos.
+
+Han Jiwoo habló en voz baja desde atrás.
+
+—Ya subí la mitad.
+
+—¿Cuánto falta?
+
+—Otro tanto.
+
+Sion se quedó con esa respuesta, intentó calcular y lo dejó.
+
+Otro tanto quería decir que esos cuatro tenían que seguir de pie otro tanto.
+
+Si contaba, sabría cuántos minutos eran.
+
+Sion no contó.
+
+En cambio, miró afuera.
+
+Los cuatro estaban cada uno en su sitio. La forma que hacían los cuatro quedaba, muy pequeña, en medio de la ciudad derrumbada. Mirando desde arriba se veía exactamente lo pequeña que era esa forma.
+
+Antes, estando dentro, no sabía su tamaño. Cuando estás dentro, solo ves lo que tienes delante.
+
+Sion siguió mirando esa forma pequeña.
+
+Aka se le puso al lado. No dijo nada.
+
+Los dos miraron juntos.
 
 ---
 

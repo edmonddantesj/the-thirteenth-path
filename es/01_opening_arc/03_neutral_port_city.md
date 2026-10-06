@@ -1,49 +1,79 @@
-# Capítulo 3 — La caza en el puerto neutral
+# Capítulo 3 — La ciudad portuaria neutral
 
-Visto de lejos, el puerto neutral parecía siempre un montón de chatarra suspendido en el vacío.
+Cuando Sion abrió la puerta de la bodega delantera, dentro ya no había nadie. Una trampilla del tabique que daba hacia arriba estaba medio abierta, y por encima se alejaban dos ruidos de pasos. Uno no llevaba un ritmo regular. Eran los dos que habían hablado del Archivista. Si los perdían ahora, sería difícil volver a encontrarlos.
 
-Cientos de pasarelas de atraque y bandas de transbordo, capas de amarre provisionales remendadas sobre cascos viejos, letreros y números de dársena que no respetaban ninguna norma, luces de carga que no dormían ni de noche. El Imperio, la Alianza, los Mundos Frontera: todos habían intentado nombrar este lugar en su propia lengua, pero ninguno había llegado a hacerlo suyo del todo. Por eso seguía siendo neutral, y seguía siendo sucio.
+Vista de lejos, la ciudad portuaria neutral parecía siempre un montón de chatarra flotando.
 
-En cuanto la nave de recogida se acopló a la capa de amarre exterior, la gente que iba encogida dentro empezó a dispersarse cada cual en su dirección. Nadie se despidió, nadie volvió a mirar a nadie. En este puerto, esa clase de cortesía resultaba más bien sospechosa.
+Cientos de pasarelas de conexión y franjas de transbordo, capas de amarre provisionales remendadas con cascos viejos, letreros y números de muelle que no seguían ninguna norma, luces de carga que no dormían ni de noche. El Imperio, la Alianza y los mundos fronterizos habían intentado nombrar este lugar en su propia lengua, pero ninguno había llegado a hacerlo suyo. Por eso este lugar siempre era neutral, y siempre estaba sucio.
+
+En cuanto la nave de recogida se acopló a la capa de amarre exterior, la gente que iba encogida dentro empezó a dispersarse, cada cual en su dirección. Nadie se despidió y nadie volvió a mirar a nadie. En este puerto, esa clase de cortesía resultaba más bien sospechosa.
 
 Sion y Seorin tampoco esperaron hasta el final.
-Las dos voces que habían sacado el tema del Archivista al otro lado de la mampara delantera ya se movían hacia la parte superior de la nave desde antes del atraque. Si los perdían ahora, costaría volver a encontrarlos.
 
-Apenas bajaron por la rampa metálica, el aire cambió de golpe.
-Olor a grasa y a salitre, calor de escape aún tibio, olor a cables viejos, hasta el olor de unas especias quemándose en alguna parte: todo revuelto. Aquí siempre se mezclaban demasiadas cosas a la vez. Las lenguas, las cargas, la gente, las mentiras.
+En cuanto bajaron por la rampa metálica, el aire cambió de golpe.
+Olor a grasa y a salitre, el calor de los escapes todavía sin enfriar, olor a cables viejos y hasta el de unas especias quemándose en alguna parte, todo revuelto. Aquí siempre se mezclaban demasiadas cosas a la vez. Las lenguas, la carga, la gente, las mentiras.
 
-Seorin dijo en voz baja:
+Poco después de bajar, el terminal de Sion sonó una vez.
 
-—Bonito. Un barrio perfecto para esconderse.
+**Solicitud de cotejo de origen de asunto en suspenso de clasificación — denegada. Verificación in situ innecesaria.**
+**Se requiere justificación del motivo del acompañamiento del personal de inspección auxiliar.**
+
+Era la respuesta, llegada al cabo de siete horas y cuarenta minutos. La primera línea la sabía desde que la envió. La segunda, no.
+
+La denegación quiere decir que no lo hagas; el «se requiere justificación» quiere decir que ya lo han apuntado en alguna parte. Lo que se apunta no se saca enseguida. Se saca después, todo junto.
+
+Seorin preguntó a su lado.
+
+—¿Qué dice?
+
+—Denegada.
+
+—Eso no.
+
+Sion apagó la pantalla.
+
+—Tu nombre.
+
+—Por eso lo escribí yo; ya contaba con ello.
+
+Dicho eso, Seorin echó a andar primero.
+
+El personal de descarga de la capa de amarre no era muy distinto del de la 18-B de la Oficina. El pelo de las orejas cortado al ras, el cuello de la ropa de trabajo subido hasta la garganta, la cabeza que se vuelve primero hacia donde suena algo. Cuando pasó Sion, algunos levantaron la cabeza y la volvieron a bajar. Nadie saludó. Aquí, reconocerse no traía nada bueno.
+
+El puerto también era grande hacia arriba. Había doce capas de amarre apiladas, y la de más arriba, vista desde abajo, no era más que una franja negra. Por encima colgaba el fondo del casco de un enorme carguero en pleno atraque, tan ancho como un barrio entero de la ciudad. Su sombra cubría media plaza, y dentro de esa sombra había que encender las luces de carga incluso de día.
+
+Seorin habló en voz baja.
+
+—Un barrio perfecto para esconderse.
 
 —Por eso vienen todos aquí.
 
 —¿Tú también?
 
-Sion soltó una risa breve.
+Sion sonrió.
 
 —A mí me endosaron el trabajo.
 
 —Eso es lo que menos te crees tú.
 
-En lugar de responder, Sion alzó la vista.
-Los dos que habían bajado antes ya estaban medio mezclados entre la multitud. No los había perdido del todo. Uno era alto; el otro cojeaba levemente de la pierna izquierda. Todavía no sabía cuál de los dos había pronunciado la palabra «Archivista», pero ninguno tenía pinta de simple estibador.
+En vez de contestar, Sion alzó la vista.
+Los dos que habían bajado antes ya estaban medio mezclados con la multitud. No los había perdido del todo. Uno era alto; el otro cojeaba levemente de la pierna izquierda. Todavía no sabía cuál de los dos había pronunciado la palabra «Archivista», pero ninguno parecía un simple peón.
 
 —A la izquierda.
 
-Sion lo dijo bajo.
+Sion lo dijo en voz baja.
 
 Seorin no preguntó y se abrió enseguida hacia la derecha.
-En momentos así, los dos parecían viejos socios. Uno leía el camino, el otro repartía el campo de visión.
+En momentos así, los dos parecían viejos socios. Si uno miraba el camino, el otro se repartía el campo de visión.
 
-Bajo la capa de amarre exterior abundaban más las líneas de guía trazadas a mano que las señales oficiales. Pasadizos estrechos que unían almacén con almacén, escaleras de enlace sin permiso, puertas traseras donde la cara de alguien valía más que un certificado de atraque. El sitio ideal para que un Archivista se ocultara, e igual de bueno para que un perseguidor se colara.
+Bajo la capa de amarre exterior había más líneas de guía trazadas a mano que señales oficiales. Pasadizos estrechos entre almacén y almacén, escaleras de conexión sin permiso, puertas traseras donde la cara de alguien valía más que un certificado de atraque. El sitio ideal para que se escondiera un Archivista, e igual de bueno para que se colara un perseguidor.
 
 De los dos que iban delante, el que cojeaba se volvió una vez a mirar atrás.
-Sion bajó la cabeza de inmediato y se metió entre un grupo de estibadores de carga que pasaba. Un instante más tarde y lo habrían descubierto.
+Sion bajó la cabeza de inmediato y se mezcló con un grupo de estibadores que pasaba. Un poco más tarde y, a esa distancia, lo habrían descubierto.
 
 Seorin chasqueó la lengua desde el otro lado.
 
-—Esos también han perseguido gente.
+—Esos también han perseguido gente antes.
 
 —Lo sé.
 
@@ -52,9 +82,9 @@ Seorin chasqueó la lengua desde el otro lado.
 Los dos volvieron a juntarse al final de la capa de amarre.
 Los de delante bajaban hacia la pasarela de transbordo del nivel inferior. Al final de ese camino se amontonaban una zona de alojamientos provisionales, tabernas baratas y almacenes que hacían de casas de empeño. Una zona donde la gente desaparecía antes que los registros.
 
-Sion miró en esa dirección y dijo bajo:
+Sion miró en esa dirección y habló en voz baja.
 
-—Si es un Archivista, ahí es donde tiene sentido esconderse.
+—Si es un Archivista, tiene sentido que se esconda por ahí.
 
 —¿Por qué?
 
@@ -62,102 +92,121 @@ Sion miró en esa dirección y dijo bajo:
 
 —Pero tú vas.
 
-—Yo tengo olfato.
+—Es que yo soy el Sabueso.
 
-Seorin sonrió de medio lado.
+Seorin no se rió.
 
-—Bien. Ya salió el cargo oficial.
+—Ya van dos.
+
+—¿Las estabas contando?
+
+—Sí.
 
 Los dos tomaron la escalera metálica que bajaba al nivel inferior.
-Cada vez que la plancha de hierro crujía bajo sus pies, el ruido de abajo subía más nítido. El sonido de los dados rodando, el de alguien peleándose, el de un regateo por etiquetas de carga, el de insultos en otra lengua. Esta ciudad estaba siempre un poco sobrecalentada, y por eso se tragaba muchas más cosas.
+Cada vez que crujía la chapa bajo los pies, el ruido de abajo subía más claro. Dados rodando, alguien peleándose, un regateo por balizas de carga, insultos en otra lengua. Esta ciudad estaba siempre un poco sobrecalentada, y por eso se tragaba más cosas.
 
 A media escalera, Sion se detuvo de pronto.
 
-Seorin susurró justo detrás:
+Seorin susurró justo detrás.
 
-—¿Qué?
+—¿Qué pasa?
 
 Sion señaló con la barbilla el extremo de la plaza de abajo.
-Dos personas con abrigo gris acababan de cruzarse un instante con aquel par de antes. Por lo que llevaban en la mano y por sus movimientos, no eran corredores del puerto. Demasiado pulcros, demasiado callados. Más que gente que olfatea el dinero, parecían gente que ya había recibido órdenes.
+Dos personas con abrigo gris se cruzaban en ese momento con los dos de antes. Por las marcas que llevaban en la mano y por cómo se movían, no eran corredores del puerto. Demasiado pulcros, demasiado callados. Más que gente que husmea el dinero, parecían gente que ya había recibido órdenes.
 
 —¿Y esos quiénes son?
 
-A la pregunta de Seorin, Sion respondió bajo:
+Sion respondió en voz baja a la pregunta de Seorin.
 
-—No somos los únicos que hemos venido.
+—No somos los únicos que han venido.
 
 Antes de que terminara de hablar, abajo estalló un breve forcejeo.
-El hombre que cojeaba de la pierna izquierda se giró sacudiéndose la mano de alguien, y uno de los abrigos grises se le metió de inmediato en el pecho. Un cuchillo, una porra de descarga, algo a medio camino entre las dos: una luz brilló muy brevemente.
+El hombre que cojeaba de la pierna izquierda se volvió sacudiéndose la mano de alguien, y uno de los abrigos grises se le metió de inmediato cuerpo a cuerpo. Un cuchillo, una porra de choque o algo a medio camino: brilló una luz.
 
 La multitud se partió entre gritos.
 
-—Corre.
+—Corremos.
 
 Esta vez Seorin se movió primero.
-Sion la siguió enseguida, bajando la escalera de dos en dos.
+Sion la siguió enseguida, saltando los escalones de dos en dos.
 
 La parte baja de la plaza se volvió un caos en un instante.
-Cajas de carga derramándose, botellas haciéndose añicos, insultos pidiendo paso. El hombre que cojeaba se abrió hueco a empujones entre la gente, y los dos abrigos grises que querían atraparlo lo siguieron cada uno por un lado distinto.
+Cajas de carga volcadas, botellas haciéndose añicos, insultos para que abrieran paso. El hombre que cojeaba se metió a empujones entre la gente, y los dos abrigos grises que querían atraparlo lo siguieron cada uno por un lado.
 
 Sion corría intentando ver a los tres a la vez.
 Quién era el Archivista, quién el correo, quién el perseguidor: todavía no podía estar seguro. Pero una cosa estaba clara.
 
-**Aquellos ya se perseguían unos a otros por el mismo objeto.**
+Ya se estaban persiguiendo unos a otros por el mismo objeto.
 
-Seorin torció a la derecha y gritó:
+Seorin gritó mientras torcía a la derecha.
 
-—¡Yo voy a por el cojo!
+—¡Yo me ocupo del cojo!
 
 —¡No te pases!
 
-—¡Empieza por no pasarte tú!
+—¡Tú no te pases primero!
 
-Aun en pleno caos, esa réplica le saltó y Sion estuvo a punto de reírse.
-No era momento para reír, pero justo esa clase de frase, en ese instante, le sujetaba la cabeza.
+Aun en pleno lío, a Sion casi se le escapó la risa al oír esa réplica.
+No era momento para reír, pero que salieran frases así era, al contrario, lo que le sujetaba la cabeza.
 
-Al final de la plaza, bajo una torre de señales oxidada, el cojo perdió el equilibrio y se tambaleó una vez con fuerza.
+Al final de la plaza, bajo una torre de señales oxidada, el hombre que cojeaba perdió el equilibrio y se tambaleó con fuerza.
 En ese momento, algo cayó al suelo desde dentro de su abrigo.
 
-Una pequeña etiqueta de registro.
+Era una pequeña baliza de registro.
 
 Sion cambió de dirección.
-Recogió la etiqueta casi deslizándose, justo antes de que la pisaran bajo los pies de la gente, y el calor residual que quedaba en la superficie le rozó las yemas. Era un objeto que acababa de caer.
 
-Detrás, alguien venía corriendo y soltando insultos.
-Uno de los abrigos grises.
+Clavó la rodilla en el suelo y se deslizó. El pantalón de trabajo rozó contra la chapa mojada y, debajo de la rodilla, le ardió de golpe. La mano salió primero. El tacón de la bota de alguien medio pateó la baliza, la baliza dio un salto y las yemas de sus dedos llegaron adonde había caído. La tenía.
 
-Sin tiempo para pensar, Sion giró el cuerpo y se metió rodando en un callejón lateral.
-Con la etiqueta apretada en la mano, pegó la espalda a la pared, y el abrigo gris pasó rozando la entrada del callejón. No lo había perdido del todo; solo que la multitud se había vuelto a revolver y, gracias a eso, parecía haber perdido el ángulo de visión.
+Todavía estaba tibia. Era la temperatura de algo que acababa de salir de debajo de la ropa de alguien.
 
-El corazón aún le latía con fuerza.
+Detrás se le pegaron unos insultos. Cerca. A dos pasos.
 
-Seorin se deslizó hasta él desde el pasadizo de enlace de enfrente.
+Sion no se levantó. Si se levantaba, llegaría tarde. Tal como estaba, rodó por encima del hombro hacia un lado, y fue a parar a una rendija estrecha entre almacenes. El hombro se enganchó en la esquina de la pared y se le raspó con fuerza.
+
+Pegó la espalda a la pared y contuvo la respiración.
+
+Un abrigo gris pasó rozando la entrada del callejón. Los pasos avanzaron tres más y se detuvieron. Era la pausa de quien está a punto de volver. Entonces, desde la plaza, llegó el estruendo de un montón de cajas de carga derrumbándose, y los pasos torcieron hacia allí.
+
+Sion no se movió hasta que ese ruido se alejó del todo.
+
+Le ardía la rodilla y le escocía el hombro. En la mano, la baliza se iba enfriando.
+
+Seorin llegó deslizándose desde el pasadizo de conexión de enfrente.
 
 —¿Vivo?
 
-—Por los pelos.
+—A duras penas.
 
 —Al cojo lo he perdido.
 
-—En cambio, esto lo he pillado.
+—¿Dónde?
 
-Sion abrió la mano.
-La etiqueta de registro parecía de logística barata de la zona exterior, pero en una de sus caras quedaba la huella chamuscada de una mano. Parte de la superficie de identificación también estaba rayada, y en el borde, muy tenue, había grabado el mismo signo de puntuación.
+—En el callejón de las casas de empeño. Aunque no lo perdí; entró —dijo Seorin, señalando con la barbilla por encima del hombro—. Delante de aquello no cojeaba. Doscientos pasos cojeando, y solo delante de aquello dejó de cojear.
 
-Seorin recobró el aliento y se inclinó a mirar la etiqueta.
+—Era teatro.
+
+—Doscientos pasos de teatro. Solo hasta donde lo veía alguien que lo conocía.
+
+—A cambio, esto lo he atrapado.
+
+Sion abrió la mano y se la mostró.
+La baliza de registro parecía de las de logística barata de la zona exterior, pero en una cara quedaba la marca chamuscada de una mano. Parte de la superficie de identificación también estaba rayada, y en el borde, muy tenue, había grabado un pequeño símbolo.
+
+Seorin recobró el aliento y se inclinó a mirar la baliza.
 
 —¿Se lee?
 
-—La cara está bloqueada.
+—La cara de fuera está bloqueada.
 
-—Bonito. Hoy no hay nada que salga fácil.
+—Hoy no hay nada que salga fácil.
 
-Sion le dio la vuelta a la etiqueta y descubrió, en el borde del otro lado, una muesca diminuta hundida.
-No era un cierre de fábrica, sino más bien la marca de alguien que había añadido un sellado personal por encima.
+Sion le dio la vuelta a la baliza y descubrió, en una esquina del otro lado, una muesca diminuta hundida.
+No era un cierre de fábrica; parecía la marca de alguien que había añadido otro sellado por su cuenta.
 
 Apretó la muesca con la punta de la uña.
 
-La superficie de la etiqueta tembló muy brevemente y apareció una proyección tenue.
+La superficie de la baliza tembló y apareció una tenue proyección de texto.
 No era una frase completa.
 Parte de un código de destino, parte de una franja horaria de transbordo y una sola línea corta.
 
@@ -165,63 +214,57 @@ Parte de un código de destino, parte de una franja horaria de transbordo y una 
 
 Los dos contuvieron el aliento a la vez.
 
-Seorin fue la primera en maldecir, bajo.
+Seorin fue la primera en maldecir en voz baja.
 
-—No me jodas.
+—Qué locura.
 
-Sin apartar los ojos de la proyección, Sion dijo:
+Sion habló sin apartar los ojos de la proyección.
 
 —Está vivo.
 
-—De momento.
+—Por ahora.
 
-—Sí. De momento.
+—Sí. Por ahora.
 
-Las breves letras azules se retorcieron en el aire y se desvanecieron.
-La etiqueta volvió a enfriarse en su mano como un objeto muerto.
+Las breves letras azules se retorcieron en el aire y desaparecieron.
+La baliza volvió a enfriarse en su mano como un objeto muerto.
 
 Pero ya era suficiente.
 
 El Archivista no estaba muerto.
-Al menos en este puerto, lo seguían tratando como a alguien con vida. Y alguien retenía algo, sin entregarlo, hasta confirmar esa supervivencia.
+Al menos en este puerto, todavía se le trataba como a alguien vivo. Y alguien no estaba entregando algo hasta confirmar esa supervivencia.
 
 Seorin fue la primera en levantar la cabeza.
 
-—Entonces ¿qué estamos persiguiendo ahora? ¿Al Archivista o el envío?
+—Entonces, ¿qué estamos persiguiendo ahora? ¿Al Archivista o el envío?
 
-Sion apretó la mano en torno a la etiqueta.
-Ya no era una caza para confirmar la vida o la muerte de una sola persona. Había que mantener vivo a alguien y comprobarlo para que la siguiente entrega continuara; es decir, que el objeto, la persona y el orden estaban atados sobre una misma línea.
+Sion apretó la mano con que sujetaba la baliza.
+Solo si alguien seguía vivo pasaba lo siguiente. Una persona estaba atada a un objeto, y hasta que se confirmara a esa persona, toda la línea seguía detenida.
 
-—Los dos.
+—Las dos cosas.
 
-—La cosa se ha complicado.
+—La cosa ha crecido.
 
-—Aquí es donde se complica siempre.
+—Es aquí donde empieza a crecer.
 
 Fuera del callejón seguía el alboroto.
-Alguien buscaba al hombre que cojeaba, alguien buscaba el objeto que acababa de caer, alguien ya se preparaba para cortar su propia línea y desaparecer.
+Alguien buscaba al hombre que cojeaba, alguien buscaba el objeto que acababa de caer, y alguien ya se preparaba para cortar solo su propia línea y desaparecer.
 
-Sion miró la multitud grisácea más allá del callejón y soltó el aire muy despacio.
+Sion miró la multitud grisácea fuera del callejón y soltó el aire muy despacio.
 
 Y justo en ese momento,
-varios abrigos negros que pasaban por la pasarela de enlace superior, al otro lado de la plaza, entraron en su campo de visión.
+unos cuantos abrigos negros que pasaban por la pasarela de conexión superior, al otro lado de la plaza, entraron en su campo de visión.
 
-No era el andar de un estibador del puerto, ni de un corredor, ni de un guardia civil.
-Demasiado ordenado, el movimiento de quienes habían llegado justo a tiempo.
+No era el andar de estibadores del puerto, ni de corredores, ni de guardias privados.
+Demasiado ordenado; era el movimiento de gente que no había llegado demasiado tarde.
 
 Seorin también levantó la cabeza siguiendo su mirada.
 
 —¿Y eso qué es ahora?
 
-Sion miró un instante hacia allí y volvió a apretar la etiqueta.
+Sion miró un momento hacia allí y volvió a apretar la baliza.
 
-—Un olor más molesto todavía.
-
-En medio del ruido del puerto neutral,
-Sion tuvo por primera vez una certeza.
-
-Esto ya no era algo que se pudiera tapar dentro de la Oficina de Rutas Exteriores.
-Y en esta ciudad ya habían entrado otras manos cuyo rostro aún no conocía.
+—Un olor todavía más fastidioso.
 
 ---
 

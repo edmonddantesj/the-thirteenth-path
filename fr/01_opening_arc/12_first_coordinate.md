@@ -1,222 +1,253 @@
 # Chapitre 12 — La coordonnée du premier fragment
 
-Elia ne dit rien pendant un long moment. Elle regardait seulement le fragment.
+Elia n'avait pas encore retiré la main du couvercle que Seorin parla.
 
-Le silence dans la pièce était le même qu'avant, mais sa texture avait changé du tout au tout.
-Si le silence qui avait accueilli l'ouverture de la porte était celui de deux camps qui se jaugent, celui-là était le silence de quatre personnes suspendues au bout des doigts d'Elia.
-Sous la vieille lampe posée sur le bureau, la coupe nette, la bordure brûlée et ce qui restait d'un nom commençaient tout doucement à livrer un autre visage.
+« Je sais qu'on peut pas tout faire en un jour, mais nous, on n'a pas de lendemain. »
 
-Elia posa le fragment sur la tablette de lecture et tendit l'autre main pour y déposer un filtre très fin.
-Des lignes pâles se répandirent dans l'air. Des phrases mortes, des lignes de signature tranchées, des traces d'enregistrement tordues par la chaleur. Ce n'était pas un document — c'était quelque chose qui ressemblait davantage à une blessure. Sauf qu'Elia avait moins l'air de quelqu'un qui lit les phrases que de quelqu'un qui commence par lire là où la coupure avait été faite.
+Elia regarda Seorin, puis le couvercle.
 
-Sion se tenait debout, incapable de croiser les bras.
-Seorin, à côté de lui, remarqua la chose et dit à voix basse :
+« Autrement dit, tu veux que je te donne aujourd'hui l'endroit où aller. »
+
+« Oui. »
+
+Elia rouvrit la boîte. Elle posa le fragment sur la tablette de lecture et, de l'autre main, le recouvrit d'un film filtrant très fin.
+Des lignes pâles montèrent au-dessus de la tablette. Des phrases mortes, des lignes de signature rompues, des résidus d'archive tordus par la chaleur. Cela tenait moins du document que de la blessure. Seulement, Elia ressemblait moins à quelqu'un qui lit des phrases qu'à quelqu'un qui commence par lire à partir d'où la blessure a été tranchée.
+
+Sion se tenait debout, sans même parvenir à croiser les bras.
+Seorin, à côté de lui, le remarqua et dit tout bas :
 
 « Tu retiens ton souffle, là. »
 
 « Pas du tout. »
 
-« Mensonge. »
+« Menteur. »
 
-Même ce bref échange sonnait creux, cette fois.
+Même ce bref échange manquait de force, cette fois.
 Le regard de Sion restait collé à la tablette de lecture.
 
-Elia murmura, très bas :
+Elia murmura à voix basse :
 
-« C'est pas un seul fragment. Il y en a deux. »
+« Il n'y a pas un fragment. Il y en a deux. »
 
 Sern réagit aussitôt.
 
-« Deux. »
+« Deux ? »
 
-« Ouais. »
-Elia répondit sans lever la tête.
-« La phrase effacée est une, mais les traces qui restent partent dans deux directions. L'une vers le verdict, et l'autre… »
+« Oui. »
+Elia répondit sans même lever la tête.
+« La phrase effacée est une seule, mais les traces qui restent partent dans deux directions. L'une du côté du verdict, et l'autre… hum. »
 
-Elle poussa d'un doigt le bord du filtre, et sur la tablette de lecture apparut une ligne bien plus ténue. Moins une phrase qu'une marque de coordonnée, par sa texture. Et pourtant si incomplète que n'importe qui d'ordinaire l'aurait prise pour du bruit griffé dix fois de plus, et serait passé à autre chose.
+Quand elle souleva du doigt un bord du film filtrant, une ligne bien plus ténue apparut sur la tablette. Elle tenait moins de la phrase que de la marque de coordonnée. Mais elle était si incomplète que n'importe qui l'aurait prise pour un bruit de plus, rayé une dizaine de fois, et serait passé outre.
 
-« C'est pas une phrase. »
-Seorin parla la première.
+« Ça, ce n'est pas une phrase. »
+Ce fut Seorin qui parla la première.
 
-« Non, c'est pas une phrase. »
-Elia confirma.
-« C'est une route. »
+« Non, pas une phrase. »
+Elia acquiesça.
+« C'est une voie. »
 
 Sion plissa les yeux, très lentement.
 
-« Une route ? Une voie de transit ? »
+« Une route de navigation ? »
 
-« Pas complète. »
-Elia continuait à appuyer sur le fragment en parlant.
-« C'est plus proche d'une voie fermée. Exactement dit : une voie effacée. »
+« Pas entière. »
+Elia appuya de nouveau sur le fragment en parlant.
+« C'est plutôt une voie fermée. Pour être exacte, une voie effacée. »
 
-À ces mots, Ater fit un premier pas en avant.
-Cette fois, il n'avait pas le visage de quelqu'un qui ménagerait des droits ou des convenances.
-Route. Voie fermée. Voie effacée. Dans le monde de la maison Valkar et de l'Office des Routes Extérieures de l'Alliance, ces mots-là étaient aussi sensibles qu'un nom de personne.
+À ces mots, Ater fit pour la première fois un pas de plus vers elle.
+Cette fois, il n'avait pas le visage de quelqu'un qui se soucie de prérogatives ou de bienséance.
+Voie. Voie fermée. Voie effacée. Dans le monde de la maison Valkar et de la Chambre de Reconnaissance impériale, c'étaient des mots aussi sensibles qu'un nom de personne.
 
-Elia ajouta avec un calme qui montrait qu'elle connaissait ce genre de réaction :
+Elia ajouta très calmement, comme si elle connaissait aussi ce genre de réaction :
 
-« S'il ne restait que le fragment du verdict, je ne l'aurais pas fait ressortir.
-Quand quelqu'un a caché ça, il a pas coupé que la phrase — il a coupé la route avec. »
+« S'il ne restait que le fragment du verdict, on n'en verrait pas autant.
+Quand quelqu'un a caché ça, il n'a pas coupé que la phrase, il a coupé la voie avec. »
 
-Sern demanda, très bas :
+Sern demanda à voix basse :
 
-« Cela signifie-t-il que cette route est parvenue à l'Archiviste ? »
+« Cela signifie-t-il que cette voie est parvenue jusqu'à l'Archiviste ? »
 
 Elia haussa les épaules.
 
-« Si elle lui est parvenue, ou si c'est l'Archiviste qui l'a saisie en dernier — ça, je sais pas encore.
-Mais au minimum, ça, c'est pas une trace collée là par hasard. »
+« Si elle est allée jusqu'à l'Archiviste, ou si c'est l'Archiviste qui l'a retenue en dernier, je ne le sais pas encore.
+Mais au moins, ce n'est pas une marque restée collée là par hasard. »
 
-Sur la tablette de lecture, la ligne pâle trembla une fois de plus.
-Elia sortit d'un tiroir de bureau une lentille plus petite encore et la posa sur le filtre.
-Alors, à l'extrémité de la ligne, une marque ressemblant à des chiffres tronqués et une ancienne notation de type myo s'animèrent l'espace d'un instant.
+Sur la tablette, la ligne pâle trembla encore une fois.
+Elia sortit du tiroir du bureau une lentille plus petite et la posa sur le film filtrant.
 
-Sion avala sa salive.
+Alors, à l'extrémité de la ligne, une marque qui ressemblait à un chiffre tronqué et, accolée à elle, une autre notation reprirent vie l'espace d'un instant.
 
-« Ça, c'est… »
+Le chiffre, n'importe qui pouvait reconnaître que c'était un chiffre.
 
-Au lieu de répondre, Elia retira la lentille et éteignit l'écran.
-Quand la lumière pâle mourut, l'air de la pièce retomba à nouveau sur une réalité humide et lourde.
+L'autre, non.
 
-« Vous ne pouvez pas vous promener avec tout ça sur vous. »
+Les traits étaient fins, et leurs extrémités s'enroulaient vers l'intérieur. Cela ne ressemblait à aucune des notations qu'on employait aujourd'hui au port. C'était une ancienne notation de lignée myo.
 
-Seorin haussa un sourcil.
+Sion retint son souffle.
 
-« Intéressant. Ça, on le sait. »
+« Ça… »
 
-« Non, c'est pas une question de degré. »
+Elia ne répondit pas. Elle retira la lentille, ôta le film filtrant et éteignit la lumière.
+
+Ce fut rapide.
+
+Sion vit cette vitesse. Jusque-là, elle examinait un seul fragment en changeant deux fois chaque angle. Et dès que cette notation était apparue, elle avait fait trois gestes d'un coup.
+
+« …Pourquoi t'as éteint ? »
+
+« La lumière l'abîme, à la longue. »
+
+« Tout à l'heure, ça te dérangeait pas. »
+
+Elia rangea la lentille dans le tiroir et referma le tiroir.
+
+« Tout à l'heure, je regardais un endroit qui ne s'abîme pas. »
+
+Sion n'insista pas. Il aurait obtenu la même réponse, et tous deux savaient que cette réponse était un mensonge.
+
+À l'autre bout de la pièce, Ater demanda :
+
+« Avez-vous lu cette notation ? »
+
+« Non. »
+
+« Vous l'avez lue. »
+
+Elia leva enfin la tête. C'était la deuxième fois aujourd'hui, dans cette pièce, qu'elle regardait quelqu'un en face.
+
+« Mettons que je l'ai lue. Et alors ? »
+
+« Je ne vous demande pas ce qu'elle signifie, dit Ater après un temps. Je vous demande pourquoi vous ne le dites pas maintenant. »
+
+La pièce devint silencieuse.
+
+Seorin fit un demi-pas vers Elia. Le même pas que lorsqu'elle s'était glissée entre Sern et Sion devant la canalisation.
+
+« Ça, tu le demanderas plus tard. »
+
+« Si ce n'est pas maintenant, il n'y aura peut-être plus d'occasion de le demander. »
+
+« Alors il n'y en aura pas. »
+
+En observant ce bras de fer, Sern comprit qu'il voyait la même chose pour la troisième fois aujourd'hui.
+
+À l'instant où cette notation était apparue, trois personnes avaient bougé dans cette pièce. Celui qui avait retenu son souffle, celle qui avait éteint la lumière, celle qui s'était interposée. Tous trois étaient du côté des 373 dans le registre du dock, et aucun des trois n'avait rien dit.
+
+Sern ne nota rien. Un conseiller de la Chambre de Reconnaissance, d'ordinaire, note ce genre de chose.
+
+Aujourd'hui, il ne nota rien.
+
+Elia repoussa la tablette de lecture et dit :
+
+« Vous ne pouvez pas trimballer tout ça avec vous. »
+
+Seorin haussa les sourcils.
+
+« Ça, on le sait aussi. »
+
+« Non, pas à ce niveau-là. »
 Elia leva la tête.
-« Ce qui vient d'apparaître, c'est pas juste un résidu de verdict. C'est un résidu de route — une route que quelqu'un a voulu effacer. »
+« Ce qui vient d'apparaître, ce n'est pas juste un résidu de verdict. C'est le résidu d'une voie que quelqu'un a voulu effacer. »
 
-Un court silence.
+À l'instant où ces mots tombèrent, Sion sentit que le poids du fragment qu'il gardait contre lui changeait imperceptiblement.
 
-À l'instant où ces mots tombèrent, Sion sentit que le poids du fragment qu'il tenait encore dans la main venait imperceptiblement de changer.
-Ce n'était plus l'affaire d'un seul nom.
-Quelqu'un avait coupé en même temps le nom et la route que ce nom devait emprunter.
-Et ce genre de route ne se reconstituait pas à partir d'un seul document — c'était une chose qui n'avait de suite que si l'on revenait fouler les lieux mêmes qui avaient été tranchés.
+Ater, en entendant ces mots, baissa les yeux.
+La voie était plus dangereuse.
+Pour quelqu'un du côté de la Chambre de Reconnaissance impériale, cette pensée n'était que trop familière, et pourtant, en cet instant, elle prenait un tout autre sens.
 
-Ater, en l'entendant, baissa les yeux une fraction de seconde.
-*La route est plus dangereuse.*
-Cette phrase, pour quelqu'un issu de l'Office, était trop familière — et pourtant, dans cet instant précis, elle sonnait d'une façon entièrement différente.
-
-Sern demanda tranquillement :
+Sern demanda calmement :
 
 « Jusqu'où la restauration est-elle possible ? »
 
 Elia ne répondit pas tout de suite.
-Elle considéra tour à tour le fragment, la tablette de lecture, puis les quatre visages.
-La possibilité même d'une restauration était déjà une information qui avait de la valeur. Sauf que ces quatre-là apportaient quelque chose de plus dangereux que de l'argent.
+Elle parcourut plutôt du regard, tour à tour, le fragment, la tablette de lecture et les visages des quatre.
+La possibilité même d'une restauration était déjà une information qui coûtait cher. Or ces quatre-là apportaient quelque chose de plus dangereux que de l'argent.
 
-« Une restauration complète, c'est pas encore faisable. »
-Elle dit ça.
-« En revanche, une première coordonnée est apparue. »
+« Une restauration complète, pas encore. »
+Elle le dit sans détour.
+« En revanche, le premier fragment est sorti. »
 
 Sion demanda aussitôt :
 
-« Où. »
+« Où ? »
 
-Elia tapota du bout de l'ongle la courte marque qu'elle venait de noter au bord de la tablette de lecture.
+Elia tapota de l'ongle la courte marque qu'elle venait de noter sur une feuille à côté de la tablette.
 
-« Un point de transit abandonné du côté de l'amas stellaire extérieur.
-Le nom a changé depuis, et dans les registres officiels il doit rester là comme un endroit à peu près mort. »
-Elle ajouta brièvement :
-« Autrefois c'était un point de transit auxiliaire où l'on triait marchandises et passagers mis à l'écart — mais après la guerre, il savait trop de choses, alors il est resté en faisant le mort. »
+« Un point de transit fermé, du côté de l'amas stellaire extérieur.
+Il a changé de nom depuis, et dans les registres officiels il doit figurer comme un endroit à peu près mort. »
+Elia poursuivit.
+« Autrefois, c'était un point de transit auxiliaire où l'on répartissait les marchandises et les gens repoussés vers l'extérieur ; après la guerre, il en savait trop, alors il est resté là en faisant le mort. »
 
-Seorin murmura, très bas :
+Seorin murmura à voix basse :
 
-« Bien. On a une destination, maintenant. »
+« Voilà qu'on a même une destination. »
 
-« Destination, c'est un grand mot — c'est plutôt un premier point à vérifier. »
-Elia rectifia.
-« Aller là-bas ne garantit pas une réponse immédiate. Mais il y a de bonnes chances que la prochaine trace de qui a effacé la route s'y trouve. »
-Elia frappa la tablette du bout des doigts.
-« On peut transporter le fragment dans sa poche, mais les réponses restent toujours bien plus nombreuses là où le fragment a été coupé. »
+« Pas une destination. Un premier point à vérifier. »
+Elia la reprit.
+« Une fois là-bas, vous n'aurez peut-être pas de réponse tout de suite. Mais il y a de bonnes chances que la trace suivante de celui qui a effacé la voie s'y trouve. »
+Elia tapota la tablette du bout des doigts.
+« Un fragment, on peut le garder en main, mais les réponses restent toujours plus nombreuses là où ce fragment a été découpé. »
 
-Sion l'entendit et remit le fragment à l'intérieur de sa veste.
-Jusqu'à l'instant d'avant, il était du côté de ceux qui fuient.
-Mais là, pour la première fois, il savait où aller ensuite.
+À ces mots, Sion remit le fragment à l'intérieur de sa veste.
+Jusque-là, il avait été celui qui fuyait.
+Mais maintenant, pour la première fois, il avait un endroit où aller ensuite.
 
-Ce fut Seorin qui remarqua le premier cette différence subtile.
+Ce fut Seorin qui saisit la première cette différence subtile.
 
-Elle leva légèrement le menton.
-« On est plus juste en train de se faire chasser. »
+Seorin leva légèrement le menton.
+« On n'est plus seulement ceux qu'on chasse. »
 
-Elia eut un bref sourire.
+Elia eut un petit rire.
 
-« Si. On se fait encore chasser, c'est plus juste. »
+« Non. Pour l'instant, ceux qu'on chasse, c'est encore ce qui vous décrit le mieux. »
 Et elle ajouta aussitôt :
-« Seulement, on sait maintenant vers où fuir pour arriver moins en retard. »
+« Seulement, vous savez maintenant où fuir pour arriver moins en retard. »
 
-Yona Hale, appuyé contre le cadre de la porte, croisa les bras.
+Yona, adossée au chambranle de la porte, croisa les bras.
 
-« Amas stellaire extérieur, point de transit abandonné — le carburant va coûter plus cher. »
+« Un point de transit fermé dans l'amas stellaire extérieur ? Le carburant va encore augmenter. »
 
-Sion eut un bref sourire à ces mots.
+Sion eut un petit rire à ces mots.
 
-« J'aurais été déçu si t'avais pas dit ça. »
+« Si tu l'avais pas dit, j'aurais presque été déçu. »
 
 Ater regardait Elia en silence.
-Cette femme ne restaurait pas des archives.
-Elle lisait ce qui n'avait jamais pu être entièrement effacé — les routes tranchées, l'ordre dans lequel on avait tout supprimé, les traces laissées derrière. Si l'Office des Routes Extérieures était l'endroit qui gérait les résultats, ici c'était l'endroit qui lisait les hésitations et les blancs que ces résultats avaient laissés en tombant.
 
 Il dit très bas :
 
-« Si nous nous rendons à ce point de transit, le fragment suivant en sortira-t-il ? »
+« Si nous nous rendons à ce point de transit, y trouverons-nous le fragment suivant ? »
 
-Elia inclina légèrement la tête.
+Elia inclina une épaule.
 
-« Si on a de la chance. »
-Et elle ajouta avec le même calme plat :
-« Si on n'en a pas, vous vous retrouvez enterrés là-bas avec le reste. »
+« Avec de la chance. »
+Puis elle ajouta très calmement :
+« Sans chance, vous y serez enterrés avec le reste. »
 
-La pièce se tut un instant.
-Personne n'entendit ça comme de la vantardise. Elia n'était pas quelqu'un qui exagérait pour faire peur — elle était quelqu'un qui nommait le danger à sa juste valeur, sans ornement.
-
-Sern fut le premier à poser la question pratique :
+Ce fut Sern qui posa le premier la question pratique.
 
 « Qui connaît cette coordonnée ? »
 
 « Pour l'instant, moi. »
-Elia dit.
+Ce fut Elia qui répondit.
 « Et maintenant, vous. »
 
-Seorin eut un bref sourire.
+Seorin rit.
 
-« Bien. Encore un nom engagé. »
+« Voilà nos noms encore en jeu. »
 
 « Non. »
-Elia rectifia.
-« Ce n'est plus seulement un nom. Maintenant, c'est la route aussi. »
+Elia la corrigea.
+« À partir de maintenant, c'est la voie aussi qui est en jeu. »
 
-À ces mots, la pièce se tut un instant de plus.
-Jusqu'à l'instant d'avant, ils tenaient un nom effacé ; désormais, il leur faudrait suivre la route qui avait été coupée avec ce nom.
-Personne ne connaissait encore le vrai nom de cette route.
-Mais une chose était certaine.
-L'affaire dépassait à présent la réhabilitation d'une seule personne — elle glissait vers la traque d'une voie effacée et d'un chemin fermé.
+Sion jeta encore un regard vers la tablette de lecture.
 
-Elia ferma la tablette de lecture comme pour mettre un point final, et dit :
+Elle était éteinte. Un objet sans écran : éteint, ce n'était plus qu'une plaque de la taille d'une paume. La notation de tout à l'heure n'y restait pas. La notation était dans le fragment, et le fragment, à présent, était dans sa poche intérieure.
 
-« Bien.
-Alors il faut choisir pour de vrai, maintenant. »
+Dans cette pièce, une seule personne savait la lire, et cette personne ne la lui avait pas lue.
 
-« Choisir quoi. »
+Sion pressa une fois cet endroit à travers son manteau.
 
-C'est Sion qui demanda.
-
-Elia posa le fragment au milieu du bureau et regarda les quatre personnes tour à tour.
-
-« Fuir, c'est tout — ou partir sur les traces du premier fragment. »
-
-Seorin avait déjà la réponse sur le visage, et Sion à moitié aussi.
-Sern attendait la décision de Son Excellence, et Ater, quelque part entre les deux, poussait sa réflexion dans un silence très compact.
-
-Dehors, le bruit du port ne mourait toujours pas, et ce dépôt ne resterait pas sûr éternellement.
-Mais au moins, en cet instant précis, ce qui s'offrait aux quatre n'était plus la simple survie — c'était une direction.
-
-Et cette direction,
-au-delà de la question de qui avait effacé le nom,
-les forçait maintenant à demander qui avait voulu effacer jusqu'à la route.
+C'était mince.
 
 ---
 

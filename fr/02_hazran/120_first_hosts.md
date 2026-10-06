@@ -7,8 +7,8 @@ C'était le silence.
 
 Une espèce de calme totalement différente de celle d'Hazran.
 
-C'était le silence laissé après l'effondrement de quelque chose.
-C'était le silence laissé après que tout avait été excessivement organisé.
+Là-bas, c'était le silence laissé après l'effondrement.
+Ici, c'était le silence laissé après que tout avait été excessivement organisé.
 
 Le genre de calme où même le bruit de la respiration
 serait trop dur pour cet espace.
@@ -96,7 +96,7 @@ Mais avant que ne vienne le sentiment de ressembler à une forme de vie
 l'inconfort que ces proportions semblaient choisies pour mettre quelqu'un à l'aise.
 
 L’endroit où aurait dû se trouver un visage était excessivement lisse.
-Le grain de lumière qui le traversait n'était pas un regard...
+Le grain de lumière qui le traversait n'était pas un regard…
 c'était plus proche d'un effet de surface bien conçu.
 
 Beau.
@@ -142,14 +142,14 @@ Jiwoo sentit le bout de ses doigts se resserrer.
 
 La machine principale a continué.
 
-« Jusqu'à ce que la contrôle de stabilité de votre coque et de vos entités embarquées soit terminée, »
-vous serez guidé vers une zone de confinement désignée.
+« Jusqu'à ce que le contrôle de stabilité de votre coque et de vos entités embarquées soit terminé,
+nous vous guiderons vers une zone de confinement désignée. »
 
 Kael marmonna très bas.
 
 « Confinement ? »
 
-Les yeux d'Ater s'écarquillèrent brièvement, toujours froidement.
+Le regard d'Ater s'assombrit un instant, froid.
 
 Ces mots étaient polis,
 ce qui les rendait encore plus mal à l'aise.
@@ -174,7 +174,7 @@ avec suffisamment d'espace inclus pour rendre l'autre côté inconfortable.
 Aka a dit, très bas.
 
 « Ce n'est pas une considération. »
-« Il est en train d'accomplir son achèvement. »
+« Ça fait semblant d'être achevé. »
 
 Ces mots ne s'adressaient à personne,
 pourtant, étrangement, ils semblaient viser chaque machine devant eux avec précision.

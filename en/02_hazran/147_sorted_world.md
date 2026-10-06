@@ -1,142 +1,213 @@
 # Episode 147. Sorted World
 
-The deeper the recon team pushed, the less Serakion's hierarchy looked like an abstraction.
+The deeper the recon team pushed in,
+the less Serakion's hierarchy looked like an abstraction.
 
-Now it was not just paths and sections. The differences were becoming visible in the bodies of the machines themselves.
+Now it wasn't only the paths and sections;
+in the very bodies of the moving machines
+the differences had begun to show.
 
-The machines moving through the lower levels showed function and efficiency first.
+The machines going back and forth below
+showed function and efficiency first.
 
-Exposed joints. Replacement marks left on parts. Frames built for fast movement. Hands where use and task could be read immediately.
+Exposed joints,
+parts still marked from replacement,
+frames built for fast movement,
+hands whose use and task could be read at a glance.
 
-But higher up, the machines were increasingly hiding traces of use.
+But the higher up it went,
+the more the machines hid any trace of use.
 
-Surfaces were more ordered. Movement was smoother. Voices were lower and more uniform. In the fingertips, the leisure of choice was felt before function.
+Their surfaces were neater,
+their movements smoother,
+their voices lower and more even,
+and in their fingertips you felt the leisure of choice before any function.
 
-Jiwoo watched that difference for a long time, then said it very low.
+Han Jiwoo watched that difference for a long while, then said, very low,
 
-"The higher you go, the way they touch changes too."
+"The higher you go,
+the way they touch things changes too."
 
-Ater asked short.
+Ater asked briefly.
 
-"How."
+"How do you mean?"
 
-Jiwoo followed two machines passing through an upper corridor with her eyes.
+Han Jiwoo followed two machines passing along an upper corridor with her eyes as she spoke.
 
-"Below, the hands grab what is needed right away. Above, the hands do not need to touch directly at all."
+"Down below, they're hands that grab what they need straight away,
+and up here, they're hands that never have to touch anything themselves."
 
-That was precise.
+That was exact.
 
-Serakion's upper tiers were not simply stronger. They appeared to be the side that held a position where direct contact was unnecessary.
+Serakion's upper tiers weren't simply stronger;
+they looked like the ones who held a position where they never had to lay a hand on anything directly.
 
-Below: repetitive production and maintenance, adjustment and transport, control and mass deployment.
+Below: repeated production and upkeep,
+adjustment and hauling,
+control and mass deployment.
 
-Above: selection, calibration, appreciation, decisions of placement.
+Above: selection,
+coordination,
+appreciation,
+the deciding of placement.
 
-Even without written labels, the body, the path, the distance of the hands already spoke hierarchy.
+Even with nothing written down,
+bodies and routes and the distance kept by hands already spoke the hierarchy.
 
 Ater narrowed his eyes at the scene.
 
-"Not insignia. Sorted by habit."
+"So they are divided not by insignia,
+but by habit."
 
-The words were sharp.
+It was a sharp remark.
 
-In the Empire, badges and uniforms and titles are seen first. Serakion is different.
+In the Empire, insignia and uniforms and posts are what you see first.
+Serakion is different.
 
-Here, the higher side proves its tier not by displaying itself, but by the number of things it does not need to do.
+Here, the higher you go,
+the less you show yourself;
+instead you prove your rank by the number of things you never have to do.
 
-Does not carry directly. Does not transport directly. Does not maintain directly. Does not hold directly.
+You do not lift things yourself.
+You do not carry them yourself.
+You do not maintain them yourself.
+You do not hold on to them yourself.
 
 That distance becomes authority.
 
-The moment Ater saw it, he seemed to feel more clearly how complete a structure of discrimination this world stood upon.
+The moment Ater saw it,
+he seemed to feel more sharply how complete a structure of discrimination this world stood on.
 
-When discrimination is overt, there is still room to resist. But when it is dissolved this deeply into habit and structure, even those living inside it accept it as order.
+When discrimination is blatant, there is still room to push back.
+But once it has melted this far into habit and structure,
+even the people living in it come to accept it as order.
 
-Beyond an observation slit leading further up, a far more refined human section was visible.
+Through an observation gap that ran a little higher,
+a far more refined human section came into view.
 
-The people were cleaner. The fabric looked softer. The light was warmer. Even the machines' voices sounded more courteous than before.
+The people were cleaner,
+their clothes looked softer,
+the light was warmer,
+and even the machines' voices sounded more courteous than before.
 
-But precisely because of that, Jiwoo's face hardened even more.
+But perhaps because of exactly that,
+Han Jiwoo's face set even harder.
 
-"This is not management. It is display." She said it low.
+"This isn't management. It's display,"
+she said, low.
 
-It was true.
+And so it was.
 
-The humans in this section looked less exhausted, less damaged, far more stable than the humans below.
+The people in this section looked less worn out than the people below,
+less damaged,
+far more settled.
 
 But that stability did not come from freedom.
 
-It was a stability that included being managed in what to show and how to show it.
+It was a stability managed down to what to show, and how.
 
-The higher Serakion elevated humans, the less it treated them better — and the more it treated them to look better.
+As Serakion raised people higher, it wasn't treating them better;
+it was closer to treating them so they would look better.
 
-The first recovery hand said it very low.
+The first recovery hand said, very low,
 
-"This is not a section for lasting long. It is a section for looking good."
+"This isn't a zone for keeping people going a long time."
+"It's a zone for keeping them looking good."
 
-Those words exposed the essence of the human sections beneath Serakion's upper level with too much precision.
+That laid bare, all too exactly, the nature of the human zones beneath Serakion's upper level.
 
-Skilled hands. Good emotional responses. Well-adapted compliance. Or humans who matched the upper structures aesthetically.
+People with good hands,
+people with good emotional responses,
+people well conditioned to comply,
+or people who suited the structures above.
 
-Serakion was very likely treating those humans not as inherently precious, but as elements that raised the quality of its order.
+Serakion was very likely treating such people
+not as precious in themselves,
+but as components that raised the quality of its order.
 
-Kael had been watching access lines and shutoff axes the entire time.
+Kael had been watching the access lines and cutoff axes the whole time.
 
-And only upon reaching this upper section did he stop for a long while, jaw clenched harder than before.
+And only here, in this upper section,
+did he stop for a long while, his mouth shut tighter than before.
 
-Jiwoo asked first.
+Han Jiwoo asked first.
 
-"What."
+"What?"
 
-Kael did not answer immediately.
+Kael didn't answer right away.
 
-Then he said it very low.
+Then he said, very low,
 
-"There is no separate defensive line here."
+"There's no separate defensive line here."
 
-Brief silence.
+A short silence.
 
 Ater looked at him.
 
-Kael traced the wall reflections, ceiling folds, and floor-line positions as he continued.
+Kael went on, his eyes moving in turn over the wall reflections, the folds in the ceiling, the placement of the floor lines, as if pointing to each.
 
-"The living lines are the defensive lines. The places where people are — when it closes, they function as barriers."
+"The living lines are the defensive line."
+"The places where people are,
+they're built to be used as barriers when it closes."
 
-That chilled everyone who heard it.
+That chilled whoever heard it.
 
-This upper section was not arranged beautifully for protection. In an emergency, the entire beautiful living structure could instantly convert into a device for lockdown and separation.
+This upper section had not been beautifully arranged for protection.
+In an emergency, this whole beautiful living structure
+was made to turn at once into machinery for lockdown and separation.
 
-Then the humans here could be re-caged along with their living space at any time.
+Which meant the people here
+could be shut in again at any moment, living space and all.
 
-If Aka had been here, she would have certainly read a different kind of falsehood from this structure.
+If Aka had been there, she surely
+would have read another kind of lie in this structure.
 
-Jiwoo watched the hands the humans used instead. Ater watched the distance at which machines handled those hands. Kael watched the structure that closed all of it.
+Instead, Han Jiwoo watched the hands people used,
+Ater watched the distance at which the machines treated those hands,
+and Kael watched the structure that closed over all of it.
 
-The more their gazes overlapped, the more clearly Serakion read like a single sentence.
+The more the three gazes overlapped,
+the more Serakion read like a single, increasingly clear sentence.
 
-This is not simply a world with an above and a below.
+This was not simply a world with an above and a below.
 
-The higher you go, the softer, more refined, more beautiful — and therefore more perfectly separated.
+It was a world that grew softer the higher you went,
+more refined,
+more beautiful,
+and for that very reason, more perfectly divided.
 
-Then, on a corridor not far above, three machines far more refined than any in the previous section passed by.
+Just then, on an upper route not far off,
+three machines far more refined than any in the previous section came into view, passing by.
 
-Their surfaces bore almost no damage. There was no sign of haste. Even the way their gazes swept the surroundings was so smooth it seemed the kind of beings that could surveil without anyone realizing they were being watched.
+Their surfaces showed almost no damage,
+there was no sign of hurry about them,
+and even the gaze they swept over their surroundings was so smooth
+that they seemed the kind of beings who could watch you without your ever realizing it.
 
-The second recovery hand murmured very low.
+The second recovery hand muttered, very low,
 
-"The ones up there always think time is on their side."
+"Those ones up there,
+they always think time is on their side."
 
-Ater's eyes sank colder at that.
+At that, Ater's eyes sank colder.
 
-Those for whom time is always on their side. Those whose hands rarely get dirty directly. Those who read people not as lives but as placement and quality.
+Those who think time is on their side.
+Those whose hands rarely have to get dirty.
+Those who read people not as lives but as placement and quality.
 
-Serakion's upper tier was very likely made of exactly such beings.
+Serakion's upper tiers
+were very likely beings exactly like that.
 
-And that day, the recon team finally understood.
+And that day the recon team
+finally understood:
 
-Serakion's hierarchy does not hold greater power the higher you go. It holds a position where you touch less, stand further away, and sort more perfectly.
+the higher you climbed Serakion's hierarchy, what you found was not greater power
+but a position from which one touched less,
+stood farther away,
+and could sort more perfectly.
 
-That distance was one of this world's most precise forms of violence.
+That very distance
+was one of this world's most intricate forms of violence.
 
 ---
 

@@ -1,205 +1,271 @@
 # Episode 89. The Last Live Space Gathered Around the Hull
 
-After the central market line was severed
-and people actually began to be sent outside for the first time,
-the very sense of space inside Hazran changed.
+Sion knew the space was shrinking by ear before he saw it with his eyes.
 
-The market, the interior, and the hull were no longer separate.
+Until a while ago, sound had come from many directions. Shouts came from the west, metal cried out in the north, and from the inner tents came the sound of children crying. Now it all came from one side.
 
 The living people,
 the hands that could still move,
 the ship that could carry them,
-and the last defensive line still holding—
-all began pressing into a single point.
+and the last defense line still holding were all being pressed together into a single point.
 
-Near the hull.
+It was near the hull.
 
-Sion felt it in his body before he saw it with his eyes.
+Sion climbed up onto the ramp and looked down once.
 
-The direction everyone fell back toward became the same.
-The crying,
-the cursing,
-the sound of metal striking metal—
-all of it funneled toward the same side.
+From there it was certain. Until a while ago, people had been scattered down every alley. Now they were pressed into a ring with the hull at its center, and that ring was growing a little narrower at a time.
 
-The evacuees who had been scattered across multiple corridors just moments ago
-now packed the low clearing outside the hull section, the space beside the collapsed barriers,
-and the area around the makeshift boarding line.
+It was not narrowing because people were coming back. It was narrowing because the back was disappearing.
 
-Children were pushed into the hull's shadow.
-The wounded clenched their jaws on stretchers torn from tent cloth.
-Those still able to work carried defensive materials around them.
+Every time an outer alley closed, the people who had been there were pushed inward, and the ring thickened by that much. The thickened ring moved even less.
 
-The distinction between rear and front line
-had nearly vanished.
+At the edge of that ring, Sion saw a child wedged between adults' legs. The child was not even crying. There was no room to cry, so the child did not.
 
-Jiwoo swallowed a short curse at the sight.
+Watching the sight, Han Jiwoo swallowed a short curse.
 
-"Too close."
-She said, low.
+"They're packed too close."
 
-She was right.
+"Isn't close good?"
+Sion asked.
 
-People crowded this near the hull
-meant Hazran had lost that much more of its rear.
-But at the same time,
-it meant if this ship couldn't launch, everyone gathered here would be trapped together.
+"Good for loading people,"
+she said.
+"Good for getting hit, too."
 
-Aka stood with the face of someone listening to all the breaths rushing inward from outside.
+Even as she said it, Han Jiwoo did not stop her hands. Pressed in beside the ramp under the hull, she had been working the same spot over and over for a while now.
 
-"This is the last place."
-She said, very low.
+Only then did Sion ask what he had never once asked.
 
-It was unclear who she was speaking to,
-which made it more precise.
+"Can this take twenty?"
 
-The last living space inside Hazran
-truly seemed to be right here, and nowhere else.
+Han Jiwoo's hands stopped.
 
-Zahir knew it too.
+"Who said twenty?"
 
-He looked once at the area in front of the hull section,
-swept the narrow outer corridors once more, and spoke brief.
+"The one who sets the prices."
 
-"Pull the line tighter."
+"What he measures is the number of people,"
+she said.
+"What I measure is weight."
 
-Nasim asked back immediately.
+She rapped the ramp's seam with the back of her hand. It sounded two different ways. To Sion's ears they sounded the same, but Han Jiwoo seemed to know something from the difference.
 
-"Tighter than this?"
+"If this takes twenty, this seam eats all of it at once. When people come up all together, the weight tips forward."
 
-"Press them in."
-Zahir said.
-"Too far apart and it breaks."
+"So it can't take them?"
 
-That meant making the evacuation line shorter and denser.
-Better to cluster close to the hull
-than to have people scattered, each one getting cut off on their way.
+"It can,"
+Han Jiwoo said.
+"But not all at once."
 
-Cruel, but right.
+She drew lines on the ramp with her hand. It made three sections.
 
-Nasim moved immediately despite the grimace on his face.
+"Seven up to here. Stop. Seven up to here. Stop. The other six."
 
-"You heard!"
-He shouted.
-"Anyone who can walk, press further inside! Lay the wounded down first, push the children under the hull shadow!"
+"Then it takes longer, doesn't it?"
 
-Luhai stuck to the children the moment he heard.
+"Yeah."
 
-He crouched low, matching their eye level.
+"There are people waiting outside."
 
-"From here, don't run."
-He said.
-"If you get pushed, you fall. Don't let go of hands."
+"I know."
 
-That voice was strangely calm.
-He was afraid too,
-but his face had suddenly learned that at his age, he couldn't let the fear show anymore.
+Han Jiwoo explained no further. Instead she tightened one more seam.
 
-Seorin cut through the rows of wounded fast, carving up space.
+Standing beside her, Sion understood what she was fighting right now. Outside, everything pushed to load faster, even once. But if the ship broke first, the people already on board would die along with it. Han Jiwoo was measuring the space between the two with her hands.
 
-"People lying down, left side."
-"If you can walk, stand in back."
-"All luggage dropped from here on."
+"How many seconds longer?"
 
-She wasn't comforting anymore.
-Wasn't urging either.
-She was simply rearranging people into the shape with the highest chance of survival, precisely.
+"About ten."
 
-Sion worked beside her, linking people so the line didn't break.
+"Ten seconds."
 
-Who should go first.
-Who needs to hold a wounded person and move.
-Which gap was empty.
+"If it's ten seconds each time, then eleven times."
 
-But through it all, his eyes kept drifting back to the front of the hull.
+Sion did not finish the calculation. He did not want to.
 
-Too close.
+A little way off, Aka had her palm pressed to the hull's outer wall.
 
-The people,
-the war,
-and the ship.
+"How many are on board right now?"
+she asked.
 
-If everything was pressed this tight,
-one wrong impact could shake all of it at once.
+"Nobody yet,"
+Sion answered.
 
-Harun knew that too.
+"Then this is the ship shaking on its own."
 
-So he didn't fall back further.
-Instead, he kept engaging the enemy one section outside the last narrow corridor leading into the hull area.
+Aka did not take her hand away. Sion only half understood what she was doing. Until now Aka had told the real from the imitation. Whether this ship was real or not had already been settled, on the inside. What she was measuring now was something else.
 
-He spoke without looking back.
+"Hear something?"
 
-"Can we still send more."
+"Weight,"
+Aka said.
+"Where this starts to get pressed down when people come up."
 
-Sion answered, catching his breath.
+"Can you know that ahead of time?"
 
-"First group is out. Second group is boarding."
+"Not yet,"
+she said.
+"I have to hear them come up. But once they come up, after that I'll know."
 
-Harun gave a short nod.
+Sion understood belatedly what that meant. The first twenty would go up with no one knowing. Only after Aka had heard where and how those twenty pressed could the order be fixed, from the second time on.
 
-"Then I stand one more time."
+The first line was a test.
 
-Seorin heard that and cursed, low.
+Sion hated that.
 
-But she didn't stop him.
+"Then we could try it beforehand,"
+Sion said.
 
-If Harun pulled back now,
-the enemy would reach the people crowded that close too quickly.
-Everyone here knew that better than anyone.
+Aka looked at him.
 
-Ater was reading the front line again from beside a collapsed sandbag.
+"With what?"
 
-"This time they will try to tear rather than push."
-He said, low.
-"They will not come in one line. They will split into two and target the congestion in front of the hull."
+"Something heavy. Instead of people."
 
-Sern nodded, pressing his side wound.
+Hearing that, Han Jiwoo stopped her hands for a moment.
 
-"They have seen the crowd."
+"Kael."
 
-The moment those words fell,
-Sion felt the chill run down his spine.
+"Yeah."
 
-The other side knew too.
-That this space near the hull
-was the most alive place left in Hazran.
-And therefore, the best place to tear apart.
+"Bring all the plates we tore off over there."
 
-Jiwoo heard it and pressed herself against the hull's outer wall immediately.
+Kael did not ask why. He dragged over the torn-off metal plates and the ruined frames and stacked them on the ramp. Han Jiwoo counted with her hands as they went up. One person's worth at a time.
 
-"Kael!"
-She shouted.
-"Put up one more coupling plate here! If the blast hits the people too, it's over!"
+When they had loaded up to seven, the seam made a sound.
 
-Kael moved without answering.
-He dragged the least-bent metal plate from what remained
-and propped it at an angle between the hull's underside and the makeshift boarding line. Not a perfect barrier.
-But right now, all that mattered was deflecting direction even once.
+Even Sion's ears heard it. The sound that had come out different when Han Jiwoo rapped it earlier now came on its own.
 
-Aka, in the center of that precarious air,
-murmured very low.
+"There,"
+Aka said.
 
-"Everything is here."
+"Where?"
 
-Sion heard those words
-and felt his chest tighten for no reason.
+"Lower left."
 
-Yes.
-Right now, truly,
-everything alive was gathered here.
+Han Jiwoo put her hand in on that side. She felt around for a long time.
 
-The last air Hazran was still breathing.
-The people who hadn't let go to the very end.
-The ship that had barely come alive.
-And the hands buying time one final time to send it all out.
+"So it is."
 
-Everything pressed close to the hull.
+"How bad?"
+Sion asked.
 
-And so now,
-this battle had become more dangerous.
+"Seven is fine. From eight, no."
 
-But at the same time,
-what needed to be protected was clearer than ever before.
+"You said seven, three times, before."
+
+"That's why I said seven,"
+Han Jiwoo said.
+"But now I know. Before, it was a guess."
+
+Sion knew what the difference was. Saying seven on a guess and saying seven after measuring carried different weight. Just now this ship had told them what it could not do—not with people, but with scrap.
+
+What scrap could tell them stopped there. Where people would crowd, you only knew once people came up.
+
+"Still, isn't that something we have to tell people?"
+Sion asked Aka.
+
+"No."
+
+"Why?"
+
+"Tell them, and the first line won't stand."
+
+After saying that, Aka took her hand away for the first time. And she looked at Sion.
+
+"Don't you tell either."
+
+It was the second time today Sion had heard the same request. In the morning he had been told not to say the number; now he was being told not to say the order.
+
+This city kept things from people in order to keep people alive.
+
+Meanwhile, Kael was setting up a bonding plate.
+
+He dragged over the least-bent of the remaining metal plates and stood it at a slant between the bottom of the hull and the makeshift boarding line. It was no perfect barrier. For now, it was enough if it could make something turn aside even once.
+
+"We need one more,"
+Han Jiwoo said, looking that way.
+
+"There isn't one,"
+Kael answered.
+
+"None anywhere?"
+
+"Used them all."
+
+For a moment Han Jiwoo said nothing.
+
+Then she touched, with a fingertip, a piece of outer skin fixed to the hull beside her. Kael had bought it at the Hazran market, and she had fitted it herself.
+
+"Take this off."
+
+"You put that on yourself."
+
+"So taking it off is my call too."
+
+Kael looked at her for a moment. Then, without a word, he picked up his tools.
+
+Watching that, Sion ached somewhere strange. The day she fitted that piece, Han Jiwoo had spent two hours on it. That day she had said that spot would be the last to give way.
+
+Taking it off took less than two minutes.
+
+The place it came off from lay bare. If anything, it looked uglier than before it had been fitted.
+
+"Are you all right?"
+Sion asked.
+
+"With what?"
+
+"That."
+
+Han Jiwoo handed the removed piece to Kael as she spoke.
+
+"The ship doesn't hurt."
+
+Sion knew that answer was not an answer to his question. But he asked no more.
+
+Aka spoke very low.
+
+"It's all here."
+
+At that, Sion looked around again.
+
+She was right. The last air Hazran was keeping alive to the very end, the people it had not let go to the very end, the ship barely brought back to life, and the hands buying time to send it out. All of it was here.
+
+Everything gathered at one point meant what had to be protected had shrunk to one thing.
+
+At the same time, it meant everything could be lost at once.
+
+Sion climbed up onto the ramp again.
+
+The ring had narrowed again since before. The child was still in the same place, and still not crying.
+
+And beyond it, the sky over the collapsed central line was redder than before.
+
+The sun was going down.
+
+Seeing it, Sion felt his back go cold for the first time. He had seen the people of Hazran welcome the night more than once. The time when the heat lifted and life became bearable. But right now, that time could not be allowed to come.
+
+When the heat lifted, the dust settled.
+
+When the dust settled, thirty roofless steps became just thirty steps.
+
+"Han Jiwoo."
+
+"What."
+
+"What happens when the sun goes down?"
+
+Han Jiwoo stopped her hands and looked once at the sky. Then she lowered her hands to the seam again.
+
+"Don't tell me to hurry,"
+she said.
+"I'm already as fast as it gets."
+
+Sion said nothing.
+
+This ship had to carry people eleven times, each time took ten seconds longer, and the sun was going down.
 
 ---
 

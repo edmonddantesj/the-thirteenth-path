@@ -1,235 +1,231 @@
 # Episode 127. Rescue, Not Trust
 
-When the briefest gap to catch their breath appeared,
-some things actually became clearer.
+The moment there was a little room to catch their breath,
+some things only grew sharper.
 
-This place is different from the Serakion above.
+This place was different from the Serakion up above.
 
-But *different* didn't immediately mean safe,
-or immediately mean trustworthy.
+But different did not mean safe,
+or that it could be trusted.
 
-While the Hazran evacuees leaned against walls, floors,
-and the gaps between old devices, barely steadying their breath,
-other beings emerged one by one from the inner corridors.
+While the Hazran refugees leaned against the walls and the floor
+and into the gaps between old machinery, barely getting their breath back,
+other beings began to appear, one by one, from the inner passages.
 
-Machines.
+They were machines.
 
-But unlike the machines that had first received Sion's group into Serakion.
+But they were not like the machines that had first let Sion's party into Serakion.
 
-These machines had no sense of being deliberately polished beautiful.
-Repair marks were visible.
-Replaced parts weren't hidden.
-Their movements felt less quiet than weathered from long endurance.
+These machines had none of that deliberately beautiful finish.
+Their repairs showed,
+parts that had been replaced were left unhidden,
+and the way they moved seemed less quiet than simply long-enduring.
 
-Perhaps because of that,
-the first impression lied less.
+Maybe that was why
+the first impression felt less like a lie.
 
-The problem was what came next.
+The problem came after that.
 
-Because the way these machines looked at humans
-wasn't warm either.
+Because the eyes those machines turned on humans
+were not warm either.
 
-When one Hazran child hid behind someone in fear,
-a nearby old machine hesitated.
+When a Hazran child shrank back in fright and hid,
+an old machine nearby stopped short.
 
-It didn't approach.
-Didn't soothe.
+It didn't come closer,
+and it didn't try to soothe.
 
-It simply stood at a distance,
-like a being that already knew moving closer would frighten the child more.
+It only stood at a distance,
+holding still like something that already knew the child would be more frightened if it moved.
 
-Sion watched the scene and felt a peculiar emotion.
+Sion watched the scene with a strange feeling.
 
-It was consideration, yes.
-But not kindness.
+It was consideration, all right.
+But it wasn't kindness.
 
-This side doesn't treat humans comfortably either.
-It simply doesn't classify them the way up there does.
+This side wasn't easy around humans either.
+It just didn't sort them the way the world above did.
 
-That difference was significant,
-but never light.
+The difference was large,
+but it was never a light one.
 
-A moment later,
-the machine that had first opened the path spoke low.
+A little later,
+the machine that had first opened the way spoke low.
 
-"Moving further inside."
-"This spot is hard to hold for long."
+"We move farther in."
+"It is hard to hold out here for long."
 
 Luhai asked right away.
 
-"Whose side are you even on."
+"Whose side are you even on?"
 
 The machine answered as if it had expected the question,
-without a single beat's pause.
+without pausing even a beat.
 
-"The side that tries to keep things from being split apart."
+"The side trying to keep things from coming apart right now."
 
-Those words were strangely direct.
+It was strangely direct.
 
-Sion looked at that machine briefly.
+Sion looked at the machine for a moment.
 
-Asked whose side—
-it didn't say *your side*.
-Didn't say *we will save you*.
+Asked whose side it was on,
+it hadn't said theirs,
+or that it would save them.
 
-Instead, it said the side that tries to keep things from being split apart.
+Instead,
+it had said the side trying to keep things from coming apart.
 
-That sounded less like a declaration
-and more like a principle.
+That sounded less like a declaration than a principle.
 
-Aka heard those words
-and raised her head, very slightly.
+Hearing that,
+Aka lifted her head, just slightly.
 
-"That's why you haven't fallen yet."
+"So that's why this place hasn't gone under yet."
 
 The machine looked at Aka.
 But this time it didn't answer right away.
 
-That short silence
-felt more like affirmation.
+That brief silence
+felt, if anything, like a yes.
 
-The deeper they went,
-the more clearly traces of people and machines surviving together appeared.
+The farther in they went,
+the clearer the traces became of people and machines surviving together.
 
-Makeshift partitions joined together.
-Old cloth.
-Hastily gathered supplies.
-And the marks of lives that existed in one space
-yet never fully mixed.
+Partitions pieced together for the time being,
+worn cloth,
+supplies gathered in a hurry,
+and the marks of lives that shared one space
+yet had never fully mixed.
 
-Where humans had stayed, traces of body warmth remained.
-Where machines had stayed, repair tools and disassembled parts remained.
+Where humans had stayed, the trace of body heat lingered;
+where machines had stayed, repair tools and stripped-down parts were left lying.
 
 Close together,
-but still clearly apart.
+and still clearly apart.
 
-A human woman sitting near one wall
-hardened her expression the moment she saw Sion's group.
+A human woman sitting near one of the walls
+set her face hard the moment she saw Sion's party.
 
-Precisely—
-she hardened when she saw the machines moving with them.
+To be exact,
+it hardened when she saw the machines moving along behind them.
 
-The woman was soaked in exhaustion.
-Deep hollows beneath her eyes.
-A face that clearly hadn't slept properly in a long time.
+She was steeped in exhaustion,
+the skin under her eyes sunk deep,
+plainly the face of someone who hadn't slept properly in a long time.
 
-But her gaze was strangely sharp.
+But her eyes, strangely, were clear and sharp.
 
-"New arrivals?"
-She asked.
+"New here?"
+she asked.
 
 Sion nodded.
 
-The woman swept her eyes across Jiwoo, Luhai,
-and the Hazran evacuees behind,
-then spoke low.
+The woman ran her eyes over Han Jiwoo and Luhai,
+then on over the Hazran refugees behind them,
+and said, low,
 
-"If you're alive, this is the confusing part."
+"If you're alive, you're still in the confusing part."
 
-That wasn't a welcome.
-Wasn't comfort.
+It wasn't a welcome.
+It wasn't comfort either.
 
-Just the driest fact that someone who survived too long
-could offer someone who just arrived.
+It was just the driest fact that someone who had survived too long
+could hand to someone who had only just come in.
 
-Luhai asked back immediately.
+Luhai asked right back.
 
 "Confusing?"
 
-The woman couldn't even smile.
+The woman didn't even manage a smile.
 
-"Who's trying to use you.
-Who's trying to save you.
-And when those two flip."
+"Who wants to use you,
+who wants to save you,
+and when those two flip."
 
 Silence.
 
-With that single line,
-the air in this space grew a little heavier.
+With that alone,
+the air in the space grew a little heavier.
 
-Jiwoo looked at the machines beside her without meaning to.
-That moment,
-the machine that had first opened the path said, very low.
+Without meaning to, Han Jiwoo looked at the machines beside them.
+At that moment,
+the machine that had first opened the way said, very low,
 
-"That statement is not wrong."
+"What she says is not wrong."
 
-Luhai's face immediately soured.
+Luhai's face screwed up at once.
 
-"Wow, not reassuring at all."
+"Wow, that doesn't reassure me one bit."
 
 This time Seorin spoke first.
 
-"It wasn't meant to be reassuring."
+"Probably wasn't meant to reassure you."
 
-The machine said nothing.
-But that silence wasn't denial.
+The machine didn't reply.
+But the silence was not a denial.
 
-Sion thought he finally understood.
+Only then did Sion feel he understood.
 
-This place isn't a world that wraps lies in beauty like the Serakion above.
-But it isn't a world where they trust each other easily either.
+This was not a world that wrapped its lies beautifully, the way the Serakion above did.
+But that didn't make it a world where anyone trusted anyone easily.
 
-A world long betrayed.
-Long exploited.
-Long broken and barely stitched back.
+A world betrayed for a long time,
+used for a long time,
+broken for a long time and only barely pieced back together.
 
 So here, help
 and wariness
-coexist.
+existed side by side.
 
-Then from the inner corridor,
-a far older machine walked out at a very slow pace.
+Then, from an inner passage,
+a far older machine came walking out, very slowly.
 
-It looked older than even the one that had opened the path.
-Some joints were barely connected with parts no longer matching spec.
-One optical eye had uneven light.
+It looked older even than the machine that had first opened the way.
+Some of its joints were barely held together with parts that no longer matched the original spec,
+and the light in one optic was uneven.
 
-But strangely,
-when that being appeared, the grain of the surrounding air changed, very faintly.
+And yet, strangely,
+when it appeared, the grain of the air around them shifted, very slightly.
 
-No one gave a command,
-but several nearby machines turned their bodies just slightly.
+No one had given an order,
+but a few of the machines nearby turned their bodies, ever so slightly.
 
-The humans noticed the movement too.
-And that reaction was less respect
-and closer to a complex patience toward something old.
+The humans saw the movement too.
+And their reaction was less reverence
+than a complicated patience toward something old.
 
-Aka, the moment she saw that being,
-said, low as a breath.
+The moment Aka saw it,
+she said, low as a breath,
 
-"That one is old."
+"That one's old."
 
-This time Jiwoo also watched the machine for a long time instead of answering.
+This time Han Jiwoo, too, gave no answer and only looked at the machine for a long time.
 
-Beyond old—
-it gave the feeling of something that had been holding on
-since before this space itself had taken its current shape.
+Past old,
+it gave the sense of having held on since before this space had even taken its own shape.
 
-The old machine stood silent for a while,
-looking at the newly arrived Hazran people and Sion's group in turn.
+For a while the old machine said nothing,
+looking in turn at the newly arrived people of Hazran and at Sion's party.
 
-There was no smell of classification in that gaze.
-But no welcome either.
+There was no scent of sorting in that gaze.
+But there was no welcome in it either.
 
 Instead,
 there was memory.
 
-The kind of memory only a being that has seen too much for too long can hold.
-One that doesn't easily rejoice or easily hope.
+The kind only something that had seen too much for too long could have,
+a memory slow to be glad and slow to hope.
 
-And only after a long while,
-a low, worn voice flowed out.
+Only after a long while
+did a low, worn-down voice come out.
 
-"This time… how much did you lose before coming?"
+"This time… how much have you lost to get here?"
 
-That single question,
-before any welcome,
-showed the true nature of this place.
+That one question,
+coming before any welcome, showed what this place really was.
 
-This wasn't a place of survivors.
-It was a place where those who keep losing
-and still haven't ended
-had gathered.
+This was not a place where survivors lived;
+it was where those who kept on losing, and still were not finished, had gathered.
 
 ---
 

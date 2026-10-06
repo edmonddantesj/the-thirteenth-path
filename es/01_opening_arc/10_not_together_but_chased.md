@@ -1,81 +1,81 @@
-# Capítulo 10 — No juntos, sino perseguidos
+# Capítulo 10 — No vinieron juntos
 
 Antes incluso de que la puerta se abriera del todo, el aire de dentro ya era distinto.
 
-Olor a papel viejo, madera húmeda, productos de conservación de archivos, polvo, especias, y por encima de todo, el olor de una bolsa de galletas recién abierta. Una mezcla sin orden aparente y, sin embargo, por extraño que pareciera, no era olor a podrido. Era el olor propio de los espacios donde se rozan lo abandonado y lo conservado: esos lugares que han vivido mucho tiempo, sin estar aún del todo muertos.
+Olor a papel viejo, a madera húmeda, a productos de conservación de archivos, a polvo, a especias, y hasta a galletas recién abiertas en alguna parte, todo mezclado. Parecía una mezcla sin orden y, sin embargo, curiosamente, no olía a podrido. Era el olor propio de un espacio donde se revuelven lo abandonado y lo guardado; el olor de un lugar que ha vivido mucho y todavía no ha muerto del todo.
 
-La puerta se abrió más despacio de lo que habrían creído.
+La puerta se abrió más despacio de lo esperado.
 
-Dentro, estanterías de almacenaje subían casi hasta el techo, apretadas unas contra otras. Viejas cajas de archivo, cofres sellados, cápsulas de almacenamiento dañadas, arcones de efectos personales con los nombres ya borrados, fajos de papel, viejas tablillas electrónicas, y toda clase de objetos de los que no se sabía si habían sido clasificados o no, apilados capa sobre capa. Parecía una sala de depósito administrativa, o una casa de empeños en quiebra, o algún archivo que había salido mal en alguna parte. Mirando de cerca, algunas cajas conservaban aún marcas de ruta borradas, y algunos cofres guardaban, cuajadas, las huellas de sellados que habían fallado.
+Dentro, estanterías de almacenaje llegaban casi hasta el techo, apretadas unas contra otras. Viejos estuches de archivo, cajas selladas, cápsulas de almacenamiento rotas, cajas de efectos personales con el nombre desteñido, fajos de papel, viejas tabletas electrónicas y toda clase de cosas de las que no se sabía si ya estaban clasificadas o no, apiladas en capas. Parecía un depósito de funcionarios, o una casa de empeños en quiebra, o un archivo que se había torcido en algún punto. Mirando de cerca, algunos estuches conservaban marcas de ruta borradas, y en algunas cajas seguían endurecidas las huellas de sellados fallidos.
 
-En el centro había un solo escritorio estrecho, y detrás de él estaba sentada Elia Vern.
+En el centro había un solo escritorio estrecho, y detrás estaba sentada Elia Vern.
 
-Tenía en la mano una bolsa de galletas.
-Parecía alguien a quien habían interrumpido a medio bocado y había mirado hacia la puerta, y sin embargo, por extraño que fuera, la mirada no le había vacilado ni una sola vez desde el principio. Una silueta redonda y familiar, una camisa cómoda, una chaqueta echada por encima de cualquier manera. A primera vista, parecía descuidada. Pero, al margen de ese descuido, estaba clarísimo que leía de una sola pasada a las cuatro personas paradas en el umbral.
+Tenía una bolsa de galletas en la mano.
+Parecía alguien que había mirado hacia la puerta a medio comer y, sin embargo, curiosamente, su mirada no había vacilado desde el principio. Una figura redondeada y con aire de andar por casa, una camisa cómoda, una chaqueta echada encima de cualquier manera. A primera vista parecía descuidada. Pero, al margen de ese descuido, estaba clarísimo que estaba leyendo de una sola vez a las cuatro personas plantadas ante la puerta.
 
-Sion pensó, breve, para sus adentros.
+Sion pensó para sus adentros.
 
-La misma de siempre.
+Igual que siempre.
 
 Ater, en cambio, sintió algo completamente distinto.
-Parecía descuidada, pero la mirada no se le iba ni una vez. Con esa cantidad de cosas amontonadas por todas partes en la sala, esta mujer parecía del tipo que no se le escapa nada. Eso era, justamente, lo que le resultaba raro.
+Parecía descuidada, pero su mirada no se perdía ni una vez. Por muchas cosas que hubiera amontonadas mirara uno donde mirara, aquella persona parecía de las que no dejan escapar nada. Eso era, precisamente, lo raro.
 
-Elia ni siquiera se levantó de su asiento.
-En vez de eso, con una galleta todavía en la boca, recorrió a los cuatro uno tras otro. Sion, Seorin, el hombre desconocido del abrigo oscuro, y el último, una sombra que leía la situación antes que las palabras.
+Elia ni siquiera se levantó.
+En cambio, con una galleta en la boca, recorrió con la vista a los cuatro, uno tras otro. Sion, Seorin, el desconocido del abrigo negro, y uno que, como una sombra, leía la situación antes que las palabras.
 
-Y dijo, con toda calma:
+Y habló con toda calma.
 
 —Esta vez sí que mordieron algo grande.
 
-Silencio breve.
+Un breve silencio.
 
-Dejó la bolsa de galletas sobre el escritorio y añadió:
+Dejó la bolsa de galletas sobre el escritorio y siguió.
 
-—No vinieron juntos. Los persiguieron juntos.
+—No vinieron juntos. Los persiguieron juntos hasta aquí.
 
-Con esas palabras, el aire incómodo que venía arrastrándose desde la cabina se partió, otra vez, finamente.
+Con esas palabras, el aire incómodo que arrastraban desde la cabina volvió a resquebrajarse, finamente.
 
-Seorin fue la primera que estuvo a punto de reír.
+Seorin fue la primera que estuvo a punto de reírse.
 
-—Bien. Lo lees nada más entrar.
+—Lo lees nada más entrar.
 
 Elia se encogió de hombros.
 
 —Es fácil.
-La gente que viene junta no se planta así delante de una puerta.
+La gente que viene junta no se planta así ante una puerta.
 
 Señaló el umbral con la barbilla.
 
-—Uno está listo para entrar el primero. Otro mira dónde va a recibir el golpe ese. Otro todavía solo está medio convencido de por qué tiene que estar aquí. Y el último ya está calculando la salida antes de entrar.
+—Uno está listo para entrar el primero, otra está mirando dónde le van a pegar primero a ese, otro tiene cara de estar solo medio convencido de por qué tiene que venir aquí, y el último ya está calculando la salida antes de entrar.
 
-La mirada de Sern cambió, de forma apenas perceptible.
+La mirada de Sern cambió de forma casi imperceptible.
 Ater tampoco dijo nada.
-A ninguno de los dos le agradaba que la dueña del lugar los hubiera leído tan rápido.
+A ninguno de los dos le hacía gracia que la dueña del espacio en el que acababan de entrar los hubiera leído tan deprisa.
 
-Sion entró un paso, con una media sonrisa.
+Sion sonrió de lado y dio un paso hacia dentro.
 
 —Me alegro de verte, Elia.
 
-—Eso debería decirlo yo.
-Elia respondió al instante.
-—Cada vez que apareces por aquí, no suele alegrarme.
+—Eso tendría que decirlo yo.
+Elia contestó en el acto.
+—Cada vez que vienes por aquí, pocas veces me alegro.
 
-—Qué dura.
+—Qué cruel.
 
 —Es la verdad.
 
-Seorin murmuró mientras cerraba la puerta:
+Seorin murmuró mientras cerraba la puerta.
 
-—Bien. Hoy es el ambiente más normal del día.
+—El ambiente más normal de todo el día.
 
-Elia rió brevemente con eso y, por fin, desplazó la mirada hacia Ater.
-Era una cara que no había visto nunca, y aun así su reacción no era de extrañeza, sino más bien la de alguien que acaba de terminar de clasificar. Un hombre del lado que cierra, del lado de la autoridad; pero uno que ya había sido sacudido una vez por dentro.
+Elia se rió de eso y luego, por fin, desplazó la mirada hacia Ater.
+Era una cara que veía por primera vez, pero su reacción se parecía menos a la extrañeza que a la de alguien que ya ha terminado de clasificar. Un hombre del lado que cierra, un hombre del lado de la autoridad, pero alguien que ya se había tambaleado una vez por dentro.
 
-—¿Y ese quién es?
+—¿Y ese qué es?
 
-La pregunta iba dirigida a Sion, pero el tono no era ni del todo hostil ni del todo cortés. Solo la fina distancia que se guarda con alguien a quien aún no se ha terminado de clasificar.
+La pregunta fue para Sion, pero el tono no era ni del todo provocación ni del todo cortesía. Apenas la fina distancia que se guarda con alguien a quien todavía no se ha terminado de clasificar.
 
-Sion inclinó un poco el hombro.
+Sion ladeó el hombro.
 
 —Por ahora, alguien necesario.
 
@@ -83,23 +83,55 @@ Sion inclinó un poco el hombro.
 
 —Esta vez, bastante.
 
-Elia miró a Ater un momento más y luego movió los ojos hacia Sern.
+Elia miró a Ater un momento más y luego pasó los ojos a Sern.
 
-—Y ese de ahí es el más molesto, pegado al necesario.
+—Y ese de ahí es alguien todavía más molesto, pegado al necesario.
 
-Sern respondió, muy bajo:
+Sern respondió muy bajo.
 
-—Exacto.
+—Es exacto.
 
 —Gracias.
-Soy exacta por naturaleza.
+Siempre soy exacta.
 
-Ater oyó el intercambio, pero no se metió en él.
-En vez de eso, recorrió la sala con la mirada una vez más. El espacio parecía descuidado, pero en realidad nada estaba apilado al azar. Había un recorrido, había un sentido de la distancia, había un cálculo de qué se dejaba al alcance de la mano y hasta dónde. No era más que lo que el Imperio llamaría desorden. No era un espacio sin orden.
+Ater oyó aquel intercambio, pero no intervino enseguida.
+En vez de eso, recorrió una vez más la sala con la mirada. El espacio parecía descuidado, pero en realidad nada estaba apilado al azar. Había recorridos, había distancias, y estaba calculado qué se dejaba al alcance de la mano y hasta dónde. Era solo una manera que el Imperio llamaría desorden; no era un espacio sin orden.
+
+Sobre todo, una de las paredes.
+
+Solo allí las cajas no estaban tumbadas, sino de pie. De tamaños distintos y de materiales distintos, pero con el mismo espacio entre todas. Lo justo para meter una mano. Y en la cara frontal de cada caja había metida una hoja de papel; la mayoría, en blanco.
+
+Ater dio medio paso hacia allí.
+
+No era que estuvieran en blanco sin más. Tampoco se había escrito algo y luego se había borrado. Eran casillas que nunca se habían llenado.
+
+—Eso todavía no tiene nombre.
+
+Lo dijo Elia desde su sitio. Ni siquiera volvió la cabeza.
+
+—¿Son cosas que alguien dejó y no vino a recoger?
+
+—Que no pudo venir a recoger.
+
+—¿Hay diferencia?
+
+—Mucha.
+
+Sion se rió. Lo que él mismo había dicho ese día le volvía tal cual.
+
+Elia volvió a coger la bolsa de galletas.
+
+—Lo que no vienen a recoger es lo que se tira, y lo que no pueden venir a recoger es lo que todavía queda. Todo lo de ahí es de lo segundo. Por eso no relleno la casilla del nombre. Si la relleno, lo estoy decidiendo yo.
+
+Ater volvió a leer esa frase para sus adentros.
+
+La Cámara de Reconocimiento del Imperio hace justo lo contrario. Los objetos cuyo dueño no se ha confirmado se clasifican primero, y la clasificación pasa a ser el nombre. Aunque ese nombre esté equivocado, el registro queda. Las cosas que reciben así un nombre son las que ahora bajan al muelle de Sion.
+
+Aquí, lo cortés era no rellenarla.
 
 Elia no dejó escapar esa mirada.
 
-—Es tu primera vez aquí.
+—Es tu primera vez aquí, ¿no?
 
 Solo entonces Ater la miró.
 
@@ -109,102 +141,141 @@ Solo entonces Ater la miró.
 
 —¿Tanto se ve?
 
-Elia sonrió de medio lado.
+Elia sonrió de lado.
 
 —Sí.
-Miras esto como un almacén, y al mismo tiempo tienes la cara de quien no lo ve solo como un almacén.
+Miras esto como un almacén y, a la vez, tienes la cara de quien no lo ve solo como un almacén.
 
-Después de esas palabras se instaló un breve silencio.
+Cuando terminaron esas palabras, hubo un momento de silencio.
 
-Sion no dejó pasar el hueco y sacó el fragmento de dentro del abrigo.
-Un fragmento de tablilla de archivo, quemado, cortado, vaciado. Lo que al final había quedado en el lugar donde había muerto el Archivista.
+Sion aprovechó el hueco y sacó el fragmento de dentro de la ropa.
+Un fragmento de placa de registro, quemado, cortado, recortado. Lo que había quedado, al final, en el lugar del Archivista muerto.
 
-En el instante en que la mirada de Elia tocó el fragmento, el aire de la sala se asentó, apenas.
+En el instante en que la mirada de Elia tocó el fragmento, el aire de la sala se asentó apenas.
 Esta vez eran, de verdad, los ojos de alguien que lee.
 
-Tendió la mano, pero no lo cogió enseguida.
+Tendió la mano, pero no lo tomó enseguida.
 
 —¿Cuánto viste?
 
-Sion respondió corto:
+Sion respondió.
 
 —Hasta el nombre.
 
-La mirada de Elia se ahondó, solo un poco.
+La mirada de Elia se hizo un poco más honda.
 
 —Bien.
-Entonces ahora están los cuatro atados al nombre.
+Entonces ahora todos ustedes tienen el nombre marcado.
 
-Seorin dijo, con los brazos cruzados:
+Seorin habló con los brazos cruzados.
 
-—Justo por eso vinimos.
+—Justo porque estamos así hemos venido.
 
 —Ya lo vi.
-Elia respondió seca.
+Elia lo dijo con sequedad.
 —Desde la puerta.
 
 Solo entonces tomó el fragmento.
-El movimiento de sus manos no era ni cuidadoso ni brusco. La distancia propia de quien ha manejado esa clase de cosas durante mucho tiempo. Sin sostenerlo como algo demasiado valioso, sin tratarlo a la ligera tampoco.
+Sus manos no fueron ni cuidadosas ni bruscas. Era la distancia propia de quien lleva mucho tiempo tocando cosas así. Sin sostenerlo como algo demasiado valioso, sin tratarlo tampoco a la ligera.
 
-Le dio la vuelta una vez, lo inclinó hacia la luz, rascó suavemente con la uña la sección cortada, y murmuró muy bajo:
+Elia le dio la vuelta una vez, lo puso a la luz, rascó suavemente con la uña la sección cortada y murmuró muy bajo.
 
 —Esto…
 
 Sion contuvo la respiración sin darse cuenta.
-Seorin también guardó silencio.
-Sern observaba el movimiento de las yemas de Elia; Ater, aún más callado, le miraba la cara.
+Seorin tampoco dijo nada.
+Sern miraba el movimiento de las yemas de Elia, y Ater, todavía más callado, le miraba la cara.
 
-Elia habló sin apartar los ojos del fragmento:
+Elia habló sin apartar los ojos del fragmento.
 
-—No es que alguien lo borrara. Es que al final no llegó a borrarlo todo.
+—No es que alguien lo borrara. Es que al final no consiguió borrarlo todo.
 
-Con esa sola frase, la veta del fragmento que hasta entonces solo habían tenido en las manos cambió por completo.
+Con esas pocas palabras, la veta del fragmento que hasta entonces solo habían tenido en la mano cambió por completo.
 
-Sion preguntó, muy despacio:
+Sion preguntó muy despacio.
 
 —¿Lo ves?
 
 En vez de responder, Elia volvió a inclinar el fragmento hacia la luz.
-El borde muerto por el fuego, la sección vaciada, el resto de nombre que quedaba, y debajo, una línea, tenue, que aún subsistía.
+El borde muerto por el fuego, la sección recortada, el trozo de nombre que había quedado y, debajo, una sola línea, tenue, que aún seguía ahí.
 
-—Lo primero que salta a la vista es el nombre que queda.
-Dijo, bajo.
-—Pero lo de verdad raro no es eso.
+—Lo primero que salta a la vista es que quedó el nombre.
+Lo dijo en voz baja.
+—Pero lo realmente raro no es eso.
 
-Ater dio un paso para acercarse, por primera vez.
+Ater, por primera vez, dio un paso para acercarse.
 
-Elia, sin prestar la menor atención a ese movimiento, golpeó con la yema, toc, el lugar cortado en la parte de abajo del fragmento.
+Elia, sin hacer caso tampoco de ese movimiento, dio un golpecito con la yema en el corte de la parte de abajo del fragmento.
 
 —Aquí.
 
-Silencio breve.
+Un breve silencio.
 
-Y dijo, con toda calma:
+Y entonces habló con toda calma.
 
 —Lo que murió antes que el nombre es el orden.
 
-En el instante en que cayeron esas palabras,
-los cuatro sintieron, confusamente, que acababan de pisar un umbral completamente distinto al de hacía un momento.
+Sern fue el primero en reaccionar.
 
-Elia añadió, sin apartar todavía los ojos del fragmento:
+—Si muere el orden, cambia el veredicto.
 
-—Dejaron el fallo, pero la vacilación de antes y de después la vaciaron entera.
-Rascó la sección cortada una vez más con la uña.
-—Esto no es un fragmento que se rompió y saltó sin más. Está más cerca de alguien que, a propósito, separó y dejó aparte lo que no debía pasar de una sola vez.
+Al oírlo, los otros tres de la sala lo miraron a la vez. Era una frase de la última voz del Archivista, y Sern, tras oírla una sola vez, la había guardado tal cual.
 
-En aquella sala no se dijo nada durante un buen rato.
-Ahora todos lo sabían.
-Esto no era el problema de un solo Archivista muerto, ni tampoco solo el problema de un solo nombre borrado.
+Elia levantó la cabeza por primera vez.
 
-Elia, con la yema apoyada sobre el fragmento, recorrió a los cuatro uno tras otro.
-Era un silencio distinto al de hacía un momento.
-Nadie había pronunciado todavía en voz alta la siguiente pregunta,
-pero todos sabían que alguien, al final, tendría que hacerla.
+—¿Dices que el Archivista muerto dijo eso?
 
-Y en ese instante,
-recobrar un nombre borrado
-empezó, por primera vez, a parecerse de verdad
-a tocar otro mundo.
+—Sí. Se cortó dos veces, pero salió en ese orden.
+
+Elia se quedó un momento sin decir nada. La mano que sostenía la bolsa de galletas se había detenido sobre el escritorio, y esa postura era del todo distinta de la de la persona que, en la puerta, había leído a los cuatro de una vez.
+
+—…Entonces esa persona murió sabiéndolo.
+
+—¿Qué quiere decir?
+
+—Que sabía lo que tenía en las manos.
+
+Elia volvió a bajar la vista al fragmento.
+
+—Esto lo quemaron por partes. El que quema sin saber, quema deprisa; el que quema sabiendo, quema por partes. Desde hace rato me tenía eso atravesado, y ahora lo entiendo.
+
+Elia siguió, todavía sin apartar los ojos del fragmento.
+
+—Dejaron el veredicto, pero recortaron todas las dudas de antes y de después.
+Volvió a rascar con la uña la sección cortada.
+—Esto no es un trozo que se haya roto sin más. Se parece más a algo que no debía pasar entero de una sola vez y que alguien dejó, a propósito, en partes.
+
+En aquella sala nadie dijo nada durante un rato.
+
+Elia, con la yema apoyada sobre el fragmento, recorrió una vez a los cuatro, uno tras otro. No eran los ojos que habían leído a los cuatro en la puerta. Esta vez no estaba leyendo nada: eran los ojos de quien elige si preguntar o no.
+
+Quien habló primero fue Ater.
+
+—Quisiera confirmar una cosa.
+
+—Adelante.
+
+—Si dejaron el texto del veredicto y solo recortaron el orden de antes y de después, no pretendían borrar el veredicto.
+
+—Así es.
+
+—Pretendían que quedara. Y que no se viera lo demás.
+
+Elia lo miró largo rato.
+
+—¿No decías que era tu primera vez?
+
+—Lo es.
+
+—¿Y entonces por qué ya preguntas eso?
+
+Ater no respondió. Para responder tendría que empezar por contar qué documentos había cerrado en la Cámara de Reconocimiento, y cuántas veces.
+
+Elia dejó el fragmento sobre el escritorio. Su mano fue mucho más cuidadosa que cuando había dejado allí la bolsa de galletas, hacía un rato.
+
+—Entonces, ¿cuál de ustedes hace la siguiente pregunta?
+
+Nadie la hizo.
 
 ---
 

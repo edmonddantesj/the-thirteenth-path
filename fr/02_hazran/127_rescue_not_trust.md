@@ -47,7 +47,7 @@ Ce côté-là ne traite pas non plus les humains confortablement.
 Cela ne les classe tout simplement pas comme le fait là-haut.
 
 Cette différence était significative,
-mais jamais léger.
+mais jamais légère.
 
 Un instant plus tard,
 la machine qui avait ouvert le chemin la première parlait à voix basse.
@@ -106,7 +106,7 @@ mais toujours clairement à part.
 Une femme humaine assise près d’un mur
 durcit son expression dès qu'elle aperçut le groupe de Sion.
 
-Précisément...
+Précisément…
 elle se durcit en voyant les machines bouger avec eux.
 
 La femme était trempée d’épuisement.
@@ -194,8 +194,8 @@ Les humains remarquèrent également le mouvement.
 Et cette réaction était moins de respect
 et plus proche d’une patience complexe envers quelque chose de vieux.
 
-Autrement dit, au moment où elle a vu cet être,
-dit-il à voix basse.
+Aka, à l'instant où elle vit cet être,
+dit, presque dans un souffle.
 
 « Celui-là est vieux. »
 
@@ -203,7 +203,7 @@ Cette fois, Jiwoo a également regardé la machine pendant un long moment au lie
 
 Au-delà du vieux—
 ça donnait le sentiment de quelque chose qui tenait le coup
-car auparavant, cet espace lui-même avait pris sa forme actuelle.
+depuis avant même que cet espace ait pris sa forme.
 
 La vieille machine resta silencieuse pendant un moment,
 regardant tour à tour les Hazrans nouvellement arrivés et le groupe de Sion.
@@ -220,7 +220,7 @@ Celui qui ne se réjouit pas facilement ni n’espère facilement.
 Et seulement après un long moment,
 s’échappa une voix basse et usée.
 
-« Cette fois… combien as-tu perdu avant de venir ? »
+« Cette fois… combien avez-vous perdu avant de venir ? »
 
 Cette seule question,
 avant tout accueil,

@@ -40,7 +40,7 @@ La costumbre de comprobar primero, hasta el final, el lado,
 los ojos que no perdían a quién se escapaba,
 el modo de torcer también su propio pie hacia este lado muy brevemente y luego tragárselo de nuevo.
 
-Eso no era simplemente la cara del «niño que esta vez no pudieron traer».
+Eso no era simplemente la cara del *niño que esta vez no pudieron traer*.
 
 De un modo extraño,
 quedaba como una cara que ya en algún sitio se había perdido una vez antes.
@@ -90,7 +90,7 @@ El hecho de haber dejado, una vez más, dentro del compás de Serakion,
 a un niño que ya lo sabía,
 hacía más pesado este segundo rescate.
 
-La primera máquina de recuperación dijo bajo.
+La primera mano de recuperación dijo bajo.
 
 —El próximo tiene que ser más rápido.
 
@@ -101,7 +101,7 @@ Han Jiwoo preguntó enseguida.
 Esas palabras, más que una réplica,
 estaban cerca de quien pregunta aun sabiéndolo ya.
 
-La primera máquina de recuperación calló un momento y luego dijo.
+La primera mano de recuperación calló un momento y luego dijo.
 
 —Tiene que ser más rápido,
 y tiene que ser más exacto.
@@ -186,7 +186,7 @@ Esa noche, en el estrato oculto,
 quedó una clase de decisión más fuerte que el alivio.
 
 Sacaron a dos.
-Pero el centro del arco no eran esos dos.
+Pero el centro no eran esos dos.
 
 El que al final no pudieron traer
 había vuelto antes que nadie al interior de todos.

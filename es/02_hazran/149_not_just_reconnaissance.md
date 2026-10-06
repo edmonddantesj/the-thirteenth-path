@@ -60,7 +60,7 @@ Han Jiwoo dijo muy bajo.
 
 —Hasta a los niños les leen el tempo por separado.
 
-La primera máquina de recuperación respondió.
+La primera mano de recuperación respondió.
 
 —Aquí es en lo que mejor son.
 
@@ -80,11 +80,7 @@ y al ver cómo un niño, tras detenerse, volvía a alinearse con total naturalid
 No estaba claro a quién se lo decía.
 Podía ser a sí mismo.
 
-—Por qué eran tan silenciosos hasta este punto.
-
-Él siguió diciendo bajo.
-
-—Esto no es un gobierno masivo,
+—Por qué todo era tan silencioso hasta este punto —siguió diciendo bajo—. Esto no es un gobierno masivo,
 sino un gobierno fragmentado para que no parezca masivo.
 
 Esas palabras volvieron a atravesar toda la estructura de Serakion.
@@ -121,7 +117,7 @@ Kael habló sin apartar la mirada.
 —Por qué hasta ahora no se ha podido sacar a ninguno.
 —Y también dónde sería lo único posible.
 
-La segunda máquina de recuperación reaccionó muy corto.
+La segunda mano de recuperación reaccionó muy corto.
 
 —Dónde.
 
@@ -156,7 +152,7 @@ quizá eran el tiempo que aún le quedaba al lado de las personas.
 
 —Todavía no se han ido del todo —dijo ella casi masticando las palabras.
 
-La primera máquina de recuperación no dijo nada.
+La primera mano de recuperación no dijo nada.
 
 Pero ese silencio no era una negación.
 Era casi como si Han Jiwoo confirmara ahora con sus propios ojos
@@ -172,11 +168,8 @@ la actitud, demasiado estable.
 Era justo esa estabilidad
 la clase de cosa que más le costaba soportar.
 
-—Esos de allá se comportarán como si fuera buena voluntad.
-
-Él dijo bajo.
-
-—Por eso pueden robar durante más tiempo.
+—Esos de allá se comportarán como si fuera buena voluntad —dijo bajo—.
+Por eso pueden robar durante más tiempo.
 
 Esas palabras endurecieron más a Han Jiwoo,
 y hundieron también más la mirada de Kael.
@@ -210,7 +203,7 @@ Han Jiwoo dijo, bajo y firme.
 
 —Dejemos ya de mirar.
 
-Las dos máquinas de recuperación la miraron a la vez.
+Las dos manos de recuperación la miraron a la vez.
 
 Kael también,
 y Ater también,

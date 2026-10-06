@@ -1,216 +1,256 @@
 # Episode 81. The Line That Began Inside the Market
 
-When the outer edge starts to crumble,
-the battlefield becomes close all at once.
+The sound changed.
 
-The metallic sounds that came from outside just moments ago
-were now ringing thinly against the tent ceilings and metal-plate walls inside the market.
+Until a moment ago it had come from outside. Now the tent ceilings rang with it. Put a hand on a metal-plate wall and it came through the palm.
 
-Hazran was already folded in multiple layers.
-But folded didn't mean safe.
-It meant the paths for the enemy to follow inside
-had gotten that much closer too.
+Sion ran into the second corridor inside the market.
 
-When Sion plunged into the second corridor inside the market,
-the first things he saw weren't people—they were hands.
+It wasn't the people he saw first; it was the hands.
 
-Hands cutting tent lines.
-Hands folding heat-blocking cloth to hang above the corridors.
-Hands kicking part crates aside to clear the way.
-Hands pushing fallen people further inside.
+Hands cutting tent ropes, hands folding heat-shield cloth and hanging it over the corridor, hands kicking parts crates aside to clear the way, hands pushing at the backs of people who had fallen.
 
-Hazran still looked like a market,
-but everything it was doing was already fully war.
+The hands doing the cutting had tied those ropes a few days ago. The hands doing the hanging had sold that cloth.
 
-Nasim was in the center of the main corridor, turning people without pause.
+Hazran still looked like a marketplace. The stall frames still stood, and the boards they used to write prices on were still hanging. Only the work was war.
 
-"Close this one."
-"Pass that inside."
-"No—leave that. People first!"
+Running, Sion looked at one price board. The numbers hadn't been wiped off; they were still there. In front of it, two people were moving not goods but metal plates.
 
-Goods he would have priced first on any normal day
-were thrown to the ground today without hesitation.
+Harun was setting up a new line in the inner corridor.
 
-Nasim's face held no smile.
-No jokes.
+Sion read the shape now without explanation. Don't stand people close together. Leave more places empty. Leave the narrow corridor open on purpose and bend the alley beside it.
 
-But instead,
-there was the speed of a man who knew this city's people better than anyone.
-Who needs to be told twice before they move.
-Who trembles hands-first when scared.
-Who can't let go of their goods.
+But it was different from what he had seen outside.
 
-Because he knew,
-he could push harder.
+Outside, they had stretched the way. Let them in, make them walk a long time. In here there was no way to stretch. The market's paths are short, and they end.
 
-"You have to survive to set the next price!"
-He shouted, sharp.
-"Hands out first!"
+"You can't stretch it in here, can you?"
 
-At that voice,
-one hesitating merchant finally flung the metal pouch from his chest and ran inside.
+Sion asked.
 
-In another corridor deeper in the market,
-Harun was already building a new front line.
+Harun answered without stopping his hands.
 
-He didn't pack people in tight.
-In fact, the gaps he left were more.
+"No."
 
-Sion saw it and understood quickly.
+"Then what's this?"
 
-This wasn't a line to block.
-This was a line to bend any enemy that entered.
+"Tearing it up."
 
-Narrow corridors left deliberately open.
-The barriers, wreckage, low sandbags, and turning alleys beside them used to tear up the enemy so they couldn't rush in all at once.
+Sion put the word *tearing* away in his head.
 
-Inside that formation, Harun gave his orders low and precise.
+If you can't stretch it, you split it. Tear it into several strands so it can't surge in all at once, and hit the split pieces one at a time.
 
-"Clear the left."
-"Don't fire there yet."
-"When they enter, cut them at the second angle."
+"So we buy more time?"
 
-Anyone could hear it.
-The voice of the person who knew combat best.
+"No."
 
-The more Seorin heard, the more it bothered her.
+For the first time Harun looked toward Sion.
 
-She hated it.
-But without that man right now, things collapse faster.
-That fact kept catching in her throat.
+"We buy it short and buy it many times."
 
-She took a short breath and spoke to Sion.
+It took Sion a while to grasp the difference.
 
-"Third inner corridor. People are piling up."
+Outside, they had bought it long, in one go. In here that wouldn't work, so they bought short stretches many times and stuck them together. If it broke while they were sticking them together, it ended there.
 
-Sion turned his body immediately.
+Seorin came up from behind.
 
-When he arrived,
-refugees and goods were already jammed together in a narrow alley inside the market.
-One small child had been holding back tears and finally burst.
-The mother was trying to hold luggage with one hand and the child with the other, wearing a face like she was about to lose both.
+"Third inner corridor. People are bunching."
 
-Sion kicked one bundle aside without time to think.
+Sion started to turn and stopped.
+
+Seorin wasn't looking toward Harun. He could see she wasn't looking on purpose.
+
+"What's wrong?"
+
+"What?"
+
+"You keep not looking over there."
+
+Seorin didn't answer right away.
+
+"Everything that guy says is right."
+
+"Isn't that good, then?"
+
+"Why does he know it so well?"
+
+Sion shut his mouth.
+
+Right now Harun was the most precise person in Hazran. Where to abandon, when to pull back, what to stand up and let be broken—he knew all of it. Someone who knows that is someone who has done it before.
+
+"What if he weren't here right now?"
+
+"It'd collapse faster."
+
+Seorin said it.
+
+"That's why I hate it more."
+
+Sion didn't know what to say, so he said nothing.
+
+"Must be easy for you."
+
+Seorin said that, then added right away.
+
+"No. Sorry."
+
+At those two remarks Sion looked at Seorin. It was the first time he had seen her take back her own words.
+
+"It isn't easy."
+
+"I know."
+
+"It's just that I don't know what was there before."
+
+"That's what makes it easy."
+
+With that, Seorin lifted her chin toward the corridor.
+
+"Go."
+
+When Sion got there, the narrow alley was blocked.
+
+People and baggage were stuck together. Up front someone was standing a big bundle on end, and a dozen-odd people were jammed up behind. A child who had been holding back tears burst out crying. The mother was trying to grip the baggage with one hand and pick the child up with the other, and looked about to lose both.
+
+Before he could think, Sion kicked the baggage away.
 
 "Leave this!"
-He shouted.
+
+His voice didn't sound like his own.
+
 "People through first!"
 
-The woman nearly pushed back,
-but the sound of metal scraping behind her drained her face white.
-She dropped the luggage and pulled the child close first.
+The woman looked at Sion. It was the face of someone about to push back, once.
 
-In that short moment,
-Sion felt all over again that he wasn't from Hazran.
-But at the same time,
-there was no room to be an outsider right now.
+From behind came the sound of scraping metal.
 
-In the inner hull section,
-Jiwoo was gripping the joint with her jaw nearly clenched shut.
+The woman let go of the baggage and pulled the child into her arms. The jam came loose and people went through.
 
-Aka spoke low.
+Sion watched what he had kicked roll away.
+
+He didn't know what was in it. He didn't know what it was worth either. He didn't know why that person had carried it all the way here.
+
+What Nasim had said yesterday, he had said today.
+
+When he heard it, it was the right thing to say. Coming out of his own mouth, it was right and still stuck in his throat.
+
+The man who had said it was a person of this city. He knew who had to be told twice before they moved, he knew who couldn't let go of their things, and he was someone who would make them let go and then stand before that person again later. He was also someone who would put prices on things again in front of them when this market stood back up.
+
+Sion was not from here. He would never see that woman again, and he would not see the stalls here stand back up either.
+
+So it was easier for Sion to say it.
+
+Sion realized it had been easy only after he had said it. When he was saying it, he hadn't known.
+
+The woman carried the child about three steps, then looked back once. Not toward the baggage. Toward Sion.
+
+Sion took that look and couldn't say anything.
+
+Something black came out at the end of the corridor.
+
+Sion saw it up close for the first time.
+
+From far away it had been a line. Here it was not a line.
+
+It was the size of a person. That was the worst part. It had shoulders and arms and knees, so he kept looking for the places where it was like a person.
+
+But it did not walk. When a person walks, they shift weight from one side to the other. It didn't shift. The places that bent bent exactly when they had to bend, and before bending, it made no preparation at all.
+
+Where a face should have been, nothing showed.
+
+Luhai took a step back.
+
+Sion knew it wasn't fear but something his body had done first. His own feet were already halfway back.
+
+He looked behind.
+
+The people who had just passed were still in the corridor. The woman holding the child was going around the third bend.
+
+Sion went forward.
+
+The fear hadn't gone. He went still afraid.
+
+Harun's hand came down.
+
+From behind the left-hand screen two shooters fired at once, and a short blast plate buried under the corridor went off and forced the front one's balance askew.
+
+Sern went into the gap.
+
+He went in almost flat to the floor, slashed behind its knee, and pulled straight out. The time it took to get out was shorter than the time it took to get in.
+
+The black thing buckled once.
+
+"Now."
+
+Ater's voice came from behind.
+
+"Right coupling."
+
+The shooter beside Harun hit that point.
+
+This time it went down properly. Going down, it scraped the corridor wall, and the cloth hung on the wall came down with it.
+
+Sion let his breath out.
+
+The second one came over from behind.
+
+It stepped on the fallen one to climb over, and not once did it slip where it stepped. Its foot went onto the cloth that had just fallen, and it corrected its angle exactly as much as the cloth slid.
+
+Even inside the market, it did not break.
+
+The second one came three more steps in, then turned into the left-hand branch. It went where things had been torn apart. It had gone to the side Harun had split off.
+
+A sound came from there again.
+
+Only then did Sion step back, and as he stepped back he turned his head.
+
+He could see the hull.
+
+Sion froze where he stood.
+
+This was the second corridor inside the market. From where the black thing had stood to here, Sion had backed up less than twenty steps. Twenty steps behind that was the ship.
+
+Under the hull, Han Jiwoo was holding the coupling. Her face had its teeth clenched. Aka stood beside her and spoke very low.
 
 "Here first."
 
 "I know."
-Jiwoo answered, rough.
-"That's the third time you've said that."
 
-But unlike the rough words,
-her hands didn't shake.
+Han Jiwoo's answer was rough.
 
-An etherite shard glowed faintly.
-Beneath the receiving frame, a joint that hadn't yet cooled trembled low.
-The ship wasn't fully alive.
-But the metal that had only been pretending to be dead
-was now clearly giving back small responses of *trying to hold*.
+"That's the third time you've said it."
 
-Aka watched that response and spoke very low.
+Her words were rough, but her hands didn't shake.
+
+A fragment of Etherite brightened thinly, then sank. Under the receiving frame, the coupling trembled low. The ship was not alive yet. But a hand could feel it now: the metal that had only been playing dead was pushing back to hold on.
+
+Aka spoke.
 
 "A little more."
 
-Jiwoo let out a short breath.
+Han Jiwoo let out a short breath.
 
-"A little more is always the most expensive part."
+"A little more is the most expensive part."
 
-It sounded like grumbling,
-but it was closer to saying she'd hold on until the end.
+Even so, Han Jiwoo didn't take her hands away. She had been pressing the same spot for a while now, and the force of her pressing didn't lessen.
 
-Outside, the cutting sound came again.
+With his eyes, Sion measured between those two and the place where the black thing had just stood.
 
-Closer this time.
+When he measured, it wasn't much.
 
-Sern had been heading inside and stopped short.
+Until now, the outer line being pushed back had been an outside matter. Pushed and pushed again until it reached here, and what those two were holding on to would be inside the same corridor too.
 
-"First breach into the market."
-He said, brief.
-"Three—no, four."
+Sion started to take out what he had been counting, and didn't.
 
-Ater followed right behind.
+He had counted up to twelve. He looked for a place to put the thirteenth and couldn't find one.
 
-"Not the first line."
-He said.
-"Units pushed in from behind. Deployed after reading the disruption just now."
+To count, you had to be at a distance. He had watched prices rise from in front of a stall, watched the black line from beyond the heat layer, watched from above as the other side threw away its front.
 
-When Harun heard that,
-his voice came out sharper for the first time.
+Now he was not at a distance. It was within reach of his hand.
 
-"Good."
-He said.
-"Then we cut them here."
+Sion folded the counting away and looked into the corridor.
 
-That instant,
-a black shape appeared at the end of the first turning corridor inside the market.
-
-From outside it had been a line.
-But seen from inside,
-it was far more disturbing.
-
-Similar in size to a person,
-but it didn't walk like one.
-The joints bent with too much precision.
-The way the body came forward held no hesitation.
-The part that should have looked like a face wasn't an expression—
-it was closer to a black surveillance surface that reflected nothing.
-
-Luhai stepped back a full pace the moment he saw it.
-
-"That's…"
-He couldn't finish.
-
-Sion moved his body forward without realizing.
-
-He was afraid.
-But behind that thing, there were still corridors full of people.
-
-Harun's hand dropped.
-
-Two Hazran shooters hidden behind the left barrier fired simultaneously. A short concussion plate buried beneath the corridor detonated, forcibly throwing the first android's balance. In that gap Sern slid in almost like a glide, scored low behind the knee at a flat angle, and pulled out.
-
-The first android buckled hard, once.
-
-Ater spoke almost simultaneously.
-
-"Now. Right-side coupling."
-
-The shooter beside Harun hit that exact point.
-
-One black body fell properly this time.
-
-But right behind it,
-the second unit came over the fallen one without a beat of hesitation.
-
-Even inside the market,
-that wave did not break.
-
-Sion understood in that moment.
-
-Hazran was no longer defending the outside.
-It had to build the front line again, one section at a time, inside the market.
-
-War had already come in.
-And the market was now
-building new front lines inside itself to survive.
+From here they had to stand it back up, one space at a time.
 
 ---
 

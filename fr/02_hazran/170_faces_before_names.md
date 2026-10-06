@@ -40,7 +40,7 @@ Un enfant hocha faiblement la tête.
 Un peu plus tard,
 l'autre demanda encore plus bas :
 
-« Mais...
+« Mais…
 pourquoi j'ai toujours envie de regarder là-bas ? »
 
 Han Jiwoo ne put pas répondre aussitôt.
@@ -211,7 +211,7 @@ Ater ajouta très bas :
 
 Luhai avait encore le visage de quelqu'un qui n'arrivait pas à y croire.
 
-« Ce que le gamin a dessiné...
+« Ce que le gamin a dessiné…
 il le reproduit ? »
 
 « Peut-être qu'il ne le reproduit pas. »
@@ -237,7 +237,7 @@ pouvait être une réponse née de l'intérieur avant l'ordre.
 
 L'enfant demanda de nouveau, avec une grande prudence :
 
-« Alors...
+« Alors…
 il est de notre côté, maintenant ? »
 
 La question venait trop vite.

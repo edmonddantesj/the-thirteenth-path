@@ -1,171 +1,184 @@
 # Capítulo 50 — Los caminos que parecían abiertos
 
-Pasada la última curva de la pista de deslizamiento roja, las sombras cambiaron antes que la velocidad.
+Pasada la última curva de la pista roja, antes que la velocidad cambiaron las sombras.
 
-Las largas sombras de los aparatos, tendidas sobre la arena roja, empezaron a quebrarse. Lo que se alzaba delante no era un simple obstáculo. Osamentas de cascos a medio enterrar en la arena, bodegas de carga volcadas, carenados de motor arrancados, bastidores de unión retorcidos, planchas de metal enfriadas y endurecidas hacía mucho: todo ello creaba a la vez líneas que parecían caminos y caras que las cercaban como muros.
+Las sombras de los aparatos, que se tendían largas sobre la arena roja, empezaron a cortarse. Lo que se alzaba delante no era un simple obstáculo. Armazones de naves muertas medio enterrados en la arena, bodegas de carga volcadas, carenados de motor arrancados, bastidores de unión doblados, planchas de metal enfriadas y endurecidas hacía mucho: todo eso formaba a la vez líneas que parecían caminos y caras que cerraban el paso como muros.
 
-La zona de restos de cascos.
+La zona de restos de naves muertas.
 
 Sion lo supo al primer vistazo.
 
-Este no era un lugar donde ganaba quien no aflojaba la velocidad,
-sino donde sobrevivía quien sabía dónde matarla.
+Aquí no ganaba quien no bajaba la velocidad; sobrevivía quien sabía dónde había que matarla.
 
-Han Jiwoo parecía haber leído lo mismo. La mano que había empujado hasta el final en la pista de deslizamiento presionó el aparato muy brevemente, justo antes de tocar la entrada de la zona de restos. El morro del esquife se inclinó un poco y la altura de la placa de sustentación cayó un nivel. La velocidad seguía siendo alta, pero ahora se había anudado una tensión radicalmente distinta de la de un instante atrás.
+Han Jiwoo parecía haber leído lo mismo. La mano que había empujado hasta el final en la pista presionó el aparato muy brevemente justo antes de tocar la entrada de la zona de restos. El morro del esquife bajó un poco y la altura de las placas de sustentación cayó un punto. La velocidad seguía siendo alta, pero ahora había una tensión del todo distinta a la de un momento antes.
 
-—Ahora habla —dijo ella breve—. No digas lo que ves. Di primero el lado donde no se muere.
+—Ahora habla.
+Ella lo dijo, breve.
+—No digas lo que ves; di primero por dónde no se muere.
 
-Sion recobró el aliento una vez y leyó el espacio de delante.
+Sion recobró el aliento una vez y leyó lo que tenía delante.
 
-La zona de restos parecía, en la superficie, acribillada de brechas. A la derecha se presentaba una abertura ancha; justo delante, entre las paredes exteriores de cascos rotos, un tramo parecía perforado en línea recta como un camino. Pero esa clase de sitio solía tener un porqué. Un camino que parecía demasiado bueno significaba que ya se habían engolfado allí varias partidas, o que la carga del suelo se había hundido, o que la curva siguiente se tragaba a la gente.
+Por fuera, la zona de restos parecía llena de huecos. A la derecha había una abertura ancha, y de frente, entre las paredes exteriores de cascos rotos, un tramo que parecía un camino abierto en línea recta. Pero esos sitios solían tener su razón. Un camino que parecía demasiado bueno era porque ya se habían amontonado allí antes varios equipos, o porque la carga del suelo se había hundido, o porque en la curva siguiente se tragaba a la gente.
 
 Una sola línea estrecha, inclinada hacia abajo a la izquierda.
 
-Su superficie estaba tan sucia que al principio no parecía un camino, pero el flujo de la arena estaba menos roto allí. Tampoco había rastro de que un aparato grande la hubiera forzado de antes. Quizá no fuera la ruta rápida, pero al menos no era una línea que los arrastrara a la siguiente colisión.
+Su superficie estaba tan sucia que al principio no parecía un camino, pero el flujo de la arena estaba menos roto. Tampoco había huellas de que alguien hubiera pasado hacía un momento empujando con un aparato grande. Quizá no fuera el camino rápido, pero al menos no era una línea que fuera a verse arrastrada en el siguiente choque.
 
-—Abajo a la izquierda —dijo Sion enseguida—. No la ancha. La más sucia.
+—Abajo a la izquierda.
+Lo dijo Sion enseguida.
+—No la ancha. La más sucia.
 
-Han Jiwoo mordió esa línea sin siquiera preguntar.
+Han Jiwoo, sin preguntar siquiera, mordió esa línea.
 
-El esquife se metió rozando casi por debajo de la plancha de metal inclinada. Justo a la derecha, en la brecha abierta que parecía la mejor, un planeador rojo oscuro y dos aparatos de una partida de contrabandistas se adentraban a la vez. Partidas de cabeza: su avidez había sido por eso aún mayor.
+El esquife se metió casi raspando por debajo de una plancha de metal inclinada. Justo a la derecha, en la abertura que por fuera parecía la mejor, entraban a la vez un planeador rojo oscuro y dos aparatos del equipo de contrabandistas. Como eran equipos de cabeza, habrían querido más.
 
-Al instante siguiente, la carga del suelo cedió de golpe.
+Al instante siguiente, la carga de delante cedió de golpe.
 
-Una placa que no se veía se hundió hacia abajo, y el morro del aparato de cabeza se clavó de través. Las dos partidas que seguían no tuvieron tiempo de esquivar, torcieron su ángulo, y la placa de sustentación de una de ellas se arrancó en un fragor metálico brutal.
+Una placa que no se veía se hundió, y el morro del aparato de cabeza se clavó de través. Los dos equipos que lo seguían torcieron el ángulo sin tiempo para esquivar, y a uno se le arrancó una placa de sustentación en un estallido de metal áspero.
 
-Han Jiwoo, rozando el exterior de la escena, dijo muy breve.
+Han Jiwoo pasó rozando por fuera y habló muy breve.
 
 —Bien.
 
-Esa sola palabra le irguió los hombros a Sion con más firmeza.
+Esa sola palabra le afirmó todavía más los hombros a Sion.
 
-En la línea norte, Kael y Sern también habían empezado a moverse en un ritmo radicalmente distinto del de la pista.
+En la línea norte, Kael y Sern también empezaron a moverse con un ritmo del todo distinto al de la pista.
 
-Kael ya no buscaba empujar el aparato, sino que había cambiado de postura hacia el lado del que aguanta; y Sern no miraba las brechas en las que se habían engolfado las partidas de cabeza, sino las líneas nuevas nacidas del derrumbe de esas mismas brechas. No era el ojo de quien lee quién pasó primero, sino quién abrió el camino siguiente al desplomarse.
+Kael había cambiado de actitud: ahora, más que empujar el aparato, aguantaba; y Sern no miraba los huecos por donde habían entrado los equipos de delante, sino la línea nueva que surgía después de que esos huecos se derrumbaran. Más que quién había ido primero, era un ojo que leía quién, al derrumbarse, abría el camino siguiente.
 
-—Justo delante se cierra pronto —dijo Sern en voz baja—. Pégate bajo la osamenta, a la derecha.
+—El frente se cierra pronto.
+Sern lo dijo en voz baja.
+—Arrímese por debajo del armazón de la derecha.
 
-Kael acostó el ángulo casi por reflejo.
+Kael inclinó el ángulo casi por reflejo.
 
-El flanco del planeador rozó una vez el bastidor retorcido. Saltó breve un sonido metálico agudo, pero gracias al grosor de la osamenta, el casco no se desgarró. En cambio, un planeador más fino justo delante, incapaz de sostener el mismo ángulo, vio su panel lateral medio arrancado.
+El costado del planeador rozó una vez un bastidor doblado. Saltó un chirrido metálico agudo y breve, pero gracias al armazón grueso el aparato no se desgarró. En cambio, un planeador fino que iba justo delante no aguantó el mismo ángulo y se le arrancó medio panel lateral.
 
-—Por esto elegí este —masculló Kael.
+—Por esto escogí este.
+Kael lo murmuró.
 
-Sern respondió solo muy breve.
+Sern respondió solo con brevedad.
 
-—Aquí dura más el que no se desgarra, no el que va rápido.
+—Aquí dura más el que no se desgarra que el que es rápido.
 
-Detrás, las partidas que acababan apenas de sobrevivir a las colisiones de la pista de deslizamiento volvían a ser cribadas con dureza a la entrada de la zona de restos. Cuanto más rápido era un aparato, más subestimaba este tramo y se enterraba a fondo en él. A la inversa, los aparatos demasiado lentos no lograban calarse antes de que las brechas abiertas se cerraran. Solo entonces comprendió Sion en su cuerpo por qué hacía falta este segundo sector de la carrera.
+Detrás, los equipos que apenas habían superado los choques de la pista volvían a ser cribados con dureza a la entrada de la zona de restos. Cuanto más rápido era el aparato, más subestimaba este tramo y más hondo se clavaba. Al revés, los aparatos demasiado lentos no tomaban posición antes de que se cerraran los huecos abiertos. Solo entonces comprendió Sion con el cuerpo para qué hacía falta el segundo tramo de esa carrera.
 
-Si la pista de deslizamiento roja había cribado a la gente por la velocidad,
-aquí se medían a la vez el sentido para leer el camino
+Si la pista roja había cribado a la gente por la velocidad,
+aquí se miraba a la vez el sentido para leer el camino
 y hasta dónde aguantaba el aparato.
 
-Delante de Han Jiwoo se abrieron tres bifurcaciones a la vez.
+Delante de Han Jiwoo se abrieron tres ramales a la vez.
 
-Una subía por la ladera de una osamenta,
-otra cruzaba por abajo cortando bajo el centro,
-la última rodeaba ampliamente por la izquierda a cambio de una línea poco frecuentada.
+Uno, la ladera de un armazón que subía;
+otro, un hueco bajo que cruzaba por debajo del centro;
+y otro, una línea que daba un gran rodeo por la izquierda, pero con pocas huellas.
 
-Sion barrió las tres deprisa.
+Sion recorrió los tres deprisa.
 
-La de arriba parecía buena. Demasiado buena: eso lo alertó. La superficie metálica al descubierto la volvía resbaladiza, y al menor choque lateral del instante siguiente, era la caída directa hacia abajo.
+El de arriba parecía bueno. Tan bueno que le dio mala espina. Con tanto metal al descubierto, resbalaba, y si al instante siguiente le daba un choque lateral, era una línea para caer directamente abajo.
 
-La fisura baja del centro estaba libre por ahora. Pero justo delante, el polvo era absorbido hacia abajo de un modo anormal. Eso no era un paso que desembocara al otro lado, sino un sitio a punto de hundirse.
+El hueco bajo del centro estaba vacío por ahora. Pero justo delante, el polvo se escurría hacia abajo de un modo extraño, demasiado rápido. Aquello no estaba abierto por dentro: era un sitio que iba a hundirse.
 
-El rodeo por la izquierda era largo. En cambio, en lugar de marcas de ruedas, solo quedaban leves arañazos. Un aparato grande no podía pasar; quizá solo un esquife de su tamaño alcanzara apenas esa línea.
+El rodeo de la izquierda quedaba lejos. A cambio, en lugar de marcas de ruedas, solo había arañazos leves. Un aparato grande no podía pasar; quizá fuera una línea a la que solo alcanzara, a duras penas, un esquife como el suyo.
 
-—La izquierda, ancha —dijo Sion—. Aunque sea lejos. Allá.
+—Por la izquierda, abriéndote mucho.
+Lo dijo Sion.
+—Aunque quede lejos, por ahí.
 
-Esta vez Han Jiwoo no marcó ni un solo compás de pausa.
+Esta vez Han Jiwoo no se tomó, de verdad, ni un compás de respiro.
 
-Acostó el esquife ampliamente y lo deslizó por el borde estrecho entre la arena y el metal. Saltó polvo metálico bajo el casco, y la placa de sustentación derecha se alzó con retraso, haciendo bascular el aparato un instante. Sion creyó que se le paraba el aliento. Pero Han Jiwoo, como si no hubiera esperado más que esa fracción de segundo, torció la barra de dirección y volvió a aplastar el centro de gravedad.
+Tumbó mucho el esquife y lo hizo resbalar por la estrecha frontera entre la arena y el metal. Bajo el casco saltó polvo de metal, la placa de sustentación derecha se levantó una vez con retraso y el aparato se inclinó un instante. Sion creyó que se le paraba la respiración. Pero Han Jiwoo, como si hubiera estado esperando justo esa fracción de segundo, torció la barra de dirección y volvió a afirmar el equilibrio.
 
-El esquife giró deslizándose casi de lado,
-abandonando de un golpe las dos bifurcaciones que los demás habían codiciado.
+El esquife giró deslizándose casi de lado y dejó fuera, de una sola vez, los dos ramales que los demás habían codiciado.
 
-Detrás resonó un gran fragor.
+Detrás sonó un gran estruendo de choque.
 
-Alguien había forzado la fisura baja del centro y se había encastrado a medias junto con la placa de abajo; la partida que seguía, raspando la osamenta superior, había salido despedida hacia arriba tal cual. Esquirlas de metal se dispersaron en el aire nocturno, y del lado de los espectadores estallaron una vez más, a la vez, vítores e insultos.
+Alguien que se había metido a empujones por el hueco bajo del centro se clavó a medias junto con la placa de abajo, y un equipo que lo seguía raspó el armazón de arriba y salió rebotado tal cual hacia arriba. Esquirlas de metal se dispersaron por el aire de la noche, y del lado del público estallaron una vez más, a la vez, vítores e insultos.
 
-Luhai, colgado del extremo de la baranda de la tienda, miraba hacia abajo y se quedó boquiabierto.
+Luhai, colgado del extremo de la baranda de la lona, miraba hacia abajo y terminó por quedarse con la boca abierta.
 
-—¿Lee eso? —masculló.
+—¿Eso se puede leer?
+Lo murmuró.
 
 Ater respondió sin apartar la vista.
 
-—Lo hicieron para que solo sobrevivan los que leen.
+—Lo habrán hecho para que solo sobrevivan los que leen.
 
-Seorin no dijo una palabra. Pero Sion lo notaba incluso de lejos. Su mirada no dejaba de observar el punto exacto donde el pilotaje de Han Jiwoo y las indicaciones de Sion encajaban.
+Seorin no dijo ni una palabra. Pero Sion lo notaba incluso desde lejos. Su mirada no dejaba de seguir el punto en que el pilotaje de Han Jiwoo y las indicaciones de Sion encajaban.
 
 Aka seguía callada.
 
-Pero desde que entraron en la zona de restos, observaba este sector más largamente todavía que el de la capa de calor. No como un ojo que distingue la brasa verdadera de la falsa, sino como un ojo que separa el camino verdadero de la fisura que se hace pasar por camino.
+Pero desde que habían entrado en la zona de las naves muertas, miraba este lado más tiempo incluso que el tramo de la capa térmica. No como un ojo que separa la brasa verdadera de la falsa, sino como uno que separa el camino verdadero del hueco que se hace pasar por camino.
 
-En el lado norte, Kael y Sern habían remontado hasta justo detrás de los punteros.
+Por el norte, Kael y Sern habían subido hasta justo detrás del grupo de cabeza.
 
-El planeador rojo oscuro de la partida campeona del año pasado mantenía aún su posición de cabeza, pero el puesto siguiente ya era un enredo. Una partida temeraria de paso había sobrevivido de milagro a la pista de deslizamiento, pero aquí tenía el casco medio arrancado; una partida de contrabandistas, encajada en una brecha estrecha, bloqueaba a la vez el camino de la partida de atrás.
+El planeador rojo oscuro del equipo campeón del año pasado seguía delante, pero el puesto siguiente ya estaba enredado. Un equipo de temerarios de paso, aunque había sobrevivido de milagro en la pista, aquí tenía el casco medio arrancado, y un equipo de contrabandistas, atascado en un hueco estrecho, cerraba también el camino a los equipos de detrás.
 
-—Los dos de delante. Van a reventar juntos pronto —dijo Sern.
+—Los dos de delante van a morir juntos pronto.
+Lo dijo Sern.
 
 —¿Y entonces?
 
-—No te pegues, descuélgate. Mira solo en qué dirección mueren.
+—No se arrime; sepárese. Mire solo hacia qué lado mueren.
 
-Kael exhaló breve.
+Kael soltó el aire brevemente.
 
-Si el aparato de delante se desplomaba hacia la izquierda, se abriría una línea vacía;
-si se clavaba hacia la derecha, todos quedarían bloqueados juntos.
+Si el aparato de delante se derrumbaba hacia la izquierda, se abría una línea vacía; si se clavaba hacia la derecha, al revés, quedaban todos bloqueados.
 
 Esperar esa diferencia era el método de Sern.
 
-Unos segundos después, una de las partidas de delante, al intentar aguantar, se raspó primero el flanco contra el borde de una osamenta. El casco basculó y se desplomó hacia la izquierda, y en ese instante exacto Sern dijo breve.
+Unos segundos después, efectivamente, un equipo de delante, al tratar de aguantar, se raspó primero el costado contra el extremo de un armazón. El casco se inclinó y se derrumbó hacia la izquierda, y en ese mismo instante Sern habló, breve.
 
 —Ahora.
 
-Kael clavó el morro del planeador y se engolfó tal cual en la línea exterior a ese derrumbe.
+Kael bajó el morro del planeador y se metió de lleno por la línea exterior de ese derrumbe.
 
-El aparato que se creía lento mordió, en ese único instante, la línea más corta.
+El aparato que parecía lento mordió, en ese instante, la línea más corta.
 
-Sion, al verlo de lejos, estuvo a punto de sonreír sin querer.
+Sion, viéndolo de lejos, estuvo a punto de sonreír sin querer.
 
-Esos dos no tenían nada de vistosos.
-Pero en un tramo así eran ellos, justamente, los que daban más miedo.
+Esos dos no eran vistosos.
+Pero en tramos así, era justamente la gente como ellos la que daba más miedo.
 
-Pasado el medio de la zona de restos, el número de partidas supervivientes había mermado de forma visible.
+Al llegar a la mitad de la zona de restos, el número de equipos supervivientes había bajado a ojos vistas.
 
-De las doce, la mitad ya había sido empujada atrás o se había detenido,
-y las que quedaban tampoco estaban todas intactas.
+De los doce, la mitad ya se había quedado atrás o se había detenido, y los que quedaban tampoco estaban todos enteros.
 
-Una tenía muerta una placa de sustentación de un lado,
-otra había perdido el carenado,
-otra aún corría, pero no estaba claro que aguantara un golpe más.
+Uno tenía muerta una de las placas de sustentación,
+otro había perdido el carenado,
+otro aún iba rápido, pero no estaba claro que pudiera aguantar un golpe más.
 
-El esquife de Han Jiwoo tampoco estaba intacto. La respuesta de la placa de sustentación derecha era aún más tardía que antes, y bajo el casco no cesaba el crujido tenue del metal que se desgastaba. Pero nada vital había cedido todavía. Han Jiwoo, como quien conocía ese estado, ni forzaba de más ni ahorraba inútilmente.
+El esquife de Han Jiwoo tampoco estaba entero. La placa de sustentación derecha respondía todavía más tarde que antes, y bajo el casco no paraba un ruido fino de metal que se gastaba. Pero nada vital había cedido aún. Han Jiwoo, como quien conoce ese estado, ni lo forzaba más ni lo cuidaba sin necesidad.
 
-—Más adelante se muere más —dijo.
+—A partir del segundo tramo se muere más.
+Ella lo dijo.
 
 Sion lo entendió enseguida.
 
-No era el aparato lo que la preocupaba, era la gente. Al llegar a la zona de brasas bajo la capa de calor, la velocidad y la lectura del camino solas ya no bastarían.
+No hablaba del aparato, sino de la gente.
+Al llegar a la zona de brasas de la capa térmica, la velocidad y la lectura del camino ya no bastarían.
 
 Habría que escoger lo verdadero.
 
-Y ese, seguramente, era el sector donde unos ojos como los suyos, los de Aka, los de Sern, serían exigidos más a fondo todavía.
+Y ese sería, seguramente, el tramo en que ojos como los suyos, como los de Aka y Sern, quedarían más hondo en juego.
 
 Fue justo entonces.
 
-Ante los ojos de Sion, detrás de la osamenta siguiente, la cola del planeador rojo oscuro brilló un instante en la sombra.
+Ante los ojos de Sion, en la sombra detrás del siguiente armazón, la cola del planeador rojo oscuro destelló una vez.
 
-La partida campeona del año pasado.
+El equipo campeón del año pasado.
 
-Esa partida mantenía su posición de cabeza tomando una ruta superior que parecía una línea recta.
+Ese equipo mantenía la cabeza por una ruta superior que parecía recta.
 
-Pero Sion sintió algo extrañamente inestable en esa línea. No era arena, sino polvo metálico lo que se escurría hacia abajo, demasiado fino. Era un flujo que se veía a menudo en las placas que no aguantaban de verdad, las que solo fingían aguantar en la superficie.
+Pero a Sion aquella línea le daba una inquietud extraña.
+No era arena: era polvo de metal lo que caía hacia abajo, demasiado fino.
+Era un flujo que se veía a menudo en una placa que no aguanta, sino que solo finge aguantar por fuera.
 
-—Esa de arriba se cae —dijo Sion casi por reflejo—. Va a hundirse pronto.
+—Eso de arriba se hunde.
+Lo dijo Sion casi por reflejo.
+—Se va a derrumbar enseguida.
 
-Han Jiwoo preguntó sin volver la cabeza.
+Han Jiwoo preguntó sin volver siquiera la cabeza.
 
 —¿Seguro?
 
@@ -173,58 +186,55 @@ Sion respondió breve.
 
 —Sí.
 
-Han Jiwoo no vaciló.
+Han Jiwoo no dudó.
 
-Plantó el esquife no en la ruta superior, sino justo por debajo, en una línea estrecha tan sucia que nadie habría querido tomarla.
+Metió el esquife no en la ruta superior, sino justo por debajo, en una línea estrecha tan sucia que nadie la habría querido tomar.
 
-Y exactamente tres tiempos después,
-la plancha de la osamenta superior se partió ampliamente y la parte delantera del planeador rojo oscuro se hundió hacia abajo.
+Y exactamente tres tiempos después, la plancha del armazón de arriba se partió con fuerza y la parte delantera del planeador rojo oscuro se hundió.
 
-La multitud entera contuvo el aliento de golpe.
+Toda la multitud contuvo el aliento a la vez.
 
-Aún no había terminado del todo. Esa partida también era experimentada; corrigió enseguida el aparato y aguantaba. Pero el flujo que le permitía conservar la cabeza con holgura se había roto.
+Todavía no había terminado del todo. Aquel equipo también tenía oficio y enseguida torció el aparato para aguantar. Pero el ritmo con que defendía la cabeza tan tranquilo se había roto.
 
-Han Jiwoo, engolfándose en la línea inferior, dijo muy breve.
+Han Jiwoo se metió por esa línea de abajo y habló muy breve.
 
-—Bien.
+—Muy bien.
 
-Sion sintió que esa sola palabra, esta vez, le entraba más caliente todavía.
+Sion sintió que esa sola palabra, esta vez, le entraba más caliente.
 
 El final de la zona de restos se acercaba.
 
-Más allá de la oscuridad de delante, se veía el aire mismo empezar a ondular poco a poco. Entre los olores de metal y de arena, un relente a quemado se insinuaba en hilo fino.
+Más allá de la oscuridad de delante, se veía el propio aire ondular poco a poco.
+Entre el olor del metal y de la arena subía, fino, un olor a quemado.
 
-La zona de brasas bajo la capa de calor.
+La zona de brasas de la capa térmica.
 
-Aún no habían puesto el pie del todo,
-y sin embargo el sector siguiente empujaba ya su influencia hasta aquí.
+Todavía no habían entrado de lleno, y el tramo siguiente ya empujaba su influencia hasta allí.
 
-Han Jiwoo dijo en voz baja.
+Han Jiwoo habló en voz baja.
 
-—De aquí en adelante, pasas tú primero.
+—Desde ahora vas tú primero.
 
-Sion no respondió de inmediato.
+Sion no respondió enseguida.
 
-En su lugar, miró una vez más el aire ondulante de delante.
+En su lugar, miró una vez más el aire que ondulaba delante.
 
-En la pista de deslizamiento roja había guiado la mano de Han Jiwoo;
-en la zona de restos de cascos, los dos habían leído el camino juntos;
-y ahora, del sector siguiente en adelante,
-debían pasar primero los ojos capaces de separar lo verdadero de la imitación.
+En la pista roja había ido primero la mano de Han Jiwoo;
+en la zona de restos de naves muertas, los dos habían salvado juntos el camino;
+y ahora, desde el tramo siguiente,
+los ojos que separan lo verdadero de la imitación tenían que ponerse más adelante.
 
-Sion dijo breve.
+Sion habló, breve.
 
-—No los voy a perder.
+—No se me escapa.
 
-En ese instante, los aparatos supervivientes franquearon casi a la vez la última curva de la zona de restos
-y empezaron a dispersarse a lo largo hacia la entrada de la zona de brasas bajo la capa de calor.
+En ese instante, los aparatos supervivientes salieron casi a la vez por la última curva de la zona de restos y empezaron a dispersarse a lo largo, hacia la entrada de la zona de brasas de la capa térmica.
 
-Detrás, los ruidos de metal roto y los insultos seguían vivos,
-delante, el aire ardiente y los resplandores turbios empezaban a ondular,
-y del lado del patio central, las apuestas y los gritos no cesaban de crecer.
+Detrás seguían vivos los ruidos de metal roto y los insultos,
+delante empezaban a ondular el aire ardiente y unas luces turbias,
+y del lado del patio las apuestas y los gritos iban creciendo.
 
-La carrera de la brasa
-se hallaba ahora ante la verdadera prueba.
+La carrera de la brasa estaba ahora ante la prueba de verdad.
 
 ---
 

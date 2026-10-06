@@ -1,192 +1,276 @@
 # Episode 42. The Way the Values Split
 
-After the word *separate* fell, the inside air grew even quieter.
+After the word *separate* fell, the air inside went even quieter.
 
-Sion felt that brief silence was not simple waiting. Not everyone going quiet because someone decided — but silence because everything needed recalculating: what to place in whose hands, how far apart to set things, and who would mispay first in between.
-
-Harun still stood close to the entrance; Nasim, even with his smiling face, was watching the inside people's hand movements more frequently. Nahira pretended not to look at Aka — yet seemed the first to be holding how the entire inside air had changed after Aka spoke.
-
-Luhai, for the first time, gripped the etherite in hand slightly less hard. Before, the expression said losing it meant the end — now it was the face of someone who knew this was no longer simple stolen goods but something pulled into a board too large. Kael read that change and still did not fully release. Preventing escape, yet not gripping uselessly harder. A hold uncomfortable enough to bind, nothing more.
-
-Sion suddenly thought of Jiwoo.
-
-While the value of door-imitations and real fragments and names were splitting inside this desert, the ship left at the crash site outside was still near-dead. They had entered looking for etherite — and now even that single etherite could not simply be bought and carried out. The work of finding the name and saving the ship had bound tighter into a single line.
+Sion felt that the short silence was different from plain waiting. They had not gone quiet because someone had decided and everyone meant to follow. It was the silence of having to recalculate everything from here on—what to put in whose hands, what to hold apart and by how far.
 
 Seorin spoke first.
 
-"How are you splitting it."
+"How are you splitting it?"
 
-Harun answered short.
+Harun answered shortly.
 
-"Fragment goes there."
+"The fragment, over there."
 
-He chin-pointed inside Kael's coat.
+He jerked his chin at the inside of Kael's coat.
 
-"Etherite stays here."
+"The Etherite, here."
 
-This time he indicated Luhai's hand.
+This time he pointed at Luhai's hand.
 
-"Talk — separate."
+"The talk, separately."
 
-That ultimately meant splitting people too.
+What that meant, in the end, was that they would split the people too.
 
-Sion asked immediately.
+Sion asked at once.
 
-"Who are you planning to separate."
+"Who are you planning to set apart?"
 
-Nasim smiled smooth.
+Nasim smiled gently.
 
-"Good question."
-He said.
-"But on Hazran, you always cut goods first — people follow after."
+"In Hazran we always cut the goods first. The people follow later."
 
-"We're not goods."
-Sion said low.
+"We're not goods,"
+Sion said, low.
 
-"That's your side's word."
+"That's your side talking,"
 Nasim answered.
-"In this inside — everything is still a price."
+"In here, everything's still a price."
 
-That sentence was unpleasant but not wrong. At least within this inside's order.
+The sentence was unpleasant, but it wasn't wrong. Not inside the order of this inner room, at least.
 
-Ater said quietly.
+Ater spoke quietly.
 
-"What Aka described is closer to resonance. If keeping them apart is necessary for the next verdict — at minimum, they must not stay in the same space."
+"What Aka described is close to sympathetic vibration. If it means the two must be kept apart before the next verdict is possible, then they cannot stay in the same space."
 
-Harun received.
-
-"That's why we cut."
-
-Seorin said, lower.
-
-"The point is we can't trust the hand doing the cutting."
-
-Nasim smiled at once.
-
-"Good. Now we're having a conversation."
-
-This time that *good* did not sound awkward from Nasim's mouth. Less a sharp retort — closer to the shallow satisfaction of calculations aligning.
-
-Nahira cut between them quietly.
-
-"Don't put both in the same room."
-She said.
-"That's what Aka meant. Let them ring longer here — she can't see, and neither can you."
-
-Sion paused briefly when she said *that child*.
-
-Calling Aka that way instead of by name was not diminishment — more like the way inside people handled Aka. Not spilling the name outside while having already developed their own distance of address within.
-
-Luhai asked with genuine caution for the first time, not complaint.
-
-"So you're taking this?"
-
-Harun did not answer.
-
-Instead Nasim received it lightly.
-
-"In less pretty words than *taking* — you could say *holding briefly*."
-
-"That's even more suspicious."
-Luhai said at once.
-
-Nasim laughed.
-
-"Your mouth really is a waste."
-
-Kael muttered from beside.
-
-"I was just thinking the same thing."
-
-Luhai glanced at him hearing that. Irritation first on the face — yet less hostile than before. Despite being the hand that blocked him first, the manner of blocking apparently registered as not fully the betraying kind.
-
-Sion watched that change and reconsidered why Kael had thrown his body toward Luhai first. Less simple sympathy — perhaps catching a similar scent. The scent of someone who'd spent a long time trying to slip out alone until hands started moving first. Not yet at the stage of putting that into words — but clearly remaining within the scene.
-
-When Harun gestured very briefly, two inside people moved quietly. One attached near Luhai, one near Kael. Not overtly aiming weapons — but positioned sufficiently to signal: beyond this, distance could no longer be decided by will alone.
-
-Seorin watched and asked.
-
-"You're separating us."
-
-"Briefly."
+"So we cut,"
 Harun said.
-"As much as needed."
 
-"That line is the least trustworthy."
-Sion muttered.
+Seorin came back lower.
+
+"What we're saying is we can't trust the hand that does the cutting."
 
 Nasim smiled.
 
-"I told you — trust is expensive."
+"Then measure it."
 
-The words were still irritating — yet strangely, they now sounded like the law of this entire place. On Hazran: real things were rare, prices attached, lies were many, and trust arrived last. So this process, by this floor's methods, might be perfectly natural procedure.
+He wasn't being sarcastic.
 
-Nahira sent a single glance toward Aka.
+Nahira drew back a fold of the inner tent.
 
-"Okay?"
-She asked low.
+Behind it was not a room but a passage. It was narrow, its floor laid with metal plates, and along both walls short grooves had been cut at regular intervals. Each groove was about two finger-joints deep, one for every human stride.
 
-Aka did not answer immediately. Instead she traced Sion's group, Luhai, the etherite, and the fragment inside Kael's coat once more with her eyes. Not the eyes of a frightened child — but the eyes of someone forcibly holding onto grain not yet fully organized.
+Sion didn't know right away what it was.
 
-"Put that one far."
-She said first.
-"And that one can't stay close."
+Luhai did.
 
-This time Luhai and Kael nearly simultaneously realized they were the ones indicated. Sion, from that brief cross-recognition alone, felt Aka was restructuring the space itself through sense. Not a method of reassuring people — a method of cutting what needed cutting first.
+"It's a measuring passage."
 
-Ater said low.
+"You know it,"
+Nahira said.
 
-"Then sequence is needed."
+"First time I've seen one used."
 
-Sion followed at once.
+Luhai counted the grooves with his eyes, then went on.
 
-"Who carries what first and moves, who stays, who watches."
+"People here don't keep two high-price things together. They knock each other's price down. So they measure how many steps apart they have to be before nothing gets knocked off. That number of steps is the thing's price."
 
-Nasim narrowed his eyes as if finding it interesting.
+Hearing that, Sion understood for the first time how this city handled Aka's verdicts. Here sympathetic vibration was no mystery. It was a distance you counted in steps.
 
-"Now that sounds like a board."
-He said.
+Ater looked down at one of the grooves.
 
-Seorin cut immediately.
+"Who decided this?"
 
-"The board isn't laid yet."
+"Nobody decided,"
+Nahira said.
+"Somebody dug them."
 
-"You'll know soon enough."
-Nasim replied.
+"Then where is the record?"
 
-Then — from a deeper section inside, one low, heavy metallic sound rang. It did not seem deliberately made. Closer to the sound of a long-locked section opening — or closing. But from that single brief sound alone, every inside hand paused — very faintly.
+Nahira looked at the question for a moment as if it were strange.
 
-Sion watched that change and understood.
+"The grooves are the record."
 
-There was a deeper inside within this inside.
-And where they had reached was not the end — closer to a sorting zone just before the real board.
+Instead of arguing, Ater ran his eyes along the grooves cut into the wall, all the way to the end. Some were deep and some were shallow. The ones touched most often were worn smoother.
 
-Luhai seemed to feel it too — this time genuinely swallowing once, small.
+Sion thought he knew what Ater was thinking. The Empire would have turned this into a document. How many steps were needed, who had made that call, who had approved the call. About three sheets of paper would have come out of it, and those sheets could have been erased.
 
-"Wow."
-He muttered.
-"Really did touch somewhere way too big."
+Here it was cut into the wall. To erase it, you would have to break the wall.
 
-Kael answered, very low.
+"That is uncomfortable,"
+Ater said at last.
 
-"Just realized?"
+"Why?"
 
-Luhai looked at him with an irritated face — but could not argue.
+"Because it is right, and it belongs to no one."
 
-Harun said, as if concluding.
+Nahira looked at Aka.
 
-"Prepare."
+"How many?"
 
-At that single word, the inside air moved again. No one ran; no one raised their voice. Instead, everyone scattered like hands already moving in predetermined order. Separation, transfer, surveillance — all apparently rolled like routine on this inside.
+Aka looked once down the passage. Then she turned her head a little toward Kael's coat, and looked at Luhai's hand.
 
-Sion pressed the paper inside his jacket once more.
+"Twelve."
 
-*Hazran.*
-*Aka.*
+Nahira's hand stopped for a moment.
 
-Those two words now felt not like a destination — but the first step of a staircase where values split, rebind, and descend toward a deeper board.
+"Twelve?"
 
-## What comes next would probably be — seeing more clearly who could handle how much truth, and who actually held the board on this inside.
+"Yeah."
+
+"The grooves here only go to nine."
+
+"Then it's not enough."
+
+For the first time, a sound came from the people of the inner room. A small sound. Someone let out a short breath; someone looked at the person beside them. That was all, but Sion knew what the reaction meant.
+
+This passage had been dug to handle the highest-priced thing Hazran had ever dealt with.
+
+And now it wasn't enough.
+
+This time, instead of smiling, Nasim gave a very short click of his tongue.
+
+"Nine was the highest,"
+he said.
+"Know when that was?"
+
+Nobody asked.
+
+"The year I came here."
+
+Only then did he smile again. A thinner smile than before.
+
+For the first time, Harun took one step out of his place.
+
+"So it means pulling it all the way outside."
+
+"No,"
+Aka said.
+"Outside is louder."
+
+"Then where?"
+
+Instead of answering, Aka looked to the far side of the passage, toward a tent no one had opened yet.
+
+Nahira followed her gaze and gave a very short shake of her head.
+
+"Not there."
+
+"That's the only place that makes twelve."
+
+"I said not there."
+
+Their two voices overlapped for the first time. It was the first time Nahira had blocked Aka. In that brief overlap, Sion learned there was one more place in this inner room that had not been opened yet. And the one guarding it was not Harun, not Nasim, but Nahira.
+
+It was Kael who cut the silence.
+
+"I'll go out."
+
+Everyone looked his way.
+
+"I'll carry the fragment as far as nine,"
+he said.
+"The last three I can earn on foot. Three steps outside the passage."
+
+Nasim's smile dimmed a little.
+
+"Our hands don't reach outside."
+
+"That's why I'm the one going out."
+
+Hearing that, Sion looked at Kael again.
+
+The man had just said he would put himself in the most dangerous spot. Inside the passage was ground Hazran guarded; three steps beyond it was ground nobody guarded. But it was also the one spot where he would not have to hand the fragment to anyone else.
+
+Luhai caught it first.
+
+"He's doing that so he doesn't have to let go of the fragment."
+
+Kael didn't deny it.
+
+"Yeah."
+
+"Annoying how honest he is."
+
+Nahira looked at Aka again.
+
+"Will that work?"
+
+Aka looked at Kael for a long while. Not with eyes that looked at a person, but with eyes measuring how the thing in his hands would ring at that distance.
+
+"Twelve is enough,"
+she said.
+"But if it narrows by even one, they'll mix again."
+
+"Then we just don't narrow it,"
+Luhai said.
+
+This time Aka looked at Luhai.
+
+"It won't narrow if you don't move."
+
+Luhai's mouth shut for a moment. It was the face of someone who had just understood why the thing in his hand decided where he stood.
+
+Harun gave two of the inner people a short signal. One moved in beside Kael, one beside Luhai. Nobody openly aimed a weapon, but the positions were enough to make it plain that, from here on, no one could set the distance by their own will alone.
+
+Watching that, Seorin asked.
+
+"So you're splitting us up."
+
+"For a moment,"
+Harun said.
+"Only for twelve."
+
+"That's the part I believe least,"
+Sion muttered.
+
+"I told you trust is expensive,"
+Nasim said.
+
+The words were still galling, but strangely, they now sounded like the law of this whole place.
+
+Kael stepped into the passage.
+
+Each time his foot met a metal plate it gave a low, dull sound. One. Two. Three. One of the inner people touched the grooves with a fingertip and counted along. Not aloud. Only the finger moved.
+
+At nine, the counting hand stopped.
+
+Kael pushed aside the tent at the passage's end and walked straight on, three more steps out. On the last step a breath of outside heat rushed in once, and as the tent dropped back down it cut his back from view.
+
+Twelve.
+
+In that moment Sion realized he had been holding his breath.
+
+Seorin was looking at the spot where the tent had settled.
+
+"That's not his first time,"
+she said, low.
+
+"What isn't?"
+
+"Standing outside alone."
+
+Hearing that, Sion remembered that Kael had not asked anyone anything as he stepped into the passage. Should I go, is it all right, how far. He hadn't asked one of them. It was the walk of someone who had never asked.
+
+Luhai looked down at the Etherite in his hand.
+
+Until a moment ago he had worn the face of someone for whom losing this meant the end, but now it was different. It was the face of someone who knew this thing had decided where he could go without ever leaving his hand.
+
+"If I let go of this, am I free?"
+
+"No,"
+Nasim answered.
+"Then you've got no price, and that's more dangerous."
+
+Luhai had no answer.
+
+Sion looked at the empty passage.
+
+Twelve steps. This city really did measure the distance between two things that way. And those twelve steps had just stood one of their own outside.
+
+The way the values split was not haggling.
+
+It was distance.
 
 ---
 

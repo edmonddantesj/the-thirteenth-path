@@ -1,181 +1,379 @@
 # Chapitre 102 — Les mains moins nombreuses devinrent plus précieuses
 
-Après que le quatrième groupe eut commencé à bouger,
-l'intérieur de Hazran devint plus silencieux qu'avant.
+Ce fut Sion qui, le premier, porta de l'eau jusqu'au couloir.
 
-Devenir silencieux au milieu d'un champ de bataille bruyant
-n'était pas bon signe.
+Jusque-là, d'autres mains étaient chargées de porter l'eau. Ces mains-là étaient parties tout à l'heure avec la cinquième file.
 
-Cela signifiait que chacun
-avait réduit jusqu'au souffle consacré aux mots inutiles.
+« De l'eau. »
 
-Sion perçut le changement aussitôt.
+Sern ne se retourna pas.
 
-La voix de Nassim était toujours brisée,
-mais elle ne s'abattait plus sur les gens comme avant.
-Désormais, seuls les mots nécessaires en sortaient, arrachés.
+« Posez-la et partez. »
 
-« Les trois de devant. »
-« Derrière, stop. »
-« Maintenant. »
+« Je la garde en main. »
 
-Seorin, elle aussi, avait cessé d'expliquer.
-Elle ajustait les angles de ses mains,
-tranchait la file,
-séparait d'un seul regard ceux qui devaient bouger de ceux qui devaient rester.
-Luhai saisissait l'épaule de quiconque pleurait ou tremblait de peur
-et le poussait simplement vers l'avant.
+« Je vous ai dit de la poser et de partir. »
 
-Tous
-avaient commencé à ne garder que les gestes essentiels.
+« Si je la pose, tu ne pourras pas boire. »
 
-Non parce que le combat durait depuis trop longtemps,
-mais parce que chaque main restante était devenue trop précieuse.
+Alors seulement, Sern lui jeta un bref regard.
 
-Si une seule personne de plus se blessait ou tombait ici,
-ce n'était pas simplement un être en moins dans les rangs.
-Le temps que cette personne portait,
-la file que cette personne tenait,
-le vide que cette personne comblait — tout cela se vidait d'un coup.
+Sion avait raison. S'il la posait, il faudrait se dégager pour aller la ramasser, et s'il se dégageait, sa place resterait vide. Ici, en ce moment, le temps où une place restait vide n'était pas le temps de boire : c'était le temps où le couloir s'ouvrait.
 
-Hazran, désormais,
-ne comptait plus les gens par leur nombre,
-mais par les postes qui ne devaient pas rester vacants.
+« Gardez-la en main. »
 
-Ce fait étouffait Sion à chaque souffle.
+« Oui. »
 
-Dans le couloir droit, depuis qu'Haroun avait fléchi une première fois,
-Sern et Ater comblaient réellement sa place à deux.
+Sion porta le bol jusqu'à hauteur de l'épaule de Sern. Sern ne fit que tourner la tête pour boire. Il but deux gorgées et s'arrêta.
 
-Haroun était debout à nouveau.
-Mais n'importe qui pouvait voir
-que ce n'était plus le même corps qu'avant.
-Son bras gauche pendait plus bas,
-sa respiration s'était raccourcie,
-et au lieu de recevoir le poids de face, il ne tenait plus qu'en déviant les angles.
+« Bois encore. »
 
-Sern devait courir davantage pour combler l'écart.
-Incapable même de cacher la blessure à son flanc,
-il entrait, coupait court, se retirait aussitôt,
-rentrait encore,
-se retirait encore.
+« Vous reviendrez ? »
 
-Ater les observa tous les deux et ne lança que les mots nécessaires.
+« Oui. »
 
-« Sern, en bas. »
-« Haroun, recule un temps. »
-« En haut à droite, ça se rouvre. »
+« Alors j'en laisse pour plus tard. »
 
-Aucune précipitation dans cette voix.
-Ce qui la rendait plus vertigineuse encore.
-C'était la voix d'un homme qui devait rester précis depuis trop longtemps,
-sans même le luxe de pouvoir s'affoler.
+Sion comprit ce que voulait dire cette réponse. Cet homme n'économisait pas l'eau : il laissait à Sion une raison de revenir.
 
-La situation de Kael, à gauche, n'était pas meilleure.
+Il alla aussi voir Ater. Ater but une gorgée et détourna la tête.
 
-Il ne tenait pas seul,
-mais le simple fait que *la gauche ne s'est pas effondrée depuis que Kael y est entré*
-montrait exactement le prix de cette seule main.
+« Tu ne devrais pas être ici. »
 
-Kael était en train de redresser un écran de métal bas
-quand il lâcha brièvement :
+« Je sais. »
 
-« Un de plus et je l'abandonne. »
+« Tu le sais, et tu restes ? »
 
-Sion comprit aussitôt.
+« Il n'y a personne d'autre pour la porter. »
 
-Abandonner l'écran signifiait abandonner l'espace derrière.
-Abandonner cet espace signifiait
-comprimer les gens encore plus vers l'intérieur.
+Ater ne répondit plus rien.
 
-Le dernier espace près de la coque était déjà bondé.
-Et pourtant il pouvait encore rétrécir.
-Cette seule pensée était suffocante.
+De là où il était, Sion regarda ce qu'il pouvait voir.
 
-Han Jiwoo réceptionnait les trois premiers du quatrième groupe
-en lisant de la main les vibrations de l'entrée de la coque.
+L'espace que tenaient les deux hommes s'était élargi. Il leur fallait surveiller aussi jusqu'à l'endroit que bloquait Haroun. Sern en haut, Ater en bas. Mais tous deux jetaient de temps en temps un regard derrière eux. Du côté de l'amas. Si l'autre camp cherchait à percer l'amas, il faudrait bloquer cela aussi.
 
-« Moins de secousses, cette fois, » dit-elle à voix basse.
+Trois endroits à bloquer, et deux mains.
 
-Aka répondit du tac au tac.
+« Combien ? »
+Ce fut Sern qui demanda.
 
-« Il y a moins de monde. »
+Sion ne comprit pas tout de suite.
 
-C'était un fait.
+« L'homme en dessous. L'intervalle de ses coups. »
 
-Quand la taille de chaque lot diminuait,
-la coque tremblait moins.
-Du point de vue du système, c'était de la stabilité ;
-du côté humain, un découpage plus cruel encore.
+Sion allait répondre, puis s'arrêta.
 
-Pour survivre,
-les gens devaient désormais être découpés en groupes toujours plus petits avant d'être chargés.
+Tout à l'heure, il avait entendu douze. Avant, c'était onze, et avant encore, dix.
 
-Jiwoo expulsa un souffle qui ressemblait presque à un rire.
+« Pourquoi tu demandes ? »
 
-« Je ne sais pas si je devrais appeler ça une bonne nouvelle. »
+« Je le demande parce que je dois le savoir. »
 
-Aka ne répondit pas.
-Elle posa plutôt la main sur la paroi extérieure de la coque,
-guettant la prochaine vibration.
+« Et si tu le sais, ça change quoi ? »
 
-Zahir observait tout le monde
-et préparait déjà la redistribution des mains dès la fin du quatrième groupe.
+Sern répondit aussitôt à cette question.
 
-Cette fois, il ne s'en cachait même plus.
+« Je sais à quelle vitesse je dois agir. »
 
-Il comptait les gens du regard.
-Qui marchait encore.
-Qui pouvait encore courir.
-Qui devait être retiré.
+À cette réponse, Sion regarda du côté d'Ater.
 
-Chaque fois que Sion croisait ce regard,
-il sentait que lui aussi était compté comme une simple main.
+Ater parla sans quitter l'angle des yeux.
 
-Le sentiment était désagréable,
-mais impossible à nier.
-Parce qu'ils en étaient vraiment là.
+« Ne le dis pas. »
 
-À cet instant,
-Luhai lança à voix basse :
+« Pourquoi ? »
 
-« Quelqu'un ralentit ! »
+« S'il l'entend, ses mains vont accélérer. »
 
-Un homme à l'arrière de la quatrième file n'arrivait plus à lever les jambes correctement ;
-la file se bloqua de nouveau, un bref instant.
+« Accélérer, c'est bien, non ? »
 
-Avant que Sion eût le temps de s'élancer,
-Seorin s'était déjà glissée à côté de cette personne.
+« Ici, une main qui accélère perd le temps suivant. »
 
-Sans un mot, elle lui souleva la taille
-et le poussa d'un cran vers l'avant.
-Le geste n'était ni trop brutal
-ni trop doux —
-ce qui le rendait plus Seorin que tout.
+Sern l'interrompit.
 
-« Va, » dit-elle à voix basse.
+« Je le perds déjà. »
 
-Une syllabe.
+« Je sais. »
 
-Mais en cet instant, cette seule syllabe suffisait.
+« Alors laissez-le parler. »
 
-La file se remit en mouvement.
+Pour la première fois, les deux hommes se regardèrent. Ce fut l'affaire d'un temps. Pendant ce temps-là, personne ne regarda l'angle.
 
-Ce bref recommencement, même lui,
-représentait une unité de temps supplémentaire pour Hazran.
+Sion eut peur de cela et parla le premier.
 
-Et Sion comprit.
+« Douze. »
 
-La bataille n'allait plus vers de grandes scènes héroïques.
-Elle tenait par le nombre de petits recommencements qu'on parvenait encore à produire.
+Sern regarda de nouveau devant lui.
 
-Chaque main qui disparaissait devenait plus précieuse,
-et ceux qui restaient
-n'avaient d'autre choix que de se mouvoir plus bas, plus net, plus impitoyablement.
+« Et avant ? »
 
-Hazran, en cet instant,
-avec ces mains si coûteuses,
-poussait péniblement les quelques personnes suivantes vers l'extérieur.
+« Onze. »
+
+« Et encore avant ? »
+
+« Dix. »
+
+Sern prit ces trois nombres et ne dit rien. À la place, la fois suivante, il s'engagea un demi-temps plus tôt.
+
+Ater le vit.
+
+« C'était trop tôt. »
+
+« Je sais. »
+
+C'est alors qu'un bruit vint du côté de l'amas.
+
+Ceux qui creusaient en haut s'étaient tous arrêtés.
+
+« Descendez ! »
+
+Quelqu'un avait crié. Dans le bas de l'amas, des pierres bougeaient. Ce n'était pas une poussée venue d'en haut. Elles étaient repoussées de l'intérieur.
+
+« Eux aussi, ils creusent. »
+Ce fut Sern qui le dit.
+
+« Pour le sauver ? »
+
+« Non. »
+
+Ater répondit à sa place.
+
+« En ce moment, le chemin le plus rapide pour entrer, c'est cet amas. »
+
+Alors seulement, Sion vit.
+
+Le même amas, douze le creusaient par le haut, et ces choses le creusaient par le bas. Seul le sens était inverse ; le travail était le même. Une fois tout cela déblayé, l'homme d'en dessous sortirait, et du même coup, le couloir s'ouvrirait.
+
+Ater logea deux tirs brefs dans le bas de l'amas. Ce qui poussait pour sortir s'arrêta.
+
+« Je ne pourrai pas les retenir longtemps. »
+
+« Pourquoi ? »
+
+« Elles ne se fatiguent pas. »
+
+Sion regarda ceux qui creusaient en haut. Le dos de leurs mains était tout écorché. Ils creusaient sans arrêt depuis tout à l'heure.
+
+Ce n'était donc pas une question de savoir qui se fatiguerait le premier, mais de quel côté on atteindrait le but le premier.
+
+Sion restait là, le bol d'eau à la main.
+
+Après cela, les deux hommes restèrent un long moment sans parler. Ater ne prononçait que trois mots, en haut, en bas, derrière, et Sern bougeait à chacun d'eux. Entre ces trois mots, les intervalles étaient plus courts que lorsqu'il était venu tout à l'heure.
+
+Sion regarda le bras d'Ater.
+
+« Ta manche. »
+
+« Oui ? »
+
+« Elle est déchirée. »
+
+Ater ne regarda pas son bras.
+
+« Elle risque d'accrocher ? »
+
+« Je crois que oui. »
+
+« Alors attache-la, s'il te plaît. »
+
+Sion posa le bol par terre et saisit le bout de la manche d'Ater. Il la replia deux fois et la glissa vers l'intérieur. Pendant tout ce temps, Ater ne quitta pas une seule fois l'angle des yeux.
+
+« Voilà. »
+
+« Tu ne vérifies pas ? »
+
+« C'est fait. »
+
+« Alors c'est bon. »
+
+En retirant ses mains, Sion comprit. Cet homme ne pouvait même plus voir sa propre manche. Il avait deux yeux pour voir, et tous deux étaient ailleurs.
+
+Bien plus tard, Ater s'adressa à Sion.
+
+« La prochaine fois. »
+
+« Oui ? »
+
+« Dis-le-moi aussi. »
+
+« Tu m'as dit de ne rien dire. »
+
+« Le problème, c'est qu'un seul le sache. »
+
+Après quoi, pour la première fois, Ater ajouta une brève explication.
+
+« S'il sait douze et que moi je ne le sais pas, je ne sais pas pourquoi il s'engage plus tôt. Et si je ne le sais pas, je suis en retard. »
+
+« Alors pourquoi tu m'en as empêché, tout à l'heure ? »
+
+« Il aurait mieux valu qu'il ne sache pas. »
+
+Ater parla encore.
+
+« Maintenant qu'il sait, il faut que nous sachions tous les deux. »
+
+Sion comprit que cette phrase venait de se retourner.
+
+Cacher était une chose, partager en était une autre. Dès que la première lui était devenue impossible, cet homme était passé aussitôt à la seconde.
+
+« Dès que ça passe à treize, je te le dis. »
+
+« Pas seulement treize. »
+
+« Hein ? »
+
+« Chaque fois que ça augmente d'un cran, dis-le. Même quand ça n'augmente pas, dis-le. »
+
+« Même quand ça n'augmente pas ? »
+
+« Que ça n'augmente pas, c'est aussi une information. »
+
+« Et l'eau ? »
+
+Un instant, Ater laissa cette question sans réponse.
+
+« La prochaine fois, n'en apporte qu'un. »
+
+« Pas deux ? »
+
+« Si tu en apportes deux, il te faudra rester planté là deux fois. »
+
+Sion comprit ce que voulaient dire ces mots. S'il restait longtemps planté ici, Sion deviendrait lui aussi une main qu'il faudrait compter.
+
+« Alors pour qui ? »
+
+« À tour de rôle. »
+
+Sion recula, le bol d'eau à la main.
+
+En sortant, il s'arrêta une fois.
+
+« Sern. »
+
+« Oui. »
+
+« Tout à l'heure, tu n'as bu que deux gorgées. »
+
+« Oui. »
+
+« Bois maintenant. »
+
+Sern ne se retourna pas.
+
+« Elles ne viennent pas encore. »
+
+« C'est bien pour ça : bois maintenant. »
+
+Sern attendit un instant, puis tourna la tête. Sion leva le bol. Cette fois, il but trois gorgées.
+
+« Cela suffit. »
+
+« Il en reste. »
+
+« Ce qui reste est à l'autre, celui de tout à l'heure. »
+
+Sion alla voir Ater avec le bol d'eau. Ater ne but pas.
+
+« J'ai bu tout à l'heure. »
+
+« Une gorgée. »
+
+« Une gorgée suffit. »
+
+Sion baissa de nouveau le bol. Le reste de l'eau était toujours là.
+
+Chacun des deux avait poussé sa part vers l'autre. Ils ne s'étaient rien dit, et le résultat était le même.
+
+En sortant, il jeta encore un regard au couloir. Deux hommes tenaient la place de trois, derrière eux douze creusaient du haut vers le bas, et personne ne regardait personne.
+
+Il se dirigea vers la coque.
+
+Han Jiwoo avait le dos de la main posé contre le joint de la rampe. La même posture que tout à l'heure, mais un autre visage.
+
+« Qu'est-ce qu'il y a ? »
+
+« Le son a changé. »
+
+« C'est pire ? »
+
+« Non. »
+
+Han Jiwoo retira le dos de sa main, puis le reposa.
+
+« C'est devenu plus calme. »
+
+« C'est bien, non ? »
+
+« C'est calme parce qu'il y a moins de monde. »
+
+Sion comprit ces mots.
+
+Il en partait toujours vingt à chaque fois, mais les paquets qui se pressaient d'un coup étaient devenus plus petits. Parce qu'on les coupait par trois. Pour le vaisseau, c'était plus facile.
+
+« Alors le vaisseau va tenir plus longtemps. »
+
+« Oui. »
+
+« Pourquoi tu fais cette tête ? »
+
+Han Jiwoo resta un instant sans répondre.
+
+« Parce que plus le vaisseau est à l'aise, plus les gens sont découpés menu. »
+
+« Il tiendra encore combien, le vaisseau ? »
+
+« Je ne sais pas. »
+
+« Tu ne sais pas ? »
+
+« Ça, on ne peut pas le savoir. Personne n'a jamais fait une chose pareille avec un vaisseau pareil. »
+
+Étrangement, cette réponse réconforta Sion. Que personne ne sache voulait dire aussi que rien n'était encore décidé.
+
+« Mais il y a une chose que je sais. »
+Ce fut Han Jiwoo qui le dit.
+
+« Laquelle ? »
+
+« Si je lâche, il ne repart pas. Ça, c'est sûr. »
+
+Puis elle baissa la main.
+
+« Va les faire monter. »
+
+Sion alla vers la file.
+
+« Trois. »
+
+Six paquets de trois. Deux à la fin.
+
+« Vingt. »
+
+La rampe se replia. Le vaisseau s'éleva. Plus silencieux que tout à l'heure.
+
+Sion alla au tableau. Les marques passèrent à sept.
+
+Quatre-vingt-huit moins vingt. Soixante-huit.
+
+Quatre fois.
+
+Sion regarda ce nombre encore une fois.
+
+La première fois qu'il avait compté, on ne voyait pas la fin. Maintenant, on la voyait.
+
+Cela voulait dire qu'en ces quatre fois, il serait décidé de l'une ou l'autre chose : l'homme d'en dessous sortirait, ou ne sortirait pas.
+
+À côté, il y avait deux traits courts. Sion traça le troisième.
+
+Puis il alla voir Aka.
+
+« Combien ? »
+
+« Douze. »
+
+À cette réponse, Sion courut vers le couloir.
+
+Il lui avait dit de le dire même quand ça n'augmentait pas.
 
 ---
 

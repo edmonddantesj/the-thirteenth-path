@@ -1,229 +1,255 @@
 # Chapitre 113 — Ce qui resta après la fermeture de Hazran
 
-Même après qu'Hazran eut complètement disparu de leur vue,
-l'air à l'intérieur du vaisseau ne s'éclaircit pas du tout.
+Même après que Hazran eut disparu de leur vue, l'air de la coque ne s'allégea pas.
 
-Personne ne pouvait facilement prononcer le mot *vivant*.
-Ce mot semblait passer trop rapidement du côté des vivants en ce moment.
+Personne ne dit qu'ils étaient en vie. Ces mots, prononcés maintenant, auraient basculé trop vite du côté des vivants.
 
-Le vaisseau tremblait toujours, instable.
-Fidèle à une coque arrachée par la force,
-une vibration qui semblait pouvoir se déchirer au moindre désalignement persistait à travers le sol et les murs.
+Sion partageait l'eau.
 
-Mais bizarrement,
-à l'intérieur de tout ce tremblement,
-un point semblait tenir jusqu’au bout.
+C'était la tâche que Han Jiwoo lui avait confiée. Ce qui avait été chargé pour huit devait être partagé entre seize, et Sion, en faisant passer les bidons un par un, retenait qui avait bu combien.
 
-Jiwoo l’a d’abord rejeté comme étant de l’imagination.
+À force de retenir, il s'en aperçut. Sur les huit de Hazran, trois prenaient le bidon sans y porter les lèvres. Ils se contentaient de le tenir.
 
-La coque à l'heure actuelle n'était pas un vaisseau intact.
-Lieux déchirés collés.
-Les lieux liés sont à nouveau liés.
-Des lieux liés calés pour les faire tenir.
-Les résonances anormales résiduelles ou les micro-vibrations n’avaient donc rien d’inhabituel.
+Sion l'avait remarqué au deuxième tour, et l'avait vérifié au troisième.
 
-Mais c'était légèrement différent.
+Ce n'était pas qu'ils n'avaient pas soif : ils s'en voulaient de boire.
 
-Elle posa doucement sa main sur un panneau.
+Sion ne le dit pas. S'il le disait, ils boiraient encore moins.
 
-Une vibration qui aurait dû se refroidir
-était en train de mourir étrangement tard, seul à cet endroit.
+C'est en allant vers l'arrière pour tendre le troisième bidon que ça arriva.
 
-S'il s'agissait d'un dysfonctionnement, cela devrait être plus irrégulier.
-Si c'était des dégâts, plus irréguliers.
-Mais c'était comme si,
-à travers l'ensemble qui semblait sur le point de s'effondrer,
-un tout petit point était de tenir jusqu'à la toute fin.
+Quelque part contre la paroi intérieure, le dos de sa main accrocha.
 
-Jiwoo murmura très bas.
+Pour être exact, rien n'avait accroché. En passant, l'air avait un temps de retard, à cet endroit seulement.
 
-« Pourquoi est-ce que... je fais ça. »
+Sion s'arrêta et repassa. La deuxième fois, pareil.
 
-Personne n'a répondu tout de suite.
+Han Jiwoo y était déjà.
 
-Tout le monde était épuisé.
-Calme.
-Surtout, ce qu'ils venaient de traverser n'avait pas encore quitté leur corps.
+Elle avait la paume collée contre un panneau, en bas à droite. Un panneau qu'elle avait touché plus de dix fois jusqu'à la veille. À chaque décollage, sa main avait été là.
 
-Sion releva la tête d'un endroit plus éloigné.
+« Qu'est-ce qu'il y a ? »
 
-Il ressentait quelque chose de similaire.
+« Tais-toi une seconde. »
 
-Ce n'était pas une odeur.
-Il y avait trop de souffle, de poussière et de sueur des évacués mélangés à l'intérieur de la coque maintenant...
-distinguer un seul parfum n’avait aucun sens.
+Sion se tut.
 
-Au lieu de cela,
-il y avait un étrange sens de l'orientation.
+Han Jiwoo décolla sa paume puis la reposa. Trois fois.
 
-Clairement à l'intérieur du vaisseau,
-pourtant une sensation de grain se rassemblant vers un point.
-Quelque part à l’intérieur de l’espace intérieur – pas même un chemin –
-un endroit où le regard et la sensation ne cessaient de s'accrocher, une fois chacun.
+« Ça devrait refroidir. »
+Elle parla.
+« Il n'y a qu'ici que ça ne refroidit pas. »
 
-Sion a essayé de considérer cela comme une humeur.
-Mais quand il vit l'expression de Jiwoo,
-il savait qu'il n'était pas le seul.
+« C'est une panne ? »
 
-Seorin n'a rien dit non plus,
-mais ses yeux se posèrent une seconde fois au même endroit.
+« Une panne, ce serait plus sale. »
 
-Elle n'a pas essayé d'expliquer quoi que ce soit.
-Au lieu de cela,
-elle lisait l'air d'un moment où quelque chose qui aurait dû être coupé restait intact.
+Du bout des doigts, elle suivit le bord du panneau. Les endroits collés, les endroits rattachés, les endroits rajoutés par-dessus. Que rien ne soit intact sur ce vaisseau, ces mains-là le savaient mieux que personne.
 
-Luhai était assis, le dos contre le sol,
-et leva la tête sans raison claire.
+« Ce qui est cassé tremble n'importe où. »
+Han Jiwoo parla.
+« Ici, ça tient un seul point. »
 
-« Pourquoi c'est seulement comme ça là-bas. »
+Kael arriva de l'autre côté en tapotant l'ossature de la coque du dos de la main. Les coups étaient réguliers. Au milieu, il s'arrêta une fois.
 
-Une voix basse.
+« Il n'y a que là que ça ne tient pas pareil. »
 
-Moins une question
-et plus encore la réaction de quelqu'un dont le corps a remarqué l'étrangeté en premier.
+C'était peu de mots, mais les épaules de Han Jiwoo se raidirent davantage.
 
-Kael a touché le cadre de la coque une fois
-et plissa brièvement les sourcils.
+Sion tourna lui aussi la tête de ce côté.
 
-« La prise y est différente. »
+En surface, on ne voyait rien. Juste une plaque de métal enfoncée, une trace de brûlure sur le bord, une vis à moitié serrée. Des choses posées à la hâte à Hazran.
 
-Ces mots étaient très simples,
-mais les nerfs de Jiwoo se sont aiguisés précisément à cause de cela.
+Pourtant, quand on approchait la main, il y avait là, et là seulement, quelque chose de différent.
 
-Oui.
-La prise est différente.
+Ce n'était pas chaud. Pas froid non plus. Mais on aurait dit que quelque chose n'était pas encore terminé.
 
-Mais ce n'était pas du renforcement, quelle que soit la méthode qu'elle connaissait.
-Pas une trace de réparation dont elle se souvenait.
+Luhai décolla le dos du sol et leva seulement la tête.
 
-Aka, qui n'avait rien dit jusque-là,
-marcha lentement vers cet endroit.
+« Pourquoi il n'y a que là que c'est comme ça ? »
 
-Elle n'y a pas touché.
-Elle se tenait juste près de lui
-et le scruta longuement.
+Personne ne répondit.
 
-Aka avait toujours été comme ça.
-Avant de toucher, elle écouta d'abord.
-Avant d'écouter, elle a d'abord lu le grain.
+Alors seulement, Aka bougea.
 
-demanda Jiwoo à voix basse.
+Elle vint lentement, une main contre la paroi. Son visage était pâle, mais ses pas ne s'arrêtèrent pas une seule fois. Elle se planta devant l'endroit et le regarda longtemps, sans le toucher.
 
-« Un dysfonctionnement ? »
+Aka faisait toujours ainsi. Avant de toucher, elle regardait.
+
+Han Jiwoo posa la question à voix basse.
+
+« C'est une panne ? »
 
 Aka ne répondit pas tout de suite.
 
-Sion sentit ce court silence
-aussi longtemps qu'il ne l'était.
+Ce silence parut étrangement long à Sion. Depuis la fermeture de Hazran, c'était la première fois que tous regardaient le même endroit, et personne ne savait ce que c'était.
 
-Après la fermeture de Hazran,
-pour la première fois, tout le monde regardait au même endroit.
-Mais personne ne savait encore pourquoi.
+Aka secoua lentement la tête.
 
-Aka secoua la tête très lentement.
+« Ce n'est pas un reste. »
 
-« Il n'a pas été laissé pour compte. »
+« Alors c'est quoi ? »
 
-Des mots courts.
+Aka parla sans détourner les yeux.
 
-Les sourcils de Jiwoo se rétrécirent légèrement.
+« C'est ce qui a été fait jusqu'au bout. »
 
-« Alors? »
+Quand ces mots tombèrent, l'intérieur de la coque se tut un instant.
 
-Aka parla sans quitter son regard de cet endroit.
+Personne n'avait compris exactement. Mais tous savaient que ce n'était pas une image.
 
-« Cela a été fait jusqu'au bout. »
+Sans s'en rendre compte, Sion fit un pas.
 
-Quand ces mots sont tombés,
-l'air à l'intérieur de la coque changea très légèrement.
+Hazran s'était fermée jusqu'au bout, cette fermeture avait été ensevelie sous la légion, et eux l'avaient laissée derrière.
 
-Personne n’a compris précisément.
-Mais tout le monde savait
-ces mots n’étaient pas une simple métaphore.
+D'habitude, dans ce cas, il ne reste rien.
 
-Sion s'approcha d'un pas sans s'en rendre compte.
+Pourtant, quelque chose était accroché ici. Pas ce qu'une chose brisée laisse tomber en passant, mais de l'espèce que seul ce qui est passé jusqu'au bout peut laisser.
 
-Hazran avait fermé jusqu'au bout.
-Cette fermeture avait été enterrée sous la légion.
-Ils l'avaient laissé derrière eux et étaient partis.
+Han Jiwoo reposa la paume.
 
-Alors normalement, il ne devrait rien rester.
-Au moins, pas coincé en un point à l'intérieur du vaisseau,
-de cette manière étrange.
+« Ça ne refroidit pas. »
+Elle parla.
+« Pareil depuis tout à l'heure. »
 
-Mais ce qu'il ressentait maintenant n'était pas une épave.
+Adossée à une paroi un peu plus loin, Seorin regarda l'endroit deux fois. Elle ne chercha pas à expliquer. Elle avait l'œil pour reconnaître les endroits où ce qui aurait dû se rompre ne s'était pas rompu.
 
-Ce n’est pas quelque chose qui n’a pas réussi à disparaître.
-Plutôt une condensation que seul ce qui a entièrement traversé peut laisser derrière lui.
+Sern regardait de plus loin encore. Il était de ceux qui lisent les signaux, mais cette fois il n'alluma pas son panneau.
 
-Jiwoo toucha à nouveau le panneau, très soigneusement.
+« Vous allez le lire ? »
+Ater posa la question.
 
-Pourtant, à cet endroit seul,
-une vibration résiduelle qui ne refroidirait pas.
+« Il n'y a rien à lire. »
+Sern répondit.
+« Ce n'est pas un signal. »
 
-Sern regardait la scène de loin
-et plissa silencieusement les yeux.
+Sion sentit un froid dans le dos.
 
-C'était quelqu'un qui lisait les signaux,
-mais cela ressemblait moins à un signal
-et plus comme le léger désalignement laissé après qu'une structure se soit repliée sur elle-même à l'intérieur.
+C'était la première fois que Sern disait qu'il ne pouvait pas lire.
 
-Ater, lui aussi, était appuyé contre le mur et regardait tranquillement.
+Ater regarda longtemps l'endroit.
 
-Il n'a pas expliqué.
-Mais au moins une chose était claire.
+« Il y a une classification pour ce genre de chose, dans l'Empire ? »
+Sion posa la question.
 
-Il ne s’agissait pas d’une panne mécanique courante.
-Pas une trace courante de dommage.
+« Il n'en existe pas. »
 
-Il n'y avait aucune explication,
-mais tout le monde lisait le même grain, chacun à sa manière.
+« Aucune ? »
 
-Sion le sentit, étrangement.
+« Tout ce qui reçoit une approbation figure sur une liste. »
+Ater parla.
+« Ce qui n'est sur aucune liste n'existe pas, dans l'Empire. »
 
-Ce qui s'est terminé à Hazran
-n'était pas simplement resté comme une fin.
-Elle était coincée quelque part à l'intérieur du vaisseau, comme une petite direction.
+Sion sentit que ces mots rejoignaient ceux qu'il avait entendus tout à l'heure.
 
-Ce n'était pas encore un chemin.
-Cela ne veut pas dire.
-Pas d'explication.
+Ce qui ne reste dans aucun registre devient ce qui n'a jamais été. Et ceci n'était, pour l'instant, sur aucune liste.
 
-Mais clairement,
-ce n'était pas simplement passé et disparu.
+Alors, vu de l'Empire, c'était une chose qui n'avait jamais existé, depuis le début.
 
-Luhai a dit, très petit.
+« Alors on est les seuls à le savoir. »
 
-« Ça reste comme ça ? »
+Ater ne répondit pas tout de suite. Un peu plus tard, il parla très bas.
 
-Personne n'a répondu immédiatement.
+« Pour l'instant, oui. »
 
-Jiwoo ne pouvait pas retirer sa main.
-Sion ne pouvait détourner son regard de ce point condensé.
-Seorin, sans ouvrir la bouche, regardait combien de temps cet air restait ininterrompu.
+Debout devant l'endroit, Sion essaya de compter, par habitude.
 
-Aka dit, une dernière fois, très bas.
+Combien, quelle taille, depuis combien de temps.
 
-« Il y a des choses qui ne naissent qu'une fois que tout est passé. »
+Rien ne vint.
 
-Ces mots étaient moins explicatifs
-et plus proche d’une confirmation à peine tirée.
+Pas de taille. Pas de nombre. On ne savait ni quand ça avait commencé ni quand ça finirait. Quand on approchait la main, c'était là, sans aucun doute, mais pas un seul chiffre à écrire n'en sortait.
 
-À ce moment-là,
-Sion ressentit, pour la première fois, quelque chose de vague.
+Depuis son entrée à Hazran, Sion n'avait pas cessé de compter. Il avait compté les prix, compté les gens, compté les décollages du vaisseau, et c'est là aussi qu'il avait appris que ce qu'on ne compte pas devient ce qui n'a jamais été.
 
-Que les choses qui sont passées jusqu'au bout
-ne peut pas simplement disparaître.
+Mais ceci ne disparaissait pas, même sans être compté.
 
-Et c'est le chemin à parcourir
-pourrait se former à mesure que des choses comme celle-ci subsistent, une par une.
+Cela faisait étrangement peur à Sion. Jusqu'ici, tout ce qu'il retenait, il l'avait retenu en comptant ; mais ce qu'il avait sous les yeux était là, tout simplement, sans rapport avec le fait de compter.
 
-Personne ne pouvait encore le dire avec précision.
+Alors ce n'était pas Sion qui le retenait. C'était eux qui étaient retenus.
 
-Mais le vaisseau,
-tout en étant un vaisseau tremblant transportant des survivants,
-commençait aussi à ressembler à un endroit
-où ce qui restait commençait tranquillement à se rassembler.
+Sion ne poussa pas cette pensée jusqu'au bout. S'il la poussait, il lui semblait que quelque chose de plus en sortirait, et il ne se sentait pas capable de le voir maintenant.
+
+Puis Sion regarda vers le sol.
+
+Les huit de Hazran regardaient tous de ce côté.
+
+Et pourtant, aucun n'avait l'air surpris.
+
+C'était ce que Sion trouvait le plus étrange. Ceux qui regardaient la chose la plus surprenante de ce vaisseau étaient les plus calmes.
+
+L'une de ces personnes croisa le regard de Sion, très brièvement. Puis elle revint à l'endroit. Un visage qui n'avait aucune intention d'expliquer.
+
+Sion voulait demander.
+
+S'ils savaient ce que c'était, s'ils avaient déjà vu une chose pareille à Hazran.
+
+Mais ce n'était pas le moment. Ces gens avaient perdu leur ville aujourd'hui, et n'avaient pas, dans ce vaisseau, le loisir de sortir un à un ce qu'ils savaient.
+
+Sion posa un bidon de plus de leur côté et recula.
+
+Luhai parla, tout bas.
+
+« Ça peut rester comme ça, aussi ? »
+
+Personne ne répondit tout de suite.
+
+Han Jiwoo ne pouvait pas retirer sa main, Sion ne pouvait pas détacher les yeux de l'endroit, et Seorin mesurait combien de temps cet air tenait sans se rompre.
+
+Han Jiwoo finit par retirer sa main.
+
+« Tu répares ? »
+Sion posa la question.
+
+Han Jiwoo ne répondit pas tout de suite. Elle prit un outil, puis le reposa.
+
+« Je ne peux pas réparer ça. »
+
+« Parce que ce n'est pas cassé ? »
+
+« Il y a ça aussi. »
+Elle parla.
+« Mais si je touche à ça, je ne sais pas ce qui disparaîtra avec. »
+
+À ces mots, Sion retint un instant son souffle.
+
+Han Jiwoo n'avait pas dit qu'elle ne pouvait pas réparer. Elle avait dit qu'il valait sans doute mieux ne pas réparer. C'était la première fois qu'il l'entendait dire une chose pareille à propos d'un vaisseau.
+
+« Alors on laisse comme ça ? »
+
+« Pour l'instant, on laisse. »
+Han Jiwoo parla.
+« Mais que personne ne s'appuie là. »
+
+Pour finir, Aka parla, très bas.
+
+« Il y a des choses qui n'apparaissent qu'une fois que tout est passé. »
+
+C'était moins une explication qu'une confirmation arrachée à grand-peine.
+
+Emportant ces mots avec lui, Sion finit de faire passer les bidons.
+
+L'une des trois personnes qui ne buvaient pas tout à l'heure dévissa cette fois le bouchon. Pourquoi maintenant, Sion n'en savait rien.
+
+Quand il eut fini, Sion retourna à l'endroit.
+
+Puisqu'on ne pouvait pas compter, il renonça à compter. Il fit autre chose à la place.
+
+À deux empans du panneau, sur une plaque de métal nue, il traça du bout de l'ongle un trait court. Le trait marquait mal, alors il le traça deux fois.
+
+Ce n'était pas un chiffre. Cela ne voulait pas dire combien.
+
+Cela voulait dire : ici.
+
+Il lui semblait qu'il fallait au moins une personne, dans ce vaisseau, qui sache où était cet ici. Le tableau était là-bas, en bas, dans les registres on écrirait : inconnu, et alors il ne resterait que ce trait-là.
+
+Le trait tracé, Sion le regarda longtemps.
+
+Ce n'était pas encore un chemin. Ni un sens, ni une explication.
+
+Mais ce n'était pas non plus quelque chose qui était simplement passé.
+
+Le vaisseau, qui tremblait sous le poids des survivants, devenait en même temps un lieu où ce qui avait été laissé commençait doucement à s'accrocher.
 
 ---
 

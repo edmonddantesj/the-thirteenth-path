@@ -1,181 +1,220 @@
 # Chapitre 14 — La sortie
 
-Même au moment de quitter le dépôt d'Elia, l'air de la pièce n'avait pas tout à fait retrouvé sa légèreté.
+Même au moment de quitter le dépôt d'Elia, l'air de la pièce ne s'était pas tout à fait détendu.
 
-Les fragments avaient été répartis, les coordonnées gravées dans les mémoires, l'ordre du départ arrêté. Et pourtant, personne n'arborait l'expression de quelqu'un qui se dit *c'est bon*. Ce genre d'affaire, plus la préparation avance, plus ce qu'elle révèle se précise. Et surtout, le fait que les chemins de retour se réduisaient désormais.
+Sur le seuil, Seorin reprit les mots d'Elia.
 
-Elia tint la porte entrouverte et dit une dernière fois :
+« Ça, c'est ce dont Sion a le plus besoin. »
 
-« Dehors, parlez moins.
-À partir de maintenant, celui qui fait moins le malin vit plus longtemps. »
+Sion se retourna, interloqué.
 
-Seorin enchaîna aussitôt.
-
-« C'est surtout à Sion que ça s'adresse. »
-
-Sion se retourna avec une tête incrédule.
-
-« Qu'est-ce que j'ai fait, moi. »
+« Quoi, moi ? »
 
 « Quand il faut cacher quelque chose, ta tête dit tout avant toi. »
 
-« Bien. Tu te fais un hobby d'observer ces derniers temps ? »
+« Ces temps-ci, m'observer, c'est ton passe-temps ? »
 
-« Ça fait longtemps. »
+« Ça date pas d'hier. »
 
-C'était une brève plaisanterie, mais elle suffit à dissoudre un peu de la tension.
-Elia les regarda tous les deux, eut un sourire en coin, et s'effaça sur le côté de la porte.
+C'était une courte plaisanterie, mais elle suffit à relâcher un peu la tension.
+Elia les regarda tous les deux, eut un petit rire, referma une fois le devant du manteau de Sion, puis s'effaça sur le côté de la porte.
 
 « Allez.
-La prochaine fois que vous revenez, revenez avec un peu moins de tête de condamnés. »
+Et la prochaine fois, revenez avec des têtes un peu moins mortes. »
 
 Sion répondit :
 
-« Ça, je peux pas te promettre. »
+« Ça, je peux rien promettre. »
 
-« Je sais. C'est pour ça que je dis ça sans y croire. »
+« Je sais. C'est pour ça que je me contente de le dire. »
 
-L'air du couloir était plus froid et plus mince que celui du dépôt.
-La zone de stockage intérieure de la cité portuaire neutre était toujours silencieuse, mais le silence n'y était pas synonyme de sécurité. Derrière chaque porte close, des regards se tenaient embusqués, et dans le bruit mort qui stagnait au loin, il y avait toujours quelqu'un en train de vendre quelqu'un d'autre.
+Dehors, l'air de la ruelle était plus froid et plus mince que dans le dépôt.
+La zone de stockage intérieure de la cité portuaire neutre était toujours calme, mais calme ne voulait pas dire sûre. Entre chaque porte close se cachaient des regards, et dans le bruit qui stagnait au loin, comme mort, se mêlait toujours celui de quelqu'un en train de vendre quelqu'un.
 
 Yona prit la tête.
-Sans ostentation, sans chercher à montrer qu'il connaissait les lieux, et sans se retourner sans cesse. C'était précisément cela, dans ce quartier, qui trahissait les anciens. Les vrais connaisseurs tournaient les angles naturellement, et les chemins dangereux, ils ne les empruntaient pas avant même d'avoir eu à le dire.
+Elle ne faisait pas étalage de sa connaissance des lieux et ne se retournait pas sans cesse. C'était justement ce qui trahissait, dans ce quartier, quelqu'un qui avait vécu longtemps. Ceux qui savaient vraiment tournaient aux angles avec naturel, et les chemins dangereux, ils avaient déjà cessé de les fouler avant même d'avoir à dire qu'ils l'étaient.
 
-Sern lisait en silence le tracé des déplacements de Yona, à ses côtés.
-Aux carrefours où plusieurs ruelles se croisaient, il notait laquelle Yona évitait délibérément, de quel côté de l'ombre son regard s'attardait une fraction de seconde de plus, quelle porte fermée il ne laissait pas passer sans l'évaluer. Ces gens-là ne figuraient sur aucun plan officiel, mais en pratique, ils étaient souvent plus précis qu'une carte.
+Sern, à côté d'elle, lisait en silence le tracé de Yona.
+Quel passage elle évitait délibérément là où plusieurs ruelles se croisaient, sur quelle ombre elle posait un regard de plus, devant quelle porte, même fermée, elle ne passait pas sans s'arrêter. Ce genre de personnes ne figurait sur aucun plan officiel, mais en réalité, elles étaient souvent plus précises qu'une carte.
 
 Seorin s'en aperçut et dit à voix basse :
 
-« Ils sont en train de se lire mutuellement. »
+« Vous êtes en train de vous lire la route l'un l'autre, tous les deux. »
 
-Yona eut un bref sourire.
+Yona eut un petit rire.
 
-« Lui calcule. Moi, je marche comme d'habitude. »
+« Lui, il calcule. Moi, je marche par habitude. »
 
-Sern répondit calmement :
+Sern répondit posément :
 
-« Les habitudes sont parfois ce qu'il y a de plus juste. »
+« L'habitude est parfois ce qu'il y a de plus exact. »
 
-Sion entendit cet échange et songea à part lui :
-Des façons de parler soignées, mais avec une texture étrangement différente. L'une était une habitude survécue au ras du sol. L'autre, une habitude née à force de maintenir quelque chose sur la durée.
+En écoutant ce court échange, Sion se dit en lui-même :
+Deux façons de parler maîtrisées, et pourtant d'une texture étrangement différente. L'une était une habitude restée à force de tenir bon au ras du sol ; l'autre, une habitude née à force de tenir bon du côté de ceux qui gèrent longtemps.
 
-Ater suivait d'un pas, légèrement en retrait, l'œil courant sur les niveaux et les creux de la ruelle.
-L'intérieur de la cité portuaire neutre était décidément un endroit bizarre. Couches ajoutées, reprises répétées, par des mains dont on ne savait plus rien. Les rues ne couraient pas droit, les escaliers s'interrompaient souvent, les portes étaient toutes fermées et pourtant la circulation ne cessait jamais. L'Empire n'aurait jamais construit comme ça. Et pourtant cette structure ne s'était pas effondrée.
+Ater suivait derrière, avec un pas de retard, parcourant du regard les hauts et les bas de la ruelle.
+Ajouts et réparations répétés, sans qu'on sache qui les avait conçus. Les rues n'étaient pas droites, les escaliers s'interrompaient souvent, toutes les portes étaient fermées, et pourtant le passage continuait.
 
-C'est cela qui lui pesait, étrangement.
+« Cette ville devient-elle toujours aussi complexe à mesure qu'on s'enfonce vers l'intérieur ? »
 
-« Cette ville devient vraiment plus complexe à mesure qu'on s'enfonce. C'est toujours comme ça ? »
+Il l'avait demandé calmement, et cette fois ce fut Yona qui répondit la première.
 
-Il demanda à voix basse, et cette fois ce fut Yona qui répondit en premier.
+« Plus on va vers l'intérieur, plus il y a de chemins qui ont survécu longtemps. »
 
-« Plus on va vers l'intérieur, plus les chemins qui ont survécu longtemps sont nombreux. »
+« Même s'ils paraissent aussi mal ordonnés ? »
 
-« Même si ça donne l'impression que rien n'est organisé ? »
+« Faut qu'ils aient l'air mal ordonnés pour durer. »
+Ce fut Seorin qui répliqua à sa place.
+« Quand c'est trop propre, tout le monde commence par démonter. »
 
-« Justement parce que ça donne cette impression que ça dure. »
-C'est Seorin qui reprit la balle.
-« Quand c'est trop propre, tout le monde commence par tester les coutures. »
+Ater ne trouva pas tout de suite de quoi répliquer.
 
-Ater ne sut quoi répondre.
-L'ordre de ce côté du monde fonctionnait toujours comme ça. Une façade de négligence, et ce qui compte vraiment caché derrière. C'était en apparence l'inverse de la façon dont la Chambre de Reconnaissance impériale fermait ses portes — et pourtant, il y avait quelque chose de curieusement analogue.
+En écoutant cet échange, Sion eut un petit rire.
 
-Sion entendit l'échange et rit doucement.
+« Vous voilà enfin qui parlez un peu comme quelqu'un du port. »
 
-« Tu commences à parler comme un gars du port. »
+Ater détourna le regard.
 
-Ater tourna les yeux de côté.
+« Ce n'est pas un motif de réjouissance. »
 
-« Ce n'est pas une raison de se réjouir. »
+« Là, vous avez raison. »
 
-« Non, t'as raison. »
+L'échange s'arrêta là, mais ils se lisaient un peu plus vite qu'un instant plus tôt.
+Ils n'étaient pas tout à fait à l'aise. Mais au moins, on commençait peu à peu à voir dans quelle langue l'autre pensait.
 
-L'échange fut court, mais la vitesse à laquelle ils se lisaient s'était légèrement accélérée depuis un instant.
-Pas encore vraiment à l'aise — mais au moins, la langue dans laquelle l'autre pensait commençait à se deviner un peu.
-
-Après deux virages au bout du couloir, l'odeur humide de l'intérieur du port s'allégea peu à peu, remplacée par un air extérieur plus froid qui s'y mêlait. Les entrepôts et les dépôts se faisaient rares, laissant place à des amas de coques hors d'usage et à des débris de passerelles de raccordement. À ce point du trajet, on n'était plus dans l'intérieur de la ville, mais à sa frange — ce que la ville retenait à peine en abandonnant le reste. Si l'intérieur était le lieu où l'on cachait les noms et les choses, cette frange était l'endroit où ce qu'on avait caché était trop lourd pour être jeté dehors, sans pouvoir non plus rester vraiment relié.
+Après deux détours au bout de la ruelle, l'odeur humide de l'intérieur du port s'atténua peu à peu, et un air extérieur plus froid commença à s'y mêler. Les entrepôts et les bâtiments de stockage se raréfièrent, remplacés par des amas d'épaves et des débris de passerelles d'accès. Arrivé là, on n'était plus dans l'intérieur de la ville, mais sur la frange que la ville retenait à grand-peine tout en l'abandonnant. Si l'intérieur était l'endroit où l'on cachait les noms et les objets, cette frange était l'endroit où l'on jetait dehors ce qu'on avait caché, sans pouvoir tout à fait couper le lien.
 
 Yona ralentit.
 
-« À partir d'ici, moins de mots.
-La couche de jonction extérieure a encore plus d'oreilles que l'intérieur du port. »
+« À partir d'ici, parlez moins.
+Au point de jonction extérieur, il y a plus d'oreilles qu'à l'intérieur du port. »
 
-Seorin demanda à mi-voix :
+Seorin demanda à voix basse :
 
-« On a quelqu'un qui nous attend ? »
+« Quelqu'un nous attend ? »
 
-« Pas exactement qui attend — plutôt quelqu'un qui disparaît si on n'arrive pas à l'heure. »
-Yona répondit.
-« Dans un endroit comme celui-là, c'est encore plus embêtant. »
+« Pas qui attend. Plutôt qui disparaît aussitôt si on n'arrive pas à l'heure. »
+Yona répondit à mi-voix.
+« Dans ce genre d'endroit, c'est encore plus embêtant. »
 
-Le premier point de sortie qu'Elia leur avait indiqué était un vieux monte-charge.
-De l'extérieur, il ressemblait à une structure métallique complètement à l'arrêt, mais quand Yona glissa la pointe du pied sous un panneau du plancher et le souleva, un voyant encore actif s'alluma faiblement à l'intérieur. Ce n'était que le vestige du réseau logistique inférieur, autrefois utilisé pour faire descendre discrètement matériaux périphériques et registres de mise au rebut vers les niveaux du bas.
+La première jonction de sortie qu'Elia leur avait arrangée était un vieux monte-charge.
+De l'extérieur, on aurait dit une structure métallique complètement à l'arrêt, mais quand Yona souleva du bout du pied un coin d'un panneau du plancher, un voyant encore actif s'alluma faiblement à l'intérieur.
 
-Sion regarda aussitôt l'intérieur.
+Sion jeta aussitôt un œil à l'intérieur.
 
-« Bien. Ça marche encore, ce genre de truc. »
+« Ce genre de truc sert encore. »
 
-« C'est la longévité du mort-vivant. »
+Sern parcourut une fois l'intérieur du monte-charge du regard, puis hocha la tête.
 
-Yona dit ça.
+« Aucune trace de filature immédiate. »
 
-Sern parcourut l'intérieur du monte-charge d'un regard, puis hocha très brièvement la tête.
+« Entendre ça, ça m'inquiète encore plus. »
+Seorin le marmonna.
 
-« Pas de trace de surveillance immédiate. »
+Ater remarqua, à côté de la porte métallique, de vieilles marques de code.
+Ce n'était pas le standard du réseau logistique officiel. Il y avait de fortes chances que ce soit un monte-charge des niveaux inférieurs, qui transportait autrefois des matériaux périphériques et des registres de mise au rebut. Il avait sans doute été effacé des registres officiels, mais c'était une voie qui n'était pas tout à fait morte.
 
-« Ça me rassure pas vraiment. »
-Seorin murmura.
+Une voie qu'on croyait morte, et qui était en réalité vivante.
 
-Ater vit sur le côté de la porte métallique les vieilles marques d'un code.
-Hors-normes du réseau logistique officiel. Toutes les chances que ce soit un monte-charge inférieur qui avait jadis servi à transporter matériaux périphériques et registres de mise au rebut. Aujourd'hui effacé des archives officielles, mais pas tout à fait mort.
-
-Un chemin qu'on croyait mort, et qui était encore vivant.
-
-Ce que la *voie effacée* dont avait parlé Elia signifiait — peut-être que c'était exactement ça.
-L'importance de l'endroit n'était pas simplement d'être un passage vers l'extérieur. C'était la frontière où les choses dont l'ordre intérieur avait décidé de ne plus se charger — les objets sans nom, les registres de mise au rebut — prenaient pour la dernière fois l'air du dehors.
+La “voie effacée” dont avait parlé Elia était peut-être de cette nature.
 
 « Monte en premier. »
-Yona regarda Sion.
+Yona le dit en regardant Sion.
 « T'es le plus impatient. »
 
-Sion sourit, mais entra le premier.
-Seorin suivit, puis Sern, puis Ater. Le monte-charge était étroit, l'éclairage du plafond était faible, et quand la porte se ferma, le bruit du dehors disparut d'un coup.
+Sion entra le premier, tout en souriant.
+Seorin, Sern, Ater et Yona suivirent, dans cet ordre. Le monte-charge était étroit, l'éclairage du plafond faible, et quand la porte se referma, le bruit du dehors s'éloigna d'un coup.
 
 Un bref silence.
 
-Puis lentement, la vieille carcasse métallique se mit à descendre.
+Puis lentement, la très vieille carcasse métallique commença à descendre.
 
-Une vibration lourde remontait sous les pieds.
+Une vibration lourde et tremblante remonta sous leurs pieds.
 Personne ne parla.
-Le bruit du port qui montait s'éloignait de plus en plus, remplacé par la résonance sourde des machines endormies et des espaces vides en contrebas.
+Le bruit du port, qui montait vers le haut, s'éloignait peu à peu, tandis qu'en dessous grandissait la rumeur sourde des machines endormies et des espaces vides.
 
-Sion, dans ce silence, posa une main de plus sur la poche intérieure de sa veste.
-La pensée qu'il partait vraiment arriva avec un léger retard.
+Dans ce silence, Sion posa encore une fois la main sur sa poche intérieure.
 
-Seorin vit cela et choisit de ne rien dire.
-Elle regarda plutôt Sern appuyé contre la cloison d'en face, une fois, puis Ater à ses côtés, une fois. Ils étaient encore dans le même port il y a un instant, et pourtant dans l'étroitesse de ce monte-charge, il y avait quelque chose de troublant — l'impression d'aller bien plus loin que ça.
+Seorin le vit et s'abstint exprès de lui parler.
+Elle regarda plutôt Sern, adossé à la paroi métallique d'en face, puis Ater à côté de lui. Un instant plus tôt, ils étaient dans le même port, et pourtant, dans ce monte-charge étroit, on avait l'impression étrange de partir beaucoup plus loin.
 
-Ater ferma les yeux un bref instant, puis les rouvrit.
-Le visage de son père Kairon Valkar lui traversa l'esprit.
-*Ce qu'on peut ouvrir n'est pas forcément ce qu'on doit ouvrir.*
-En se rappelant cette phrase, il descendait de son propre pas, de plus en plus profondément, sur un chemin qui avait été fermé.
+Ater tourna la tête vers Yona.
 
-Sion dit alors à voix très basse :
+« Puis-je vous poser une question ? »
 
-« Maintenant ça commence vraiment. »
+« Si c'est une histoire d'argent, plus tard. »
 
-Il n'était pas clair à qui il s'adressait.
-Mais étrangement, chacun dans ce monte-charge entendit ces mots comme s'ils lui étaient destinés.
+« C'est une histoire d'argent. »
+
+Alors seulement, Yona le regarda.
+
+« Parle. »
+
+« Vous avez évoqué le prix du carburant à deux reprises. Pourtant, vous n'avez pas encore annoncé de montant une seule fois. »
+
+Le monte-charge fit une grosse secousse. Personne ne changea de posture.
+
+« Si je l'annonce, tu paieras ? »
+
+« Je paierai. »
+
+« Alors je l'annonce pas. »
+
+Ater garda cette réponse un moment.
+
+« Puis-je vous en demander la raison ? »
+
+Yona, le dos contre la paroi métallique, regarda le plafond. Une lampe était grillée, et seul cet endroit restait sombre.
+
+« Si j'annonce un montant, ça devient une transaction. Et une transaction, une fois finie, chacun repart de son côté, en étrangers. »
+
+« Ce qui signifie que ce n'est pas le cas maintenant ? »
+
+« Maintenant aussi, on est des étrangers, dit Yona sans baisser les yeux. Mais même entre étrangers, on se fait monter à bord. Si on fait payer, on n'est pas obligé de reprendre la personne la fois d'après ; si on fait pas payer, faut la reprendre la fois d'après. J'ai pas encore décidé lequel des deux c'est. »
+
+Sern leva la tête en entendant cela. S'il avait entendu cette réponse à la Chambre de Reconnaissance, il l'aurait classée parmi les affaires en suspens. Ici, apparemment, on ne parlait pas d'affaire en suspens, mais de latitude.
+
+Sion intervint à voix basse :
+
+« Autrement dit, ça fait une vingtaine de fois qu'elle dit qu'elle a pas encore décidé, celle-là. »
+
+« Pas vingt. »
+
+« Combien, alors ? »
+
+« Ça non plus, j'ai pas décidé. »
+
+Ater ferma très brièvement les yeux, puis les rouvrit.
+Le visage de son père, Kairon, passa devant lui.
+Il descendait maintenant, de ses propres pieds, toujours plus profond le long d'une voie qui avait été fermée.
+
+Sern vit ce bref intervalle où les yeux de Son Excellence se fermaient puis se rouvraient.
+
+C'était la deuxième fois aujourd'hui. Une fois au dépôt, une fois maintenant. Les deux fois de la même durée, et les deux fois, les mots qui suivaient étaient venus un peu tard.
+
+Sern savait ce qu'était cet intervalle. Il le savait bien avant d'entrer à la Chambre de Reconnaissance.
+
+Chaque fois que Son Excellence avait ce visage, personne dans la maison Valkar ne lui adressait la parole.
 
 La carcasse métallique trembla une dernière fois, fortement, puis s'immobilisa lentement.
 
-Derrière la porte, un air entièrement différent attendait.
-Pas l'humidité et le bruit de l'intérieur du port, mais l'air froid et vide de la couche de jonction extérieure. À partir d'ici, ce n'était plus l'intérieur de la cité portuaire neutre — c'était la sortie.
+Derrière la porte attendait un air plus froid et plus vide.
 
-À l'instant de franchir cette limite, le blocus à la façon de l'Empire et la protection de l'intérieur du port s'affaiblissaient ensemble. En échange, se faire attraper ici, c'était disparaître plus silencieusement. Dans les registres officiels comme dans les transactions souterraines, c'était une zone où il était facile d'être coupé net, sans laisser de trace.
+Yona, qui sortit la dernière, frappa une fois le panneau du monte-charge du dos de la main.
 
-Et les quatre,
-qui étaient venus jusqu'ici en suivant un nom,
-devaient maintenant aller encore plus loin en suivant des chemins tranchés.
+Le voyant s'éteignit.
+
+« Ça remonte ? » demanda Sion.
+
+« Non. »
+
+« Pourquoi ? »
+
+« Une fois qu'on s'en sert, faut le laisser mort un moment. Sinon, le suivant peut pas s'en servir. »
+
+À ces mots, Sion se retourna une fois. La caisse de fer dont ils venaient de descendre n'était déjà plus qu'une vieille boîte collée au mur. À cet étage, ils n'étaient que cinq à savoir qu'elle avait bougé.
+
+Le chemin du retour se ferma ainsi. Personne ne l'avait fermé : c'était celle qui l'avait ouvert qui l'avait refermé.
 
 ---
 

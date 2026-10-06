@@ -32,7 +32,7 @@ ahora la mano se le detenía.
 Esto no era una simple máquina averiada.
 Era un ser que hasta hacía nada protegía a alguien por su propia voluntad,
 se estremecía ante la palabra de un niño,
-comprobaba la espalda hasta el final.
+comprobaba hasta el final lo que tenía detrás.
 
 Por eso Han Jiwoo se dio cuenta, en algún momento,
 de que antes que tocar las piezas
@@ -133,7 +133,7 @@ de romper cada uno la ruta que le tocaba.
 
 Pero ahora una variable había cambiado del todo.
 
-Del otro lado seguían los androides de mando.
+Del otro lado seguían los androides de órdenes.
 Y de este lado había ahora
 un androide con voluntad.
 

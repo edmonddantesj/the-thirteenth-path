@@ -1,236 +1,242 @@
-# Chapitre 17 — Le visage au point de transfert
+# Chapitre 17 — Le visage au point de jonction
 
-Le vaisseau de transit s'immobilisa avec un léger retard sur l'heure prévue.
+La navette de liaison ne s'immobilisa qu'un peu après l'heure prévue.
 
-Pas grand-chose — mais sur ce genre de route, ce peu-là suffit toujours à tenir les nerfs en éveil.  
-Sion ouvrit les yeux au moment précis où les vibrations du moteur s'éteignaient, et Seorin se redressa presque en même temps. Sern n'avait jamais vraiment dormi, et Ater, les yeux clos, était déjà réveillé depuis un moment.
+L'écart n'était pas bien grand, mais sur ce genre de route, ce petit peu-là met toujours les nerfs à vif.
+Sion ouvrit les yeux à l'instant où la vibration du moteur s'apaisa, et Seorin se redressa presque en même temps. Sern ne s'était jamais vraiment endormi, et Ater, s'il gardait les yeux fermés, était déjà réveillé.
 
-Yona lança depuis le poste de pilotage, brièvement :
+Yona dit depuis le poste de pilotage :
 
 « On est arrivés. »
 
-Le sas n'avait pas encore bougé, mais l'air dans la cabine avait déjà changé.  
-Plus le confinement du mouvement — plutôt cette tension figée, propre à l'instant où l'on s'arrime à une structure extérieure. La pression métallique de vieilles coques et de vieux anneaux d'amarrage qui s'engrènent se transmettait à travers la cloison.
+Le sas ne s'était pas encore ouvert, mais l'air, à bord, avait déjà changé.
+Ce n'était plus le confinement du mouvement, mais cette tension immobile propre à l'instant où l'on s'arrime quelque part à une structure extérieure. À travers la paroi passait la pression métallique d'une vieille coque et d'anneaux d'amarrage usés qui s'emboîtaient.
 
-Sion fut le premier à poser la question.
+Sion fut le premier à demander :
 
-« Comment ça se présente, côté point de contact. »
+« Ça donne quoi, de l'autre côté ? »
 
-Yona parcourut brièvement le panneau et répondit :
+Yona parcourut le panneau des yeux et répondit :
 
-« C'est vivant. »
+« C'est vivant, en tout cas. »
 
 Seorin fit la grimace.
 
-« Formidable. Ça ne me rassure pas du tout, comme formule. »
+« Pas rassurant du tout, comme formule. »
 
-« Dans un endroit pareil, c'est une bonne nouvelle. »
+« Dans un coin pareil, c'est une bonne nouvelle. »
 
-Ça sonnait comme une plaisanterie — mais pas entièrement.  
-Le point de transfert extérieur était, fidèle à son nom, moins un port vivant qu'un lieu où des routes mourantes se rejoignaient par nécessité. Le fait seul que l'électricité n'ait pas totalement lâché constituait déjà une demi-victoire.
+Ça sonnait comme une plaisanterie, mais ce n'en était pas tout à fait une.
+Un point de jonction extérieur, comme son nom l'indiquait, tenait moins du port vivant que d'un lieu où des routes incapables de mourir se raccordaient de force. Que le courant n'ait pas complètement lâché, c'était déjà une demi-réussite.
 
-Le sas s'ouvrit, et l'air froid s'engouffra dans l'étroite cabine.
+Quand le sas s'ouvrit, un air froid s'engouffra dans l'étroite cabine.
 
-Dehors, c'était encore plus vide que la couche de transit précédente.  
-L'éclairage du plafond ne survivait qu'à intervalles, une lampe sur plusieurs. Le long des murs de la coursive d'amarrage, les anciens numéros de quai avaient été effacés depuis longtemps — leurs traces subsistaient à peine, fantomatiques. Les panneaux officiels étaient presque inexistants ; à leur place, de vieilles flèches directionnelles et des mises en garde repeintes s'accumulaient en couches. Personne ne se souvenait plus de la dernière fois que cet endroit avait été appelé installation officielle. S'il n'était pas mort, abandonné qu'il était, c'est parce que les règles de transit et les équipements de plusieurs époques différentes y coexistaient, se soutenant à demi les uns les autres.
+Dehors, c'était encore plus vide que le niveau de jonction précédent.
+Les plafonniers ne s'allumaient plus qu'un sur plusieurs, et sur les parois de la longue passerelle d'accès subsistaient, à peine visibles, les traces de numéros de quai effacés depuis longtemps. De panneaux officiels, il n'y en avait presque pas ; à la place s'empilaient, couche sur couche, de vieilles flèches directionnelles et des avertissements repeints. Personne, semblait-il, ne se rappelait plus qui avait appelé cet endroit une installation officielle pour la dernière fois. S'il était abandonné sans être tout à fait mort, c'est que des règles de connexion et des équipements d'époques différentes s'y chevauchaient à moitié et avaient tenu ensemble.
 
-Ater s'arrêta net dès le premier pas à l'extérieur.  
-Ce n'était pas simplement un port à l'abandon. Une structure laissée pour compte depuis longtemps, mais que la nécessité avait empêché de mourir tout à fait. L'Empire l'aurait fermée pour des raisons de coût, ou scellée plus profondément pour des raisons d'autorité. Pourtant, ici, c'était maintenu dans un entre-deux indéfini.
+Au premier pas dehors, Ater s'arrêta net.
+Une structure abandonnée depuis longtemps, mais que la nécessité avait empêchée de mourir tout à fait.
 
-Cette ambiguïté semblait être la règle du lieu tout entier.
+Yona désigna l'avant du menton.
 
-Yona indiqua l'avant d'un mouvement du menton.
+« On va jusque-là. Et on parle peu. »
 
-« On va là-bas. Économise tes mots. »
+Non loin, au bout de la passerelle, dans un espace sombre qui ressemblait à une salle d'attente, quelqu'un se tenait adossé.
 
-Pas loin, à l'extrémité de la coursive, dans un espace sombre qui ressemblait à un hall d'attente, quelqu'un était appuyé contre la paroi.
+On aurait d'abord dit l'ombre d'une structure.
+L'éclairage était trop faible pour bien distinguer un visage, et la silhouette se confondait avec la paroi. Ce n'est qu'après deux pas de plus que Sion reconnut une personne — et, du même coup, reconnut qui c'était.
 
-Au premier regard, on aurait dit l'ombre d'une structure.  
-L'éclairage était trop faible pour distinguer un visage, et la silhouette se fondait dans le mur. Mais après deux pas de plus, Sion reconnut que c'était une personne — et dans le même instant, reconnut qui.
+« Ça alors. »
 
-« Eh. »
-
-Un rire bref lui échappa.
+Un rire incrédule lui échappa.
 
 « C'est vraiment toi qui viens ? »
 
-La femme appuyée contre la paroi releva lentement la tête.
+La femme adossée releva lentement la tête.
 
-Cheveux courts, taillés brutalement. Veste de travail maculée d'huile et de poussière métallique par endroits. Un bandeau isolant noué n'importe comment autour d'un poignet. L'expression était indifférente, mais le regard, lui, ne l'était pas du tout. Des yeux qui lisaient simultanément la valeur, l'état et le niveau de danger de ce qu'ils rencontraient.
+Cheveux coupés court et relevés, veste de travail tachée par endroits de cambouis et de poussière métallique, bande isolante enroulée n'importe comment autour d'un poignet. L'expression était blasée, mais le regard ne l'était pas du tout. C'étaient les yeux de quelqu'un qui, à peine une chose aperçue, en évaluait à la fois le prix, l'état et le danger.
 
-Han Jiwoo examina Sion de haut en bas et dit :
+Han Jiwoo toisa Sion de haut en bas et dit :
 
-« T'as une sale gueule. »
+« Qu'est-ce que c'est que cette dégaine ? »
 
-Sion eut un petit sourire.
+Sion pouffa.
 
-« Drôle de façon d'accueillir quelqu'un qu'on est content de voir. »
+« Pour un premier mot à quelqu'un qu'on est content de revoir, c'est pas très chaleureux. »
 
-« Content, je le suis. »  
-Han Jiwoo répondit, l'air sec.  
-« T'es vivant, c'est déjà ça. Mais pour quelqu'un qui a survécu, t'as l'air d'y avoir mis le prix. »
+« Contente, je le suis. »
+Han Jiwoo poursuivit d'un ton sec :
+« T'es revenu vivant, au moins. Mais pour une tête de survivant, t'as payé ta survie bien cher. »
 
-Seorin, à côté, laissa échapper un petit rire.
+Seorin, à côté, eut un petit rire.
 
-« Elle tape juste dès le départ. »
+« Que des vérités, dès le départ. »
 
-Le regard de Han Jiwoo glissa vers Seorin.
+Le regard de Han Jiwoo se porta alors seulement sur Seorin.
 
-« Toi aussi t'es là. »
+« T'es là aussi. »
 
-« Apparemment. »
+« Faut croire. »
 
-« Alors c'est vraiment chiant, cette fois. »
+« Alors cette fois, c'est vraiment une sale affaire. »
 
-« Ouais. Et même très. »
+« Ouais. Et pas qu'un peu. »
 
-Quelques mots échangés, c'était tout — mais Ater comprit aussitôt.  
-Cette femme connaissait Sion. Depuis longtemps, et de près, au point de savoir quel visage il prenait quand il arrivait avec quelque chose de dangereux. Et avec Seorin non plus, ce n'était pas une première rencontre.
+Quelques mots à peine, et Ater comprit tout de suite.
+Cette femme connaissait bien Sion. Depuis longtemps, pour l'avoir vu souvent, au point de savoir quelle tête il faisait quand il arrivait avec quelque chose de dangereux. Et elle n'en était pas non plus à sa première rencontre avec Seorin.
 
-Sern, silencieux, regarda les mains de Han Jiwoo.  
-Sur le dos des mains : des cicatrices de brûlures, persistantes comme des traces, et de vieilles entailles métalliques. Des mains de quelqu'un qui travaille directement sur les équipements, sur le terrain. Pas un simple courtier.
+Sern regarda en silence les mains de Han Jiwoo.
+Sur le dos des mains, des marques de brûlures restées comme des images rémanentes, et de vieilles éraflures de métal. Les mains de quelqu'un qui manipule soi-même le matériel sur le terrain. Pas une simple courtière.
 
-Han Jiwoo tourna ensuite les yeux vers Ater.  
-Pour la première fois, son regard changea, très imperceptiblement. Pas les vêtements qu'elle regardait : la posture, le silence, l'intervalle entre les respirations.
+Et seuls l'intérieur du pouce et de l'index gauches portaient une corne épaisse. Pas la main droite. Pour qu'une droitière use ainsi deux doigts de la main gauche et eux seuls, il faut qu'elle tienne l'outil de la droite et qu'avec la gauche elle maintienne sans cesse quelque chose.
 
-« C'est quoi, celui-là. »
+Une main qui tient les pièces.
 
-Sion répondit brièvement :
+Sern commença à calculer depuis combien d'années cette main servait ainsi, puis y renonça. Ce n'était pas une valeur dont il avait besoin pour l'instant.
 
-« L'explication est longue. »
+Han Jiwoo déplaça bientôt son regard vers Ater.
+Pour la première fois, ses yeux changèrent, très légèrement. Ce n'était plus la tenue qu'ils regardaient, mais la posture, le silence, l'intervalle entre deux respirations.
 
-« Longue, je prends pas. »
+« Et lui, c'est quoi ? »
 
-« C'est pour ça que je fais court. »  
-dit Sion.  
-« Le genre qu'il faut avoir avec soi si on veut pas mourir ensemble. »
+Sion répondit :
 
-Han Jiwoo entendit ça sans acquiescer immédiatement.  
-Elle regarda Ater une fois, Sern une fois encore, puis dit :
+« C'est long à expliquer. »
 
-« Bien. Si toi tu dis ça, c'est vraiment une combinaison bizarre. »  
-Ce n'était pas du simple sarcasme. Embarquer des gens à un point de transfert, ça voulait dire engager en même temps sa route et ses accès aux prochaines balises mortes.
+« Si c'est long, je prends pas. »
 
-Ater ne changea pas d'expression, mais au fond de lui, il sentit que cette femme avait le même genre de certitude qu'Elia Vern — par un chemin exactement inverse. Elia était la gardienne de l'archive et de la lecture. Celle-ci était la femme du mouvement et de l'équipement. Du genre à regarder hommes et matériel d'un seul coup d'œil, à calculer d'abord si l'un et l'autre tiendront.
+« C'est pour ça que je fais court. »
+Sion enchaîna :
+« Le genre dont on a besoin si on veut pas crever ensemble. »
 
-Yona lança depuis l'arrière, brièvement :
+Han Jiwoo entendit cela sans hocher la tête tout de suite.
+Elle regarda plutôt Ater une fois, Sern une fois encore, puis dit :
+
+« Si toi, tu dis un truc pareil, c'est vraiment une drôle d'équipe. »
+Faire monter des gens à un point de jonction, cela voulait dire engager avec eux sa propre ligne, et jusqu'à la route d'approche de la prochaine balise morte.
+
+Ater ne changea guère d'expression, mais il devina intérieurement que cette femme était du même genre qu'Elia. À ceci près qu'Elia était une femme de la conservation et du déchiffrement, et celle-ci une femme du déplacement et de l'équipement. Quelqu'un qui regarde les choses et les gens d'un même œil, et calcule d'abord si les uns et les autres tiendront.
+
+Yona dit derrière eux :
 
 « On n'a pas le temps. »
 
-Han Jiwoo resserra son bandeau de poignet d'un geste et inclina la tête.
+Han Jiwoo réajusta d'un geste la bande à son poignet et hocha la tête.
 
-« Je sais. C'est pour ça que j'attendais. »  
-Dans ces mots se glissait aussi l'idée qu'elle avait déjà tout calculé. Ne pas les embarquer ici, ça préservait peut-être une route — mais le fragment plus grand que ces gens portaient, la route entière qu'il indiquait, elle risquait de passer à côté.
+« Je sais. C'est pour ça que j'ai attendu. »
+Ces mots disaient aussi qu'elle avait déjà fait ses calculs. Ne pas les embarquer ici lui aurait peut-être permis de préserver une route, mais elle risquait alors de manquer tout entière la ligne plus vaste que désignait le fragment qu'ils apportaient.
 
-Elle se retourna et désigna l'intérieur du hall d'attente.  
-Là se trouvaient deux vieux chariots de fret, des panneaux à demi démontés, et un vaisseau de transit à moyenne portée, légèrement plus grand que le précédent, dissimulé là. L'extérieur paraissait encore plus usé, mais c'est précisément pour cette raison que les traces de travail manuel sautaient aux yeux. Panneaux de renfort provisoires, câblage contourné vers l'extérieur, marques de remplacement des verrouillages manuels. Ce n'était pas un vaisseau en train de mourir qu'on forçait à fonctionner encore — c'était un vaisseau maintenu en vie par calcul, pour qu'il ne meure pas.
+Elle se retourna et désigna le fond de la salle d'attente.
+Là étaient cachés deux vieux chariots de fret, des panneaux à moitié arrachés, et un vaisseau de transit de moyenne portée, un peu plus grand que la navette de liaison. Sa coque paraissait encore plus usée, mais justement, on y voyait nettement les traces d'un long travail de mains. Plaques de renfort provisoires, câblage extérieur dérivé, verrous manuels remplacés. Ce n'était pas un vaisseau mourant qu'on forçait à servir encore ; c'était un vaisseau qu'on tenait, à force de calculs, pour qu'il ne meure pas.
 
-Sion regarda ça et sourit aussitôt.
+Sion sourit dès qu'il le vit.
 
-« C'est passé entre tes mains. »
+« Celui-là, il est passé entre tes mains. »
 
-« Évidemment. »  
-dit Han Jiwoo.  
-« Si c'était pas mes mains, je t'aurais pas laissé monter. »
+« Évidemment. »
+Han Jiwoo ajouta :
+« Si quelqu'un d'autre y avait touché, je t'aurais pas fait monter. »
 
 Seorin, les yeux sur le vaisseau, dit à voix basse :
 
-« Mieux que l'apparence. »
+« Il est mieux qu'il n'en a l'air. »
 
-« C'est la phrase que je supporte le moins. »  
-Han Jiwoo rétorqua aussitôt.  
-« L'apparence aussi, elle est suffisamment bien. »
+« C'est la phrase que je déteste le plus. »
+Han Jiwoo répliqua aussitôt :
+« Il a très bien l'air, merci. »
 
-Seorin eut un petit sourire, et Sion, en le voyant, eut l'espace d'un instant une pensée pour autrefois.  
-Ça avait toujours été comme ça. Han Jiwoo repoussait les gens en paroles, mais ses mains bougeaient les premières. Le genre à râler et à envoyer balader, mais à avoir déjà fini les ajustements nécessaires.
+Seorin pouffa, et Sion, en la voyant, eut un bref instant le souvenir d'autrefois.
+Ça avait toujours été comme ça. Han Jiwoo repoussait les gens en paroles, mais ses mains bougeaient les premières. Le genre à râler que ça ne lui plaisait pas, tout en ayant déjà terminé les réglages nécessaires.
 
-Sern demanda tranquillement :
+Sern demanda calmement :
 
-« C'est notre prochain vaisseau de transit ? »
+« Est-ce là notre prochain vaisseau de transit ? »
 
-Han Jiwoo, seulement alors, se tourna franchement vers Sern.
+Han Jiwoo, alors seulement, regarda Sern en face.
 
-« Ouais. Mais on partira pas tranquillement. »  
-Elle désigna la coursive d'un mouvement de menton.  
-« Moi, je lis les balises mortes en les couplant avec les équipements encore vivants. Sur ce tronçon, sans ça, on peut pas s'amarrer. »  
-Elle dit :  
-« Parmi les routes qui mènent vers l'amas stellaire extérieur, deux sont déjà mortes, et une autre, depuis tout à l'heure, quelqu'un la tâtonne depuis derrière. Alors on va devoir passer encore plus à l'extérieur que prévu. »
+« Oui. Mais le trajet sera pas de tout repos. »
+Elle désigna du menton le vaisseau au fond de la salle.
+« Moi, mon métier, c'est de lire les balises mortes en les raccordant à du matériel encore vivant. Sur ce tronçon, sans ça, impossible de faire la jonction. »
+Elle continua :
+« Parmi les routes qui entrent dans l'amas stellaire extérieur, deux sont déjà mortes, et sur la troisième, quelqu'un tâtonne derrière nous depuis tout à l'heure. Alors il faut faire un détour plus à l'extérieur que prévu. »
 
-Ater demanda, à voix basse :
+Ater demanda à voix basse :
 
-« C'est faisable ? »
+« Est-ce seulement possible ? »
 
-« Je suis là pour que ça le devienne. »
-
-Ça ne sonnait pas comme de la vantardise.  
-Ater eut l'impression, l'espace d'un instant, que cette femme possédait exactement le même type de certitude que les nobles ou les bureaucrates de la Chambre de Reconnaissance impériale de son monde — mais par un chemin entièrement opposé. Cette certitude-là n'était pas dans le sang ni dans les prérogatives. C'était la certitude de quelqu'un qui avait réparé, ressuscité, et raté assez de fois pour la mériter.
+« C'est pour le rendre possible que je suis là. »
 
 Sion demanda :
 
-« Ça présente quel niveau de danger. »
+« C'est dangereux à quel point ? »
 
 Han Jiwoo répondit avec un calme parfait :
 
-« Considérable, pour ceux qui sont à côté de toi en ce moment. »  
-Elle ajouta, brièvement :  
+« Pour les gens qui sont à côté de toi, pas mal. »
+Puis elle ajouta :
 « Pour toi, un peu plus que d'habitude. »
 
-« Ça ne me réconforte pas du tout. »
+« Ça me console pas du tout. »
 
-« Pourquoi tu me dis ça maintenant ? C'est pas des consolations que je suis venue apporter. »
+« Je suis pas venue te consoler. »
 
-Un court silence.
+Un bref silence passa.
 
-Pendant ce temps, quelque part dans le lointain du point de transfert, un son métallique frappa une fois.  
-Ça ressemblait au bruit normal d'une structure qui vieillit — mais Sern et Yona levèrent la tête simultanément. Seorin retint aussitôt son souffle, et Sion, par réflexe, vérifia d'abord le positionnement derrière Han Jiwoo.
+Entre-temps, quelque part au loin dans le point de jonction, un coup sur du métal résonna une fois.
+On aurait dit un simple bruit d'usure, mais Sern et Yona levèrent la tête en même temps. Seorin retint aussitôt son souffle, et Sion, d'instinct, vérifia d'abord ce qu'il y avait derrière Han Jiwoo.
 
 Han Jiwoo dit à voix basse :
 
-« Voilà. C'est à cause de ce bruit qu'on peut pas traîner. »
+« Voilà. C'est à cause de ce bruit qu'on peut pas rester longtemps. »
 
 Yona jura entre ses dents.
 
-« Déjà en train de tâtonner. »
+« Ils tâtonnent déjà ? »
 
-« Pas encore sûr, précisément. »  
-répondit Han Jiwoo.  
-« Mais au deuxième bruit, il sera sûr. »
+« Pour être précise, ils sont pas encore sûrs. »
+Han Jiwoo répondit, puis précisa :
+« Mais deux bruits de plus, et ils le seront. »
 
 Sern demanda :
 
-« Départ immédiat possible après embarquement ? »
+« Pouvons-nous partir dès l'embarquement ? »
 
-« Je l'ai prévu comme ça. »  
-dit Han Jiwoo.  
-« En revanche, une fois à bord, l'option de descendre en cours de route n'existe pratiquement plus. »
+« J'ai tout prévu pour. »
+La voix de Han Jiwoo ne changea pas :
+« Par contre, une fois à bord, on n'a presque plus la possibilité de descendre en route. »
 
-Sion entendit ça sans sourire.  
-Ils le savaient tous, maintenant — ce genre de phrase n'était plus une plaisanterie.
+Sion ne sourit même pas en l'entendant.
+Ils savaient tous trop bien, désormais, que ce genre de phrase n'était pas une plaisanterie.
 
-Seorin fut la première à bouger.
+Seorin fut la première à avancer.
 
-« Bien. On monte. »
+« Bon. Alors on monte. »
 
-Ater trouva étrange que ces quelques mots-là sonnent plus solides que n'importe quelle instruction échangée jusqu'ici.  
-Seorin fonctionnait toujours ainsi. Quand l'atmosphère s'étirait ou que les décisions menaçaient de diverger, elle taillait dans le vif — exactement la longueur nécessaire — et poussait vers l'avant.
+Ater sentit que ces quelques mots sonnaient, étrangement, plus solides que toutes les instructions données jusque-là.
+Seorin faisait toujours ainsi. Dès que l'atmosphère se relâchait ou qu'une brèche s'ouvrait entre les avis, elle taillait juste la longueur nécessaire et poussait vers l'avant.
 
 Juste avant d'embarquer, Sion frôla Han Jiwoo et dit à voix basse :
 
-« Je te dois encore un. »
+« Encore une dette de plus. »
 
 Han Jiwoo répondit sans même le regarder :
 
-« Tes dettes diminuent jamais. »  
-Et elle ajouta, tout doucement :  
-« Alors survis pour rembourser. »
+« De toute façon, tes dettes diminuent jamais. »
+Puis elle ajouta, tout bas :
+« Alors survis pour payer. »
 
-Sion ne répondit pas.  
-Mais cette courte phrase s'accrocha dans sa poitrine, étrangement plus lourde que la coque elle-même.
+Sion ne répondit pas.
+Mais ces quelques mots lui restèrent accrochés dans un coin de la poitrine, étrangement plus lourds que la coque.
 
-Et les cinq,  
-au-delà du port neutre, plus loin encore,  
-suivant le premier fragment de route resté derrière un nom effacé,  
-s'enfoncèrent d'un pas de plus dans la direction de l'amas stellaire extérieur.
+Devant la rampe, Han Jiwoo compta les têtes.
+
+Sion, Seorin, le manteau noir, le silencieux à côté de lui. Quatre.
+
+Puis elle regarda Yona. Yona n'était pas entrée dans la salle d'attente et restait plantée près de l'entrée de la passerelle. Elle ne portait même pas de bagage.
+
+Han Jiwoo reporta son regard sur le tableau de bord sans rien dire.
+
+Elle ne recompta pas non plus les provisions. Dès le départ, elle avait calculé pour quatre.
 
 ---
 

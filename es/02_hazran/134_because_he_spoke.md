@@ -34,7 +34,7 @@ En cambio,
 las miradas de la gente cambiaron un poco.
 
 De mirar a un completo desconocido,
-a mirar ahora, al menos, a «alguien que sabe servir».
+a mirar ahora, al menos, a *alguien que sabe servir*.
 
 Sion sintió que esa diferencia, más bien, pesaba más.
 
@@ -46,7 +46,7 @@ la mujer humana que el día antes lo había llamado se acercó de nuevo.
 Se quedó un momento de pie junto a Sion,
 miró una vez la marca que él había dejado de noche y dijo bajo:
 
-—Dos personas fueron a menos.
+—Dos no llegaron a hundirse del todo.
 
 Sion la miró.
 
@@ -177,7 +177,7 @@ Sion la miró.
 La máquina vieja continuó con mucha calma:
 
 —Hay que ver también el colapso del lado de las máquinas.
-Aquí, aunque dejes caer solo a uno de los dos,
+Aquí, aunque se deje caer solo a uno de los dos,
 al final caen juntos.
 
 Aquellas palabras parecían explicar todo este estrato viejo en una sola frase.

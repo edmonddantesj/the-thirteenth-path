@@ -135,7 +135,7 @@ dit-il à voix basse.
 
 Ater demanda aussitôt.
 
-« Quoi. »
+« Qu'est-ce qui est anormal ? »
 
 Sern répondit sans détourner le regard.
 

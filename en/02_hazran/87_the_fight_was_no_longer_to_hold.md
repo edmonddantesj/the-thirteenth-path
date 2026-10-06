@@ -1,231 +1,268 @@
 # Episode 87. The Fight Was No Longer to Hold
 
-After Zahir said *now we fight to send them out*,
-the air inside Hazran changed unmistakably.
+It was the same battlefield, but the direction people's bodies moved in had changed.
 
-Same battlefield,
-but the direction people's bodies moved had shifted.
+Until a moment ago they had been hands for stopping what pushed in. From now on they became hands that calculated what to link up, and how far, to pull whom out of the deep inside to the outside.
 
-Until just now, the hands had been about blocking what was pushing in.
-But from now on,
-they became hands calculating what to connect, how far, to pull someone from deep inside out to the other side.
+A fight to hold and a fight to send looked alike, but inside they were nothing alike. The first was holding on to a line; the second was making a way by giving lines up.
 
-A fight to hold and a fight to send look alike,
-but the insides are completely different.
+Harun carried that difference into his body faster than anyone.
 
-The former is about gripping a line.
-The latter is about giving up a line while making a path.
+He looked again at the first line's passage he had just raised, then pulled three of Hazran's people back.
 
-Harun moved that difference into his body faster than anyone.
+"Leave that empty,"
+he said, low.
+"We don't use that side for blocking anymore."
 
-He looked at the first corridor line again,
-then immediately pulled three Hazran people back.
-
-"Leave that empty."
-He said, low.
-"That side is no longer used for blocking."
-
-One shooter asked in surprise.
+One of the shooters asked back, startled.
 
 "Then it opens right up."
 
-"I know."
-Harun cut him short.
-"Let it open. Funnel them here instead."
+"I know,"
+Harun cut in.
+"Let it open. Herd them in here instead."
 
-What he pointed to
-was a side corridor that didn't connect directly to the hull section.
-Narrow.
-Two turns.
-The overhead tent framing and low metal plates layered so thickly
-that any enemy entering would struggle to build speed.
+What he pointed to was a side passage that did not lead straight into the hull sections. Narrow, bending twice, with tent frames overhead and low metal plates overlapping, so that an enemy coming in would find it hard to pick up speed.
 
-Hazran was no longer blocking the enemy.
-It had entered the phase of deciding *where to let the enemy come in*.
+Hazran had now entered the stage where it was not stopping the enemy but deciding where the enemy would come in.
 
-The moment Sion saw that,
-his chest went cold once.
+The moment Sion saw that, his chest went cold once.
 
-That was smarter defense.
-But at the same time,
-it was defense that only worked if someone stood at the end of that bait.
+It was a smarter defense. But at the same time, it was a defense that only worked if someone stood at the end of that bait.
 
-And the person standing there first, as if it were obvious,
-was Harun.
+And the first to stand there now, as if it went without saying, was Harun.
 
 Seorin saw it too.
 
-She clenched her jaw and said, short.
+"He's really going to do that all the way to the end."
 
-"He really does that to the bitter end."
+Sion did not answer. He hated it, and he hated even more that it was the right choice.
 
-Sion didn't reply.
+Harun kept only the two people beside him and pulled the rest farther back. At the end of the passage he had left empty on purpose, two low sandbags, one metal plate and a fallen tent frame lay across one another. Not a structure for blocking—a structure that killed the speed of whatever came in, once, and made it choose a direction.
 
-He hated it.
-Hated more that it was the right call.
+He spoke low to the people of Hazran.
 
-Nasim reworked the human flow.
+"When I bend them, then you shoot."
 
-"Children further inside first."
-"Drop all cargo now, for real."
-"A corridor you've passed through once doesn't get used again!"
+"Can't we shoot first?"
+the man beside him asked.
 
-His voice was already nearly cracking,
-but he kept shouting.
-Because he had to push harder
-before people grew accustomed to fear.
+Harun answered without turning his eyes.
 
-Luhai was counting heads through all of it.
+"Shoot first and they find another way."
 
-How many had gone inside.
-Who still wasn't visible.
-Who had popped back out of a line already passed.
+It was exactly right. What they needed now was not to frighten the enemy, but to fool it into coming in by the way they wanted.
 
-Not the type whose hands slow when afraid—
-the type whose eyes get faster.
+Then, far off, the sound of tearing metal rang out again.
 
-He called out, low.
+This time it was different from before. Not the sound of something pushing in a straight line, but the sound of many branches at once, testing walls and tents and frames from different angles.
 
-"Two left!"
+Ater understood it at once.
 
-Nasim took it immediately.
+"It is searching,"
+he said, low.
+"Not for a straight line. For an empty way."
 
-"Where."
+"Then we'd better leave only one empty way,"
+Harun said.
 
-"Behind the turning tent, north side!"
+"The other side knows that too,"
+Ater said.
+"If there is only one empty way, its calculation includes the fact that it is bait."
 
-Sion ran the moment he heard it.
-Seorin followed.
+For the first time, Harun looked toward Ater.
 
-By now it was almost natural.
-Without anyone saying so,
-the two turned their bodies the same direction at the same speed.
+"How does the Empire do it?"
 
-Behind the turning tent on the north side,
-one wounded young man and a woman supporting him remained.
-The young man couldn't plant his leg properly.
-The woman's face was a wreck—she'd already cried once.
+"It leaves two,"
+Ater answered.
+"And one of them is truly left empty."
 
-Sion immediately draped the young man's arm across his shoulder.
+"If it's truly empty, they break through."
+
+"Yes. That is why no one stands in that one."
+
+For a moment Harun said nothing.
+
+"Then whatever comes in that way."
+
+"Is received on the inside. Late, in a narrow place."
+
+Sion understood what the two of them were talking about. Ater was proposing one more passage with no one standing in it. Whatever came in through that passage would reach the inside without anyone stopping it. Instead, on the inside, it would be shut into a narrow place and dealt with.
+
+"Then there has to be someone on the inside,"
+Sion said.
+
+Ater did not deny it.
+
+"Yes."
+
+"Doesn't that mean one more piece of bait?"
+
+"Not bait. A receiving position."
+
+"Only the name's different."
+
+This time Ater did not answer right away. And without answering, he looked at Harun.
+
+Harun spoke, short.
+
+"We do it."
+
+"Harun."
+For the first time, Seorin called him by name.
+
+"What."
+
+"Who stands in that second spot?"
+
+Instead of answering, Harun looked once into the passage. Sion saw where that look went, and because he saw it, he could say nothing more.
+
+It was the way Sion and Seorin kept going back and forth on, pulling people out.
+
+"If there are people passing through, that's the receiving position,"
+Harun said.
+"There's nobody else to put there."
+
+For a long while Seorin said nothing.
+
+"Then at least tell us beforehand,"
+she said at last.
+
+"I just did."
+
+"You call that telling?"
+
+"Here, that's telling."
+
+Seorin clicked her tongue. But she did not push past that. She knew there was nowhere to push.
+
+Listening to that back-and-forth, Sion knew this battle had just changed its nature once more.
+
+When it was a fight to hold, places were fixed. The front was the front and the back was the back. Once it became a fight to send, the back disappeared. The way you pulled people out became the way the enemy came in.
+
+"Two left."
+
+The voice came from the north. Sion was already running that way, and Seorin was half a step behind.
+
+Behind a tent at the north bend, one injured young man and the woman who had been holding him up were left. The young man could not put his weight on his leg properly, and the woman's face was a wreck, as if she had already cried once.
+
+Sion hooked the young man's arm over his shoulder at once.
 
 "Let's go."
 
-The woman asked in a trembling voice.
+The woman asked in a shaking voice.
 
-"Will we live if we go inside?"
+"If we go inside, do we live?"
 
-The question was too late
-and too honest.
-For a moment, no answer came.
+The question was so late and so honest that, for an instant, his answer stuck.
 
-Seorin cut in instead.
+Seorin cut in for him.
 
 "Stay here and you die faster."
 
-Cruel words.
-But in this situation, nothing was more accurate.
+It was a cruel thing to say. But in this situation there was nothing more accurate.
 
 The woman bit her lip and nodded.
 
-That moment,
-the sound of metal being torn rang out again in the distance.
+On the way back out after pushing the three of them inside, Sion looked again at the passage he had just come through.
 
-This time it was different from before.
+Until a moment ago it had been a way to get people out. Now the end of it stood open, and no one stood in it.
 
-Not a sound pushing forward in a straight line,
-but multiple branches testing walls, tents, and framing at different angles all at once.
+It had been left empty so they would come in.
 
-Ater understood immediately.
+And then, they came in.
 
-"They are searching."
-He said, low.
-"Not for a straight path. For an empty one."
+The first sound was not loud. It was the sound of something catching on the stall frame Harun had laid down. Not trying to climb over—just pushing forward and catching once at knee height.
 
-Sern took it right away.
+Sion flattened himself against the wall.
 
-"Then we must show them one first."
+The second. The third. They did not climb over; they came in as if shoved and falling. Just as Harun had said, the ones that came over were open on top. Two short shots sounded from the side passage, and two of them were pinned flat to the passage floor.
 
-Harun gave a short nod.
+From the fourth on, nothing caught.
 
-"I will stand."
+That frightened Sion. Three catching and the fourth not catching meant those things had just put that height into their calculation.
 
-Those words were so natural
-they grated even more.
+"Bend them."
 
-Seorin turned away and clenched her jaw.
+It was Harun's voice.
 
-"Of course he does."
+Wind passed between the metal plates inside the passage. The grey-brown dust that had kept pushing in from the collapsed central line rose high once in that narrow space.
 
-But she couldn't add a curse to the end.
-Because no one here could easily say who else would take that spot.
+In that moment Sion saw for the first time what happened to a line of androids.
 
-Harun kept only two people beside him
-and pulled the rest further back.
-At the end of the corridor he'd deliberately emptied stood two low sandbags,
-one metal plate,
-and a fallen tent frame laid across. Not a structure to block—
-a structure to kill incoming speed once and fix their direction.
+It did not stop. It did not slow down either. The three in the front rank slipped half a hand's span out of place against one another. Until now those things had kept their intervals exactly. Even when one line fell, the next line came alive at exactly the same interval. But inside the dust, that exact interval twisted by half a span.
 
-He spoke low to the Hazran people.
+Through that half span, Hazran's fire went in.
 
-"When I bend them, that's when you shoot."
+Sion let out a breath before he knew it.
 
-"Can't we fire first?"
-The person beside him asked.
+It worked.
 
-Harun answered without turning his gaze.
+"I said it would work once,"
+Harun said, low.
+"This is the once."
 
-"Fire first and they find another path."
+Then he pulled himself back at once. He had won, and he fell back. Seeing that, Sion understood. That man had known, from the moment he raised this barrier, that it would not work a second time, and had only decided where to spend the first.
 
-Precise.
+Sion wanted to know how much that one time was worth.
 
-Because what was needed now wasn't scaring the enemy.
-It was tricking them into entering the path you chose.
+"How much did it buy?"
 
-In the inner section,
-Jiwoo finally set one tool down.
+Harun answered even as he pulled back.
 
-Not a complete repair.
-But no longer just a *mass about to break apart*.
-The receiving frame was holding.
-The joint seemed like it could withstand at least one hard vibration.
+"One line."
 
-Aka looked outward and spoke, very low.
+"One line is how many?"
 
-"It can move now."
+"Twenty."
 
-Jiwoo heard that and still couldn't smile.
+Sion stopped where he was for a moment.
 
-"We have to make it there alive first."
+Three caught just now, two pinned, a front rank of three thrown half a span out of place—the price of all that was twenty people. And to move those twenty, Harun had spent a three-line barrier whole, once.
 
-That was everyone's problem right now.
+The time to move one line was one barrier.
 
-Even if the ship came alive,
-it was useless without a path to take it from here to there.
+Sion learned the exchange rate for the first time.
 
-Zahir was listening to all of it.
+One line was twenty, and twenty was one time. So while the ship lifted eleven times, there had to be eleven barriers too.
 
-And finally,
-in a very quiet voice, he said the next words.
+"Then to move eleven lines."
 
-"The moment the hull side is ready,"
-he said,
-"we start pulling people from the inside."
+"You'd need eleven barriers,"
+Harun said.
 
-Sion heard that and understood immediately.
+"Do you have eleven?"
 
-Now, truly,
-this fight was no longer about how long to protect someone.
-It was a fight about who to send first
-and who stays to the end to buy time.
+Harun did not answer.
 
-Hazran had not collapsed yet.
+Sion knew that silence was the answer. This city made barriers by moving what had collapsed. There was still collapsed stuff left, so they could make them. Only, the other side never fell for the same shape twice.
 
-But already,
-it was deciding who to send across before it did.
+"Then what do you make the next one out of?"
 
-And so this battle
-was no longer a fight to hold.
+"You make the next one out of something else,"
+Harun said.
+"The one after that, out of something else again."
+
+"How many does that go to?"
+
+For the first time, Harun looked toward Sion.
+
+"You counting right now?"
+
+"Since earlier."
+
+"Don't count."
+
+"Why?"
+
+"Count, and you'll know when the last time is."
+
+Harun said that and went forward again. Sion watched his back, and knew too that the man had already worked out that the last time would be his own place.
+
+Sion stopped there for a moment, then walked straight past to call the next person.
+
+Passing through had come to mean receiving, and still, right now, there was nothing else he could do.
 
 ---
 

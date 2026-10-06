@@ -1,6 +1,6 @@
 # Chapitre 149 — Pas seulement une reconnaissance
 
-After following the upper order's rhythm as deep as they could, the recon team finally saw firsthand how Serakion transferred young humans upward.
+Après avoir suivi le rythme de l'ordre supérieur aussi loin qu'ils le pouvaient, l'équipe de reconnaissance vit enfin de ses propres yeux comment Serakion faisait passer les jeunes humains vers le haut.
 
 Jusqu'à présent, ils avaient vu des sections, lu des couloirs, compris les différences de mains, de vie et d'étages.
 
@@ -10,7 +10,7 @@ Les enfants ne bougeaient pas en grand nombre.
 
 Serakion, comme toujours, les a déplacés pour que cela ne ressemble jamais à un transfert de masse.
 
-Trois. Four at most. Very short intervals. Un flux calme, juste assez discret.
+Trois. Quatre au plus. Des intervalles très courts. Un flux calme, juste assez discret.
 
 Ces petits groupes se sont arrêtés, alignés, ont été remis et ont disparu.
 
@@ -52,17 +52,17 @@ On ne savait pas clairement à qui s’adressaient ces mots. C'était peut-être
 
 « Pourquoi c'est resté si calme. »
 Il continua à voix basse.
-« Ce n'est pas une règle de masse. C'est une règle divisée, donc elle ne ressemble pas à une règle de masse. »
+« Ce n'est pas une domination de masse. C'est une domination découpée pour ne pas en avoir l'air. »
 
 Ces mots traversèrent à nouveau toute la structure de Serakion.
 
 Depuis le bas jusqu’à maintenant, tout s’est déroulé selon le même principe.
 
-Never herding in bulk. Ne jamais basculer d’un seul coup. Ne fermez jamais grand-chose à la fois. Ne jamais prendre grand-chose à la fois.
+Ne jamais rabattre en masse. Ne jamais basculer d’un seul coup. Ne fermez jamais grand-chose à la fois. Ne jamais prendre grand-chose à la fois.
 
-Toujours un petit peu à la fois. Courtoisement. In manageable units.
+Toujours un petit peu à la fois. Courtoisement. Par unités gérables.
 
-La résistance arrive donc tard. Loss shows late. Et la colère est coupée avant de devenir collective.
+La résistance arrive donc tard. La perte se voit tard. Et la colère est coupée avant de devenir collective.
 Kael avait lu les positions où les enfants s'étaient arrêtés, l'angle selon lequel les machines adjacentes levaient la main et la séquence d'ouverture et de fermeture des murs immédiatement après.
 
 Et finalement, il parla très doucement.
@@ -126,7 +126,7 @@ Puis un autre groupe d'enfants a été transféré à la file suivante.
 
 Le plus petit humain debout tout au fond tourna la tête sur le côté, juste un instant.
 
-Ils ne regardaient pas l'équipe de reconnaissance. C'était juste un mouvement, comme pour vérifier quelque part derrière eux.
+Il ne regardait pas l'équipe de reconnaissance. C'était juste un mouvement, comme pour vérifier quelque chose derrière lui.
 
 Mais ce simple geste bref ne permettrait pas à Jiwoo de rester immobile plus longtemps.
 

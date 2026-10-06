@@ -1,204 +1,258 @@
 # Episode 92. The Weight Left on Those Who Stayed
 
-When Zahir's order to attach the second group dropped,
-the first thing that shook inside Hazran wasn't feet—it was faces.
+The first line had really gone up.
 
-The first group had truly gone up.
-Which meant
-the remaining people were no longer simply waiting.
-They were now split more sharply into those waiting for their turn
-and those who had to stay and buy time until that turn came.
+Once that was over, the air inside changed once.
 
-Sion felt like breathing that air alone was enough to choke him.
+Just breathing that air, Sion felt his throat close up.
 
-People no longer wore the face of *let's survive together*.
-Some were watching the ones who had already gone.
-Some were calculating their own place in the line that hadn't left yet.
-Some already knew they would stay to the end.
+People no longer wore the face that said simply, let's live through this together. Some were already watching the ones who had gone, some were calculating their own place, the one that hadn't come yet, and some already knew they would be staying to the end.
 
-All of that, in the same space,
-pressed close to the hull, breathing the same air—
-it was strangely cruel.
+That all of it was breathing together in the same space, pressed up against the hull, was strangely cruel.
 
-Nasim, his voice nearly gone,
-still built the second group's line.
+Sion passed between them, counting the second line.
 
-"Stretchers first!"
-"If you can walk, fall in behind!"
-"You don't have to stop crying—just don't let go of hands!"
+Eighteen. Twenty. Twenty, right.
 
-He no longer soothed anyone.
-The moment you soothe, things slow down.
-The moment things slow, someone's time dies.
-So he was lining people up with rough words,
-almost like pressing bandages onto wounds.
+Counting was his job now. Someone whose voice was gone couldn't line people up, and the one marking the board had to stay at the back and watch only the board. So the one walking between people and counting them right now was Sion.
 
-Luhai, this time instead of children,
-stayed beside two wounded.
+He learned it as he counted. Whoever counts ends up seeing every face.
 
-One kept murmuring *sorry*.
-The other had lost too much blood—eyes half-unfocused.
+This time Luhai was staying close to two wounded people instead of the children.
 
-Luhai's face was white,
-but his voice was strangely firm.
+One of them kept murmuring that they were sorry. The other had bled so much their eyes were half unfocused.
 
-"Don't say sorry."
-He said.
-"Right now, the ones who get up are the ones who win."
+Even with his face gone white, Luhai spoke in a voice that was strangely firm.
 
-Those words sounded like a child who had grown up too fast for his age.
-Sion felt a brief sting in his chest.
+"Don't say sorry,"
+he said.
+"Right now, the ones going up are the ones winning."
 
-Seorin was at the front of the second group, organizing hands directly.
+The words sounded like a kid who had grown up too fast, and for a moment Sion's chest ached.
 
-She pulled slow people forward,
-sent those who could walk to the back,
-angled the stretchers to match the hull's ramp.
-The movements were so precise
-she looked like someone who had done this all her life.
+"Where'd you learn that?"
+Sion asked.
 
-But Sion knew.
-It wasn't familiarity.
-It was gripping the side that must not collapse so hard
-that it only looked that way.
+Luhai shifted his grip on the wounded person's arm as he answered.
 
-Standing beside her, linking the line,
-Sion caught the briefest glimpse of her hand trembling.
+"I didn't learn it."
 
-But Seorin said nothing.
-And probably only Sion had seen it.
+"Then?"
+
+"I wanted someone to say it to me."
+
+Sion didn't ask any more.
+
+How many times this kid had said sorry in Hazran's alleys, whether no one had ever said those words to him any of those times—he didn't ask, because he felt he would find out if he did.
+
+Seorin was at the very front of the second line, sorting people's hands herself.
+
+She pulled the slow ones forward, sent the ones who could walk to the back, and set the angle of the stretchers to the ramp. Her movements were so precise she looked like someone who had done this kind of work from the start.
+
+But Sion knew. That wasn't familiarity. She looked that way because she was gripping too hard to the one thing she could not let happen right now, which was falling apart.
+
+Working the line beside her, Sion looked at the back of her hand.
+
+It was trembling.
+
+Not a big tremble. The fingers of her right hand curled and straightened, just for a moment, and her jawline set very slightly, then eased again.
+
+Sion knew that movement.
+
+The day they first walked inside, when Seorin fell half a step behind in the passage, she had done exactly the same. That time Sion had pretended not to see. He'd thought that was right. For Seorin in a moment like that, pretending not to see suited her better than comfort.
+
+It was the same finger now.
+
+The only difference was that then it had happened once while she walked, and now she was holding someone's arm.
+
+This time too, Sion said nothing.
+
+Instead he took the other handle of the stretcher she was holding. The weight split in half.
+
+Seorin saw that and still said nothing. Not thank you, not I've got it.
+
+She just kept lifting.
+
+Sion knew that this was the most this person could do, too.
+
+"How many left?"
+Seorin asked.
+
+"A hundred and eighty-eight."
+
+"Not that."
+
+Sion paused for a moment.
+
+"…Ten runs."
+
+"That's about the ship."
+
+Seorin was still looking straight ahead.
+
+"How many are left here?"
+
+Sion couldn't answer that question.
+
+Everything he had counted so far was a number for the ones going out. A hundred and eighty-eight, ten runs, twenty, seven. All numbers for going out. No one had counted the number of the ones staying.
+
+"I haven't counted."
+
+"Count."
+
+"Why?"
+
+"If you only count the ones going out, the ones who stay look like subtraction."
+
+At that, Sion's back went cold.
+
+She was right. All this time he had been subtracting people from two hundred and eight. What was left after subtracting was just the remainder. But the remainder were people too.
+
+That day, for the first time, Sion counted the other side.
+
+Nine hands with Harun. Six hands moving the barriers. Four people still beside Nasim. Three hands carrying water and cloth. And a few who were attached to nothing but stood there, not going.
+
+He couldn't count them exactly. Because they kept moving.
+
+All Sion knew was that it was twenty-something.
+
+While the ship came back ten more times, those twenty-something had to stay here the whole time. And no one had calculated whether, when the last ship lifted, there would be room for all twenty-something of them to board.
+
+"I counted,"
+Sion said.
+
+"How many?"
+
+"Twenty-something."
+
+Hearing that answer, Seorin gave a very short nod.
+
+"Then that's done."
+
+"Done?"
+
+"Because now you're counting too."
+
+Only later did Sion understand what that meant. She had been counting that number alone all along. When you count alone, your hands shake.
 
 Harun's side was getting worse.
 
-After the first departure began,
-the android side's pressure became more blatant.
-They knew now too.
-Push here harder,
-and you can shake the human line and the hull together.
+Since the first departure began, the pressure from the other side had become more open. It meant they now knew that pushing here harder could shake both the line of people and the hull.
 
-Ater spoke low.
+Harun pulled the two beside him farther back and pressed only himself farther forward.
 
-"This time it is not probing."
+Sion went over that way.
 
-Sern took it immediately.
-
-"Correct. They intend to breach."
-
-Harun gave a short nod.
-
-Not a face of surprise.
-No—closer to having no room left to be surprised.
-
-He pulled the two beside him further back
-and pressed only himself and Sern further forward.
-Ater stayed half a beat behind, continuing to read angles.
-
-Sion watched it and couldn't breathe.
-
-That was no longer defense.
-It was close to the shape of blocking time with the body itself.
-
-"How many minutes."
+"How many minutes?"
 Harun asked without looking back.
 
-Sion's answer came late without meaning to.
+Sion's answer came late, without his meaning it to.
 
-Because he didn't want to think in units of minutes.
-That would mean
-converting exactly how much longer those people had to hold for one more line to live
-into a precise number.
+Because he didn't want to think in minutes. That would mean turning into an exact number how much longer that man had to hold for one more line to live.
 
 He answered anyway.
 
-"Second group still needs some time to attach."
-
-Harun said, short.
+"It'll still be a while before the ship comes back."
 
 "Then I stand that long."
 
-That single line
-was strangely crueler.
+That one line was strangely crueler. No one had room to be moved by it, and it came out like the most obvious thing in the world.
 
-No one had space to be moved,
-and it came out like the most obvious thing in the world.
+Sion went two steps, then turned back.
 
-Jiwoo was checking the second group's boarding angle from the hull entrance.
+"Twenty-something."
 
-How the ship's trembling had changed when the first group boarded.
-How far the coupling had held.
-Which side would be more dangerous when the next stretcher entered.
+For the first time, Harun turned his head.
 
-Aka, eyes closed beside her, spoke low.
+"What is?"
 
-"This time the left side is heavier."
+"The people staying here. Twenty-something of them have to get on the last ship."
 
-Jiwoo turned her head immediately.
+Harun heard that and gave no answer.
 
-"So?"
+Then he looked ahead again.
 
-"The stretcher first—not left, center."
-Aka said.
-"Turn once, then load."
+That was the third time today Sion had heard that silence. Once when he asked whether there were eleven barriers, once when he asked whether they could load all eleven runs, and now.
 
-Jiwoo shouted the instant those words fell.
+All three were the same kind of silence.
 
-"Second group stretcher, turn to center!"
+The ship came back.
 
-Watching that, Sion felt that Aka was now intervening directly in the work of sending people out too. Not just listening to embers and hulls and cooled sites—
-she was listening to how this ship needed to receive whom right now to keep holding.
+It was louder coming in than going out. Sion didn't know what that meant, so he looked at Luhai.
 
-That meant Aka was growing more deeply connected
-to this ship,
-this path,
-this entire departure.
+"Because it's empty,"
+Luhai said.
+"Put people in it and the sound gets pressed down."
 
-And that fact
-landed strangely heavy on Sion too.
+An empty ship is louder. Of everything he had learned in Hazran, it seemed the most useless and the most exact fact.
 
-Aka listens to the path.
-Jiwoo keeps the ship alive.
-Harun blocks time.
-Zahir sets the order.
-Nasim, Seorin, and Luhai push the people.
-He and Kael fill the gaps.
+And the people staying heard that sound too.
 
-Everyone was doing their part.
-But that made it clearer.
+Sion saw several people at the back of the line lift their heads at once. From a single sound coming from somewhere they couldn't see, they knew the ship had come back alive. They would also come to know the day that sound did not come.
 
-Among them,
-the probability was high that someone would stay to the end.
+Luhai ran to the ramp and was back in no time.
 
-The second group's first stretcher began to move.
+"She says twenty."
 
-Below the hull's ramp,
-past the ground where sand and blood and metal dust mixed,
-people climbed one step at a time again.
+At those words, Sion let his breath out.
 
-That moment,
-from the right outer corridor,
-a metallic sound rang out—lower and heavier than before.
+"She fixed it?"
 
-Sern's expression hardened immediately.
+"She fixed it."
 
-"Something large is coming."
+"How?"
 
-Ater looked the same direction
-and said, very brief.
+"Dunno. Both her hands were scraped raw."
 
-"Yes. That is not the next line."
+Sion heard that and said nothing.
 
-Harun heard that and didn't turn his head.
+Beside him, Seorin asked shortly.
 
-But Sion could tell.
+"Not eighteen?"
 
-The weight landing on the remaining people's shoulders
-was about to change once more.
+"Twenty."
 
-From the moment the first departure began,
-staying behind was never just waiting.
+"Then ten runs, same as before."
 
-It was actually
-shouldering the share of those who left.
+"Yeah."
+
+At that, Seorin let out a breath for the first time, very short. Less relief than the breath of someone confirming that one calculation hadn't grown.
+
+The second line began to go up.
+
+Seven. Stop. Seven. Stop. Six.
+
+This time Sion watched without counting. He had done all the counting earlier. Now he looked at faces.
+
+Among the twenty going up was the person who had kept saying sorry earlier. Luhai held their arm and walked them to the ramp, and as they went up, that person tried to say something again.
+
+Luhai cut them off first.
+
+"I told you, don't."
+
+The person smiled. The smiling face looked worse than crying would have, but they smiled anyway.
+
+The ramp folded.
+
+The ship lifted, slid out at the same height as before, and went into the western shadow.
+
+Sion looked at the board. What had been one mark earlier was now two.
+
+Twenty gone from a hundred and eighty-eight. A hundred and sixty-eight.
+
+Nine runs.
+
+Sion didn't say the number out loud. Instead he counted again the other number, the one he had counted earlier.
+
+Twenty-something.
+
+Those twenty-something had to be here for nine runs. And whether there would be room for them to board when the ninth ship lifted, no one had answered today.
+
+Sion thought for a moment about whether to say that calculation to Seorin again.
+
+He didn't.
+
+She already knew, and knowing it, she was holding back the shaking of her hands, and if he said it now, it would only add one more thing for her to hold back.
 
 ---
 

@@ -1,203 +1,201 @@
-# Episode 118. Too Ordered World
+# Episode 118. An Orderly Unease
 
-The first thing visible wasn't a city.
+The first thing they saw was not a city.
 
 It was light.
 
 Far beyond the window,
-silver grains laid too neatly on the black of space rose first.
+silver grain, laid too straight across the black of space, came up first.
 
-They didn't look like starlight scattered naturally.
-They weren't as simple as route markers.
+It didn't look like starlight scattered the way starlight scatters,
+and it wasn't as simple as route markers.
 
-It looked more like someone had driven metallic lines
-into the darkness at precise intervals, cold.
+If anything, it looked as though someone had taken the dark
+and coldly driven metallic lines into it at exact intervals.
 
 The moment Sion saw it,
-he knew immediately that the grain he had been sensing in the air before
-was now being seen with his eyes.
+he knew at once that he was now seeing with his eyes the same grain as the air that had seeped in ahead of it.
 
-Cold.
-Smooth.
-Ordered.
+Cold,
+smooth,
+orderly.
 
-But precisely because of that,
+And that was exactly why
 it was strange.
 
-Any living city or civilization,
-no matter how grand, has crookedness somewhere.
-Traces added late.
-Sections not fully organized.
-The imbalance born from people being alive.
+A living city or civilization,
+however grand, is crooked somewhere.
+Traces of things added late,
+sectors left half in order,
+the kind of imbalance that comes from people living there.
 
-But what was rising ahead was different.
+But what was rising ahead of them was different.
 
-Too precise.
+It was too exact.
 Too uniform.
 So beautiful
-that it looked closer to an exhibit than to life.
+that it looked less like life than like something on display.
 
-Luhai muttered first, low.
+Luhai was the first to mutter, low.
 
-"That doesn't… look like a place where people live."
+"That… doesn't look like a place people live."
 
-Jiwoo couldn't answer right away either.
+Han Jiwoo couldn't answer right away either.
 
-She kept checking the helm and hull stability readings,
-yet one eye kept being stolen by the view outside.
+Even as she kept watching the helm and the hull stability readings,
+part of her gaze kept getting pulled out the window.
 
-It could be structures built by machines.
-That would actually make more sense.
-But the problem was
-that in the places those structures should look functional,
-an oddly ostentatious precision was attached.
+They could be structures built by machines.
+In fact, that would make more sense.
+The problem was
+that where those structures should have looked functional,
+they carried a strangely showy precision.
 
-It looked wasteful,
-yet simultaneously perfect.
+It looked like waste,
+and it was perfect at the same time.
 
-It didn't seem like something made by machines concerned only with efficiency.
-But it didn't feel warm like something made by life either.
+It didn't look like the work of machines that cared only for efficiency.
+But it wasn't warm either, the way something made by the living is warm.
 
-That misaligned middle
-made Jiwoo more uncomfortable.
+That somehow misaligned in-between
+made Han Jiwoo more uneasy.
 
-Sern read the numbers first, as always.
+Again Sern read the numbers first.
 
-"The reflectance values are wrong."
-He said, low.
+"The reflectance values are off,"
+he said, low.
 
 Kael asked.
 
-"Meaning what."
+"Meaning what?"
 
-Sern pointed at one structure outside the window.
+Sern pointed to one of the structures outside the window.
 
-"At that size, there should be more diffuse reflection mixed in."
-He said.
-"But it's too clean."
+"At that size, more scattered reflection should be mixed in,"
+he said.
+"But it is too neat."
 
-Those words were short,
-but sufficiently ominous.
+It was short,
+and ominous enough.
 
-What's visible is strange.
-What's readable is strange.
+What they could see was strange,
+and what they could read was strange too.
 
-Meaning this world is not simply a beautiful world.
-It could be a world that *controls even its own beauty*.
+Which meant that world was not simply a world pleasant to look at;
+it might be *a world that controlled even its own beauty*.
 
-Seorin stood upright, not leaning on the railing,
-and watched the approaching landscape outside for a long time.
+Seorin stood straight, not leaning on the rail,
+and for a long time watched the view outside draw closer.
 
-Then said, very brief.
+Then she said, very briefly,
 
-"Suffocating."
+"Stifling."
 
-That single word was the most precise.
+That one word was the most accurate.
 
-Grand.
-Cold.
-Unfamiliar.
-Beautiful.
-All correct.
+Grand,
+cold,
+strange,
+beautiful.
+All of it was true.
 
 But past all of those,
-the sensation that remained last was close to suffocation.
+the feeling left at the end was closer to being unable to breathe.
 
-So well organized
-that it felt like a place where someone like her wouldn't be permitted even the space to make a mistake.
+So well ordered
+that it felt as if someone like her would not be allowed even room to make a mistake here.
 
-Aka watched outside for a long time,
-then said, very low.
+Aka looked out the window for a long time,
+then spoke, very low.
 
-"It does not look like a place that has watched living things for long."
+"It's not like a place that's spent long looking at living things."
 
-Sion looked at her slowly.
+Sion slowly turned to look at her.
 
-Aka continued.
+Aka went on.
 
-"It looks like a place that handles living things."
+"More like a place that handles them."
 
 After those words fell,
-no one could open their mouth right away.
+no one could speak right away.
 
-That world was clearly intricate.
-Quiet.
-Dazzlingly ordered.
+That world was undeniably intricate,
+quiet,
+dazzlingly in order.
 
-But there was no sense of being welcomed at all.
-Instead, from a distance,
-it felt closer to a world that asks *what are you* first, seeking to classify.
+But there was no feeling of welcome at all.
+If anything, from a long way off,
+it was more like a world that wanted first to sort them, asking what they were.
 
-Sion looked outside the window
-and felt anew how opposite this was from Hazran.
+Looking out the window,
+Sion felt all over again that it was the exact opposite of Hazran.
 
-Hazran was a world where living people held on, even as everything crumbled to the end.
-Imperfect.
-Poorly organized.
-Everything worn.
-But people were there.
+Hazran had been a world where living people held on, even as it crumbled to the end.
+Ill-fitting,
+half in order,
+everything worn down,
+and still, there were people.
 
 But the world ahead
-looked as though it would never crumble.
-Instead, it looked as though the space for people to enter
-had never been calculated from the start.
+looked as if it would never fall.
+Instead it looked as if no room for people inside it had been calculated from the start.
 
-Luhai said, very low.
+Luhai said, very low,
 
-"This place wasn't made to save us."
+"This place wasn't built to keep us alive."
 
-Ater, without taking those words,
-kept looking outside and spoke brief.
+Ater let that go unanswered
+and, still watching through the window, spoke briefly.
 
-"We are entering."
+"Do we go in?"
 
 The question was short.
-But the answer was already decided.
+But the answer was already settled.
 
 They had come this far.
-The words Zahir left.
-The responsibility Hazran entrusted.
-The condensed traces.
-All of it was converging now at that world's threshold.
+The words Zahir had left them,
+the responsibility Hazran had handed over,
+the condensed trace,
+all of it was now gathering at that world's threshold.
 
-Sion said, very low.
+Sion said, very low,
 
-"We have to go."
+"We've got to go."
 
-That didn't sound like courage.
-It was closer to accepting the fact that no other choice remained.
+It didn't sound brave.
+It was closer to accepting that there was no other choice left.
 
-Jiwoo checked the hull readings one more time.
-Sern read the outer structures and surveillance intervals.
-Seorin still hadn't taken her eyes from outside the window.
-Aka was silent the longest.
+Han Jiwoo checked the hull readings once more.
+Sern read the outer structure and the gaps in the watch,
+Seorin still hadn't taken her eyes off the window,
+and Aka stayed silent longest.
 
-And much later,
-almost like speaking to herself, she said.
+Then, much later,
+she spoke, almost to herself.
 
-"Beautiful, but no consideration."
+"It's beautiful, but there's no care in it."
 
-Those words caught strangely in everyone's chest, right away.
+Strangely, the words caught in everyone's chest at once.
 
-It was right.
+She was right.
 
-The first impression this world gave was exactly that.
+That was exactly the first impression the world gave.
 Beautiful,
-but no consideration.
+but no care.
 Intricate,
 but no welcome.
 Perfect,
-but no trace of having thought about a living thing's breath first.
+but no trace that it had ever thought first of a living thing's breath.
 
-The ship turned its body toward the zone where those cold, straight structures floated,
-far more quietly than before.
+Toward the sector where those cold, straight structures floated,
+the ship turned, far more quietly than before.
 
-The planet of the machines
+The planet of machines
 was no longer a distant destination.
 
-So ordered that it was ominous from the first moment of sight,
-it was unfolding quietly outside the window
-as an actual world.
+So orderly
+that, from the very first sight, it had become an ominous and real world,
+and it was spreading quietly outside the window.
 
 ---
 

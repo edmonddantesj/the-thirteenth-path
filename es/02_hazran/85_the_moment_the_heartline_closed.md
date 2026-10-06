@@ -1,188 +1,238 @@
 # Capítulo 85 — El instante en que se cerró la línea del corazón
 
-La orden de cortar la línea central del mercado
-fue más cruel cuando empezó a moverse de verdad que cuando cayó en palabras.
+Dicho en palabras, era una sola línea.
 
-La gente de Hazran, de por sí,
-no era de las que se quedaban mirando largo rato cómo se derrumbaba algo.
+Cuando las manos empezaron a moverse, ya no lo era.
 
-Cuando estaba decidido qué abandonar, no se aferraban,
-y cuando estaba decidido qué salvar, no titubeaban.
+De la columna central salió la segunda placa de sujeción, y los que estaban a su lado despejaron el punto donde se cortaría la línea de energía. Despejarlo llevó tiempo. Había demasiadas cosas colgadas de la línea y había que quitarlas una por una.
 
-Pero esta vez fue distinto.
+Entre lo que quitaban había mucho que todavía servía.
 
-Porque la línea central del mercado no era solo un camino.
-Cuánto cobraba uno y qué vendía,
-quién se había peleado con quién,
-quién encendía cada noche el fuego en qué carpa,
-todo eso era una línea por la que se pasaba.
+Sion vio qué quitaba esa gente. Telas de toldo, cuerdas anudadas, la tablilla donde se apuntaban los precios, un colgador que alguien había puesto para encender una luz por la noche. Al quitarlo, nadie se lo guardaba. Lo dejaban en el suelo y nada más.
 
-Tener que cerrarla con las propias manos,
-para la gente del mercado, se parecía a apretarse con los dedos una vena del propio cuerpo.
+La gente de Hazran, cuando estaba decidido qué abandonar, no se aferraba.
 
-Aun así, las manos no se detuvieron.
+Pero esta vez las manos se retrasaban un poco cada vez.
 
-Kael fue arrancando una a una las placas de sujeción al pie de la columna central,
-y los que estaban pegados a su lado dejaron libre el punto donde se cortaría la línea de energía. Nasim repasaba hasta el último momento la carga y la gente que quedaban, y se tragaba las maldiciones, y Luhai, que ya había ido y vuelto dos veces, empujaba hacia dentro a los chicos que aún quedaban en la línea oeste.
+Sion no dejaba de ir y venir entre el pasillo oeste y lo de dentro.
 
-Sion iba y venía casi corriendo entre el pasillo oeste y el pasillo interior.
+Quién faltaba, quién todavía no se había movido, a quién le había atrapado los tobillos la carga. Contaba con los ojos, empujaba con las manos y unas cuantas veces cargó a alguien él mismo.
 
-Si faltaba alguien,
-si alguien aún no se había movido,
-si alguien estaba trabado por la carga.
-Eso lo contaba con los ojos,
-lo empujaba con las manos,
-y a veces lo cargaba y lo movía él mismo.
+—¿Ya están todos?
 
-—¿Ya llegaron todos? —preguntó él, jadeando,
-y Nasim respondió enseguida.
+Sion lo preguntó jadeando.
 
-—Faltan dos más.
+Nasim respondió enseguida.
+
+—Faltan dos.
 
 —¿Dónde?
 
-—En el extremo de la carpa oeste.
+—Al final de las lonas del oeste.
 
-Sion, con solo oír eso, volvió a girar el cuerpo.
+Sion no oyó más que eso y giró el cuerpo.
 
-Detrás, Seorin dijo en voz baja.
+Detrás, habló Seorin.
 
 —Voy contigo.
 
-No era un permiso ni una confirmación.
-Era, simplemente, decir que ya iba a correr con él.
+No era una pregunta. Ya estaba corriendo.
 
-Los dos corrieron casi resbalando hasta el extremo oeste.
+El extremo oeste ya estaba vacío.
 
-Allí quedaban todavía un anciano
-y un comerciante joven que abrazaba contra el pecho una pequeña caja de metal.
-El anciano no podía usar bien las piernas,
-y el comerciante joven seguía sin poder soltar aquella caja hasta el final.
+El armazón de un puesto estaba volcado y una lona colgaba medio recogida. Era un sitio por donde la gente había pasado hacía poco. En el suelo había un odre reventado y la mancha mojada todavía no se había secado.
 
-Seorin afiló primero la voz.
+Al final quedaban dos.
 
-—Tira eso.
+Uno era un anciano. No podía usar bien las piernas, y estaba de pie apoyado en la pared, con la mano que apoyaba temblando. Sion no sabía si temblaba de miedo o de llevar mucho rato de pie.
+
+El otro era un comerciante joven. Llevaba abrazada contra el pecho una pequeña caja de metal. Estaba al lado del anciano, pero no lo sostenía. Tenía las dos manos en la caja.
+
+Seorin fue la primera en sacar el filo.
+
+—Suelta eso.
 
 El comerciante joven apretó los dientes.
 
-—No. Esto es…
+—No puedo. Esto es…
 
-—Si te mueres, esa caja también se acaba.
-Seorin lo cortó.
+—Si te mueres, la caja también se acaba.
 
-Pero la mirada del otro solo temblaba,
-y la mano no se soltaba.
+Seorin lo cortó en seco.
 
-Sion, en el momento en que vio esa cara, lo supo.
-Eso no se resuelve con regaños.
+Sion miró aquella cara.
 
-Tragó un aliento corto y dijo.
+Los ojos vacilaban, pero las manos no se despegaban. No era que no pudiera soltarla por miedo. Sabía lo que era el miedo y aun así no la soltaba.
+
+Sion pensó en el fardo que había pateado ayer.
+
+Aquella mujer, con el niño en brazos, había dado tres pasos y se había vuelto a mirar. No hacia el fardo, sino hacia Sion. Esos ojos todavía le duraban.
+
+Había sido lo correcto. Correcto, y aun así esos ojos le duraban.
+
+Sion tragó saliva una vez.
 
 —Yo la llevo.
 
-El comerciante joven lo miró, atónito.
+El comerciante joven miró a Sion, aturdido.
 
-—Primero mueve a la gente —dijo Sion—. Si sigues vivo después, ya me insultas.
+Seorin también miró hacia Sion. Tenía cara de preguntar qué estaba haciendo, pero no lo detuvo.
 
-Aquellas palabras prendieron de un modo extraño.
+—Primero hay que mover a la gente.
 
-El comerciante joven por fin soltó la caja,
-y Seorin la atrapó al vuelo y la lanzó hacia atrás. Sion abrazó el brazo del anciano y lo sostuvo con el cuerpo, y los tres giraron hacia dentro casi a la vez.
+Lo dijo Sion.
 
-En ese instante,
-desde lejos subió la señal del lado de Harún.
+—Si después sigue vivo, me insulta entonces.
 
-Era el final.
+El comerciante joven soltó la caja.
 
-Zahir estaba de pie, él mismo, frente a la línea central.
+Sion la recogió. Al tenerla en las manos lo supo. Creía que pesaría, pero era ligera.
 
-No apuraba a nadie para que huyera,
-no lloraba,
-no daba más explicaciones.
+Algo tan ligero, y no había podido soltarlo así.
 
-Solo parecía
-alguien que miraba hasta el final
-el instante en que esta ciudad cerraba con sus propias manos su propio corazón.
+Sion supo que aquello no era precio. Lo que vale mucho no es ligero.
 
-—Ahora —dijo en voz baja.
+Seorin le arrebató la caja y la lanzó hacia atrás. La había lanzado hacia dentro. La caja rodó hasta el interior del pasillo.
 
-Kael arrancó la última placa de sujeción,
-y en el punto que había señalado Ater se cortó la línea de energía. Un zumbido metálico, bajo, se extendió largo por debajo del suelo central, y el marco de unión que sostenía ambos lados perdió la fuerza al mismo tiempo. Las carpas del mercado que descansaban encima, junto con las pasarelas y la estructura del entramado ligero, se vinieron abajo con un compás de retraso.
+—No corras cargándola.
 
-El ruido fue grande.
+Lo dijo Seorin.
 
-No fue una explosión.
-Pero por eso mismo fue más cruel.
+—Tírala y recógela después.
 
-Era el ruido de todo aquello que durante mucho tiempo había pasado por manos de la gente,
-que durante mucho tiempo había llevado un precio,
-que durante mucho tiempo había dejado pasar risas e insultos,
-viniéndose abajo de una sola vez.
+Sion se pasó el brazo del anciano por el hombro. El anciano pesaba menos de lo que creía. De todo lo que Sion había cargado hoy, nada pesaba.
+
+Los tres corrieron hacia dentro.
+
+Mientras corría, vio subir la señal del lado de Harún.
+
+Era la última.
+
+Zahir estaba de pie frente a la línea central.
+
+No retrocedía ni apuraba a nadie. Era un hombre que estaba allí de pie para ver hasta el final cómo esta ciudad se cerraba con sus propias manos.
+
+Sion, mientras corría, vio su perfil.
+
+Zahir era el más alto de esta ciudad. Se sentaba con la partida delante; no fijaba los precios, pero estaba en el sitio donde los precios se fijaban, y no había alzado la voz ni una sola vez.
+
+Tampoco ahora la alzaba.
+
+Sion pensó que era porque ese hombre era el que más tiempo llevaba mirando esta ciudad. Seguramente había visto levantarse la línea central del mercado y también la había visto crecer. El que más tiempo la había mirado había dicho que la cerraran.
+
+Y no se iba atrás sin ver cómo se cerraba.
+
+—Ahora.
+
+Zahir lo dijo en voz baja.
+
+Kael arrancó la última placa de sujeción. En el punto que había indicado Ater, la línea de energía se cortó.
+
+Una vibración baja se extendió largamente bajo el suelo.
+
+Los marcos de unión que sujetaban ambos lados perdieron la fuerza a la vez.
+
+Hubo un tiempo.
+
+Durante ese tiempo, Sion vio que nada se derrumbaba. Lo que lo sostenía había desaparecido, pero lo de encima seguía igual. Parecía que, de tanto tiempo apoyado, recordaba el sitio donde estaba apoyado.
+
+Y después bajó.
+
+Primero llegaron las lonas. Las siguieron las pasarelas. La estructura del embarcadero llegó al final, y era lo más grande.
+
+El ruido fue enorme.
+
+No era un estallido. Por eso era peor. Un estallido termina de una vez, pero esto no terminaba. Aun después de que bajara lo grande, las cosas pequeñas seguían cayendo, y lo que caía volvía a derrumbar lo que se había amontonado abajo.
+
+Era el ruido de cosas que durante mucho tiempo habían pasado por manos de gente, que durante mucho tiempo habían llevado precio y por las que durante mucho tiempo habían pasado risas e insultos, viniéndose abajo de golpe.
+
+Subió el polvillo.
+
+Lo que había salido antes, al molerse las dos placas de sujeción, no era nada. Esta vez se molió de golpe en todo lo que se derrumbaba.
+
+Subió empujado desde el suelo. Subió y no bajó.
+
+Todavía quedaba el calor del día. El polvillo se posó encima y se extendió a lo ancho, y al extenderse enturbió entera la parte alta de los pasillos.
+
+Sion vio que, por eso, no se veía el otro lado.
+
+Sabía lo que había al otro lado, pero no se veía. Hasta unos días antes, la vista llegaba entera hasta allí.
 
 La línea central del mercado se cerró.
 
-Sion, al volverse a mirar atrás,
-sintió de un modo extraño que algo se le vaciaba por dentro del pecho.
+Lo que hasta hacía un momento era un camino se había vuelto un sitio que no se podía cruzar.
 
-El lugar donde hasta hacía un instante había habido sin duda un camino,
-era ahora apenas un hueco que ya no se podía cruzar.
+Unas cuantas lonas que quedaban en el oeste se inclinaron hacia abajo y desaparecieron. La fila negra que entraba más allá tuvo que torcer de dirección una vez.
 
-Unas cuantas lonas que habían quedado al oeste se inclinaron hacia abajo y desaparecieron,
-y la fila de androides que entraba más allá tuvo también que torcer su rumbo de golpe.
+Harún no dejó escapar ese hueco.
 
-Harún no dejó pasar ese hueco.
+—¡Tomen el ángulo derecho! ¡Si quieren pasar, que tengan que rodear!
 
-—¡Tomen el ángulo derecho! —gritó—. ¡Si quieren pasar, háganlos rodear!
+El hueco abierto a costa de abandonar medio mercado compró tiempo por primera vez.
 
-El hueco que habían hecho abandonando media plaza del mercado
-compró, por primera vez, tiempo de verdad.
+Pero en las caras que miraban ese tiempo no había alivio.
 
-Pero en las caras de quienes miraban ese tiempo,
-antes que el alivio asomó la pérdida.
+Nasim miró una vez lo derrumbado y cerró los ojos un instante.
 
-Nasim miró una vez la línea central derrumbada,
-y cerró los ojos muy brevemente.
+Sion miró aquella cara. Ese hombre le ponía precio a todo antes que nada. Era quien había adivinado que llegaba la guerra porque el cordón térmico había pasado de tres la unidad a cuatro la unidad. También era quien había dicho que abandonaran los precios.
 
-Aquella persona que, en cualquier otro día, habría sido la primera en ponerle precio a algo,
-esta vez no pudo decir nada.
+Ahora no le ponía precio a nada.
 
-Luhai tampoco rió.
-Se quedó mirando, ausente, el lugar donde se había cortado el camino por el que él corría,
-y soltó un aliento, muy pequeño, parecido a una maldición.
+Solo entonces lo entendió Sion.
 
-Seorin ya no dijo nada.
+Ponerle precio a algo es saber cuánto vale, y si sabes cuánto vale, también sabes cuánto has perdido. Si ahora no le ponía precio era porque no quería contarlo.
 
-Miró una vez hacia Sion, que sostenía al anciano,
-y enseguida volvió a girarse hacia atrás.
+Unos días antes, ese hombre lo había dicho. Que el miedo siempre sube primero el precio. Que el precio se mueve primero y la gente después.
 
-Porque aún no había terminado.
-Porque, más bien, quizá lo verdadero empezaba a partir de ahora.
+Ahora el precio no se movía en absoluto. Era porque ya no había dónde ponerlo.
 
-En el sector interior,
-Han Jiwoo también oyó aquel ruido del derrumbe.
+Luhai miraba el sitio donde se cortaba el camino por el que había corrido de un lado a otro, y soltó el aliento muy bajito.
 
-Bajo su mano la junta tembló un instante.
-El barco, como si supiera lo que había pasado afuera,
-gimió una vez, grave.
+Seorin no decía nada.
 
-Aka dijo muy en voz baja.
+Miró una vez hacia Sion, que sostenía al anciano, y enseguida volvió a mirar atrás. Era porque todavía no había terminado.
+
+Dentro, bajo la mano de Han Jiwoo, la junta tembló un instante.
+
+El barco gimió una vez, bajo.
+
+Aka habló en voz queda.
 
 —Se cerró.
 
-Han Jiwoo no respondió.
+Sion miró la caja que había rodado hasta el interior del pasillo.
 
-En su lugar contuvo un aliento tembloroso
-y volvió a apretar la mano.
+Nadie la había recogido. Ni siquiera su dueño. Tenía las manos ocupadas llevando al anciano, y aun después de tenerlas libres no fue hacia la caja.
 
-Porque la razón por la que este barco tenía que cobrar vida
-se había vuelto, una vez más, más clara.
+Sion la recogió.
 
-Hazran, hace un instante,
-para sobrevivir, cerró de verdad la línea de su corazón.
+La recogió y se la dio al comerciante joven.
 
-Y desde ese instante,
-esta batalla se iba volviendo no una simple defensa,
-sino una lucha por enviar al fin a alguien al otro lado del corazón derrumbado.
+El comerciante la tomó y volvió a abrazarla contra el pecho. Después de abrazarla miró una vez a Sion, pero no le dio las gracias.
+
+Sion no esperaba esas palabras.
+
+Al fin y al cabo, el que había dicho aquello antes era él. Le había dicho que, si después seguía vivo, lo insultara entonces. Ahora que ese hombre estaba vivo, tenía derecho a insultarlo, y no lo hizo.
+
+Sion se miró las manos.
+
+Ayer, con estas manos, había pateado la carga de otro. Hoy, con estas manos, le había llevado la carga a otro.
+
+Las dos cosas las había hecho para que la gente se moviera. Patearla ayer fue lo correcto y llevarla hoy también.
+
+Pero ayer aquella mujer se había vuelto a mirar, y hoy este hombre no.
+
+Sion supo de dónde venía esa diferencia.
+
+Hay veces en que lo correcto es hacer que alguien abandone lo que vale, y veces en que lo correcto es llevarle lo que no vale nada. Si eliges lo primero, esa persona se pierde a sí misma; si eliges lo segundo, pierdes tiempo.
+
+Hoy había sobrado tiempo. Lo habían comprado cerrando la línea central.
+
+Sion miró lo derrumbado.
+
+El polvillo todavía flotaba y no se veía el otro lado.
+
+El fardo que había pateado ayer seguramente seguía allí. Ya no se podía cruzar.
 
 ---
 

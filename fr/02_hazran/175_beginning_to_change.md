@@ -78,7 +78,7 @@ Mais le prix de cet apprentissage était trop lourd.
 
 Un enfant sanglota :
 
-« Il est tout seul... »
+« Il est tout seul… »
 
 Tout le monde le savait déjà, mais une fois les mots prononcés, la vérité devint bien plus cruelle.
 

@@ -1,304 +1,325 @@
 # Episode 48. The Run Where Values Were Shouted
 
-After Luhai received his half-right answer, the courtyard air came more alive.
+After Luhai was handed his half-right answer, the courtyard air came even more alive.
 
-More than a perfect hit, a near-miss keeps the board boiling longer.
+Getting it vaguely right keeps a board boiling longer than getting it completely right.
 
-Sion felt it immediately. The murmur that had been suppressed until just now spread more openly this time. People were mocking Luhai's half-success while simultaneously calculating how much bigger the next round would grow. If even imitations carried value, if anything short of complete failure could push things to a larger board, then this was no simple sorting game. It was a warm-up round perfectly suited to pushing higher all at once the gazes, money, rumors, and expectations that had gathered in the courtyard.
+Sion felt that at once. The murmuring that had been held down a moment ago now spread more openly. People were jeering at Luhai's half success while at the same time calculating how big the next board would grow. If even an imitation took a price, and anything short of total failure could move on to a bigger board, this was no simple sorting game. It was a warm-up round, just right for pushing everything gathered in the courtyard so far—the eyes and the money, the rumors and the expectation—higher all at once.
 
-The moderator at the center did not keep Luhai standing long. He left only the words that half was correct and that even imitations held value, then immediately stepped him aside. The three cloth-draped pedestals were cleared at once by quiet hands. This floor did not dwell on answers. It knew better how to raise the next stake before the rhythm died.
+The host at the center didn't keep Luhai standing long. He left only the words that it was half right and that even an imitation had a price, then sent him straight off to the side, and quiet hands cleared away the three black-draped stands at once. This floor doesn't hold on to an answer for long. It knows better how to raise the next stakes before the rhythm dies.
 
-Luhai muttered with a rigid face as he came down.
+Luhai muttered as he came down, his face set hard.
 
-"The most infuriating kind."
+"That's the most infuriating kind."
 
-This time Seorin caught it low.
+This time it was Seorin who answered, low.
 
 "Because you weren't completely wrong."
 
-Luhai twisted his lip. He could not argue. A complete failure would have ended with one curse, but now what lingered was the fact that he had genuinely caught the scent.
+Luhai's mouth twisted crookedly. He couldn't argue. If it had been a complete failure, he would have cursed once and been done; as it was, what stayed with him more was that he had caught the right scent after all.
 
-Then, from the deepest seat inside, Zahir rose very slowly.
+Just then, from the deepest place inside, Zahir rose very slowly to his feet.
 
-The courtyard air sank at once.
+The courtyard air sank all at once.
 
-Until now, the man running the board had been the moderator at the center. The one translating rules with a smile had been Nasim. The one sorting hands had been Harun. But the moment Zahir moved himself, Sion knew that what came next was an entirely different stage from before. This man did not simply add words to results. He was the one who flipped the board itself on a larger scale.
+Until now the one running the board had been the host at the center, the one translating the rules with a smile had been Nasim, and the one keeping the hands in order had been Harun. But the moment Zahir moved himself, Sion could tell that from here on was an entirely different stage. This man didn't just add a word to the results. He was the one who turned the board itself over, bigger.
 
-Zahir did not come down to the center. Instead, he stood at the edge of a high metal walkway inside and looked down over the courtyard.
+Zahir did not come down to the center. Instead he stood at the end of a high metal walkway on the inside and looked down over the courtyard.
 
-"You have all seen the eyes."
-He said low.
-"Now let us see the hands."
+"The eyes have seen it all,"
+he said, low.
+"Now let's see the hands."
 
-That quiet voice traveled with unnatural clarity to the far edges.
+That small voice carried strangely clear and far.
 
-The murmur around them died on its own.
+The murmuring around them died on its own.
 
-Zahir moved his gaze slowly. Sion, Seorin, Ater, Kael, Luhai, Aka beside Nahira. And lastly, his gaze lingered long on a single dark corridor beyond the courtyard.
+Zahir moved his gaze slowly. Sion, Seorin, Ater, Kael, Luhai, and Aka beside Nahira. And last, his eyes rested a long time on one dark passage outside the courtyard.
 
-Sion turned his head, following that direction.
+Sion turned his head to follow.
 
-Through the gap in the black tent covers, two familiar silhouettes were being pushed inside.
+Through a gap in the black tents, two familiar silhouettes were pushed inside.
 
-Jiwoo.
+Han Jiwoo.
 
 And Sern.
 
-Sion's breath stopped first.
+Sion's breath stopped before anything else.
 
-Jiwoo was alive. Not entirely uninjured, but no trouble walking. A face marinated in dust and heat, an expression of barely suppressed irritation from being dragged by force—but the eyes were not dead yet. Sern was the same. He looked pale but not disheveled, and his eyes were already reading the structure of this place the moment he entered. Neither was bound. Instead, like people for whom the range of possible movement had already been decided, they walked in flanked by hands on either side.
+Han Jiwoo was alive. She wasn't entirely unhurt, but she seemed to have no trouble walking. Her face was cured in dust and heat, and she wore the look of someone dragged here against her will with her irritation pressed down hard, but her eyes weren't dead yet. Sern was the same. He looked pale but not disordered; if anything, his were the eyes that read the structure of the place first, the moment he came in. Neither of them was bound. Instead, like people for whom how far they could move on their own had already been decided, they were walking in with hands close at either side.
 
-In that moment, Sion understood once more, one layer deeper, what kind of person Zahir was.
+In that moment Sion understood once again, more deeply, what kind of man Zahir was.
 
-This man had not been unaware of Jiwoo and Sern until now. He had already known, held them just enough to hold, and withheld their reveal until the moment their value peaked.
+This man had not been unaware of Han Jiwoo and Sern until now.
+He had already known,
+had held them only as much as he needed to,
+and had kept them out of sight until the moment their price would be highest.
 
-Seorin exhaled a breath that was nearly a curse, very low.
+Seorin let out a very low breath, like a curse.
 
 "Insane."
 
-Ater's gaze shook clearly for the first time.
+Ater's eyes, too, wavered very plainly for the first time.
 
-Kael, standing on a different line, immediately turned his body. Luhai stared at Sern with his mouth slightly open. Aka did not move, but Sion did not miss her gaze pausing once—not on Jiwoo, but on Sern. The calculating hand. Different from the reading hand, but a hand that read the board as structure.
+Kael, though standing on a different line, turned his body at once, and Luhai looked at Sern with his mouth slightly open. Aka didn't move, but Sion did not miss her gaze stopping once on Sern rather than on Han Jiwoo. A calculating hand. Different from a reading hand, but a hand that reads the board as structure.
 
-Nasim smiled thinly.
+Nasim smiled very thinly.
 
-"Now the team's complete."
-He murmured.
+"Now the teams add up,"
+he muttered.
 
 Zahir spoke.
 
-"You wanted to save the ship."
-He was speaking not to Sion's group but to the entire courtyard.
-"You needed etherite, and you needed a hand that could confirm the name."
+"They wanted to save their ship."
+He was speaking not to Sion's party but to the whole courtyard.
+"They needed Etherite, and they needed a hand to confirm the name as well."
 
-He glanced briefly toward Jiwoo and Sern.
+He glanced at Han Jiwoo and Sern for just a moment.
 
-"Then you need two more hands to make it right."
+"Then it only adds up with two more hands."
 
-This was the moment Zahir re-paired the four outsiders who had rolled in from beyond Hazran to fit his board's rules.
+It was the moment Zahir paired off anew the four outsiders who had rolled in from beyond Hazran, to fit the rules of his own board.
 
-The instant Jiwoo saw Sion, she narrowed her eyes very briefly.
+The moment Han Jiwoo saw Sion, she narrowed her eyes, very briefly.
 
-Are you alive. Are you hurt. What is this mess.
-All of it fit inside that single short glance.
+Are you alive, are you hurt, what kind of mess is this.
+It was all there in that one short look.
 
-Sion moved his chin by the smallest degree instead of answering.
+Instead of answering, Sion moved his chin very slightly too.
 
-Alive. For now.
+Alive.
+For now.
 
-Sern swept one look at Kael's side and one across the central courtyard's structure, then said very quietly.
+Sern swept his eyes once toward Kael and once across the whole layout of the courtyard, then spoke very quietly.
 
-"Opened bigger than I expected."
+"It has opened wider than expected."
 
-Luhai scoffed almost by reflex.
+Luhai snorted almost by reflex.
 
-"Acting calm when you got dragged in too."
+"You got dragged in too, and you're pretty good at acting calm."
 
-Sern barely changed his expression at that.
+Sern's expression barely changed at that either.
 
-"For someone dragged in, I was revealed pretty late."
-He said.
-"Then there's a reason."
+"For people who were dragged in, we were shown late,"
+he said.
+"Then there is a reason."
 
-Zahir continued directly to the next sentence.
+Zahir went straight on to his next sentence.
 
-"Tonight's proof does not end in the courtyard."
-He said.
-"It happens on the road that extends outside."
+"Tonight's proof doesn't end in the courtyard,"
+he said.
+"It's decided on the roads that run outward."
 
-At the same moment, the sound of metal latches releasing rang out in succession from the outer hull walls surrounding the circular courtyard.
+At the same moment, from all over the outer hull walls ringing the round courtyard, the sound of metal latches coming loose rang out one after another.
 
-Clank.
-Clank.
-Clank.
+A latch snapped open.
+Another.
+Another.
 
-Every gaze turned outward.
+Every eye turned outward.
 
-Sections of the walls enclosing the courtyard opened, revealing the outer districts that had been hidden behind them. The glide strips attached beyond the red tent zone. The edge of the plains where sand wind scraped thin across. The high ground where half-collapsed hull frames continued. The sectors where vitrified ground gleamed darkly in the distance beneath the heat layer. The entire outskirts of Hazran were connected like a single arena.
+Part of the wall that enclosed the courtyard opened, revealing the outer zone that had been hidden behind it. The glide line laid beyond the red-tent quarter, the edge of the plain where the sand wind skimmed thinly past, high ground where half-collapsed hull frames ran on and on, and even the sector where vitrified ground glinted darkly in the distance under the heat layer. All of Hazran's outskirts ran together like a single arena.
 
-Seeing it, Sion understood at once.
+The moment Sion saw it, he understood.
 
-This was not just a board. This was the signature race Hazran had always shown its people.
+This was no mere board.
+It was the signature race Hazran had always put on for people.
 
-The moderator at the center stepped forward.
+The host at the center stepped forward.
 
-"Ember Run."
-He called out.
+"The Ember Run,"
+he shouted.
 "That is the name of tonight's proof."
 
-This time the crowd surged unmistakably.
+This time the crowd truly boiled over.
 
-Until now they had been weighing value with their eyes alone. Now their bodies leaned forward first.
+Until a moment ago they had only been weighing prices with their eyes; now their bodies surged forward first.
 
-That reaction was clearer than any explanation. This was the main event the people of Hazran had been waiting for.
+That reaction was clearer than any explanation. This was the main event the people of Hazran had been waiting for all along.
 
-When the moderator extended his hand, desert skiffs and glide craft that had been concealed beneath the shade outside the red tent covers revealed themselves one by one.
+When the host stretched out his hand, desert skiffs and glide craft that had been hidden in the shade outside the red tents came into view one by one.
 
-Low, elongated hover plates. Hulls that cut shallow through sand. Patched engine housings. Exteriors crudely kept alive with cloth scraps and metal clasps. Some looked nearly like scrap. Some were sleekly trimmed. Some were sharp enough to look like they were built to kill. But they shared one thing in common.
+Hover plates stretched low and long, hulls that skimmed shallow through the sand, engine housings torn open and refitted, outer shells patched back to life with scraps of cloth and metal clamps. Some were almost junk, some were trimmed sleek, and some were so sharp they looked built outright to kill people. But they had one thing in common.
 
-Every single one should have died at least once, yet had been forced back to life and motion.
+Every one of them was a craft that should have died at least once, and had been forced to live and move again.
 
-Jiwoo's eyes changed clearly for the first time.
+For the first time, Han Jiwoo's eyes changed unmistakably.
 
-Above the irritation and wariness, a pilot's instinct for reading a craft rose first. Not whether it was good or bad, but where it had died and where it could be saved—that was the eye reading them.
+Above the irritation and the wariness, a pilot's instinct for looking at a craft rose first. It was an eye that read, before whether a craft was good or bad, where it had died and what could still be saved.
 
-The moderator called out.
+The host raised his voice.
 
-"Twelve teams ride desert skiffs."
-He said.
-"All chase the same ember. But the lines that survive to the end are different for each."
+"Twelve ride desert skiffs,"
+he said.
+"All going for the same ember. But the line that survives to the end is different for each."
 
-Flags rose in sequence onto a high metal board.
+Flags rose one after another over the high metal plate.
 
-Familiar local team names burst from the crowd's mouths. The Ahmardan regulars. The independent scrapyard team. The smuggler team. Last year's champions. The reckless drifter team.
+Familiar local team names leapt from the crowd's mouths.
+The Ahmardan regulars.
+The independent scrapyard team.
+The smugglers' team.
+Last year's champions.
+The reckless drifters' team.
 
-Cheers and jeers tangled together.
+Cheers and jeers mixed all at once.
 
-This was not a board thrown together on the spot. It was a race already scheduled to open, and Zahir had slotted two outsider teams in like the most expensive cards.
+This was not a board made up on the spot. It was a race that was going to be held anyway, and Zahir had slipped the outsiders' two teams into it like the most expensive cards.
 
-The moderator pointed in three directions.
+The host pointed in three directions.
 
-"Three zones."
-He said.
-"The red glide strip. The derelict wreckage zone. The heat-layer ember zone."
+"Three zones,"
+he said.
+"The red glide strip. The hulk wreckage zone. The heat-layer ember zone."
 
-With each name that dropped, Sion felt the arena before his eyes shift differently.
+Each time he spoke a name, Sion felt the arena before him look different.
 
-The red glide strip was the opening stretch breaking out to the sand plains on the outskirts of the scrap market. Fall behind and you were immediately left behind; trust speed alone and you would be shredded by the craft beside you.
+The red glide strip was the opening stretch, running out onto the sand plain at the edge of the scrap market. Fail to build speed and you fell behind at once; trust speed alone and you would be ground away by the craft beside you.
 
-The derelict wreckage zone would be a stretch where lines that looked like paths overlapped with lines that were not. The eye for reading course over speed had to survive.
+The hulk wreckage zone would be a stretch where lines that looked like paths but weren't lay over one another. There, more than speed, the eye that reads the course had to stay alive.
 
-The heat-layer ember zone was farther still. Where real and false reactions would be mixed inside vitrified ground and heat distortion.
+The heat-layer ember zone was farther still. A place where real and false readings would be mixed together in the vitrified ground and the warping heat.
 
-The moderator continued.
+The host went on.
 
-"The Ember Run does not end just by arriving first."
-He said.
-"You must choose the ember placed at the end point and carry it back alive."
+"The Ember Run isn't over just because you come in first,"
+he said.
+"You pick out an ember set at the end point and bring it back still alive."
 
-"What if it's fake?"
-Someone in the crowd shouted.
+"And if it's fake?"
+someone in the crowd shouted.
 
-"Your value gets cut."
-The moderator answered.
+"Your price gets cut,"
+the host answered.
 
-"What if you come back empty-handed?"
+"And if you come back empty-handed?"
 
-"Cut even deeper."
+"It gets cut harder."
 
 This time Nasim cut in smoothly.
 
-"In Hazran, a hand that holds right to the end costs more than a hand that's only fast."
+"In Hazran, a hand that holds on right to the end is worth more than a hand that's only fast."
 
-The words were irritating but precise.
+It was galling, but it was exact.
 
-This was not simply a board for seeing who burst out first. It was a board for seeing the hand that handled a craft, the hand that read a path, the hand that sorted real from false at the end, and the hand that brought it back without letting it die—all at once.
+This wasn't a board that only watched who shot out first.
+The hand that handles the craft,
+the hand that reads the way,
+the hand that tells the real thing apart at the end,
+and the hand that brings it back without letting it go out—a board that watched them all together.
 
-Sion searched for Aka instinctively.
+Sion looked for Aka on instinct.
 
-Aka was still beside Nahira. But her face was not entirely blank. Each time a zone name was called, her gaze shifted by the smallest degree, and only when the heat-layer ember zone was mentioned did her eyes linger a beat longer.
+Aka was still beside Nahira. But she wasn't completely blank. Each time a zone was named her gaze moved very slightly, and only when the heat-layer ember zone came up did her eyes stay there a moment longer.
 
-Sern looked in the same direction at almost the same instant.
+Sern looked that way at almost the same time.
 
 Sion did not miss that brief overlap.
 
-The real test was in the final zone. And those two already knew it.
+The real test is in the last zone.
+And those two already know it.
 
-The moderator called out.
+The host shouted.
 
-"The two outside hands are added as exceptions."
+"The two outside hands go in separately, as an exception."
 
-Every gaze in the crowd converged on this side at once.
+Every eye in the crowd swung this way at once.
 
 "First."
-He extended his hand.
-"Jiwoo. Sion."
+He stretched out his hand.
+"Han Jiwoo. Sion."
 
-Sion's heart dropped once, hard.
+Sion's heart dropped hard, once.
 
-He had expected the name, yet when it was actually called bound like that, his body reacted first. It was the sensation of finally finding his proper place only after coming this far. Jiwoo and himself. This was not a random assignment but the pairing that should have been right from the start.
+He had expected the names, and still, when they were actually called together like that, his body reacted first. It felt like only now, after coming this far, finding his proper place. Han Jiwoo, and him. This wasn't a random assignment; it was the pairing that had always been meant to go together.
 
-Jiwoo exhaled shortly.
+Han Jiwoo let out a short breath.
 
-"Now it makes sense."
-She said low.
+"Now that makes sense,"
+she said, low.
 
-Sion nearly smiled. In the middle of the tension, those words straightened his back in a strange way.
+Sion almost laughed.
+In the middle of all that tension, those words strangely straightened his back.
 
-The moderator called the second.
+The host called out the second.
 
 "Kael. Sern."
 
-Kael looked immediately toward Sern, and Sern was already looking his way.
+Kael looked toward Sern at once, and Sern was already looking his way.
 
-The two were not practiced like people who had worked together before. But strangely, their faces showed instant understanding of what axis each needed from the other. The hand that endured with the body, and the hand that read structure. On a board like Hazran's, it was a pairing that might look slow but would not die.
+The two of them weren't easy with each other like people who had ever worked in step. And yet, strangely, they had the faces of men who understood at a glance what axis each needed from the other. A hand that holds out with the body, and a hand that reads structure. On a board like Hazran's, a pairing that looks slow but doesn't die.
 
-Luhai clicked his tongue watching that.
+Luhai saw it and clicked his tongue quietly.
 
-"Wow, they really rolled this up proper."
+"Wow, they really set this one up right."
 
-Nasim smiled.
+Nasim laughed.
 
 "That's what makes it fun."
 
-The moderator added one last thing.
+The host added one last thing.
 
-"The signal comes once."
-He said.
-"When the incendiary shell bursts and its ember touches the sand, everyone starts."
+"There's one signal,"
+he said.
+"The red flare bursts, and the moment its ember touches the sand, everyone goes."
 
-On the high pillar beyond the red tent covers, a single red metal warhead was already hanging. As though it had been waiting for this night all along.
+Atop a tall pillar outside the red tents, a single red metal warhead already hung in place. As if it had been waiting a long time for this night alone.
 
-Jiwoo said low.
+Han Jiwoo spoke, low.
 
-"We need to look at the craft first."
+"We have to look at the craft first."
 
 Sion turned his head.
 
-Jiwoo was already wearing the face of someone picking out the least dead craft and the most dying craft at the same time.
+Han Jiwoo already had the face of someone picking out the least dead craft and the most dying one at the same time.
 
-"I look first at what I can save."
-She said.
+"I'll look for one worth saving first,"
+she said.
 "You memorize the route."
 
-Sion answered immediately.
+Sion answered at once.
 
 "Got it."
 
-Short. But those two words were enough.
+It was short.
+But those two words were enough.
 
 Zahir spoke one last time.
 
-"Run."
-He said low.
+"Run,"
+he said, low.
 "And prove why that ember should be in your hands."
 
-That sentence was not directed only at the two outsider teams. But Sion felt it clearly. Those words fell heaviest on them right now.
+Those words weren't only for the two outsider teams.
+But Sion felt it clearly.
+Right now, they had fallen heaviest on the two of them.
 
-The twelve teams split toward the starting line beyond the red tent covers.
+The twelve teams split up and moved toward the starting line outside the red tents.
 
-The local teams climbed aboard their craft with practiced hands.
+The local teams climbed onto their craft with practiced hands.
 
-Jiwoo swept quickly through the skiffs lined up in a row, then stopped not before the sleekest one but before the one dying most honestly. The right hover plate rose slower than the other side and the engine tremor was uneven, but the response itself held no lies. Jiwoo's face showed she knew: a craft that revealed where it had died was better for her hands than one that forced its strength to hide or pretended to be fine.
+Han Jiwoo swept quickly through the skiffs lined up in a row, and stopped not in front of the shiniest one but in front of the one dying most honestly. Its right hover plate lifted later than the other side and the engine's shudder was uneven, but its response itself held no lie. Han Jiwoo had the face of someone who knew that a craft which showed at once where it had died suited the hand better than one that hid its strength by force or pretended to be good.
 
-"This one survives at least once."
-She said very low.
+"This one will hold out once,"
+she said, very low.
 
-Hearing that, Sion looked at the worn hull again without realizing it. To anyone's eyes it was close to scrap, yet in Jiwoo's hands, the lines that could be saved and the lines that had to be abandoned already seemed fully read.
+Hearing that, Sion found himself looking at the old hull again. Anyone would call it close to junk, yet in Han Jiwoo's hands the lines that could be saved and the lines to be thrown away all seemed already read.
 
-On the opposite side, Kael stood before a craft with thick framing and a solid undercarriage rather than a sleek glider. By speed alone it might fall behind, but passing through the wreckage zone, this kind would not tear apart to the end. Sern briefly scanned the hull's load balance and the steering axis misalignment beside him, then nodded toward the option with a higher survival-return probability over the shortest distance.
+On the other side, Kael stood not before a sleek glider but before a craft with a thick frame and a solid lower chassis. In speed alone it might fall behind, but going through the wreckage zone, a thing like that doesn't tear apart, right to the end. Beside him, Sern ran a brief look over the hull's load and the twist in the steering axis, then nodded for the better odds of coming back alive over the shortest route.
 
-"Slow, but it won't die."
+"Slow, but it won't die,"
 Kael said.
 
-"Right now, that's more expensive."
+"Right now, that is worth more,"
 Sern answered.
 
-The entire courtyard tilted with that movement.
+The whole courtyard leaned along with those movements.
 
-And the moment he saw the hand holding the incendiary shell rise atop the high pillar, Sion felt it once more with certainty.
+And the moment he saw the hand holding the red flare rise atop the tall pillar, Sion felt it once more, for certain.
 
-Hazran was not trying to kill them right now. It was trying to see what they were—hands that could hold on to the end.
+Hazran, right now,
+was not trying to kill them,
+but trying to see what their hands would hold on to, right to the end.
 
 ---
 

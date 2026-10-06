@@ -32,7 +32,7 @@ se acercaba al lado que mentía un poco menos.
 
 Aka habló muy bajo.
 
-—Aquí está menos pulido —dijo.
+—Aquí está menos pulido.
 
 Luhai respondió enseguida.
 
@@ -109,11 +109,11 @@ demoró un instante muy breve y miró a Luhai.
 
 Luhai parpadeó una vez, con cara de tonto.
 
-—...¿Señora?
+—…¿Señora?
 
 Han Jiwoo lo miró con una cara de fastidio.
 
-—... Llámame hermana.
+—…Llámame hermana.
 
 Tras un breve silencio,
 Luhai se inclinó enseguida ligeramente y respondió.
@@ -142,7 +142,7 @@ Sion no alcanzó siquiera a sonreír.
 Aka siguió hablando.
 
 —Pero no solo viejo.
-Está hecho de otra manera que lo de arriba.
+—Está hecho de otra manera que lo de arriba.
 
 Aquellas palabras eran cortas,
 pero bastaban para cambiar el sentido de todo el espacio.
@@ -191,7 +191,7 @@ Aquella máquina recorrió una vez los alrededores con la mirada
 y dijo, baja y seca.
 
 —Se puede aguantar un rato.
-No mucho.
+—No mucho.
 
 Esas palabras, precisamente,
 sonaron como la frase que describía con más exactitud todo aquel lugar.

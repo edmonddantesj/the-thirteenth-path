@@ -1,195 +1,382 @@
 # Episode 104. The Corridor Lived Only Because They Paid for It
 
-After the fifth group's first three were pulled forward,
-the inside of Hazran looked like it was repeating the same movement once more.
+"Eighteen."
 
-Cut the people.
-Attach the line.
-Hold the front.
-Keep the ship standing.
+When Aka said it, Sion thought he'd heard wrong.
 
-But Sion knew now.
+"It was fifteen before."
 
-Looking the same doesn't mean it is.
+"Yeah."
 
-Even when the same motions repeat,
-the strength already drained from inside is different,
-the condition of the people holding is different,
-the price going into each motion is different from before.
+"That's three more all at once."
 
-The right corridor was exactly that.
+"Yeah."
 
-On the surface it was still holding.
-Harun was there.
-Sern was there.
-Ater was there.
-The tilted breacher still half-blocked the passage.
+Sion started to ask again and stopped. Asking again, it would still be eighteen.
 
-But in reality,
-that corridor was no longer alive because it was strong.
-It was barely alive because the people standing before it kept paying the price.
+Where Aka's hand pressed the wall, the skin had gone white. That was what came of holding it there so long.
 
-Harun had slowed further.
+"Doesn't your hand hurt?"
 
-His recovery time between breaths grew longer.
-After twisting one angle, the next movement came a fraction late.
-Each small delay
-was being filled by Sern and Ater running more.
+"It hurts."
 
-After his sway earlier, Sern
-had reduced how deep he drove in,
-switching to two short cuts and an immediate pullout.
-But that meant using his whole body more often.
+"Then take it off."
 
-Ater watched and said, brief.
+"If I take it off, I can't hear."
 
-"Sern, lower right only for now."
+"Even just a little—"
 
-"Understood."
+"If I take it off a little, I can't hear a little."
 
-"Harun, back once."
+Sion said nothing more.
 
-Harun answered, very brief this time.
+"Keep counting for me."
 
-"…Just once."
+"Okay."
 
-Sion thought he understood why those words sounded so heavy.
+Sion ran.
 
-It was no longer a fight of *holding longer*.
-It was becoming a fight of *just one more time*.
+In front of the corridor, Ater was watching his angle. Beside him Sern sat with his back against the wall. It was the first time today he had sat down.
 
-Kael on the left wasn't doing well either.
+"Eighteen."
 
-He had the second barrier ready to close,
-which meant
-the left effectively had only one layer of retreating space left.
+Ater did not take his eyes off his angle.
 
-Kael shouted, brief.
+"How many minutes is that?"
 
-"Next one comes in, I close it!"
+"What?"
 
-Zahir nodded—the faintest degree.
+"Eighteen is how many minutes?"
 
-That judgment, too,
-was no longer wrong.
+At that question, for the first time, Sion tried turning the count into time.
 
-More and more places were reaching the stage
-where *save this?* had to give way to *when do we abandon it?*
+He knew how long it took to count eighteen. He'd been counting all this while.
 
-The line before the hull grew denser.
+"About twenty breaths between knocks."
 
-Nasim cut people again in his hoarse voice.
+"And at first?"
 
-"Front three, move!"
-"Rear, hold!"
-"Don't crowd—cut!"
+"It was ten, so about ten breaths."
 
-Seorin didn't bother repeating those words.
-She was already cutting lines with her body.
-Pushing the front person's back.
-Blocking the rear person's chest.
-Adjusting stretcher angles.
-Clearing things that could trip feet.
+"So it is double."
 
-Luhai made exhausted hands grip again.
-Sion counted the unsteady feet beneath the ramp one by one,
-blocking the moment of falling before it happened.
+Then, for the first time, Ater took his eyes off his angle.
 
-Everyone now
-moved by function before emotion.
+"It means what took one hour at first is now taking two."
 
-They knew that doing this too long wears down the inside first,
-but couldn't stop.
+Sion knew where that reasoning was going.
 
-Jiwoo was preparing to receive the fifth group's first three
-when hull vibration and outside metallic sounds overlapped, and she cursed low.
+"Then next?"
 
-"This genuinely can't go on much longer."
+"Next is four hours. After that, eight."
 
-Aka answered very quietly.
+"That's just—"
 
-"It doesn't have to go on long."
+"Yes. Simply, from then on, there is no knocking."
 
-Jiwoo turned her head immediately.
+Sion couldn't move his feet.
 
-Aka, her hand on the hull wall, said.
+Until now he had taken twelve becoming fifteen and fifteen becoming eighteen one at a time. He had thought it was growing one step at a time. It wasn't. The size of each step was itself growing.
 
-"It only has to go long enough to send them."
+"Is that really him knocking?"
 
-Cruel and precise.
+"What do you mean?"
 
-This ship didn't need to fully come alive.
-Right now it only needed to hold long enough
-to carry the people who had to be sent a little further outside.
+"It could just be the sound of stones shifting."
 
-Hazran was the same.
-Not the whole city surviving.
-Just holding long enough to send who needed to be sent.
-
-That thought pressed Sion's chest hard again.
-
-The fact that everyone was holding now
-not to survive together
-but to push someone outside first.
-
-And that outside that push,
-those who stay and those who leave are created at the same time.
-
-Just before the fifth group's first three reached the ramp,
-Sern swallowed one more hard breath in the right corridor.
-Ater saw it immediately.
-Harun couldn't look away this time either.
-
-A short silence.
-
-Then Harun spoke, very low.
-
-"Sern, sit this one out."
-
-Sern tried to argue immediately,
-but Harun cut first.
-
-"This one time, I take it."
-
-The moment those words fell,
-Sion knew instinctively that it wasn't a good thing.
-
-Letting someone sit out once
-means buying that one time with your own body.
-
-Ater's face showed the same feeling.
-
-He spoke at once.
-
-"Then I go forward."
-
-Harun shook his head briefly.
+Ater answered at once.
 
 "No."
-He said, low.
-"You stay as the eyes."
 
-That was a combat judgment.
-And at the same time,
-it meant Harun had begun dividing more clearly
-who pays which kind of price.
+"How do you know?"
 
-The fifth group's first three began to move.
+"Stones have no interval."
 
-Nasim screamed in his cracked voice.
-Seorin cut the path.
-Luhai pushed people.
-Sion cleared the shaking sand and metal fragments underfoot.
+That answer made Sion feel a little better. A pattern meant there was still someone counting.
 
-In the right corridor,
-Harun was truly preparing to push his body forward one more time.
+But that pattern had now stretched to double.
 
-That corridor being still alive now
-was not because the structure was good.
-Not because luck held.
+"How much is left for the digging from above?"
 
-It was because the people standing before it
-kept paying their share of the price.
+"I do not know."
+
+"And from below?"
+
+Ater looked at the bottom of the pile.
+
+"That I know. Within today."
+
+As he turned to go, Sion looked that way.
+
+Sern sat with his eyes closed. He wasn't asleep. His hands were moving a little on his knees, as if gripping something.
+
+"Is he all right?"
+
+"He is resting."
+
+"For how many minutes?"
+
+"For as long as it takes me to count to ten."
+
+Hearing that, Sion looked at Ater.
+
+"Then where are you now?"
+
+"Seven."
+
+Standing there, Sion counted the last three with him.
+
+Eight, nine, ten.
+
+Sern opened his eyes. Getting up with a hand on the wall took him two tries.
+
+Seeing that, Sion ran.
+
+Zahir was in front of the board. He was looking at the marks Sion had drawn. Eight ship marks, and beside them four short strokes.
+
+"Eighteen."
+
+Zahir didn't look back.
+
+"And they say the other side breaks through within today."
+
+"I know."
+
+"You know?"
+
+"He came and went a while ago."
+
+Sion didn't know when Ater had come all the way here and gone back. He didn't know how a man who never took his eyes off his angle had done it, either.
+
+"Then what do we do?"
+
+"I'm deciding now."
+
+"Deciding what?"
+
+Only then did Zahir look at Sion.
+
+"Whether to dig or not."
+
+"You said if we dig, they come in."
+
+"Yes."
+
+"Then we shouldn't dig."
+
+"If we don't dig, they come in anyway."
+
+At that, Sion's breath caught.
+
+"If the other side breaks through today, it opens whether we dig or not,"
+Zahir said.
+
+"So for us, it opens if we dig and it opens if we don't."
+
+"Then—"
+
+"So there's only one thing to decide."
+
+Sion waited for what came next.
+
+Zahir didn't say it. His face was waiting for Sion to say it.
+
+Standing there, Sion felt something catch. Not something from today. Something he'd heard days ago.
+
+He remembered someone below the ramp shifting a metal plate half a hand's width.
+
+"Why move it?"
+"So I get to decide where it hits."
+
+Sion let out a breath.
+
+"When."
+
+Zahir's eyes moved slightly.
+
+"What?"
+
+"If it opens whether we dig or not,"
+Sion said,
+"the only thing left to decide is when it opens."
+
+Zahir said nothing to that for a long time.
+
+"Who taught you that?"
+
+"The one who fixes the ship."
+
+"When?"
+
+"When the breacher came. She couldn't stop it, so she picked where it would hit."
+
+Zahir nodded, very slightly.
+
+"That's right."
+
+Then he turned his body toward the board.
+
+"We decide when it opens."
+
+"Then when?"
+
+"After the ninth line is all aboard."
+
+Sion followed the reasoning.
+
+Once the twenty of the ninth line went out, twenty-eight would be left. While those twenty-eight were pulled back out of the way, they would break through the pile. Breaking through would open the corridor, and when it opened the other side would come in, but by then there would only be twenty-eight here.
+
+"What about the twenty-eight?"
+
+"Put them against the ship."
+
+"That's all?"
+
+"That's all."
+
+"What about him?"
+
+"Who?"
+
+"The person underneath."
+
+For the first time, Zahir took his eyes off the board.
+
+"If we break through, he comes out."
+
+"And once he's out?"
+
+"What he can do once he's out, we'll know when he's out."
+
+"What if he can't walk?"
+
+"Then carry him."
+
+"Where the corridor's open?"
+
+Zahir didn't answer.
+
+Sion had heard that silence many times today. By now he didn't even need to ask what it meant.
+
+"Then what about the ones digging?"
+
+Zahir didn't answer.
+
+"The twelve digging from above. They'll be right there the moment it opens."
+
+"I know."
+
+"Those people—"
+
+"I know."
+
+Sion asked no more. If he asked, it would be the same two words.
+
+"I'll tell them,"
+Zahir said.
+
+"Sorry?"
+
+"I'll be the one to tell them."
+
+Hearing that, Sion understood again why this man had come all the way down below the ramp before.
+
+The deciding could be done from above; the telling of what was decided, he did himself.
+
+"Are you going now?"
+
+"No."
+
+"Why not?"
+
+"If I tell them now, they'll let go."
+
+Zahir looked at the board once more.
+
+"I'll tell them after the ninth line is all aboard."
+
+Sion could work out what hung on that one line.
+
+Those twelve would keep digging for hours more without knowing what their digging would open. If they knew, they'd let go, and if they let go, the other side would break through first. If it broke through first, there would be no choosing.
+
+"That's deceiving them."
+
+"Yes."
+
+Zahir didn't deny it.
+
+"It's deceiving them."
+
+Sion tried to say something more and couldn't.
+
+"You could do it differently."
+
+"How?"
+
+Sion had an answer, and didn't give it.
+
+There was the way of telling them now and asking them to dig anyway. But if they heard that request, the twelve would stay. If they stayed, they'd be there when it opened. Staying knowing, or staying not knowing, they'd be there just the same.
+
+There was one difference. If they stayed knowing, it was something they had chosen.
+
+"Tell them,"
+Sion said.
+
+Zahir looked at Sion.
+
+"Now?"
+
+"Now."
+
+"If they let go?"
+
+"If they let go, then letting go is what they chose."
+
+Zahir didn't move at that answer right away.
+
+After a long while he asked.
+
+"And if we can't break through in time?"
+
+"Then the other side will."
+
+"Then we can't choose."
+
+"I know that."
+
+Sion heard his own voice shaking.
+
+"But them choosing comes first, doesn't it?"
+
+Zahir stood in front of the board and said nothing for a long time.
+
+Then he walked toward the pile.
+
+Sion didn't follow. If he followed, he'd hear what that man said and how, and after hearing it, he wasn't sure he could keep the line in order.
+
+Instead he drew a fifth stroke on the board.
+
+Three trips. And the fifth hour. And eighteen.
+
+The three sat side by side. Sion couldn't take in all three at once. He had to look at them one by one.
+
+A long while later he looked toward the pile.
+
+There were still people on it.
+
+Sion counted.
+
+Eleven.
+
+One was gone. He didn't know who. He hadn't memorized every face.
+
+Sion looked toward the line to find that one, then stopped. He didn't know himself what he'd do if he found them.
+
+The remaining eleven dug at the same speed as before. Knowing hadn't slowed their hands.
+
+That frightened Sion most of all.
+
+Between knowing and not knowing, there was only one hand's difference.
 
 ---
 

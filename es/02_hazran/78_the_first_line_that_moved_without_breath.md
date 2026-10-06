@@ -1,212 +1,221 @@
 # Capítulo 78 — La primera fila que se movía sin aliento
 
-Que la guerra haya llegado ante los ojos
-casi nunca se ve, al principio, como una explosión grandiosa.
+—Se ve.
 
-Más bien es al revés.
+Sern fue el primero en señalarlo.
 
-Una sola cosa que está muy lejos
-se ve primero de una manera tan regular que, justamente por eso, resulta extraña.
+Ante esas dos palabras, Sion miró hacia fuera. No había nada.
 
-Sobre el canal exterior de Hazran,
-en mitad de la luz del alba, cuando la capa térmica todavía no había despertado del todo,
-Sern fue el primero en señalar esa rareza.
+Como la capa térmica aún no había despertado del todo, el aire sobre el canal exterior estaba turbio. Si miras mucho rato algo turbio, ves hasta lo que no hay. Sion lo había aprendido ayer.
 
-—Se ve —dijo en voz baja.
+—¿Dónde?
 
-Con esa sola palabra,
-el aire alrededor se apretó también.
+—En la tercera cresta desde la izquierda.
 
-Sion miró enseguida hacia el exterior.
+Sion miró allí. Había una línea negra.
 
-Al principio creyó que no era nada.
-A lo sumo, una línea negra.
-Una sombra delgada que temblaba un poco sobre el calor.
+Era tan delgada que al principio creyó que era una sombra. Temblaba un poco sobre el calor, y a esa hora todo temblaba así.
 
-Pero pronto pudo darse cuenta.
+Sion estuvo a punto de dejar de mirar, pero no dejó.
 
-Aquello no era algo que temblara,
-sino algo que, incluso dentro del aire tembloroso, no perdía su propio ángulo.
+La manera de temblar era extraña.
 
-No era una persona.
+Todo lo que está sobre la capa térmica se desplaza a la vez. Se desplazan las rocas, se desplazan las tiendas, se desplaza la gente. Pero esa línea negra se desplazaba y volvía a su sitio. Volvía exactamente lo mismo que se había desplazado.
 
-Una persona no se mueve así a esa distancia.
-Quien camina mucho rato sobre la arena pierde el compás del paso,
-y, si la capa térmica está viva, también la silueta se desplaza con ella.
-Pero esa fila negra es distinta. Aunque una fila se sacuda, la fila de atrás vuelve a levantarse con el mismo intervalo exacto. No como quien cae, sino como quien es reemplazado.
+Sion lo vio tres veces. Las tres fue igual.
+
+—No son personas.
+
+Lo dijo Sion.
+
+Sern miró un momento hacia Sion. Sion supo que eran ojos que comprobaban.
+
+—¿Por qué lo ve así?
+
+—Cuando se camina mucho sobre la arena, el paso se descompasa. Y lo descompasado no vuelve a encajar.
+
+Mientras lo decía, Sion recordó de dónde lo había sacado. Era lo que Harún había dicho unos días antes mirando las huellas de la gente que volvía de fuera.
+
+—Eso se descompasa y vuelve a encajar.
+
+Sern asintió brevemente y volvió a mirar hacia fuera.
 
 Ater habló muy bajo.
 
 —Así es.
 
-A Sion le pareció entender por qué esas dos palabras sonaban tan frías.
+Sion creyó entender por qué esas dos palabras sonaban tan frías.
 
-Confirmación.
+Hasta ayer había algo que venía. Los precios raros, el camino que se hundía, las señales demasiado regulares. Todo eran indicios de que algo venía. Los indicios todavía eran indicios, y podían no ser nada.
 
-Ya no era un presagio.
-Había tomado cuerpo.
+Ahora ya no.
 
-—¿Cuántos? —preguntó Zahir.
+Sion volvió a mirar. No era una sola línea negra.
 
-Harún ya miraba desde el borde de la línea exterior.
+Detrás había otras superpuestas. Al principio creyó que eran dos capas, pero mirándolas se hicieron tres, y cuando creyó que eran tres, lo de detrás seguía todavía enganchado en la capa térmica.
 
-—Solo se ve la primera fila —respondió—.
-Pero eso no es solo lo que viene al frente.
+Sion mandó la mirada más lejos para buscar el final. No apareció. Seguía negro hasta donde temblaba el calor.
 
-Nasim se tragó una maldición muy baja.
+La distancia era demasiada para saber cuántos eran, pero cómo venían ya se veía.
 
-Sion volvió a mirar afuera.
+Si la de delante era empujada, la de atrás rellenaba con el mismo intervalo. No había ningún punto en que se detuvieran. Si dentro de la fila se abría un hueco, se rellenaba exactamente lo que se había abierto.
 
-Ahora lo veía.
-No era una sola línea negra,
-sino otras filas superpuestas detrás de ella.
-La distancia todavía era demasiada para sacar el número,
-pero ya se veía el modo.
+Ayer Sion había visto el día entero cómo la ciudad cambiaba de forma. Para girar el ángulo de los puestos, volver a colgar los retazos de tela y pegar los bidones a la pared, se había puesto a ello toda la gente de Hazran.
 
-No se interrumpe.
+Del otro lado, nadie se había puesto a hacer eso. La forma era esa desde el principio.
 
-Si la fila de delante es empujada, la de atrás la rellena con el mismo intervalo.
-No hay detención,
-no hay vacilación,
-no hay ningún hueco dentro del flujo.
+Aka habló muy bajo mirando hacia fuera.
 
-Aka murmuró muy bajo.
+—No hay aliento.
 
-—Sin aliento.
+Ante esas palabras, Sion volvió a mirar lo que acababa de ver.
 
-Esa palabra fue más exacta que ninguna.
+Cuando la gente camina en fila, la fila se estira de vez en cuando y vuelve a apretarse. Si los de delante se cansan, los de detrás se estiran también; si los de delante se asustan, los de detrás se vuelven igual de lentos. Aquello no tenía nada de eso.
 
-Aquello no era un ejército que corría.
-Aquello era una fila sin el ritmo de detenerse a ratos, ese miedo de las cosas vivas.
+Era porque no había nadie con quien acompasar el aliento. Dentro de esa fila nadie miraba quién se había cansado.
 
-La máquina.
+Harún se dio la vuelta en el borde de la línea exterior.
 
-El aire de las afueras de Hazran reconoció también ese nombre.
+—Primer hostigamiento de la línea exterior.
 
-Alguien del lado de la línea de retorno cerró el puño sin darse cuenta,
-y la gente del interior del mercado se quedó aún más callada.
-Aunque todavía no había llegado a tocar nada,
-la ciudad entera se tensó, como si no quisiera acompasar su propio aliento al de esa fila.
+En cuanto cayó la orden, las finas planchas de metal levantadas de antemano fuera de Hazran se inclinaron a la vez. Las placas de inducción térmica enterradas bajo la arena se encendieron y la visión del exterior se torció. Los restos del armazón arrancados de la arena no estaban tendidos en forma de barricada. Estaban tendidos en zigzag, para quebrar la línea recta.
 
-Harún dijo en pocas palabras.
+Sion supo que aquello no tenía forma de detener. Tenía forma de alargar el camino que había que andar.
 
-—Preparen el primer hostigamiento de la línea exterior.
+—No los detengan.
+Harún lo dijo en voz baja.
+—Tuérzanlos.
 
-En cuanto cayó la orden,
-las placas de metal delgadas que estaban levantadas de antemano fuera de Hazran se inclinaron de golpe. Las pequeñas placas de inducción térmica escondidas bajo la arena se encendieron y empezaron a torcer un poco la visión del exterior. Los restos del armazón arrancados de la arena ahora estaban tendidos no tanto como escudos, sino como dientes para quebrar la línea recta del enemigo.
+Dos esquifes del desierto se deslizaron bajos por debajo de la línea exterior.
 
-La primera fila del Imperio, aun así, no bajó la velocidad.
+Eran los mismos que había visto en la carrera. Sion reconoció hasta los arañazos del costado del primero. Era el que aquel día había salido rozando la pared en el último tramo.
 
-Y eso, justamente, daba más miedo.
+Entonces levantaban arena para presumir de velocidad. La levantaban a propósito, bien alta, para que se viera bien desde el lado de los espectadores, y Sion había pensado que era un desperdicio.
 
-Si fuera gente, al surgir un hostigamiento desconocido se detendría una vez.
-Volvería a mirar el ángulo,
-comprobaría si la fila de delante y la de atrás encajan,
-tantearía dónde está la trampa.
+Ahora hacían lo mismo por otra razón. Los dos entraron abriendo el ángulo, alzaron de golpe la arena y el polvo de metal y, antes de que lo levantado volviera a caer, se metieron tal cual en la sombra interior.
 
-Pero esa fila no tenía nada de eso.
+La ruta de salida ya estaba allí de antemano. Era la que Harún había decidido primero ayer.
 
-Si los primeros tres se desviaban un poco,
-los dos de atrás rellenaban enseguida el ángulo vacío.
-El intervalo a izquierda y derecha no se desordenaba,
-y, en lugar de detenerse, parecía como si el cálculo se volviera más rápido.
+En la primera fila, un androide torció brevemente el ángulo.
+
+Sion contuvo la respiración. Pensó que había funcionado.
+
+E inmediatamente detrás, dos cuerpos rellenaron el ángulo vaciado.
+
+El que se había torcido se quedó así, torcido, y simplemente fue empujado hacia atrás. Nadie lo esperó.
+
+Sion tardó en entender lo que había visto.
+
+Si fueran personas, ahí temblaría la fila entera. Si tiembla el de al lado, tiemblas tú también, y al verse temblar unos a otros, se tiembla más. Del otro lado el temblor no se propagaba. El que tembló fue reemplazado.
 
 Sern habló en voz baja.
 
 —La primera fila es la fila desechable.
 
-Ater lo recogió de inmediato.
+Ater lo recogió enseguida.
 
-—Así es.
+—Seguramente.
 
-A Sion la calma de esas dos voces le dio, al contrario, más tensión.
+A Sion esas dos frases le parecieron tan serenas que, al contrario, se le tensó la espalda.
 
-Era por lo bien que lo sabían.
-Hasta qué punto aquello era anormal,
-los dos lo sabían con más nitidez que los demás.
+No era una calma por no saber. Esos dos sabían cómo funcionaba aquello con más exactitud que los demás. Cuanto más sabían, menos había que les sorprendiera, y cuanto menos les sorprendía, más sabían también que aquello vendría de esa manera hasta el final.
 
-Harún hizo una seña a la gente de la línea exterior.
+Una plancha de metal de la línea exterior se partió en dos con un sonido corto y agudo.
 
-—El primer choque no dura —dijo en voz baja—.
-No los detengan: tuérzanlos.
-
-En cuanto terminó de hablar,
-dos esquifes del desierto se deslizaron bajos por debajo de la línea exterior.
-No eran de carrera,
-sino una línea de hostigamiento improvisada, muy propia de Hazran. Levantaron a propósito una gran nube de arena y polvo de metal, torcieron una vez más la visión de la primera fila enemiga y volvieron a meterse en la sombra interior.
-
-Uno de los androides de la primera fila, en ese instante, torció muy brevemente la dirección.
-
-Y enseguida,
-los dos cuerpos de atrás rellenaron ese ángulo vaciado.
-
-Donde una persona habría flaqueado,
-del otro lado simplemente hubo un reemplazo.
-
-Luhai, al verlo, se tragó el aliento en voz baja.
-
-—Vaya…
-
-Dentro de esa breve exclamación había más desagrado que asombro.
-
-Sion cerró el puño sin darse cuenta.
-
-Aquello daba miedo.
-No daba miedo por ser fuerte,
-sino por no vacilar.
-
-A Han Jiwoo se le endureció el rostro en el instante en que vio esa fila.
-
-Sion, al ver esa cara, lo supo de inmediato.
-Aquello no era un simple enemigo.
-Para Han Jiwoo, aquello era
-el resultado de usar la máquina del peor modo posible.
-
-Han Jiwoo dijo muy bajo.
-
-—Si van a usarlas así…
-
-La frase se cortó ahí.
-Pero no hacía falta oírla hasta el final.
-
-Ella estaba furiosa.
-No era la cautela ante un arma o una tropa,
-sino la rabia contra el mundo mismo que había hecho la máquina de esa manera.
-
-En ese momento,
-una de las primeras placas de metal de la línea exterior se partió en dos con un sonido de corte agudo.
-
-El ataque que tocaba directamente todavía estaba lejos.
-Pero, en cuanto algo dentro de esa fila se ajustó una vez,
-la delgada línea de defensa que Hazran había levantado quedó cortada con demasiada precisión.
-
-Ater habló enseguida.
+Ni siquiera estaban todavía a distancia de tocarla.
 
 —Es del tipo cortante.
+Lo dijo Ater.
 
-Sern lo añadió de inmediato.
+Sern lo completó.
 
 —De los que fijan y cortan.
 
+Mientras se guardaba esas palabras en la cabeza, Sion sintió que se le enfriaban las manos.
+
+Fijar y cortar quería decir sujetar y luego cortar. Era el orden de inmovilizar primero lo que podía huir y después encargarse de ello.
+
 Harún, aun oyendo ese análisis, no miró atrás.
-En cambio dijo en voz baja.
 
-—Bien —dijo—.
-Entonces, que caminen más.
+—Bien.
 
-Zahir miraba también en la misma dirección.
+Sion miró hacia él.
 
-Seguía sin alzar la voz.
-Pero el mercado entero ya se movía dentro de ese silencio.
+—¿Qué tiene de bueno?
 
-Hazran miró la primera fila.
+—Gastan tiempo en cortar.
 
-Una fila que se movía sin aliento,
-que rellenaba al instante el lugar vaciado,
-que no se parecía en nada a la vacilación de una persona.
+Harún lo dijo mirando hacia fuera.
 
-Y esa fila,
-ahora, caminaba de verdad hacia Hazran.
+—Si fijan y cortan, es de uno en uno. Mientras tanto, no caminan.
+
+—¿Y entonces?
+
+—Entonces ponemos más cosas que cortar.
+
+Al oírlo, Sion volvió a mirar la línea exterior. Las finas planchas de metal estaban en fila. Antes había creído que eran una barricada.
+
+No eran una barricada. Estaban puestas para hacer que el otro lado gastara tiempo. Era la primera vez que miraba algo puesto ahí para que lo rompieran.
+
+—Entonces que caminen más.
+
+Sion supo que eran las mismas palabras que Zahir había dicho ayer. Que entren y que caminen mucho. Aquí se podía hacer perder sin matar.
+
+Pero el otro lado no parecía perder nada al caminar.
+
+Han Jiwoo estaba de pie a su lado.
+
+Sion no había visto cuándo había llegado. La que debía estar pegada al casco había subido hasta aquí y miraba hacia fuera.
+
+Tenía la cara rígida. Sion supo que no era rigidez de miedo.
+
+—Está bien hecho.
+
+Sion creyó haber oído mal.
+
+—¿Qué?
+
+—Que eso está bien hecho.
+
+Han Jiwoo lo dijo sin apartar los ojos.
+
+—Para coger ese ángulo encima de la capa térmica, habrán tenido que rehacer solo los tobillos no sé cuántas veces. Eso no sale a la primera.
+
+Al oírlo, Sion volvió a mirar afuera. La fila negra se descompasó y volvió exactamente igual que antes.
+
+Hasta hacía un momento solo le había dado miedo, pero ahora veía también que alguien se había pasado mucho tiempo sentado para conseguir que funcionara.
+
+—¿Y entonces por qué te has enfadado?
+
+Solo entonces Han Jiwoo miró hacia Sion.
+
+—Habrán estado mucho tiempo con eso entre manos, ¿no?
+
+—Y si estuvieron tanto tiempo con eso entre manos, habrán sabido qué estaban haciendo.
+
+Han Jiwoo no siguió hablando. En cambio, descruzó los brazos y abrió y cerró la palma una vez. Era el gesto de una mano que solía sujetar piezas y no tenía nada que sujetar.
+
+Al ver esa mano, Sion lo supo.
+
+Con quien se enfadaba esa mujer no era con aquella fila. Era con las manos que se habían pasado mucho tiempo sentadas puliendo esa fila hasta dejarla así.
+
+Sion volvió a mirar la fila negra.
+
+Le salió la costumbre de contar. Ayer había contado hasta nueve. El precio, el pliegue, el hundimiento, la capa térmica, la ruta de salida, el barco que muere tarde, el precio que sube primero, la mano que no se hace responsable, y que sale el sol.
+
+La décima acababa de aparecer.
+
+Que desechan a los de delante.
+
+Sion la contó y, después de un buen rato, lo entendió.
+
+Las nueve anteriores servían para algo si las sabías. Si sabías el precio, sabías cuándo moverte; si sabías la ruta de salida, podías salir; y si salía el sol, la capa térmica se hacía gruesa.
+
+La décima, aunque la supieras, no reducía nada.
+
+Por muy exactamente que este lado supiera que el otro desechaba a los de delante, los de delante que el otro iba a desechar seguían estando ahí.
+
+La fila negra caminaba hacia Hazran.
 
 ---
 

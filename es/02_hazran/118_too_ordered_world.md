@@ -142,7 +142,7 @@ Luhai dijo muy bajo.
 Ater, sin recoger esas palabras,
 mirando aún la ventana, dijo corto.
 
-—Entramos.
+—¿Entramos?
 
 La pregunta era corta.
 Pero la respuesta ya estaba decidida.

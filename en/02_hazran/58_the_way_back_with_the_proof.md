@@ -1,168 +1,229 @@
 # Episode 58. The Way Back with the Proof
 
-The splitting was easy.
+Splitting up was easy.
 
-The problem was surviving toward the same result even after splitting.
+The problem was staying alive after the split, still heading for the same result.
 
-The moment Sern's call dropped, the two craft began tearing away from the same outer line, each carrying a different intent.
+The moment Sern's words dropped, the two craft, each holding a different intent, began tearing through the same outer line.
 
-Kael and Sern's glider rose high once, conspicuously. Not a full climb—but they set their nose far more visibly than Jiwoo's team riding the dirty line below. Making it look as though that side was on the better line, and perhaps the hand carrying the real thing might be over there.
+Kael and Sern's glider lifted once, high and wide. It did not climb all the way. But it set its nose where it would be far more visible than Han Jiwoo's team riding the dirty line below. So that to anyone watching, that side seemed to be riding the better line, and maybe the hand holding the real thing was over there.
 
-Conversely, Jiwoo's skiff pressed nearly to the ground. Beneath the dead slope and broken frame shadows, burrowing only where others deliberately chose not to look. A line that from above would look less like a path and more like a shadow. A line race hands would not ride for the score, and even pursuing hands would hesitate at least once.
+Han Jiwoo's skiff, on the other hand, hugged the ground. It burrowed under the dead slopes and the shadows of broken frames, picking only the places others chose not to look. A line that from above would look less like a path than a shadow. A line a racing hand would skip for the score, and even a pursuing hand would hesitate over at least once.
 
-Sion was uneasy precisely because the difference was so blatant.
+The difference was so blatant that it made Sion uneasy instead.
 
 "Will they buy it?"
-He asked low.
+he asked, low.
 
-Jiwoo answered, eyes only ahead.
+Han Jiwoo kept her eyes ahead as she answered.
 
-"Right now they will."
+"For now, they will."
 
-Before those words finished, the dark-red glider truly angled harder toward Kael's team above.
+Before she had even finished, the dark-red glider really did angle harder toward Kael's team above.
 
-True to an experienced team, their final judgment was fast. The hand holding the real thing disappeared from sight while the bait rode the flashier line. On a board like this, people ultimately bit what was more visible first. The dark-red glider could not shed that habit.
+Like any seasoned team, they made the final call fast. The hand holding the real thing slips away out of sight, and the bait rides a slightly showier line. On a board like this, people end up biting whatever is more visible first. The dark-red glider could not shake that habit.
 
-Sion exhaled very briefly.
+Sion let out a very short breath.
 
 They bought it.
 
-But he was not fully at ease. That team would not stay fooled forever. At some point they would try to confirm again, and if this side could not vanish completely before then, the board would narrow once more.
+But he could not fully relax. That team would not stay fooled forever. Sooner or later they would try to check again, and if this side could not vanish completely before then, the board would close in again.
 
-"How long does it hold?"
+"How long will it hold?"
 Sion asked.
 
-This time Jiwoo spoke with something like a smile.
+This time Han Jiwoo answered almost as if she were smiling.
 
 "Long enough that we don't die first."
 
-Kael and Sern's glider, covering behind, deliberately rode the living line one more time in an exaggerated show. Kael openly raised the craft to create an angle the dark-red glider would want to bite, while Sern kept just enough distance not to be caught too easily through it all. Close in and it pulled away; let go and it showed itself again.
+Covering the rear, Kael and Sern's glider deliberately made a show, one more time, of riding the live line big. Kael openly stood the craft up and gave the dark-red glider a good angle to bite, while Sern, even in the middle of it, kept just enough distance that they would not be caught too easily. A distance that grew when the other side closed in, and showed itself again when the other side was about to let go.
 
-"Pull them a little longer."
-Sern said low.
-"Right now that team is running on conviction before confirmation."
+"Draw them on a little longer,"
+Sern said, low.
+"Right now that team is putting conviction before confirmation."
 
-Kael answered shortly.
+Kael's answer was short.
 
-"What if they actually bite?"
+"And if they really bite?"
 
-"Then endure."
+"Then hold out."
 
-Kael said without smiling.
+Kael spoke without so much as a smile.
 
 "Great plan."
 
-But contrary to the words, his hands were perfectly precise. He did not push the glider too fast, nor did he kill the pace enough for the dark-red glider to give up entirely. Less bait work, more a hand that kept the opponent's certainty perpetually off-balance.
+But his hands were nothing like his words; they were exact. He did not push the glider too fast, and he did not slow it so much that the dark-red glider would give up altogether. It was less playing bait than a hand that kept holding the other side's certainty slightly off.
 
-From the stands above, Luhai reacted first.
+Up in the stands, Luhai reacted first.
 
 "Why'd that team suddenly go up?"
-He said in a near-shout.
+he said, almost shouting.
 
-Seorin answered without taking her eyes off below.
+Seorin answered without taking her eyes off the field below.
 
 "To be seen."
 
-Ater caught it immediately.
+Ater picked it up at once.
 
-"To hide the real thing."
+"In order to hide the real thing, then."
 
-Seorin smiled very briefly.
+Seorin gave a very short laugh.
 
-"Finally watching the same scene."
+"Finally watching the same scene, huh."
 
-Ater did not react to that. Instead, he looked farther. Including the hands from outside the arena, simply fooling one dark-red glider would not end it. What mattered was who would be the first to realize the real thing was not there.
+Ater did not respond to that. He looked farther out instead. Count the hands outside the arena too, and fooling one dark-red glider would not be the end of it. What mattered was who would be the first to notice "the real thing isn't over there."
 
-Aka, even half-hidden in front of Nahira, was looking long at the dirty line below. That gaze was no longer watching a race result. It was the eyes of someone who knew where the real thing was now, and who was also seeing where that real thing needed to return.
+Aka had been watching the dirty line below for a long time.
 
-Sion could not see that. But strangely, the sensation grew that what they were running was not simply an escape line, but possibly a detour for circling back to the center of Hazran.
+"They have to come back."
 
-Running alone would not end it. If they survived carrying the real thing, they would ultimately have to press it before someone.
+Ater turned his head.
 
-Jiwoo said suddenly, low.
+"Come back where?"
 
-"It opens ahead."
+Aka pointed at the ground under her feet.
+
+"Here."
+
+Ater did not catch it right away.
+
+Down there right now was an escape line. An angle that slipped out away from the recovery hands, and if it went well, it would take them out of the arena. Getting out meant living.
+
+"They cannot simply get out?"
+
+"If they get out, it's over."
+
+Aka said it.
+
+"Carry it out, and it's just stolen."
+
+Seorin turned her head at that.
+
+Aka kept looking down as she spoke.
+
+"It has to come out in front of the people here. That's when it's real."
+
+Ater heard that and said nothing for a moment.
+
+She was right. And because she was right, it was bad news. Surviving with the real thing and carrying it back into the middle of Hazran were two completely different things. The first was running away; the second was walking onto the board on your own feet.
+
+"Then that is for those kids to decide."
+
+Ater said it.
+
+"They decided."
+
+That was Aka's answer.
+
+Seorin looked over at Aka.
+
+"Based on what?"
+
+"They're not taking the angles out."
+
+Seorin looked down again.
+
+They really were not. The two craft were passing the lines that led outward, one after another. Each time they passed one, they did not turn into it.
+
+Han Jiwoo suddenly spoke, low.
+
+"It's opening up ahead."
 
 Sion read ahead at once.
 
-At the end of the dirty outer line, a narrow passage was opening between two dead frames. It could break out toward the recovery line outside the arena, or conversely, loop back beneath Hazran's inner structures—an ambiguous fork. The straight path was too tidy, smelling of recovery hands. The lower path was collapsed, but in exchange, a line where anyone would have difficulty waiting in ambush.
+At the end of the dirty outer line, a narrow passage was opening between two dead frames. An uncertain fork: it could drop them onto the recovery line outside the arena, or bring them back in under Hazran's inner structures. The way straight ahead was too tidy and smelled of recovery hands; the lower way had collapsed, but it was a line where it would be hard for anyone to lie in wait on purpose.
 
-"Down."
+"Down,"
 Sion said at once.
 "Not straight."
 
-Jiwoo did not ask.
+Han Jiwoo did not ask.
 
-She pressed the skiff lower and slid it beneath the fork. The hull bottom scraped hard once, and the right hover plate nearly died before flickering back to life. Sion thought his heart had stopped for an instant, but Jiwoo, as though she had calculated even that last lift, immediately corrected the center.
+She dropped the skiff lower and slid it under the fork. The underside of the hull scraped hard once, and the right hover plate went out as if it had died, then came back. For a moment Sion thought his heart had stopped, but Han Jiwoo, as if she had counted on even that last lift, set the balance right at once.
 
-"Still alive."
-She said low.
+"Still alive,"
+she said, low.
 
-That sounded like words spoken to the craft, and words spoken to themselves.
+It sounded like she was saying it to the craft, and also like she was saying it to them.
 
-Above, the dark-red glider had finally closed deeper toward Kael's team.
+Above, the dark-red glider finally closed in deeper on Kael's team.
 
-This time it meant to bite for real.
+This time it meant to really bite.
 
-Its nose drove toward the back of Kael's glider, and the rear rider extended his hand again. Sern, seeing that, said very shortly.
+Its nose drove in at the tail of Kael's glider, and the rider in back reached out again. Sern saw it and spoke, very short.
 
-"Drop now."
+"Go down now."
 
-Kael, as though he had been waiting, twisted the glider sideways.
+Kael twisted the glider sideways as if he had been waiting for it.
 
-Not the clean upper line—he dropped in one move toward the shadow of the broken frame outside it. The dark-red glider could not follow the change immediately. The distance it had thought was close enough to seize had suddenly vanished.
+Not the clean upper line—he dropped in one go toward the shadows of the broken frames outside it. The dark-red glider could not follow the change right away. The spot it had thought was close enough to latch onto had suddenly disappeared.
 
-In that split second, the two teams finally converged again onto the same lower outer line, almost simultaneously.
+In that instant, the two teams finally came together again on the same lower outer line, almost at the same time.
 
-Sion saw Kael's glider shadow rejoin from the side and drew a short breath.
+Sion saw the shadow of Kael's glider pull in again alongside and took a short breath.
 
-Done.
+That did it.
 
-Not a complete shakeoff. But they had deceived once, survived once, and now regrouped on the same line carrying the real thing.
+It was not a clean shake-off, but
+they had fooled them once,
+survived once,
+and now they were back together on the same line, still holding the real thing.
 
-Sern spoke almost simultaneously.
+Sern spoke almost at the same moment.
 
-"If we break out now, we'll be chased."
+"If we break away now, we will be chased."
 
-Jiwoo asked low.
+Han Jiwoo asked, low.
 
-"Then."
+"Then?"
 
-"We go back."
+"We go back,"
 Sern answered.
-"Run straight out of Hazran and the whole place converges on us. But if we take the real thing and re-attach to the center board, the story changes."
+"If we run straight out, all of Hazran gathers on us. But if we take the real thing and close back in on the board at the center, that is a different story."
 
-Sion understood in his body almost the instant he heard it.
+Sion understood it almost with his body the moment he heard it.
 
-Yes.
+Right.
 
-If they only ran, they became thieves who stole the real thing. But if they returned carrying it, at least they could stand again as the hand that won the board.
+Run and nothing else, and they would be thieves holding the real thing.
+But go back holding it, and at least they could stand again as the hand that won the board.
 
-Kael said shortly.
+Kael's reply was short.
 
 "Sounds insane, but."
 
-Seorin, reading the flow from below, murmured almost the same thing.
+Seorin, reading the flow below, muttered almost the same thing.
 
-"Insane."
+"That's insane."
 
-Ater narrowed his eyes despite it.
+Even so, Ater narrowed his eyes.
 
-It might be the most correct move. The moment they broke straight out of Hazran, every hand outside the arena would converge in the same direction. But returning to the center board meant at least not fully losing the rules. Standing before Zahir again as the hand that held the real thing. In this situation, that might actually be the largest shield.
+It might be the most correct move.
+The moment they broke straight out of Hazran, every hand outside the arena would close in from the same direction. But if they went back to the center board, at least they would not lose the rules entirely. Standing before Zahir again as the hand holding the real thing. In this situation, that might even be the biggest shield.
 
-Jiwoo laughed shortly.
+Han Jiwoo gave a short laugh.
 
-"Good."
-She said.
+"Good,"
+she said.
 "Then let's go back in."
 
-Sion liked those words to a strange degree.
+Sion liked that, almost strangely.
 
-They sounded less like a person fleeing and more like a person returning alive with the real thing in hand.
+Because it sounded like something said not by someone running away, but by someone going back alive with the real thing in hand.
 
-And in that exact moment, the two craft began to change direction completely.
+And at that very moment, the two craft began to turn completely around.
 
-Not the line escaping outward from Hazran, but the line returning to the center of the board—carrying the proof.
+Not onto the line fleeing out of Hazran, but onto the line carrying the real thing back to the center of the board.
+
+Sion felt the turn in his body.
+
+Heading out, the back of his neck had been cold. When they turned inward, the cold moved to the front.
+
+When they were running, it had been enough to fear what was behind. Now he had to fear what was ahead. Ahead was Hazran, and there were more hands there wanting to take this than there were behind.
+
+Even so, Sion loosened his grip and tightened it again.
+
+It shook less than before.
 
 ---
 

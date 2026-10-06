@@ -82,7 +82,7 @@ La résistance formée par les anciennes machines, les humains et le dernier and
 
 Sern cria presque pour la première fois :
 
-« Maintenant ! Ça se coupe ! »
+« Maintenant ! Le flux se rompt ! »
 
 À ces mots, Seorin et deux anciennes machines fermèrent en même temps les ouvertures de gauche et de droite. Ater fit s'effondrer complètement la structure pour empêcher toute descente par le haut.
 
@@ -114,7 +114,7 @@ Ce ne fut qu'après les avoir regardés un à un que son corps vacilla pour la p
 
 Sion retint son souffle. Un enfant cria presque :
 
-« Non... »
+« Non… »
 
 Mais il ne s'effondra pas tout à fait.
 

@@ -1,228 +1,255 @@
 # Capítulo 113 — Lo que quedó después de que Hazran se cerrara
 
-Incluso después de que Hazran desapareciera por completo de la vista,
-el aire dentro de la nave no se aligeró ni un poco.
+Incluso después de que Hazran desapareciera de la vista, el aire dentro del casco no se aligeró.
 
-Nadie lograba pronunciar con facilidad la palabra «sobrevivimos».
-Esa palabra, aquí y ahora, parecía pasar demasiado rápido al lado de los que siguen vivos.
+Nadie dijo que estaban vivos. Decirlo ahora era pasarse demasiado pronto al lado de los vivos.
 
-La nave seguía temblando, inestable.
-Como el casco que había sido arrancado a la fuerza,
-una vibración que parecía a punto de desgarrarse de nuevo al menor esfuerzo mal puesto recorría el suelo y las paredes.
+Sion estaba repartiendo el agua.
 
-Pero, por extraño que pareciera,
-dentro de todo aquel temblor,
-un solo punto parecía resistir hasta el final.
+Era la tarea que le había dado Han Jiwoo. Lo que se había cargado contando con ocho tenían que repartírselo dieciséis, y Sion, mientras pasaba los bidones uno por uno, iba guardando en la cabeza cuánto había bebido cada cual.
 
-Han Jiwoo al principio lo tomó por una simple ilusión.
+Guardándolo, se dio cuenta. De los ocho de Hazran, tres lo recibían y no se lo llevaban a la boca. Solo lo sostenían.
 
-Ahora el casco no es una nave intacta.
-Lo desgarrado se había remendado,
-lo remendado se había vuelto a atar,
-y sobre lo atado se había añadido más para que aguantara.
-Así que no era extraño que quedara un zumbido anormal o una vibración residual.
+Sion lo notó en la segunda vuelta y lo confirmó en la tercera.
 
-Pero esto era un poco distinto.
+Aquella gente no es que no tuviera sed: beber les hacía sentirse culpables.
 
-Ella puso en silencio la mano sobre un panel.
+Sion no lo dijo. Si lo decía, beberían todavía menos.
 
-Una vibración que debería enfriarse
-moría, extrañamente tarde, solo ahí.
+Fue entonces, cuando iba hacia el fondo a pasar el tercer bidón.
 
-Si fuera una avería, debería estar más dispersa.
-Si fuera un daño, debería ser más irregular.
-Pero esto, como si,
-ante un todo a punto de derrumbarse,
-un punto diminuto se aferrara hasta el final, resistía.
+En algún punto de la cara interna de la pared, el dorso de la mano se le enganchó.
 
-Han Jiwoo murmuró muy bajo.
+En realidad no se enganchó. Al pasar, solo en ese lado el aire iba un tiempo por detrás.
 
-—Esto… ¿por qué hace esto?
+Sion se detuvo y volvió a pasar. La segunda vez fue igual.
 
-Nadie respondió de inmediato.
+Han Jiwoo ya estaba allí.
 
-Todos estaban exhaustos,
-callados,
-y, sobre todo, lo que acababa de pasar aún no había salido de sus cuerpos.
+Tenía la palma pegada a un panel de la parte baja derecha. Era un panel que hasta ayer había tocado más de diez veces. Porque cada vez que el barco despegaba, esa mano estaba ahí.
 
-Sion levantó la cabeza desde un sitio algo apartado.
+—¿Qué pasa?
 
-Él sentía un momento parecido.
+—Calla un momento.
 
-No era un olor.
-Ahora dentro del casco estaban demasiado mezclados el aliento de los refugiados, el polvo y el sudor,
-así que distinguir un solo olor no tenía sentido.
+Sion cerró la boca.
 
-En cambio,
-había un extraño sentido de dirección.
+Han Jiwoo despegó la palma y volvió a pegarla. Lo hizo tres veces.
 
-Estaba claramente dentro del barco,
-y aun así sentía la veta reunirse en un solo punto en algún lugar.
-En algún rincón del espacio interior, donde ni siquiera había camino,
-un sitio donde la mirada y el sentido volvían a engancharse, una y otra vez.
+—Debería enfriarse.
+Lo dijo ella.
+—Solo aquí no se enfría.
 
-Sion trató de descartarlo como cosa suya.
-Pero al ver el rostro de Han Jiwoo,
-supo que no era solo él.
+—¿Está averiado?
 
-Seorin tampoco dijo nada,
-pero sus ojos miraban el mismo sitio dos veces más.
+—Si fuera una avería, sería más sucio.
 
-Ella no trataba de explicar nada.
-En cambio,
-leía el aire de un momento en que algo que debería haberse cortado no se había cortado y seguía ahí.
+Recorrió con la punta de los dedos el borde del panel. Lo pegado, lo vuelto a atar, lo añadido encima de eso. Que en este barco no quedaba nada sano lo sabía mejor que nadie esa mano.
 
-Luhai, que estaba sentado con la espalda apoyada en el suelo,
-levantó un poco la cabeza, sin más.
+—Lo roto se sacude por cualquier sitio.
+Lo dijo Han Jiwoo.
+—Esto se aferra a un solo punto.
+
+Kael llegó desde el otro lado golpeando el armazón del casco con el dorso de la mano. Los golpes llevaban un intervalo regular. A mitad se detuvo una vez.
+
+—Solo ahí aguanta distinto.
+
+Fueron pocas palabras, pero los hombros de Han Jiwoo se pusieron todavía más rígidos.
+
+Sion también volvió la cabeza hacia allí.
+
+Por fuera no se veía nada. Solo una plancha de metal abollada, con marcas de quemadura en el borde y un tornillo medio enroscado. Cosas clavadas a toda prisa en Hazran.
+
+Pero al acercar la mano, solo allí había algo distinto.
+
+No estaba caliente. Tampoco frío. En cambio, se sentía como si algo todavía no hubiera terminado.
+
+Luhai despegó la espalda del suelo y solo levantó la cabeza.
 
 —¿Por qué solo ahí?
 
-Una voz baja.
+Nadie respondió.
 
-Más que una pregunta,
-se parecía a la reacción de alguien cuyo cuerpo notó la rareza antes que él.
+Solo entonces se movió Aka.
 
-Kael palpó una vez la zona del armazón del casco
-y frunció brevemente el ceño.
+Vino despacio, apoyándose en la pared. Tenía la cara pálida, pero no se detuvo ni una vez. Se plantó delante de aquel punto y lo miró un buen rato sin tocarlo.
 
-—Solo ahí el apoyo es distinto.
-
-Esa frase era muy simple,
-y por eso mismo a Han Jiwoo se le crisparon más los nervios.
-
-Cierto.
-El apoyo es distinto.
-
-Pero no es un refuerzo de los que ella conoce,
-ni una marca de reparación que ella recuerde.
-
-Aka, que hasta entonces no había dicho nada,
-se acercó despacio hacia allí.
-
-Ella no tocó.
-Solo se quedó cerca, de pie,
-y miró un buen rato.
-
-Aka siempre fue así.
-Antes de tocar, primero escuchaba,
-y antes de escuchar, primero veía la veta.
+Aka siempre era así. Antes de tocar, miraba.
 
 Han Jiwoo preguntó en voz baja.
 
 —¿Está averiado?
 
-Aka no respondió de inmediato.
+Aka no respondió enseguida.
 
-A Sion ese breve silencio
-se le hizo, más bien, aún más largo.
+A Sion aquel silencio se le hizo extrañamente largo. Desde que Hazran se cerró, era la primera vez que todos miraban el mismo sitio, y nadie sabía qué era.
 
-Después de que Hazran se cerrara,
-por primera vez todos miraban el mismo sitio.
-Pero nadie sabía aún por qué.
-
-Aka negó muy despacio con la cabeza.
+Aka negó despacio con la cabeza.
 
 —No es algo que quedó.
 
-Una frase corta.
+—¿Entonces qué es?
 
-Han Jiwoo frunció un poco las cejas.
+Aka habló sin apartar la mirada.
 
-—¿Entonces?
+—Es algo que hicieron hasta el final.
 
-Aka, sin apartar la mirada de aquel sitio, dijo.
+Cuando cayeron esas palabras, dentro del casco se hizo un silencio.
 
-—Lo hicieron hasta el final.
+Nadie lo había entendido con exactitud. Pero todos sabían que no era una metáfora.
 
-Cuando esas palabras cayeron,
-el aire dentro del casco cambió de forma muy leve.
+Sin darse cuenta, Sion dio un paso.
 
-Nadie lo había entendido con exactitud.
-Pero todos
-sabían que esa frase no era una simple metáfora.
+Hazran se había cerrado hasta el final, ese cierre había quedado enterrado bajo la legión, y ellos lo habían dejado atrás.
 
-Sion, sin darse cuenta, dio un paso más cerca.
+Así, lo normal es que no quede nada.
 
-Hazran se cerró hasta el final,
-ese cierre quedó enterrado bajo la legión,
-y ellos lo dejaron atrás.
+Pero aquí había algo pegado. No algo que lo roto hubiera ido soltando, sino de esa clase que solo puede dejar lo que pasó hasta el final.
 
-Entonces, normalmente, no debería quedar nada.
-Al menos no así,
-no debería estar pegado de un modo extraño a un solo punto del barco.
+Han Jiwoo volvió a pegar la palma.
 
-Pero lo que se sentía ahora no eran restos.
+—No se enfría.
+Lo dijo ella.
+—Sigue igual que antes.
 
-No era algo que no había podido desaparecer,
-sino una especie de condensación que solo puede dejar lo que de verdad pasó hasta el final.
+Seorin, apoyada en una pared un poco apartada, miró dos veces aquel punto. No trató de explicarlo. Tenía ojo para reconocer el punto donde no se había cortado lo que debería haberse cortado.
 
-Han Jiwoo volvió a palpar el panel, otra vez con mucho cuidado.
+Sern miraba desde más lejos. Era el que leía las señales, pero esta vez no encendió el panel.
 
-Seguía solo ahí,
-una vibración residual que no se enfriaba.
+—¿Va a leerlo?
+Lo preguntó Ater.
 
-Sern observaba la escena desde lejos
-y, sin palabras, entrecerró los ojos.
+—No hay nada que leer.
+Lo respondió Sern.
+—No es una señal.
 
-Él era de los que leen señales,
-pero esto, más que una señal,
-parecía un mínimo desajuste que dejó alguna estructura tras plegarse una vez hacia su interior.
+A Sion se le heló la espalda.
 
-Ater también miraba, callado, apoyado en la pared.
+Era la primera vez que Sern decía que no podía leer algo.
 
-Él no explicaba nada,
-pero al menos una cosa la sabía.
+Ater miró aquel punto un largo rato.
 
-Esto no es una avería de máquina común.
-Tampoco es una marca de pérdida común.
+—¿En el Imperio existe una clasificación así?
+Lo preguntó Sion.
 
-No había explicación,
-pero todos, cada uno a su manera, leían la misma veta.
+—No.
 
-Sion lo encontró extraño.
+—¿Ninguna?
 
-Que lo que terminó en Hazran
-no quedara solo como un final,
-sino que estuviera pegado, como una pequeña dirección, en algún lugar del barco.
+—Todo lo que lleva aprobación está en la lista.
+Lo dijo Ater.
+—Lo que no está en la lista, en el Imperio, no existe.
 
-Eso aún no era un camino.
-Tampoco era un significado.
-Tampoco era una explicación.
+Sion supo que esas palabras encajaban con lo que había oído antes.
 
-Pero, sin duda,
-no era algo que simplemente hubiera pasado de largo.
+Lo que no queda en el registro pasa a no haber existido. Y esto no estaba ahora en ninguna lista.
 
-Luhai dijo muy bajito.
+Entonces, visto desde el Imperio, aquello era una cosa que no había existido nunca.
 
-—¿También se queda así?
+—Entonces solo lo sabemos nosotros.
 
-Nadie respondió de inmediato.
+Ater no respondió enseguida. Al cabo de un momento habló muy bajo.
 
-Han Jiwoo no lograba apartar la mano,
-Sion no lograba apartar la mirada de aquel sitio condensado,
-y Seorin, sin abrir la boca, observaba cuánto tiempo aguantaba aquel aire sin cortarse.
+—Por ahora, sí.
 
-Aka, la última, dijo muy bajo.
+Sion se plantó delante de aquel punto e intentó contar, por costumbre.
+
+Cuántos eran, qué tamaño tenía, cuánto tiempo llevaba.
+
+No salió nada.
+
+No tenía tamaño. Tampoco número. No sabía cuándo había empezado ni cuándo iba a terminar. Al poner la mano, que estaba ahí era seguro, pero no salía ni un solo número que pudiera anotar.
+
+Desde que había entrado en Hazran, Sion no había dejado de contar. Había contado precios, había contado personas, había contado las veces que despegaba el barco, y allí también había aprendido que lo que no se cuenta pasa a no haber existido.
+
+Pero esto, aunque no lo contara, no desaparecía.
+
+A Sion eso le dio un miedo extraño. Hasta ahora, todo lo que había podido sujetar lo había sujetado contando, y lo que tenía delante de los ojos estaba ahí sin más, contara o no.
+
+Entonces no era Sion quien lo sujetaba. Eran ellos los sujetados.
+
+Sion no llevó ese pensamiento hasta el final. Si lo empujaba, parecía que iba a salir algo más, y ahora no se sentía capaz de verlo.
+
+Entonces miró hacia el suelo.
+
+Los ocho de Hazran estaban todos mirando hacia allí.
+
+Pero ninguno parecía sorprendido.
+
+Eso era lo que más extraño le parecía a Sion. Los que miraban lo más sorprendente de todo este barco eran los más callados.
+
+Uno de ellos sintió la mirada de Sion y le sostuvo los ojos un instante muy breve. Después volvió a mirar aquel punto. Tenía cara de no pensar explicar nada.
+
+Sion quería preguntar.
+
+Si sabían qué era aquello, si en Hazran habían visto algo así.
+
+Pero no era momento de preguntar. Aquella gente había perdido hoy su ciudad, y ahora, en este barco, no le quedaba margen para ir sacando una a una las cosas que sabía.
+
+Sion dejó un bidón más hacia ese lado y se retiró.
+
+Luhai habló muy bajito.
+
+—¿Así también se puede quedar algo?
+
+Nadie respondió enseguida.
+
+Han Jiwoo no podía apartar la mano, Sion no podía apartar los ojos de aquel punto, y Seorin medía cuánto tiempo aguantaba aquel aire sin cortarse.
+
+Al final, Han Jiwoo apartó la mano.
+
+—¿Lo arreglas?
+Lo preguntó Sion.
+
+Han Jiwoo no respondió enseguida. Tomó una herramienta y la volvió a dejar.
+
+—No puedo arreglarlo.
+
+—¿Porque no está roto?
+
+—Eso también.
+Lo dijo ella.
+—Es que no sé qué desaparecería con ello si lo toco.
+
+Al oírlo, Sion contuvo el aliento un momento.
+
+Han Jiwoo no había dicho que no pudiera arreglarlo. Había dicho que le parecía que no había que arreglarlo. Era la primera vez que le oía decir algo así de un barco.
+
+—¿Entonces lo dejamos así?
+
+—De momento, sí.
+Lo dijo Han Jiwoo.
+—Pero que nadie se apoye ahí.
+
+Aka, la última, habló muy bajo.
 
 —Hay cosas que solo aparecen cuando todo ha pasado.
 
-Esa frase, más que una explicación,
-se parecía a una confirmación apenas pronunciada.
+Más que una explicación, era una confirmación sacada a duras penas.
 
-Sion, en ese instante,
-por primera vez lo sintió de forma vaga.
+Sion se quedó con esas palabras y terminó de pasar los bidones.
 
-Que las cosas que pasaron hasta el final
-quizá no solo desaparecen.
+De los tres que antes no bebían, uno abrió esta vez la tapa. Por qué ahora, ni Sion lo sabía.
 
-Y que el camino que aún queda por recorrer
-quizá también se hace de cosas como estas, que van quedando una a una.
+Cuando terminó de repartir, Sion volvió a aquel punto.
 
-Eso nadie lograba aún decirlo con exactitud.
+Como no se podía contar, dejó de lado la idea de contar. En su lugar, hizo otra cosa.
 
-Pero la nave,
-a la vez que un barco que temblaba cargando a los que sobrevivieron,
-parecía un lugar donde lo que quedó atrás empezaba a pegarse en silencio.
+A dos palmos del panel, sobre una plancha de metal donde no había nada, trazó con la uña una raya corta. Como no se marcaba bien, la trazó dos veces.
+
+No era un número. Tampoco quería decir cuántos.
+
+Quería decir aquí.
+
+Le parecía que en este barco tenía que haber al menos una persona que supiera dónde estaba este aquí. La tablilla estaba allá abajo, en el registro se escribiría «desconocido», y entonces lo único que quedaría sería esta raya.
+
+Sion la trazó y se quedó mirándola un buen rato.
+
+Esto todavía no era un camino. Tampoco era un significado, ni una explicación.
+
+Pero tampoco era algo que simplemente hubiera pasado de largo.
+
+La nave, mientras se sacudía cargando a los que habían sobrevivido, se estaba convirtiendo a la vez en un lugar donde lo que había quedado atrás empezaba a adherirse en silencio.
 
 ---
 

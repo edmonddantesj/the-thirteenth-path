@@ -1,199 +1,349 @@
 # Chapitre 105 — Le prix que Haroun paya pour garder le passage ouvert
 
+La neuvième file partit plus vite que toutes les autres.
 
-Quand les trois premiers de la cinquième file se mirent en mouvement,
-Sion, étrangement, ne les regardait pas.
-Son regard restait rivé au couloir droit, sans pouvoir s'en détacher.
+Couper par trois et compter deux, désormais tout le monde le savait. Quand Sion comptait, la file comptait avec lui, et pendant qu'on comptait, personne ne poussait.
 
-Dès l'instant où Haroun avait dit « cette fois, c'est moi qui encaisse »,
-le prix à payer semblait déjà fixé.
+« Vingt. »
 
-La question était de savoir à quel point ce prix serait lourd,
-et combien de personnes Hazran pourrait encore pousser dehors pendant qu'il le payait.
+La rampe se replia. Le vaisseau s'éleva.
 
-L'air dans le couloir droit
-était celui de choses déjà rompues, maintenues de force.
+Quarante-huit moins vingt. Vingt-huit.
 
-L'androïde de percée, incliné.
-Le sac de sable à moitié éclaté.
-L'écran de métal déchiré.
-Haroun, qui saignait.
-Sern, qui continuait de s'enfoncer à ses côtés.
-Ater, derrière, qui lisait les angles.
+Deux fois.
 
-Tous étaient proches de la limite.
-Et par-dessus cette limite,
-les trois premiers de la cinquième file bougeaient de nouveau.
+Sion traça la neuvième marque sur le tableau. À côté, il y avait cinq traits courts.
 
-Haroun fit véritablement un pas en avant.
+« Collez-vous au vaisseau ! »
 
-Ce n'était pas la posture de quelqu'un qui cherchait à recevoir le front longtemps.
-Un seul coup —
-tordre de son propre corps l'angle que l'adversaire cherchait à ouvrir
-et le retenir un demi-temps de plus à l'intérieur du couloir.
-Voilà quelle était sa posture.
+Les vingt-huit se déplacèrent vers la coque. Personne ne demanda pourquoi. Aujourd'hui, ne pas demander était devenu une habitude.
 
-Sern murmura.
+Sion compta ces vingt-huit, puis courut vers l'amas.
 
-« Il faut en finir vite. »
+Sern était là. Les onze aussi.
 
-Haroun ne répondit pas. Il expira.
+« Il en reste combien ? »
 
-C'était un souffle qui signifiait qu'il le savait,
-et en même temps qu'il savait que cela pourrait ne pas finir vite.
+« Un empan. »
 
-Ater décrypta très vite.
+« Un empan ? »
 
-« Le haut d'abord. »
-« Le deuxième viendra par le bas. »
-« Le troisième est le vrai. »
+« Un empan par le haut ; par le bas, c'est plus mince. »
 
-Ces mots étaient si courts, si précis,
-que Sion en eut d'autant plus peur.
+Sion comprit ce que cela voulait dire. L'autre côté arriverait le premier.
 
-Le troisième est le vrai.
-Autrement dit,
-les deux premiers n'étaient que des angles de consommation,
-destinés à fausser le corps de Haroun et le mouvement de Sern.
+« Alors maintenant… »
 
-Ce fut exactement ce qui arriva.
+« Je le fais maintenant. »
 
-Le premier androïde entra en éraflant l'écran supérieur.
-Haroun pivota du côté droit pour capter son axe de visée,
-et Ater planta aussitôt un tir court dans la surface du capteur.
+Sern leva la main vers les onze. Les onze reculèrent. Personne ne fut en retard. Quoi que Zahir leur ait dit, ces gens avaient déjà fixé l'ordre dans lequel ils reculeraient.
 
-Le deuxième s'enfonça par le bas, en rasant le sol.
-Sern se jeta et trancha la ligne de jonction ;
-dans le même mouvement, sa propre blessure au flanc s'ouvrit davantage.
+Sern enfonça la lame de coupe dans le dernier empan.
 
-Puis le troisième vint.
+Ça ne passa pas du premier coup. Au deuxième, la pierre s'effondra vers l'intérieur.
 
-Plus profond que les précédents,
-plus enfoncé,
-un angle qui poussait droit à distance courte, vers l'intérieur.
+Et ça s'ouvrit.
 
-À cet instant,
-Sion comprit que celui-là regardait la ligne avant de la coque.
+Ce que Sion vit, c'était un trou. Large d'une personne. Ce que voulait dire cette largeur, tout le monde le savait maintenant.
 
-Haroun aussi le vit.
+De l'intérieur du trou, de la poussière s'échappa. Puis une main sortit.
 
-Presque sans hésiter,
-il glissa son corps entier dans l'intervalle.
+C'était la main droite.
 
-Sern jura entre ses dents et visa de nouveau le bas.
-Ater cria « intérieur droit ! »
-Mais cette fois,
-tous les rythmes étaient un tout petit peu en retard.
+Sern saisit cette main. La saisit et tira. Ça ne vint pas du premier coup. Sern poussa du pied contre le mur et tira de nouveau.
 
-Non parce qu'ils étaient lents.
-Parce que tous étaient désormais trop usés
-pour que le tempo parfait pût encore sortir.
+Haroun sortit.
 
-Au moment où le troisième androïde poussa pour entrer,
-le corps de Haroun se tordit violemment.
+La moitié de son visage était couverte de poussière, quelque chose de sec avait durci au coin de ses lèvres, et son bras gauche, collé au corps, ne bougeait pas.
 
-Le faisceau de coupe lui traversa le bras,
-puis déchira plus profondément le bas gauche, déjà blessé.
+Mais ses yeux allèrent aussitôt vers le couloir.
 
-Sion crut que son souffle s'arrêtait.
+« Il en reste combien ? »
 
-Le sang, cette fois, ne se contentait plus de s'étaler.
-Une ligne rouge sombre gicla, courte et épaisse,
-et la jambe de Haroun vacilla un instant.
+Sion ne put pas répondre tout de suite à cette question.
 
-Mais le plus terrible,
-c'était que dans cet état, il ne recula pas.
+« Je te demande combien il en reste. »
 
-Au contraire — il utilisa cette brève torsion
-pour faire pivoter une fois de plus le corps de l'androïde vers lui.
-Au lieu de lui ouvrir le chemin,
-un angle qui les faisait basculer ensemble vers les débris à l'intérieur du couloir.
+« Deux fois. »
 
-« Maintenant ! »
-Ater cria, ou presque.
+Haroun hocha la tête une fois.
 
-Sern, comme s'il extrayait la dernière force qui lui restait, enfonça profondément le faisceau de coupe,
-et le tir d'Ater se planta juste derrière.
-Un androïde noir perdit l'équilibre
-et bascula lourdement avec Haroun vers les débris au fond du couloir.
+« Alors il suffit de le faire deux fois. »
 
-Au final,
-le chemin était de nouveau à moitié bloqué.
+À cette réponse, Sion eut la gorge serrée.
 
-Mais le prix en était trop évident.
+Cet homme venait de passer six heures sous les pierres ; la première chose qu'il avait demandée en sortant, c'était le nombre de fois restantes, et une fois la réponse entendue, il s'était d'abord mis à calculer.
 
-Haroun, cette fois, posa véritablement un genou à terre.
+« Avec quoi vous frappiez ? »
 
-Ce n'était pas un effondrement complet.
-Mais ce n'était plus le genou de quelqu'un qui allait se relever comme avant.
-Le sang coulait plus fort le long de son flanc gauche,
-et son souffle s'était ouvertement brisé.
+Haroun ouvrit la main droite.
 
-Sern dit, les dents serrées à les broyer :
+La paume était à vif. Il lui manquait deux ongles.
 
-« C'est fini, maintenant. »
+« Une pierre. »
 
-Haroun, incapable même de sourire, murmura :
+« Vous frappiez la pierre avec une pierre ? »
 
-« Mais c'est encore ouvert. »
+« Il n'y avait rien d'autre. »
+
+Sion regarda longtemps cette main.
+
+« Vous avez frappé combien de fois ? »
+
+« Je ne sais pas. »
+
+« Vous comptiez, pourtant. »
+
+« Je n'ai pas compté. »
+
+« Pourquoi ? »
+
+« Si tu comptes, tu sais quand c'est la dernière. »
+
+Pour la troisième fois aujourd'hui, Sion entendait ces mots.
+
+Cet homme avait respecté seul, six heures durant sous les pierres, la règle qu'il avait lui-même établie. Cela voulait dire qu'il ne savait même pas si quelqu'un venait. Il ne le savait pas, et il avait continué de frapper.
+
+« Buvez un peu d'eau. »
+
+« Plus tard. »
+
+« Maintenant… »
+
+« Regarde ça. »
+
+Sion se retourna.
+
+Au-delà du trou, des formes noires bougeaient.
+
+Elles n'entraient pas. Elles se tenaient là.
+
+« Pourquoi elles n'entrent pas ? »
+
+Ater répondit à sa place.
+
+« Elles attendent. »
+
+« Quoi ? »
+
+« Que le trou s'élargisse. Si elles entrent maintenant, elles doivent entrer une par une. »
+
+Sion ne mit pas longtemps à comprendre.
+
+Si elles entraient une par une, on les bloquerait une par une. Elles le savaient. Que Hazran ait tenu jusqu'ici en rétrécissant le passage, l'autre camp l'avait compté, lui aussi.
+
+« Alors il suffit de ne pas l'élargir. »
+
+« Il s'élargira. »
+Ater parla.
+« En bas, ils continuent de creuser. »
+
+Haroun se releva en prenant appui sur le mur. Il y parvint au deuxième essai.
+
+« On est combien, ici ? »
+
+« Ici ? Douze. »
+Sion répondit.
+« Les onze, et Sern. »
+
+« Treize, avec moi. »
+
+Après quoi, Haroun fit un pas vers le trou.
+
+« Ne faites pas ça. »
+
+« Ne fais pas quoi ? »
+
+« Vous voulez vous mettre là. »
+
+« Si je ne m'y mets pas, qui s'y mettra ? »
+
+Sion ne répondit pas à cette question. Il ne répondit pas parce que la réponse, c'étaient les onze.
+
+Haroun se plaça devant le trou.
+
+C'était l'endroit d'où on venait de le tirer. La largeur était exactement la même. Une personne.
+
+« Cette largeur-là, je la connais. »
+Il parla.
+
+Sion ne savait pas si c'était une plaisanterie. Ce n'était pas un visage qui riait.
+
+Ater parla brièvement.
+
+« Elles arrivent. »
+
+L'une des formes noires engagea son corps dans le trou. Les épaules restèrent coincées. Coincée, elle poussa.
+
+De la main droite, Haroun posa un débris sur ces épaules. Le posa et pesa dessus de tout son corps.
+
+Ce qui était coincé se coinça davantage.
+
+« Maintenant. »
+Ater parla.
+
+Sern passa par en dessous et trancha le genou. Coincée, la forme s'affaissa.
+
+Le corps affaissé boucha à moitié le trou.
+
+Mais derrière, la suivante monta par-dessus. Elle passa en marchant sur la première. Celle qu'on piétinait s'enfonça plus profond, et le trou se rétrécit d'autant, mais celle qui était passée entra.
+
+À cette vue, Sion cessa de respirer.
+
+« Ça… »
+
+« Oui. »
+Ater parla.
+« Elles sacrifient celles de devant pour faire entrer celles de derrière. »
+
+« Exprès ? »
+
+« C'est un calcul. Si l'on en coince une, celles de derrière prennent appui dessus et passent. »
+
+Ce n'était pas que Sion ne comprenait pas ; c'est parce qu'il comprenait qu'il avait peur.
+
+Ces choses étaient en train d'en coincer trois des leurs pour en faire passer une. Perdre trois, pour elles, n'était pas un calcul qui coûtait.
+
+Celle qui était passée avança de deux pas vers l'intérieur.
+
+Et changea de direction.
+
+Pas vers le couloir. Vers le vaisseau.
+
+« Elle va vers le vaisseau ! »
+Pour la première fois, Ater éleva la voix.
+
+« Pourquoi le vaisseau, tout d'un coup ? »
+
+« Le prix a changé. »
+
+« Le prix ? »
+
+« Ces choses recomptent sans cesse l'endroit où frapper leur rapporte le plus. Tant que le couloir ne s'ouvrait pas, c'était le couloir, le plus gros. »
+
+« Et maintenant ? »
+
+« Maintenant, le trou est percé, et derrière, il y a le vaisseau. »
+
+Sion regarda derrière lui. D'ici, on voyait la coque.
+
+Si on la voyait d'ici, on la voyait aussi de là-bas.
+
+« Alors elles ne vont plus viser que le vaisseau ? »
+
+« Jusqu'à ce qu'elles recomptent. »
+
+« Et elles recomptent quand ? »
+
+« Quand nous leur changerons le prix. »
+
+Sion mit du temps à comprendre.
+
+Si le vaisseau était le plus gros prix, ces choses iraient au vaisseau. Si quelque chose de plus gros que le vaisseau apparaissait, elles iraient de ce côté.
+
+Et ici, en cet instant, il y avait une personne capable de marcher droit au-devant d'elles.
+
+Avant que Sion puisse dire quoi que ce soit, Haroun bougea.
+
+Haroun retira la main du trou. Il la retira en sachant qu'au moment où il le ferait, le trou s'ouvrirait.
+
+Et il jeta son corps contre le flanc de la forme noire.
+
+Ce n'était pas un choc. Il s'y accrocha. De la main droite, il saisit l'un de ses bras et fit basculer tout son poids sur le côté.
+
+La trajectoire dévia d'un demi-empan.
+
+Dans ce demi-empan, Sern s'engouffra et trancha la jambe.
+
+La forme noire s'effondra sur le côté. En tombant, elle entraîna Haroun avec elle.
+
+Sion courut.
+
+Cette fois, il l'atteignit.
+
+Il saisit Haroun par l'épaule et le tira dehors ; il était plus léger que prévu. Un homme resté six heures sous les pierres sans eau.
+
+« Lâche. »
+
+« Je ne lâche pas. »
+
+« Lâche. Le trou. »
+
+Alors seulement, Sion regarda le trou.
+
+Pendant que Haroun avait retiré sa main, deux autres étaient entrées.
+
+Les onze étaient là. Les mains qui creusaient. Pas des armes : des mains qui, jusqu'à tout à l'heure, soulevaient des pierres.
+
+Trois d'entre eux allèrent devant le trou.
+
+Sion voulut crier et n'y parvint pas.
+
+Les trois soulevèrent des débris et les poussèrent dans le trou. Ils le rétrécirent. Pendant qu'ils le rétrécissaient, l'un d'eux ne ressortit pas.
+
+Les huit autres tirèrent les trois en arrière. Deux sortirent.
+
+« Haroun. »
+
+Haroun regardait de ce côté.
+
+« J'ai vu. »
+
+« Ces gens-là viennent de… »
+
+« J'ai vu, je te dis. »
+
+Ces mots furent les plus lourds que Sion eût entendus de la journée.
+
+Cet homme venait de voir boucher le trou à sa place les mains qui, six heures durant, avaient creusé pour le sortir. Et il avait seulement dit qu'il avait vu.
+
+Le trou se rétrécit de nouveau. La largeur d'une personne fut réduite de moitié.
+
+Les deux qui étaient entrées finirent là-dedans. Huit des onze les écrasèrent sous les débris, Sern trancha par en dessous, et Ater porta le dernier coup.
+
+En regardant la fin de tout cela, Sion comprit une chose.
+
+Ces choses venaient d'en coincer trois et d'en faire entrer deux pour arriver jusqu'ici, et elles ne montraient pas le moindre regret pour ces cinq-là. Celles qui se tenaient derrière ne bougèrent pas d'un pas pendant que celles de devant finissaient.
+
+Il se rappela une chose que Han Jiwoo avait dite un jour. Ça, dès le départ, on l'a fabriqué en comptant sa propre casse dans le calcul.
+
+Sur le moment, il avait cru qu'il s'agissait d'un seul objet.
+
+À présent, il voyait qu'il s'agissait d'un camp capable d'en jeter cinq d'un coup et de garder encore de la marge dans son calcul.
+
+Ater parla brièvement.
+
+« Vingt minutes. »
+
+« Quoi donc ? »
+
+« Le temps qu'il leur faudra pour élargir de nouveau. »
+
+Haroun se releva en appuyant sa main droite sur son genou. Cette fois, il y parvint au troisième essai.
+
+Sern parla en grinçant presque des dents.
+
+« C'est fini, à présent. »
+
+Haroun répondit à voix basse, sans même pouvoir sourire.
+
+« Mais c'est encore ouvert, non ? »
 
 Ces mots frappèrent Sion en pleine poitrine.
 
-Oui.
-Ce couloir était encore ouvert.
-Parce que Haroun venait de payer de son propre corps
-pour tordre et rouvrir ce qui allait se refermer.
+C'était vrai. La porte de ce vaisseau était encore ouverte. Parce que cet homme venait d'en payer le prix de son propre corps, et de forcer à nouveau l'ouverture de ce qui allait se fermer.
 
-À l'arrière, Nassim cria d'une voix fêlée, presque brisée :
+« Alors fais partir un chargement dans les vingt minutes. »
 
-« Cinquième file, montez ! »
+Sion courut vers le tableau.
 
-Luhai poussa l'enfant en pleurs en le portant presque dans ses bras.
-Seorin, agrippée à l'arrière du brancard, serrait les dents.
-Sion, les yeux tremblants, récupéra un pied qui allait se coincer sous la rampe
-et le remit dans la file.
+Il compta en courant. Si vingt des vingt-huit partaient, il en resterait huit.
 
-Et dans cette brèche,
-les trois premiers de la cinquième file passèrent de nouveau à l'intérieur de la coque.
+Que Haroun ne serait pas parmi ces huit, Sion le savait déjà.
 
-Jiwoo, tout en les réceptionnant,
-ne cessait de regarder du côté de Haroun.
+Parce que tout à l'heure, cet homme avait changé le prix.
 
-Aka dit très bas :
-
-« On ne peut plus acheter de temps comme ça. »
-
-Jiwoo demanda aussitôt :
-
-« Qui. »
-
-Aka ne répondit pas.
-
-Mais Sion comprit.
-Ce mot pouvait ne pas désigner une seule personne.
-
-Haroun ne pouvait plus acheter du temps de la même manière.
-Le couloir droit ne pouvait plus tenir de la même manière.
-Et ce combat tout entier devait désormais basculer vers l'étape suivante.
-
-Zahir aussi avait ce visage-là.
-
-Il regarda un instant Haroun — un genou à terre, bloquant encore le chemin —
-et pour la première fois, avec l'expression de quelqu'un qui savait qu'on ne pouvait plus différer,
-il ouvrit la bouche.
-
-« Bien. »
-Ses lèvres bougèrent à peine.
-« On passe à la suite. »
-
-À l'instant où ces mots tombèrent,
-Sion comprit.
-
-Le prix que Haroun avait payé pour garder ce passage ouvert
-n'était pas une simple blessure.
-
-C'était le prix qui venait de confirmer à tous
-que Hazran ne pouvait plus tenir de la même manière.
+Et le prix qu'il avait changé, c'était lui-même.
 
 ---
 

@@ -1,178 +1,227 @@
 # Chapitre 20 — Le seuil de ce qui reste
 
-Le vaisseau de Han Jiwoo était à demi posé contre la paroi extérieure de la structure abandonnée.
+Le vaisseau de Han Jiwoo était à demi accroché à la paroi extérieure de la structure fermée.
 
-À dire vrai, ce n'était pas vraiment un amarrage. La coque était coincée de force entre la paroi tranchée et ce qui restait de l'anneau d'accostage — un équilibre provisoire que le moindre écart d'angle suffirait à briser. Trop serré, et la coque riperait contre la paroi. Trop lâche, et Sion perdrait la zone de réaction qu'il était en train de lire. Le vaisseau ne s'accrochait pas à la structure. Il tenait bon pour ne pas s'effondrer.
+À dire vrai, cela tenait moins de l'amarrage que d'une coque coincée de force entre la paroi tranchée et ce qui restait de l'anneau d'accostage. Au moindre écart d'angle, elle pouvait racler la paroi et glisser ; à l'inverse, si elle se retirait trop, Sion risquait de perdre la zone de réaction même qu'il était en train de lire. Le vaisseau ne s'accrochait pas à la structure. Il tenait bon pour ne pas s'effondrer.
 
-Sion s'était courbé près de la fente latérale de la coque, les yeux rivés sur l'extérieur.
+Sion, courbé près de la fente latérale de la coque, regardait au-dehors.
 
-Ce n'était ni un intérieur ni le vide absolu. Entre la paroi tranchée et le couloir à demi écroulé, un champ de maintien qui aurait dû mourir depuis longtemps tenait encore, tout juste. De l'air froid et mince — mais respirable, à peine. Des jonctions extérieures où poser le pied de travers signifiait passer dehors. Et au-delà, l'ombre d'une structure semi-ouverte. Le seuil d'un point de transit abandonné en orbite : pas tout à fait mort, pas encore.
+Ce n'était ni tout à fait un intérieur, ni tout à fait le vide. Entre la paroi tranchée et le couloir à demi écroulé, un champ de maintien qui aurait dû mourir depuis longtemps subsistait encore, tout juste. Une couche d'air froide et mince, mais où l'on pouvait bel et bien respirer ; des jonctions extérieures où un pied mal posé suffisait à basculer dehors ; et, au-delà, l'ombre d'une structure semi-ouverte qui s'enfonçait vers l'intérieur. On aurait dit le seuil d'un point de transit scellé, à la dérive dans l'espace, qui n'avait pas encore réussi à mourir tout à fait.
 
-Seorin, adossée à la cloison intérieure, dit :
+Seorin, adossée à la cloison intérieure de la coque, dit :
 
-« À voir ta tête, ça n'a pas l'air de te faire plaisir. »
+« À voir ta tête, ça n'a pas l'air de te réjouir. »
 
-Sion répondit sans détourner le regard.
+Sion répondit sans détourner les yeux.
 
-« Plaisir. Un truc qu'on croyait mort qui n'est qu'à moitié vivant — c'est toujours plus compliqué, pas moins. »
+« Comment veux-tu que ça me réjouisse ? Un truc qu'on croyait mort et qui n'est qu'à moitié vivant, c'est toujours plus pénible. »
 
-Un bref crachotement de bruit traversa le canal fermé de proximité.
+Un faible grésillement traversa une fois le canal fermé de courte portée.
 
-Chaque fois que la couche métallique de la paroi se superposait à la coque, le canal local que Jiwoo avait réglé produisait ce genre de minuscules coupures. Ce n'était pas une ligne longue portée. Juste assez pour relier, comme maintenant, ceux qui restaient à bord et ceux qui s'apprêtaient à sortir.
+Chaque fois que les couches de métal de la paroi et de la coque se superposaient, le canal local réglé par Han Jiwoo se chargeait de ce genre de micro-coupures. Ce n'était pas une liaison longue portée. Elle suffisait tout juste, comme maintenant, à relier brièvement ceux qui restaient à bord et ceux qui allaient sortir.
 
 La voix de Han Jiwoo arriva.
 
-« Si tu rapproches encore l'angle, on ripe. »
+« Si je colle encore l'angle de la coque, on racle. »
 
 Sion répondit aussitôt.
 
-« On est à la limite. Tu pousses encore, c'est fini. »
+« On est à la limite. Si tu pousses encore, on est morts. »
 
-Ater s'avança près de Sion et examina la ligne d'alignement tranchée dans la paroi extérieure. Le métal avait été coupé une première fois, longtemps avant, puis recoupé une deuxième fois, comme pour achever ce qui restait. Cette structure n'avait pas toujours été fermée. Quelqu'un avait voulu bloquer ce passage. Quelqu'un d'autre avait voulu le laisser mourir sans l'achever tout à fait. La différence entre ces deux couches était trop nette pour ne pas être inquiétante.
+Ater vint se placer à côté de Sion et examina la ligne d'alignement tranchée de la paroi. Le métal avait été coupé une première fois, longtemps auparavant, puis rapiécé une seconde fois pour l'achever. Ce n'était pas une structure fermée dès l'origine. Quelqu'un avait voulu barrer ce passage, et quelqu'un d'autre avait pris soin de ne pas le laisser mourir tout à fait. La différence entre ces deux couches était si nette qu'elle en devenait inquiétante.
 
-Sern déplaça le regard comme s'il lisait la distribution des charges sur la paroi extérieure, puis dit à voix basse :
+Sern promena le regard comme s'il lisait la répartition des charges à l'extérieur, puis dit à voix basse :
 
-« La paroi tiendra. Le problème est à l'intérieur. Si la réaction est encore vivante, ce qui mourrait en premier en cas de fausse manœuvre serait probablement ce qui se trouve à l'intérieur. »
+« La paroi tiendra. Le problème est à l'intérieur. Si la réaction est encore vivante, c'est aussi l'intérieur qui risque de mourir le premier en cas de fausse manœuvre. »
 
 Ater ajouta, très bas :
 
-« Ce n'est peut-être pas une structure qui ouvre une porte. C'est peut-être une structure qui choisit ceux qui approchent. »
+« Ce n'est peut-être pas une structure qui ouvre une porte, mais une structure qui choisit ceux qui l'approchent. »
 
-À ces mots, Sion plissa légèrement les yeux.
+À ces mots, Sion plissa les yeux.
 
-De l'autre côté de la fente, dans l'obscurité, sous l'anneau tranché, une vibration infime montait. Trop régulière pour être le simple reflet d'un métal mort. Trop faible pour être une ligne de guidage encore active. Pas un signal qui appelait quelqu'un — plutôt une réaction qui vérifiait jusqu'au bout si quelqu'un méritait de s'approcher.
+De l'autre côté de la fente, dans l'obscurité, sous l'anneau tranché, une vibration infime remontait. Trop régulière pour n'être que le reflet d'un métal mort ; trop faible pour être une ligne de guidage encore vivante. Ce n'était pas un signal qui appelait quelqu'un à venir, mais une réaction qui voulait vérifier, jusqu'au bout, qui avait le droit d'arriver jusqu'ici.
 
-Han Jiwoo ouvrit un peu plus le champ de vision extérieur.
+Han Jiwoo élargit un peu le champ de vision extérieur.
 
-Une passerelle brisée, des câbles tordus, un anneau d'accostage scellé, et derrière — presque enseveli dans l'obscurité — une petite structure de fixation. Au premier regard, une pièce d'accostage abandonnée. Mais à y regarder de près, seuls les points de connexion essentiels étaient restés intacts, de manière étrange. Pas une destruction par explosion ou effondrement. On aurait dit que l'entourage avait été taillé pour ne conserver que ce qui importait.
+Une passerelle rompue, des câbles tordus, un anneau d'accostage scellé, et derrière, presque enfouie dans l'obscurité, une petite structure de fixation. Au premier regard, on l'aurait prise pour une pièce de raccordement abandonnée. Mais à y regarder de près, seuls les points de connexion essentiels avaient étrangement survécu. Ce n'était ni une explosion ni un effondrement qui l'avait mise dans cet état : on aurait dit qu'on avait taillé tout autour pour ne garder que l'essentiel.
 
-Sion dit, très doucement :
+Sion dit, très bas :
 
 « C'est ça. »
 
-Jiwoo répondit brièvement.
+Han Jiwoo enchaîna.
 
-« Oui. Premier repère survivant. »
+« Oui. Le premier repère survivant. »
 
 Sern dit aussitôt :
 
-« C'est une section. »
+« Il s'agit d'une coupe. »
 
-Ater regardait le même point quand il prit la parole.
+Ater, les yeux sur le même point, prit la parole.
 
-« C'est très probablement l'ancien discriminateur auxiliaire qui filtrait les approches vers le point de transit extérieur. »
+« Il s'agit très probablement d'un discriminateur auxiliaire qui filtrait l'accès au point de transit extérieur. »
 
 Seorin fronça les sourcils.
 
-« Parfait. Donc ce n'est pas une simple porte. »
+« Donc ce n'est pas juste une porte. »
 
-« Exactement, dit Sion. Une structure qui s'ouvre à n'importe qui serait morte depuis longtemps. »
+« Exact. »
+Ce fut Sion qui répondit.
+« Une structure qui s'ouvrirait dès qu'on s'en approche n'importe comment serait morte depuis longtemps. »
 
-Cela rejoignait précisément la raison pour laquelle ils étaient là. Le fragment de nom qu'Elia Vern avait lu ne pointait pas seulement vers la disgrâce d'un seul homme, Jun Astel. Il laissait la sensation qu'un chemin entier — un chemin qui aurait dû porter ce nom — avait été coupé quelque part, d'un coup. Et cette structure-là, devant eux, était probablement la première scène réelle de cette route tranchée.
+Une mauvaise manipulation, et la réaction restante mourrait : il ne leur resterait qu'un fragment en main, et plus aucune suite.
 
-Ce n'était donc pas une simple exploration de vestige.
-
-Lire correctement la réaction résiduelle ici, c'était obtenir la première preuve concrète que l'affaire Jun Astel ne se limitait pas à l'effacement d'un individu. À l'inverse, une mauvaise manipulation, et la réaction survivante mourait, emportant le premier fragment de ligne avec elle. Pire encore : la dernière réaction du discriminateur pouvait filtrer vers les réseaux de traçage extérieurs.
-
-Seorin demanda brièvement :
+Seorin demanda :
 
 « On entre ? »
 
-Jiwoo corrigea l'angle de la coque de quelques degrés et répondit :
+Han Jiwoo abaissa encore très légèrement l'angle de la coque et répondit.
 
-« Pas directement. Il y a encore un point d'accroche vivant sous cette structure. Il faut le vérifier d'abord. »
+« On ne peut pas s'accoler tout de suite. Il reste un point d'accroche encore vivant sous cette structure. Il faut d'abord le vérifier. »
 
-« Probabilité de piège ? demanda Sern. »
+« Et la probabilité d'un piège ? »
+La question venait de Sern.
 
-« Élevée, répondit Jiwoo sans s'émouvoir. Mais piège ou non, si on ne regarde pas là-dedans, il n'y a pas de suite. »
+« Élevée. »
+Han Jiwoo avait répondu comme si de rien n'était.
+« Mais piège ou pas, si on ne regarde pas là-dessous, il n'y a pas de suite. »
 
-Bref silence.
+Un bref silence.
 
-On pouvait faire demi-tour. Mais cela signifiait aussi repartir sans la raison d'être venu jusqu'ici. Reculer sans regarder ce seuil, c'était risquer de perdre définitivement la première démonstration que le fragment de nom, les coordonnées et la réaction de balise morte formaient un seul et même événement.
+Ils pouvaient faire demi-tour. Mais alors, la raison même de leur venue jusqu'ici serait tranchée avec le reste.
 
-Sion posa une main sur sa poche intérieure.
+Sion appuya une fois sur sa poche intérieure.
 
-Le fragment où le nom de Jun Astel subsistait. Et ici, le premier vestige d'une route effacée qui les avait guidés jusqu'à ce point. Si les deux faisaient vraiment partie du même événement, cette structure devant eux était peut-être quelque chose comme la première phrase qui reliait les deux.
+Le fragment où subsistait le nom de Jun Aster. Et les vestiges de la route effacée qui les avaient menés jusqu'ici. Si les deux faisaient vraiment partie du même événement, la structure qu'ils avaient sous les yeux était peut-être comme la première phrase qui les reliait.
 
-Jiwoo laissa dériver le vaisseau, très lentement, sans s'arrêter tout à fait.
+Han Jiwoo, sans arrêter tout à fait le vaisseau, le laissa dériver très lentement.
 
-S'immobiliser risquait au contraire d'attirer la surveillance extérieure. Cette zone était une route morte — pas une route vide. Selon qui lisait la balise en premier, la route s'ouvrait ou s'éteignait.
+S'immobiliser risquait au contraire d'attirer la surveillance extérieure. Les environs étaient une route morte, mais pas une route tout à fait vide. Un endroit où, selon qui lisait le premier la balise, la route s'ouvrait ou mourait.
 
-Ater dit, posément :
+Ater dit calmement :
 
 « Il doit y avoir un ordre d'approche. »
 
-Jiwoo l'entendit et esquissa un bref sourire.
+À ces mots, Han Jiwoo eut un bref sourire en coin.
 
-« Certainement. C'est pour ça qu'on n'est pas arrivés de face. »
+« Sûrement. C'est pour ça qu'on n'est pas venus de face. »
 
-Ater garda les yeux fixés au dehors et continua :
+Ater poursuivit, le regard fixe.
 
-« Cette structure est un anneau résiduel qui servait autrefois à guider les approches vers le dock. Mais le cœur de la ligne de guidage a été tué — seul le sous-système d'alignement a été laissé. Quelqu'un l'a taillé pour que seuls ceux qui savent puissent approcher. »
+« Le cœur de la ligne de guidage a été tué ; seul l'alignement auxiliaire a été laissé. On l'a taillé pour que seuls ceux qui savent puissent s'accoler. »
 
-Le silence s'installa un moment dans la cabine.
+Sion l'écouta et jeta un regard à Ater.
 
-Sion l'entendit et jeta un regard à Ater. Lui, il lisait la texture en premier. Ater lisait la structure en premier. Pourtant, là, leurs deux lectures convergeaient vers la même réponse, d'une façon presque déconcertante.
+Seorin dit :
 
-Sern ajouta à mi-voix :
+« Donc, avant de laisser entrer, ça veut d'abord faire le tri. »
 
-« Dans ce cas, cet anneau résiduel n'est pas un dispositif d'accès. C'est un dispositif de discrimination. »
+« C'est pour ça que s'accoler n'importe comment, c'est mourir. »
+Cette fois, ce n'était pas Han Jiwoo qui avait répondu, mais Sion.
 
-Seorin dit brièvement :
+À ces mots, l'air changea de nouveau dans la coque.
 
-« Parfait. Avant d'entrer, on passe le filtre. »
+Han Jiwoo lâcha les commandes d'une main et dit :
 
-« C'est pour ça qu'approcher sans réfléchir, c'est mourir, dit Sion — cette fois-ci, ce n'était pas Jiwoo qui répondait. »
+« Alors voilà comment on fait. Moi, je tiens l'angle du vaisseau ; Sion lit les vestiges en premier. Sern calcule l'ordre de la structure. Ater retrouve quelle logique d'approche c'était à l'origine. Seorin, si un signal anormal apparaît, tu coupes tout de suite. »
 
-À ces mots, l'air dans la coque changea de nouveau.
+Seorin sourit.
 
-Ce qu'ils s'apprêtaient à faire n'était plus une simple approche. Il s'agissait de ne pas abîmer la réaction résiduelle, et de se laisser lire par le discriminateur comme n'étant pas du mauvais côté. Pas avancer lentement — mais s'arrêter pour ne pas se tromper.
+« Là, ça commence à ressembler à du vrai travail. »
 
-Jiwoo lâcha l'une de ses mains sur les commandes et dit :
+Sion se pencha encore plus près de la fente.
 
-« Bien. Voilà comment on procède. Je tiens l'angle du vaisseau. Sion lit les vestiges en premier. Sern calcule l'ordre de la structure. Ater détermine quelle était la logique d'approche d'origine. Seorin — si un signal anormal apparaît, tu coupes immédiatement. »
+La surface de la structure était presque morte, mais pas tout à fait. Sous la ligne de guidage tranchée, une réaction infime subsistait encore. Pas une réaction qui attendait d'être lue : une réaction qui vérifiait si on la lisait correctement.
 
-L'ordre était bref, et d'une fluidité presque déconcertante. Personne n'avait décidé qui était chef, et pourtant, dans cette scène, chacun savait que c'était la disposition la plus juste pour l'instant.
-
-Seorin eut un très court sourire.
-
-« On dirait un vrai travail, maintenant. »
-
-Sion s'inclina un peu plus près de la fente.
-
-La surface de la structure était presque morte — mais pas tout à fait. Sous la ligne de guidage tranchée, une réaction infime subsistait encore. Pas en attente d'être lue. En train de vérifier si on la lisait correctement.
-
-Ater vit ce schéma et retint son souffle, très lentement.
+Au moment où il vit ce motif, Ater retint très lentement son souffle.
 
 « Ceci… »
 
-Sern déplaça immédiatement le regard vers lui.
+Sern tourna aussitôt les yeux vers lui.
 
 « Vous le reconnaissez ? »
 
-Ater prit quelques secondes, puis dit d'une voix basse et sèche :
+Quelques secondes plus tard, Ater parla d'une voix basse et raide.
 
-« Cela ressemble à la logique de scellement impériale — mais ce n'est pas exactement ça. C'est plus ancien. »
+« Cela ressemble à la logique de scellement impériale, mais ce n'est pas tout à fait la même. C'est plus ancien. »
 
-Au moment où ces mots tombèrent, Sion aperçut, tout en bas de la structure, une entaille à peine visible, proche d'un motif. Peut-être une marque de la lignée des Myo. Peut-être quelque chose d'antérieur encore. Trop usé pour qu'il puisse en être sûr. Mais au moins une chose était certaine.
+Sern demanda aussitôt :
+
+« Plus ancien de combien ? »
+
+« Ce n'est pas une valeur que je suis en mesure de donner. »
+
+« Excellence, existe-t-il une logique d'approbation que vous ignorez ? »
+
+Ater ne répondit pas.
+
+Sern n'insista pas non plus. C'était la troisième fois aujourd'hui qu'il n'obtenait pas de réponse, et les trois fois allaient dans le même sens.
+
+Au moment où ces mots tombèrent, Sion aperçut, au bas de la structure, une éraflure très ténue qui ressemblait à un motif. Peut-être une marque de la lignée des Myo, peut-être quelque chose d'antérieur encore. Trop usée pour qu'il en soit sûr. Mais une chose au moins était certaine.
 
 Ce n'était pas une route abandonnée.
+C'était une route qu'on avait laissée là en feignant de l'abandonner.
 
-C'était une route laissée en abandon simulé.
+Han Jiwoo dit à voix basse :
 
-Une route qu'on avait effacée, et qui pourtant n'avait jamais pu mourir tout à fait — une route que quelqu'un avait façonnée pour n'être lue que par ce qui en restait.
+« Bon. Maintenant, on s'accole pour de bon. »
 
-Han Jiwoo dit, doucement :
+Puis elle lâcha les commandes.
 
-« Alors on s'approche vraiment, maintenant. »
+Sion se retourna.
 
-Le vaisseau avança, imperceptiblement.
+« Pourquoi tu lâches ? »
 
-À mesure que la distance entre la structure et la coque diminuait, plus personne dans la cabine ne parla. Chacun lisait le même seuil à sa façon. Sion : la texture. Ater : la logique. Sern : l'ordre. Seorin : le moment où couper. Jiwoo : l'angle qui permettrait d'y rester en vie.
+« Ça ne se fait pas du bout des doigts. »
 
-Et quand ces cinq lectures convergeaient pour la première fois en un seul point, le premier vrai seuil d'une route effacée commença, silencieusement, à s'entrouvrir devant eux.
+Han Jiwoo tira de la paroi, à côté du siège de pilotage, deux vieilles poignées. Ce n'était pas le système de pilotage officiel, mais des axes manuels qui poussaient directement le circuit hydraulique. Ils n'étaient pas d'origine : quelqu'un les avait installés après coup.
 
-Le coût de l'échec changeait à partir de maintenant. Se faire repérer ne signifiait plus seulement fuir à nouveau — cela signifiait perdre la première scène qui permettrait de savoir qui avait tranché cette route. Cette approche n'était donc pas une exploration. C'était le premier jugement qui fixerait la valeur de tout ce qui suivrait.
+« Les commandes, ça sert à donner des ordres. Ça, ça sert à pousser, dit-elle. Quand on donne un ordre, le vaisseau prend l'angle tout seul, et cette structure sait lire ce pilotage tout seul. Ce que pousse une personne, elle ne sait pas le lire. »
+
+« Pourquoi elle ne sait pas ? »
+
+« Parce que ce n'est jamais régulier. »
+
+Han Jiwoo passa les deux bras sur les axes et y porta tout son poids.
+
+La coque commença à s'incliner, très lentement. Ce n'était pas fluide. Elle poussait, rajustait la prise de ses poignets, poussait encore. Entre deux poussées, le vaisseau tanguait légèrement, et à chaque oscillation, quelque part sur la paroi, le métal lâchait une plainte brève.
+
+Sern leva la tête en entendant ce bruit.
+
+« Cela racle. »
+
+« Il faut que ça racle. »
+
+« La paroi tiendra-t-elle ? »
+
+« Je l'ai arrangée pour qu'elle tienne, dit Han Jiwoo, les dents serrées. Si on n'entend pas racler, c'est qu'on n'est pas en train de s'accoler. »
+
+Sion regarda ses bras. Les callosités à l'intérieur de deux doigts de sa main gauche mordaient exactement sur l'axe.
+
+Sern regardait au même endroit. Le chiffre qu'il avait commencé à calculer tout à l'heure au point de connexion, avant d'y renoncer, servait à présent sous ses yeux.
+
+Le vaisseau glissa vers l'avant, très lentement.
+
+À mesure que la distance entre la structure et la coque diminuait, plus personne dans la cabine ne parla.
+
+La réaction au bas de la structure trembla violemment, une fois.
+
+Sous la paume de Sion, la coque trembla avec elle. Le même rythme que celui que la balise comptait tout à l'heure.
+
+Quatre. Quatre. Trois.
+
+Cette fois, c'était beaucoup plus proche.
+
+« Tu l'entends ? demanda Seorin. »
+
+« Oui. »
+
+« Et qu'est-ce qu'elle dit ? »
+
+Sion écouta encore une fois avant de répondre.
+
+« Elle ne dit encore rien. Elle regarde d'abord ce qu'on fait. »
 
 ---
 

@@ -1,164 +1,229 @@
-# Episode 151. Who Comes First
+# Episode 151. Who Gets Out First
 
-The first time the rescue plan left the shape of words was the following night.
+The rescue plan first stepped out of the shape of words
+on the following night.
 
-The recon team and the recovery hands chose one of the narrowest, longest-unused corridors inside the hidden layer and began matching actual movement speed against closing time.
+The recon team and the recovery hands
+picked one narrow route, the longest unused even deep inside the hidden layer,
+and began matching real movement speed against closing time.
 
-Against Serakion, thought alone being correct was not enough.
+Against Serakion,
+being right in your head was not enough.
 
-A half-beat difference could save a life or end one instantly.
+Half a beat could keep a person alive,
+or finish them on the spot.
 
-So Kael started with bodies before words this time.
+So this time Kael had them move their bodies before they talked.
 
-"Again." He said it low.
+"Again,"
+he said, low.
 
-The second recovery hand moved first. Jiwoo followed. Ater pulled to the side line half a step late.
+The second recovery hand moved first,
+Han Jiwoo followed,
+and Ater peeled off to the side line a step late.
 
-Kael shook his head immediately.
+Kael shook his head at once.
 
 "Late."
 
-Ater's face hardened.
+Ater's face set.
 
-Kael spoke without mixing in emotion.
+Kael said it without heat.
 
-"If you are late, it becomes suspicion, not confusion. It has to look natural."
+"If you're late, it isn't confusion, it's suspicion."
+"It has to look natural."
 
-Cold, but correct.
+It was cold, but it was right.
 
-Ater's role was not to fight. It was to create a misalignment that, even to the eyes of the upper order, could be explained for just a moment.
+Ater's job was not to fight,
+but to make a misalignment that, even through the eyes of the upper order, could be explained away for a moment.
 
-Force a block and the alert rises immediately. But the more orderly a world is, the more it first tries to resolve small imbalances within composure.
+Block something by force and the alert goes up at once.
+But the more thoroughly ordered a world is,
+the more it tries, at first, to tidy a small imbalance away without losing face.
 
-That half-beat had to be manufactured.
+They had to make that half beat.
 
 "Again."
 
-This time Ater shifted the rhythm first.
+This time Ater changed the rhythm first.
 
-Not too rushed. Not too awkward. Just enough to confuse the adjacent machine's response once.
+Not too hurried,
+not too awkward,
+just enough to muddle the next machine's response, once.
 
-The first recovery hand watched and said it very low.
+The first recovery hand watched and said, very low,
 
-"That one would work."
+"That would work."
 
-Ater did not reply. But his gaze had sunk deeper.
+Ater didn't answer.
+But his eyes had sunk lower.
 
-The fact that what he had to do was only possible by precisely mimicking this order's habits seemed to make him slightly more revolted.
+That what he had to do
+was, in the end, the kind of thing possible only by imitating this order's habits exactly
+seemed to sour him a little more.
 
-Jiwoo's part was harder.
+Han Jiwoo's share was harder.
 
-She had to read in advance: who would follow if a hand was held out, who would respond with their body even if they could not understand the words, who would freeze in terror, who would run too fast and become a danger.
+She had to read first who would follow if she took their hand,
+whose body would respond even if they couldn't follow the words,
+who would freeze in fear,
+and who would instead run too fast and become the danger.
 
-The problem was that none of it could be known with certainty at this stage.
+The problem was
+that none of it could be certain at this stage.
 
-Jiwoo leaned against the wall, closed her eyes briefly, then opened them.
+Han Jiwoo leaned on the wall, closed her eyes for a moment, and opened them.
 
-"I know it has to start with the ones who respond." She said it low. "But that is the way that hurts most."
+"I know it has to be the ones who respond first,"
+she said, low.
+"But that's the way that hurts most."
 
 No one answered.
 
-Because those words meant there would be children the first rescue could not bring back.
+Because what it meant
+was that there would be children the first rescue couldn't bring out.
 
 The first recovery hand spoke very slowly.
 
-"The first time, we have to prove it. That extraction is possible. Only then does a next time exist."
+"The first time, we have to prove it."
+"That we can get them out."
+"That is what makes a next time."
 
-Kael received it short.
+Kael took it up briefly.
 
 "Right."
 
-Jiwoo was not unaware of that. That was why her face looked angrier.
+It wasn't that Han Jiwoo didn't know that.
+That was why her face looked angrier.
 
-Bringing back the ones who can be saved first is the right thing to say. But to those on the rescuing side, it is always the cruelest thing to say as well.
+Bring out the ones you can save first:
+it's the right thing to say.
+But to anyone trying to rescue, it is always the cruelest thing to say as well.
 
-Ater broke the silence as though cutting it.
+Ater spoke up, as if to cut the silence.
 
-"Let us set the criteria."
+"We need criteria."
 
 Kael drew three short lines on the floor.
 
-"First: children who have not fully entered the upper beat. Second: children whose hands or gaze respond to external stimulus. Third: children who will not collapse the entire line if made to run."
+"One: kids who haven't fully gone into the upper beat."
+"Two: kids whose hands or eyes react to something from outside."
+"Three: kids who won't bring the whole line down when we make them run."
 
-The second recovery hand said it low.
+The second recovery hand said, low,
 
-"The last criterion is the one that hurts most."
+"The last one hurts most."
 
-That was true.
+It was true.
 
-Rescue begins with a heart aimed at everyone, but the actual first execution begins by selecting the few who will not bring the whole thing down.
+A rescue begins with a heart turned toward everyone,
+but the first real attempt begins with picking the few who won't bring the whole thing down.
 
-Then some children are left behind — not because they are not worth saving, but because bringing them in this beat could kill everyone.
+And so some child,
+not because they aren't worth saving
+but because bringing them on this beat could kill everyone, gets left behind.
 
-That difference matters immensely. But to those left behind, it will mean nothing at all.
+That difference matters enormously,
+and to the one left behind it will mean nothing at all.
 
-Jiwoo spoke with her jaw clenched.
+Han Jiwoo spoke with her jaw clenched.
 
-"Add the ones who can remember."
+"Put in the ones who can remember, too."
 
 Kael looked at her.
 
-Jiwoo spoke slowly.
+Han Jiwoo spoke slowly.
 
-"Children who remember Hazran. Who remember hands from outside. Who can hold on later to the fact that someone came for them. Even if the first rescue succeeds, for there to be a next time, a trace has to remain in the children who stay inside."
+"Kids who remember Hazran,
+who remember hands from outside,
+who can hold on later to the fact that someone came for them."
+"Even if the first rescue works,
+for there to be a next one, the kids left inside need a trace too."
 
 The room went quiet for a moment.
 
-It sounded emotional, but in reality it was an extremely cold criterion as well.
+It sounded like feeling talking,
+but it was also a very cold criterion.
 
-The first rescue does not end at extracting a few. It includes leaving behind, inside the children who witnessed it, the time, the hands, and the possibility of arrival from outside.
+The first rescue doesn't end with getting a few out.
+It also means leaving, inside the children who see it happen,
+the time outside, the hands, the chance that someone can arrive.
 
-Ater said it low.
+Ater said, low,
 
-"Not a rescue. A fracture."
+"So it is not a rescue, but a crack."
 
-Jiwoo answered short.
+Han Jiwoo answered shortly.
 
 "Both."
 
-Kael did not deny it.
+Kael didn't deny it.
 
-He said it even lower instead.
+Instead he said, lower still,
 
-"Then we cannot afford to fail."
+"Then we can afford to fail even less."
 
-After that, they repeated the same route many times.
+After that they ran the same route again and again.
 
-Where to step forward first. What angle to enter from to pull the children without pushing. How many seconds of confusion before the alert rose. How many people could attach on the return path before speed was lost.
+Where to step out a pace early,
+who had to come in at what angle to draw the children along without shoving them,
+how many seconds the confusion could last before the alert came up,
+how many could cling on along the way back before they lost speed.
 
-Everything was calculated like numbers, but what those numbers contained was, in the end, human bodies.
+Everything was worked out like numbers,
+but what was inside the numbers was, in the end, human bodies.
 
-After several repetitions, the second recovery hand said it very low.
+After a few more runs,
+the second recovery hand said, very low,
 
 "Three."
 
-Everyone looked at him.
+They all looked at it.
 
-"Three is the limit for the first time." He said. "Four if it goes well. More than that and the return path collapses."
+"Three is the limit the first time,"
+it said.
+"Four if it goes well."
+"Any more and the way back collapses."
 
-The number was smaller than expected, and it made the room heavier.
+The number was smaller than they had expected,
+and it made the room heavier.
 
-Three. Four at best.
+Three.
+Four, at best.
 
-Absurdly few compared to the speed at which Serakion was taking them. But the first fracture these hands in this layer could bear was probably exactly that.
+Absurdly few, against the rate Serakion was taking them.
+But the first crack the hands of this layer could carry
+was probably about that size.
 
-Jiwoo said nothing.
+Han Jiwoo said nothing.
 
-Instead she slowly clenched and unclenched her hand. That motion hurt more.
+Instead she slowly closed her hand and opened it.
+That movement hurt more.
 
-Ater leaned against the wall and closed his eyes. Kael looked at the lines one final time.
+Ater put his back to the wall and closed his eyes.
+Kael looked over the lines one last time.
 
-And in that moment, everyone understood the same fact with absolute clarity.
+And in that moment
+they all understood the same thing, very clearly.
 
 The question was no longer whether they could do it.
 
-They could. But three the first time. Four at best. And the act of choosing those few would be the first thing to tear them apart.
+They could.
+But it would be three the first time,
+four at best,
+and choosing those few
+would be the first thing to tear them apart.
 
-By the time that night ended, they had not yet stood before the children, but they already wore the faces of people wounded once.
+By the time that night was over,
+they had not yet stood before a single child,
+and already they wore the faces of people who had been wounded once.
 
-The real rescue had not yet begun.
+The real rescue hadn't started yet.
 
-But the moment they started deciding who to bring first and who to leave behind this time, they were already carrying a share of this world's cruelty in their own hands.
+But the moment they began deciding who would come out first
+and who had to stay behind this time,
+they had already taken a share of that world's cruelty into their own hands.
 
 ---
 

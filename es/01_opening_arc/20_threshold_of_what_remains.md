@@ -1,182 +1,227 @@
 # Capítulo 20 — El umbral de lo que queda
 
-La nave de Han Jiwoo estaba medio apoyada contra la pared exterior de la estructura clausurada.
+El barco de Han Jiwoo estaba medio apoyado contra la pared exterior de la estructura clausurada.
 
-A decir verdad, no era tanto un atraque como tener el casco encajado a la fuerza entre la pared cortada y lo que quedaba del anillo de acoplamiento. Bastaba un pequeño desvío de ángulo para que rozara y resbalara contra la pared; pero echarse demasiado atrás significaba perder la zona de reacción que Sion estaba leyendo. La nave no estaba sujeta a la estructura: aguantaba para no derrumbarse.
+A decir verdad, más que un atraque, era casi como tener el casco colgado a la fuerza entre la pared exterior cortada y el anillo de conexión que quedaba. Con que el ángulo se torciera un poco, podía rozar la pared y resbalar; y, al contrario, si se apartaba demasiado, podía perder la franja misma de reacción que Sion estaba leyendo. El barco no estaba pegado a la estructura: aguantaba para no venirse abajo.
 
-Sion miraba hacia fuera, inclinado cerca de la ranura lateral del casco.
+Sion miraba hacia fuera, agachado cerca de la ranura lateral del casco.
 
-Aquel sitio no era ni un interior cerrado ni el vacío absoluto del espacio. Entre la pared cortada y el corredor medio derrumbado, un campo de mantenimiento que debería haber muerto hacía mucho seguía resistiendo, a duras penas. Aire frío y delgado, pero respirable, apenas; una junta exterior donde un paso en falso te dejaba caer directo hacia fuera; y, más allá, la sombra de una estructura semiabierta que continuaba hacia dentro. El umbral de un punto de transbordo clausurado, flotando en el espacio, que aún no había logrado morir del todo.
+Aquel lugar no era ni un interior del todo ni el espacio abierto del todo. Entre la pared exterior cortada y el corredor medio derrumbado seguía en pie, a duras penas, un campo de mantenimiento que debería haber muerto hacía mucho. Una capa de aire fría y delgada, pero en la que sin duda se podía respirar; juntas exteriores donde un mal paso parecía hundirte directamente hacia fuera; y, más adentro, la sombra de una estructura semiabierta. Era como si el umbral de un punto de transbordo clausurado, flotando en el espacio, aún no hubiera logrado morir del todo.
 
-Seorin habló, apoyada contra la pared interior.
+Seorin habló, apoyada en la pared interior del casco.
 
-—Por la cara que pones, no parece que te alegre verlo.
+—Por tu cara, no parece que te alegre mucho.
 
 Sion respondió sin apartar la mirada.
 
-—Cómo me va a alegrar. Algo que creías muerto y que solo está medio vivo siempre da más problemas.
+—¿Cómo me va a alegrar? Cuando algo que dabas por muerto resulta estar medio vivo, siempre da más problemas.
 
-Un ruido bajo cruzó una vez el canal cerrado de proximidad.
+Un ruido bajo cruzó una vez el canal cerrado de corto alcance.
 
-Cada vez que las capas de metal entre la pared de la estructura y el casco se superponían, el canal local que Jiwoo había ajustado mezclaba ese tipo de cortes minúsculos. No era una comunicación de largo alcance. Justo lo suficiente, como ahora, para conectar brevemente a los que se quedaban en la nave y a los que iban a salir.
+Cada vez que se superponían las capas de metal entre la pared exterior de la estructura y el casco, el canal local que Han Jiwoo había ajustado se llenaba de cortes minúsculos como ese. No era una comunicación que llegara lejos. Lo justo, como ahora, para unir brevemente a quien se quedaba en el barco y a quien iba a salir: ese era su límite.
 
-Llegó la voz de Han Jiwoo.
+Entró la voz de Han Jiwoo.
 
-—Si pegas más el ángulo del casco, raspa.
+—Si acerco más el casco, roza.
 
 Sion contestó enseguida.
 
-—Este es el límite. Empujas más y morimos.
+—Ya estamos al límite. Si empujas más, muere.
 
-Ater se acercó al lado de Sion y examinó la línea de alineación cortada en la pared exterior. El metal había sido cortado una vez, hacía mucho, y luego remachado y rematado de nuevo. No era una estructura clausurada desde el principio. Alguien había querido bloquear este paso, y alguien más lo había dejado sin terminar de matar. La diferencia entre esas dos capas era tan nítida que resultaba inquietante.
+Ater se acercó al lado de Sion y examinó la línea de alineación cortada de la pared exterior. El metal había sido cortado una vez, hacía mucho, y después alguien lo había vuelto a parchear para dejarlo muerto. No había sido una estructura clausurada desde el principio. Alguien había querido cerrar este camino, y alguien más lo había dejado sin que muriera del todo. La diferencia entre esas dos capas era tan nítida que, precisamente por eso, resultaba siniestra.
 
-Sern movió la mirada como si leyera la distribución de las cargas en el exterior, y dijo en voz baja.
+Sern movió la mirada como quien lee la distribución de cargas del exterior y habló en voz baja.
 
-—La pared aguanta. El problema está dentro. Si la reacción sigue viva, lo que muere primero en caso de maniobra errónea también es, con toda probabilidad, lo de dentro.
+—La pared exterior aguanta. El problema es el interior. Si la reacción sigue viva, es muy probable que, si se toca mal, lo primero en morir sea también el interior.
 
 Ater añadió, muy bajo.
 
-—Puede que no sea una estructura que abra una puerta, sino una que elige a quien se acerca.
+—Quizá no sea una estructura que abre una puerta, sino una que elige a quien se acerca.
 
-Ante eso, Sion entrecerró un poco los ojos.
+Ante esas palabras, Sion entrecerró los ojos.
 
-Al otro lado de la ranura, en la oscuridad, bajo el anillo cortado, subía una vibración mínima. Demasiado regular para ser el reflejo de un metal muerto; demasiado débil para ser una línea de guía aún viva. No era una señal que llamara a alguien: se parecía más a una respuesta que verificaba, hasta el último momento, quién tenía derecho a llegar hasta allí.
+En la oscuridad al otro lado de la ranura, bajo el anillo cortado, subía un temblor minúsculo. Tenía demasiada regularidad para ser el reflejo de un metal muerto y era demasiado débil para ser una línea de guía viva. No era una señal que llamara a alguien a acercarse, sino algo más parecido a una reacción que quería comprobar hasta el final quién tenía derecho a llegar hasta allí.
 
-Han Jiwoo abrió un poco más el campo de visión exterior.
+Han Jiwoo abrió un poco más la vista exterior.
 
-Un puente roto, cables retorcidos, anillos de muelle clausurados, y detrás, casi enterrada en la oscuridad, una pequeña estructura de fijación. A primera vista parecía una pieza de acoplamiento abandonada. Pero, mirándola de cerca, solo los puntos de conexión esenciales seguían intactos, de un modo extraño. No estaba derrumbada por una explosión ni por el deterioro: parecía que hubieran recortado todo el entorno dejando intacto solo lo importante.
+Un puente roto, cables retorcidos, anillos de muelle clausurados y, detrás, casi enterrada en la oscuridad, una pequeña estructura de fijación. A primera vista parecía una pieza de conexión abandonada. Pero, mirándola bien, solo las conexiones esenciales seguían ahí, de un modo extraño. No se había derrumbado por una explosión ni por un colapso: parecía que hubieran recortado todo lo de alrededor dejando solo lo importante.
 
-Sion dijo, muy bajo.
+Sion habló muy bajo.
 
 —Es eso.
 
-Jiwoo respondió, breve.
+Han Jiwoo le respondió.
 
-—Sí. La primera señal que ha quedado.
+—Sí. La primera baliza que queda.
 
-Sern habló al instante.
+Sern habló enseguida.
 
-—Es un corte.
+—Está cortada.
 
-Ater, mirando el mismo punto, tomó la palabra.
+Ater abrió también la boca, mirando el mismo punto.
 
-—Lo más probable es que fuera el discriminador auxiliar que filtraba el acceso al punto de transbordo exterior.
+—Lo más probable es que fuera un discriminador auxiliar que seleccionaba el acceso al punto de transbordo exterior.
 
 Seorin frunció el ceño.
 
-—Estupendo. Así que no es una simple puerta.
+—Entonces no es una simple puerta.
 
 —Exacto.
-Dijo Sion.
+Lo dijo Sion.
 —Si se abriera con acercarse de cualquier manera, ya estaría muerta hace tiempo.
 
-Eso conectaba exactamente con la razón por la que habían llegado hasta allí. El fragmento de nombre que Elia había leído no señalaba solo la condena injusta de un único hombre, Jun Aster. Dejaba también la sensación de que un camino entero, el camino que ese nombre debía haber alcanzado, había sido cortado de cuajo en alguna parte. Y la estructura que ahora tenían delante era, con toda probabilidad, la primera escena real que probaba que ese camino cortado había existido de verdad.
+Si la tocaban mal, la reacción que quedaba moría, y se quedarían con un solo fragmento en la mano y sin nada después.
 
-O sea, esto no era una simple exploración de un vestigio.
-
-Si leían bien la reacción que quedaba aquí, podían conseguir la primera prueba física de que el caso Jun Aster no terminaba en la incineración de una sola persona. Al contrario: si lo tocaban mal, la reacción superviviente moría, y con ella se cortaba la primera línea de fragmentos. Peor aún, la última reacción del discriminador podía filtrarse a las redes de rastreo exteriores.
-
-Seorin preguntó, breve.
+Seorin preguntó.
 
 —¿Entramos?
 
-Jiwoo bajó el ángulo del casco apenas un poco más y respondió.
+Han Jiwoo respondió mientras bajaba apenas un poco más el ángulo del casco.
 
-—Directamente no podemos. Debajo de esa estructura todavía hay un punto de enganche vivo. Hay que comprobar eso primero.
+—No puedo pegarme directamente. Debajo de esa estructura todavía hay un punto de enganche vivo. Hay que comprobar eso primero.
 
-—¿Probabilidad de trampa?
-Preguntó Sern.
+—¿Y la probabilidad de que sea una trampa?
+Sern preguntó.
 
 —Alta.
-Respondió Jiwoo sin inmutarse.
-—Pero, trampa o no, si no miramos ahí dentro, no hay siguiente paso.
+Han Jiwoo respondió como si nada.
+—Pero, trampa o no, si no miramos ahí, no hay nada después.
 
-Un silencio breve.
+Un breve silencio.
 
-Podían dar media vuelta. Pero entonces el motivo de haber llegado hasta allí se cortaba con ellos. Retroceder sin mirar este umbral significaba arriesgarse a perder para siempre la primera demostración de que el fragmento de nombre, las coordenadas y la reacción de la señal muerta eran parte de un mismo caso.
+Podían volver atrás. Pero entonces la razón de haber llegado hasta allí quedaría cortada con ellos.
 
-Sion presionó una vez sobre el bolsillo interior.
+Sion apretó una vez sobre el bolsillo interior.
 
-El fragmento donde quedaba el nombre de Jun Aster. Y, aquí, el primer rastro del camino borrado que los había guiado hasta este punto. Si los dos eran de verdad parte del mismo caso, la estructura que tenían delante quizá fuera algo así como la primera frase que los unía.
+El fragmento en el que quedaba el nombre de Jun Aster. Y el rastro del camino borrado que los había traído hasta allí. Si de verdad las dos cosas formaban parte del mismo caso, la estructura que tenían delante quizá fuera algo así como la primera frase que las unía.
 
-Jiwoo dejó la nave a la deriva, muy despacio, sin detenerla del todo.
+Han Jiwoo, sin detener del todo el barco, lo dejó deslizarse muy despacio.
 
-Quedarse inmóvil podía, al contrario, hacer saltar la vigilancia exterior. Esta zona era un camino muerto, pero no un camino del todo vacío. Según quién leyera antes la señal, el camino se abría o se apagaba.
+Detenerse podía, al contrario, ponerlos al alcance de la vigilancia exterior. Esta zona era un camino muerto, pero no un camino del todo vacío. Era un sitio donde, según quién leyera primero la baliza, el camino se abría o moría.
 
-Ater dijo, sereno.
+Ater habló en voz queda.
 
-—Tiene que haber un orden de aproximación.
+—Habrá un orden de aproximación.
 
-Jiwoo lo oyó y esbozó una breve sonrisa.
+Han Jiwoo lo oyó y sonrió de reojo.
 
-—Seguro que sí. Por eso no hemos venido de frente.
+—Lo habrá. Por eso no hemos venido de frente.
 
-Ater siguió con la mirada fija en el exterior.
+Ater continuó, con la vista fija.
 
-—Esa estructura es un anillo residual que antes guiaba las aproximaciones al muelle. Pero mataron el núcleo de la línea de guía y dejaron solo el subsistema auxiliar de alineación. Alguien lo cortó para que solo pudieran acercarse los que saben.
+—Mataron el núcleo de la línea de guía y dejaron solo la sección auxiliar de alineación. Lo cortaron para que solo pudieran acercarse los que saben.
 
-Dentro de la cabina se hizo el silencio un momento.
+Sion lo oyó y miró una vez a Ater.
 
-Sion lo oyó y miró un instante a Ater. Él leía la veta primero; el otro leía la estructura primero. Y, sin embargo, ahora los dos convergían en la misma respuesta de un modo casi desconcertante.
+Seorin habló.
 
-Sern añadió en voz baja.
+—O sea, que antes de dejarte entrar te va a cribar.
 
-—Entonces ese anillo residual no es un dispositivo de acceso, sino de discriminación.
-
-Seorin dijo, breve.
-
-—Estupendo. Antes de dejarte entrar, primero te criba.
-
-—Por eso acercarse de cualquier manera te mata.
-Esta vez no fue Jiwoo, sino Sion, quien respondió.
+—Por eso, si te acercas de cualquier manera, mueres.
+Esta vez no fue Han Jiwoo, sino Sion, quien respondió.
 
 Cuando cayeron esas palabras, el aire dentro del casco volvió a cambiar.
 
-Lo que iban a hacer ya no era una simple aproximación. Era el trabajo de no estropear la reacción que quedaba y, a la vez, hacer que el discriminador los leyera como el bando correcto. No era ir despacio: estaba más cerca de detenerse para no equivocarse.
+Han Jiwoo apartó una mano de los mandos y habló.
 
-Jiwoo soltó una mano de los mandos y dijo.
+—Entonces lo hacemos así. Yo sujeto el ángulo del barco y Sion lee primero el rastro. Sern, calcula el orden de la estructura. Ater, averigua qué lógica de aproximación tenía eso en origen. Seorin, si salta una señal anómala, cortas en el acto.
 
-—Bien. Pues lo hacemos así. Yo sostengo el ángulo de la nave. Sion lee primero el rastro. Sern, calcula el orden de la estructura. Ater, averigua cuál era la lógica de aproximación original. Seorin, si aparece una señal anómala, cortas de inmediato.
+Seorin se rio.
 
-La orden fue corta, y de una naturalidad casi desconcertante. Nadie había decidido quién era el líder y, sin embargo, en esa escena todos sabían que esa era la disposición más acertada en aquel momento.
+—Ahora sí parece trabajo de verdad.
 
-Seorin rió muy brevemente.
+Sion se inclinó más hacia la ranura.
 
-—Ahora sí que parece trabajo de verdad.
+La superficie de la estructura estaba casi muerta, pero no del todo. Bajo la línea de guía cortada aún quedaba una reacción minúscula. No una reacción que esperara a que alguien la leyera, sino una que quería comprobar si la leían bien.
 
-Sion se inclinó un poco más hacia la ranura.
-
-La superficie de la estructura estaba casi muerta, pero no del todo. Bajo la línea de guía cortada aún quedaba una reacción mínima. No esperaba a que la leyeran: verificaba si la estaban leyendo bien.
-
-Ater vio ese patrón y contuvo el aliento, muy despacio.
+En el instante en que vio ese patrón, Ater contuvo el aliento muy despacio.
 
 —Esto…
 
-Sern desplazó la mirada hacia él al instante.
+Sern movió la mirada enseguida.
 
-—¿Lo reconoce?
+—¿Lo conoce?
 
-Ater tardó unos segundos y dijo, con voz baja y dura.
+Unos segundos después, Ater habló con voz baja y dura.
 
-—Se parece a la lógica de clausura imperial, pero no es exactamente lo mismo. Es algo más antiguo.
+—Se parece a la lógica de clausura imperial, pero no es exactamente igual. Es más antigua.
 
-En el instante en que cayeron esas palabras, Sion vio, en la parte baja de la estructura, una marca apenas visible, parecida a un símbolo. Podía ser una señal del linaje de los Myo; podía ser algo aún anterior. Demasiado desgastada para estar seguro, pero al menos una cosa era clara.
+Sern preguntó en el acto.
+
+—¿Cuánto más antigua?
+
+—Esa no es una cifra que yo pueda dar.
+
+—¿Existe una lógica de aprobación que usted desconozca, Excelencia?
+
+Ater no respondió.
+
+Sern tampoco preguntó más. Era la tercera vez en el día que se quedaba sin respuesta, y las tres apuntaban en la misma dirección.
+
+En el instante en que cayeron esas palabras, Sion vio en la parte baja de la estructura un arañazo muy tenue, parecido a un símbolo. Podía ser una marca del linaje de los Myo, o algo anterior. Estaba demasiado gastado para estar seguro, pero al menos una cosa era clara.
 
 Esto no era un camino abandonado.
-Era un camino dejado con apariencia de abandono.
-Borrado y aun así incapaz de morir del todo: un camino que alguien había moldeado a propósito para que solo se leyera por lo que quedaba de él.
+Era un camino que habían dejado fingiendo abandono.
 
-Han Jiwoo dijo en voz baja.
+Han Jiwoo habló en voz baja.
 
-—Entonces ahora sí nos acercamos de verdad.
+—Entonces ahora sí nos pegamos de verdad.
 
-La nave avanzó, imperceptiblemente.
+Y acto seguido soltó los mandos.
 
-A medida que la distancia entre la estructura y el casco menguaba, nadie en la cabina volvió a hablar. Cada cual leía el mismo umbral a su manera. Sion, la veta; Ater, la lógica; Sern, el orden; Seorin, el momento de cortar; Jiwoo, el ángulo que los mantenía vivos.
+Sion se volvió.
 
-Y en el momento en que esos cinco sentidos convergieron por primera vez en un solo punto, el primer umbral real del camino borrado empezó a abrir la boca, en silencio, ante ellos.
+—¿Por qué los sueltas?
 
-A partir de ahora, el coste del fracaso también era distinto. Que los descubrieran ya no significaba solo huir de nuevo: significaba que moriría la primera escena que permitía confirmar quién había cortado este camino. Por eso esta aproximación no era una exploración. Era el primer juicio que fijaría el valor de todo lo que viniera después.
+—Esto no se hace con la mano.
+
+Han Jiwoo sacó hacia arriba dos viejas empuñaduras de la pared junto al asiento de pilotaje. No pertenecían al sistema de mando oficial: eran ejes manuales que empujaban directamente el circuito hidráulico. No eran un objeto original en su sitio original, sino algo que alguien había instalado después.
+
+—Los mandos meten órdenes; esto empuja —dijo ella—. Si metes una orden, el barco ajusta el ángulo por su cuenta, y esa estructura lee ese «por su cuenta». Lo que empuja una persona no lo puede leer.
+
+—¿Por qué no lo puede leer?
+
+—Porque no es constante.
+
+Han Jiwoo apoyó los dos brazos en los ejes y cargó en ellos el peso del cuerpo.
+
+El casco empezó a inclinarse muy despacio. No con suavidad. Un empujón, recolocar las muñecas, otro empujón. Entre uno y otro el barco se sacudía un poco, y con cada sacudida, en algún punto de la pared exterior, el metal soltaba un breve quejido.
+
+Sern oyó ese sonido y levantó la cabeza.
+
+—Está rozando.
+
+—Tiene que rozar.
+
+—¿Aguanta la pared?
+
+—La dejé preparada para que aguante —dijo Han Jiwoo, con los dientes apretados—. Si no se oye el roce, es que no se está pegando.
+
+Sion miró esos brazos. Los callos de la cara interna de dos dedos de la mano izquierda encajaban ahora justo en el eje.
+
+Sern miraba el mismo sitio. La cifra que antes, en el punto de transbordo, había empezado a calcular y había dejado a medias se estaba usando ahora delante de sus ojos.
+
+El barco se deslizó hacia delante muy despacio.
+
+A medida que se acortaba la distancia entre la estructura y el casco, nadie en la cabina volvió a decir nada.
+
+La reacción de la parte baja de la estructura tembló una vez con fuerza.
+
+Bajo la palma de Sion, el casco tembló con ella. Era el mismo compás que antes contaba la baliza.
+
+Cuatro. Cuatro. Tres.
+
+Esta vez, mucho más cerca.
+
+—¿Lo oyes? —preguntó Seorin.
+
+—Sí.
+
+—¿Qué dice?
+
+Sion escuchó una vez más antes de responder.
+
+—Todavía no dice nada. Está mirando qué hacemos nosotros primero.
 
 ---
 

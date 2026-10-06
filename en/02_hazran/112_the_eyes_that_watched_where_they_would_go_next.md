@@ -1,293 +1,281 @@
 # Episode 112. The Eyes That Watched Where They Would Go Next
 
-After Hazran closed,
-the first ones to record the outcome
-were not the survivors.
+After Hazran closed, the first to take down an account of it were not the survivors.
 
-It was the side that missed them.
+It was the side that had lost them.
 
-Inside the Empire's space fleet flagship,
-the commander's chamber was excessively quiet.
+Aboard the flagship of the Imperial space fleet, the commander's office was far too quiet.
 
-The Hazran campaign records.
-Android legion consumption figures.
-Blockade line movement logs.
-Incomplete hull departure record.
+Hazran theater records,
+android legion expenditure,
+blockade line movement logs,
+departure record of an unfinished hull. Everything had been organized item by item.
 
-Everything was organized by category.
-
-Blood,
-fire,
-the body of a city closing to the very end—
-here, it existed only as lines, numbers, and verdicts.
+The blood,
+the fire,
+the body of a city that had kept closing to the very end,
+remained here only as lines and numbers and rulings.
 
 The officer delivering the report spoke low.
 
-"Final collapse of Hazran interior residual defense line confirmed."
-"One incomplete hull departed."
+"Final collapse of residual defense line inside Hazran confirmed."
+"One unfinished hull departed."
 "Recovery failed."
 
-A moment later,
-he read one more line.
+A little later, he read one more line.
 
-"Multiple passengers estimated aboard. Some remaining Hazran personnel eliminated or unconfirmed within the interior."
+"Multiple persons aboard, estimated. Some residual Hazran personnel extinguished internally or unconfirmable."
 
-The language was very smooth.
+The commander paused once at that line.
 
-Which made it crueler.
+"Headcount."
 
-No one in the commander's chamber corrected those sentences.
+The records officer answered.
 
-Eliminated.
-Unconfirmed.
+"No confirmed figure."
+
+"Estimate."
+
+"Only a range. Internal headcount was unavailable even before the blockade."
+
+The commander asked nothing more.
+
+In place of a number, the records officer entered a single marker in that field. *Unknown.* Once that word went in, the field would never be opened again. Whoever opened this record later would find there not a number of people but *Unknown*.
+
+Someone inside Hazran had known that number. Every day it had been counted, scored on a board.
+
+That board now stood in the middle of a collapsed city, and in this record it was written as *Unknown*.
+
+The same thing was written down in two places, and only one would remain.
+
+The language was very smooth. That was exactly what made it crueler.
+
+No one in the commander's office rephrased those sentences.
+
+Extinguished.
+Unconfirmable.
 Recovery failed.
 
-A few words,
-and what happened in Hazran was sufficient for the Empire's records.
+A few words like those were enough to hold what had happened in Hazran inside the Imperial record.
 
 A young officer spoke first.
 
-"Requesting immediate pursuit."
-He said.
-"The hull is incomplete. Capture is possible before long-range departure."
+"We will pursue at once,"
+he said.
+"The hull is unfinished. It can be seized before it makes a long-range escape."
 
-Another officer echoed immediately.
+Another officer backed him immediately.
 
-"In its current state, defensive capability is also low."
-"Recovery now would be certain."
+"In its current state, its defensive capability is low as well."
+"Recovering it now is the surer course."
 
-That judgment wasn't wrong.
+That judgment was not wrong.
 
-The ship that broke through Hazran
-was not an intact vessel.
-Torn,
-patched,
-closer to a hull ripped free by force.
+The ship that had broken out of Hazran was not a sound vessel. It was closer to a hull that had been torn, patched, and wrenched loose by force.
 
-If they wanted to catch it now, they could.
+If they wanted to catch it now, they could. Everyone in that room knew it.
 
-Everyone in the room knew that.
+But the commander did not approve it right away.
 
-But the commander did not approve immediately.
+He studied the Hazran departure route,
+the direction in which the ship had vanished,
+and the small internal mark attached beneath the recovery-failure entry, for a long while.
 
-He was studying the Hazran departure trajectory,
-the direction the ship had vanished,
-and a small internal designation attached below the *recovery failed* entry.
-
-Not an official classification.
-A marking only very few understood.
+It was not even a formal classification, but a mark whose meaning very few knew.
 
 He spoke low.
 
-"Catching them now is the worst option."
+"Taking it now is the poor move."
 
-The air in the commander's chamber stiffened, very faintly.
+The air in the commander's office stiffened, very slightly.
 
-The officer who had pushed for immediate pursuit looked up.
+The officer who had argued for immediate pursuit raised his head.
 
-"But if we lose them—"
+"But if we lose them…"
 
 The commander cut him off.
 
-"We are not losing them."
-He said.
-"We let them go, and we watch."
+"We're not losing them,"
+he said.
+"We're letting them go and watching."
 
-Only a few in the room understood that immediately.
+Only a few in the room understood those words immediately.
 
-More important than the people who survived Hazran
-was what they would touch next.
+What mattered more than the ones who had come out of Hazran alive was what they would reach next.
 
-Recover now, and they capture one hull and a few survivors.
-But doing so
-also closes the next door those people might open.
+Recover them now, and they could take one hull and a few survivors.
+But do that, and the next door they might open would be shut along with them.
 
-That was a loss.
+That would be a loss.
 
 The officer asked carefully.
 
 "Do we maintain pursuit?"
 
-"Maintain it."
+"Maintain."
 
-"And capture?"
+"And seizure?"
 
-The commander answered, very cold.
+The commander answered very coldly.
 
 "Prohibited until authorized."
 
-A short silence.
+A short silence. Then the mood changed.
 
-The atmosphere shifted immediately.
+The operation was now no longer a recovery action but a covert tracking action.
 
-This operation was no longer a recovery mission.
-It had become a covert tracking mission.
-
-Not to catch.
-To watch where they go,
-what they search for,
-what they react to.
+Not with capture as the aim,
+but turned toward watching where they went,
+what they looked for,
+and what they reacted to.
 
 Hazran was over.
-But what came out of Hazran was not.
+But what had come out of Hazran was not.
 
 The commander spoke again.
 
-"One incomplete hull escaped despite that level of loss."
-"Do not assume it carries only simple survivors."
+"One unfinished hull got out after absorbing losses like that."
+"Don't assume there are only ordinary survivors inside."
 
-The words were not explicit,
-but several people in the room already knew.
+It wasn't said outright, but a few in the room already knew.
 
-Hazran was not just one outer city.
-At least this time,
-this was not an incident that ended simply.
+Hazran had not been just one city in the outer reaches.
+At least this time, it was not an incident that would end only that way.
 
-The records officer asked nothing more.
-Instead, at the last entry, he wrote brief.
+The records officer asked nothing more. Instead, he made a short entry under the last item.
 
-*Tracking continues. Recovery deferred. Contact points and subsequent reactions prioritized for observation.*
+**Tracking continues. Recovery deferred. Priority observation of contact points and subsequent reactions.**
 
-With that single line,
-the Empire's posture after Hazran was decided.
+With that one line, the Empire's stance after Hazran was settled.
 
-Don't catch.
-Watch instead.
+They would not seize.
+They would watch instead.
 
 ---
 
-When the situation report reached the Alliance side,
-they didn't look at numbers first, the way the Empire did.
+When the after-action report reached the Alliance side, they did not look at the numbers first the way the Empire did.
 
-They calculated profit and loss first.
+They calculated profit and loss first instead.
 
 Hazran lost.
-Blockade campaign concluded.
-Incomplete hull departed.
-Empire legion consumed.
-Outer stability degraded.
+Blockade battle concluded.
+Unfinished hull departed.
+Imperial legion expended.
+Outer-reach stability degraded.
 
 The reading order was different.
 
-No one in the Alliance conference room mourned Hazran.
-That city had only ever been
-one of the outer spaces where the Alliance used the Empire's legion to bleed less of its own.
+In the Alliance conference room, no one mourned Hazran.
+From the start, that city had been just one of the outer spaces where the Alliance made use of the Imperial legion so it would bleed less of its own.
 
-So what mattered now
-was not that the city had vanished,
-but how far that vanishing had shaken the Empire's calculations.
+So what mattered now was not the fact that the city had vanished, but how far that vanishing had shaken the Empire's calculations.
 
-A woman whose gray hair looked as if it had gone white
-rested only her fingertips on the report, listening quietly.
+A woman whose gray hair looked as if it had gone white was listening quietly, only her fingertips resting on the report.
 
 Kanus Han.
 
-In the Alliance's Outer Adjustment Office,
-she was the person who calculated what balance twists when someone loses where.
+While she listened, she pulled one sheet out of the report and set it apart.
 
-She waited until everyone else had spoken, then asked very low.
+It was the sheet that listed the dead and the lost. She pushed that sheet aside and spread out only the rest again.
 
-"It is confirmed that the Empire did not move to immediate recovery?"
+The person beside her saw it.
 
-The figure across from her nodded.
+"You won't look at that one?"
 
-"Confirmed."
-"They are maintaining pursuit but not rushing capture."
+"That's already a finished number,"
+she said.
+"A finished number doesn't move anything."
 
-A short silence.
+No one answered. It wasn't wrong, so there was nothing to answer.
 
-Kanus lowered her eyes and slowly turned a section of the report.
+In the Alliance Outer Coordination Office, she was the one who calculated which balance would twist when who lost where.
 
-She didn't look at people first.
-She was someone who looked first at what people would shake next.
+Only after the others had said all they had to say did she ask, very low.
 
-And right now,
-what she was reading wasn't the tragedy of Hazran's survivors.
+"You're sure the Empire didn't go straight into recovery?"
 
-It was whether they could touch something of the Empire's.
+The person across from her nodded.
 
-Someone in the conference room said, low.
+"Certain."
+"They're maintaining pursuit, but they're not hurrying the seizure."
+
+A brief silence.
+
+Kanus lowered her eyes and slowly turned through part of the report.
+
+She didn't look at people first. She was someone who looked first at where people would shake things next.
+
+And what she was reading now was not the tragedy of Hazran's survivors.
+
+It was what of the Empire's they might be able to touch.
+
+Someone in the conference room spoke low.
 
 "Did the Empire miss something?"
 
-Kanus raised her gaze.
+Kanus raised her eyes.
 
-"No."
-She said.
-"It might not be that they missed it—but that they left it."
+"No,"
+she said.
+"It may not have missed it. It may have left it."
 
-Those words changed the conference room air immediately.
+Those words changed the air in the room at once.
 
-The Alliance recognized it at once.
+The Alliance caught on right there.
 
-The Empire wasn't chasing survivors right now.
-It was watching the next threshold those survivors would reach.
+The Empire was not chasing the survivors now. It was watching the next threshold the survivors would reach.
 
-And that meant
-the Alliance had to watch the same threshold.
+And that meant the Alliance had to watch that threshold too.
 
 Kanus closed the report.
 
-"What we should be watching isn't the survivors."
-She said.
+"What we watch isn't the survivors,"
+she said.
 "What matters is where they open next."
 
-Those words were very quiet,
-which made them more definitive.
+The words were very quiet, and that made them all the more decisive.
 
-Sion's group was no longer simple fugitives.
-After escaping Hazran,
-they had become a moving variable with enough potential to reach somewhere next—
-enough that the Empire wouldn't recover them immediately.
+Sion's party were no longer simple fugitives.
+Since getting out of Hazran,
+they had become something the Empire would not immediately recover:
+a moving variable that might reach somewhere next.
 
-Then the Alliance's task was clear.
+Then what the Alliance had to do was clear.
 
-No need to step forward right now.
-Rather, keep distance.
-Watch how far the Empire follows.
-Watch what that ship searches for as it moves.
+There was no need to step in right now. If anything, they had to keep their distance and first watch how far the Empire stayed on them, and what that ship was moving to find.
 
-And when the moment comes,
-be the first to reach out.
+And when it became necessary, they need only be the first to reach out a hand.
 
-"Maintain surveillance."
+"Keep up surveillance,"
 Kanus said.
-"Direct contact still prohibited."
+"Direct contact is still prohibited."
 
-One figure asked.
+Someone asked.
 
-"What about support disguise vessels?"
+"And the disguised support ship?"
 
-Kanus thought briefly, then answered.
+Kanus thought for a moment before answering.
 
-"Lower priority."
-"For now, it is better to let the Empire grow more anxious."
+"Low priority."
+"For now it's better to let the Empire grow more anxious."
 
-Not who lost what,
-but who reaches the next threshold first.
+Not who had lost what, but who would reach the next threshold first.
 
-Kanus Han
-was the person who read that question as structure
-faster than anyone in the Alliance.
+Kanus Han was someone who read that question as structure faster than anyone in the Alliance.
 
-Hazran was already a finished city.
-But that ending
-was also the beginning of a new calculation for the Alliance.
+Hazran was already a finished city. But that ending was the beginning of a new calculation for the Alliance.
 
 ---
 
-The Empire chose tracking, in the language of order.
-The Alliance chose observation, in the language of pragmatism.
+The Empire chose pursuit in the language of order, and the Alliance chose watching in the language of practicality. They looked different on the surface, but the two were looking in the same direction—not at the people who had survived Hazran themselves, but at what they would open next.
 
-They looked different on the surface,
-but the direction they watched was the same.
+And what the two had erased was the same too.
 
-Not the people who survived Hazran themselves,
-but what they would open next.
+One side wrote *Unknown* and the other called it a finished number. In neither record did it remain how many people had died in Hazran.
 
-Hazran was closed.
-Now the eyes of the world
-were turning toward what lay beyond that closing.
+The one who knew that number was sitting right now inside the ship they were both chasing.
+
+Hazran was closed. Now the eyes of the world were turning outside that closing.
 
 ---
 

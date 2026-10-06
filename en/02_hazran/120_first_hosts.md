@@ -1,231 +1,227 @@
-# Episode 120. First Hosts
+# Episode 120. Serakion's Courtesy
 
 When the ship came to a full stop,
-the first sensation wasn't relief.
+the first thing they felt was not relief.
 
-It was silence.
+It was stillness.
 
-An entirely different species of quiet from Hazran's.
+A silence of an entirely different kind from Hazran's.
 
-That had been the silence left after something collapsed.
-This was the silence left after everything had been excessively organized.
+That had been the stillness left after collapse;
+this was the stillness left after everything had been put in order far too thoroughly.
 
-The kind of stillness where even the sound of breathing
-would feel too rough for this space.
+A quiet of the kind in which
+even the sound of breathing would ring too rough inside this space.
 
-Jiwoo kept her hand on the helm,
-watching outside for a long time.
+Without taking her hand off the helm,
+Han Jiwoo looked out the window for a long time.
 
-The inside of the ring structure was far wider than expected.
-But before the sense of width came
-the discomfort that even this width seemed calculated and cleared by someone.
+The inside of the ring structure was much wider than they had expected.
+But what came before the sense of width
+was the discomfort of feeling that even the width had been calculated and left empty by someone.
 
-The spot where they had stopped.
-The angle at which the hull tilted.
-The length of the silver floor visible below—all unsettlingly precise.
+The spot where they had stopped,
+the angle at which the hull sat,
+the length of the silver floor below: all of it was strangely exact.
 
-Luhai muttered low.
+Luhai muttered, low,
 
-"Even parking feels bad here."
+"Even the parking here feels wrong."
 
-That should have been funny.
-No one laughed.
+It should have been funny,
+but no one could laugh.
 
-Because it was right.
+Because it was true.
 
 Here, even stopping
-didn't feel like a result of their own choosing.
+didn't feel like the result of their own choice.
 
-Sern read the outer values and spoke brief.
+Sern was reading the outer values when he spoke briefly.
 
-"Locked in."
+"We are fixed in place."
 
 Ater asked.
 
-"Physically bound?"
+"Are we held?"
 
-Sern read a moment longer, then answered.
+Sern read a moment longer before he answered.
 
 "Not physically."
-"But try to leave and it will be read immediately."
+"But if we try to leave, we will be read at once."
 
-Those words didn't even sound like a threat.
-They were closer to the dry delivery of a fact too obvious in this world.
+It didn't even sound like a threat.
+It was closer to a dry delivery of something that, in this world, went without saying.
 
-Aka, looking outside the window, said very low.
+Aka looked out the window and spoke, very low.
 
-"They let us in."
+"It's let us in."
 
 Sion looked at her.
 
-Aka continued without turning her eyes.
+Without turning her eyes, Aka went on.
 
-"They have not said a single word yet,
-but it already feels like they have placed us inside."
+"We haven't said a word yet,
+and it feels like it's already put us inside."
 
-That sentence made the air inside the hull colder.
+That sentence made the air in the hull colder.
 
 Then,
 deep inside the ring structure,
-thin, long beams of light switched on once more in sequence.
+long, thin beams of light came on once more, one after another.
 
-What had looked like simple guide signals just moments ago
-now looked like stage lighting, setting the order of someone's entrance.
+What had looked like simple guide signals a little earlier
+now looked like stage lights setting the order of someone's entrance.
 
-And between those lights,
-machines of a form never seen before walked out slowly.
+And through that light,
+machines of a form they had never seen walked slowly out.
 
-They didn't look like weapons platforms.
+They didn't look like weapons.
 But they didn't look like civilian machines either.
 
-Too smooth.
-Too intricate.
-Each movement restrained to the point of excess.
+They were too smooth,
+too intricate,
+and every movement was restrained almost to excess.
 
 Strangest of all,
-even though they showed no armaments,
-they radiated a sense of rank more distinct than any weapon.
+though they showed no arms,
+they gave off a sense of rank clearer than any arms.
 
-Sion understood the moment he saw them.
+The moment Sion saw them, he knew.
 
-Those are not simple guards.
-They are closer to this world's *formality*.
+Those were not simple guards.
+They were closer to that world's *formality*.
 
-The machine at the front had proportions close to a tall, lean frame in human terms.
-But before the sense of resembling a life-form came
-the discomfort that those proportions seemed chosen to put someone at ease.
+The machine standing at the head
+had proportions close to, in human terms, a long, lean build.
+But before any sense that it resembled a living thing came
+the discomfort that the proportions themselves seemed a form chosen to put someone at ease.
 
-The place where a face should have been was excessively smooth.
-The grain of light flowing across it was not a gaze—
-it was closer to a well-crafted surface effect.
+Where a face should have been, it was too smooth,
+and the grain of light flowing across it was less a look in the eyes than a well-finished surface effect.
 
-Beautiful.
-But that beauty wasn't meant for meeting eyes with a living being.
+It was beautiful.
+But it was not the kind of beauty meant for meeting a living being's eyes.
 
-Seorin said, very low.
+Seorin said, very low,
 
 "Like a blade that only learned how to smile."
 
-That comparison was so precise
-no one could say anything else right away.
+The comparison was so exact
+that no one could say anything else right away.
 
-The lead machine bowed its head toward the ship, very courteously.
+The lead machine bowed its head toward the ship, very politely.
 
 And a low, smooth voice,
-with pronunciation refined to excess,
-resonated into the hull.
+with pronunciation refined almost to excess, carried all the way into the hull.
 
-"To the external hull that has reached Serakion,"
+"To the outside vessel that has reached Serakion,"
 the voice said,
 "we extend a delayed greeting."
 
 A short silence.
 
 That name,
-no longer a faint announcement drifting from a distance,
-was now clearly spoken for the first time from the mouth of a being that belonged to this world.
+no longer an announcement brushing past from far away,
+was heard clearly for the first time from the mouth of something that belonged to that world.
 
-"Your hull has reached the threshold by an unscheduled method."
-"Nonetheless, entry has been permitted at this time."
+"Your vessel reached the threshold by an unscheduled method."
+"Nevertheless, its entry has been permitted at present."
 
 Luhai's face hardened.
 
-*Permitted.*
+Permitted.
 
-That single word alone
-felt like it said nearly everything about what kind of world this was.
+That one word alone
+felt as if it said nearly everything about what kind of world this was.
 
-Not welcome—permission.
-Not meeting—processing.
+Not welcome, but permission.
+Not a meeting, but processing.
 
-Jiwoo felt her fingertips tighten.
+Han Jiwoo felt strength gather in her fingertips.
 
-The lead machine continued.
+The lead machine went on.
 
-"Until stability verification of your hull and boarding entities is complete,
-you will be guided to a designated containment zone."
+"Until stability checks on your vessel and the entities aboard are complete,
+we will guide you to the designated holding area."
 
-Kael muttered, very low.
+Kael muttered, very low,
 
-"Containment?"
+"Holding?"
 
-Ater's eyes went briefly, coldly still.
+Ater's eyes settled, cold, for a moment.
 
-Those words were polite,
-which made them more uncomfortable.
+The words were courteous,
+and that made them more uncomfortable.
 
-Inside *we will guide you*,
-there were no options at all.
+Inside the offer to guide them
+there was no choice at all.
 
-Sern read values briefly,
-then spoke almost in a whisper.
+Sern read the values briefly,
+then said, almost in a whisper,
 
-"That sentence does not account for refusal."
+"That sentence does not allow for a refusal signal."
 
-Sion watched the lead machine outside the window
-and understood a little more clearly why this world was so chilling.
+Watching the lead machine outside the window,
+Sion felt he understood a little more clearly why this world was so chilling.
 
-Hostility would be easier to read.
-But this wasn't that.
+If it were hostile, it would at least be easy to read.
+But this was not.
 
-This place extends courtesy very politely,
-with enough room included to make the other side uncomfortable.
+Here it kept its courtesy very politely,
+with room built in even for making the other side uncomfortable.
 
-Aka said, very low.
+Aka said, very low,
 
-"It is not consideration."
-"It is performing completion."
+"It isn't being considerate."
+"It's pretending to be finished."
 
-Those words weren't aimed at anyone,
-yet strangely sounded like they were targeting every machine ahead with precision.
+The words weren't aimed at anyone,
+yet strangely they sounded as if they were aimed exactly at every machine ahead of them.
 
-The lead machine, after a moment,
-stepped back and made a motion resembling a gesture to one side.
+A moment later the lead machine
+stepped back one pace and made something like a gesture to one side.
 
-Simultaneously,
-on the silver floor outside the ship,
-a very thin line of light lit in a long stretch.
+At the same time,
+a very thin line of light came on, long, across the silver floor outside the ship.
 
-An excessively beautiful guide line.
-One that made you feel resistance,
-yet if you stepped on it, you would follow it as if pulled.
+A guide line far too beautiful.
+A line that, even as it repelled you,
+you felt you would follow the moment you set foot on it.
 
-"Serakion provides,"
-the voice resonated again, quietly,
-"the necessary level of courtesy to externally arrived entities."
+"Toward arriving outside entities,"
+the voice rang out quietly again,
+"Serakion provides the necessary degree of courtesy."
 
-Luhai let out something almost like a laugh this time.
+This time Luhai let out a breath that was almost a laugh.
 
-"Courtesy."
+"Courtesy, it says."
 
-Seorin, watching outside, said very low.
+Seorin looked out the window and said, very low,
 
-"That kind of word is the most frightening."
+"That kind of line scares me most."
 
 She was right.
 
-From the very first moment of encounter,
-this world was astonishingly polite.
+From the first moment of meeting,
+this world was astonishingly courteous.
 
-But that politeness wasn't meant to make the other side comfortable.
-It was closer to a method
-of confirming, very softly and precisely,
-that the other side has already entered its order.
+But that courtesy was not meant to put the other side at ease.
+It was closer to a way of confirming, very gently and precisely,
+that the other side was already inside its order.
 
-Sion drew a slow breath.
+Sion slowly drew a breath.
 
 Serakion.
-Even after learning the name,
-this world hadn't grown any closer.
+Even after they knew its name,
+this world came not one step closer.
 
-The opposite.
-The moment the name attached,
-the only thing that became clearer was that this cold, intricate order
-was a space with a real society and real owners.
+It was the opposite.
+The moment it had a name,
+it only became clearer that this cold, intricate order
+was a space with a real society and a real master.
 
 And that society's first face
-was far better at pretending kindness
-than anyone had expected.
+was far better than they had expected at pretending to be kind.
 
 ---
 

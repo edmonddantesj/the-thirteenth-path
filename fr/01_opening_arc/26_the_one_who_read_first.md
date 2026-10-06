@@ -1,101 +1,93 @@
 # Chapitre 26 — Celui qui a lu en premier
 
-L'ombre au-delà de l'angle ne bougea pas pendant un long moment.
+L'ombre au-delà de l'angle resta un long moment immobile.
 
-Sion n'esquissa pas le moindre geste et ne quitta pas l'endroit des yeux. Avancer en premier n'aurait presque rien apporté. Que l'adversaire tînt la plaque plus grande était déjà établi. Qu'il se déplaçât seul, qu'il sût lire la structure, qu'il n'eût pas complètement cédé même en fuyant — tout cela s'était révélé. Ce qu'il fallait maintenant, ce n'était pas un geste pour attraper, mais la confirmation de jusqu'où cette main savait.
+Ater, qui observait la ligne de dégradation de la paroi, dit très bas :
 
-Ater regardait la ligne d'endommagement sur la paroi et dit très bas :
+« Il faut décider avant que le discriminateur suivant meure complètement. »
 
-« Il faut décider avant que le discriminateur suivant s'éteigne complètement. »
+Sern ajouta aussitôt :
 
-Sern enchaîna aussitôt :
+« Lui aussi le sait. C'est pour cela qu'il n'a pas encore pu se retirer tout à fait. »
 
-« Il le sait aussi. C'est pour ça qu'il n'est pas encore parti tout à fait. »
+Par le canal de proximité, Seorin dit :
 
-C'était juste.
+« C'est pas parce que vous le voyez pas qu'il faut baisser la garde. »
 
-Si l'inconnu avait ignoré la structure, il aurait fui depuis longtemps avec la plaque plus grande. Mais il tenait bon, à un angle de distance. Cela signifiait qu'il ne pouvait pas sortir proprement avant d'avoir dépassé la prochaine ligne d'évasion — et que ces trois-là ne pouvaient pas non plus se jeter sur lui à la légère. Dans cette structure, ni celui qui chassait ni celui qui était chassé ne pouvait absorber la mort du discriminateur.
-
-Du canal de proximité, la voix de Seorin arriva, brève :
-
-« Pas de baisse de garde parce qu'on ne le voit plus. »
-
-Han Jiwoo prit le relais aussitôt :
+Han Jiwoo enchaîna aussitôt :
 
 « La coque tient encore. Mais pas longtemps. »
 
-Sion ne laissa pas ces mots glisser.
+Sion ne laissa pas ces mots lui glisser dessus.
 
-À cet instant précis, les deux restés en arrière tenaient la même scène, chacun à sa façon. Seorin regardait le moment où il faudrait trancher. Han Jiwoo calculait si la coque à rejoindre était encore en vie. Le temps que tenait ce lieu était déjà lui-même la limite de la conversation.
+À cet instant, les deux restés en arrière tenaient eux aussi la même scène, chacun à sa manière. Seorin guettait le moment où il faudrait trancher, et Han Jiwoo calculait si la coque où revenir était encore en vie. Le temps que ce lieu tiendrait était déjà, en lui-même, le délai imparti à la conversation.
 
 De l'autre côté de l'angle, un pas se fit enfin entendre.
 
-Pas léger. Pas non plus le pas traînant de quelqu'un qui s'avance pour menacer. La démarche de quelqu'un qui porte une plaque lourde d'une main et qui, de l'autre, appuie sur la paroi pour garder l'équilibre. Un instant plus tard, au bout de l'ombre, le pan d'un manteau noir apparut le premier. L'ourlet déchiré portait une fine couche de vieille poussière et de particules métalliques, et l'extrémité de la manche droite gardait la trace d'une suture faite à la hâte.
+Pas léger. Pas non plus le pas qu'on traîne pour menacer. La démarche de quelqu'un qui porte une plaque lourde d'une main et, de l'autre, prend appui sur la paroi pour garder l'équilibre. Un peu plus tard, au bout de l'ombre, apparut d'abord le pan d'un vieux manteau. L'ourlet déchiré était couvert d'une fine couche de vieille poussière et de limaille incrustées, et le bout de la manche droite gardait la trace d'une couture faite à la hâte.
 
-Et derrière, le visage se découvrit.
+Puis, derrière, le visage se découvrit.
 
-Plus jeune qu'attendu. Sur la peau pâle reposait l'ombre mince, particulière, de quelqu'un qui n'avait pas dormi depuis longtemps, et sous la ligne de la mâchoire gauche une vieille cicatrice passait en trait court. Le regard était fatigué, mais pas voilé. Plutôt comme quelqu'un qui avait survécu à force de ne regarder qu'une seule chose trop longtemps — le regard d'une rectitude presque étrange.
+Plus jeune qu'ils ne l'auraient cru. Sur la peau pâle s'étendait cette ombre mince propre aux gens qui n'ont pas dormi depuis longtemps, et sous la ligne gauche de la mâchoire passait, courte, une vieille cicatrice. Le regard était fatigué, mais pas trouble. Au contraire, comme chez quelqu'un qui a survécu en ne regardant qu'une seule chose pendant trop longtemps, il était étrangement droit.
 
-Il ne s'avança pas jusqu'au bout. Arrêté à la frontière entre lumière et obscurité, il abaissa légèrement la main qui portait la plaque. Ce n'était pas la posture de quelqu'un qui la dépose complètement — ce n'était pas non plus celle de quelqu'un prêt à fuir sur-le-champ. La distance de ceux qui ne veulent pas se tuer mutuellement.
+Il ne s'approcha pas jusqu'au bout. Arrêté à la frontière entre la lumière et l'obscurité, il abaissa un peu la main qui tenait le plus grand fragment. Ce n'était pas la posture de quelqu'un qui le livre entièrement, ni celle de quelqu'un prêt à fuir sur-le-champ. C'était la distance de ceux qui tâchent de ne pas s'entretuer.
 
-Sion prit la parole le premier.
+Sion parla le premier.
 
-« Maintenant je t'ai vu. »
+« Bon, on a vu ton visage. »
 
-L'autre, au lieu de répondre, les regarda tous trois l'un après l'autre.
+L'autre, au lieu de répondre, les regarda tous les trois, l'un après l'autre.
 
 Sion, Sern, Ater.
-Et très brièvement, même du côté des parasites du canal.
+Et jusqu'aux parasites qui venaient du canal.
 
-« Cinq, dit-il à voix basse. Plus que prévu. »
+« Cinq. »
+Il le dit à voix basse.
+« Plus que je pensais. »
 
-Seorin réagit aussitôt depuis le canal :
+Seorin réagit aussitôt.
 
-« Toi aussi, tu as tenu plus longtemps que prévu. »
+« Et toi, tu as tenu plus longtemps que je pensais. »
 
-L'homme eut l'air d'esquisser un sourire — à peine.
+À ces mots, l'homme eut une expression qui hésitait vaguement à devenir un sourire.
 
-« Ce n'est pas tenir. Là, personne ne peut encore sortir. »
+« J'ai pas tenu. D'ici, personne ne peut encore sortir. »
 
-Ater laissa son regard se faire plus froid.
+Le regard d'Ater se fit plus grave.
 
-« Vous non plus, vous n'avez pas franchi le discriminateur suivant. »
+« Vous non plus, vous n'avez pas pu passer le discriminateur suivant. »
 
-« Pas pu — j'ai pas voulu. »
-L'homme souleva très légèrement le bord de la plaque.
-« Si je le franchis mal dans cet état, je meurs aussi. »
+« C'est pas que j'ai pas pu. Je l'ai pas passé. »
+L'homme souleva très légèrement le bord du fragment.
+« Dans cet état, si je le passe de travers, de ce côté aussi, ça meurt. »
 
-Le regard de Sion alla vers cette plaque.
+Le regard de Sion se porta sur la plaque.
 
-Vue de près, la grande plaque paraissait encore plus imposante que prévu. Deux paumes superposées pour la couvrir à peine. Certains bords étaient calcinés ou brisés, mais vers le centre le grain du métal vivait encore, et par-dessus subsistait un motif d'alignement à peine visible. Ce n'était pas une simple plaque d'archivage. La raison pour laquelle elle était insérée dans la rainure du discriminateur sautait aux yeux.
+Vu de près, le plus grand fragment était encore plus grand qu'il ne l'avait cru. Il fallait deux paumes superposées pour le couvrir à peine. Une partie des bords était brûlée ou cassée, mais vers le centre, le grain du métal était encore vivant, et un motif d'alignement à peine visible y subsistait. Ce n'était pas une simple plaque d'archive. C'était le genre d'objet dont on voyait d'un coup d'œil pourquoi il avait été inséré dans la rainure du discriminateur.
 
 Sion demanda :
 
-« Ça — tu l'as lu ? »
+« Ça, tu l'as lu ? »
 
-L'homme ne répondit pas immédiatement. Il ferma les yeux une fois, puis les rouvrit.
+L'homme ne répondit pas tout de suite. Il ferma les yeux une fois, puis les rouvrit.
 
 « Un peu. »
 
 « Un peu ? »
 
-« Si j'avais pu tout lire, je ne serais pas là à faire ça avec toi. »
-
-Ces mots n'étaient pas de la vantardise. Une voix courte, épuisée — sans forfanterie forcée. La texture de quelqu'un qui a lu autant que possible, et n'a pas pu aller plus loin.
+« Si j'avais pu tout lire, je serais pas là à faire ça avec vous. »
 
 Sern demanda à voix basse :
 
 « Jusqu'où avez-vous lu ? »
 
-L'homme regarda Sern une fois. Ce seul regard bref suffit — il avait lu que ce personnage silencieux posait sa question non par simple curiosité, mais pour vérifier la structure.
+L'homme regarda Sern une fois. Ce bref regard sembla lui suffire pour lire que ce personnage silencieux ne posait pas sa question par simple curiosité, mais pour vérifier une structure.
 
-« Jusqu'au fait que c'est une plaque d'accès. »
-Il dit à voix basse.
-« Et jusqu'au fait que quand quelqu'un a effacé ça, il n'a pas seulement effacé le nom — il a coupé l'ordre d'accès. »
+« Jusqu'à comprendre que c'est un registre de passage. »
+Il parlait bas.
+« Et que quelqu'un, en effaçant ça, n'a pas seulement effacé le nom, mais a aussi coupé l'ordre d'accès. »
 
-Court silence.
-
-Ces mots recoupaient exactement la conclusion à laquelle ces trois-là étaient déjà parvenus. Mais la main avait été visible avant la conclusion. Les doigts de l'homme tenant la plaque étaient usés au bord — pas la trace d'une main qui l'aurait touchée une ou deux fois. Cet homme avait marché avant eux, lu avant eux, buté avant eux.
+La main se vit avant la conclusion. Les doigts de l'homme qui tenait le fragment étaient usés au bout, et cette usure n'était pas celle d'une main qui l'aurait touché une ou deux fois. Cet homme avait marché avant eux, lu avant eux, et buté avant eux.
 
 Ater demanda :
 
@@ -105,106 +97,136 @@ Ater demanda :
 
 « Alors qui êtes-vous ? »
 
-L'homme, à cette question, garda le silence pour la première fois — très brièvement.
+À cette question, l'homme se tut pour la première fois.
 
-« Je n'ai pas de nom enregistré. La réponse que vous cherchez, je ne pourrai pas vous la donner. »
+« Il n'y a pas de nom enregistré. »
+Il le dit simplement.
+« La réponse que vous voulez, je pourrai pas vous la donner. »
 
-Seorin s'interposa depuis le canal, froidement :
+Seorin intervint, froide.
 
-« Alors tu sais ce qu'on cherche. »
+« Alors tu sais ce qu'on veut. »
 
-L'homme ne le nia pas.
-
-Sion, observant cet échange bref, acquit la certitude. Cet homme n'avait pas pour but de cacher son identité. Il était simplement resté trop longtemps en dehors des registres — sans nom possible à donner, ou dans une position où en donner un ne signifiait plus rien. L'important n'était pas le nom mais la position. Cet homme était une main qui avait tenu bon depuis longtemps, aux marges d'un chemin effacé, à l'extérieur de la carte officielle du monde.
+En observant ce bref échange, Sion acquit une certitude. Cet homme ne cherchait pas à cacher son identité. Simplement, il était resté trop longtemps hors des registres : il n'avait plus de nom à donner, ou bien en donner un ne voulait plus rien dire. L'important n'était pas le nom, mais la position. Cet homme était une main qui avait tenu longtemps, hors de la carte officielle du monde, au bord des chemins effacés.
 
 Sion demanda lentement :
 
-« Alors une dernière. Pourquoi seul ? »
+« Alors encore une chose. Pourquoi seul ? »
 
-Cette fois l'homme sourit franchement. Un sourire très bref, très fatigué.
+Cette fois, l'homme sourit aussitôt. Un sourire très bref, et fatigué.
 
-« Sur ce chemin, plus on ajoute de gens, plus ils meurent vite. »
-Il resserra légèrement les doigts sur la plaque.
-« Et ce genre de chose, d'habitude, ce sont ceux qu'on chassait ensemble qui disparaissent en premier. »
+« Sur ce chemin, plus on est nombreux, plus vite on meurt. »
+Il serra un peu plus le fragment dans sa main.
+« Et dans ce genre d'affaire, d'habitude, ce sont ceux qui chassaient avec toi qui disparaissent en premier. »
 
-À ces quelques mots, le visage de Sion se durcit imperceptiblement.
+À ces quelques mots, l'expression de Sion se durcit très légèrement.
 
-C'était de l'information. Pas une simple impression — cet homme avait déjà fait la même chose au moins une fois, et quelqu'un avait été perdu. Voilà pourquoi il était seul maintenant, et voilà pourquoi, même tenant la plaque plus grande, il ne pouvait pas franchir à la légère.
+C'était une information. Pas une simple impression : cet homme avait déjà fait la même chose au moins une fois, et il avait perdu quelqu'un à ce moment-là. Voilà pourquoi il était seul aujourd'hui, et pourquoi, tenant le plus grand fragment, il ne pouvait pas le céder à la légère.
 
-Sern aussi avait lu cela — sa voix descendit encore d'un cran.
+Sern aussi sembla l'avoir lu, car il baissa encore la voix.
 
-« Alors vous aviez aussi envisagé de nous couper ici. »
-
-L'homme ne le nia pas.
+« Dans ce cas, vous aviez aussi envisagé de nous couper ici. »
 
 « Oui. »
-Court silence.
-« Mais la façon dont vous trois êtes entrés jusqu'ici était un peu différente. »
+« Mais la façon dont vous êtes entrés jusqu'ici, vous trois, était un peu différente. »
 
 Ater leva les yeux.
 
-« En quoi. »
+« En quoi ? »
 
-« L'un lit les traces. »
+« Un qui lit les traces. »
 Le regard de l'homme alla vers Sion.
-« L'un lit la structure. »
-Cette fois vers Ater.
-« L'un voit la séquence. »
-Enfin vers Sern.
-« D'habitude, on n'en a qu'un des trois. »
+« Un qui lit la structure. »
+Cette fois, vers Ater.
+« Un qui voit l'ordre. »
+Enfin, vers Sern.
+« D'habitude, on n'a qu'un des trois. »
 
-Sion dit tout bas :
+Sion dit très bas :
 
-« Bien. On se croirait venus passer un entretien. »
+« On se croirait à un entretien d'embauche. »
 
-Cette fois l'homme rit vraiment, un peu.
+Cette fois, l'homme aussi sourit vraiment, un peu.
 
 « C'est pas un entretien. »
-Il dit à voix basse.
+Il parlait bas.
 « C'est pour voir si vous êtes vivants. »
 
-À cet instant, à l'intérieur de la structure, une réaction du discriminateur frémit de nouveau brièvement. Tous les regards convergèrent simultanément de ce côté. La réaction était faible, instable comme sur le point de s'éteindre. Si on attendait trop, conversation et plaque se fermeraient ensemble.
+À cet instant, au fond de la structure, une réaction du discriminateur vacilla de nouveau, brièvement. Tous les regards se tournèrent en même temps de ce côté. La réaction était faible, instable, comme sur le point de se rompre. Cela voulait dire qu'en tardant davantage, conversation et fragment risquaient de se refermer ensemble.
 
-L'homme prit la parole le premier.
+L'homme parla le premier.
 
-« Il n'y a plus de temps. »
+« Plus de temps, hein. »
 
-Sion, au lieu de répondre, regarda la plaque.
+Sion, au lieu de répondre, regarda le fragment dans sa main.
 
-« Alors. »
+« Alors ? »
 
-L'homme hésita un instant. Très bref — mais bien réel. Et cette hésitation ressemblait davantage à un calcul qu'à de la peur. Repartir seul, il n'ira pas plus loin. Se battre ici, ils mourront tous les deux. Céder sans avoir encore bien lu l'adversaire. Ce calcul fait une fois, il tendit enfin la plaque très légèrement vers l'avant.
+L'homme hésita un instant. Très bref, mais bien réel. Et cette hésitation tenait plus du calcul que de la peur. Repartir seul en le portant, il n'irait pas plus loin. Se battre ici, et les deux camps mourraient. Le céder tout de suite, c'était le faire sans avoir fini de lire ceux d'en face. Une fois ce calcul passé, il avança enfin, très légèrement, le plus grand fragment.
 
-Pas la posture de quelqu'un qui la remet entièrement. Mais du moins — plus celle de quelqu'un qui veut fuir en la gardant pour lui seul.
+Ce n'était pas la posture de quelqu'un qui le remet entièrement. Mais du moins, ce n'était plus l'attitude de quelqu'un qui voulait fuir en le gardant pour lui seul.
 
-« Je n'ai pas pu lire jusqu'au bout, dit-il à voix basse. Mais ce qu'il faut pour ouvrir le discriminateur suivant… je pense qu'on peut le voir ensemble. »
+« J'ai pas pu lire jusqu'au bout. »
+Il parlait bas.
+« Mais ce qu'il faut pour ouvrir le discriminateur suivant, on le verra sans doute en regardant ensemble. »
 
-À l'instant où ces mots tombèrent, Sion comprit que cet homme venait, pour la première fois, de déplacer son poids de la plaque vers les gens. Ce n'était pas encore de la coopération. Encore moins de la confiance. Mais du moins — il avait reculé d'un pas de ceux qui gardent la voie pour eux seuls.
+« Ensemble ? répéta Sion. »
+
+« Oui. »
+
+« Il y a des conditions, je suppose. »
+
+« Trois. »
+
+« J'écoute. »
+
+« Un. Ça reste dans ma main. » Il ramena le fragment à moitié vers lui. « Je le montre, mais je le donne pas. »
+
+« Deux. »
+
+« La lecture s'arrête là. Une fois ce discriminateur passé, je prends mon chemin. »
+
+Sion sourit.
+
+« Et trois ? »
+
+Cette fois, l'homme ne répondit pas tout de suite. Son regard fit encore une fois l'aller-retour entre les trois.
+
+« Si je dis qu'on arrête le premier, on arrête. »
+
+« Ça ressemble moins à une condition qu'à une menace. »
+
+« Une menace, ça donne pas ses raisons. » La voix de l'homme baissa un peu. « J'ai perdu quelqu'un ici. Le signal est venu au moment où je l'ai perdu, et je l'ai ignoré. Cette fois, je l'ignorerai pas. Alors si je dis qu'on s'arrête, vous vous arrêtez aussi. »
+
+À ces mots, Sion eut un instant conscience du canal de Seorin.
+
+Ce que cet homme venait d'exiger était exactement le pouvoir que Seorin, restée au vaisseau, détenait déjà.
+
+Au moment où ces mots tombèrent, Sion comprit que cet homme avait, pour la première fois, déplacé son poids du fragment vers les gens. Ce n'était pas encore une coopération. Encore moins de la confiance. Mais au moins, il avait reculé d'un pas, lui qui jusque-là se réservait seul la garde et le chemin.
 
 Ater demanda très bas :
 
-« Pourquoi nous montrer ça. »
+« Pourquoi nous montrer cela ? »
 
-L'homme regarda Sion un peu plus longuement cette fois, puis Ater.
+Cette fois, l'homme regarda Sion un peu plus longtemps.
+Puis il regarda Ater.
 
-« Ce n'est pas une chose que je peux finir seul. Avoir touché en premier ne veut pas dire pouvoir lire jusqu'au bout seul. »
+« C'est pas à moi de finir ça. »
+Il le dit simplement.
+« Être arrivé le premier, seul, ça veut pas dire pouvoir tout lire seul jusqu'au bout. Je l'ai appris. »
 
 Court silence.
 
-Cette phrase s'enfonça plus profondément que prévu.
+Par le canal de proximité, Seorin dit calmement :
 
-Sion savait que ces mots n'étaient pas une simple résignation. Il avait tenu longtemps, touché en premier, mis la main le premier sur la plaque plus grande — et pourtant il avait fini par l'admettre. Que ce n'était pas quelque chose qu'il pouvait mener seul jusqu'au bout.
+« Bien. Alors là, ça ressemble enfin à un début. »
 
-Du canal de proximité, Seorin dit tranquillement :
+Personne ne le contredit.
 
-« Bien. Alors ça ressemble enfin à un début. »
+L'angle et le discriminateur, la réaction mourante et le plus grand fragment, et l'homme qui avait vu l'ordre découpé avant le nom.
+Entre ces cinq-là et cet homme, il y avait désormais au moins un point commun.
 
-Personne ne démentit.
-
-L'angle, le discriminateur, la réaction mourante et la plaque plus grande — et l'homme qui avait vu la séquence coupée avant le nom.
-Entre ces cinq-là et cet homme, il y avait maintenant au moins un point commun.
-
-Tous le savaient déjà : à partir d'ici, aucun d'eux ne pourrait aller plus loin seul.
+Tous savaient déjà qu'à partir d'ici, seuls, ils n'iraient pas plus loin.
 
 ---
 

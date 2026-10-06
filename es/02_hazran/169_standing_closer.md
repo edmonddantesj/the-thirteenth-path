@@ -116,7 +116,7 @@ Luego dijo bajo.
 
 —Las ganas de comprobar.
 
-Esa palabra, de forma extraña, dejó a todos en silencio.
+Esas palabras, de forma extraña, dejaron a todos en silencio.
 
 El miedo aleja a la gente.
 Pero cierto miedo,
@@ -129,7 +129,7 @@ parecían del lado que quería comprobar primero si de verdad eran seres del tod
 
 Entonces, desde el pasaje de fuera, sonó breve un chirrido de metal.
 
-La segunda máquina de recuperación entró y dijo bajo.
+La segunda mano de recuperación entró y dijo bajo.
 
 —Cambió la línea de relevo de arriba.
 —También están reordenando la fila de gente.
@@ -138,7 +138,7 @@ Seorin preguntó enseguida.
 
 —¿Se volvió más rápido?
 
-—Sí —respondió la segunda máquina de recuperación—. Esta vez ni siquiera se molestan tanto en disimular.
+—Sí —respondió la segunda mano de recuperación—. Esta vez ni siquiera se molestan tanto en disimular.
 
 Aunque eso era algo que todos esperaban,
 oírlo de verdad pesaba mucho más.

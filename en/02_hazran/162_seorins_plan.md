@@ -1,166 +1,285 @@
 # Episode 162. Seorin's Plan
 
-Even after the words came — that repeating rescues would never save everyone, that the structure itself had to be shaken — the path did not appear immediately.
+Even after it had been said that repeating rescues would never save everyone,
+and that if so, they had to shake the structure itself,
+no path showed itself right away.
 
-That was expected.
+That was only natural.
 
-Destroy. Sever. Break.
+Bring it down.
+Cut it.
+Break it.
 
-The words are easy. But for those words to become an actual plan against an order layered as deep as Serakion, they had to first reorganize who knew what, what remained unknown, and what to touch first.
+Easy words.
+But against an order stacked layer upon layer, like Serakion,
+for those words to become an actual plan,
+they first had to sort out again who knew what,
+what they didn't know,
+and what had to be touched first.
 
-And the first to do that was Seorin, sitting back in a seat that had been empty for a long time.
+And the first one to do it
+was Seorin, back in a seat that had long stood empty.
 
-She pulled an old board to the center of the room and began placing information on it one piece at a time: the corridors the recovery hands knew, the closing structures Kael had read, the upper ceremonial sections Ater had seen, the gaps in the approval system Sern had traced, and the maintenance line data the old machines inside had been holding.
+She dragged an old board into the middle of the room,
+and began setting out on it the routes the recovery hands knew,
+the closing structure Kael had read,
+the upper ceremonial sectors Ater had seen,
+the gaps in the approval system Sern had pinpointed,
+and the maintenance-line information the old machines inside had been holding on to, one piece at a time.
 
-"Good." Seorin said it low. "Now let us stop the whining for a moment and sort out what needs breaking."
+"Good,"
+Seorin said, low.
+"Now stop the whining for a second,
+and let's sort out what we have to break."
 
-The words sounded cold, but strangely steadied the room.
+It sounded cold,
+but strangely, it steadied the room instead.
 
-No one had lost their feelings. Jiwoo's anger had not yet subsided. Kael was chewing his failure through calculation. Ater's expression hardened the deeper his thoughts went. The old machines knew the lines they had held for so long might now become targets.
+It wasn't that anyone's feelings had gone away.
+Han Jiwoo's anger still hadn't settled,
+Kael was chewing over the failure as calculation,
+Ater's face grew harder the deeper his thoughts went,
+and the old machines knew that the lines they had held on to for so long might now become targets.
 
-But precisely because of all that, someone had to organize this into sentences.
+But exactly because of that,
+someone had to put it into sentences.
 
-Seorin was the most useful person for that kind of moment.
+At times like that, Seorin was the most useful person there.
 
-"So far we have confirmed three things." She folded her fingers. "One: extracting a few people at a time does not end this structure. Two: Serakion learns and seals the moment it is breached. Three: from now on, we do not just extract people — we touch the axis that makes people get handled this way."
+"So far we've confirmed three things,"
+she said, folding down a finger.
+"One:
+pulling a few people out won't end this structure."
+"Two:
+once Serakion gets breached, it learns and seals it right away."
+"Three:
+so from now on we don't just pull people out,
+we go after the axis that makes people get pushed around like that."
 
-Kael gave a very short nod. Ater accepted it without comment.
+Kael gave a very short nod.
+Ater took it in without a word, too.
 
-Seorin moved to the next point immediately.
+Seorin moved straight on.
 
-"Then the question is this." She tapped the board. "What do we sever in Serakion so the top shakes and the bottom opens?"
+"So here's the problem,"
+she said, tapping the board.
+"What do we cut in Serakion
+so the top shakes and the bottom opens?"
 
-Kael spoke first this time.
+This time Kael spoke first.
 
-"Paths alone will not work." He said it low. "There are already too many, and the closing methods learn. Cutting one transit line is a delay, not a collapse."
+"Paths won't do it,"
+he said, low.
+"There are already too many paths,
+and it learns how they get blocked."
+"Cutting one movement line is a delay,
+not a collapse."
 
-Seorin sorted it immediately.
+Seorin summed it up at once.
 
-"Good. Paths are the result. What we aim for is the axis."
+"Then the paths are the result,
+and what we aim for is the axis."
 
-Sern picked up from there.
+Sern picked it up from there.
 
-"The same applies to the approval system. Shaking the peripheral corridors or guide machines alone — the upper level simply covers with a different format. The question is who approves what, and what record structure links those approvals to deployments."
+"The approval system is the same."
+"If we shake only the end routes or the guide machines,
+the upper level quickly covers it over in another form."
+"The problem is who approves what,
+and through what record structure that approval connects to placement."
 
 Seorin narrowed her eyes.
 
-"So you are saying we need to see more of the administrative structure that actually runs the top."
+"So what you're saying is,
+you need to look harder at the administrative structure that actually runs the top."
 
-Sern answered short.
+Sern answered briefly.
 
-"Yes. The visible order and the order that actually supports authorization and deployment may be different."
+"Yes."
+"The order that shows on the surface
+and the order that actually holds up permits and placements may be different."
 
-That was not simple administrative information.
+That was not mere administrative information.
 
-No matter how elegant Serakion appears, to actually maintain that elegance someone must approve, someone must deploy, someone must record, and someone must cover it over again.
+However elegant Serakion looked,
+to actually keep that elegance up,
+someone had to approve,
+someone had to place,
+someone had to record,
+and someone had to cover it all over again.
 
-Understanding that operational structure was needed before the politics could be shaken.
+Only by knowing that working structure
+could they shake the politics too.
 
-Ater laid his own perspective over it.
+Ater laid his own view on top of that.
 
-"The upper level also runs on composure." He said it low. "What matters is less who decides, and more who must appear to be deciding. If that composure breaks once, the actual authority lines can shake too."
+"The upper level also runs on face,"
+he said, low.
+"Who decides matters less
+than who must be seen to decide."
+"Once that face breaks,
+the real lines of authority can shake too."
 
-Seorin spoke with something close to a smirk.
+Seorin said it with something close to a snort of a laugh.
 
-"Good. That is yours. Who runs on pretension, and where to poke so the top starts watching each other."
+"That one's yours."
+"Who runs on showing off,
+and where to poke so the top starts glancing at each other."
 
-Ater did not even look displeased. He simply nodded, brief.
+Ater didn't even look offended.
+He just gave a short nod.
 
-Reading political structures that resembled his own world was not pleasant work, but it was precisely the work only he could do.
+Reading a political structure that resembled his own world
+was not something he enjoyed,
+but it was exactly the thing only he could do.
 
 Seorin tapped another part of the board.
 
-"Kael — not paths, axes. Not what slows movement when blocked, but what tangles the closing itself when severed."
+"Kael, axis, not paths."
+"Not what to block so movement slows,
+but what to cut so the closing itself gets tangled."
 
-Kael answered longer this time.
+This time Kael answered at greater length.
 
-"The upward transit line, the auxiliary sealing line, and the living line — there are points where all three intertwine. Touch that, and it is not one path but the entire way the upper level handles the lower that can misalign for a moment."
+"Upward movement lines,
+auxiliary seal lines,
+and the living lines—there's a point where they all twist together."
+"Hit that, and it's not just one path;
+the whole way the top handles the bottom could slip out of alignment for a moment."
 
 Luhai blinked.
 
-"So then nothing moves?"
+"So then nothing can move?"
 
 Kael shook his head.
 
-"No. That is why it is hard. It does not stop completely. But while they try to realign each other, the beat at which they read people can slow down."
+"No. That's what makes it hard."
+"It won't stop completely.
+But while everything's busy readjusting to everything else,
+the beat at which it reads people might slow down."
 
-Seorin sorted it as though writing it down.
+Seorin summed it up at once, as if taking it down.
 
-"Good. We aim not for a full stop, but for slowing the reading beat."
+"Done. We don't go for a full stop;
+we go for slowing the reading beat."
 
-That sentence sounded like the core linking everything from the rescues until now to the strategy going forward.
+That sentence sounded like the core that tied the rescues so far to the strategy to come.
 
-Serakion reads people, sorts them, aligns them, elevates them, returns them.
+Serakion reads people,
+sorts them,
+fits them,
+raises them,
+sends them back.
 
-Then destroying that structure would most likely begin from breaking the beat of that reading and aligning.
+Then bringing that structure down, too,
+would most likely begin with breaking the beat of that reading and fitting.
 
-Jiwoo heard all of it and her expression still had not fully eased.
+Even hearing all this, Han Jiwoo's face hadn't fully eased yet.
 
-But this time, anger was not all that remained.
+But this time, it wasn't only anger left in it.
 
-"What about the people?" She asked low. "The people still inside — where do they stand when this structure shakes?"
+"And the people?"
+she asked, low.
+"The people still in there—
+where do they end up standing when we shake this structure?"
 
-The question was critical.
+It was an important question.
 
-If they shook the structure to save people but crushed the people deeper inside in the process, none of it meant anything.
+If they shook the structure to save people
+and ended up crushing those people even further inside, it would mean nothing.
 
-One old machine answered.
+One of the old machines answered.
 
-"That is why our hands are needed. The internal maintenance lines, signal lines, hidden access lines — we know them. Even if we cannot fully destroy, we can hold things so the collapse does not fall on the human side."
+"That is why our hands are needed."
+"The inner maintenance lines,
+the signal lines,
+the hidden access lines—we know them."
+"Even if we cannot destroy it completely,
+we can keep it from collapsing on the side where people would be buried."
 
-That was the first time the old machines inside entered not merely as beings who endured, but as a full axis of the strategy.
+It was the first time
+that the old machines inside came in not merely as beings holding out
+but as one full axis of the strategy.
 
-Seorin did not miss that.
+Seorin didn't let that slip.
 
-"Good. Then it comes together." She said. "Ater takes the upper composure and political axis. Sern takes the approval and record axis. Kael takes the closing and transit axis. The old machines inside take the maintenance lines and collapse buffering."
+"Good. Then that settles it,"
+she said.
+"Ater, face and politics up top,
+Sern, the approval and records axis,
+Kael, the closing and movement axis,
+the old machines inside, maintenance lines and cushioning the collapse."
 
-She paused. Then looked at Jiwoo.
+She paused for a moment.
+Then she looked at Han Jiwoo.
 
-"You take the people."
+"You've got the people."
 
-Jiwoo raised her eyes.
+Han Jiwoo raised her eyes.
 
 Seorin said it very simply.
 
-"How far the humans remaining inside can move. Where they collapse. Where they are still holding their own beat. You see that best."
+"How far the humans left inside
+can move,
+where they break,
+where they're still holding on to their own beat—
+you see that best."
 
-That was not comfort or delegation. It was precise placement.
+It was neither comfort nor a handoff.
+It was a precise assignment.
 
-Jiwoo nodded, very slowly.
+Han Jiwoo nodded very slowly.
 
-Her role was no longer simply being the hands that brought a few more out. It was being the person who saw where human-side time could come alive when this structure shook.
+Now her role was no longer just a hand that brought out a few more people,
+but someone who saw where the humans' time could come back to life when this structure was shaken.
 
-Sion heard that and opened his mouth quietly.
+Hearing that, Sion quietly spoke up.
 
-"Then I will hold both sides."
+"Then I'll hold on to both."
 
 Seorin looked at him.
 
-Sion said it short.
+Sion said briefly,
 
-"Between the people remaining inside and the side that has to run back out again. Neither connection can break."
+"Between the people left inside
+and the ones who have to run again out here.
+Neither side can get cut off, right?"
 
-The words came out as though they were nothing much, but several people in the room knew how important they were.
+It came out as if it were nothing much,
+but a few in the room knew how much those words mattered.
 
-No matter how good the strategy, if people collapse there is no next time. And Sion was naturally accepting the connecting role of holding things together so they did not collapse.
+However good the strategy,
+if people fall apart, there is no next time.
+And Sion, right now,
+was naturally taking on as his own share that role of connection, holding on so no one fell apart.
 
-Seorin looked across the entire board one last time.
+Seorin looked over the whole board one last time, as if sweeping across it.
 
-"Good." She said. "For the first time, this makes sense. We are not planning how to extract a few more people. We are planning how to tangle the structure by which Serakion reads, handles, and returns people."
+"Good,"
+she said.
+"Now it finally makes sense."
+"We're not drawing up a plan to pull out a few more people;
+we're working out how to tangle the structure Serakion uses to read people, push them around, and send them back."
 
-Luhai heard that and murmured small.
+Hearing that, Luhai muttered quietly.
 
-"So we are actually breaking it."
+"So we're really breaking it, then."
 
-Seorin almost smirked.
+Seorin gave a short laugh.
 
-"Yes. Finally, for real."
+"Yeah. Finally, properly."
 
-At the end of that day, everyone gathered in the room could not yet calculate the odds. There was still too much unknown. Too much of the upper order still unrevealed. The center itself was still not fully visible.
+At the end of that day,
+none of them gathered in the room could yet calculate their odds.
+There was still much they didn't know,
+much of the upper order not yet revealed,
+and they still couldn't see all the way to what the center was.
 
-But at least one thing was clear.
+But at least one thing had become clear.
 
-From now on, they were no longer the side that merely survived inside Serakion. They were beginning to build a real strategy aimed at breaking the very way Serakion was allowed to run.
+From now on, rather than only surviving inside Serakion,
+they were aiming to break the very mechanism that let Serakion run no other way—
+and they had begun to draw up a real strategy for it.
 
 ---
 

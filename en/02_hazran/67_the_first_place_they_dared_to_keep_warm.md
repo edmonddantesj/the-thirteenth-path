@@ -1,184 +1,231 @@
 # Episode 67. The First Place They Dared to Keep Warm
 
-"Deciding where to place it first."
+"Deciding where to stake it first."
 
-After Aka's words, the three returned to the outer compartment where the hull waited.
+After Aka said that, the three of them went back to the outer section where the hull was.
 
-Even in the short passage back, Sion became more careful with the ember in his hand.
+Even in the short passage on the way back, Sion found himself handling the ember in his hand more carefully.
 
-Before, the dominant sensation had been needing to protect the ember. Now what needed protecting had shifted slightly.
+Until a little while ago, the big thing had been the sense that he had to protect this ember. Now what he had to protect had changed.
 
-Keeping the ember alive alone was not enough. Where to bring it, in what order, how close—so that for the first time, another shape could survive alongside it—that was what mattered now.
+It was not enough just to keep the one ember from dying. The bigger question now was where, in what order, and how close he had to bring it so that the other shape did not die along with it.
 
-The half-disassembled hull suspended in the outer compartment looked different from before.
+The half-dismantled hull hanging in the outer section looked different again from when they had seen it before.
 
-Earlier it had simply looked like a structure not yet dead. Now it looked like a body that had held on for so long without knowing where to be saved first that it had stopped.
+Before, it had looked like a structure not yet dead. Now it looked like a body that had held on a long time and then stopped, because no one knew where to save it first.
 
-Jiwoo did not touch the hull the moment she approached.
+Han Jiwoo did not put a hand on the hull the moment she got close.
 
-Instead, his face was overlaying in his mind the cooled site Aka had shown, the receiving frame they had just built, and the torn bonding joint at the hull's aft center.
+Instead she had the face of someone laying three things over one another in her head: the cold spot Aka had pointed to earlier, the receiving frame they had just made, and the torn bonding joint at the back of the hull's center.
 
-Aka did not speak in haste either.
+Aka did not hurry to speak either.
 
-As though she knew that giving the answer herself would ruin it, she was watching to see where Jiwoo would choose first.
+Like someone who knew she would ruin it by giving the answer, she was watching first to see where Han Jiwoo would choose.
 
-Jiwoo spoke slowly.
+Han Jiwoo spoke slowly.
 
 "Not the center."
 
-Sion looked at him.
+Sion looked at her.
 
-"Why."
+"Why?"
 
-"It's greed."
-Jiwoo answered.
-"Touch the part that needs the biggest revival first and it dies the fastest."
+"Because that's greed,"
+Han Jiwoo answered.
+"Start with the part that has to come back the most, and it dies the fastest."
 
-Aka nodded by the smallest degree.
+Aka nodded, very slightly.
 
 "Yeah."
 
-Jiwoo then pointed to the lower left of the hull—an auxiliary bonding joint slightly off the main frame. At a glance it looked unimportant. Pushed from the center, the outer skin nearly stripped, not a place that directly handled thrust.
+This time Han Jiwoo pointed to the lower left of the hull, at an auxiliary bonding joint set a little off the main frame. At a glance it did not look like an important spot. It had been pushed off from the center, its skin was almost all stripped, and it was not the part that handled thrust directly.
 
-But up close, that section alone still had its grain not fully severed.
+Up close, though, it was the only place where the grain was not yet completely broken.
 
-"Here."
-She said.
-"The first place that needs to hold isn't the part that moves the most—it's the part that won't collapse the longest."
+"Here,"
+she said.
+"The first place that has to hold isn't the place that'll move the most. It's the place that'll stay standing the longest."
 
-Sion heard that and looked at Aka.
+Sion felt he had heard that somewhere.
 
-Aka was watching Jiwoo rather than the hull. And she said, very low.
+A few days ago, when Harun split people into three lines, he had reinforced the way out first. When Sion asked why he did that first, Harun said that if you left it for later, you would end up doing it where things were already blocked.
+
+It was the same thing. The place that looks most urgent is not the place to do first.
+
+Sion found it strange that someone who fixed ships and someone who guarded a city said the same thing. Then he changed his mind: it was not strange. Both were hands that had watched things collapse for a long time.
+
+Having heard that, Sion looked at Aka.
+
+Aka was watching Han Jiwoo more than the hull.
+Then she spoke, very low.
 
 "Now you really know how to look."
 
-It sounded like praise and confirmation at once.
+It sounded like praise, and like a confirmation too.
 
-Sion steadied his breath for no particular reason.
+Sion steadied his breath once, for no reason.
 
-He could tell this moment was more important than it seemed. Saving the entire hull was still far off. But choose the first site wrong, and everything after would simply cease to exist.
+Saving the whole hull was still a long way off. But choose the first spot wrong, and there would be no after at all. The one spot they chose now decided all the rest.
 
-Aka carefully lifted the receiving frame they had just made and held it near the auxiliary bonding joint Jiwoo had chosen. She did not fully fix it. As though reading the grain first, she adjusted the position only very lightly.
+Aka carefully lifted the receiving frame they had just made and held it near the auxiliary bonding joint Han Jiwoo had chosen. She did not fix it in place. As if reading the grain first, she only lined up the position, very lightly.
 
 "If it holds here first,"
-Jiwoo said low.
-"We can distribute the weight when we move to the center later."
+Han Jiwoo said, low,
+"we can spread the weight later when we go for the center."
 
-"And the ember will be less startled right now."
+"And the ember won't be as startled now,"
 Aka added.
 
-Sion instinctively wrapped the ember more carefully at those words.
+At that, without meaning to, Sion cupped the ember in his hand more carefully.
 
-Right. The standard was not the hull alone—it was also the ember. Where this flame felt less uneasy, where it resisted dying less—those had to be watched too.
+The measure now was not the hull alone. They also had to watch where this flame was less uneasy, where it was less inclined to die. It was work where you had to ask both sides, the one doing the joining and the one being joined.
 
 Aka looked at Sion.
 
-"Like before."
-She said.
+"Like before,"
+she said.
 "Slowly."
 
 Sion nodded.
 
-He stood close to the hull. He was far more tense than when he had lowered his hand before the small receiving frame on the metal plate. This time it was the real hull. Not a test frame but the body where the ember would actually need to be placed going forward.
+He stood close to the hull.
+He was far more tense than when he had lowered his hand toward the small receiving frame on the metal plate. This time it was the real hull. This was not a test frame; it was the body they would actually have to hang the ember on from now on.
 
 He lowered his hand very slowly.
 
-As the distance between the ember and the hull shrank, the receiving frame reacted first. The cloudy etherite grain absorbed light very slowly. The thin bonding thread trembled faintly.
+As the distance between ember and hull shrank, the receiving frame reacted first. The grain of the murky Etherite slowly drank in light, and the thin binding thread trembled faintly.
 
-And then, behind that, one metal grain inside the auxiliary bonding joint—long thought dead—trembled so weakly it was nearly impossible to notice.
+What came next mattered more. Inside the hull's auxiliary bonding joint, one strand of metal grain, long thought dead, trembled so weakly it was almost impossible to notice.
 
 Sion stopped breathing.
 
-Jiwoo's eyes caught it at the same moment.
+Han Jiwoo's eyes caught it at once too.
 
-"See that?"
-She said low.
+"You see that?"
+she said, low.
 
-"Yeah."
-Sion answered almost simultaneously.
+"Yeah,"
+Sion answered, almost at the same moment.
 
-Aka had likely seen it before either of them. But she did not add words immediately.
+Aka had probably seen it before either of them.
+But she did not add a word right away.
 
-Instead, she stepped one pace closer and adjusted the gap between the receiving frame's edge and the hull's bonding joint by the smallest amount.
+Instead she stepped closer and adjusted the gap between the edge of the receiving frame and the hull's bonding joint, only a little.
 
-"There's still a lot here."
-She said low.
+"There's still a lot here,"
+she said, low.
 "Dead traces."
 
-Jiwoo answered shortly.
+Han Jiwoo answered shortly.
 
-"That's why we can't go further."
+"So we can't go further."
 
 Aka nodded.
 
-Sion did not move further from that distance. His hand was not shaking, but he was afraid that holding too long would dull his senses. Right now, a single tiny difference could change everything.
+"Why can't we go further if there are a lot of dead traces?"
+
+It was Sion who asked.
+
+"Put something alive next to it and it leaks that way."
+
+That was Aka's answer.
+
+"The dead parts don't block it. They just take it and let it run out."
+
+At that, Sion looked into his hand.
+
+So a dead spot was not a wall but a hole. It was not that you joined it and nothing happened; as much as you joined, that much drained away.
+
+"Then all this time, this one."
+
+"It's been leaking, yeah."
+
+Sion swallowed once.
+
+For days he had carried this around and watched only that it did not die. He had thought not dying meant not shrinking.
+
+Sion did not move any further at that distance.
+His hand was not shaking, but he was afraid that if he held it too long his sense would go dull. Right now one very small difference could change everything.
 
 Aka spoke again.
 
-"Just a little more."
+"A little more."
 
-Sion lowered his hand by exactly the span of one breath drawn in.
+Sion lowered his hand further, truly by no more than one breath drawn in.
 
-In that moment, the cloudy etherite inside the receiving frame held a slightly deeper light than before, and two metal grains inside the auxiliary bonding joint connected briefly.
+The murky Etherite inside the receiving frame took on a slightly deeper light than at first, and inside the auxiliary bonding joint two strands of metal grain joined, briefly.
 
-No flash. Almost no sound.
+There was no flash and almost no sound. But one inner line they had thought was cut clearly joined, briefly.
 
-But clearly, one inner line thought to have been severed reconnected—very briefly.
-
-Jiwoo exhaled low.
+Han Jiwoo let out a low breath.
 
 "It took."
 
-Sion could not argue back immediately.
+Sion could not argue with it right away.
 
-It had not fully bonded. It had not revived enough to move.
+It had not fully taken. Nor had it come alive enough to move.
 
-But what had just happened was unmistakably a signal—for the first time, the hull's interior had not fully repelled the ember.
+But what had just happened meant that, for the first time, the inside of the hull had not pushed the ember away completely.
 
-Aka said very low.
+Aka spoke very low.
 
-"That's enough."
+"That's far enough."
 
-Sion stopped his hand at once. The desire to go further was there, but this time he already knew how dangerous that greed was.
+Sion stopped his hand at once.
+Part of him wanted to go further, but this time he already knew how dangerous that greed was.
 
-Aka left the receiving frame in place and read the hull's auxiliary bonding joint for a long time—with her eyes only, not touching.
+Leaving the receiving frame where it was, Aka read the hull's auxiliary bonding joint for a long time with her eyes alone, not touching it.
 
-"It remembers."
-She said.
+"It remembers,"
+she said.
 
-Sion asked low.
+Sion asked her, low.
 
-"What."
+"What?"
 
-"The way things passed through."
+"The way things used to pass through,"
 Aka answered.
-"It hasn't fully forgotten."
+"It hasn't forgotten completely."
 
-That sentence struck Sion's chest strangely hard.
+Hearing that, Sion looked at the hull again.
 
-The words that the path had not fully died. The words that cooled sites remained. The sensation that the ember remembered.
+This was a ship. Someone had built it, someone had ridden it, it had gone somewhere and stopped here. No one had told him how many years had passed since it stopped.
 
-All of it was, in the end, one thing.
+Forgetting was work too. It let go in order, starting with the parts it did not use, and as much as it let go, that much of the path was erased.
 
-This hull. This path. Not something to be built entirely from scratch, but the work of coaxing back, barely, the way something had once passed through.
+But it could not erase all of it.
 
-Jiwoo murmured very low.
+Sion did not know whether that was a comfort. If it had all been erased, they would not have come this far, and if they had not come, there would be none of this trouble now.
 
-"Then we can reach the center."
+That line struck Sion strangely hard in the chest.
 
-Aka did not nod immediately.
+That the path was not completely dead, that a cold spot remained, the feeling that the ember remembered something: it was all one thing.
 
-Instead, she looked at the deeper bonding joints inside the hull and spoke.
+For this hull and for this path alike, the work was getting them, barely, to recall a way they had once passed.
 
-"Still far."
-She said.
-"But it's no longer a dead body."
+Sion thought that might be harder than making something. Build what never existed and you can build it however you want. To make something recall what it used to be, this side has to know first what it was like to begin with.
 
-The moment those words landed, Sion felt the ember in his hand was less tense than before—by the smallest, faintest degree.
+Han Jiwoo murmured very low.
 
-A truly small change. But here, that was the largest progress there was.
+"Then we can make it as far as the center."
 
-For the first time, this small flame had held one place in a ship so that it did not go cold.
+Aka did not nod right away.
+
+Instead, looking at a deeper bonding joint inside the hull, she spoke.
+
+"Still far,"
+she said.
+"But it's not a dead body anymore."
+
+The moment those words fell, Sion felt that the ember in his hand was, very slightly, less tense than at first.
+
+It was a truly small change. Here, that was the biggest progress.
+
+After drawing his hand back, Sion looked at that spot for a long while. On the surface nothing had changed. The stripped skin was the same, and so was the tear.
+
+What had changed was one place no one could see. But without that one, all the rest was useless.
+
+For the first time, this small flame had kept one place on the ship from going cold.
 
 ---
 

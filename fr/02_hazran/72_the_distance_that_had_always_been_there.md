@@ -1,152 +1,240 @@
 # Chapitre 72 — La distance qui avait toujours été là
 
-La ruelle où Luhai marchait devant eux finit par se diviser en deux.
+La ruelle où Luhai marchait en tête finit, à un moment, par se séparer en deux.
 
-D'un côté, c'était plus clair, plus bruyant. Les épices, l'eau, les bijoux fins et le son fatigué d'un instrument se mêlaient pour tirer les gens vers l'avant. De l'autre, c'était plus sombre. Quelques lanternes seulement pendaient à intervalles irréguliers, et l'ombre des tentes remuées par le vent y semblait plus profonde.
+L'une était plus claire et plus bruyante. Les épices et l'eau, les bijoux fins, le son fatigué d'un instrument s'y emmêlaient et tiraient sans cesse les gens vers l'avant. L'autre était plus sombre. De petites lanternes n'y pendaient que de loin en loin, et l'ombre des tentes que remuait le vent y était plus profonde.
 
-Luhai regarda les deux directions, puis déclara d'un air détaché:
+Luhai regarda tour à tour les deux côtés, puis dit, l'air de rien :
 
-« Je vais refaire un tour par là. »
+« Moi, je vais refaire un tour par là. »
 
-Seorin demanda aussitôt:
+Seorin demanda aussitôt :
 
-« Pourquoi seul? »
+« Pourquoi seul ? »
 
 « Si je reste entre vous deux, ça se voit trop. »
+C'est ce que répondit Luhai.
 
-Sion se figea. Les yeux de Seorin se rétrécirent.
+Sion se figea, et Seorin plissa aussitôt les yeux.
 
-« Tu es malade? »
+« T'es malade ? »
 
-Luhai sourit.
+Luhai rit.
 
-« Ou pas. De toute façon, dans la ruelle des vendeurs d'eau, je vais plus vite. Je fais le tour et je vous rejoins. »
+« Sinon, tant pis. »
+Il recula d'un pas en le disant.
+« De toute façon, la ruelle des vendeurs d'eau, là-bas, je la fais plus vite que vous. Je fais un tour et je vous recolle. »
 
-Il plaisantait, mais il ne fuyait pas. Il choisissait plutôt de rendre son départ assez léger pour que la place laissée derrière lui ne devienne pas trop gênante.
+Il l'avait dit comme une plaisanterie, mais il ne s'éclipsa pas comme on fuit. Il avait plutôt fait exprès de passer légèrement là-dessus, pour que la place qu'il laissait en partant ne soit pas trop gênante.
 
 Seorin claqua la langue.
 
-« C'est seulement pour ce genre de choses que tu as l'oeil. »
+« Y a que pour ce genre de truc qu'il est vif. »
 
-Sion ne répondit pas.
+Sion préféra ne pas répondre.
 
-Quand Luhai disparut, l'air de la ruelle changea vraiment un peu.
-
-Rien ne s'était passé, et pourtant un silence différent de tout à l'heure s'installa.
+Une fois Luhai disparu, l'air de la ruelle changea vraiment un peu. Ce n'était rien, et pourtant un silence s'installa, différent de celui d'avant.
 
 Sion et Seorin marchèrent côte à côte.
 
-Ils avaient l'habitude d'être proches. Ils avaient souvent fui ensemble, traversé les mêmes ports, surveillé les mêmes gens. Mais à présent, un pas, le froissement d'un col, le temps qu'ils passaient sans parler semblaient plus nets.
+Marcher l'un contre l'autre, ils en avaient l'habitude. Ils avaient souvent fui ensemble, traversé les mêmes ports, et souvent surveillé les mêmes gens.
 
-Les choses toujours là, qu'on ne regarde plus parce qu'elles sont trop familières, devenaient plus visibles dans la lumière du soir.
+Mais à présent, un bruit de pas,
+la distance d'un col qui frôle l'autre,
+le temps où ni l'un ni l'autre ne parlait, tout cela se sentait plus nettement qu'avant.
+
+Comme si les choses qu'il avait toujours laissées passer parce qu'elles étaient familières devenaient, au contraire, plus nettes sous la lumière du soir.
 
 Seorin parla la première.
 
-« Voilà encore ce visage. »
+« Revoilà cette tête. »
 
-Sans tourner la tête, Sion demanda:
+Sans tourner les yeux vers elle, Sion demanda :
 
-« Quel visage? »
+« Quelle tête ? »
 
-« Celui de quelqu'un qui meurt d'envie de suivre ce qu'il vient de voir, mais qui fait semblant de ne pas avoir remarqué. »
+« La tête de quelqu'un qui meurt d'envie de suivre ce qu'il a vu, mais qui fait semblant de rien. »
 
-Sion faillit rire.
+Sion faillit pouffer.
 
-« J'ai un visage comme ça? »
+« J'ai une tête comme ça, moi ? »
 
-« Toi, oui. Depuis longtemps. »
+« Toi, oui. »
+Seorin ajouta :
+« Depuis longtemps. »
 
 Depuis longtemps.
 
-Ces deux mots restèrent étrangement longtemps.
+Ces quelques mots restèrent étrangement longtemps.
 
-Sion la regarda enfin.
+Alors seulement, Sion la regarda.
 
-Seorin avançait les yeux devant elle, avec son visage indifférent habituel. Mais cette indifférence disait mieux que tout le reste combien de temps elle avait passé à voir, près de lui, ce genre d'expression.
+Seorin marchait les yeux devant elle. Son visage indifférent, comme toujours. Mais cette indifférence même semblait mieux dire depuis combien de temps elle voyait, à côté de lui, toutes ces expressions-là.
 
-Sur un côté de la ruelle se trouvait une petite boutique faite de couches de tissu fin. Quand le vent passait, des éclats de verre et des fils métalliques frémissaient entre les plis. À l'intérieur pendaient de minces liens anti-chaleur pour le poignet, des morceaux de toile isolante, des housses de gourde et de petits ornements qui semblaient inutiles au premier regard mais portaient la trace d'un long usage.
+D'un côté de la ruelle se trouvait une petite boutique faite de plusieurs couches de tissu fin superposées. Chaque fois que le vent passait, des éclats de verre et des fils métalliques frémissaient très faiblement entre les toiles. À l'intérieur pendaient de minces cordons thermiques à nouer au poignet, des morceaux de toile isolante, des housses de gourde, et de petits ornements qui semblaient inutiles au premier regard mais portaient la trace d'avoir été longtemps portés sur soi.
 
 Seorin s'arrêta un instant.
 
-Sion la regarda, surpris.
+Sion, surpris, la regarda.
 
-« Quoi? »
+« Quoi ? »
+Il avait posé la question.
 
-« Rien. Ces choses-là cassent moins vite. »
+« Rien. »
+Seorin répondit d'un ton vague :
+« Ces trucs-là, ça s'abîme pas facilement. »
 
-Elle le disait ainsi, mais Sion sentit que son regard ne jaugeait pas seulement un prix.
+Elle l'avait dit ainsi, mais Sion sentit que son regard ne mesurait pas seulement le prix d'un objet.
 
-Ce qui tient longtemps. Ce qui ne cède pas facilement. Ce qui reste dans la main.
+Ce qui tient longtemps. Ce qui ne se rompt pas facilement. Ce qui reste longtemps dans la main.
 
-Seorin voyait toujours ces choses-là plus vite que les autres.
+Seorin avait toujours été de ceux qui voient ces choses-là plus vite.
 
-Le marchand les observa, puis leur servit aussitôt un sourire de métier.
+Le patron de la boutique travaillait des mains sans se lever. Il avait posé un écheveau de liens sur ses genoux et, dans les vieux, ne gardait que les parties saines, qu'il raboutait par de nouveaux nœuds. Il avait le bout des doigts épais et les ongles courts. À l'intérieur de son index droit, là où le fil passait, la peau longtemps comprimée avait durci et blanchi.
 
-« Quand on choisit à deux, ça dure plus longtemps. Les objets de cette ruelle sont faits pour ça. »
+Il leur jeta un coup d'œil, puis afficha aussitôt un sourire de marchand.
 
-Sion détourna la tête. Seorin répondit d'une voix glacée:
+« Quand on choisit à deux, ça dure longtemps. »
+Il poursuivit :
+« Les articles de cette ruelle se prêtent bien à ce genre de chose. »
 
-« Ne colle pas tes phrases à n'importe qui. »
+Sion détourna aussitôt la tête, et Seorin répondit d'un ton glacial :
 
-Le marchand ne se démonta pas.
+« Ne colle pas tes phrases sur n'importe qui. »
 
-« Je ne l'ai pas fait. Pour ce genre de choses, les yeux parlent avant la bouche. »
+Le marchand ne se laissa pas démonter le moins du monde.
 
-Sion trouva cette phrase agaçante sans savoir pourquoi.
+« Je ne les colle pas sur n'importe qui. »
+Il le dit tranquillement.
+« Pour ce genre de choses, ce sont les yeux qui parlent en premier. »
 
-Seorin fixa longtemps l'homme puis, au lieu de reculer, entra d'un pas.
+Sion trouva cette phrase agaçante sans raison et se tut d'autant plus.
 
-Elle prit le lien anti-chaleur le plus simple. Pas d'ornement, presque plus de couleur, mais le noeud semblait étrangement solide.
+Seorin fixa longtemps le marchand, puis, au lieu de l'éviter, fit un pas de plus vers l'intérieur.
 
-« Combien? »
+Et elle prit l'un des minces cordons thermiques, celui à la forme la plus simple. Aucun ornement brillant, une couleur presque morte, mais le nœud avait l'air étrangement solide.
 
-Le marchand donna son prix.
+« Celui-là, c'est combien ? »
+Elle le demanda.
 
-Seorin eut un rire bref.
+Le marchand annonça son prix, et Seorin eut aussitôt un ricanement.
 
-« Même un voleur ne le ferait pas aussi ouvertement. »
+« Même les voleurs ne le font pas aussi ouvertement. »
 
-Le marchand sourit.
+Le marchand rit.
 
 « Une main qui connaît. »
 
-Sion, en entendant l'échange, faillit laisser échapper un rire.
+Il baissa un peu le prix. Puis il retourna le cordon pour leur montrer l'intérieur du nœud.
 
-Même dans le marchandage, Seorin gardait son caractère. Pas de mots inutiles. Elle pointait seulement ce qui comptait, avec des phrases courtes qui touchaient exactement la limite de l'autre.
+« Regardez ici. Savez-vous pourquoi, à Hazran, on a besoin d'un cordon au poignet ? »
 
-Le prix baissa beaucoup.
+Seorin ne répondit pas. Le marchand, sans s'en soucier, poursuivit.
 
-Seorin enroula le lien autour de sa main, puis le tendit soudain à Sion.
+« Le jour, si l'on saisit du métal à mains nues, la peau y reste collée. Alors on met des gants, n'est-ce pas. Mais avec des gants, le bout des doigts ne sent plus rien. C'est pourquoi les gens d'ici laissent les mains nues et ne couvrent que le poignet. C'est par le poignet que la chaleur entre le plus vite. »
 
-« Mets-le. »
+En l'entendant, Sion regarda malgré lui son propre poignet. La raison pour laquelle il n'avait cessé de le brûler depuis leur arrivée à Hazran venait d'être expliquée.
+
+« C'est pour cela que ces choses-là n'ont pas besoin d'être jolies. »
+Le marchand continua :
+« S'il casse une seule fois, ce jour-là, le poignet cuit. Alors dans cette ruelle, ce qui a l'air le moins vendable est ce qui se vend le mieux. »
+
+Alors seulement, Seorin hocha très brièvement la tête. Elle ne marchanda pas davantage.
+
+Cela surprit un peu Sion. Quand Seorin marchandait, elle visait exactement jusqu'où l'autre tiendrait. Or, à l'instant, elle avait eu un point où frapper, et elle n'avait pas frappé.
+
+Seorin enroula le cordon autour de sa main pour l'essayer, puis le tendit soudain vers Sion.
+
+« Mets-le, toi. »
 
 Sion cligna des yeux.
 
-« Pourquoi moi? »
+« Pourquoi moi ? »
 
-« Tu perds toujours tout. »
+« Tu perds tout, tout le temps. »
 
-Elle le dit avec tant d'évidence qu'il ne trouva pas tout de suite quoi répondre.
+Elle l'avait dit avec tant d'évidence que Sion ne put pas répliquer tout de suite.
 
-Ce n'était pas faux. Petits outils, attaches, fines étiquettes: Seorin savait mieux que personne qu'il avait tendance à les laisser tomber.
+Ce n'était pas faux non plus. Les petits outils, les attaches, les fines étiquettes : Seorin savait mieux que personne qu'il avait tendance à les semer.
 
-Quand Sion le prit à contrecoeur, elle ajouta comme si de rien n'était:
+Quand Sion le prit à contrecœur, Seorin dit, comme si de rien n'était :
 
-« Garde au moins ça un moment. »
+« Garde au moins ça un peu longtemps. »
 
-On aurait dit qu'elle parlait seulement de l'objet. Étrangement, Sion n'eut pas l'impression que les mots s'arrêtaient là.
+On aurait dit qu'elle parlait seulement de l'objet. Mais, étrangement, Sion n'eut pas l'impression que ces mots ne s'accrochaient qu'à l'objet.
 
-Le marchand les regarda tour à tour avec un sourire très mince.
+Le marchand les regarda tour à tour, puis, cette fois, n'ajouta pas un mot. Il baissa plutôt de nouveau les mains vers l'écheveau posé sur ses genoux et reprit le nœud qu'il avait commencé.
 
-« Vous voyez. Ce n'était pas pour n'importe qui. »
+Sion regarda un instant ces mains. Les doigts épais répétaient exactement au même rythme le même geste : deux tours de fil, une traction. C'étaient les mains de quelqu'un qui fabriquait non pas ce qu'il vendrait aujourd'hui, mais ce qu'il vendrait demain, et le jour d'après.
 
-Cette fois, Seorin ne répondit même pas. Elle regarda une fois le lien dans la main de Sion, puis se détourna et reprit la ruelle.
+Sion enroula le cordon autour de son poignet. Le nœud ne voulut pas se faire du premier coup. Il y parvint tout juste au deuxième.
 
-Sion resta un instant immobile.
+Puis il regarda le poignet de Seorin.
 
-Le lien était peu de chose. Ni cher, ni rare, ni indispensable.
+Il était nu.
 
-Pourtant, il eut le sentiment que ce petit objet resterait plus longtemps en lui que tout le bazar du soir.
+« Et toi ? »
+Ce fut Sion qui parla.
+
+Seorin répondit sans même regarder de son côté :
+
+« Moi, quoi ? »
+
+« Toi aussi, ton poignet cuit. »
+
+« Moi, je perds rien. »
+
+« C'est pas ce que je veux dire. »
+
+Alors seulement, Seorin regarda Sion. Son expression ne changea pas, mais sa réponse vint avec un temps de retard.
+
+« Acheter deux pour le prix d'un, c'est pas du marchandage, c'est de la pitié. »
+Elle continua :
+« T'as vu ses mains ? Il en fait pas beaucoup par jour. »
+
+Sion sut que cette réponse n'était qu'à moitié la vraie raison. Et que l'autre moitié ne sortirait pas, même s'il demandait.
+
+Alors il s'y prit autrement. Il se tourna vers le marchand et demanda :
+
+« Tout à l'heure, ce que vous avez coupé, les morceaux qui restent, vous en faites quoi ? »
+
+Le marchand arrêta ses mains.
+
+« Je n'utilise que les parties saines, le reste, je le jette. »
+
+« Alors donnez-m'en un au prix de ce que vous jetez. »
+
+Le marchand regarda Sion un instant. Puis il choisit dans l'écheveau posé sur ses genoux un bout court et le lui tendit. Toute sa couleur était morte et il manquait aussi de longueur : une fois enroulé autour du poignet, on pourrait tout juste y faire un nœud.
+
+« Celui-là tiendra six mois. Au-delà, je ne garantis rien. »
+
+« Six mois, ça suffit. »
+
+Sion le prit et le tendit à Seorin.
+
+Seorin le regarda longtemps. Puis elle le prit.
+
+« C'est de la camelote. »
+
+« Oui. »
+
+« Alors ça va. »
+
+Elle ne le noua pas sur-le-champ et le mit dans sa poche. Mais voyant que le nœud au poignet de Sion était lâche, elle en saisit le bout d'une main et tira un coup de plus.
+
+« Si tu fais pas ça, il se défait en une journée. »
+
+Puis elle se retourna et repartit vers le fond de la ruelle.
+
+Sion resta un instant planté là.
+
+Le mince cordon à son poignet n'était pas grand-chose. Pas cher, pas rare, et pas le genre d'objet sans lequel il arriverait tout de suite un malheur.
+
+Non, une de ces choses était fausse. Il venait d'entendre que, sans lui, le poignet cuisait.
+
+Et dans la poche de Seorin, il y en avait un, bon pour six mois.
+
+Étrangement, il eut le sentiment que ces deux-là lui resteraient plus longtemps que tout le bazar de ce soir.
 
 Comme une distance qui avait toujours été là, et qu'il ne voyait que maintenant.
 

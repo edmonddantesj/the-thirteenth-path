@@ -1,114 +1,218 @@
 # Episode 73. The Things Each of Them Saw in Hazran
 
-Even walking the same evening, what each person saw in Hazran was different.
+Even walking through the same evening, each of them saw something different in Hazran.
 
-Someone saw a path not yet dead. Someone saw parts they could sell. Someone saw an order that collapsed and was being rebuilt. Someone saw beauty barely surviving beneath patched tent covers.
+Someone saw a path here that was not dead yet,
+someone saw parts that could be sold,
+someone saw an order that had fallen and was being set up again,
+someone saw a beauty that had barely survived under stitched tents.
 
-Hazran was never a place that stood with one face. That was why, even passing through the same alley, each person ended up carrying something different when they left.
+Hazran was not a place that always stood with one face.
 
-Kael had not moved from the metal alley deep inside the market for nearly an hour.
+Kael had not moved from the metal alley deep in the market for close to an hour.
 
-From the outside, it all looked like the same pile of scrap parts. But he picked out only what was truly needed, with his eyes alone. What Jiwoo had requested from the inner hull was not simply "good metal." Outer skin pieces that would not suddenly crack under heat stress. Bracing metal that would not forcibly press old bonding structures. The kind of parts that a hand unfamiliar with the grammar could roughly match, yet that actually carried an entirely different value.
+From outside it was all the same kind of scrap heap. But in among it, he picked out with his eyes only what was really needed. What Han Jiwoo had asked for, at the hull inside, was not simply good metal. Skin pieces that would not suddenly crack even when they took heat, bracing metal that would not force down on the old bonding structure, the kind of parts a hand ignorant of the present grammar could fit together well enough, but that in truth carried an entirely different price.
 
-Kael's face changed when he saw things like that.
+Kael's face changed when he saw things like that. Less like a trader than like someone choosing magazines right before a fight.
 
-Less a merchant, more like someone selecting ammunition right before combat.
+What he did was measure by hand. He picked up a piece, set it on his palm, and judged its weight. Then he pressed the surface with his thumb. Metal that had taken heat for a long time gave differently under the thumb. Hazran was littered with things that looked fine outside but had already crumbled inside, like a biscuit.
 
-At one shop, he stared for a long time at three worn skin pieces and a bonding plate whose color had nearly died.
+At one shop he looked for a long time at three worn skin pieces and one bonding plate whose color was nearly dead.
 
-The merchant spoke up.
+The merchant struck up talk.
 
 "That's pricier than it looks."
 
-Kael replied.
+Kael answered back.
 
-"If it lasts longer than it looks, the price fits."
+"If it lasts longer than it looks, the price is right."
 
-"Must be a hand that knows how to use it."
+"Guess you've got a hand that knows how to use it."
 
-Kael smirked.
+Kael snorted a laugh.
 
-"Wouldn't have made it here otherwise."
+"If I didn't, I wouldn't have made it this far."
 
-Kael chose only the two he needed. The third he had picked up and set down repeatedly before finally leaving it. He judged that even though it looked good now, the weight was excessive. His was a hand that knew better than anyone: what Hazran required was not the best part, but the part that could survive right now.
+In the end he picked only the two he needed. The third he kept lifting and setting down to the very last, then finally put back. It looked good now, but he had judged it too heavy.
 
-Meanwhile, in another alley, Ater and Sern walked together.
+Putting it down, he said just one thing.
 
-Neither was the talkative type. That made them less conspicuous. But in a place like Hazran, that kind of quiet saw more.
+"This one makes the ship heavy."
 
-Ater was watching traces near the return lines that had not yet been cleaned up. How the heat devices were being restored. What order Harun's people were being redeployed in. How far Zahir's side intervened and where they pulled their hands back. This place did not run on order authorized by documents, like the Empire. But it was not a place without order either.
+The merchant did not follow, and held out the two chosen pieces wrapped in cloth.
 
-Sern said very low.
+While Kael paid, the merchant asked.
 
-"Still learning?"
+"Which ship."
 
-Ater answered without looking away.
+Kael answered as he put the pieces into a sack.
 
-"It is a place worth learning from."
+"It's not a ship yet."
 
-Sern smiled by the faintest degree at that.
+"Then what is it."
 
-"Different from the Empire."
+"Being fixed."
 
-"That is what makes it more uncomfortable."
+The merchant laughed.
+
+"Everything here is being fixed."
+
+At that Kael only lifted his shoulders once. He never once mentioned his name or where he came from, and the merchant left that blank as it was. In Hazran, that was not rude.
+
+In another alley, Ater and Sern walked together.
+
+Both of them said little. That made them less noticeable.
+
+What Ater was watching was a restoration section. More precisely: how many people were in that section, and at whose signal those people moved.
+
+Six were Harun's. Four were Zahir's. The six were at work on the heat devices, and the four stood where they could see what the six were doing. None of the four laid a hand on anything. But when one of the six lifted a plate in the wrong order, one of the four raised a finger, very briefly. The six stopped at once.
+
+Ater watched that finger.
+
+"There is not a single sheet of paper."
+
+Sern answered low.
+
+"And yet they stopped."
+
+"In the Empire, that finger would have a name attached. Supervisor, or adjudicator,"
 Ater said.
-"There are times when who authorizes is not visible."
+"Here none is attached, and still the six stop."
 
-Sern was silent a moment before speaking.
+Sern was silent for a moment, then spoke.
 
-"It may not be invisible. It may simply be visible but unnamed."
+"It may not be invisible. It may only be that it is visible and has no name."
 
-Ater looked at Sern for just a moment after hearing that.
+At that, Ater looked at Sern, very briefly.
 
-That single line sounded like it was about Hazran, yet not only about Hazran.
+That one line sounded like it was about Hazran, and yet not only about Hazran.
 
-At a restoration section a short distance away, Harun was still working.
+A little way off, Harun was still working.
 
-Ater did not watch that scene for long. But he did not fully look away either. A man who claimed to protect order had crossed a line, and now he was filling the cost with his own hands. That was a kind of scene hard to find even inside the Empire.
+He was lifting, alone, the outer panel of the heat device he himself had broken. It was a panel meant for two to lift. It was not that there was no one beside him; word had already gone out that no one was to join him.
 
-Sern said.
+Ater took his eyes off that sight, then looked back once more.
 
-"He's going to the end."
+Sern spoke.
 
-Ater answered shortly.
+"Still, he is seeing it through."
 
-"He has to, for his own words to remain."
+Ater answered briefly.
 
-Those words were aimed at Harun—and perhaps, just as much, at himself.
+"He must, if his word is to stand."
 
-At the far end of another alley, beside a waterway hung with many thin lanterns, Luhai was moving very well on his own.
+Those words were aimed at Harun, and perhaps at himself as well.
 
-He had no hesitation weaving between people. Fast to hear a price from a water seller and slip away, fast to smile past a man leaking false information in front of a spice shop. After circling three shops, he was the kind of kid who could sense which alley hid real value and which was playing games with outsiders.
+At the end of another alley, beside a waterway hung with many thin lamps, Luhai was getting along very well on his own, moving like he was fully alive.
 
-But beneath those quick feet, a quieter gaze remained.
+He brushed between people without hesitation. He was quick, too, at smiling his way past the people dropping false tips in front of the spice shop.
 
-Luhai stopped before one old parts dealer's tent.
+In front of the water seller he stopped once more. It was the same spot where Sion and Seorin had taken their cups earlier.
 
-Among pieces piled like trash, a half-exposed old star-pattern insignia—clearly ancient—was visible to anyone.
+"Still that price?"
 
-He did not pick it up immediately. Instead, he looked at it for a moment and murmured very quietly.
+The water seller pointed his chin at the scale on the side of the drum.
 
-"So you drifted all the way here too."
+"It's gone down another notch."
 
-There was no mischief in those words.
+Luhai looked at the scale. Then he gave a short laugh.
 
-The reason he was proud of Hazran was in things like this. Discarded things were not the end. The possibility that they could be read again, in a different place.
+"Then the wind's not blowing today."
 
-Luhai did not buy the piece in the end. Instead, he extracted one piece of information from the owner—a rumor about another alley. Etherite with grain similar to what Aka's side was looking for might be released once more at dawn, outside the waterway.
+"Won't know till it comes in."
 
-As he turned away with the information secured, a light that looked far more like a person of this place than during the day crossed his face for an instant.
+"Nah, I already know,"
+Luhai said.
+"You put the seam price on earlier. But now the line's gone down. That means you won't need to replace it."
 
-And inside, Jiwoo and Aka were still standing before the same hull.
+Instead of answering, the water seller knocked two cups together, a dry tick and then another. Here, that meant he granted the point.
 
-While the outside market opened under evening light, the inner work compartment was sunk in deeper concentration beneath a small lamp. Jiwoo was pre-measuring the spots where the metal pieces Kael would send needed to sit. Aka was still watching whether the first receiving frame, temporarily fixed, was holding without going cold.
+Luhai did not buy water. He had come to check the price, not to drink.
 
-Words were few. But both knew.
+What he was really looking at was not the goods.
 
-No matter who bought what outside, who brought back what information, who saw Hazran how and returned—in the end, when things were bridged again inside here, everything would be tested once more.
+It was the price lists.
 
-Hazran had shown each person something different.
+As he walked, he ran his eyes once over each of the old price lists hung on boards at every shop. Eyes that looked not at what people sold, but at what they had changed after selling something.
 
-But those different pieces were, strangely, gathering little by little toward saving the same ship.
+In front of one parts dealer he slowed.
+
+Three lines on the price list had been freshly painted over. Only the top three. Dust still sat on the ones below.
+
+"That place moved something big today."
+
+He was talking to himself.
+
+Sell something small and you do not change your prices. It meant one big thing had come in and pushed all the rest down. And changing only the top three meant that what had been moved was among the most expensive things this shop had.
+
+Luhai went into that shop.
+
+He did not look at the goods. He asked the owner what was selling well today instead, and while the owner fobbed him off, he measured with his eyes the size of the empty crate standing beside the board. The crate was big.
+
+On his way out he picked up a rumor from another alley. Etherite of a grain close to what Aka was looking for might be let go once more at dawn tomorrow, out past the waterway.
+
+It had started with three lines on a price list and come out as one rumor.
+
+Even under those quick feet, there was a gaze that stayed quietly behind.
+
+Luhai stopped in front of an old parts dealer's tent. There, among pieces heaped like rubbish, a star-chart pattern that anyone could see was old lay half exposed.
+
+Instead of picking up the piece, he looked at it for a moment and muttered, very low.
+
+"You drifted all the way here too, huh."
+
+There was no mischief in it.
+
+This was why he was proud of Hazran. The chance that thrown-away things were not the end, that they might be read again somewhere else.
+
+In the end Luhai did not buy the piece. It was not on the price list yet, and he knew that the moment he asked its price, it would have one.
+
+As he turned away, a light crossed his face for a moment that made him look far more like someone from here than he had by day.
+
+And inside, Han Jiwoo and Aka were still standing in front of the same hull.
+
+While the market outside opened in the evening light, the work compartment inside was sunk in a deeper concentration under a small lamp. Han Jiwoo was measuring in advance where the metal pieces Kael would send were to go, and Aka kept watching whether the first receiving frame, fixed in place for now, was holding without cooling.
+
+Wiping her forehead with the back of her hand, Han Jiwoo asked.
+
+"What are they doing out there?"
+
+Aka did not take her eyes off the hull.
+
+"Each buying something different."
+
+"Is that a problem?"
+
+"No."
+
+Aka waited a moment, then added.
+
+"It all comes here."
+
+At that Han Jiwoo stopped her hands and looked at the receiving frame.
+
+"Has it cooled?"
+
+"It's cooling slower than before."
+
+"Is that good or bad."
+
+"Don't know,"
+Aka said.
+"If it's holding, good. If something inside keeps burning, bad. You touch it tomorrow morning and you'll know which."
+
+Han Jiwoo let out a short breath and lowered her hands again.
+
+They said little. But both of them knew.
+
+That whoever bought what outside,
+whoever came back with what information,
+however anyone saw Hazran before coming back,
+in the end everything would be tested once more when it was joined together again in here.
+
+Hazran showed each person something different.
+
+But all those different pieces were, strangely, gathering little by little toward saving the same ship.
 
 ---
 

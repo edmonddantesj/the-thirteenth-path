@@ -1,182 +1,250 @@
 # Capítulo 79 — La ola que no se rompía aunque la cortaran
 
-A la primera fila no le costó mucho alcanzar la línea exterior de Hazran.
+Vista desde lejos, era lenta.
 
-Desde lejos parecía lenta,
-pero en cuanto empezó a acercarse, fue extrañamente rápida.
-
-No era por la velocidad.
-Era porque no había ninguna detención.
-
-Una persona, ante el campo de batalla, alguna vez recobra el aliento.
-Vuelve a acompasar los pasos,
-mira hacia atrás,
-escucha hasta dónde ha llegado la fila de delante.
-
-Pero aquella fila no tenía ese tiempo.
-
-Como si en cada paso ya tuviera calculado el siguiente,
-la primera fila de androides negros se empujó con exactitud hasta la línea de obstrucción exterior de Hazran.
+En cuanto empezó a acercarse, de pronto se volvió rápida. No era que hubiera subido la velocidad. Como no se detenía en ningún punto, la distancia sencillamente se acortaba.
 
 Harún bajó la mano.
 
-Al mismo tiempo,
-las primeras placas de inducción térmica que tenían ocultas se encendieron y torcieron una vez el aire del suelo exterior. La arena y el polvo de metal se levantaron a la vez, y dos fragmentos de marco arrancados de los restos del armazón se engancharon y estrecharon de golpe el centro de la línea de entrada del enemigo.
+Las placas de inducción térmica que tenían ocultas se encendieron y el aire sobre el suelo exterior se torció una vez. La arena y el polvo de metal saltaron juntos, dos marcos arrancados de la arena se engancharon entre sí, y el centro del camino de entrada se estrechó de golpe.
 
-Una persona normal se detendría ahí.
+Sion pensó que los del otro lado se detendrían.
 
-Pero los del otro lado no.
+Uno de los tres de la primera fila chocó primero.
 
-Uno de los tres de la primera fila chocó a propósito antes que los demás.
-El cuerpo se le partió a la mitad y aun así no perdió velocidad,
-y los dos de la fila de atrás pisaron ese cuerpo partido casi como una tarima y cambiaron el ángulo.
+No había chocado al intentar esquivarlo. Entró tal cual, el cuerpo se le dobló a medias y no redujo la velocidad. El cuerpo doblado dejó abierto el paso estrechado.
 
-Sion, al verlo, tragó saliva.
+Los dos de atrás pisaron ese cuerpo y pasaron por encima.
 
-Aquello no era una ruptura,
-era un cálculo que incluía la pérdida.
+Sion contuvo el aliento.
 
-Aunque un individuo se quebrara,
-ese hueco se convertía de inmediato en el siguiente ángulo de entrada.
+Aquel pasar por encima no tenía ninguna prisa. Como si ya supieran que iba a ocurrir así, los pies fueron allí primero.
 
-Ater habló con frialdad.
+—Así que para eso usan la primera fila.
+Lo dijo Ater.
 
-—La primera fila es de verdad desechable.
+Sern lo recogió.
 
-Sern lo recogió enseguida.
+—El cuerpo principal es lo de atrás.
 
-—Sí. El cuerpo principal va detrás.
+Harún lo oyó todo y aun así no apartó los ojos de fuera.
 
-Harún escuchó todo aquel análisis y aun así no apartó la mirada.
+—Entonces rompan más la de delante.
 
-—Entonces rompan más la delantera —dijo en voz baja—.
+Sion miró hacia él.
 
-Que la de atrás se enganche.
+—Si se rompe más, tienen más que pisar y siguen viniendo.
 
+—Si se amontona lo que pisan, se hace alto.
 
-A ambos lados de la línea exterior de Hazran,
-cuatro esquifes del desierto que esperaban cobraron vida a la vez.
+Eso dijo Harún.
 
-Esto no era una carrera de competición.
+—Y si se hace alto, se traban.
 
-Lo más bajo y áspero posible,
-una maniobra que torcía el ángulo antes que comerse la distancia.
-Levantaban el polvo de metal a propósito, en grande,
-y solapaban al máximo el temblor de calor que los sensores del lado androide detestarían.
+A ambos lados de la línea exterior de Hazran, cuatro esquifes del desierto cobraron vida a la vez.
 
-Cuando un esquife rozó el costado derecho de la primera fila y pasó de largo,
-dos androides torcieron el cuerpo casi a la vez en el mismo ángulo.
+Esta vez no era para contener. Se pegaban al suelo, torcían el ángulo y levantaban el polvo de metal. Elegían los puntos donde temblaba el calor y pasaban por encima, una pasada sobre otra.
 
-Esa reacción fue tan exacta que, al revés, se dejó leer.
+Un esquife rozó el lado derecho de la primera fila.
 
-Sern, en ese instante, gritó al momento.
+Dos androides torcieron el cuerpo casi en el mismo instante y con el mismo ángulo.
 
-—¡Los dos de la derecha son el mismo eje! ¡Corten el centro!
+—Los dos de la derecha.
+Sern habló enseguida.
+—Son el mismo eje.
+
+Sion no entendió qué quería decir eso.
+
+—¿Y si son el mismo eje, qué?
+
+—Si uno gira, los demás giran con él. No miran cada uno por su cuenta.
+
+Mientras hablaba, Sern ya medía el ángulo con la mano.
+
+—Corten el del centro.
 
 Harún dobló la mano.
 
-La cizalla de cable que tenían oculta bajo el marco exterior saltó un instante
-y apuntó por debajo de la rodilla del androide del centro.
+La cizalla de cable enterrada bajo los marcos exteriores saltó un instante. Primero se oyó el cable tensándose bajo la arena, y después el cable subió.
 
-Acertó con exactitud.
+Golpeó al del centro por debajo de la rodilla.
 
-La pierna del primer individuo quedó cortada,
-y ese cuerpo se derrumbó hacia delante con violencia.
+El chirrido de metal fue corto y agudo. Sion lo sintió primero en los dientes.
 
-Sion, por un momento,
-pensó que ya se había cortado.
+La pierna quedó cortada. El cuerpo se desplomó hacia delante con fuerza y apoyó un brazo en el suelo, y ese gesto de apoyarse era idéntico al de una persona. Eso fue lo que Sion más detestó.
 
-Pero no.
+Al desplomarse, los dos de al lado perdieron el ángulo con él. Lo perdieron juntos porque eran el mismo eje. Los dos se inclinaron a la vez hacia donde caía el primero, y así inclinados dieron todavía unos pasos.
 
-Los dos de la fila de atrás taparon el hueco abierto sin descansar ni un compás.
-Sobre el individuo caído se cubrió de inmediato una nueva línea de entrada,
-y la pierna cortada y los fragmentos de metal quedaron sin más en el lugar por donde habían pasado.
+Por primera vez, Sion vio abrirse un agujero en la fila del otro lado.
 
-Lo habían cortado,
-pero no se había roto.
+Los tres se torcieron a la vez y el sitio de esos tres quedó vacío. Por el hueco se vio lo que venía detrás.
 
-Luhai apretó los dientes.
+Alguien a su lado soltó un sonido corto. Era un sonido de alegría.
 
-—Es una locura…
+Pensó que se había cortado.
 
-Dentro de aquel murmullo breve
-se mezclaban a la vez el asombro y la repulsión.
+Desde atrás entraron dos. Sin descansar ni un compás.
 
-La primera línea de obstrucción de Hazran tampoco careció de sentido del todo.
-La velocidad de la primera fila de androides se retrasó muy levemente,
-y en ese hueco, desde la plancha de metal del nivel alto exterior, dos hombres de Hazran dispararon proyectiles cortantes de largo alcance. A un individuo se le quebró la línea del hombro, y a otro se le rayó parte de la superficie del sensor.
+Sobre el caído se cerró de inmediato una línea nueva. A los dos que se habían inclinado les costó dos o tres pasos recuperar el ángulo, y mientras tanto los de atrás llenaron ese sitio. Una vez lleno, la fila era idéntica a la de antes.
 
-Pero ni siquiera eso logró derrumbar el flujo entero del otro lado.
+La pierna cortada y los pedazos rotos se quedaron sin más donde habían pasado. Nadie los apartó y nadie evitó pisarlos.
 
-Si fuera una persona, cuando se le quiebra el hombro se tambalea una vez.
-Si se le parte la vista, suelta una maldición o se bambolea, el cuerpo reacciona.
-Pero los del otro lado no tenían eso.
+El sonido de alegría se cortó.
 
-Cuando surgía una pérdida,
-pasaban sin más al siguiente cálculo, que ya la incluía.
+La habían cortado y no se había roto.
 
-Han Jiwoo, durante todo ese rato, tenía la mano apretada con fuerza.
+Sion se quedó allí de pie, sin poder ordenar qué era lo que había visto.
 
-Sion vio que la expresión de ella estaba tan endurecida que ni siquiera distinguía
-si en ese momento quería volver hacia dentro y aferrar más el barco,
-o quería romper de inmediato aquella fila de androides.
+Lo de hace un momento había sido un éxito. Sern lo había leído, Harún había golpeado con precisión y tres se habían desplomado a la vez. Era la primera vez que este lado leía al otro y ganaba.
 
-Han Jiwoo dijo muy bajo.
+Pero veinte pasos más atrás parecía que no hubiera pasado nada.
 
-—Si usan las máquinas así…
+Sion miró hacia Sern.
 
-Esta vez tampoco la frase llegó hasta el final.
-Pero esta vez fue Aka quien recogió esas palabras.
+—¿Y eso cómo se sabe? Lo del mismo eje.
 
-—Se hace el muerto.
+—Giraron demasiado igual.
 
-En el instante en que cayeron esas palabras,
-la mirada de Han Jiwoo tembló de un modo apenas perceptible.
+—¿Y eso por qué…?
 
-Era verdad.
+—Las personas no son tan iguales.
 
-Aquello no era una máquina viva.
-Estaba más cerca de una legión muerta a la que habían hecho moverse como si fingiera estar viva.
+Sion se aferró a esas palabras.
 
-Por eso daba más repugnancia.
+Ser exactos era la fuerza del otro lado. Pero cuanto más exactos, más se repite lo mismo, y cuando lo mismo se repite, se deja leer. Las personas tiemblan, y por eso son débiles, y tiemblan, y por eso no se dejan leer.
 
-Harún seguía leyendo el campo de batalla.
+Ahí había algo que este lado podía usar.
 
-—Sacrificamos otra línea exterior —dijo—.
-Tuérzanla en el segundo ángulo.
+Sion volvió a mirar a Sern. Este hombre lo había visto una sola vez hacía un momento y lo había descubierto en el acto.
 
-Zahir, desde la parte alta, oyó esas palabras y aun así no las frenó.
+Debía de haber visto aquello durante mucho tiempo en el Imperio. Lo que sabía por haberlo visto tanto, lo estaba usando ahora de este lado. Sion pensó un momento en qué sería eso para él, y lo dejó. No era momento de preguntar.
 
-Significaba abandonar un rincón del mercado
-para atraer al enemigo, alargándolo, mucho más hacia dentro.
-Hazran no estaba peleando desde el principio una pelea por defenderlo todo.
-Era una ciudad que calculaba a la vez lo que iba a defender y lo que iba a soltar.
+El problema era que, aunque lo leyeran y lo cortaran, el corte se rellenaba enseguida.
 
-Sion, aun sabiendo que ese juicio era correcto,
-sintió el frío por dentro.
+Con una lectura se podía derribar a tres. El otro lado gastaba dos o tres pasos en rellenar a esos tres. Si se seguían ganando dos o tres pasos cada vez, eso al menos se iba acumulando.
 
-Porque dentro de la palabra «soltar» siempre podía mezclarse también gente.
+En qué se convertía lo acumulado, nadie lo había dicho todavía.
 
-En ese momento, por detrás de la primera fila de androides,
-sonó un ruido de metal más bajo y más pesado.
+Desde las planchas de metal del nivel alto exterior, dos personas de Hazran dispararon proyectiles cortantes de largo alcance. A un individuo se le partió el hombro y a otro le rasparon parte del frente.
 
-Sern levantó la cabeza al momento.
+Ni el partido ni el raspado cambiaron el paso.
+
+Una persona, si se le parte el hombro, se tambalea al menos una vez. Si no ve lo que tiene delante, maldice o trastabilla: el cuerpo reacciona primero. Del otro lado no había ese compás.
+
+Sion miró hacia Aka. Ella miraba hacia fuera.
+
+—¿Lo oyes?
+
+—Sí.
+
+—¿El qué?
+
+Aka se quedó un momento callada y luego habló.
+
+—Terminan haciéndose los muertos.
+
+—¿Qué quieres decir?
+
+—Si los usan así, terminan así.
+
+Sion supo hacia dónde iban esas palabras tan cortas.
+
+Caminaban como si estuvieran vivos, pero de ellos no salía nada de lo que sale de lo vivo. Al herirse sale un sonido, al tener miedo sale un sonido, y allí no salía. Los habían hecho para que fuera así.
+
+Harún seguía leyendo lo de fuera.
+
+—Abandonamos una línea de fuera.
+
+Sion volvió la cabeza.
+
+—¿Abandonarla?
+
+—Dóblenla en el segundo ángulo.
+
+A Sion le costó un rato calcular qué quería decir eso.
+
+Si se cede una línea de fuera, el otro lado entra por ahí. Al entrar, tiene que caminar más hacia dentro, y mientras camina se abre el costado del mercado. Era una manera de alargar en vez de defender.
+
+Zahir lo observaba desde lo alto. No dijo nada.
+
+Que no dijera nada era el permiso.
+
+La gente empezó a retirarse de la línea de fuera.
+
+No entraban corriendo. Se retiraban de dos en dos, pegados, mirando atrás cada tanto. Los dos últimos salieron con el cable de la cizalla enrollado en las manos. Lo que el otro lado pudiera usar si lo dejaban allí, no lo dejaron.
+
+Luhai estaba de pie en la entrada interior, mirando uno por uno a los que entraban.
+
+Movía los dedos. Estaba contando.
+
+—¿Cuántos?
+Lo preguntó Sion.
+
+—Al salir, catorce.
+
+Luhai respondió sin apartar los ojos.
+
+—Ahora, once.
+
+Sion recibió ese número y miró la entrada. Todavía entraba gente.
+
+Fueron doce.
+
+Luego, durante largo rato, no entró nadie.
+
+Luhai no bajaba los dedos. Parecía que no los bajaba porque bajarlos significaría que se había terminado.
+
+Entró uno más. Entró sosteniendo con la otra mano el brazo del hombro que no podía mover.
+
+Eran trece.
+
+Luhai siguió mirando después de eso. Fuera de la entrada la arena se levantó una vez con fuerza, y después no llegó nada.
+
+Sion miraba con él, a su lado. No quería ver cuándo bajaba Luhai los dedos, pero no podía apartar los ojos.
+
+—Trece.
+
+Luhai dijo solo eso y se fue hacia dentro.
+
+Sion supo por qué esa sola palabra pesaba tanto. Entre catorce y trece había uno, y a ese uno nadie lo llamó por su nombre.
+
+Sion supo que lo que habían hecho esos dos tenía la misma forma que lo que acababa de hacer el otro lado.
+
+Ceder lo de delante y meter lo de atrás. Lo de atrás vive en la medida de lo que se cede.
+
+Hazran también era un lado que abandonaba.
+
+Sion intentó volver a contar lo que llevaba contando desde ayer.
+
+No le salía. Hoy había pasado demasiado rápido, y antes de ponerle nombre a una cosa ya llegaba la siguiente.
+
+Aun así, una sí recibió nombre.
+
+Era la undécima.
+
+Que este lado también abandona.
+
+Sion supo que era distinta de las diez anteriores. Las de antes eran sobre el otro lado. Esta era sobre este lado.
+
+Y había otra diferencia más.
+
+Lo que abandona el otro lado se puede volver a levantar. Los de atrás entran en el sitio roto y se forma la misma fila.
+
+Lo que abandona este lado no funciona así. En aquella línea de fuera, hasta hacía un momento, había gente de pie.
+
+Sion dejó de contar ahí.
+
+Entonces, desde detrás de la primera fila, resonó un sonido más bajo y más pesado.
+
+Sern levantó la cabeza.
 
 —Hay más detrás.
 
-Ater también habló de inmediato.
+Sion volvió a mirar más allá de la capa térmica.
 
-—La primera fila es de verdad de uso desechable.
+Detrás de aquella cosa negra cuyo final antes no se veía, había otra capa superpuesta.
 
-Sion volvió a mirar más allá del horizonte exterior.
-
-Detrás de la capa térmica,
-ahora se veían superponerse muchas más sombras.
-
-La primera fila no era más que el comienzo.
-
-Y Hazran acababa de chocar de verdad, por primera vez,
-con la ola que no se rompía aunque la cortaran.
+La primera fila era solo la primera fila.
 
 ---
 

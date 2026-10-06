@@ -22,7 +22,7 @@ demanda brièvement Ater.
 
 Jiwoo suivit des yeux deux machines traversant un couloir supérieur.
 
-« En bas, les mains saisissent immédiatement ce dont elles ont besoin. Au-dessus, les mains n'ont pas du tout besoin de se toucher directement. »
+« En bas, les mains saisissent immédiatement ce dont elles ont besoin. Au-dessus, les mains n'ont même pas besoin de toucher directement. »
 
 C'était précis.
 
@@ -50,7 +50,7 @@ Cette distance devient autorité.
 
 Au moment où Ater l’a vu, il a semblé ressentir plus clairement à quel point la structure de discrimination sur laquelle ce monde reposait était complète.
 
-Lorsque la discrimination est manifeste, il est encore possible de résister. Mais lorsqu’il est profondément dissous dans l’habitude et la structure, même ceux qui y vivent l’acceptent comme un ordre.
+Lorsque la discrimination est manifeste, il est encore possible de résister. Mais lorsqu’elle est profondément dissoute dans l’habitude et la structure, même ceux qui y vivent l’acceptent comme un ordre.
 
 Au-delà d’une fente d’observation menant plus haut, une section humaine bien plus raffinée était visible.
 
@@ -68,7 +68,7 @@ Mais cette stabilité ne vient pas de la liberté.
 
 C'était une stabilité qui impliquait de savoir quoi montrer et comment le montrer.
 
-Plus Serakion élevait les humains, moins il les traitait mieux – et plus il les traitait pour qu’ils soient plus beaux.
+Plus Serakion élevait les humains, moins il s’agissait de les traiter mieux – et plus il s’agissait de les rendre beaux à voir.
 
 La première main de récupération l'a dit très bas.
 
@@ -86,7 +86,7 @@ Et ce n'est qu'en atteignant cette partie supérieure qu'il s'arrêta un long mo
 
 Jiwoo a demandé en premier.
 
-« Quoi. »
+« Pourquoi. »
 
 Kael ne répondit pas immédiatement.
 
@@ -122,7 +122,7 @@ Puis, dans un couloir non loin au-dessus, passèrent trois machines bien plus ra
 
 Leurs surfaces ne présentaient pratiquement aucun dommage. Il n’y avait aucun signe de précipitation. Même la façon dont leurs regards balayaient les environs était si douce qu'ils semblaient être le genre d'êtres capables de surveiller sans que personne ne se rende compte qu'ils étaient observés.
 
-La seconde aiguille de récupération murmurait très bas.
+La seconde main de récupération murmurait très bas.
 
 « Ceux là-haut pensent toujours que le temps joue en leur faveur. »
 
@@ -133,7 +133,7 @@ Le niveau supérieur de Serakion était très probablement constitué exactement
 
 Et ce jour-là, l’équipe de reconnaissance a enfin compris.
 
-La hiérarchie de Serakion n'a pas de pouvoir plus grand à mesure que vous montez. Il occupe une position dans laquelle vous touchez moins, vous éloignez plus et triez plus parfaitement.
+La hiérarchie de Serakion n'a pas de pouvoir plus grand à mesure que vous montez. Elle occupe une position dans laquelle vous touchez moins, vous éloignez plus et triez plus parfaitement.
 
 Cette distance était l’une des formes de violence les plus précises de ce monde.
 

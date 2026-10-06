@@ -1,253 +1,255 @@
 # Episode 114. The First Thing They Did Not Know How to Name
 
-Whether a full day had passed
-or only half,
-time didn't count properly inside the ship.
+Sion tried to count the time, then gave up.
 
-The hull was still unstable.
-The people were exhausted.
-The evacuees who had crossed from Hazran wore faces that had already passed through too much just by being alive.
+He couldn't tell whether a day had passed or half of one. There was no sun inside the ship and no shadow, and apart from people shutting their eyes for a moment and opening them again, there was nothing to divide the hours by.
 
-But through all of it,
-the one point still hadn't vanished.
+In Hazran there had been sunlight. Step from the shade into the sun and the heat came up through your clothes, and that told you roughly where in the day you were.
 
-Jiwoo finally sat before that panel again.
+Here there was none of that.
 
-She needed to drag this into her own language, by force if necessary.
-Malfunction if malfunction.
-Damage if damage.
-Residual vibration if residual vibration.
-Only what can be named can be handled.
+It left Sion strangely hollow. One more thing to count was gone.
 
-But the more she touched it,
-the less precisely it fit any category she knew.
+Han Jiwoo was sitting in front of that panel again.
 
-A spot that should have been irregular held for too long.
-A vibration that should have cooled lingered at one point alone.
-Not the entire hull on the verge of collapse—
-just that one spot, strangely, felt *held in place*.
+Sion had counted how many times since yesterday, then lost track.
 
-Jiwoo bit her lip and said low.
+A half-written list lay in front of her. It was the sheet where she kept the ship's condition; the left column was packed full, and only the very bottom line was empty.
 
-"This isn't damage holding on."
+"What were you about to write before you stopped?"
 
-Kael asked from beside her.
+"A name."
 
-"Then?"
+Sion didn't catch her meaning right away.
 
-Jiwoo couldn't answer right away.
+Han Jiwoo tapped the sheet with the back of her hand.
 
-Admitting what she didn't know always felt bad.
-But now it was worse.
-This ship was the house she was holding right now,
-the vessel carrying the survivors,
-the last frame ripped away from Hazran.
+"If it's a fault, I write fault. If it's damage, I write damage. That way, next time you look, you know what you're looking for."
 
-So she wanted even less
-to leave it in a state of not knowing.
+"Then what about that?"
 
-Sion watched from a spot further away.
+"That's why I haven't written anything."
 
-He still felt the strange sense of direction.
-Not a smell.
-Not light.
-Not a clear path.
-But gaze and sensation kept returning to one point.
+She looked at the list again. Everything on this ship had a name. The cracked places, the burned places, the places lashed together for now, the places set back where they belonged. Each had a word to call it by, so each could be worked on.
 
-It wasn't the feeling of being called—*come here*.
-More like
-a path that had already come this far and then folded.
+Only that had no word.
 
-Sion straightened his back without meaning to at that thought.
+"You can't fix it without a name?"
+Sion asked.
 
-Hazran was over.
-But if it truly ended,
-why was it remaining in this way?
+"Not fixing it is the second problem."
 
-That question was still too large.
+Han Jiwoo went on.
 
-Seorin leaned against a nearby wall,
-watching that spot in silence.
+"I can't hand it over to whoever comes next."
 
-She had the eyes for seeing what holds too long
-and what should have been severed but hasn't been.
-That's why this air was uncomfortable.
+Sion held on to that for a long while.
 
-If it had ended, it should have broken cleaner.
-But it hadn't.
+Then he made a round of the ship. While he was at it, he listened to what people called that thing.
 
-Somewhere, very faintly,
-Hazran was still *not released*.
+Kael called it "that spot."
 
-For Seorin, that wasn't comfort.
-It came closer to an uncomfortable fact.
+Seorin called it "that."
 
-Luhai had been helping organize the evacuees' side,
-then came and stood near that spot again.
+Luhai kept calling it "the thing," and once he called it "what's left of Hazran," then let the end of it trail off himself.
 
-He didn't know machines or structures well.
-But he knew prices, traces, and how long the mark of a human hand lasts.
+Sern did not call it anything at all. He only pointed toward it with his hand.
 
-He touched the surface with his finger.
+Ater called it "that location." The Empire's way of speaking came out of him like that.
 
-"That doesn't look like a place where the accounting is done."
+Six people called the same thing six different ways. No one used the same word, and yet no one failed to understand.
 
-Jiwoo briefly raised her eyes.
+That was what frightened Sion, if anything.
 
-That line was strangely right.
+If everyone is looking at the same thing and the words for it are all different, there will be no way later to explain it to someone who wasn't here. Each remembers it in their own words, and each leaves it behind differently.
 
-If it were a finished place,
-there should be no reason left to hold.
-But that one point was still clinging
-as if something hadn't been fully passed on yet.
+Something Sern had once said came back to him. If you were there together and remember it differently, then the next time you meet, you are people from different places.
 
-Sern came closer this time, examining the panel's edge himself.
+Sion asked Ater first.
 
-He was less one to touch
-and more one to press his ear close and listen for the finest intervals.
+"What does the Empire call something like this?"
 
-After a moment,
-he said low.
+"It does not call it anything."
 
-"It is not a signal."
+"Nothing at all?"
 
-Ater asked.
+"A name is decided by whoever gives it,"
+Ater said.
+"In the Empire, a name is given not by the one who found the thing but by those who approve it."
 
-"Then what is it."
+Sion knew that was the exact opposite of Hazran.
 
-Sern didn't answer right away.
+Hazran gave names where things were found. Zahir found the baby and called her Aka on the spot, and that was how the place became a city. The hand that gave the name and the hand that found her were the same.
 
-"If it were a signal, the repetition would be more distinct."
-He said.
-"This is… less repetition and closer to something folded once and never unfolded."
+In the Empire, the one who finds a thing has no such authority.
 
-At those words,
-something inside Sion's chest went faintly cold.
+"Then when does that get a name?"
 
-Folded once and never unfolded.
+"By the Empire's way, it does not,"
+Ater said.
+"No one who could approve it has ever seen it."
 
-That strangely
-sounded like words for all of Hazran.
+Sion chewed on that answer for a long time.
 
-Then Aka stood at that spot again.
+The one who has seen it has no authority, and the one with authority has never seen it. Then whatever lies between them never gets a name.
 
-Again she didn't touch first.
-She never did.
-She looked with her eyes,
-listened with her ears,
-and only then touched.
+Sion went over to Seorin.
 
-This time, very slowly,
-she brought just one fingertip close to the panel.
+"Why do you only call it *that*?"
 
-Jiwoo held her breath.
+Seorin didn't answer right away. Then she looked at Sion once.
 
-Aka didn't close her eyes.
-She kept them open to the end,
-watching the faint trembling and the metal grain as they were.
+"Give it a name and you start looking for it."
 
-And she murmured, as if exhaling.
+"Is looking bad?"
 
-"It attached."
+"Looking's fine,"
+Seorin said.
+"Once it has a name it has a price, and once it has a price, somebody comes to take it."
 
-Jiwoo asked back immediately.
+Sion's breathing changed a little.
 
-"What did."
+Those were words from someone who had lived a long time in the gray zones. She was one of the people who had seen what becomes of things that have names.
 
-Aka was silent for a moment.
+"So it stays *that*?"
 
-In that short silence,
-Sion felt again what he always felt.
-Aka was not someone who says everything she knows.
-She was someone who leaves only the shortest words
-precisely because she cannot say it precisely enough.
+"For now."
 
-Aka continued, very slowly.
+Seorin pushed her back off the wall.
 
-"What passed through to the very end."
+"Not calling it anything is a way of protecting it too."
 
-Those words were understood and not understood at once.
+Sion put that away as well.
 
-But no one inside the hull
-could let that sentence pass lightly.
+Han Jiwoo couldn't call it anything because she couldn't write it down; Seorin wouldn't call it anything because calling it was dangerous. The same spot, and the reasons ran opposite.
 
-Because it sounded like it meant:
-what closed to the very end in Hazran,
-what was passed on to the very end,
-what was never released to the very end—
-those things are attached here now.
+There was no need to ask Kael. When Sion came over, Kael spoke first.
 
-Sion stepped one pace closer.
+"Name a thing and the hands change."
 
-The sense of direction kept catching toward that spot.
-Less a path
-and more like the grain that settles first in a place where a path might form.
+"How?"
 
-He said, very low.
+"People handle a thing carelessly once they know its name."
 
-"If things remain this way…"
+Sion realized it was the same thing Han Jiwoo had meant yesterday when she told everyone not to lean against it. One said be careful because you don't know; the other said that once you know, you stop being careful.
 
-The sentence didn't continue.
+Sion looked at Aka.
 
-There was still too much unknown.
-What was left behind.
-Why it attached here.
-Whether more like this could appear.
+Aka was sitting low, close to the floor. Her face was paler than yesterday, but she still held herself upright.
 
-But at least one thing was clear.
+Sion sat down beside her.
 
-This was not a malfunction.
-Not simple wreckage.
-Some result born from Hazran's ending
-was condensed and remaining inside this ship.
+"Can you give it a name?"
 
-And the ship
-didn't look like it was merely carrying it.
-It looked like it was holding it.
+Aka didn't answer.
 
-Jiwoo lifted her hand from that spot, very slowly.
+Sion didn't ask twice. Instead he watched that spot along with her while she watched it.
 
-Words came out of her mouth almost like they leaked.
+After a long while Aka spoke, very low.
 
-"I think the ship is remembering."
+"Not yet."
 
-That was something she wouldn't normally have said, even to herself.
-But right now,
-no more precise expression came to mind.
+"Why not?"
 
-Luhai murmured, small.
+"If you name it now, that's the end of it."
 
-"Then could more of these appear?"
+Sion only half understood what she meant.
 
-No one answered right away.
+Name it and it becomes something known. Once it's known, it stops there. Right now that thing was still on the side where nothing had decided what it would become.
 
-Sern kept his gaze fixed.
-Seorin was still watching how long that air remained unbroken.
-Kael slowly clenched his hand on the hull frame.
+But the other half of what he had half understood lay somewhere else.
 
-Aka said, one last time, very low.
+Aka was someone who had been given a name.
 
-"There are things that can only be named after they end."
+The day Hazran found Aka and gave her a name was the day the city became a city. That city had begun with giving a name, and yesterday it closed.
 
-Not an explanation.
-A sentence closer to confirmation.
+Which meant the hand that gave names was now nowhere at all.
 
-Hearing those words, Sion thought
-for the first time, very faintly.
+Sion didn't say that thought to Aka.
 
-The path ahead might not exist somewhere waiting.
-It might be something that reveals itself late,
-as things like this remain, attach, and condense, one by one.
+Luhai had been watching from the other side, and he spoke up.
 
-No one could say it precisely yet.
-But the fact of not knowing
-felt, strangely, more like a definitive beginning.
+"In Hazran, we didn't sell what we couldn't price."
 
-Hazran had closed.
-And instead of vanishing,
-the things that closed
-might continue like this—remaining,
-and leading to what comes next.
+Sion turned around.
+
+"So what did you do when you couldn't sell it?"
+
+"Set it to one side and just didn't name it,"
+Luhai said.
+"Till somebody saw what it was worth."
+
+"Not throw it out?"
+
+"Throw it out and the next one who'd see its worth never gets to look at it."
+
+Sion thought that was the Hazran way. If you don't know the price, you don't say no. You say not yet.
+
+Han Jiwoo heard that.
+
+She looked at the empty line on the list for a long while and didn't write a single letter in it. Instead she drew one short stroke beside it.
+
+"I'm leaving it blank,"
+she said.
+"It's the same as writing down that I don't know yet."
+
+Sion looked at the stroke.
+
+It looked like the line he had scratched into the metal plate yesterday.
+
+Neither was a number, and neither was a name. They only marked that something was here.
+
+Then Sion saw that something on the floor had changed.
+
+Until yesterday, the Hazran people had sat around the walls. Now only the floor in front of that panel was empty.
+
+Nobody sat there. No one had pushed anyone off, and no one had said a word. That much floor was simply empty.
+
+It was yesterday that Han Jiwoo had told everyone not to lean against it. But those people weren't merely not leaning; they had left the whole space in front of it empty.
+
+It wasn't something they had learned. It was a way they already knew.
+
+On the refugees' side, a child stepped out onto the empty floor and was caught by an adult's hand and brought back.
+
+The hand that caught the child wasn't hurried. It hadn't stopped the child because it was dangerous; it was a hand that knew that spot was not a place to touch right now.
+
+Sion couldn't take his eyes off that hand.
+
+Those people hadn't asked for a name. They came from Hazran, so they already knew how to keep something that had none.
+
+The hull sounded once, low, and settled again.
+
+Han Jiwoo took her hand away and spoke.
+
+"We have to keep watching it."
+
+"Are you going to fix it?"
+
+"No. I'm going to see if it changes."
+
+She folded the list and put it in her pocket. She left the empty line as it was.
+
+Sion counted nothing that day.
+
+Not the time, not that thing, not how many days were left.
+
+But he knew one thing.
+
+Leaving something without a name was one of the ways to keep it. It was not the same as erasing it as if it weren't there.
+
+Sion thought, once, about what he would call it if he were the one to name it.
+
+Nothing came. Whatever came was dragged toward things he already knew. Fault, trace, what's left. Every one was a smaller word than that thing.
+
+So Sion didn't name it either.
+
+Not because there was no word to give it, but because naming it felt like it would shrink it down to the size of that word.
+
+Sion thought that might have been what Aka meant earlier.
+
+Hazran had closed, and the hand that gave names had closed with it.
+
+So for now it stayed on inside this ship with no name at all, simply going on being there.
 
 ---
 

@@ -1,218 +1,226 @@
 # Episode 36. The Price After the Grab
 
-The footsteps walking in from beyond the alley entrance's shadow were not coming to settle a commotion.
+What walked in from beyond the shadow at the mouth of the alley was not the step of someone coming to break up a commotion.
 
-They were coming to count who had touched the wrong price and who could afford to pay.
+It was the step of someone coming to count who had wrongly touched a price, and who could afford to pay it.
 
-People cleared the way first. No one shouted for them to — they just did. A rare kind of organizing for the outer-layer market. When prices climbed, the crowd usually pressed closer — but now they were stepping back. Laughter and curses had not fully died, yet over them a thinner layer of silence was settling.
+People cleared the way first. No one had shouted, and still they did. It was a rare kind of order for the outer market. When a price went up, people usually crowded in closer; now, instead, they each stepped back a pace. The laughter and the curses hadn't fully died out, but a thinner layer of silence was being laid over them.
 
-Into that center, Nasim walked in.
+Into the middle of it walked Nasim.
 
-Not hurrying, not deliberately slow. Yet the kind of speed that made the other side steady their breath one more time. No different from the face seen at the market's edge earlier — yet strangely, now he looked like someone who already knew far more before arriving.
+His step neither hurried nor dragged on purpose. Even so, it was the kind of pace that made you steady your breath one more time. It was a face they had never seen before, and yet, oddly, he looked like someone who had come already knowing a great deal.
 
-He swept the alley's interior once.
+He swept his eyes once over the scene inside the alley.
 
-Luhai caught in Kael's grip.
-The metal shard in Luhai's hand.
-The frozen merchant.
-The retreated onlookers.
-And Sion's group, standing at the center of all of it.
+Luhai in Kael's grip,
+the metal piece in Luhai's hand,
+the frozen merchant,
+the onlookers who had pulled back,
+and Sion's party, standing with all of it in the middle.
 
-From that brief sweep alone, Nasim already wore the face of someone whose calculation was finished.
+From that one short sweep, Nasim already had the face of a man who had finished the arithmetic all the way to the end.
 
-"Touched something big the moment you walked in."
-He said, very smooth.
+"You've barely walked in and you've already touched something big,"
+he said, very softly.
 
-Seorin did not respond immediately. Instead she looked once at the shard in Luhai's hand, then at Nasim's face.
+Seorin did not take it up right away. Instead she glanced once at the piece in Luhai's hand, then at Nasim's face.
 
-"Yours?"
+"Is it yours?"
 
-Nasim smiled.
+Nasim laughed.
 
-"The most expensive question on Hazran is always that one."
-He said.
+"In Hazran, the most expensive question is always that one,"
+he said.
 "Whose is it."
 
-Kael said, very low.
+Kael spoke very low.
 
-"Then that means it's not yours either."
+"So it's not yours either."
 
-Nasim's gaze went that way.
+Nasim's eyes went that way.
 
-"Dark coat — you're the type that smells before hearing. Not bad."
+"You in black, you're the type who smells it before he hears it,"
+he said, smiling.
+"I don't mind that."
 
-Luhai did not miss the gap — twisting the wrist once. Reading the instant Kael's grip eased barely, already looking for the angle to bolt again. But Kael's hand was faster. This time not forcing a break — just half-stepping to kill the direction of the child's body itself.
+Luhai did not miss the gap; he twisted his wrist once. He had read the instant Kael's grip loosened, very slightly, and seen an angle to bolt again. But Kael's hand was faster. This time he didn't force a twist; he turned just half a step and killed the direction of the kid's whole body.
 
-Luhai gritted teeth.
+Luhai gritted his teeth.
 
-"I said I'm not running."
+"I told you I'm not running."
 
-"You just tried."
+"You were about to just now,"
 Sion said.
 
-"That's habit."
-Luhai answered flat.
+"That's habit,"
+Luhai shot back flatly.
 
 Ater murmured, very low.
 
 "Not a good habit."
 
-Luhai heard that and rather than looking embarrassed, stared straight at Ater's face. Not a child accustomed to being evaluated — more like one accustomed to reading the evaluator's expression first.
+Hearing it, Luhai was less embarrassed than anything; he stared right at Ater's face instead. He seemed less like a kid used to being judged than one used to reading the face of whoever was doing the judging.
 
-Nasim did not intervene until the brief exchange fully ended. Instead he watched with a smiling face. Who held initiative, who showed emotion first, how far Luhai could bolt — reading all of it at once.
+Nasim did not step in until that short exchange was over. Instead he watched quietly, smiling. He was the kind who saw it all at once: who took the lead, who showed feeling first, how far Luhai could bolt.
 
 He spoke again.
 
-"That shard — too pricey to roll around outside."
-He indicated the etherite in Luhai's hand with a chin-point.
-"The idiot who laid it among fakes was stupid, sure — but that doesn't mean the hand that grabbed it is smart."
+"That piece is a little too pricey to roll around out here,"
+he said, pointing with his chin at the Etherite in Luhai's hand.
+"The one who laid it out among the fakes is an idiot, sure, but that doesn't mean the hand that grabbed it is smart, either."
 
-Luhai shot back immediately.
+Luhai snapped back at once.
 
-"So does that make you the smart one?"
+"Then does it mean you're smart?"
 
-The alley air stopped for the briefest instant.
+The air in the alley stopped, very briefly.
 
-The merchant went pale. Several onlookers turned their gazes away entirely. Even on Hazran's outer layer, a mouth like that could carry a precious price. Funny if you survived; snapped immediately if you caught the wrong one.
+The merchant's face went ashen, and a few of the onlookers looked away outright. Even in Hazran's outer layer, a mouth like that could carry a high price. The kind of mouth that was fun if it survived and broke on the spot if it caught on the wrong person.
 
-Nasim did not drop his smile even at that.
+And yet Nasim did not put his smile away.
 
-"You're still alive, so your luck is better than I thought."
-He said.
-"Or someone keeps stepping in for you."
+"Seeing as you're still alive, your luck's better than I thought,"
+he said.
+"Or someone's kept stepping in for you."
 
-That gaze touched Kael briefly.
+His eyes touched Kael for a moment.
 
-From that short round-trip alone, Sion could tell. Nasim had already read that Luhai had not moved alone. That this commotion was not a simple theft — but an affair where outsiders and the market's outer-layer price had tangled at once.
+From that one short back-and-forth, Sion could tell. Nasim had already read that Luhai had not been moving alone. And that this commotion was not a simple theft, but an incident where the outsiders and the prices of the market's outer layer had gotten tangled together all at once.
 
-Seorin asked short.
+Seorin asked briefly.
 
-"So the conclusion."
+"So what's the bottom line?"
 
-"Conclusion's simple."
+"The bottom line's simple,"
 Nasim said.
-"If that shard is real — the longer you stand here like this, the more hands attach."
+"If that piece is real, the longer you stand out here like this, the more hands latch on."
 
-"Including yours?"
+"Yours included?"
 Seorin asked.
 
-Nasim did not dodge.
+Nasim didn't dodge the question.
 
-"Obviously."
-He answered with a smile.
-"On Hazran, the real thing tilts toward the hand that holds it to the end — not the hand that found it."
+"Of course,"
+he answered, smiling.
+"Because in Hazran, the real thing leans toward the hand that holds on to the end, not the hand that found it."
 
-Luhai's eyes changed sharply hearing that.
+When Luhai heard that, the look in his eyes changed sharply.
 
-Irritation rose before fear.
+It was a face where irritation came up before fear.
 
-"That's why I said I grabbed it first."
-He said.
-"That merchant only had dead stuff. I picked this one first."
+"That's why I'm saying I grabbed it first,"
+he said.
+"That merchant's hand had nothing but dead stuff in it. I picked this one out first."
 
-"You stole it."
-The merchant shouted belatedly.
+"You stole it!"
+the merchant yelled, too late.
 
-"You didn't even know it was real?"
-Luhai fired back instantly.
+"When you didn't even know it was real?"
+Luhai fired straight back.
 
 "Quiet."
-Seorin cut, low.
+Seorin cut them off, low.
 
-That single word shut both mouths briefly. The merchant shut his from injustice; Luhai shut his from reading that talking more would cut his own price.
+At that one word, both of them shut their mouths for a moment. The merchant shut his because he felt wronged, and Luhai shut his because he read that talking more might actually knock down his own price.
 
-Ater said, looking at the etherite.
+Ater spoke, looking at the Etherite.
 
-"It is not fully dead material. At minimum it has verification value."
+"It is not a completely dead material. At the very least, it is worth a judgment."
 
-Sion picked up.
+Sion took that up.
 
 "Then we can't just hand this over."
 
-Only then did Nasim look at Sion slightly longer.
+Only then did Nasim look at Sion a little longer.
 
-"Because of etherite?"
-He asked.
+"Because of the Etherite?"
+he asked.
 
-Sion did not hide it.
+Sion didn't hide it.
 
-"Our ship is near-dead."
-He said low.
-"No room to buy fakes and stick them on."
+"Our ship is about to die,"
+he said, low.
+"We can't afford to buy a fake and bolt it on."
 
-Nasim smiled. That smile was just slightly closer to genuine than before. The smile that comes when someone can see fully what a person wants, why they're desperate, and therefore how high the price can go.
+Nasim laughed. The laugh came, very slightly, closer to real than before. It was the laugh that comes out when you can see all of it in someone: what they want, why they're in a hurry, and so how far you can push the price.
 
-"Now that sounds like human talk."
-He said.
+"Now that finally sounds like a person talking,"
+he said.
 
-Kael said from beside, very low.
+Kael spoke very low from the side.
 
-"You've been watching nothing but price this whole time."
+"You've been looking at nothing but the price this whole time."
 
-Nasim tilted his head, barely.
+Nasim tilted his head very slightly.
 
-"This is Hazran."
-He answered.
-"What else would you watch."
+"This is Hazran,"
+he answered.
+"What else would I look at?"
 
-That was not wrong — which made it more unpleasant.
+He wasn't wrong, and that made it more unpleasant.
 
-Sion, at the end of that brief sparring, recalled the name Aka again. High chance Aka was rolling the same way here. Not as a name but a price; not as a rumor but a managed asset. The sense that etherite and Aka might sit under the same line was thickening.
+At the end of that short exchange, Sion turned his thoughts back to the name Aka. Aka was very likely being moved around here the same way. As a price, not a name; as something under management, not a rumor. The sense that Etherite and Aka might sit under the same line was getting thicker and thicker.
 
-Luhai was still caught in Kael's grip, but the mouth did not stop.
+Luhai was still held in Kael's grip, but his mouth did not stop.
 
-"You're looking for that name too."
-He said, looking at Sion.
+"You're looking for that name too, aren't you,"
+he said, looking at Sion.
 
-Short silence.
+A short silence.
 
-Seorin's gaze sank, barely perceptibly.
+The look in Seorin's eyes sank, very slightly.
 
-"What name."
-She asked.
+"What name?"
+she asked.
 
-Luhai lifted the corner of his mouth — just barely.
+Luhai lifted the corner of his mouth, just a little.
 
-"I heard everything earlier."
-He said.
+"I heard everything earlier,"
+he said.
 "Aka."
 
-Kael's grip tightened again, just slightly.
+Kael's hand tightened again, just a little.
 
-"Do you know something."
-When Sion asked, Luhai did not answer immediately. This time the calculation was real. How much to say here to be sold less; how much to hide to survive longer. The silence particular to a quick-headed child.
+"Do you know something?"
+When Sion asked, Luhai did not answer right away. This time he really was calculating. How much he had to say here to get sold off less, how much he had to hide to survive longer. It was the silence peculiar to a quick-headed kid.
 
-But Nasim laid words over that silence first.
+But Nasim laid his words over that silence first.
 
-"Don't hold onto that name too long outside."
-He said, smooth.
-"It's a name that costs more than etherite."
+"Don't hang on to a name out here for long,"
+he said, softly.
+"That name sells for more than Etherite."
 
-When those words fell, Luhai's expression changed — very briefly. Irritation, wariness, familiarity mixed. This child already knew that name did not roll around carelessly.
+The moment he said it, Luhai's expression changed, very briefly. Irritation, wariness and familiarity, mixed. It meant that this kid, too, already knew that this name was not something that rolled around freely.
 
-Sion did not miss it.
+Sion didn't miss it.
 
-Knows.
-Not completely — but this child knows something.
+He knows.
+Not all of it, maybe, but this kid knows something.
 
-And right then, from outside the alley — one more layer of silence settled on top.
+And right then, from outside the alley, one more layer of silence settled on top.
 
-This time even Nasim stopped speaking first.
+This time even Nasim stopped talking first.
 
-People stepped back one more; the merchant lowered his head entirely; the larger man's angry face lost its force. The same quietness — but a different grain from before. The quietness of the outer-layer market holding its breath on its own.
+People stepped back one more pace, the merchant bowed his head outright, and the strength drained out of the big man's face, which had been full of anger a moment ago. It was the same quiet, but it had a different grain from before. The quiet of the outer market holding its breath on its own.
 
 Nasim murmured, very low.
 
-"Now the real counting hand comes."
-He said.
+"Now the hand that really counts is coming,"
+he said.
 
-Sion did not ask what that meant.
+Sion didn't ask what he meant.
 
-Who was coming, why everyone reacted this way — his body already knew.
+Who was coming, and why everyone was reacting like that—his body already knew.
 
-From beyond the alley entrance's shadow — one firm arm beneath black cloth showed first.
+He knew it from the way the sound around them was dropping.
 
-## And behind it — eyes that believed in control before people were slowly turning this way, entering.
+It hadn't gone quiet all at once. It dropped one line at a time, starting from deep in the alley. The calling of prices cut off first, then the haggling, and last of all the noise of the onlookers.
+
+The ones selling shut their mouths first, and the ones watching kept talking to the very end. Sion had never seen that order before.
+
+Beyond the shadow at the mouth of the alley, one hard arm under black cloth came into view first.
+
+And behind it, eyes that trusted control before people were slowly coming in this way.
 
 ---
 

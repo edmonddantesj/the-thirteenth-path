@@ -1,114 +1,112 @@
 # Chapitre 47 — Le nom appelé en premier
 
+Quand l'homme debout au milieu de la cour centrale eut ravalé ses derniers mots, l'air alentour retomba encore d'un cran.
 
-Quand l'homme debout au milieu de la cour eut avalé ses derniers mots, l'air alentour s'affaissa un peu plus.
+Sion sentait seulement maintenant que ce lieu n'était pas un simple endroit où l'on rassemblait des gens, mais un espace qui faisait tourner jusqu'au silence lui-même comme une règle. Qui parlait le premier, qui s'échauffait le premier, qui détournait la tête le premier : tout entrait dans le prix. C'est pourquoi même ceux qui, un instant plus tôt, riaient bas et marmonnaient se taisaient, au moment décisif, avec une rapidité étrange.
 
-Sion comprenait enfin que ce lieu n'était pas simplement un endroit où l'on rassemblait des gens, mais un espace où le silence lui-même était régi comme une règle. Qui parlait le premier, qui s'échauffait le premier, qui détournait la tête le premier — tout entrait dans le calcul. C'est pourquoi ceux qui, un instant plus tôt, riaient bas et marmonnaient s'étaient tus avec une rapidité étrangement parfaite au moment décisif.
+Haroun se tenait en bordure de la cour centrale, sans croiser les bras, et Nassim avait reculé d'un pas. Ces deux-là n'étaient pas de ceux qui se placent au centre de la scène. Ils s'étaient déjà déplacés vers l'endroit d'où l'on voyait le plus exactement qui irait jusqu'où, qui s'effondrerait, qui jaillirait contre toute attente.
 
-Haroun se tenait en bordure de la cour, bras décroisés, et Nassim avait reculé d'un pas. Ces deux-là n'étaient pas de ceux qui monteraient sur le devant de la scène. Ils avaient déjà gagné la position d'où l'on voyait le plus précisément qui allait jusqu'au bout, qui s'effondrait, qui surgissait contre toute attente.
+Sion pressa une fois le papier à l'intérieur de sa veste, puis retira la main.
 
-Sion pressa le papier à l'intérieur de sa veste, puis retira sa main.
+**Hazran**
+**Aka**
 
-*Hazran*
-*Aka*
-
-Les deux mots étaient toujours là, et pourtant il avait l'étrange sensation qu'ils s'éloignaient peu à peu. Non pas qu'ils se fussent rapprochés jusqu'à tomber dans sa main — c'était plutôt qu'en pénétrant dans une structure plus vaste, ils étaient devenus, pour l'instant, hors de portée.
+Les deux mots étaient toujours là, et pourtant, étrangement, ils semblaient s'éloigner peu à peu. Non qu'ils se fussent rapprochés au point de lui tomber dans la main : c'était plutôt comme s'ils étaient entrés dans une structure plus vaste, et qu'il ne pouvait pas, pour l'instant, les atteindre.
 
 L'homme au centre reprit la parole.
 
-« La première épreuve est simple. »
-Dit-il.
+« La première est simple. »
+Il poursuivit :
 « On regarde si la main reconnaît le vrai. »
 
-Quelques personnes autour étouffèrent un souffle.
+Autour, quelques personnes ravalèrent leur souffle sans bruit.
 
-Par cette seule réaction, Sion put le deviner. C'était peut-être une règle courante en ces lieux, mais pas une règle facile. Reconnaître le vrai signifiait d'abord éliminer le faux. Et dans ce désert, le faux était presque toujours fabriqué pour ressembler au vrai.
+Même à cette brève réaction, Sion pouvait le dire. C'était peut-être une règle courante dans ce milieu, mais ce n'était pas une règle facile. Reconnaître le vrai, au fond, voulait dire qu'il fallait d'abord écarter le faux. Et dans ce désert, le faux était d'ordinaire fabriqué pour ressembler au vrai.
 
-Trois socles bas recouverts de tissu noir furent posés sur la plaque métallique centrale.
+Sur la plaque de métal centrale, on monta trois socles bas couverts de tissu noir.
 
-Des mains silencieuses avaient bougé sans qu'on sût ni qui ni quand. Sous les tissus, des objets de taille semblable semblaient reposer. Les formes paraissaient identiques, mais le poids différait imperceptiblement.
+Des mains silencieuses s'étaient activées sans qu'on sache qui les avait apportés ni quand. Sous chaque tissu semblait reposer un objet de taille comparable. Les formes paraissaient identiques, mais l'impression de poids différait subtilement.
 
-Sion chercha Aka du regard sans s'en rendre compte.
+Sion chercha Aka des yeux sans s'en rendre compte.
 
-Aka se tenait encore près de l'ombre la plus profonde, à l'intérieur. Nahira lui barrait le passage d'un pas, et pourtant le regard d'Aka atteignait déjà les trois socles au centre. Mais elle ne dit rien. On comprenait une fois de plus pourquoi Zahir ne mettait pas Aka facilement au milieu de la scène. Si cette enfant prononçait un seul mot, la première épreuve risquait de se terminer bien trop aisément.
+Aka se tenait encore près de l'ombre la plus reculée. Nahira la masquait d'un pas en avant, et pourtant le regard d'Aka touchait déjà les trois socles du centre. Mais elle ne dit rien. On voyait une fois de plus pourquoi Zahir ne plaçait pas facilement Aka au milieu de la scène. Que cette enfant dise un seul mot, et la première règle de cette partie risquait de se régler bien trop facilement.
 
-Autrement dit, ce qu'il fallait maintenant, ce n'était pas Aka,
-mais sélectionner une main capable de distinguer le vrai dans une certaine mesure, même sans elle.
+Ce qu'il fallait maintenant, donc, ce n'était pas Aka : c'était trier les mains qui se croyaient capables, même sans Aka, de départager le vrai jusqu'à un certain point.
 
 L'homme au centre parla.
 
-« Sur les trois, un seul est vrai. »
-Dit-il.
-« Un autre est une imitation de l'emplacement du vrai, et le dernier est un déchet sans valeur depuis le départ. »
+« Sur les trois, un est vrai. »
+Il continua :
+« Un autre imite la place qu'occupait le vrai, et le dernier est un déchet qui ne vaut même pas un prix. »
 
-Luhai étouffa un souffle qui ressemblait presque à un juron.
+Luhai ravala tout bas un souffle qui ressemblait à un juron.
 
-Sion comprit aussitôt pourquoi le garçon avait réagi. Ce n'était pas un simple test de coup d'œil. C'était la question qui condensait exactement tout ce dont le cœur de Hazran avait parlé jusqu'à présent. Le vrai, l'imitation, ce qui ne l'avait jamais été. La porte et ce qui se faisait passer pour une porte, et ce qui n'avait tout simplement aucune valeur.
+Sion comprit aussitôt pourquoi le garçon avait réagi. Ce n'était pas un simple test de coup d'œil. C'était, ramené à une seule question, tout ce que le cœur de Hazran leur racontait depuis le début. Le vrai, l'imitation, ce qui ne l'avait jamais été. La porte, et ce qui se faisait passer pour une porte, et puis ce qui n'avait même pas de prix.
 
-Nassim rit très bas.
+Nassim eut un rire très bas.
 
-« Joli début. »
-Murmura-t-il.
+« Ça commence joliment. »
+Il l'avait murmuré.
 
-Seorin, en entendant ces mots, roula les yeux une fois.
+Seorin, en l'entendant, se contenta de lever les yeux au ciel.
 
-« Le joli, c'est ta façon de parler. »
-Dit-elle à voix basse.
+« Le joli, c'est ta manie de parler. »
+Elle l'avait dit à voix basse.
 
-L'homme au centre n'en eut cure.
+L'homme au centre n'y prêta aucune attention.
 
 « Premier nom. »
-Dit-il d'une voix nette.
+Sa voix était nette.
 
-À cet instant, Sion sentit étrangement son souffle devenir plus court.
+À cet instant, étrangement, le souffle de Sion se fit court avant tout le reste.
 
-Parce que le pressentiment que ce serait lui existait depuis un moment déjà.
+Car depuis tout à l'heure, il pressentait que ce pourrait être lui.
 
 « Luhai. »
 
-Luhai avala un juron presque par réflexe.
+Luhai ravala un juron, presque par réflexe.
 
-Un rire bas se répandit alentour et retomba aussitôt. L'appel ne semblait surprendre personne. C'était plutôt si naturel que tous l'avaient attendu. Le gamin qui avait le premier saisi un vrai fragment à l'intérieur, qui touchait aux registres, qui courait après l'odeur du faux et du vrai et provoquait le premier incident. Pour un premier appel, il tombait juste.
+Un rire bas courut alentour puis retomba aussitôt. L'appel ne surprenait visiblement personne. Il était même si naturel qu'on aurait dit que tous l'attendaient. Le gamin qui avait le premier ramassé un vrai fragment à l'intérieur, qui touchait aux registres, qui avait couru après l'odeur du faux et du vrai jusqu'à causer le premier incident. Pour un premier appel, il convenait parfaitement.
 
-Luhai regarda une fois la main de surveillance à côté de lui, puis se retourna vers le centre.
+Luhai jeta un coup d'œil à la main de surveillance à côté de lui, puis regarda de nouveau le centre.
 
 « Et si je refuse ? »
-Demanda-t-il d'un ton brusque.
+Il l'avait demandé d'un ton bourru.
 
-L'homme au centre répondit sans sourire.
+L'homme au centre répondit sans même sourire.
 
-« Alors ta valeur de ce soir s'arrête là. »
+« Alors ton prix de ce soir s'arrête là. »
 
-Luhai claqua la langue.
+Luhai fit claquer sa langue.
 
-« Vraiment pas de chance. »
+« Vraiment la poisse. »
 
-« Et pourtant tu montes quand même. »
-Dit Kael à voix basse.
+« Et tu montes quand même. »
+Kael l'avait dit à voix basse.
 
-Luhai lui jeta un regard agacé. Mais cette fois, au lieu de répliquer, il ne laissa échapper qu'un souffle proche d'un ricanement. Il le savait déjà lui-même. Ici, se retirer n'était pas une fuite — c'était voir sa valeur chuter immédiatement. Du moins pour un gamin comme Luhai.
+Luhai lui lança un regard agacé. Mais cette fois, au lieu de répliquer, il ne lâcha qu'un souffle proche du ricanement. Il le savait déjà. Ici, retirer son pied, ce n'était pas fuir : c'était voir son prix tomber sur-le-champ. Du moins pour un gamin comme Luhai.
 
-Il marcha lentement vers le centre.
+Il s'avança lentement vers le centre.
 
-Sion remarqua que ce pas était moins léger qu'il ne l'aurait cru. La bouche était rapide et la main partait la première, mais une fois vraiment posé sur la ligne, le garçon n'était pas sans peur. Simplement, le calcul tournait plus vite que la peur.
+Sion vit que ce pas était moins léger qu'il ne l'aurait cru. La bouche était rapide et la main partait la première, mais une fois vraiment posé sur la ligne, ce n'était pas un gamin sans peur. Simplement, chez lui, le calcul tournait avant la peur.
 
-L'homme au centre demanda.
+L'homme au centre lui posa une question.
 
-« De quelle main regardes-tu. »
+« Avec quelle main regardes-tu ? »
 
-Luhai répondit avec agacement.
+Luhai répondit, agacé.
 
-« La mienne, de qui d'autre. »
+« Avec la mienne, avec laquelle tu veux ? »
 
-Un rire bas s'éleva de nouveau autour.
+Un rire bas s'éleva de nouveau alentour.
 
 L'homme au centre hocha la tête.
 
-« Bien. Alors choisis. »
+« Bien. Alors prends. »
 
 Les tissus n'avaient pas encore été soulevés.
 
-Luhai se tint devant les trois socles sans bouger pendant un moment. Sion remarqua que les yeux du garçon examinaient non pas les socles eux-mêmes, mais les bords des tissus, les ombres sous les socles, les traces laissées lors de la pose. Ce n'était pas le regard de quelqu'un qui choisit un objet. C'était le regard d'un gamin qui avait longtemps observé qui cachait le vrai et où — à force de voler et de fuir.
+Luhai resta un moment immobile devant les trois socles. Sion remarqua que les yeux du garçon regardaient moins les socles eux-mêmes que les bords des tissus, l'ombre sous les socles, les traces laissées au moment de la pose. Ce n'étaient pas les yeux de quelqu'un qui choisit simplement un objet. C'étaient ceux d'un gamin qui avait volé, fui, et longtemps observé où les gens cachaient le vrai.
 
 Devant le premier socle, la main de Luhai s'arrêta un très bref instant.
 
@@ -116,98 +114,110 @@ Mais il ne prit rien.
 
 Le deuxième.
 
-Cette fois, le bout de ses doigts frôla presque le tissu avant de s'interrompre.
+Cette fois, le bout de ses doigts effleura presque le tissu, puis s'arrêta.
 
-Devant le troisième, Luhai retint son souffle pour la première fois vraiment.
+Devant le troisième, Luhai retint son souffle pour la première fois, vraiment.
 
-Sion trouva cette réaction si infime qu'elle lui mit les nerfs à vif. Luhai n'était pas en train de se convaincre : il lisait comment les trois mentaient chacun différemment.
+La réaction était si infime qu'elle mit Sion encore plus sur les nerfs. Luhai n'avait acquis aucune certitude : il était en train de lire comment les trois mentaient, chacun à sa manière.
 
-Aka restait silencieuse.
+Aka restait sans un mot.
 
-Nahira ne dit rien non plus.
+Nahira ne disait rien non plus.
 
-Haroun ne bougea pas.
+Haroun ne bougeait pas.
 
-Seul Nassim souriait très imperceptiblement.
+Seul Nassim souriait, très légèrement.
 
 Luhai ouvrit enfin la bouche.
 
-« Celui-ci. »
+« Celui-là. »
 
 Il désigna le deuxième socle.
 
-« Pourquoi. »
-Demanda l'homme au centre.
+« Pourquoi ? »
+C'était l'homme au centre qui demandait.
 
 Luhai plissa les yeux.
 
 « Le premier imite le vrai de façon trop voyante. »
-Dit-il.
-« Le troisième, à l'inverse, est caché trop grossièrement. Ici, le vrai ne roule pas comme ça. »
+Il s'expliqua :
+« Le troisième, au contraire, est caché trop à la va-vite. Dans ce milieu, le vrai ne roule pas comme ça. »
 
 L'homme au centre insista.
 
-« Et donc le deuxième ? »
+« Donc, le deuxième ? »
 
-« Le deuxième, »
-dit Luhai très bas,
-« il fait semblant de se cacher, mais au bout du compte il n'a pas réussi à dissimuler entièrement ce qu'il est. »
+« Le deuxième… »
+Luhai baissa encore la voix.
+« … il fait semblant de se cacher, mais il n'a pas réussi à dissimuler jusqu'au bout ce qu'il est. »
 
-Cette phrase résonna étrangement comme si elle parlait de tout Hazran.
+Étrangement, cette phrase sonnait comme si elle parlait de tout Hazran.
 
-La règle que Zahir avait tirée de l'intérieur,
+La règle que Zahir avait sortie de l'intérieur,
 l'imitation de porte qu'Aka avait jugée,
-et l'emplacement coupé qu'eux-mêmes avaient suivi jusqu'ici.
+et jusqu'à la place coupée qu'ils avaient eux-mêmes poursuivie.
 
-Sion laissa échapper un souffle léger sans s'en rendre compte.
+Sans s'en rendre compte, Sion reprit un souffle court et mesuré.
 
 L'homme au centre souleva lentement le tissu du deuxième socle.
 
-Dessous reposait un fragment métallique irrégulier. À première vue, on eût dit une vieille pièce détachée ; d'un œil plus attentif, un ancien élément de jonction.
+Dessous reposait un fragment de métal irrégulier. Un objet qui, au premier regard, pouvait passer pour une vieille pièce détachée et, à y regarder avec un peu plus d'égards, pour un ancien élément de jonction.
 
-L'air alentour frémit très imperceptiblement.
+L'air alentour frémit, très imperceptiblement.
 
-Par cette seule réaction, Sion sentit que ce n'était pas un échec total. Au moins, Luhai n'avait pas choisi le déchet pur et simple.
+À cette seule réaction, Sion sentit que ce n'était pas un échec complet. Au moins, le garçon n'avait pas choisi le pur déchet.
 
-Mais savoir si c'était le vrai ou l'imitation, il ne pouvait pas encore le dire.
+Mais était-ce le vrai ou l'imitation ? Il ne le savait pas encore.
 
-L'homme au centre souleva le fragment une fois pour le montrer à tous.
+L'homme au centre souleva le fragment et le montra à tous.
 
-Puis il dit très bas.
+Puis il dit, très bas :
 
-« Tu as à moitié raison. »
+« À moitié juste. »
 
-Le visage de Luhai se figea.
+Le visage de Luhai se durcit.
 
-Dans l'air autour se mêlèrent en même temps rire, déception et curiosité.
+Dans l'air alentour se mêlèrent d'un coup le rire, la déception et la curiosité.
 
 L'homme au centre reposa le fragment.
 
 « C'est une imitation. »
-Dit-il.
-« Mais elle a de la valeur. Parce qu'elle a longtemps tenu l'emplacement du vrai. »
+Il précisa :
+« Mais elle a un prix. Parce qu'elle a longtemps tenu la place où se trouvait le vrai. »
 
-Sion sentit ces mots couler, frais, le long de son dos.
+Sion sentit ces mots couler, froids, au creux de son dos.
 
-Une imitation,
-mais qui avait de la valeur.
+Puis il regarda du côté d'Aka.
 
-Cela rejoignait exactement ce qu'Aka disait depuis le début. Toute imitation n'est pas dénuée de sens. Certaines ont si longtemps occupé l'emplacement du vrai qu'elles en sont, au contraire, plus dangereuses.
+Aka se taisait toujours, mais ce n'était plus comme tout à l'heure.
 
-Luhai se mordit les lèvres.
+Elle ne regardait pas les socles. Elle regardait Luhai.
 
-Il avait le visage de quelqu'un que l'absence d'échec total irritait davantage encore.
+Sion ne savait pas ce que voulait dire ce regard. Il savait seulement que, dans cette partie, l'enfant venait pour la première fois de tourner les yeux vers une personne.
 
-L'homme au centre dit pour finir.
+Nahira s'en aperçut et se rapprocha encore d'un demi-pas.
 
-« Bien. La prochaine sera plus difficile. »
+Aka ne bougea pas. Elle continua de regarder jusqu'à ce que Luhai redescende.
 
-À cet instant, Sion sut que le premier appel ne s'arrêterait pas à Luhai.
+Une imitation, mais qui a un prix.
 
-C'était plutôt maintenant que tout commençait.
+Cela rejoignait exactement ce qu'Aka disait depuis le début. Une imitation n'est pas forcément dénuée de sens. Certaines ont si longtemps tenu la place du vrai qu'elles en deviennent, au contraire, plus dangereuses.
 
-Et le prochain nom
-avait de grandes chances d'être appelé du côté de ceux dont la valeur était plus élevée encore.
+Luhai se mordilla la lèvre.
+
+Il avait la tête de quelqu'un qu'un échec incomplet enrageait davantage qu'un échec total.
+
+L'homme au centre parla une dernière fois.
+
+« Bien. La suivante sera plus difficile. »
+
+Du côté des gradins, les cris de prix remontèrent. Plus forts que tout à l'heure.
+
+Luhai ne leva pas les yeux vers ce bruit. Il s'essuya plutôt la paume deux fois sur son pantalon. C'était la main qui avait tenu le socle tout à l'heure.
+
+« Qu'est-ce qui va sortir, la prochaine fois ? »
+
+Sion n'avait rien à répondre. Et Luhai ne semblait pas poser la question pour attendre une réponse.
 
 ---
 

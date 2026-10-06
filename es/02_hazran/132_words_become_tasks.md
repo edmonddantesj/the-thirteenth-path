@@ -115,7 +115,7 @@ También lo que se ha tenido cerrado mucho tiempo.
 
 Una máquina vieja por fin le preguntó a Aka en voz baja.
 
-—¿También ahora ves algo?
+—¿Lo sigue viendo ahora?
 
 Aka señaló un punto de la pared.
 
@@ -162,7 +162,7 @@ Sion no respondió enseguida.
 
 La máquina vieja siguió:
 
-—Estás más cerca de los que leen cuándo una persona aguanta,
+—Está más cerca de los que leen cuándo una persona aguanta,
 cuándo se derrumba,
 cuándo se mueve a la fuerza.
 
@@ -181,7 +181,7 @@ Sobre él se superponían un esquema dibujado a grandes rasgos,
 la posición de la gente recién llegada
 y las marcas de las zonas de riesgo.
 
-—Desde esta noche —dijo ella—. Míralo tú una vez.
+—Desde esta noche —dijo ella—, míralo tú una vez.
 —Quién está ahora a punto de derrumbarse.
 
 Un silencio breve.

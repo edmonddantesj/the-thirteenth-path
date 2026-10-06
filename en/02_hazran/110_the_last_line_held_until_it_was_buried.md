@@ -1,231 +1,300 @@
 # Episode 110. The Last Line Held Until It Was Buried
 
-After Zahir turned away,
-Hazran was no longer a city that holds.
+Once the four had taken their places, a shape appeared.
 
-It was now a city that closes.
+Kael saw it from just inside the entrance and spoke low.
 
-Sion stood just inside the hull entrance
-and watched clearly as that final procedure began.
+"Now the whole shape's showing."
 
-Nasim lowered his voice now.
-Almost everything to fold had been folded.
-What remained was holding the last line without letting it shake.
+Sion knew why that sounded cold. It meant there was nowhere left to fold, so anyone could see where the last of it was.
 
-So his commands grew even shorter.
+Sion looked at the shape.
 
-"Stay close."
-"Don't spread."
-"Now."
+Four of them were standing, but the four did not make a square. Zahir at the front center, Nasim three steps to the left, Nahira two steps to the right, Harun five steps back. The spacing was strange.
 
-Hazran no longer had a wide map left.
-Sections to organize, corridors to abandon—nearly all finished.
-What remained was the narrow path leading to the hull,
-and the people closing it at its end.
+Sion didn't know why the spacing was like that.
 
-Kael watched only the last line from inside the entrance.
+Ater knew.
 
-"The shape is fully visible now."
-He said, low.
+"That is not a formation for blocking."
 
-That sounded colder.
-Because it meant there was nothing left to fold—
-everyone could see where the end was.
+"Then what is it?"
 
-Watching it, Sion felt
-the guilt that had pressed him through every moment
-shifting into a different form.
+Ater didn't answer for a moment. He read the angles.
 
-This was no longer abstract debt.
-Now, who stays where to the very end,
-who closes this city in what shape—
-it was being decided before his eyes.
+"It is a formation for opening."
 
-Nahira had fully turned from the spot where she'd sent Aka off.
+"Opening?"
 
-She no longer looked like someone sending.
-She looked like someone taking charge of the innermost final perimeter.
-The change was so clear
-that Sion swallowed a short breath.
+"They have made the way in into a single path. With the four standing like that, those things will gather in the center to strike all four."
 
-Even the one who sends returns to the closing side.
-Hazran was truly trying to end that way.
+Sion looked at the center of where the four stood.
 
-Sern and Ater, still holding the last of the outside,
-were pulling back gradually.
+Earlier he had seen Nahira set something low on the inside. He didn't know what it was.
 
-This wasn't retreat.
-It was convergence toward the predetermined final line.
-They looked like people who now fully understood:
-if they survive and board,
-it would be because someone from Hazran closed their own position in their place.
+"What's in the center?"
 
-Harun leaned near the rear defensive line,
-still looking toward the corridor above his broken breathing.
-He was no longer a body that could block from the front.
-But he wasn't a finished person either.
-Just by being in that spot,
-he was giving the sensation that the last line was still alive.
+Ater didn't answer right away.
 
-Jiwoo was nearly grinding her teeth, holding the hull's condition from inside the entrance.
+Sern answered instead.
 
-"More braces."
-"Clear the entrance side."
-"If it shakes now, it's over."
+"It is holding up what is above."
 
-Those words also meant
-that if the people outside held this line just a few more times,
-they could leave.
+Sion looked up.
 
-Which made it crueler.
+Above the collapsed wall there was something that had not collapsed yet. Metal plates half blown apart from use as barricades, cut-away pieces of hull, the wreckage of gun emplacements. The things Hazran had made by cutting itself apart were piled up there.
 
-Outside, those people were being closed in.
-Inside, because of that closing, departure was becoming ready.
+What had held all of it up until now were three things underneath.
 
-Luhai stood inside the entrance,
-watching only the outside.
+"And if those are taken out?"
 
-"There's still the smell of people out there."
-He said, very low.
+"It comes down."
 
-At that single line,
-Sion felt again, hard, that Hazran wasn't just a battlefield—
-it was land where someone's life had remained.
+Sion's breath stopped.
 
-What was closing now wasn't just corridors.
-Alleys.
-Homes.
-The smell of coming back.
+"Then those four too…"
 
-And the people closing it
-were folding their own land with their own hands, to the very end.
+"Yes."
 
-Zahir raised his hand one last time.
+Ater said no more than that.
 
-Nasim pulled the barriers.
-Nahira held the inner perimeter.
-Sern and Ater matched the remaining line.
-Harun watched it all from above his ruined breath.
+Sion looked at the formation again.
 
-That moment,
-the shape of Hazran's last line was fully revealed.
+Now he knew why the spacing was like that. The four were standing there to draw those things into the center, and once they gathered in the center, what was above would come down. When it came down, everything in the center would be covered.
 
-Very thin.
-Very short.
-And therefore more irreversible.
+The four were in the center too.
 
-Sion knew instinctively.
-When that line breaks,
-what comes next is truly the end.
+"Why are they doing it like that?"
+Sion asked.
 
-And right then,
-the android legion began pushing in again.
+"Because there is no other way."
 
-Different from before.
+"No, that's not what I mean."
 
-Before, there had been room to cut,
-twist,
-push back, and hold.
-But what crashed in now
-was a movement that coldly and precisely sought to bury the entire last line—
-as if confirming a place already finished.
+Sion couldn't go on, because he didn't know what he wanted to ask.
 
-Sion felt his breath stop.
+It wasn't why they had to do it like that. It was why those people had decided it as if it were nothing.
 
-It was less a charge
-and closer to the scene of sanctioned violence covering a shape all at once.
+"The people here built their barricades by moving what had collapsed,"
+Ater said.
+"The last one is made of that as well."
 
-Over the people,
-over the barriers,
-over the closing line,
-the androids overlapped in with a precision that was horrifying.
+Sion had no answer to that.
 
-Nasim's voice burst one final time.
+Those things came.
 
-"Hold!"
+It wasn't a charge. They came cold and precise, as if checking a place that was already finished.
 
-Sern held.
-Ater twisted an angle.
-Nahira didn't release the inner perimeter.
-Zahir raised the last line in the center of it all.
+The front rank didn't drift even half a span. Because there was no dust.
 
-Harun tried to force his broken body up.
+Sion knew now how that precision had come about. It was because the half span Hazran had won by cutting up its heart was gone.
 
-But over all those movements,
-the android legion covered them without pause.
+They came toward Zahir. They came toward Nasim too. Toward Nahira, and toward Harun.
 
-Without even the gap to show any one death clearly,
-they buried the entire last line as if swallowing it cold.
+To strike all four, they had to pass through the center.
 
-Sion couldn't turn his eyes away from that scene.
+They gathered in the center.
 
-He must not turn away—
-because Aka had already said so.
-Watch to the end.
+But the way they gathered was different from what he had seen before.
 
-He watched.
+The front rank stopped, and the next rank climbed up on top of it. Then more climbed up on top of those. Over people, over wreckage, over the whole of the remaining line, they came in layer upon layer.
 
-Hazran's last line,
-holding to the very end,
-being buried beneath the legion in a way that was terrible.
+They weren't trampling over it. They were covering it.
 
-Seorin couldn't speak.
-Luhai couldn't breathe properly.
-Jiwoo gripped the entrance railing as if she'd break her own hand.
-Kael bit his lip.
-Aka watched the scene to the end, her face pale.
+Sion knew it wasn't a charge. It was a movement come to confirm a place already finished. Each one was precise, all of them moved at the same speed, and none of them hurried.
 
-And in that moment,
-Sion felt something inside his chest change shape completely.
+The four began to disappear beneath it.
 
-Surviving out of here
-is not running.
-It is carrying that scene on our backs.
+He tried to see who went first, but he couldn't. What came in layer upon layer left no faces.
 
-We are not simply leaving those people behind.
-Having seen that terrible shape,
-we are inheriting the responsibility to never let land be buried this way again.
+Only then did Sion understand exactly why this enemy was so frightening.
 
-Sion said, very low,
-nearly grinding his teeth.
+Here no one died separately. Nothing remained of who had ended how. It was because they didn't kill. They covered.
 
-"We protect it. No matter what."
+Sern said something low. Sion didn't catch it.
 
-So low he couldn't tell if it was aimed at someone
-or at himself.
+"What?"
 
-Seorin, beside him, said it almost like a breath.
+"In the Empire, that is called approval."
 
-"We come back."
+"Approval?"
 
-Short words.
-But inside them—
-vengeance,
-debt,
-and land that must be reclaimed, all together.
+"It is a word made to say that no one did it."
 
-Luhai, unable to tear his eyes from the outside to the end,
-said, very small.
+Ater did not take that up. Not taking it up was his answer.
 
-"That out there isn't over yet."
+Sion couldn't look away.
 
-Those words were closer to a prayer.
-But Sion knew.
+Because Aka had already said not to.
 
-From now on, they would carry those words
-to the very end.
+Nasim's voice sounded one last time.
 
-To protect those who remain.
-To return to this land.
-And to never leave Hazran buried beneath that cold, orderly violence.
+"Stay close!"
 
-The air inside the hull was heavy enough to suffocate.
+The four didn't fall back. If they fell back, those things wouldn't gather.
 
-But inside that weight,
-what was beginning was not flight—it was inheritance.
+And Zahir raised his hand.
 
-And Hazran's last line
-truly held until it was buried.
+He made no sound. He had never once raised his voice. He was a man whose placement was his word.
+
+The hand came down.
+
+What was above came down.
+
+What Sion saw didn't come in order. It came all at once.
+
+What had been barricade, what had been hull plating, what had been gun emplacement, everything Hazran had made by cutting up its own heart came down in a single moment.
+
+It wasn't dust. It was solid mass.
+
+What had been covering was covered over.
+
+The black things were covered, and the four were covered with them.
+
+He couldn't see who went first. He couldn't see where anyone had been either. It was covered twice, in a way that left nothing for anyone to see.
+
+Once by that side, and once by this side.
+
+Sion couldn't tell the two apart. From above, they weren't made to be told apart.
+
+Sion watched it to the end.
+
+It took a long time for the sound to stop. Even after the big pieces had stopped, small ones kept sliding down, and only when all of that stopped did it go quiet.
+
+Once it was quiet, what remained was a single heap.
+
+The iron dust on the ground settled thinly over it. What had been settling all day long settled there one last time.
+
+Once it had settled, you couldn't tell what had just happened. It looked like one more place that had collapsed. This city had had plenty of those for a while now.
+
+It was a heap that looked exactly like the one Harun had been pinned under earlier.
+
+That was the hardest thing for Sion to bear.
+
+Someone might knock from under there. Once for every count of ten. But this time no one would go to dig. There was no one left here to go and dig.
+
+Sion went over to Aka.
+
+"Aka."
+
+"Yeah."
+
+"Can you hear it?"
+
+Aka pressed her hand to the wall.
+
+A long while passed.
+
+"No."
+
+"You can't?"
+
+"Not from here."
+
+Sion let out a single breath at that.
+
+Not hearing it from here didn't mean there was no sound down there. It meant the ship was off the ground, the walls were two layers thick, and the floor didn't touch.
+
+So from now on there was no way to know.
+
+"I'll keep my hand on it,"
+Aka said.
+
+"You said you can't hear."
+
+"Still."
+
+Inside the hull, no one spoke.
+
+Seorin didn't turn her face away. Luhai couldn't breathe properly. Han Jiwoo gripped the entrance rail as if she would snap it. Kael bit his lip.
+
+Aka watched to the end with a pale face.
+
+Sion looked once at her profile.
+
+Earlier Aka had said she felt sorry for those things. Now, down there, those things and people lay together. But Aka's face showed no mark where the two had been split apart.
+
+Sion wanted to ask what that meant, but he didn't.
+
+She would only say she didn't know. She had last time.
+
+Sion looked at his hands.
+
+They were shaking. They had been shaking for a while, and they still were.
+
+He knew that if he counted, they would stop.
+
+He didn't count.
+
+"Keep it, no matter what."
+
+Sion said it very low.
+
+He couldn't have said whether it was meant for someone else or for himself.
+
+Beside him, Seorin spoke, almost in a breath.
+
+"We'll come back."
+
+They were short words.
+
+Inside them were both what had to be repaid and the ground that had to be taken back.
+
+Luhai never managed to take his eyes off the outside, and he spoke very softly.
+
+"It's not over down there yet."
+
+It was closer to a prayer.
+
+But Sion knew. From now on, they would carry those words all the way.
+
+Ater spoke very low.
+
+"We will find it."
+
+"Find what?"
+
+"The place that made those."
+
+Sion turned his head at that answer. Ater was still looking outside.
+
+Earlier, when Zahir told them to find the planet of the machines, this man had said nothing. This was his first answer.
+
+The one who should have heard it was already gone.
+
+Han Jiwoo's hand came away from the coupling.
+
+"The left side didn't change its sound."
+
+"Then…"
+
+"We go over."
+
+The ship rose.
+
+This time it wasn't two hand-spans. It cleared the shadow of the collapsed wall, and the nose turned up toward the heat layer.
+
+As they rose, Hazran grew smaller below.
+
+Sion watched to the last.
+
+In the middle of the collapsed city there was a single heap. From above, he could see exactly how small it was.
+
+Beside it stood a board.
+
+There was no way the marks could be seen from here, but Sion knew where it was. It was the board with ten and five and eight and four scored side by side.
+
+Numbers no one would ever look at.
+
+Sion memorized the numbers.
+
+Ten, five, eight, four.
+
+One person on the ship knew what those numbers had counted, and outside there was no longer anyone at all.
+
+And then the ship entered the heat layer.
+
+The outside could no longer be seen.
 
 ---
 

@@ -1,260 +1,289 @@
 # Capítulo 116 — Lo que la nave reveló solo después de desaparecer
 
-Que habían desaparecido,
-los primeros en notarlo no fueron los de afuera, sino los de adentro.
+Que habían desaparecido lo supo antes el interior que el exterior.
 
-Más exactamente,
-la quietud que quedó después de que terminó el movimiento era distinta.
+El casco estaba demasiado callado.
 
-No era la vibración residual que queda cuando la nave se sacude.
-Tampoco el crujido que deja un casco unido a la fuerza tras forzarse para aguantar.
+Esta nave nunca había estado en silencio. El motor siempre estaba forzándose en alguna parte, lo que se había pegado dejaba notar que estaba pegado, y lo que se había sobrepuesto crujía tanto como se lo había sobrepuesto. Sion se había acostumbrado tanto a ese ruido que se dio cuenta de que faltaba precisamente por el sonido.
 
-Era más bien lo contrario.
+Han Jiwoo no conseguía apartar la mano del panel.
 
-Demasiado silencio.
+—¿Qué pasa?
 
-Han Jiwoo no pudo despegar un buen rato la mano que sujetaba el panel.
+—Algo me pasó por debajo de la mano.
 
-Porque la reacción que acababa de pasar bajo su mano
-no se parecía a ninguna respuesta del timón que ella conociera.
+—¿Antes?
 
-El barco no había sido empujado hacia afuera.
-En algún punto se había fijado primero una línea de referencia invisible,
-y después el casco entero la había seguido. Algo así.
+—Sí.
 
-Ella retiró la mano muy despacio,
-y murmuró bajo.
+Apartó la mano y la volvió a apoyar. Esta vez no lo hizo tres veces como antes. La apoyó una vez y la retiró enseguida.
 
-—Esto… no es que se haya movido.
+—Si fuera una respuesta del timón, lo sabría.
+Lo dijo Han Jiwoo.
+—Esto no fue una respuesta.
 
-Kael preguntó enseguida.
+La pregunta vino de Kael.
 
 —¿Entonces qué fue?
 
 Han Jiwoo no pudo responder.
 
-En la lengua que ella conocía
-no podía trasladar con exactitud lo que acababa de ocurrir.
+Sion sabía qué era ese silencio. Era lo que Han Jiwoo había dicho ayer, que volvía tal cual. Si no tiene nombre, no se le puede pasar al siguiente. Ahora Han Jiwoo no conseguía pasar lo que acababa de vivir ni siquiera con sus propias manos.
 
-Sion, con la mano apoyada en la baranda, llevaba un rato recobrando el aliento.
+Sion, con la mano en la baranda, recobraba el aliento.
 
-La sensación de dirección que hasta hacía poco apenas se percibía
-ahora no había desaparecido,
-sino que se sentía extendida largamente en una veta del todo distinta.
+Hasta hacía un momento, aquel punto daba la sensación de estar buscando. Si acercabas la mano, había algo ahí, y no se sabía hacia dónde iba.
 
-Más que captada,
-era la sensación de que, por haberse enlazado ya una vez,
-no se dispersaba en vano como antes.
+Ahora era distinto.
 
-Aun sabiendo que sus palabras sonarían extrañas,
-al final abrió la boca.
+—Es como si hubiera llegado a tocar algo y hubiera vuelto.
+Lo dijo Sion.
 
-—Hasta hace un momento era sensación de buscar —dijo bajo—. Ahora… es como si hubiéramos llegado a tocar algo y vuelto.
+Seorin miró a Sion enseguida.
 
-Seorin lo miró enseguida.
+En otro momento habría dejado pasar algo así. Esta vez no lo dejó pasar.
 
-En otro momento quizá habría dejado pasar esas palabras.
-Pero solo ahora
-nadie podía tomarse a la ligera el sentir de otro.
+—¿Dónde?
 
-Seorin retiró despacio la mano de la baranda y dijo.
+—No lo sé.
 
 —¿Entonces dónde estamos ahora?
 
-Esa pregunta fue corta,
-y por eso pesó más.
+Nadie pudo responder.
 
-Todavía nadie podía responder.
+Sern estaba releyendo la pantalla. Cuanto más leía, más se le endurecía la cara.
 
-Sern ya estaba releyendo el arreglo de rastreo y las cifras de vigilancia alrededor.
-Pero, a medida que avanzaba, su rostro se endurecía más.
-
-—No se detecta —dijo bajo.
-
-Han Jiwoo se volvió.
+—No se detecta.
 
 —¿Qué cosa?
+Lo preguntó Han Jiwoo.
 
-Sern respondió sin apartar los ojos de la pantalla.
+—La interferencia periférica que se leía hasta hace un momento.
+Lo dijo Sern.
+—Si hubiera habido una mirada siguiéndonos, a estas alturas tendría que haber quedado algún rastro, al menos una vez.
 
-—La interferencia periférica que se leía hasta hace nada —dijo—. Si hubiera habido una mirada siguiéndonos, del Imperio o de la Alianza, a estas alturas ya debería quedar algún rastro.
+Un silencio breve.
 
-Un silencio corto.
-
-—Pero no hay.
+—Pero no lo hay.
 
 Luhai se tragó una maldición.
 
-Era de esa clase de cosas que no se podía juzgar de inmediato
-si era buena noticia o una peor.
-
-Ater preguntó, ya con los brazos sin cruzar.
+Era de esas cosas en las que no se podía decidir enseguida si eran buena o mala noticia.
 
 —¿Los despistamos?
-
-Sern volvió a mirar las cifras un instante y dijo.
+Lo preguntó Ater.
 
 —No.
+Lo dijo Sern.
 —Si los hubiéramos despistado, quedaría rastro.
 
-Esa frase resultaba, extrañamente, más ominosa.
+Eso era todavía más ominoso.
 
-Si los hubieran despistado, se podría entender.
-Si los hubieran engañado, también tendría sentido.
-Pero que no se explique
-se acercaba a decir que esta nave acababa de moverse fuera de la categoría conocida de persecución y evasión.
+Si los hubieran despistado, se entendería. Si los hubieran engañado, también tendría sentido. Que no tuviera explicación quería decir que esta nave se había movido fuera de la persecución y la evasión.
 
-Aka seguía sin decir nada.
+Sion miró aquel punto.
 
-Llevaba largo rato mirando el punto condensado dentro del panel.
-Pero, extrañamente,
-ese punto se había puesto más silencioso que hacía un momento.
+Estaba más callado que hacía un rato. No parecía haber desaparecido, sino haberse hundido una vez, tras terminar lo que tenía que hacer.
 
-No como si hubiera desaparecido,
-sino como si, tras terminar su papel, se hubiera hundido una vez.
+Aka estaba de pie delante de ese punto.
 
-Aka dijo muy bajo.
+Exactamente donde había estado cuando la nave se inclinó y ella fue la única que no se inclinó.
 
-—Lo sujetó.
+Aka abrió la boca. Apenas le salía la voz.
 
-Sion la miró.
+—Lo agarró.
 
-Aka siguió hablando sin girar la mirada.
+Sion miró a Aka.
 
-—No es que nosotros agarráramos el camino —dijo, y tras un breve silencio añadió—. El barco lo agarró primero.
+Aka siguió hablando sin apartar la mirada.
 
-Ante esas palabras,
-una sensación fría bajó despacio por la espalda de Han Jiwoo.
+—No fuimos nosotros los que agarramos el camino.
+
+Tras una breve pausa, ella volvió a hablar.
+
+—El barco lo agarró primero.
+
+Algo frío le bajó despacio por la espalda a Han Jiwoo.
 
 El barco lo agarró primero.
 
-Eran palabras que daban vuelta todo el modo en que habían tratado a esta nave hasta entonces.
+Esas palabras daban la vuelta a toda la manera en que habían tratado esta nave hasta entonces.
 
-Hasta ahora siempre había sido al revés.
-Las personas aguantaban,
-las personas remendaban,
-las personas la mantenían viva a la fuerza y la habían arrastrado hasta aquí. Eso creían.
+Hasta ahora había sido al revés. Creían que eran las personas las que aguantaban, las que remendaban, las que la mantenían viva a la fuerza y la habían arrastrado hasta aquí. Los callos que le quedaban en las manos a Han Jiwoo eran todos el precio de esa creencia.
 
-Pero lo de hacía un momento
-parecía como si, en algún lugar dentro de este casco viejo,
-una capa que lee el camino antes que las personas hubiera despertado un instante.
+Pero lo de hacía un momento se parecía más a esto: en algún lugar dentro de este casco, algo que leía el camino antes que las personas había despertado un instante.
 
-Seorin preguntó en voz baja.
+Seorin hizo una pregunta en voz baja.
 
 —¿Entonces qué era este barco?
 
-Tampoco esta vez nadie respondió con facilidad.
+Tampoco esta vez nadie supo responder con facilidad.
 
-Luhai bajó la mirada una vez,
-y dijo muy bajo.
+Luhai miró una vez al suelo y habló muy bajo.
 
-—No era la nave remendada de Hazran.
+—Pues no era una nave remendada de Hazran.
 
-Esa frase no sonó como una broma.
-Más bien se acercaba a la oración mínima que todos los que estaban allí
-apenas podían acordar, sin atreverse a darle un nombre mayor.
+No sonó a broma.
 
-Revestimiento exterior sin gracia.
-Marcas de unión.
-Armazón roto.
+Era la frase mínima en la que los que estaban allí podían ponerse de acuerdo, a duras penas, porque no eran capaces de darle un nombre más grande.
 
-Nada de eso era mentira.
-Pero tampoco era todo.
+Al oírlo, Sion miró hacia el suelo.
 
-Debajo
-se escondía un orden más antiguo que aún nadie conocía.
-Y solo ahora,
-ese orden había revelado por primera vez un movimiento a su manera.
+Había ocho personas de Hazran pegadas a la pared. Se habían inclinado con la nave, y después del silencio no habían dicho nada.
+
+Una de ellas se levantó despacio y caminó hasta el suelo vacío frente a aquel panel.
+
+Ahí se detuvo. No avanzó más.
+
+Y luego inclinó la cabeza una vez.
+
+Sion vio ese gesto.
+
+Era un saludo. A quién iba dirigido, ni Sion lo sabía. Si a la nave, a lo que quedaba dentro de ella o a Hazran.
+
+Esa persona volvió enseguida y se sentó en su sitio. Nadie le preguntó qué había sido aquello.
+
+Sion volvió a aguantarse las ganas de preguntar.
+
+Esta gente sabía de esta nave más que ellos. Pero ahora no tenían intención de sacarlo, y no era momento de insistirles para que lo hicieran.
+
+Sion fue hacia Aka.
+
+—Ayer dijiste que, si le ponías nombre, con eso se acababa.
+
+Aka no apartó los ojos de aquel punto.
+
+—¿No acabas de ponérselo?
+
+Aka negó con la cabeza.
+
+—Eso no es un nombre.
+
+—¿Entonces qué es?
+
+—Es lo que hizo.
+
+Sion no entendió la diferencia enseguida. Al poco, la entendió.
+
+Aka no había dicho qué era aquello. Solo había dicho lo que había hecho. El nombre se le pone a una cosa, y lo que acababa de decir era lo que la cosa había hecho.
+
+O sea, eran palabras que todavía no cerraban nada.
+
+Solo entonces se dio cuenta Sion de que era la misma manera en que Han Jiwoo, ayer, había dejado tal cual la línea vacía de su lista. Dejarlo en blanco, anotar que todavía no, decir solo lo que hizo. Las tres eran maneras de no darlo por terminado.
+
+Un revestimiento exterior sin gracia, marcas de remiendos, un armazón roto.
+
+Nada de eso era mentira. Pero tampoco era todo.
+
+Debajo había un orden más antiguo que todavía nadie conocía, y hacía un momento se había movido por primera vez a su manera.
 
 ---
 
-En la nave de rastreo del Imperio se repetían un rato las mismas frases.
+En la nave de rastreo del Imperio, durante un rato, solo se cruzaron las mismas frases.
 
 —Reconfirmen la última trayectoria.
+
 —Nada.
+
 —Señal residual.
+
 —Nada.
 
-El comandante estuvo largo rato sin hablar.
+El comandante estuvo largo rato sin decir nada.
 
-El último rastro en la pantalla
-estaba cortado, sin la continuación que debería tener.
+El último rastro en la pantalla estaba cortado, sin continuación.
 
-Para verlo como un salto, no había precursor.
-Para verlo como un encubrimiento, no había el ruido que debería quedar.
-Para verlo como una pérdida, el modo en que se cortaba era demasiado limpio.
+Para ser un salto, no había habido indicios previos;
+para ser un encubrimiento, faltaba el ruido que tendría que quedar;
+para ser una pérdida, la manera de cortarse era demasiado limpia.
 
 Él habló muy despacio.
 
-—¿Quién clasificó ese casco como la nave remendada de Hazran?
+—¿Quién clasificó ese casco como una nave remendada de Hazran?
 
-Nadie abrió la boca de inmediato.
+Nadie se atrevió a abrir la boca enseguida.
 
-De entrada, así se veía.
-Era pobre,
-no tenía registro,
-parecía una nave de evacuación armada a toda prisa.
+Así se veía desde el principio. Era mísero, no tenía registro y parecía una nave de evacuación improvisada.
 
-Por eso le pusieron rastreo,
-pero valoraron bajo el juicio.
+Por eso le habían puesto rastreo, pero la evaluación la habían dejado baja.
 
-Ese precio estaba ahora delante de ellos.
+Ese precio lo tenían ahora delante de los ojos.
 
-El comandante dijo bajo.
+—Cambien la evaluación.
+Lo dijo el comandante.
+—Desde ahora, eso es un casco no identificado.
 
-—Cambien la valoración.
-—Desde ahora eso es un casco no identificado.
+El oficial de registro corrigió la entrada.
+
+Era el mismo registro en el que, días atrás, esa misma mano había escrito «desconocido» en lugar del número de personas. Esta vez la misma palabra entró también del lado de la nave.
+
+A la misma hora, del lado de la red de vigilancia de la Alianza, la cosa era parecida.
+
+Kanus Han escuchó el informe hasta el final y aun así tardó un rato en cerrar los papeles.
+
+—No es que no pudiéramos seguirlo.
+Lo dijo ella en voz baja.
+—Sería más exacto decir que, desde el principio, no sabíamos qué estábamos mirando.
+
+La sala de reuniones se quedó en silencio.
+
+—Habrá parecido una nave sin importancia.
+Kanus siguió hablando.
+—Y por eso todos se habrán quedado tranquilos.
+
+Tamborileó en la mesa con la punta de los dedos, muy levemente.
+
+—Pero en el instante en que tomó una dirección, salió primero de nuestro campo de visión.
+
+No era un informe de error. Se parecía más a un aviso de evaluación corregida.
+
+—De ahora en adelante, no clasifiquen por la forma que se ve.
+
+Después, Kanus volvió a tomar la hoja que días atrás había apartado a un lado.
+
+Era la hoja con los muertos y los desaparecidos. La misma a la que había llamado números terminados.
+
+Esta vez no la dejó a un lado: la leyó hasta el final.
 
 ---
 
-Del lado de la red de vigilancia de la Alianza el ambiente era parecido.
+Los que estaban dentro de la nave no sabían que acababan de sacudir a la vez la evaluación del Imperio y la de la Alianza.
 
-Kanus Han escuchó el informe hasta el final y, aun así, no cerró el expediente en un rato.
+Pero sí sabían una cosa.
 
-—No es que no pudiéramos seguirlo —dijo bajo—. Más bien, lo correcto es que no sabíamos qué estábamos mirando desde el inicio.
+Esta nave ya no parecía solo una nave de evacuación remendada a duras penas en Hazran.
 
-La sala de reunión se quedó en silencio.
+Sion sacó la uña y la volvió a guardar.
 
-Kanus siguió hablando sin siquiera mover la mirada hacia la ventana.
+Iba a trazar otra raya, pero lo dejó. Lo que acababa de pasar no era algo que pudiera medirse, y si la trazaba a la fuerza, le parecía que hasta el sentido de las dos rayas anteriores se volvería borroso.
 
-—Habrá parecido un barco sin importancia.
-—Y por eso todos se confiaron.
+En cambio, tocó una vez con la punta de los dedos las dos rayas ya trazadas.
 
-Golpeó la mesa con la punta de los dedos, de forma muy leve.
+Medio palmo.
 
-—Pero en el instante en que tomó dirección,
-salió de nuestra vista primero.
+Eso era todo lo que tenía ahora esta nave.
 
-Eso no era un informe de error.
-Se acercaba a un aviso de juicio revisado.
+El planeta de las máquinas seguía lejos. Que todo era incierto también seguía igual.
 
-—De ahora en adelante —dijo Kanus—. No clasifiquen por la forma que se ve.
+Pero dentro de esa incertidumbre había aparecido una cosa.
 
----
-
-Las personas dentro de la nave
-aún no sabían que acababan de sacudir a la vez el juicio del Imperio y el de la Alianza.
-
-Pero al menos sabían una cosa.
-
-Este barco ya
-no se veía solo como una nave de evacuación apenas unida para sobrevivir en Hazran.
+Esta nave podía reaccionar primero.
 
 Sion cerró los ojos y los volvió a abrir.
 
-La sensación de dirección no había desaparecido del todo.
-Más bien quedaba lejos, muy delgada,
-como una veta que podrían volver a agarrar la próxima vez.
+La dirección no había desaparecido del todo. Quedaba lejos, muy fina, lo justo para poder volver a agarrarla la próxima vez.
 
-El planeta de las máquinas seguía lejos.
-El hecho de que todo fuera incierto también seguía igual.
+Sion apoyó la espalda en la pared.
 
-Pero ahora,
-dentro de esa incertidumbre había aparecido un hecho: que la nave podía reaccionar primero.
+Los dieciséis seguían todos ahí dentro. Afuera no se veía nada, detrás había silencio, y lo de delante quedaba lejos.
 
-Y solo con ese hecho,
-el viaje del grupo ya
-había empezado de un modo que nadie había imaginado.
+Pero había una cosa distinta de antes.
+
+Hasta ahora, esta nave era algo que solo avanzaba si la empujaban las personas. Ya no.
+
+Hazran se había cerrado.
+
+Y lo que Hazran había enviado al cerrarse se había movido ahora, por primera vez dentro de esta nave, por su propia cuenta.
 
 ---
 

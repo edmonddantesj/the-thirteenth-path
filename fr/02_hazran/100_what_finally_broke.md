@@ -1,104 +1,346 @@
 # Chapitre 100 — Ce qui rompit enfin
 
-Le bruit de fracture provint de la ligne avant d'être émis par une personne.
+Sion n'arriva pas jusqu'à lui.
 
-Avant tout cri humain, avant les coups de feu ou les jurons, une barrière métallique basse qui tenait à peine en travers du couloir droit se tordit et éclata complètement.
+Il restait trois pas quand tout tomba.
 
-À cet instant, l'angle que Haroun tenait s'effondra avec elle.
+Il y eut deux bruits. Le premier fut celui de ce qui s'était arraché là-haut en frappant le sol ; le second, celui du reste qui se déversait par-dessus. Le second dura bien plus longtemps.
 
-Sion le regarda presque comme s'il le ressentait.
+Au milieu de ce second bruit, Sion en entendit un autre. Bref et sourd, ce n'était ni un bruit de pierre ni un bruit de métal.
 
-Lorsqu'une ligne qui tenait encore disparut, la pression comprimée de force derrière elle commença à se répandre vers l'intérieur d'un seul coup.
+Il ne vint qu'une fois.
 
-Le poids noir drapé comme un cadavre de briseur frémit violemment. Deux unités régulières arrivées derrière prirent simultanément des angles plus profonds. L'une basse. L'autre haute.
+Sion ne voulait pas savoir ce que c'était.
 
-Plus une seule ligne.
+La poussière remplit le couloir. Pas de la poudre : du mur brisé. Lourde, elle retomba vite.
 
-Deux lames avaient attendu que le chemin s'ouvre, et s'enfonçaient maintenant en même temps.
+Quand elle fut retombée, ce que Sion vit, ce n'était pas un homme.
 
-Ater éleva la voix pour presque la première fois.
+La pierre et le métal comblaient entièrement la largeur d'une personne. Là où Haroun se tenait encore tout à l'heure, il n'y avait plus de place du tout.
 
-« Haroun, recule ! »
+« Haroun ! »
 
-Mais ces mots venaient trop tard.
+Pas de réponse.
 
-Haroun était déjà en train de tordre son corps pour bloquer l'angle supérieur entré par l'espace où se trouvait la barrière. Son bras droit arracha une fois le poids vers l'avant. Sa gauche blessée ne servait presque que d'épingle. À cet instant, la deuxième unité venant d'en bas tira un faisceau de coupe bas, et le corps d'Haroun trembla violemment.
+Sion avança. Au bout de deux pas, une main arriva par-derrière.
 
-Sion sentit son coeur se serrer.
+« On ne rompt pas la file. »
 
-Sern se jeta aussitôt en avant.
+C'était Zahir.
 
-Il passa sous l'unité et trancha à la hâte la ligne d'accouplement de la seconde. Ater envoya simultanément une balle dans la surface du capteur de l'unité supérieure, décalant le timing d'un battement pour que les deux angles ne puissent pas se chevaucher complètement.
+Sion voulut se dégager de cette main. Il n'y parvint pas. Cet homme n'élevait pas la voix, mais sa main, elle, était forte.
 
-Mais dans cet écart, Haroun était déjà tombé une fois.
+« Il y a quelqu'un, là-bas. »
 
-Pas d'effondrement complet. Mais son genou plia en premier. Son corps heurta lourdement les décombres du sol du couloir.
+« Je sais. »
 
-Au moment où tout le monde vit cela, l'air à l'intérieur de Hazran s'assombrit véritablement un instant.
+« Il faut creuser maintenant. »
 
-Nassim lâcha un juron de sa voix rauque. Le visage de Seorin se durcit ouvertement pour la première fois. Sion s'avança sans s'en rendre compte.
+« Je sais. »
 
-Puis Zahir intervint, très froid, pour la première fois.
+« Alors… »
 
-« Ne coupez pas la ligne. »
+« On ne rompt pas la file. »
 
-Cette ligne unique retint à nouveau les corps des gens.
+C'était la deuxième fois que Sion entendait ces mots.
 
-Cruel. Mais sans ces mots, cette scène aurait fait effondrer toute la ligne d'évacuation.
+Les deux fois, c'étaient les mêmes mots, mais la deuxième sonna autrement. La première était un ordre ; la deuxième était une réponse.
 
-Sion serra les dents et détourna son corps. S'il allait du côté d'Haroun maintenant, ce côté mourrait aussi.
+« Pourquoi ? »
 
-Ce fait était si terrible qu'il en eut le souffle coupé.
+Zahir, la main toujours sur l'épaule de Sion, regardait le couloir.
 
-Jiwoo, depuis l'entrée de la coque, parla comme si elle ravalait un cri.
+« Ça, en ce moment, ça les bloque aussi, en face. »
 
-« Continuez à charger ! »
+À ces mots, Sion regarda de nouveau l'éboulement.
 
-Elle l'avait vu aussi. Haroun tombait. Mais cela la rendait encore plus féroce.
+C'était vrai. Si la largeur d'une personne avait disparu, cela voulait dire qu'en face non plus, on ne pouvait plus entrer par là. Une chose noire s'était arrêtée devant. Elle cherchait par où entrer, et il n'y avait rien.
 
-Arrêtez et ça se termine vraiment.
+« Si on dégage ça… »
+Zahir poursuivit d'une voix égale.
+« … ils entrent d'autant qu'on en a dégagé. »
 
-Aka, écoutant vers l'extérieur, parla très bas et froidement.
+Il ne fallut à Sion aucun temps pour comprendre cette phrase.
 
-« Il n'est pas encore mort. »
+Il détesta comprendre aussi vite.
 
-Ces mots entrèrent avec une force étrangement immense.
+« Et cet homme, alors ? »
 
-Sion s'accrocha à cette phrase et poussa de nouveau les trois premiers du quatrième groupe vers la rampe. Luhai couvrit les yeux d'un enfant avec sa main alors que les larmes étaient sur le point d'éclater. Seorin agrippa l'arrière de la civière, grinçant presque des dents. Nassim cria de sa voix cassée.
+Zahir ne répondit pas.
 
-« Les yeux en avant ! »
+« Je vous demande ce qu'on fait de lui. »
 
-Tout le monde tremblait. Mais grâce à cela, les gens montèrent.
+« Pour l'instant, on ne peut pas creuser. »
 
-Et dans le couloir de droite, Sern et Ater commencèrent vraiment à combler l'endroit où Haroun était tombé.
+« Alors quand ? »
 
-Sern coupa par en dessous. Ater fit trembler l'axe par au-dessus. Tous deux étaient blessés. Tous deux étaient déjà proches de leurs limites. Mais pour l'instant, la question de savoir s'ils pourraient tenir le poste importait moins que le fait que le poste ne pouvait pas rester vide.
+« Je ne sais pas. »
 
-Haroun posait une main sur le sol et essayait à peine de se relever.
+Ce n'était pas un mensonge, et Sion n'en fut que plus furieux.
 
-C'est à ce moment-là que Sion comprit pour la première fois.
+« Il en faut combien pour qu'on creuse ? »
 
-Ce qui venait de se briser n'était pas simplement une barrière de couloir.
+« Quoi ? »
 
-Le sentiment que *Haroun ne tomberait jamais* avait volé en éclats avec elle.
+« Combien de gens coincés là-dessous, pour qu'on creuse ? »
 
-Cet homme tombe aussi. Cet homme, au bout du compte, saigne, son genou plie, et si le timing dérape une fois, cela peut s'arrêter là — c'est aussi ce genre de personne.
+Pour la première fois, Zahir regarda Sion.
 
-Cette vérité frappa tout le monde à Hazran en même temps.
+« Ça, ne le demande pas. »
 
-Et c'est précisément pour cela que cette bataille devint plus effrayante.
+« Tout à l'heure, vous me disiez de compter les mains. »
 
-Les personnes restantes ne pouvaient plus s'appuyer sur *quelqu'un tiendra pour nous*. En réalité, le stade était venu où chacun devait consacrer sa propre part de temps avec son propre corps.
+« Celles-là, je les comptais pour les placer. »
 
-Les trois premiers du quatrième groupe entrèrent dans la coque.
+« Et maintenant ? »
 
-Seulement trois. Mais pendant que ces trois-là traversaient, Haroun tombait une fois, Sern et Ater remplissaient ce vide avec leurs corps, et Hazran, au bout du compte, ne rompit pas la ligne.
+« Maintenant, je ne compte pas. »
 
-Et c'est ce que Sion comprit.
+Sion retourna deux fois ces quelques mots dans sa tête.
 
-Ce qui se brisa enfin, ce n'était pas seulement le métal, ni seulement le chemin.
+Aujourd'hui même, cet homme avait ordonné de sa propre bouche qu'on compte les gens en les convertissant en temps. Et maintenant, il disait qu'il ne comptait pas. Parce que, si l'on comptait, une réponse sortait, et qu'il faudrait faire ce qu'elle disait.
 
-C'était la dernière illusion que quelqu'un pouvait tenir sans jamais tomber.
+Ici, il y en avait quatre-vingt-huit, et là-dessous, un seul.
+
+Sion aussi avait déjà fait ce calcul. Il l'avait fait avant que Zahir dise qu'il ne comptait pas. Et après l'avoir fait, il détesta l'avoir fait.
+
+Ses jambes flanchèrent. La main de Zahir était encore sur son épaule ; il ne s'effondra pas.
+
+Une voix vint d'en haut. C'était Sern. Sur le flanc de l'amas effondré, il poussait quelque chose.
+
+« Il est vivant. »
+
+Sion tourna la tête de ce côté.
+
+« Comment tu le sais ? »
+
+« Il frappe, en dessous. »
+
+S'il frappait, c'est que sa main bougeait. À ce seul mot, Sion relâcha son souffle.
+
+« C'est profond comment ? »
+
+« Je ne sais pas. »
+
+« Pour creuser, il faudrait combien de temps ? »
+
+Il ne répondit pas tout de suite. Il mesurait l'amas du regard.
+
+« Seul, je n'y arriverai pas d'ici la fin de la journée. »
+
+« Et à plusieurs ? »
+
+« Ce n'est pas assez large pour qu'on s'y mette à plusieurs. »
+
+La largeur d'une personne. Pour creuser aussi, on n'y entrait qu'un par un.
+
+De l'autre côté de l'amas, Ater surveillait l'angle. Pour que personne ne puisse venir par là.
+
+« Ce côté-ci, nous le tenons. »
+Ce fut lui qui parla.
+« Va. »
+
+« Où ça ? »
+
+« La file. »
+
+« La file ? »
+
+« C'est pour elle que, là-dessous, il est en train d'acheter du temps. »
+
+À ces mots, Sion se détourna.
+
+Se détourner lui prit longtemps. Son corps refusait de tourner. Mais une fois retourné, il put marcher. Et pouvoir marcher était plus étrange encore.
+
+Jusqu'à la rampe, Sion ne regarda pas une seule fois en arrière.
+
+La sixième file attendait. Par trois. À deux pas d'écart.
+
+Tous regardaient vers le couloir.
+
+Sion regarda ces visages. Ils avaient dû tout entendre, tout à l'heure. Ils ne savaient ni ce qui s'était effondré ni qui était dessous, mais le bruit, ils l'avaient entendu.
+
+« Trois. »
+
+Personne ne bougea.
+
+La personne en tête de file demanda :
+
+« Il y a quelqu'un, là-bas ? »
+
+Sion ne répondit pas.
+
+« Je vous demande s'il y a quelqu'un. »
+
+« Allez-y. »
+
+« Vous ne pouvez pas me le dire ? »
+
+Sion regarda cette personne dans les yeux. Ce n'était pas qu'elle voulait savoir. Elle demandait si elle avait le droit de monter.
+
+« Il faut y aller. »
+
+« … Oui. »
+
+La personne monta. En montant, elle se retourna une fois, mais pas vers le couloir : vers Sion.
+
+« Trois, s'il vous plaît. »
+
+Les trois suivants montèrent.
+
+L'un d'eux tomba sur la rampe.
+
+Grâce aux deux pas, ceux de derrière ne furent pas poussés. Pendant que celui qui était tombé se relevait seul, les trois de derrière attendirent debout, et pendant qu'ils attendaient, personne ne regarda vers le couloir. Les deux pas de Seorin valaient leur prix pour la troisième fois de la journée.
+
+Sion poussa les trois suivants. Puis les suivants encore. Ses mains continuaient. Derrière, aucun bruit. Il ne savait pas si ce silence était une bonne ou une mauvaise chose.
+
+Aka avait la main collée contre la paroi extérieure de la coque.
+
+Sion fit monter trois personnes, puis alla vers elle.
+
+« Aka. »
+
+« Oui. »
+
+« Tu entends ? »
+
+Aka, la main toujours collée à la paroi, inclina un peu la tête.
+
+Un long moment passa.
+
+« Il est pas encore mort. »
+
+À ces mots, le genou de Sion céda une fois, puis se redressa.
+
+« Comment tu le sais ? »
+
+« Il frappe. »
+
+« Il frappe ? »
+
+« En dessous, il frappe avec quelque chose. »
+
+Sion regarda l'éboulement. D'ici, il n'entendait rien.
+
+« Combien de coups ? »
+
+Aka compta un instant avant de répondre.
+
+« Un coup, et il s'arrête. Un coup, et il s'arrête. »
+
+« Il s'arrête combien de temps ? »
+
+« Dix, à peu près. »
+
+Sion compta jusqu'à dix dans sa tête.
+
+Un coup, le temps de compter jusqu'à dix. C'était, en ce moment, le seul moyen de faire savoir que quelqu'un était vivant là-dessous. Et c'était un nombre qui pouvait se compter.
+
+« Aka. »
+
+« Oui. »
+
+« Si ce dix s'allonge, dis-le-moi. »
+
+Aka regarda Sion une fois. Des yeux qui avaient compris ce qu'il voulait dire.
+
+« Oui. »
+
+« S'il raccourcit, pas besoin de me le dire. »
+
+« Il raccourcira pas. »
+
+« Là, c'est dix ? »
+
+Aka compta de nouveau.
+
+« Onze. »
+
+« Tout à l'heure, c'était dix. »
+
+« Oui. »
+
+Sion resta là, avec ce cran de plus.
+
+Seorin arriva du côté de la rampe. Elle venait avec la main qui découpait la file par trois, encore levée.
+
+« C'est combien ? »
+
+Croyant qu'elle demandait le nombre de gens, Sion allait répondre, puis se retint. Les yeux de Seorin ne regardaient pas la rampe, mais l'éboulement.
+
+« Onze. »
+
+« Et avant ? »
+
+« Dix. »
+
+Seorin ne dit rien. Puis elle retourna à la rampe.
+
+Sion regarda son dos. Pendant des jours, elle avait évité exprès de regarder du côté de Haroun. Là, elle avait regardé, demandé, puis était repartie.
+
+Revenue là-bas, elle se remit à découper la file par trois. Ses mains allaient plus vite que tout à l'heure.
+
+Entre tout à l'heure et maintenant, le vaisseau avait décollé une fois. Et dans cet intervalle, il y avait eu un cran de plus.
+
+Aka remonta sa main d'une demi-paume sur la paroi. Le geste de quelqu'un qui cherche l'endroit où l'on entend mieux.
+
+Sion regarda cette main, puis retourna à la file.
+
+« Trois. »
+
+La sixième file prit longtemps. Les gens n'arrêtaient pas de regarder derrière eux. Quand on regarde derrière soi, les pieds ralentissent, et quand les pieds ralentissent, les trois ne restent plus ensemble.
+
+Sion leur fit tourner les épaules un par un pour les remettre face à l'avant. Il ne dit rien. S'il leur avait dit de ne regarder que devant, ils lui auraient sans doute demandé pourquoi.
+
+Les deux derniers montèrent.
+
+« Vingt. »
+
+La rampe se replia. Le vaisseau décolla.
+
+Sion alla au tableau. Il y avait maintenant six marques.
+
+Cent huit moins vingt. Quatre-vingt-huit.
+
+Cinq voyages.
+
+À côté, il y avait une courte rayure. L'heure gravée tout à l'heure.
+
+Sion regarda cette rayure.
+
+L'heure était écoulée.
+
+Mais cette fois, il ne pouvait pas aller défaire le garrot. Il savait où était le bras, et sa main ne pouvait pas l'atteindre.
+
+Debout là, Sion fit pour la première fois le calcul.
+
+L'heure qu'il comptait à partir de maintenant serait une heure sans que le sang passe dans le bras de Haroun. L'heure d'après aussi, et la suivante. Autant Sion compterait, autant le bras, là-dessous, mourrait.
+
+Et pour arrêter cela, il fallait dégager l'amas ; si on le dégageait, ceux d'en face entraient ; et s'ils entraient, les quatre-vingt-huit d'ici ne pourraient pas partir.
+
+Sion ne traça pas le trait suivant sur le tableau.
+
+Il resta un moment debout, sans savoir à quoi bon le tracer.
+
+Puis il le traça.
+
+Il fallait continuer à compter. S'il cessait de compter, personne ne compterait le temps qui passait là-dessous.
+
+Alors seulement, Sion regarda derrière lui.
+
+Deux hommes se tenaient collés à l'éboulement. Devant eux, quelques choses noires continuaient de frapper, cherchant par où entrer. Le bruit des coups ne s'était pas arrêté depuis tout à l'heure.
+
+Sion posa la main sur le sol.
+
+Rien ne vint. Exactement comme tout à l'heure, quand il avait posé la main sur la paroi à côté d'Aka.
+
+À ce moment-là, Aka avait dit qu'il valait mieux ne pas entendre.
+
+Plus maintenant.
+
+Jusqu'à ce matin, Sion n'avait jamais imaginé que ce couloir puisse s'effondrer.
+
+Il croyait que, tant que quelqu'un s'y tenait debout, il ne s'effondrerait pas.
 
 ---
 

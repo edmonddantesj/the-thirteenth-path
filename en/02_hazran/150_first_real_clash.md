@@ -1,180 +1,259 @@
-# Episode 150. First Real Clash
+# Episode 150. First Clash
 
-After seeing the children handed upward, the recon team did not stay in that place any longer.
+After watching the children being handed upward,
+the recon team did not stay there any longer.
 
 The way back was far quieter than the way in.
 
-They had already seen enough of what needed understanding. From here, they had to decide what to do.
+They had already seen enough of what they needed to understand,
+and from here on, they had to decide what to do.
 
-The problem began after that.
+The trouble
+came after that.
 
-When they returned to the hidden layer and stopped beneath the low lighting, the first to speak was the first recovery hand.
+When they were back in the hidden layer
+and had stopped under the low lights,
+the first to speak was the first recovery hand.
 
-"No."
+"It cannot be done."
 
-Jiwoo looked at him as though she had been waiting.
+Han Jiwoo looked at it almost as if she had been waiting for it.
 
 The first recovery hand spoke in a lower, harder voice.
 
-"If we move now, we will not be extracting. We will be losing more."
+"If we move now,
+we will not be getting anyone out. We will lose more."
 
-That was not a threat. It sounded like a conclusion from someone who had confirmed it with his body countless times.
+It wasn't meant to frighten anyone.
+It sounded like the conclusion of one that had truly confirmed it with its own body, countless times.
 
-Jiwoo did not back down.
+Han Jiwoo didn't back down right away.
 
-"So you just kept watching?" She said it low. "While you kept understanding the structure, you let the children keep crossing over?"
+"So you've just kept watching?"
+she said, low.
+"All this time you kept understanding the structure,
+you kept letting the kids cross over?"
 
-The second recovery hand cut in short.
+The second recovery hand cut in briefly.
 
-"We were not just watching. We could not move."
+"We were not just watching."
+"We could not move."
 
-That short sentence held more exhaustion than excuse.
+Those short sentences
+held more weariness than excuse.
 
-Ater looked between the two of them once, then did not push with emotion first. He went to the coldest core instead.
+Ater looked once between the two of them
+and did not push with emotion first.
+Instead, as coldly as anyone could, he went straight to the heart of it.
 
-"Let us reorganize why you could not move." He said it low. "What is needed now is not anger. It is the precise conditions of failure."
+"Let us lay out again why you could not move,"
+he said, low.
+"What we need now is not anger
+but the exact conditions for failure."
 
-Thanks to those words, the air in the room barely held without shattering.
+Thanks to that,
+the air in the room held, barely, without breaking.
 
-Kael seemed to have been drawing structures in his head the entire way back.
+Kael seemed to have been drawing the structure in his head the whole way back.
 
-He crouched low to the floor and began scratching simple lines in the dust.
+He bent low on one knee on the floor
+and began scratching simple lines in the dust.
 
-"There is one viable segment." He said. "Just before the handoff. Before they have fully entered the upper beat."
+"There's one window that might work,"
+he said.
+"Right before they're handed over,
+before they're fully in the upper beat."
 
-The first recovery hand answered immediately.
+The first recovery hand answered at once.
 
 "It is short."
 
 Kael nodded.
 
-"I know. That is why we need the step before."
+"I know."
+"That's why we need what comes before it."
 
 He drew a few more lines.
 
-"What we need to touch is not the line where the children are. It is the flow just before. Slow it by even half a beat, so the alignment breaks before it fully locks."
+"What we have to touch isn't the line the kids are standing in."
+"It's the flow right before it."
+"We have to slow it by even half a beat
+and throw it off before the alignment locks completely."
 
 The second recovery hand asked.
 
-"With what."
+"With what?"
 
-This time Jiwoo answered immediately.
+This time Han Jiwoo answered at once.
 
 "The children."
 
-Brief silence.
+A short silence.
 
-No one understood the words right away.
+Not everyone understood her right away.
 
-Jiwoo continued with her jaw clenched.
+Han Jiwoo went on, her teeth set.
 
-"The children are not all moving at the same beat already. Some are slow. Some are fast. Some still have stiffened hands. Serakion reads that and matches them as it takes them, but it can be used in reverse too."
+"The kids already don't all move to the same beat."
+"Some are slow,
+some are fast,
+some still have stiff hands."
+"Serakion reads that and matches it to take them,
+but it can be used the other way too."
 
-Ater said it very low.
+Ater said, very low,
 
-"Make the misalignment itself into a passage?"
+"You mean we make the misalignment itself the way through?"
 
-Jiwoo gave a short nod.
+Han Jiwoo gave a short nod.
 
-"If it is a line of only fully converted children, it cannot be done. But if there are children who have not crossed over yet mixed in, that half-beat difference can disrupt the line."
+"If it were a line of kids who'd been completely won over, we couldn't."
+"But if there are kids mixed in who haven't crossed over yet,
+that half-beat difference could throw the line into disorder."
 
-The idea was dangerous, and therefore more real.
+It was dangerous,
+and for that very reason, all the more real.
 
-Saving the children might have to rely on the fact that they had not yet fully entered the same rhythm.
+Saving the children
+might have to rest on the fact that the children had not yet fully fallen into the same rhythm.
 
-The first recovery hand was silent for a long time, then spoke.
+The first recovery hand was silent for a long time, then said,
 
-"That gambles too much on luck."
+"That leaves too much to luck."
 
-Kael cut in immediately.
+Kael cut in at once.
 
-"No. Making sure it is not luck is my part."
+"No."
+"Making sure it isn't luck is my job."
 
-The words were quiet, and therefore harder.
+He said it quietly,
+and that made it all the firmer.
 
 Kael drew more lines in the dust.
 
-"Shake here once. Receive here. And do not fight here. This is a beautifully sealed position — if detected, the structure folds before a person can run."
+"We shake it here,
+and catch them here."
+"And don't fight here."
+"This spot closes up beautifully;
+if we're spotted, the structure folds faster than people can run."
 
-The second recovery hand's expression shifted, barely.
+The second recovery hand's expression changed, very slightly.
 
-It was close to agreement.
+It was something close to agreement.
 
-Kael continued.
+Kael kept going.
 
-"We need three things. One is disrupting the line. One is the hands to immediately extract the children. The last is a position that slows the closing speed."
+"We need three things."
+"One, throwing the line out of step."
+"One, hands to pull the kids out right away."
+"And last, someone in position to slow the closing."
 
-Ater looked down at the lines and asked low.
+Ater looked down at the lines and asked, low,
 
-"Who takes what."
+"Who takes what?"
 
-The answer was almost already decided.
+The answer was all but settled already.
 
-Jiwoo would watch the children. Who still held their own beat. Who would respond to an outstretched hand. Who was too late. Who was too early.
+Han Jiwoo would watch the children.
+Who still had a beat of their own,
+who would respond if a hand reached out,
+who was too late,
+and who too fast.
 
-Kael would hold the timing of opening and closing. Where to block, where to leave empty, where to push so a gap opened for people to pass.
+Kael would keep hold of the timing of opening and closing.
+He would work out where to block,
+where to leave open,
+and where to start pushing so a gap would open for people to get through.
 
-Ater would read the habits of the upper order. Which machines reacted how. In which segments they would respond half a beat late trying to maintain composure. What kind of confusion would look most natural.
+Ater would read the habits of the upper order.
+How each machine reacted,
+in which stretch a reaction ran half a beat late from the effort to keep up appearances,
+and what kind of confusion would look most natural.
 
-For the first time, the three lenses were beginning to overlap onto a single operation.
+The three lenses
+were, for the first time, beginning to overlap on a single operation.
 
-But right then, the first recovery hand spoke again.
+But just then,
+the first recovery hand spoke again.
 
 "It still cannot be done."
 
-Jiwoo's gaze sharpened again.
+Han Jiwoo's eyes sharpened again.
 
-The first recovery hand spoke more slowly this time.
+This time the first recovery hand spoke more slowly.
 
-"I see the possibility. But we have to protect the inside here too. If you three fail, it does not just end. It folds all the way to here."
+"I know the chance is there."
+"But we also have to protect this place, in here."
+"If the three of you fail, it does not just end with you;
+it folds all the way down to here."
 
-He was not wrong.
+It wasn't wrong.
 
-The Serakion the recon team had seen from the outside was vast, but the layer holding on from the inside was maintained by far fewer hands, worn down for far longer than expected.
+The Serakion the recon team had seen from outside was vast,
+but this layer holding out inside was kept going by far fewer, far longer-worn hands than they had thought.
 
-If a single rescue operation failed, it would not just mean failing to extract the children. The entire connection line could collapse.
+If one rescue operation failed,
+it would not just mean failing to get the children out;
+this whole line of connection could collapse.
 
-Ater heard that and did not step back.
+Ater heard it and still did not back down.
 
-"Then we must be more precise." He said it low. "We cannot be precise in the direction of not acting."
+"Which is why we must be more exact,"
+he said, low.
+"No one can become exact by choosing not to act."
 
-That sentence quietly split the room once.
+That sentence cut once through the room and left it quiet.
 
-The second recovery hand exhaled slowly.
+The second recovery hand let out a slow breath.
 
-"How many." He asked.
+"How many?"
+it asked.
 
 This time no one could answer easily.
 
-Try to extract too many, and all of them could die. Extract too few, and the rest get left behind.
+Try to pull out many,
+and they could all die.
+Pull out few,
+and the rest would have to be left behind.
 
-The question was not about numbers. It was closer to how much bearable failure they were willing to accept.
+That question wasn't about numbers;
+it was closer to how much failure they could bear to accept.
 
-Jiwoo spoke very slowly.
+Han Jiwoo spoke very slowly.
 
-"Few at first. Starting with the ones who will definitely respond."
+"Few, at first."
+"Starting with the kids who'll definitely respond."
 
-Those words were colder than her usual self, and therefore hurt more.
+It was cold, unlike her,
+and that made it hurt more.
 
-She wanted to bring them all out. But saying so from the start would mean she knew it could result in saving no one at all.
+She truly wanted to bring every one of them out,
+but saying so from the start could mean no one got out at all,
+and it meant she knew that too.
 
-Kael added short.
+Kael added briefly,
 
 "We have to succeed for there to be a next time."
 
-Cruel, but not wrong.
+It was cruel, but not wrong.
 
-The first rescue would not be about saving everyone. It was closer to opening the first crack that would make the next one possible.
+The first rescue would not save everyone.
+It was closer to making the first crack that would make the next one possible.
 
-And the moment everyone understood that, this operation was no longer an impulse.
+And the moment they all understood that,
+this operation was no longer an impulse.
 
-It had started from Jiwoo's stubbornness, but now it had entered the calculations of all three.
+It had started with Han Jiwoo's stubbornness,
+but now it had entered all three of their calculations.
 
-At the end of that night, they had not yet moved.
+By the end of that night,
+they still hadn't moved.
 
-But clearly, for the first time, they had begun designing a real rescue.
+But unmistakably,
+for the first time, they had begun to design a real rescue.
 
-The reconnaissance had not fully ended there. It had simply begun, for the first time, to be translated into the language of action.
+The reconnaissance hadn't fully ended there;
+for the first time, it had begun to be translated into the language of action.
 
 ---
 

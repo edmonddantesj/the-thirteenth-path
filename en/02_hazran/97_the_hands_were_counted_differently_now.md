@@ -1,177 +1,355 @@
 # Episode 97. The Hands Were Counted Differently Now
 
-Zahir's words—redistribute the remaining hands after the third group—
-grew colder as they approached reality than they'd sounded at first.
+Zahir came all the way down to the foot of the ramp.
 
-Sion understood the meaning clearly now.
+It was the first time Sion had seen the man come down this far. Zahir decided things where the board was. Someone else carried what he had decided out. It had always been that way until now.
 
-The people left inside Hazran
-would no longer be counted as *who survived*
-but as *who can still hold*,
-*who, placed where, buys the most time*.
+Which meant that now there was no one left to carry it out.
 
-Function over names.
-Time over relationships.
+Zahir didn't look at the line. He looked once toward the corridor, once at the board, and then at Sion.
 
-That was one of the most cruel ways war handles people.
+"I hear you're the one counting."
 
-While the third group's first three moved,
-the metallic sounds started changing from corridors other than just the right.
+"Yes."
 
-As Ater had said,
-this time it was a real simultaneous press.
+"Counting what?"
 
-On the right, regular units filling in behind the breacher
-were trying to climb over the tilted body.
-On the left, a line that had been quiet until now
-kept tapping at the low barriers, testing angles.
+"The hour."
 
-Until now, when one side bit, the other could catch its breath.
-That margin was gone.
+"Count something else besides that."
 
-The last structure Hazran had been holding
-began thinning from both sides at once.
+Sion was about to ask what he meant, then stopped. He had already understood.
 
-Harun couldn't let go of the right.
+"How many hands here can still hold on to something,"
+Zahir said.
+"And how long each one has."
 
-His bleeding arm couldn't receive head-on for long.
-But pulling back was impossible too.
-The moment he pulled back,
-the obstacle draped like a corpse across the breacher,
-the right corridor barely held by twisting—both would open.
+Sion opened his mouth, then closed it.
 
-Sern, beside him, was already breathing rough.
-He'd been moving as if unhurt for a while,
-but he was human too.
-The time spent holding
-wore the body down equally.
+If he was told to count, he could count. That was the problem.
 
-Ater said, brief.
+"The right side?"
+Zahir asked.
 
-"Someone must be sent to the left."
+Sion noticed there was no person's name in the question. He noticed, and answered it as it was.
 
-Harun clenched his jaw instead of answering.
+"An hour."
 
-Had to send someone.
-But who.
+"After that?"
 
-In that moment,
-Sion truly understood why Zahir had used the words *remaining hands*.
+"Another hour."
 
-This wasn't choosing by closeness,
-need,
-or trust.
-The hand that could hold longest right now
-had to be thrown into the most urgent spot.
+"After that?"
 
-Zahir spoke, short.
+Zahir didn't press. His face knew that having no answer was itself the answer.
 
-"Kael, left side."
+When you ask the same thing twice and get no answer either time, from then on the one asking asks something else.
 
-Kael raised his head immediately.
+"The other hands?"
 
-"Understood."
+Sion began to count. As he counted, he heard what his own mouth was doing.
 
-No hesitation.
-But Sion heard that short answer as heavier than it should have been.
+"The one with the cut side only uses his right hand. He can't hold anything with the left."
 
-If Kael went left,
-the hand reinforcing the metal plates and couplings near the hull would be gone.
-But if he isn't sent now,
-the left might tear first.
+"How long?"
 
-Zahir's judgment was cold and precise.
-And crueler for it.
+"I don't know. It's been soaking through for a while."
 
-Jiwoo understood at once too.
+"Next."
 
-Her face hardened for an instant,
-but she didn't stop it.
-She only said, low.
+"The one under the ship can't come out. If she comes out, the left side slips out of true again."
 
-"Then I cover more here."
+"Next."
 
-Aka added, very quietly, beside her.
+"The one at the front of the line…"
 
-"Hold."
+Sion stopped there.
 
-This time it was unclear whether that was aimed at the ship,
-at Jiwoo,
-or at everything still here.
+"Why?"
 
-Kael propped one remaining coupling plate at a steeper angle beside the hull,
-then turned toward the left corridor without hesitation.
-Sion watched his back and felt it for real—
-the remaining hands were being torn away one by one and driven into other positions.
+"She doesn't stop, so I can't tell how much is left."
 
-Nasim, holding the third group, saw Kael leave and cursed low.
+Zahir took the answer and said nothing.
 
-But he shouted immediately after.
+Only then did Sion realize what he had just done.
 
-"Third group, short board! Front three only, first!"
+He had turned four people into time and said it out loud. Neither the one asking nor the one answering had used a name even once, and yet each had understood the other completely. In this city, talking that way was faster now.
 
-Luhai pushed the front three in time with that call.
-Seorin cut the line with her shoulder so the people behind couldn't follow.
-Sion counted heads again beneath the ramp.
+"On the left side, inside, they're tapping at the angle,"
+Zahir said.
+"They haven't come in yet. Just tapping."
 
-Three.
+"Then isn't it still okay?"
 
-Now, truly,
-life and time were being cut in units of three.
+"Tapping means they're counting."
 
-From Harun's side came a sudden sharp metal burst.
+Sion caught that half a beat late. The other side was counting too, right now, how many hands Hazran had.
 
-Sern cursed low.
-Ater called out immediately.
+"I have to put one there."
 
-"Upper right!"
+"What's on the left?"
 
-Before Harun could even raise his head,
-one regular unit had climbed the tilted breacher body and entered higher than expected. Until now they'd targeted the lower couplings and corridor gaps.
-This time the angle aimed to tear the upper barriers and human-height level first.
+"One low screen."
 
-That was worse.
+"Just that?"
 
-If that height opens,
-the line of sight reaches the hull line behind in one shot.
+"Just that."
 
-Harun reflexively twisted his right side to block the angle.
-Sern abandoned the lower cut mid-stroke and scored urgently behind the upper knee.
-Ater fired almost simultaneously into the center of the upper sensor surface.
+Sion knew why that answer was frightening. On the right, two were holding on, and the fallen black thing was wedged in there as well. On the left there was only one screen standing, not even a person's height.
 
-Barely one beat.
+"Will one person be enough?"
 
-But that one beat
-bought the time for the third group's first three to clear the ramp again.
+"No."
 
-Sion could barely breathe in that moment.
+"Then why…"
 
-Now truly everything
-was being cut away.
-Three at a time.
-One beat at a time.
-One person's share at a time.
+"If I don't put even one there, it's worse."
 
-And the hands stitching it together
-were getting fewer.
+Sion had no reply to that.
 
-Zahir watched it all and spoke low.
+"Who?"
 
-"Next time must be faster."
+Instead of answering, Zahir looked toward the side of the hull.
 
-That wasn't aimed at one person.
-It was aimed at all of Hazran.
+Kael was there, bracing a coupling plate with his shoulder. He had been in that position for a while. If the plate slipped, the underside of the ramp would collapse with it, so he couldn't let go.
 
-Lines were now being built in a different way.
-Hands were now being counted in a different way.
+"Those hands."
 
-The people remaining
-had begun to see each other as people, yes—
-but also as *which spot does this hand last longest in*.
+The moment the words came out, Sion's stomach dropped once.
 
-And that meant
-even before anyone had died,
-war was already breaking something inside the people.
+"He's…"
+
+"Those are the only spare hands left."
+
+Nasim heard that.
+
+He spoke briefly in his cracked voice.
+
+"Don't use that word."
+
+Zahir looked at Nasim.
+
+"What word?"
+
+"Spare hands."
+
+"Why?"
+
+"I counted that way my whole life and only just managed to stop."
+
+Hearing that answer, Sion looked over at Nasim.
+
+This man was the hand that set prices. He was the one who had said that in Hazran, price came before a name. And now he was the one stopping anyone from calling people by their price.
+
+Zahir didn't answer right away.
+
+After a long while he spoke.
+
+"I want to stop too."
+
+"Then stop."
+
+"If I stop now, I lose them without even counting."
+
+Nasim didn't take it any further. Instead he turned toward the board. As he turned, he said something, but his voice was gone and no sound came out.
+
+Kael walked over.
+
+The plate was still standing in its place. Sion hadn't seen when he let go of it.
+
+"I'm going."
+
+"It hasn't been decided yet…"
+
+"It's decided."
+
+Sion didn't know what to say.
+
+He had come into Hazran with this man. They had stood on the field together, ridden the glider together, and Sion had seen the top plate of his craft torn away. But right now none of that was any use. What was needed now was one pair of hands to stand on the left, and the only person here who could take his hands off what he held was this man.
+
+"How many are there over there?"
+
+"Don't know."
+
+"You're going without even knowing how many?"
+
+"I'll know when I get there."
+
+Then Kael took Sion over to the plate he had been bracing.
+
+"This needs to be laid down another half span."
+
+"Now?"
+
+"No. After the ship lifts."
+
+"Why not now?"
+
+"Lay it down now and people's feet catch on it."
+
+Sion put that in his head. Half a span. After the ship lifts.
+
+"Anything else?"
+
+"That's all."
+
+Kael turned away as if that really were all.
+
+Two steps on, he stopped once.
+
+"Sion."
+
+"Yes."
+
+"When the plate goes over, it makes a sound. When you hear that sound, just run."
+
+"Where?"
+
+"Anywhere. Just don't be under the plate."
+
+Sion nodded.
+
+"Can't I go with you?"
+
+"No."
+
+"Why not?"
+
+"If you go, there's no one to lay that plate down half a span."
+
+Sion was angry that the reason was so small. The reason one person was going to the left and the reason one person couldn't follow were both a single plate.
+
+Kael looked back one last time.
+
+"I hear you're counting."
+
+"Yes."
+
+"Count me too."
+
+Sion thought he had heard wrong.
+
+"Harun told me not to count."
+
+"He meant not to count him."
+
+"Then what about you?"
+
+"Me, you count."
+
+"Why?"
+
+Kael looked once toward the left-side corridor before he answered.
+
+"If you don't count, nobody knows who didn't come back."
+
+Then he went.
+
+Sion didn't watch his back for long. There was no time to watch.
+
+Zahir was still standing there.
+
+That struck Sion as strange, so he asked.
+
+"Aren't you going back up?"
+
+"No."
+
+"There's nothing for you to do here."
+
+Zahir was looking toward the left-side corridor.
+
+"Because I'm the one who sent him."
+
+"What changes if you're watching?"
+
+"Nothing changes,"
+
+Zahir said.
+
+"But moving a person's hands isn't something you get someone else to do for you."
+
+Hearing that, Sion understood why the man had left the board and come all the way down here. The deciding could be done up above, but saying what had been decided in front of a person's face, that he had to do himself.
+
+"Who made that rule?"
+
+"No one."
+
+Even after that, Zahir didn't move.
+
+The fourth line stood broken into threes. Just as Seorin had said, they stood two steps apart, so the line looked longer than before.
+
+"Three."
+
+Three went up.
+
+"Three."
+
+Another three.
+
+In the third cluster, the one in front missed a step.
+
+Before, the whole back would have been shoved forward. With two steps of empty space, no one was shoved. The person put a hand down alone, got up alone, and went up alone.
+
+Sion looked at the spot. It looked as if nothing had happened, but nothing happening was exactly what they had just earned.
+
+Because there was space between them, the back wasn't shoved even when the front stopped. Because no one was shoved, no one had to grab hold, and because no one had to grab hold, hands were left over.
+
+Six clusters of three. Two at the end.
+
+"Twenty."
+
+The ramp folded. The ship lifted. The sound went out pressed down.
+
+Sion went to the board. The marks had become four.
+
+Twenty off a hundred and forty-eight. A hundred and twenty-eight.
+
+Seven runs.
+
+Nasim was standing beside the board.
+
+"How many are left?"
+Sion asked.
+
+"Seven runs."
+
+"Not that."
+
+Nasim looked at Sion.
+
+"So now you count two things too."
+
+Sion didn't answer.
+
+"Which one's faster?"
+Nasim asked.
+
+Sion didn't want to answer. But he already knew.
+
+"The hands."
+
+"Right."
+
+Nasim rubbed the marks drawn on the board once with a fingertip. They didn't come off.
+
+"That's the worst thing."
+
+"Why?"
+
+"Because it's easy."
+
+"I counted the easy way my whole life,"
+Nasim said.
+"That's why this city kept running."
+
+"And now?"
+
+"It still runs."
+
+Then Nasim rubbed his throat once. The place the sound wouldn't come out of.
+
+"That's the problem."
 
 ---
 

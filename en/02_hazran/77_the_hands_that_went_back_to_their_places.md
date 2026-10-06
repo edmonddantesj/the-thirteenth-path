@@ -1,205 +1,260 @@
 # Episode 77. The Hands That Went Back to Their Places
 
-After hearing the signs,
-Hazran did not hesitate long.
+"Where are you going to be."
 
-That was this city's way.
+Seorin asked.
 
-Don't talk about fear for long.
-Move the body back to its place first.
+Sion could not answer right away.
 
-Sion watched the shift up close.
+No one around them was asking that question. They were all already going, knowing where. With no one asking, asking seemed strange.
 
-The light goods that had hung outside the market just moments ago were gone. New metal plates went up along the arena's damaged edges. Tents were retied—not at the angle for selling, but for blocking and deflecting. Water containers moved further inside. The long strips of cloth draped between alleys became not windbreaks but sight-cuts, breaking lines of vision.
+"I don't know."
 
-Hazran did not line up like an army.
-And that was why it was faster.
+"Then go find out."
 
-Everyone knew their own sector.
-What to hide first.
-What to raise first.
-What to discard.
+"How?"
 
-Zahir did not shout from a high place.
+"Go to all of them."
 
-He stood where the market center, the return line, and the outer waterways all overlapped in a single view, and swept across the people once each. Who had already moved. Who still couldn't read the air. Who needed more words and who could be sent without any. That gaze was faster than sound.
+Then Seorin went to her own place. Sion did not see where. This person did not let you see her going; she was already there.
 
-"Close half the return line."
-He said, low.
-"Don't seal it completely. Leave a way out."
+Sion ran.
 
-Harun took it immediately.
+In the space of a morning the market had become a different shape entirely.
 
-"The outer perimeter?"
+The stalls had not disappeared; their angles had changed. Until yesterday they had been slanted so the goods showed well, but now they stood so that anyone passing would be screened from view once. The tent lines had been retied as well. Not at an angle good for trade, but at an angle good for blocking and letting through.
 
-"Leave it open."
-Zahir answered.
-"Let them in. Make them walk a long time."
+The strips of cloth hung long between the alleys were still there, but their use had changed. What had kept out the wind now broke the line of sight once.
 
-The moment Sion heard that exchange, he understood.
+Water jugs stood against the wall in every alley, two to an alley. Until yesterday they had been inside the houses.
 
-Hazran wasn't trying to hold through head-on collision from the start.
-Let them enter.
-Stretch the road.
-Hold by pressing the desert and the market both against the enemy's side.
+No one had given an order. And yet the whole city moved in the same direction.
 
-Harun moved like someone who had already reached that conclusion.
+Zahir was standing neither in the middle of the market nor at the board.
 
-He split the return line personnel into three groups. One for rechecking the outer waterways. One for utilizing the arena wreckage line. One for reinforcing interior escape routes. The face of the man who had been punished yesterday still lingered, but there was no time to sit on that now. Before a defensive line, the hands that knew combat best had no choice but to stand at the front again.
+It was a spot from which the return lines, the outer waterway and the heart of the market could all be seen at once. Sion stood there and looked in the three directions one after another. Whichever way he turned his head, he could see to the end.
 
-Seorin's feelings watching that were complicated.
+It was not a spot chosen by chance.
 
-A man she disliked.
-But it was also true that no one fit that position better than he did.
-That fact was the more unpleasant part.
+"Close the return lines halfway,"
+Zahir said, low.
+"Don't block them completely. Leave a way out."
 
-Kael was already reorganizing the metal scraps laid out before him.
+"And the perimeter line?"
+Sion asked.
 
-"This goes inside."
-He said.
-"This reinforces the outer barrier. This stays."
+Zahir answered without looking at Sion.
 
-Jiwoo took it right away.
+"We leave it empty."
 
-"Reason to keep it?"
+"Empty?"
 
-"Light."
-Kael answered.
-"Won't hold well, but for patching what's shaking right now, it's better than nothing."
+"Let them in, and make them walk a long way."
 
-Jiwoo gave a short nod.
+Sion stopped once at that.
 
-The two didn't talk long.
-But inside those short words, repair and defense were already folded together. The materials to save the hull and the materials for Hazran to survive tonight were no longer entirely separate things.
+It was not blocking; it was making them walk. Hazran had no intention of holding by crashing into them head-on. It would let them in, stretch the road, and have the desert and the market bite them together.
 
-Aka stood beside them, watching the airflow before the hands of the workers.
+"And if they walk a long way?"
 
-Sion understood a little now what that was.
-Aka wasn't looking at objects.
-She was listening to what would die first and what would die late.
+"They use water."
 
-"Inside first."
-She said, low.
+"And after that?"
 
-Jiwoo asked immediately.
+"After that they string themselves out."
 
-"The ship?"
+Sion turned that over twice. A way of stretching a line until it went thin. That was what Hazran had learned from the desert. Here you could make people lose without killing them.
 
-Aka gave a short nod.
+"Then what about here?"
 
-"It is slower than people."
-She said.
-"So bond it first."
+"Here is last."
 
-Sion heard that and understood at once.
+At that, Sion looked behind him once. The hull was there.
 
-People run when they sense danger.
-A city folds.
-But a half-dead ship can't hold that way.
-So before war truly arrives,
-you have to bond the parts that help it last, at minimum, before anything else.
+Sion ran again.
 
-Sern kept reading the signals from outside.
+Harun was over by the return lines.
 
-He stopped twice,
-then spoke low enough for only Ater to hear.
+He was splitting people into three groups. One to recheck the outer waterway, one for the arena wreck line, one to shore up the inner way out.
 
-"Regular."
+Sion asked what the third one was.
 
-Ater answered immediately.
+"The way out?"
 
-"Machines do not pause to catch their breath."
+"Yeah."
 
-"There will be human forces mixed in as well."
+"Why do that first, right now?"
 
-"Most likely."
-Ater said.
-"The question is not who enters bearing responsibility."
+Harun answered without stopping his hands.
 
-Sern looked at him.
+"Do it later and you end up doing it where it's blocked."
 
-Ater added without turning his gaze.
+"And if it's blocked?"
 
-"It is who enters bearing none."
+"Making a road where it's blocked costs the most."
 
-The words were short,
-but Sion understood them strangely fast.
+Sion put that in his head.
 
-The Empire will lead with machines.
-The Alliance will calculate behind those machines.
-Both will try to reduce the blood on their own hands.
-Which means this side bleeds more.
+This man was deciding what to get out through before what to block. The face that had taken its punishment yesterday was still there, but something else had been laid over it. The face of a man who knew better than anyone that there was no one but him to stand in this place right now.
 
-Luhai didn't joke this time.
+As Harun sent people off, he touched each one on the shoulder once.
 
-He ran through the inner market gathering people's words, checking the waterway situation, asking again whether the etherite information promised at dawn was still valid. Even through all of it, his face wasn't completely dead.
+He said nothing along with it. Touch and send, touch and send. Sion found out later that it was a counting motion. He was a man who counted with his hand how many went out.
 
-Not that he didn't know fear.
-He was the kind of kid who moved even when afraid.
+Sion went inside.
 
-He came back and spoke low.
+Two people were at work under the hull.
 
-"Prices outside the waterway are already spiking."
+One was splitting metal pieces into three heaps, and the other was picking from among them and holding them up against the bonding joint.
 
-Nasim replied immediately.
+"This is for the inside. This is for the outer barrier. Keep this one."
+
+"Reason to keep it."
+
+"It's light. It won't hold up well, but it's better for patching where things are shaking right now."
+
+The words were short. Short, but repair and defense were both packed into them.
+
+Sion knew that had changed from a few days ago. Until yesterday the material for fixing the ship and the material for defending the city had been separate. Today they came out of the same heap.
+
+Aka passed beside them and left just one remark.
+
+"The inside first. It's slower than people."
+
+Then she did not stop.
+
+Sion stood holding on to those few words.
+
+People run when there is danger. The city folds. But a half-dead ship cannot hold on like that. A thing that knows neither how to run nor how to fold can only be fastened down ahead of time.
+
+The slowest thing here was the ship. It was right to see to the slowest thing first.
+
+Sion counted that too.
+
+Yesterday there had been four. One price, one folding, one pressing-down, one thin heat layer. This morning it had become six. One way out, one ship that dies late.
+
+Luhai came running from the market.
+
+"Out past the waterway the prices are already jumping."
+
+Sion answered at once.
 
 "Then it's real."
 
-Luhai blinked.
+Luhai stopped running and looked at Sion.
 
-"Why."
+"How do you know."
 
-"Fear always raises prices first."
-Nasim said.
-"Before people."
+"Fear always raises prices first. Before people."
 
-He didn't smile when he said it,
-and that made it more like Nasim—and heavier.
+Hearing those words come out of his own mouth, Sion felt a little strange. It was not something he had figured out himself. It was what Nasim had said in front of the stall yesterday morning.
 
-The people of Hazran were returning to their places, each one.
+He had expected Luhai to ask back, but Luhai did not. The answer was right, so there was no reason to ask more, and his face said there was no time to ask either. He gave only a nod and went toward the waterway.
 
-Harun to the outer line.
-Nasim to the market current.
-Zahir above the whole board.
-Jiwoo and Aka to the inner hull.
-Kael between metal and barricade.
-Ater and Sern between signal and structure.
-Luhai between people and information.
+Watching his back, Sion understood one thing.
 
-And Seorin
-watched all of it and came back to Sion.
+Words you heard did not stay only where you heard them. Carry them around, and they get used somewhere else. Even with no one here who read prices, the words of someone who had read them had come this far.
 
-"Where are you."
-She asked.
+That made seven.
 
-Sion didn't answer for a moment.
+From outside, the signal cut out twice and then came back.
 
-But this time it wasn't the old blankness.
-It wasn't that he didn't know what to do.
+Sern was reading it and said, low,
 
-"Inside and outside both."
-He said, low.
-"I need to watch the ship and the people's movements."
+"It is regular."
 
-Seorin heard that answer and gave a short nod.
+Ater answered at once.
+
+"Machines do not steady their breath."
+
+Sion had heard that exchange yesterday too. Yesterday it had been words that gave a name. Today it was not.
+
+"Do you think there are humans mixed in too?"
+Sion asked.
+
+"There will be."
+
+Ater added, without turning his eyes away,
+
+"The question is not who comes in taking responsibility."
+
+Sion looked his way.
+
+"The question is who comes in without taking any."
+
+It took Sion half a beat to understand that.
+
+Once he understood, it was heavier than the six before it.
+
+There is a side that puts machines in front, and a side that counts numbers behind those machines. Both are trying to get less blood on their own hands. Then that blood does not disappear; it comes here.
+
+That made eight.
+
+Sion stopped counting there for a moment.
+
+The more he counted, the clearer one thing became.
+
+All eight had come out of other people's mouths. Price, folding, pressing down, the heat layer, the way out, the ship that dies late, the price that rises first, the hands that take no responsibility. Not one of them had Sion found out himself.
+
+And yet the one who had gathered all eight in one place was Sion alone.
+
+Those people each knew only their own. The one who read prices could not read signals, and the one who read signals did not know when the ship would die. The one who knew the waterways did not look at why the market's angles had changed just now.
+
+That was because the city ran only if each stuck to their own place. In exchange for sticking to it, they could not see beside them.
+
+Only then did Sion know where he was.
+
+Seorin came back near the ramp.
+
+"Found out?"
+
+"Yes."
+
+"Where is it."
+
+"Both the inside and the outside."
+
+Seorin raised an eyebrow slightly.
+
+"That's a place?"
+
+"I have to watch the ship, and how people move too."
+
+"Why you."
+
+Sion had not prepared an answer, but one came out.
+
+"Because no one's watching."
+
+At that answer, Seorin said nothing for a moment.
+
+Then she gave a short nod.
 
 "Then run."
 
-Sion almost smiled without meaning to.
+Sion almost laughed.
 
-Always that line.
-Move the body before the thought.
-But the person who had said it to him longest
-had always been Seorin.
+In the end it was that again. Move your body before you think. And yet the person who had said that to him the longest was this person, too.
 
-By the time dawn light began to bleed across the heat layer,
-Hazran was no longer a market.
+Sion ran.
 
-War had not yet arrived.
-But the city had already finished preparing every place where war would land.
+As he ran, he looked.
 
-And in the center of that preparation,
-every hand was returning to its place.
+One at the outer line, one in the flow of the market, one where the whole could be seen, two under the hull, one between the metal and the barrier, two between the signals and the structure, one between people and words.
+
+No one asked where to go, and no one overlapped.
+
+Dawn light began to spread over the heat layer.
+
+As he ran, Sion counted the ninth.
+
+The sun was coming up.
+
+That was what Harun had said yesterday. When the sun comes up the heat layer thickens, and thick is good for this side.
+
+Of everything Hazran had today, there was one thing that grew on its own.
+
+Sion put that one at the very top.
 
 ---
 

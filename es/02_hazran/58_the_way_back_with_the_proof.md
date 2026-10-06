@@ -2,162 +2,228 @@
 
 Separarse había sido fácil.
 
-El problema
-era sobrevivir hacia el mismo resultado incluso después de la separación.
+El problema era sobrevivir, aun separados, en dirección al mismo resultado.
 
-En cuanto cayeron las palabras de Sern, los dos aparatos empezaron a rasgar la misma línea de periferia, cada uno con una intención distinta.
+Justo después de que Sern lo dijera, los dos aparatos empezaron a rasgar la misma línea exterior, cada uno con una intención distinta.
 
-El planeador de Kael y Sern se elevó una vez, largo, hacia arriba. No tanto como para subir del todo. Pero enderezó el morro en una dirección mucho más visible que el equipo de Han Jiwoo, que abajo seguía una línea sucia. De modo que cualquiera que mirase creyera que era ese lado el que tomaba la mejor trayectoria, y que tal vez la mano que llevaba lo verdadero estuviera por allá.
+El planeador de Kael y Sern se elevó una vez, de golpe. No subió del todo. Pero levantó el morro hacia donde se le veía mucho más que a la pareja de Han Jiwoo, que iba por la línea sucia de abajo. Para que a cualquiera le pareciera que eran ellos los que iban por la mejor línea, y que quizá la mano que tenía lo verdadero fuera la suya.
 
-Al contrario, el esquife de Han Jiwoo se pegó casi al ras del suelo. Bajo las pendientes muertas y las sombras de los marcos rotos, se metía solo por los ángulos que nadie miraba de buena gana. Vista desde arriba, no parecía un camino sino una sombra. Una línea que una mano de carrera no tomaría por el puntaje, y ante la que incluso una mano que persigue dudaría al menos una vez.
+El esquife de Han Jiwoo, al contrario, se pegó casi al suelo. Bajo la pendiente muerta y las sombras de los marcos rotos, se metía eligiendo solo los sitios que nadie se molesta en mirar. Una línea que, vista desde arriba, no parecería un camino, sino una sombra. Una línea que una mano de carrera no tomaría por los puntos, y ante la que hasta una mano perseguidora dudaría al menos una vez.
 
-Sion estaba inquieto precisamente porque la diferencia era demasiado descarada.
+Precisamente porque la diferencia era tan descarada, Sion estaba inquieto.
 
-—¿Se lo van a tragar? —preguntó él en voz baja.
+—¿Se lo van a tragar?
+Lo preguntó en voz baja.
 
-Han Jiwoo respondió sin apartar la vista del frente.
+Han Jiwoo respondió mirando solo al frente.
 
-—Por ahora, sí.
+—Por ahora, se lo tragan.
 
-Antes incluso de que esas palabras terminaran, el planeador rojo oscuro acentuó de verdad su ángulo hacia el equipo de Kael, arriba.
+Antes de que terminara de decirlo, el planeador rojo oscuro, de verdad, inclinó más el ángulo hacia la pareja de Kael, arriba.
 
-Como buen equipo curtido, su decisión final fue rápida. La mano que sostenía lo verdadero se eclipsaba de la vista mientras el señuelo tomaba la línea más vistosa. En un tablero así, la gente acaba mordiendo primero lo que más se ve. El planeador rojo oscuro no había podido librarse de esa costumbre.
+Como buen equipo con oficio, decidieron rápido. La mano con lo verdadero se escabulle sin que se la vea y el cebo toma una línea algo más vistosa. En una partida así, la gente acaba mordiendo primero lo que más se ve. El planeador rojo oscuro no pudo quitarse esa costumbre.
 
-Sion expulsó el aire muy brevemente.
+Sion soltó el aire muy brevemente.
 
-Habían picado.
+Se lo habían tragado.
 
-Pero no estaba del todo tranquilo. Ese equipo no se dejaría engañar para siempre. Tarde o temprano querría volver a verificar, y si para entonces este lado no había desaparecido por completo, el tablero se estrecharía otra vez.
+Pero no se tranquilizó del todo. Ese equipo no iba a dejarse engañar para siempre. En algún momento querría volver a comprobarlo, y si para entonces ellos no habían desaparecido del todo, la partida volvería a cerrarse.
 
-—¿Cuánto aguanta? —preguntó Sion.
+—¿Cuánto aguanta?
+Lo preguntó Sion.
 
-Esta vez Han Jiwoo habló con algo parecido a una sonrisa.
+Esta vez Han Jiwoo habló casi sonriendo.
 
-—Lo suficiente para que no muramos los primeros.
+—Lo suficiente para que no muramos nosotros primero.
 
-Detrás, cubriéndolos, el planeador de Kael y Sern fingió a propósito tomar una vez más una línea que parecía viva. Kael enderezó abiertamente el aparato para ofrecer un ángulo que el planeador rojo oscuro quisiera morder, y Sern, mientras tanto, conservó solo la distancia justa para no dejarse atrapar con demasiada facilidad. Una distancia que se alejaba cuando se le pegaban y que reaparecía cuando lo soltaban.
+El planeador de Kael y Sern, que cubría la retaguardia, fingió a propósito una vez más, bien a la vista, que tomaba una línea viva. Kael levantó el aparato sin disimulo y armó un ángulo fácil de morder para el planeador rojo oscuro, y Sern, aun así, dejó solo la distancia justa para no dejarse atrapar demasiado fácil. Una distancia que se alargaba cuando intentaban pegarse y que volvía a dejarlos a la vista cuando estaban a punto de perderlos.
 
-—Tíralos un poco más —dijo Sern en voz baja—. Ahora mismo ese equipo va con la certeza por delante de la verificación.
+—Arrástrelos un poco más.
+Sern lo dijo en voz baja.
+—Ahora mismo, ese equipo va con la certeza por delante de la comprobación.
 
-Kael respondió breve.
+Kael respondió, breve.
 
-—¿Y si muerden de verdad?
+—¿Y si al final nos muerden de verdad?
 
-—Entonces aguantas.
+—Entonces aguante.
 
-Kael habló sin la menor sonrisa.
+Kael habló sin sonreír siquiera.
 
-—Buen plan.
+—Bonito plan.
 
-Pero, al contrario que las palabras, sus manos eran de una precisión exacta. No empujaba el aparato demasiado rápido, ni lo frenaba al punto de que el planeador rojo oscuro abandonara del todo. Más que hacer de señuelo, era la mano de alguien que mantenía sin descanso el desfase en la certeza del rival.
+Pero, a diferencia de sus palabras, sus manos eran muy precisas. No empujaba el planeador demasiado rápido, pero tampoco lo frenaba tanto como para que el planeador rojo oscuro se rindiera del todo. Más que hacer de cebo, era una mano que mantenía torcida, sin soltarla, la certeza del rival.
 
-Desde las gradas, Luhai reaccionó primero.
+En las gradas, Luhai fue el primero en reaccionar.
 
-—¿Por qué ese equipo sube de golpe? —dijo casi a gritos.
+—¿Por qué ese equipo sube de golpe?
+Lo dijo casi gritando.
 
-Seorin respondió sin despegar la mirada de abajo.
+Seorin respondió sin apartar la vista de abajo.
 
-—Para dejarse ver.
+—Para que los vean.
 
-Ater lo cogió al instante.
+Ater lo recogió enseguida.
 
-—Para esconder lo verdadero.
+—Para esconder lo verdadero, entonces.
 
 Seorin sonrió muy brevemente.
 
-—Por fin miramos la misma escena.
+—Por fin estamos viendo lo mismo.
 
-Ater no entró al trapo. En vez de eso, llevó la mirada más lejos. Contando las manos de fuera del terreno, engañar a un solo planeador rojo oscuro no bastaría. Lo importante era saber quién sería el primero en darse cuenta de que lo verdadero no estaba allá.
+Ater no reaccionó a eso. En cambio, miró más lejos. Contando también las manos de fuera de la arena, no bastaba con engañar a un solo planeador rojo oscuro. Lo importante era quién sería el primero en darse cuenta de que «lo verdadero no está allí».
 
-Aka, medio tapada delante de Nahira, llevaba ya un buen rato mirando la línea sucia de abajo. Esa mirada ya no seguía el resultado de una carrera. Eran los ojos de quien sabía dónde estaba lo verdadero en este instante, y que veía al mismo tiempo hacia dónde tenía que volver ese verdadero.
+Aka llevaba un buen rato mirando hacia la línea sucia de abajo.
 
-Sion no podía ver aquello. Pero, por extraño que fuera, le crecía la sensación de que lo que corrían ahora no era una simple línea de fuga, sino quizá un rodeo para volver al centro de Hazran.
+—Tienen que volver.
 
-Huir no bastaría para acabar con esto. Si habían sobrevivido con lo verdadero en la mano, tendrían que blandirlo de nuevo, al final, ante alguien.
+Ater giró la cabeza.
 
-Han Jiwoo dijo de pronto, en voz baja.
+—¿Volver adónde?
 
-—Se abre delante.
+Aka señaló el suelo bajo sus pies.
 
-Sion leyó al instante lo que tenía enfrente.
+—Aquí.
 
-Al final de la línea sucia de periferia, entre dos marcos muertos, se abría un paso estrecho. Un cruce ambiguo: se podía salir hacia la línea de recuperación del exterior del terreno, o, al contrario, volver a meterse bajo las estructuras interiores de Hazran. El frente estaba demasiado despejado y olía a mano de recuperación; la parte baja, aunque derrumbada, era una línea donde a cualquiera le costaría apostarse a esperar.
+Ater no lo entendió enseguida.
 
-—Abajo —dijo Sion enseguida—. No de frente.
+Lo de allá abajo era ahora una línea de huida. Era un ángulo para escaparse hacia fuera esquivando las manos de recuperación, y si salía bien, saldrían de la arena. Salir era vivir.
+
+—¿Y no pueden salir?
+
+—Si salen, se acabó.
+
+Lo dijo Aka.
+
+—Si salen con eso, solo lo habrán robado.
+
+Al oírlo, Seorin giró la cabeza.
+
+Aka habló sin dejar de mirar hacia abajo.
+
+—Tienen que sacarlo delante de la gente de aquí para que sea de verdad.
+
+Ater lo escuchó y no dijo nada durante un momento.
+
+Era cierto. Y precisamente por ser cierto, era malo. Sobrevivir con lo verdadero en la mano y volver a traer eso verdadero al centro mismo de Hazran eran cosas completamente distintas. Lo primero era huir; lo segundo, plantarse por su propio pie en la partida.
+
+—Eso es algo que tendrán que decidir ellos.
+
+Lo dijo Ater.
+
+—Ya lo decidieron.
+
+Así respondió Aka.
+
+Seorin miró hacia Aka.
+
+—¿Cómo lo sabes?
+
+—No van por el ángulo de salida.
+
+Seorin volvió a mirar hacia abajo.
+
+Era verdad. Los dos aparatos iban dejando atrás, una a una, las líneas que salían hacia fuera. Cada vez que pasaban junto a una, no viraban hacia ella.
+
+De pronto, Han Jiwoo habló en voz baja.
+
+—Delante se abre.
+
+Sion leyó enseguida lo de delante.
+
+Al final de la línea exterior sucia, entre dos marcos muertos, se abría un paso estrecho. Era una bifurcación ambigua: podía llevarlos a la línea de recuperación de fuera de la arena o, al contrario, devolverlos bajo las estructuras del interior de Hazran. El frente estaba demasiado ordenado y olía a manos de recuperación; la parte de abajo estaba derrumbada, pero era una línea donde a nadie le resultaría fácil esperar a propósito.
+
+—Abajo.
+Lo dijo Sion enseguida.
+—De frente no.
 
 Han Jiwoo no preguntó.
 
-Bajó aún más el esquife y lo deslizó bajo el cruce. El fondo de la coraza raspó fuerte una vez, y la placa de sustentación derecha se apagó casi como muerta antes de volver a la vida. Sion creyó por un instante que se le paraba el corazón, pero Han Jiwoo, como si hubiera calculado hasta ese último alzamiento, recolocó enseguida el centro.
+Bajó más el esquife y lo deslizó por debajo de la bifurcación. La parte baja del casco raspó con fuerza una vez, y la placa de sustentación derecha se apagó casi como muerta antes de revivir. Por un instante, Sion creyó que se le paraba el corazón, pero Han Jiwoo, como si hubiera calculado hasta ese último tirón hacia arriba, recuperó el equilibrio enseguida.
 
-—Todavía vive —dijo él en voz baja.
+—Todavía vive.
+Lo dijo ella en voz baja.
 
-Aquellas palabras parecían dirigidas al aparato tanto como a ellos mismos.
+Parecía que se lo decía al aparato, y también a ellos mismos.
 
-Arriba, el planeador rojo oscuro se había pegado por fin más hondo al equipo de Kael.
+Arriba, el planeador rojo oscuro por fin se pegó más hondo a la pareja de Kael.
 
 Esta vez pensaba morder de verdad.
 
-Su morro se hundió hacia la parte trasera del planeador de Kael, y el pasajero de atrás volvió a sacar la mano. Sern, al verlo, dijo muy breve.
+El morro se hundió hacia la parte trasera del planeador de Kael, y el de atrás volvió a sacar la mano. Al verlo, Sern habló muy breve.
 
-—Ahora, abajo.
+—Ahora, baje.
 
-Kael, como si solo hubiera esperado eso, hizo bascular el aparato hacia un lado.
+Kael, como si lo estuviera esperando, torció el planeador hacia un lado.
 
-No hacia la línea limpia de arriba, sino de un solo golpe hacia la sombra del marco roto de más allá. El planeador rojo oscuro no pudo seguir el cambio de inmediato. La distancia que creía suficiente para enganchar acababa de esfumarse.
+No hacia la línea limpia de arriba, sino de un golpe hacia la sombra de los marcos rotos de más afuera. El planeador rojo oscuro no pudo seguir el cambio de inmediato. El sitio que creía a distancia para pegarse había desaparecido de pronto.
 
-En ese instante,
-los dos equipos convergieron por fin, casi a la vez, hacia la misma periferia baja.
+En ese instante, los dos equipos por fin volvieron a reunirse, casi a la vez, en el mismo borde exterior de abajo.
 
-Sion, al ver la sombra del planeador de Kael volver a pegarse por el costado, tomó una respiración corta.
+Sion vio la sombra del planeador de Kael pegarse de nuevo a su costado y respiró, breve.
 
-Listo.
+Ya está.
 
-No los habían soltado por completo,
+No se los habían quitado de encima del todo,
 pero los habían engañado una vez,
-habían sobrevivido una vez,
-y ahora, con lo verdadero en la mano, volvían a reunirse en la misma línea.
+habían sobrevivido una vez
+y ahora, con lo verdadero en la mano, volvían a juntarse en la misma línea.
 
 Sern habló casi al mismo tiempo.
 
-—Si salimos disparados ahora, nos persiguen.
+—Si salimos ya, nos persiguen.
 
 Han Jiwoo preguntó en voz baja.
 
 —¿Entonces?
 
-—Hay que volver —respondió Sern—. Si huimos derecho hacia fuera, todo Hazran converge sobre nosotros. Pero si volvemos al tablero del centro con lo verdadero en la mano, la cosa cambia.
+—Hay que volver.
+Sern respondió así.
+—Si huimos derecho hacia fuera, todo Hazran se junta contra nosotros. Pero si volvemos a pegarnos a la partida del centro con lo verdadero en la mano, la cosa cambia.
 
-Sion, al oír esas palabras, lo entendió casi con el cuerpo.
+Sion, en cuanto lo oyó, lo entendió casi con el cuerpo.
 
-Sí.
+Era eso.
 
-Solo huir es convertirse en el ladrón que se lleva lo verdadero. Pero volver con lo verdadero en la mano es poder erguirse de nuevo como la mano que ganó el tablero.
+Si solo huían, serían ladrones con lo verdadero en la mano.
+Pero si volvían con lo verdadero, al menos podrían plantarse de nuevo como la mano que había ganado la partida.
 
-Kael dijo breve.
+Kael habló, breve.
 
-—Suena a locura, pero.
+—Suena a locura, eso sí.
 
-Seorin, leyendo el flujo de abajo, murmuró casi lo mismo.
+Seorin, mientras leía el movimiento de abajo, murmuró casi lo mismo.
 
 —Es una locura.
 
 Ater, aun así, entrecerró los ojos.
 
-Podía ser la jugada más acertada. En el instante en que salieran derecho fuera de Hazran, todas las manos de fuera del terreno convergerían en la misma dirección. Pero volver al tablero del centro significaba al menos no perder del todo las reglas. Erguirse de nuevo ante Zahir como la mano que porta lo verdadero. En esta situación, quizá fuera ese el escudo más grande.
+Podía ser la jugada más acertada.
+En cuanto salieran directamente fuera de Hazran, hasta las manos de fuera de la arena se les echarían encima, todas en la misma dirección. Pero si volvían a la partida del centro, al menos no perderían del todo las reglas. Plantarse de nuevo ante Zahir como la mano que traía lo verdadero. En esta situación, eso podía ser, al contrario, el escudo más grande.
 
-Han Jiwoo soltó una breve risa.
+Han Jiwoo soltó una risa corta.
 
-—Bien —dijo él—. Entonces volvemos a entrar.
+—Bien.
+Lo dijo ella.
+—Entonces volvamos a entrar.
 
-A Sion esas palabras le gustaron hasta un punto extraño.
+A Sion esas palabras le gustaron de un modo casi extraño.
 
-No sonaban a alguien que huye, sino a alguien que vuelve vivo con lo verdadero en el puño.
+Porque no sonaban a alguien que huye, sino a alguien que vuelve vivo con lo verdadero en la mano.
 
-Y en ese preciso instante,
-los dos aparatos empezaron a invertir por completo su dirección.
+Y en ese preciso instante, los dos aparatos empezaron a cambiar de dirección por completo.
 
-Ya no la línea de fuga hacia el exterior de Hazran,
-sino la línea de regreso hacia el centro del tablero, con la prueba en la mano.
+Ya no hacia la línea que huía fuera de Hazran, sino hacia la línea que volvía, con lo verdadero en la mano, al centro de la partida.
+
+Sion sintió con el cuerpo el cambio de dirección.
+
+Mientras se escapaban hacia fuera, había sentido frío en la nuca. Al virar hacia dentro, el frío se le pasó al frente.
+
+Al huir, bastaba con temer lo que venía detrás. Ahora tenía que temer lo que había delante. Delante estaba Hazran, y allí había más manos queriendo quitarle esto que detrás.
+
+Aun así, Sion aflojó la mano y volvió a apretarla.
+
+Temblaba menos que antes.
 
 ---
 

@@ -60,7 +60,7 @@ Ces choses semblaient demeurer quelque part dans ce corps sous forme d'image.
 
 Un enfant cessa de sangloter et murmura très bas :
 
-« Il... il nous regarde encore. »
+« Il… il nous regarde encore. »
 
 Han Jiwoo ne put pas répondre.
 

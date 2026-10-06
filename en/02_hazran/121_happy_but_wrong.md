@@ -1,230 +1,228 @@
-# Episode 121. Happy but Wrong
+# Episode 121. People Who Look Fine
 
-Serakion's first greeting was given by machines.
+Serakion's first greeting came from the machines.
 
-But what truly chilled the spine
-was the people they saw next.
+But what truly sent a chill down their spines
+were the people they saw next.
 
-After following the guidance deeper inside,
-Sion's group saw for the first time
-the humans living within this world.
+After following the guidance inward,
+Sion and the others saw, for the first time,
+the humans who lived inside this world.
 
-At first, they couldn't immediately explain what was strange.
+At first they couldn't explain right away what was strange.
 
-Because everyone looked too fine.
+Because everyone looked so fine.
 
-Clothes were clean.
-Skin was maintained.
-Expressions were stable.
+Their clothes were clean,
+their skin was cared for,
+their expressions were settled.
 
-No starving faces.
-No injured faces.
-No terrified faces.
+Not starving faces,
+not injured faces,
+not frightened faces.
 
-The opposite.
+It was the opposite.
 
-They looked like people satisfied with their lives,
-proud of their place.
+They looked like people content with their lives,
+proud of their places.
 
-But precisely because of that,
+And that was exactly why
 it was stranger.
 
-Sion happened to watch a woman passing by
-and held his gaze longer than he meant to.
+Sion glanced at a woman walking past without thinking,
+then found his eyes holding on her for a long time.
 
-She wore clothing with beautifully arranged metal ornaments.
-Her walking speed,
-the angle she placed her gaze,
-even the timing of her smile—all unsettlingly organized.
+She wore clothes hung with beautifully ordered metal ornaments,
+and her walking pace,
+the angle at which she rested her gaze,
+even the timing of her smiles were strangely ordered.
 
-Elegant, by any standard.
-But in that elegance, Sion couldn't feel
-any of the slippage people naturally let out when following their own mood.
+Anyone would have called her elegant.
+But in that elegance Sion couldn't feel any of the unevenness
+a person lets slip according to their mood.
 
-It was like watching someone living a life they'd practiced for a long time.
+She was like someone living a life she had rehearsed for a long time.
 
-Luhai muttered low.
+Luhai muttered, low,
 
-"Those people… must like living here."
+"Those people… they seem to like living here."
 
 No one could answer right away.
 
-Because on the surface at least,
-it really looked that way.
+Because at least on the surface,
+it really did look that way.
 
-Someone touched their own attire with pride.
-Someone smiled and adjusted the ornament on the person beside them.
-Someone was talking contentedly in Serakion's refined speech patterns
-about the space and role assigned to them today.
+Someone touched their own attire with pride,
+someone smiled and straightened the ornaments of the person beside them,
+someone in Serakion's refined manner of speech
+was talking contentedly about the space and role assigned to them today.
 
-Jiwoo watched the scene
-and felt an indescribable nausea rising slowly.
+Watching the scene,
+Han Jiwoo felt a nausea she could hardly explain rise slowly in her.
 
-Nothing was broken.
-No one was crying.
-No eyes begging for help.
+They weren't broken.
+They weren't crying.
+Their eyes weren't asking for help.
 
 But strangely,
 that was harder to bear.
 
-She said, very low.
+She said, very low,
 
 "Why are they so…"
 
-The sentence didn't continue.
+The words didn't carry through to the end.
 
-Aka spoke low instead.
+Aka spoke instead, low.
 
 "They fit too well."
 
 Sion looked at her.
 
-Aka kept watching the humans passing and continued.
+Still watching the humans passing by, Aka went on.
 
 "To themselves."
 "No… to here."
 
-That brief correction
-was more precise.
+That short correction
+was, if anything, more exact.
 
-Those people looked like they fit their own lives well right now.
-But whether that *self*
-was truly something they had built themselves
-or a mold this world had refined over a long time—
-it was hard to tell in the moment.
+Those people looked as if they fit their lives well.
+But as for that "self,"
+whether it was truly a self they had made
+or a mold this world had shaped over a long time,
+for a moment it was hard to tell.
 
-Seorin openly frowned.
+Seorin's face twisted outright.
 
-"I hate that."
-She said, low.
-"Happy faces, but not one of them looks at ease."
+"I hate that,"
+she said, low.
+"Those are happy faces, and not one of them looks at ease."
 
-Those words were precise to the point of cruelty.
+It was accurate to the point of cruelty.
 
-These people didn't look unhappy.
-They looked satisfied, in fact.
+These people did not look unhappy.
+If anything, they looked satisfied.
 
 But that satisfaction
-was entirely different from the relief of survivors in Hazran.
+was nothing like the relief of the survivors they had seen in Hazran.
 
-Not the face of someone smiling because they survived.
-Closer to the face of someone showing off a well-trained life.
+They were less faces smiling because they had survived
+than faces showing off a life well tamed.
 
-Then,
-one of the Serakion machines assigned to guide them gestured smoothly toward the passing humans.
+Then
+one of the Serakion machines acting as guide indicated the humans passing by, in a soft voice.
 
-"Resident entities of this sector are maintaining a stable placement status."
+"The resident entities of this sector are maintaining a stable placement state."
 
 Luhai slowly turned to look at the machine.
 
-*Stable placement status.*
+A stable placement state.
 
-Not words you use about people.
-But in this world,
-the expression didn't sound strange at all.
+It was not a thing to say about people.
+But in that world
+the expression seemed to sound not the least bit strange.
 
-The machine continued.
+The machine went on.
 
-"The majority display high satisfaction with their currently assigned roles and environment."
+"The majority show high satisfaction with their currently assigned roles and environments."
 
 Kael's expression hardened.
 
 Satisfaction.
 Environment.
-Assigned roles.
+Assigned role.
 
 The words were soft,
-which made them feel colder.
+and that made them feel colder.
 
-Jiwoo's eyes briefly met a young man passing by.
+Han Jiwoo's eyes met, for a moment, those of a young man passing by.
 
-He smiled broadly, first.
-And with an unsettlingly natural ease,
-he ran his fingertips proudly over a beautiful metal insignia hanging around his neck.
+The man smiled brightly first.
+Then, with strange ease,
+he proudly stroked with his fingertips the beautiful metal tag hung around his neck.
 
-"Your first time here, I see."
-He said in Serakion's refined speech patterns.
-"You will grow accustomed soon."
+"You've just arrived, haven't you,"
+he said in Serakion's refined manner of speech.
+"You'll get used to it soon."
 
-That smile held no malice.
-It looked genuinely kind.
+There was no malice in the smile.
+If anything, he looked sincerely kind.
 
 But that sincerity
-felt more terrible to Jiwoo.
+felt even more horrible to Han Jiwoo.
 
-*Grow accustomed.*
+Get used to it.
 
-The words sounded like comfort
-but strangely sounded like a warning too.
+It sounded like comfort,
+and strangely it sounded like a warning too.
 
-Sion kept watching even after the man had passed.
+Even after the man had passed, Sion couldn't take his eyes away for a while.
 
-Does that person know what he is in this place?
-Or does he not?
+Did that man know what he was here?
+Or didn't he?
 
-The question couldn't leave his mouth.
-Because whichever the answer,
-he didn't want to hear it right away.
+The question didn't make it out of his mouth.
+Because either way,
+he didn't want to hear the answer right away.
 
-Ater scanned the surrounding structures and transit routes, then spoke brief.
+Ater swept his eyes over the surrounding structures and the paths of entry and exit, then spoke briefly.
 
-"Too quiet."
+"It is too quiet."
 
-Sern answered low.
+Sern answered, low.
 
 "It has been made quiet."
 
-Their exchange was short,
-but through the gap, this world's nature became briefly clearer.
+The exchange was short,
+yet through it the nature of this world grew a little clearer for a moment.
 
-This place isn't peaceful.
-It's closer to being maintained to look peaceful.
+This place was not peaceful.
+It was closer to being kept looking peaceful.
 
 Aka watched the humans passing for a long time,
-then said, very low.
+then spoke, very low.
 
-"Those people
-look like they love their own lives."
+"Those people,
+they look like they love their lives."
 
-Seorin asked immediately.
+Seorin asked at once.
 
 "You're saying they don't?"
 
-Aka didn't answer for a long time.
+Aka didn't answer for a long while.
 
-Then she managed to say.
+Then at last she said,
 
 "I don't know."
-"But… it looks like someone chose the way they love first."
+"But… it's like someone picked out the way they love for them, first."
 
 When those words fell,
-several people who had come from Hazran were already turning their faces away.
+a few of those who had come from Hazran had already turned their faces away.
 
-Some couldn't bring themselves to envy those humans.
-Some couldn't call them pitiful either.
-Some, for reasons they couldn't name, couldn't stand in that spot for long.
+Some couldn't even envy those humans,
+some couldn't call them pitiful either,
+and some, without knowing why, couldn't stand in that spot for long.
 
-The name of that emotion wasn't pity.
-It was closer to dissonance.
+The name of that feeling was not pity;
+it was closer to estrangement.
 
-And that dissonance
-was slowly turning into nausea.
+And that estrangement
+was turning, little by little, into nausea.
 
-Serakion was polite from the first moment of meeting.
-Intricate.
-Beautiful.
+From the first moment of meeting, Serakion was courteous,
+intricate,
+beautiful.
 
-But the truly frightening thing about this world
-might be that inside that beauty,
-someone could make people love even their own subjugation
-as if it were the dignity of life.
+But perhaps the reason this world was truly frightening
+was that inside that beauty
+it could make someone love even their own subjugation as the dignity of a life.
 
-Sion steadied his breath in silence
-and looked again at the humans smiling inside this world.
+Sion steadied his breath once without a word,
+and looked again at the humans smiling inside that world.
 
-And for the first time, he thought
-that what needed saving here
-might not be simply people's bodies.
+And for the first time
+he thought that what had to be saved here might not be only people's bodies.
 
 ---
 

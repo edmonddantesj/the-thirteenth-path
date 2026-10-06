@@ -1,136 +1,267 @@
 # Chapitre 88 — Les premiers qui furent envoyés dehors
 
-Dire *un combat pour les évacuer* et commencer réellement à envoyer quelqu'un en premier sont deux choses entièrement différentes.
+Parler d'un combat pour faire partir les gens, et commencer réellement à faire sortir quelqu'un en premier, ce n'est pas du tout la même chose.
 
-La différence se lit d'abord dans les yeux des gens.
+La différence se voit d'abord dans les yeux des gens.
 
-Après que les mots de Zahir furent tombés — tirez d'abord les gens de l'intérieur — un très bref tremblement parcourut l'intérieur d'Hazran.
+Après qu'on eut annoncé qu'on ferait d'abord sortir ceux de l'intérieur, un très bref frisson parcourut l'intérieur de Hazran. Un frisson où montaient en même temps sur les visages la faible lueur de pouvoir vivre et le sombre calcul de savoir, alors, qui resterait.
 
-La faible lueur de *nous pouvons vivre* et le sombre calcul de *alors qui reste* montèrent sur les visages au même instant.
+En le voyant, Sion se dit que c'était maintenant que le plus dur commençait vraiment.
 
-Sion le regarda et pensa que la partie la plus difficile commençait maintenant.
+Empêcher l'ennemi d'entrer, c'est une peur parmi d'autres. Mais dès qu'on commence à fixer l'ordre entre ceux qui vivront et ceux qui resteront, la peur devient soudain bien plus humaine, et bien plus cruelle.
 
-Empêcher l'ennemi d'entrer est une forme de peur. Mais dès que l'on commence à fixer l'ordre entre ceux qui vivent et ceux qui restent, la peur devient soudain bien plus humaine et bien plus cruelle.
+Nassim commença à trier les gens et à les mettre en file.
 
-Zahir n'hésita pas.
+« Les enfants d'abord. Les blessés, ceux qui ont les mains lentes, ceux qui ne peuvent pas travailler à l'intérieur. »
 
-« Les enfants d'abord, » dit-il à voix basse. « Les blessés. Ceux dont les mains sont lentes. Ceux qui ne peuvent pas travailler à l'intérieur. »
+Sa voix était déjà éraillée, mais elle sonnait étrangement plus ferme.
 
-Personne ne contesta.
+Lui aussi le savait. Ce n'était pas une affaire d'organisation : c'était faire un ordre, même s'il fallait pour cela déchirer le cœur des gens.
 
-Les mots qui décident qui doit vivre en premier sont toujours cruels, mais ici, ils étaient trop justes pour qu'on les conteste.
+En l'aidant, Sion remarqua une chose.
 
-Nassim commença aussitôt à trier les gens.
+Nassim comptait. Il tenait deux comptes séparés.
 
-« Vous, prenez les deux enfants et restez dans la ligne intérieure. »
+« Vous en êtes à combien ? »
+Sion avait posé la question.
 
-« Toi, recule. »
+« Trente-deux dans la file. »
 
-« Non, c'est pas le moment de pleurer. Bougez. »
+« Et ceux qui sont partis ? »
 
-Sa voix était déjà rauque, mais elle sonnait étrangement plus dure.
+« Aucun. »
 
-Il le savait. Ce n'était pas de l'organisation. C'était la tâche de donner des ordres même quand ces ordres déchiraient le cœur des gens.
+Sion s'arrêta un instant.
 
-Luhai rassembla d'abord trois enfants.
+« Personne n'est encore parti ? »
 
-L'un retenait ses larmes. L'autre était vide, ne comprenant pas tout à fait la situation. Le dernier ne cessait de regarder derrière lui.
+« Être dans la file et partir, ce n'est pas pareil. »
+Nassim poursuivit :
+« Le vaisseau n'a pas encore décollé. »
 
-Luhai ne put plaisanter comme à son habitude. Au lieu de cela, d'une voix étrangement calme, il dit :
+Ce n'est qu'en entendant cela que Sion comprit ce qu'il s'était imaginé.
 
-« Les yeux en avant. Pour le moment, vraiment, avancez. »
+Mettre les gens en file devant la rampe, ce n'était pas les sauver. C'était se préparer à les sauver. Les trente-deux qui se tenaient là étaient encore dans Hazran, et si cet endroit cédait, ils mourraient ensemble, la file entière.
 
-À cette seule phrase, les trois enfants tournèrent la tête.
+« Alors pourquoi les aligner à l'avance ? »
+
+« Parce que si on les rassemble au moment où le vaisseau décolle, c'est trop tard. »
+Nassim continua :
+« Et puis les gens ne bougent que s'ils voient une file. »
+
+C'était vrai. Depuis que la file existait, l'air de l'intérieur avait nettement changé. Tout à l'heure, tout le monde était collé aux murs ; maintenant, tout le monde regardait vers cette file.
+
+Rien que de la regarder, les gens revivaient un peu.
+
+Et en même temps, rien qu'en la regardant, chacun savait à quel rang il était.
+
+Luhai rassembla d'abord trois petits enfants.
+
+L'un retenait ses larmes,
+l'autre, sans bien comprendre ce qui se passait, restait hébété,
+et le dernier ne cessait de se retourner.
+
+Luhai n'arriva pas à plaisanter comme d'habitude. À la place, il parla d'une voix étrangement calme.
+
+« Regardez devant vous. Là, maintenant, regardez seulement devant. »
+
+À ces seuls mots, les trois enfants tournèrent vraiment la tête.
+
+En voyant la scène, Sion buta sur un détail étrange. Luhai, lui, ne s'était pas mis dans la file. Il avait placé les trois enfants et s'était écarté sur le côté.
+
+« Et toi ? »
+
+« Mes mains ne sont pas lentes. »
+C'était Luhai.
+
+« Ce n'est pas ça, le critère. »
+
+« Si, c'est ça. »
+Luhai insista :
+« C'est exactement ce qu'a dit Nassim. Ceux qui ont les mains lentes. Moi, elles ne le sont pas. »
+
+Sion comprit que le gamin était en train de fixer son propre prix. Un enfant qui a grandi à Hazran ne laisse pas les autres fixer son prix à sa place. C'était ce que cette ville lui avait appris, et en cet instant, cela agissait de la façon la plus cruelle qui soit.
 
 Seorin tenait la file des blessés.
 
-Elle n'offrit aucun réconfort. À la place, elle trancha froidement — quel bras passer par-dessus quelle épaule pour aller plus vite, qui ne pouvait pas marcher seul, quels bagages devaient être abandonnés sur-le-champ.
+Elle ne consolait personne. À la place, elle tranchait froidement : quel bras passer par-dessus quelle épaule pour aller plus vite, qui ne pouvait pas marcher seul, quels bagages il fallait abandonner sur-le-champ.
 
-« Laisse ça et pars. »
-
-« Si vous ne restez pas debout maintenant, couchez-vous avec eux. »
-
+« Lâche ça et avance. »
+« Si tu ne te tiens pas debout maintenant, tu finiras couché avec eux. »
 « Tu peux marcher ? Alors marche. »
 
-Cela semblait cruel, mais Sion le savait. C'était la manière de Seorin de donner le meilleur d'elle-même.
+Cela sonnait cruel, mais Sion le savait. C'était la meilleure façon de faire, à la manière de Seorin. Quand il faut sauver des gens, des mots vaguement doux ne font que les ralentir.
 
-Quand on doit sauver des gens, des mots vaguement doux ne font que les ralentir.
+Puis quelqu'un refusa de bouger.
 
-Sion courut de nouveau entre la ligne intérieure et la première ligne défensive.
+C'était un vieil homme. Ses jambes étaient intactes, pourtant il recula d'un demi-pas hors de la file. Quand Seorin voulut le prendre par le bras, il retira sa main.
 
-Qui manquait. Si le chemin était libre. Combien de temps supplémentaire l'équipe d'Haroun pouvait encore gagner. Il vérifiait sans cesse et transmettait à Zahir.
+« Moi, derrière. »
 
-Le champ de bataille et la ligne d'évacuation se confondaient désormais entièrement.
+« Pourquoi ? »
 
-Haroun se tenait toujours au bout du couloir d'appât malgré tout cela.
+« Si je me mets là devant, il y en a un qui recule d'une place. »
 
-Quand l'ennemi commence à chercher des chemins vides, quelqu'un doit rester là en feignant que celui-ci est le bon. C'était le rôle d'Haroun, en ce moment.
+Seorin ne répliqua pas tout de suite.
 
-Il jeta un bref coup d'œil en arrière.
+Ce fut Sion qui répondit à sa place.
 
-« Combien. »
+« Personne ne recule. La file fera onze tours. »
 
-Sion répondit aussitôt.
+Le vieil homme regarda Sion.
 
-« Premier groupe, cinq. »
+« Les onze tours, ils se feront tous ? »
 
-Haroun hocha la tête.
+Sion ne put pas répondre.
 
-« Une fois que cinq sont sortis, groupe suivant. »
+Ça, c'était valable si le vaisseau pouvait décoller onze fois. Pour gagner le temps de faire passer une seule file, Haroun avait usé d'un coup toute une barricade à trois rangs. Pour faire passer onze files, il faudrait en faire onze. Avec quoi on ferait les dix qui restaient, personne ne l'avait dit.
 
-Ces mots étaient si neutres que Sion sentit sa poitrine se serrer davantage.
+Le vieil homme lut la réponse sur le visage de Sion.
 
-Parce que cela signifiait que pour faire sortir cinq personnes, cet homme tiendrait encore une fois son poste sans le quitter.
+Puis il alla se placer derrière, sans plus.
 
-Ater et Sern, de part et d'autre du couloir, ne raisonnaient plus désormais qu'en termes de *combien ralentir* plutôt que de *bloquer*.
+« Hé. »
+Seorin l'avait interpellé.
 
-« Deux à gauche — feinte, » dit Ater à voix basse. « Le vrai, c'est l'unité isolée derrière. Elle va pivoter à droite. »
+« Laisse. »
+L'homme poursuivit :
+« Ça fait quarante ans que je vis ici. Si un type qui a vécu quarante ans passe devant un type qui a vécu quarante jours, le prix n'y est pas. »
 
-Sern bougea aussitôt.
+Cette fois, Seorin ne le retint pas.
 
-Malgré sa blessure, il usa de son corps plus brièvement, plus précisément qu'avant. Au lieu d'une entrée profonde : deux frappes courtes et un retrait immédiat. L'autre côté commençait à lire les mouvements de Sern — rester plus longtemps était devenu l'option la plus dangereuse.
+C'est cela qui parut encore plus étrange à Sion. Seorin était de celles qui sauvent les gens, quitte à les pousser. Mais là, elle n'avait pas poussé.
 
-Une fois. Deux fois.
+« Pourquoi tu ne l'as pas retenu ? »
 
-Chaque fois que la lame touchait une ligne d'accouplement, la progression des androïdes perdait un infime élan. Ces battements isolés rachetaient, en cet instant, quelques pas de plus aux gens de l'intérieur.
+« Si je le retiens, il le regrettera une fois là-bas. »
+Seorin poursuivit :
+« Là, il vient de fixer lui-même son rang. Si on lui prend ça, il ne lui reste plus rien. »
 
-Dans la section intérieure, Jiwoo finit par se relever du côté de la coque.
+Ces mots restèrent longtemps accrochés en Sion.
 
-Ce n'était pas tout à fait prêt. Mais au moins, on avait atteint un état permettant d'embarquer des gens.
+Cette ville mettait un prix sur les gens. Mais cet homme venait de fixer lui-même son prix, et Seorin n'y avait pas touché.
 
-Elle essuya la sueur du revers de la main et regarda vers Zahir.
+Ici, c'était peut-être la dernière chose qu'une personne pouvait posséder.
 
-« Un premier embarquement est possible, » dit-elle à voix basse.
+Nassim regarda de ce côté et, sans un mot, traça quelque chose sur sa plaque. Sion ne demanda pas ce que signifiait cette marque.
 
-Lorsque ces mots tombèrent, l'air à l'intérieur d'Hazran frémit autrement.
+« Trente et un dans la file. »
+C'était Nassim.
 
-Trop lourd pour qu'on appelle cela de l'espoir. Trop tardif pour qu'on parle de secours. Mais c'était clairement le genre de mots qui font réellement bouger les gens.
+Un de moins.
 
-Aka effleura la surface de la coque du bout des doigts et parla très bas.
+Et ce chiffre-là, c'était quelqu'un qui était sorti de lui-même d'une place où il aurait pu vivre.
 
-« Il est toujours cassé. »
+Pour la première fois, Sion détesta un chiffre.
 
-Jiwoo répondit.
+Puis les trente et un premiers se mirent en marche.
 
-« Nous aussi. »
+De la tente intérieure à la section de coque, ce n'était pas loin. Une centaine de pas. Seulement, sur ces cent pas, trente étaient sans toit. Quand la ligne centrale du marché s'était effondrée, tout ce qui la recouvrait s'était écroulé avec elle.
 
-Des mots brefs. Mais étrangement, Sion sentait qu'ils resteraient longtemps.
+Nassim se plaça en tête de la file.
 
-Zahir parla aussitôt.
+« À partir d'ici, on ne court pas. »
 
-« Envoyez le premier groupe. »
+« C'est plus rapide de courir, non ? »
+Quelqu'un avait posé la question.
 
-À cet instant, Luhai poussa les enfants vers l'avant. Seorin tira un autre blessé plus loin à l'intérieur. Sion courut vérifier de nouveau les sentiers vides. Nassim, extirpant la dernière personne restante, cria presque.
+« Si tu cours, ceux de derrière courent aussi. »
+Nassim poursuivit :
+« Et alors on tombe. Si on tombe, la file s'arrête, et si la file s'arrête, tout le monde reste planté ici. »
 
-Pour la première fois à Hazran, quelqu'un commençait à être envoyé dehors.
+Sion savait qu'il avait raison, et pourtant ses pieds le démangeaient. Trente pas sans toit, rien qu'à les regarder, c'était long.
 
-Pas encore tout à fait parti. Pas encore fini.
+La file se mit en route.
 
-Mais à partir de ce moment, la bataille avait clairement changé.
+Le vent passa par-dessus. Le sable qui ne cessait d'entrer par l'effondrement se souleva d'un coup sous le ciel béant, et le dos de la personne devant se brouilla un instant.
 
-La défense ne consistait plus simplement à bloquer l'ennemi. Elle existait désormais pour faire passer les gens, un par un, hors du champ de bataille.
+« Bien. »
+Nassim avait parlé bas.
 
-Et ce changement alourdit un peu les épaules de ceux qui resteraient à Hazran.
+Sion le regarda.
+
+« Ça, c'est bien ? »
+
+« La poussière nous couvre, non ? »
+
+Ce n'est qu'alors que Sion comprit. L'absence de toit ne voulait pas dire seulement qu'on les voyait, eux. En face aussi, il fallait les mesurer. Et maintenant, entre les deux, flottait la poussière gris-brun.
+
+Hazran cachait ses gens avec la poussière née de son propre cœur tranché.
+
+Vers le milieu de la file, un enfant ralentit le pas. C'était celui des trois confiés par Luhai qui n'arrêtait pas de se retourner. Cette fois encore, il se retourna.
+
+« Je t'ai dit de regarder devant. »
+
+La voix de Luhai venait de derrière. Il ne s'était pas mis dans la file, mais il marchait avec elle, le long de son flanc.
+
+« Le monsieur ne vient pas. »
+C'était l'enfant.
+
+« Il suit. »
+
+« Il ne vient pas. »
+
+Luhai resta un moment sans répondre.
+
+« Alors il faut que tu sois parti devant, pour qu'il ait une place où venir derrière. »
+
+Ce n'était pas un mensonge. Ce n'était pas la vérité non plus. L'enfant y crut à moitié et regarda de nouveau devant lui.
+
+Seorin, à côté, l'entendit et dit très bas :
+
+« Tu te débrouilles bien. »
+
+« Je ne me débrouille pas du tout. »
+C'était Luhai.
+
+Les trente pas prirent fin. La file entra dans l'ombre de la section de coque, et au moment où la dernière personne passa sous le toit, Sion s'aperçut qu'il retenait son souffle.
+
+Personne n'avait été touché.
+
+Cette fois.
+
+Sion resta là et regarda de nouveau les trente pas qu'ils venaient de traverser.
+
+Des empreintes restaient au sol. Trente et une paires, toutes tournées dans le même sens, et déjà une fine couche de poussière commençait à s'y déposer. Quand la file suivante sortirait, ces traces ne se verraient plus.
+
+Sion ne savait pas si c'était une bonne ou une mauvaise chose.
+
+Si on ne les voyait plus, en face non plus on ne pourrait pas les lire. Mais si on ne les voyait plus, il ne resterait nulle part la moindre trace que trente et une personnes étaient passées par ici.
+
+« La prochaine file, elle sort quand ? »
+Sion avait posé la question.
+
+« Quand le vaisseau aura pris du monde. »
+Nassim répondit, puis ajouta :
+« Vingt à la fois, on l'a dit, non ? »
+
+« Il en est arrivé trente et un. »
+
+« Donc onze attendent ici. »
+
+Sion regarda ces onze-là. C'étaient des gens qui venaient de traverser avec les autres les trente pas. Ils avaient traversé ensemble, mais vingt monteraient et onze resteraient. Une file venait de naître à l'intérieur de la file.
+
+« Ces onze-là, ils seront les premiers la prochaine fois ? »
+
+Avant de répondre, Nassim jeta un bref coup d'œil à sa plaque.
+
+« Ça, on verra à ce moment-là. »
+
+Sion comprit ce que voulait dire cette réponse. Si la prochaine fois il y avait des gens plus pressés, ces onze reculeraient encore. Ici, l'ordre ne se fixait pas une fois pour toutes : il se refixait à chaque fois.
+
+Dans une ville où les prix se refixaient sans cesse, l'ordre des gens roulait de la même façon.
+
+Nassim traça une marque de plus sur sa plaque.
+
+« Trente et un arrivés. »
+Il ajouta :
+« Mais il n'y en a encore aucun de parti. »
+
+Sion avait envie de le corriger. Trente et une personnes venaient de traverser trente pas sans toit. Ce n'était pas rien.
+
+Mais Nassim avait raison.
+
+Tant que le vaisseau n'aurait pas décollé, tous ceux qui étaient ici étaient encore dans Hazran.
 
 ---
 

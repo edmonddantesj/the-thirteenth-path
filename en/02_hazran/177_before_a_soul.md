@@ -1,122 +1,193 @@
-# Episode 177. Before a Soul
+# Episode 177. One Word
 
-While the last android held on alone, every gaze inside the old layer inevitably returned to him.
+While the last android held on alone,
+every gaze in the old layer could only turn back to him in the end.
 
-Serakion's force kept pushing in. He had already been shaving his own body down across multiple collisions to block the waves.
+Serakion's legion kept pushing in,
+and he had already been whittling his own body away again and again to stop that wave.
 
-But strangely, people's gazes were no longer resting only on how much longer he could last.
+But strangely,
+people's eyes no longer stayed only on "how much longer can he hold."
 
-They were shifting toward something stranger and more frightening.
+They were moving somewhere stranger than that,
+somewhere more frightening.
 
-What, exactly, was that being becoming right now.
+What, exactly,
+was that being becoming now?
 
-Sion could not bring himself to voice the question.
+Sion couldn't bring himself to say the question aloud.
 
-Because the change unfolding in front of him was the kind that would slip away the instant a name was carelessly given.
+Because the change happening up ahead
+was the kind he felt he would lose the moment he carelessly put a name to it.
 
-The last android made two Serakion units cross each other's paths again and precisely broke the center axis of a third that tried to cut through the gap.
+Once again the last android sent two Serakion units crossing into each other,
+then broke, precisely, the central axis of a third unit driving in between them.
 
-The movements grew shorter. Less hesitation. Increasingly the kind that arrived before explanation.
+His movements grew shorter,
+lost more of their hesitation,
+and were becoming something that reached you before any explanation could.
 
-One of the children watching, barely swallowing sobs, said in the smallest voice.
+One of the children watching
+barely swallowed a sob and said, in a very small voice,
 
-"It... must hurt."
+"He… must be hurting."
 
-The words were so small that at first it seemed only a few people heard.
+The words were so small
+that at first only a few people seemed to hear them.
 
-But strangely, that single line felt as though it spread through the entire room.
+But strangely,
+that one word felt as if it spread through the whole room.
 
-Jiwoo raised her head. Sion held his breath. Even the old machines seemed to pause for a moment.
+Han Jiwoo lifted her head.
+Sion stopped breathing.
+Even the old machines seemed to go still for a moment.
 
-It must hurt.
+Must be hurting.
 
-The words were too simple. And precisely because of that, they struck where no one could avoid.
+The words were so simple.
+But that was exactly why
+they struck the place no one could dodge.
 
-Until now, people had seen those beings as strong. As strange. As changing.
+Until now people had seen
+that they were strong,
+that they were strange,
+that they were changing.
 
-But that child, for the first time, saw the being as something that could hurt.
+But that child was the first
+to see that being *as something that could be in pain*.
 
-That was not analysis. Not judgment. Not explanation.
+It wasn't analysis,
+it wasn't judgment,
+it wasn't explanation.
 
-It was a word that reached directly to the living side.
+It was simply words that went straight to the living part.
 
-And almost in the same instant, the last android's movement wavered, very briefly.
+And at almost the same moment,
+the last android's movement wavered, very briefly.
 
-One Serakion unit's arm scraped deep across its side. Metal tore. Light rippled. The body was pushed back half a step.
+A Serakion unit's arm raked deep across his side and went past.
+Metal tore,
+light rippled,
+and his body was pushed back about half a step.
 
-Sion could not be certain in that moment whether it was truly coincidence.
+In that moment,
+Sion couldn't be sure whether it had really been chance or not.
 
-But Jiwoo was different. The instant she saw that brief waver, her eyes went wide.
+But Han Jiwoo was different.
+The moment she saw that brief waver,
+her eyes went wide.
 
-It heard.
+He heard.
 
-The words did not leave her mouth, but they were clearly written across her face.
+The words never left her mouth,
+but they were plainly written on her face.
 
-The last android steadied its body again.
+The last android straightened again.
 
-And looked back very briefly. Truly, very briefly.
+And very briefly,
+truly very briefly, he looked behind him.
 
-At the end of that gaze was the child who had spoken those words.
+At the end of that look
+was the child who had said those words.
 
-A face cried out. Eyes that, even terrified, were still watching. And a young face that had considered, too naturally, that someone could be in pain.
+A face worn out from crying.
+Eyes that were terrified and still kept looking his way.
+And a young face that had found it so natural
+that someone could be hurt.
 
-The pause lasted an instant. But Sion felt strangely that the fraction was larger than any movement before it.
+The stillness lasted an instant.
+But strangely, to Sion,
+that split second felt bigger than any movement before it.
 
-That was a confirmation. Or something that went slightly deeper inside than confirmation.
+That was a check.
+Or else,
+it was something a little further in than a check.
 
-Serakion's force did not miss the gap. Two units pushed in simultaneously.
+Serakion's legion did not miss the opening.
+Two units pushed in at once.
 
-But this time, the last android's response was different too.
+But this time,
+the last android's response was different too.
 
-It did not sever immediately like before. First it twisted its body further inward, fully covering the direction where the children stood behind.
+He didn't cut them down right away as before.
+First he turned his body further in,
+completely covering the direction where the children were, behind him.
 
-Then took the hit head-on.
+And he took them head-on.
 
-The crash was loud. The remaining shoulder axis twisted deeper. One optical eye barely lit for a long while.
+The collision rang out loud.
+What was left of his shoulder axis twisted deeper,
+and one optical eye could barely come on for a while.
 
 The children swallowed their screams.
 
-But through all of it, he did not retreat a single step.
+But even then,
+he did not give a single step.
 
-Sion watched with his breath caught.
+Watching it, Sion felt his breath catch hard.
 
-That being was no longer simply learning how to fight. It was learning where to spend its own body.
+That being was no longer just learning how to fight.
+He was learning where to spend his own body, too.
 
-And the criteria were becoming clearer and clearer.
+And the measure for it was growing clearer and clearer.
 
-What stands behind. What cannot be left. What is crying. What saw him as something that could hurt.
+What was behind him.
+What couldn't be left behind.
+What was crying.
+What had seen that he was hurting.
 
-In that moment, Jiwoo felt something she had been pressing down inside for a long time keep rising to just beneath her lips.
+In that moment Han Jiwoo felt
+a word she had kept pressed down inside her for a long time
+rising again and again to just beneath her lips.
 
-Not yet. Still too early. Still cannot be called carelessly.
+Not yet.
+It was still too early.
+She couldn't call him that lightly yet.
 
-But she also could not keep enduring with entirely different words forever.
+But even so,
+she couldn't keep holding out with nothing but other words, either.
 
-One old machine murmured very low.
+One of the old machines muttered, very low,
 
-"...It hears."
+"…He hears."
 
-No one asked who the words were for.
+Who it was meant for,
+no one asked.
 
-Because everyone in the room was feeling the same thing: that one child's single line might have truly reached the last android.
+Because everyone in the room
+was feeling that the child's one word just now
+might truly have reached the last android.
 
-A child's word. It must hurt.
+One child's words.
+Must be hurting.
 
-Short and small. Not enough to change the battlefield's direction. But it seemed to have remained like a ripple inside at least one being.
+That short, small remark,
+even if it couldn't turn the course of the battle,
+seemed to have stayed, at least, like a ripple inside one being.
 
 The last android moved again.
 
-Rougher this time. More desperate. Sparing its body even less.
+This time he was rougher,
+more desperate,
+sparing his own body even less.
 
-But strangely, that made it more clear.
+But strangely,
+that made it clearer.
 
-That was no longer command execution. It was response. It was choice. It was movement toward something no one had yet dared to name.
+That was no longer carrying out orders.
+That was a response,
+a choice,
+a movement toward something no one yet dared to name.
 
-Sion watched and thought.
+Sion watched it and thought.
 
-Perhaps the first thing to arrive is not a grand declaration. Perhaps from the moment someone considers you capable of pain, something has already begun.
+Maybe what reaches first isn't some grand declaration.
+Maybe the moment someone thinks you might be hurting,
+something has already begun right there.
 
-And that fact left no one inside this old layer a way back to how things were before.
+And that fact
+left no one in the old layer
+a way back to how things had been.
 
 ---
 

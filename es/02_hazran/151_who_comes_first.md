@@ -3,7 +3,7 @@
 La primera vez que el plan de rescate salió de la forma de las palabras
 fue la noche siguiente.
 
-El grupo de reconocimiento y las máquinas de recuperación
+El grupo de reconocimiento y las manos de recuperación
 eligieron, dentro del estrato oculto, una de las rutas más estrechas y menos usadas en mucho tiempo,
 y empezaron a ajustar la velocidad real de movimiento y el tiempo de cierre.
 
@@ -17,7 +17,7 @@ Por eso, esta vez Kael los hizo mover el cuerpo antes que la palabra.
 
 —Otra vez —dijo bajo.
 
-La segunda máquina de recuperación se movió primero,
+La segunda mano de recuperación se movió primero,
 Han Jiwoo fue detrás,
 y Ater se apartó hacia la línea lateral medio paso tarde.
 
@@ -51,7 +51,7 @@ Sin apurarse demasiado,
 sin que resultara demasiado torpe,
 solo lo justo para confundir, una sola vez, la reacción de la máquina de al lado.
 
-La primera máquina de recuperación, al verlo, dijo muy bajo.
+La primera mano de recuperación, al verlo, dijo muy bajo.
 
 —Eso colaría.
 
@@ -82,7 +82,7 @@ Nadie respondió.
 Porque esas palabras significaban
 que había niños que no podría traer en el primer rescate.
 
-La primera máquina de recuperación habló muy despacio.
+La primera mano de recuperación habló muy despacio.
 
 —Primero hay que demostrarlo.
 Que se puede sacar.
@@ -109,7 +109,7 @@ Kael trazó tres líneas cortas en el suelo.
 Segundo, el niño cuya mano o mirada reacciona a un estímulo externo.
 Tercero, el niño que, al correr, no derrumbe toda la fila.
 
-La segunda máquina de recuperación dijo bajo.
+La segunda mano de recuperación dijo bajo.
 
 —El último criterio es el más doloroso.
 
@@ -173,11 +173,11 @@ Todo se calculaba como números,
 pero lo que había dentro era, al final, el cuerpo de las personas.
 
 Tras repetirlo unas cuantas veces,
-la segunda máquina de recuperación dijo muy bajo.
+la segunda mano de recuperación dijo muy bajo.
 
 —Tres.
 
-Todos la miraron.
+Todos lo miraron.
 
 —El primer límite son tres —dijo—.
 Cuatro si sale bien.

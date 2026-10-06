@@ -22,7 +22,7 @@ Han Jiwoo, sin apoyarse en la pared, habló simplemente de pie.
 por qué hasta ahora solo se ha podido traer a unos pocos,
 por qué basta un pequeño error para que mueran todos juntos.
 
-Aquellas palabras no empezaron como un ataque contra las máquinas de recuperación.
+Aquellas palabras no empezaron como un ataque contra las manos de recuperación.
 Al contrario, por ser demasiado exactas,
 dolían más.
 
@@ -36,9 +36,7 @@ y un solo movimiento errado pliega juntos a humanos y a máquinas.
 Todo eso ya lo había visto con los ojos,
 y lo había sufrido en el cuerpo.
 
-—Pero.
-—volvió a decir—.
-Aun así, con el pecho no lo entiendo.
+—Pero —volvió a decir—. Aun así, con el pecho no lo entiendo.
 
 Esa frase partió la sala en dos.
 
@@ -49,7 +47,7 @@ por qué nosotros tenemos que aguantar lo siguiente con unos pocos que vuelven v
 
 La última frase sonó casi como un reproche a sí misma.
 
-Han Jiwoo no estaba ahora culpando a las máquinas de recuperación ni a las máquinas viejas.
+Han Jiwoo no estaba ahora culpando a las manos de recuperación ni a las máquinas viejas.
 Al contrario, estaba más cerca del lado más terrible.
 
 Ella sabía por qué los humanos se derrumbaban así,
@@ -157,7 +155,7 @@ esperamos de nuevo por los siguientes,
 perdemos a otros,
 y aguantamos el próximo?
 
-Esta vez la primera máquina de recuperación no pudo responder.
+Esta vez la primera mano de recuperación no pudo responder.
 
 Ni Kael,
 ni Ater,
@@ -186,8 +184,10 @@ siempre queda alguien.
 
 En esas palabras, antes que la lógica, estaba la esencia.
 
-Todos, hasta ahora,
-habían pensado solo en dónde sacar a la gente, a cuántos traer, cómo no morir, cómo ganar el siguiente compás.
+Hasta ahora, lo que todos habían contado eran cuatro cosas.
+Dónde sacar a la gente, a cuántos traer,
+cómo no morir, cómo ganar el siguiente compás.
+De ahí no habían pasado.
 
 Pero Luhai simplemente
 preguntaba por qué seguían buscando la respuesta solo dentro de esa estructura.
@@ -205,8 +205,7 @@ Más exacto,
 no pudo ocultar que esa frase encajaba demasiado rápido dentro de él.
 
 —Sacar solo a la gente frente al orden es,
-al final, aguantar aceptando el orden.
-—dijo muy bajo.
+al final, aguantar aceptando el orden —dijo muy bajo.
 
 Kael también alzó la mirada.
 
@@ -246,7 +245,7 @@ volvemos a mirar una y otra vez hacia fuera.
 
 Esa frase se clavó de manera distinta en todos los que estaban en aquella sala.
 
-Para las máquinas de recuperación,
+Para las manos de recuperación,
 en el sentido de que lo que habían venido haciendo no estaba mal, pero quizá no bastaba.
 
 Para Han Jiwoo,
@@ -272,7 +271,7 @@ Aún faltaba demasiado.
 
 Pero al menos,
 ahora, al pensar en lo siguiente,
-la respuesta que aparecía en la cabeza ya no era solo «¿a cuántos más sacamos?».
+la respuesta que aparecía en la cabeza ya no era solo *¿a cuántos más sacamos?*.
 
 Quizá por primera vez,
 empezaban a mover el corazón

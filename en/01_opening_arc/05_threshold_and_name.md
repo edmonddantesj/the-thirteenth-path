@@ -1,291 +1,336 @@
 # Episode 05. Threshold and Name
 
-The R-12 debris access bridge stood the way a long-closed road should — pushing people away from the start.
+The R-12 Debris Access Bridge stood the way a road closed long ago should, built from the start to push people away.
 
-The official guide lights had been dead for ages; in their place, temporary seal markers layered over one another. Access prohibited. Structural instability. Possible residual record contamination. Any one of those would be enough to turn someone back, but Sion had long learned that the more signs there were, the more likely the inside needed looking.
+The official guide lights had been dead for years, and in their place temporary blockade markers were stuck on, layer over layer. No entry, structural instability, possible residual record contamination. Any one of them would have been enough to turn a person back, but Sion had often found that the more signs like that there were, the further in you had to look.
 
-On the side of the lock mechanism, a fresh scratch remained.
-Not a door long shut — a door someone had recently forced open and closed again.
-Sion traced the grain with his fingertips, then immediately crouched low.
+He had already read the marks on the outer latch. What Sion was looking at now was the inside.
 
-"External lock is dead."
+He crouched and slid his fingertips into the groove, and caught a second latch hooked in there. Far cruder than the outer one. It hadn't been there originally; someone had added it later.
 
-Seorin asked from behind.
+"The outer lock's dead."
+
+Seorin asked from behind him.
 
 "Good news?"
 
-"No. Someone re-latched it from the inside."
+"No. Someone re-locked it from the inside, makeshift."
 
-"Worse."
+"That's worse."
 
-Sion exhaled short.
-Inside the lock groove, two scratches of different gauge were layered together. One was the trace of a cheap port-side breaching tool; the other was far more precise. Both had tried to open this door. And one of them had clearly gone in.
-Not the hand of someone merely hiding — closer to the hand of someone who could not carry everything inside out at once, so they closed it again and held.
+Sion let out a breath.
+Inside the lock groove, two scratches of different gauges were mixed together. One was the trace of a cheap port opening tool; the other was far more precise. Both had tried to open this door. And one of the two had definitely gone through it.
+It looked less like a hand that had gone in just to hide, and more like a hand that couldn't carry off everything left inside in one go, so it had shut the door again and held out.
 
-He drew a thin access pin from his recovery pocket and slid it into the lock groove.
-Seorin immediately widened her peripheral scan. The railing below, the upper bridge above, the dead surveillance lens mounted on the side wall. Both of them were entering the zone where words grew scarce.
+He took a thin access pin from his retrieval pocket and slid it into the lock groove.
+Seorin widened her watch at once. The railing below, the connecting bridge on the level above, even the dead surveillance lens on the side wall. Both of them were entering the stretch where words grow fewer.
 
-From inside the metal, the faintest vibration traveled up to his fingertips.
-The circuit he'd thought dead had not fully cooled.
+A very fine vibration rose from inside the metal into his fingertips.
+The circuit he had taken for dead hadn't fully gone cold.
 
-"If it opens?"
+"And if it opens?"
 
 Seorin asked.
 
 Sion answered without raising his head.
 
-"If someone's alive inside, person first. If not, records first."
+"If someone inside is alive, we look at the person first. If not, we find the record first."
 
-"What if both."
+"And if it's both."
 
 "Then it gets more annoying."
 
-*Click.*
+A click.
 
-One inner latch released first.
-Then, with a low metallic sound, the door shifted open by about two finger-widths. Through the gap, along with the smell of old dust, one more familiar scent seeped out.
+One inner latch gave first.
+Then, with a very low metallic sound, the door slid out about two finger joints. Through the gap, along with the smell of old dust, one more familiar smell seeped out.
 
-Char.
+Something burnt.
 
-Sion and Seorin locked eyes at the same time.
-It was the same family as the scent from the recovered item earlier. Old but not fully dead — the smell left behind by a trace deliberately erased.
+Sion and Seorin's eyes met at the same moment.
+It was the same family of smell they had caught on the retrieved item earlier. Old, but not entirely dead: the smell left behind by a trace someone had erased on purpose.
 
-The instant Sion moved to push the door wider, a voice dropped from the railing above.
+Just as Sion went to push the door wider, a voice dropped from the railing above.
 
 "Stop there."
 
-Both looked up at once.
+They both looked up at once.
 
-At the edge of the upper bridge's shadow, two people stood.
-One was a man in a black coat; the other, half a step behind, was already reading the surroundings first. Not port workers, not brokers, not civilian guards. Too composed a stride. The air of people who had arrived neither too late nor too early.
+Two people stood at the end of the upper connecting bridge's shadow.
+A black coat, and someone half a step behind it. The two they had brushed past on the mooring level had come all the way here. Sion also understood that they hadn't lost their way once getting here.
 
-Seorin cursed low.
+Seorin swore under her breath.
 
-"Nice. An even more annoying scent just arrived."
+"And here comes the more troublesome scent."
 
-Sion looked up without taking his hand off the door.
+Sion looked up, his hand still on the door.
 
-"Not Alliance outer-route administration."
+"That's not the Alliance Outer Route Administration."
 
 "I can see that too."
 
-The man on the upper railing stepped one pace forward.
-Under the port light, the face that emerged was excessively composed. Too much so for this city's air. But precisely that much — the feeling of someone who had stood inside order for a long time.
+The man at the upper railing stepped forward.
+The face the port lights showed was excessively ordered. So much that it didn't fit the air of this city. But by exactly that much, it gave the sense of someone who had stood a long time inside order.
 
-Ater Valkar looked down and spoke.
+Ater Valkar spoke, looking down.
 
-"That door has entered the Empire Approval Bureau's confirmation line."
+"That door is currently under an Empire Approval Bureau confirmation line."
 
-Sion gave the briefest laugh at that.
+Sion laughed at that.
 
-"The confirmation line was late."
+"Your confirmation line's late."
 
-Sern's gaze drove into him immediately.
-The tone was light, but the man standing before the door had already read more than half the lock mechanism. Not a simple field hand.
+Sern's gaze fixed on him at once.
+The tone was light, but the man at the door had already read more than half the lock. He was no ordinary field laborer.
 
-Ater regarded Sion briefly, then shifted his gaze to Seorin beside him.
-One reads traces first; the other watches where the person will break. The impression from the distance had not been wrong.
+Ater looked at Sion a moment, then moved his gaze to Seorin beside him as well.
+One who read the traces first, one who first saw the point where a person would give way. That was how they stood. The impression from that distant glimpse had not been wrong.
 
-"Are you with the Alliance outer-route administration."
+"Are you with the Alliance Outer Route Administration?"
 
-This time Sion did not answer immediately.
-Instead he looked once at the darkness through the door gap, once at the black coat on the railing above, alternating.
+This time Sion didn't answer right away.
+Instead he looked once at the dark in the gap of the door, once at the black coat at the railing above, in turn.
 
-"You're Empire Approval Bureau, I take it."
+Name an affiliation here and it went into the Empire's records. One field officer standing at the scene with a rejected request in hand, one assistant who existed only on paper. It wouldn't take long for those two lines to find their way back to the Administration.
+
+"Guess you're the Empire Approval Bureau."
 
 "Answer the question."
 
-Sern's voice was low but edged.
+Sern's voice was low, but it had an edge.
 
-Seorin cut in immediately.
+Seorin cut in at once.
 
-"Nice. Show up late, stand at the door, and start the interrogation."
+"Nice.
+Show up late, plant yourselves at the door, and open with an interrogation."
 
 Sern looked at her.
-Seorin did not look away.
+Seorin didn't look away.
 
-"This location is currently a sealed zone."
+"This location is currently a closed zone."
 
 "We can read too."
 
-"And you were entering regardless."
+"You read it and still tried to go in?"
 
-"You're here too."
+"You came too."
 
-Short silence.
+A short silence.
 
-Sion was already reading the grain of the two above from those few words alone.
-The one in front was speaking the language of authority. The one behind was more dangerous. The kind that read movement before orders. Neither belonged in this city, which made them more suspect.
+From just those few short lines, Sion was already running quickly over the grain of the two above.
+The man in front spoke the language of authority. The one behind was more dangerous. The kind who read movement before orders. Neither of them fit this city, and that made them more suspicious.
 
 Ater spoke again.
 
-"Recent entry traces have been detected from inside the door. Opening it carelessly is dangerous."
+"Recent heat traces have been detected inside the door.
+Opening it recklessly is dangerous."
 
-Sion caught the scent seeping through the gap again.
-Char, old dust, the faint trace of ozone. And very faintly — air like body heat that had not fully cooled.
+At that, Sion drew in the smell seeping through the gap again.
+Something burnt, old dust, a faint brush of ozone. And, very slight, air like body heat that had not yet fully cooled.
 
-"That's exactly why we open it faster."
+"Which is why we open it faster."
 
-Ater's gaze shifted, barely.
+Something in Ater's eyes shifted, very slightly.
 
-"On what grounds."
+"On what grounds do you say so?"
 
-Sion lifted his head and looked at him directly.
+This time Sion raised his head and looked straight at him.
 
-"Someone was inside. Recently."
+"Someone was inside.
+Not long ago, either."
 
-The air on the upper railing paused.
-Sern reacted before Ater.
+The air at the upper railing stopped for a moment.
+Sern reacted before Ater did.
 
-"Why do you judge that."
+"What makes you judge that?"
 
-"The char is fresh. The dust isn't only dead inward — it's been pushed outward once more. And above all—"
+"The burnt smell's fresh.
+The dust hasn't just died down inward, either. It got pushed back out one more time.
+And most of all—"
 
-Sion paused, then tapped the door's edge with his fingertips.
+Sion paused, then tapped the edge of the door with a fingertip.
 
-"Someone re-latched it from the inside. Whether they fled or hid — it means they were alive."
+"Someone locked it again from the inside.
+Whether they ran or hid, it means they were alive."
 
-Seorin's face said *here we go again*, but she did not stop him. When Sion spoke in that tone, he was usually not wrong.
+Seorin made her here-we-go-again face but didn't stop him. When Sion talked in that tone, he usually wasn't wrong.
 
-Ater looked down in silence for one beat.
-The field assessment itself was sound. The problem was that the person making it was far too fast on the scene side. An Alliance outer-route administration operative could read traces. But at this level, the man was practically judging by scent.
+Ater kept looking down and was silent for a beat.
+The field judgment itself was sound. The problem was that the person making it was far too quick on the field's side. An Alliance Outer Route Administration field officer could read traces. But at this level, he was nearly judging by scent.
 
-Sern asked low.
+Sern asked, low.
 
-"Sir."
+"My lord."
 
-Ater answered without withdrawing his gaze.
+Ater answered without drawing back his gaze.
 
-"We go down."
+"We are going down."
 
 Seorin frowned at that.
 
-"Nice. So now the four of us open the door together in friendship?"
+"So now the four of us open the door together, nice and friendly?"
 
-Sion muttered.
+Sion muttered, low.
 
 "That's even worse."
 
-It did not take long for Ater and Sern to reach the lower level.
-Up close, Ater was even more sharply composed than he'd appeared from above. Black coat, neat gloves, quiet eyes. Sion, by contrast, was messier; Seorin looked sharper.
+It didn't take long for Ater and Sern to reach the lower level.
+Up close, Ater was an even more distinctly ordered person than he had seemed from above. Black coat, neat gloves, quiet eyes. Sion, by contrast, looked scruffier, and Seorin sharper.
 
-It felt like people from opposite worlds standing before the same door.
+It felt like people from opposite worlds standing at the same door.
 
-When Sern stepped forward to check the lock mechanism, Sion shifted a step and a half sideways, blocking him.
+When Sern stepped up first to check the lock, Sion moved a step and a half sideways and blocked him.
 
 "I was looking at that first."
 
 Sern's gaze thinned.
 
-"And yet you have not managed to open it."
+"Is that why it is still not open?"
 
-Seorin cut in immediately.
+Seorin cut in at once.
 
-Seorin clicked her tongue.
+"We could open it, and we didn't. If someone's inside, the speed you open the door is the speed you kill them."
 
-Sion smirked.
+Sern didn't argue. Instead he looked at the lock again. One latch was already undone.
 
-"Polished people always have pretty words."
+Sion gave a short laugh.
 
-Ater watched the two of them briefly, then said, very low.
+"Ordered people always talk pretty."
 
-"Right now, what is inside takes priority over words."
+Ater looked between the two of them for a moment, then said, very low,
 
-That single sentence settled the air slightly.
-It was a statement asserting authority, but at least it came from someone with no intention of dragging out a pointless standoff.
+"Right now, what is inside comes before words."
 
-Sion looked at the door, looked at Ater, looked at the door again.
+That one sentence put the air a little more in order.
+It was a line that put authority forward, but at least it was the line of someone with no intention of dragging out a pointless squabble.
 
-"…Fine. But when it opens, I make the first call on what's inside."
+Sion looked at the door for a moment, at Ater, then at the door again.
 
-Sern was about to object, but Ater spoke first.
+"…I'll open it.
+But I make the call on the inside first."
 
-"Agreed. But if records come out, my side sees them as well."
+Sern was about to object at once, but Ater spoke first.
 
-Seorin muttered.
+"Very well.
+But if a record turns up, my side sees it as well."
 
-"Already splitting the plate."
+Seorin muttered under her breath.
+
+"Splitting the take already."
 
 Sion pretended not to hear and turned back to the door.
-Sern also stepped back this time, positioning himself to read the surroundings and whatever stirred beyond the door instead. Strangely, though the four had just met, each already stood where they ought to be.
+This time Sern too stepped back a pace and took up the post of reading the surroundings and whatever stirred beyond the door. Strangely, the four had only just come together, yet each already stood where they belonged.
 
-Sion pushed the access pin deeper into the lock.
-This time, from the other side, Ater drew out a wrist terminal and temporarily woke the dying circuit. When the old approval structure and the field breaching tool meshed by force, an irritable tremor spread through the lock mechanism.
+Sion slid the access pin deep into the lock again.
+This time, from the other side, Ater took out his wrist terminal and woke the dying circuit for the moment. As an old approval structure and a field opening tool were forced to bite down together, a nervous trembling spread through the lock.
 
 "I really don't like this combination."
 
 Seorin muttered.
 
-Sern answered almost simultaneously.
+Sern answered almost in the same breath.
 
 "Agreed."
 
-The two glanced at each other.
-That brief eye contact alone was enough for both to know the other was not to be taken lightly.
+The two looked at each other for a moment.
+That brief meeting of eyes was enough for both of them to know the other was no pushover.
 
-*Click.*
-This time, two inner latches released at once.
+A click.
+This time two inner latches gave at once.
 
 The door opened slowly.
 
 Inside was darker than expected.
-A collapsed access corridor, severed wiring, old record cases scattered across the floor, and black scorch marks running along the walls. Someone had tried to burn records here, or burned them and left, or both.
+A collapsed access passage and severed wiring, old record cases scattered across the floor, and black soot left along the walls. Someone had tried to burn records here, or burned them and left, or both.
 
-Sion stepped inside first.
-The dust underfoot had not fully settled — he could feel it.
+Sion stepped in first.
+The dust at his toes felt as if it had not yet fully settled.
 
-Seorin followed directly behind, and Ater and Sern entered side by side after them.
+Seorin backed him up from right behind, and Ater and Sern followed in side by side.
 
-Deep inside the corridor, before a half-open preservation room door, something was leaning against the floor.
+Deep in the passage, in front of a half-open preservation room door, something was slumped against the floor.
 
-A person.
+It was a person.
 
-Everyone stopped at once.
+Everyone stopped moving at once.
 
-Sion reached them first.
-A worn work coat, blood dried on the shoulder, shattered storage capsule fragments in one hand. But breath was already gone. The face was half-charred, and at the corner of the mouth, dried blood remained in a thin line.
+Sion was first to go closer.
+A worn work coat, a shoulder crusted with dried blood, the shards of a broken storage capsule in one hand. But there was no breath left in him. Half the face was scorched, and dried blood stayed in a line at the corner of the mouth.
 
 Seorin said, very low.
 
-"Too late."
+"We're too late."
 
-Ater looked at the floor around the body before the body itself.
-Drag marks, knee impressions, the trace of someone who tried to close the door in a rush and failed. This was not a simple killing scene — it was a place where someone had tried to leave something behind until the very end.
-A place where someone had taken, someone had left, and someone had tried to bury what remained.
+Sion looked once more at the stiffened shoulder. The blood had dried black. The warmth leaking through the door gap hadn't come from this body.
 
-Sern scanned the inside of the preservation room and said briefly.
+"He's not the one who locked it."
 
-"It has not been fully emptied."
+Ater looked at the floor around the body before he looked at the body.
+Drag marks, the imprint of knees, the traces of a failed attempt to shut the door in a hurry. This was not a simple murder scene; it was a place where someone had tried to the very end to leave something behind.
+It was also a place where someone had taken, someone had left, and someone had tried to bury again what was left.
 
-Sion was carefully trying to extract the capsule fragment from the dead hand when he stopped.
-Below the fragment, black ash was packed thick into the fingers.
-Not the hand of someone who had touched fire — **the hand of someone who had gripped a record until the moment it burned.**
+Sern scanned the inside of the preservation room and said,
 
-And beneath that hand, on the floor, a single thin record-plate fragment reflected light, barely.
+"It has not been fully emptied yet."
 
-Sion picked it up.
+Sion started to ease the capsule shards out of the dead hand, carefully, then stopped.
+Under the shards, the fingers were packed with black ash.
+Not a hand that had touched fire, but a hand that had held on to the end to a record about to burn.
 
-A severed sentence. Edges killed by flame. A carved-out signature line.
-And this time, more remained than before.
+And under that hand, a thin fragment of record panel lying on the floor caught the light, very faintly.
 
-Ater's gaze fell onto the fragment as well.
-Seorin and Sern held their breath at the same time.
+Sion lifted it.
 
-In the center of the fragment, between fire and blade marks — a few characters of a name that could not, in the end, be erased.
+Severed sentences, edges killed by fire, a carved-out signature line.
+And this time, more of it remained than before.
+
+Ater's gaze fell on the fragment too.
+Seorin and Sern held their breath at the same moment.
+
+In the middle of the fragment, between the scorch and the knife cuts,
+a few letters of a name that could not be erased in the end were left.
 
 **… Jun Aste…**
 
-In that moment, the air inside the corridor seemed to stop whole.
+At that moment it felt as if the air in the passage had stopped, all of it at once.
 
-Sion stared at the fragment in his hand and said nothing for a long time.
-Seorin could not speak either.
-Sern raised his head very slowly, and Ater could not take his eyes off those few letters of a name.
+All four of them knew that name.
 
-A name they had thought erased — returning, unburned to the end, from the dead archivist's final resting place.
+The one from Reading Room Seven of the Empire Approval Bureau, and the one who dug through waste at the Alliance's outer docks: both know that name. That is how burned names are. No one says them aloud, and no one forgets them.
 
-And right then, from somewhere deeper inside the preservation room, the sound of an automatic preservation device waking — very low — began to hum.
+But they did not know it the same way.
 
-## As if to say: it was not over yet.
+Sern looked at Ater first. His lordship had gone still.
+
+Then he looked at the two from below.
+
+There, he saw something out of joint.
+
+All the way here, those two had looked at each other every time they found something. At the lock. When the door opened. When they saw the body. Briefly, as if checking, every time.
+
+Now they didn't.
+
+Sion was looking down at the fragment and nothing else. Seorin stood with her head half-turned toward the wall, toward neither the fragment nor the body. There was half a step more between them than before, and even Sern hadn't seen which of them had moved.
+
+Sern called back to mind the line that had come up on the reading desk that morning.
+
+Species composition: 373.
+
+What came after that number was not written in the Bureau's papers.
+
+"My lord."
+
+"I know."
+
+Ater answered without taking his eyes off the fragment.
+
+"That is a name our side erased as well. And yet that side is quieter than we are."
+
+The name they had thought erased,
+at the dead archivist's last place,
+had come back, never fully burned.
+
+From somewhere deep in the preservation room came the very low sound of an automatic preservation device waking.
 
 ---
 

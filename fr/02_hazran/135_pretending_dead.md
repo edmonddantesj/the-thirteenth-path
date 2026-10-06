@@ -42,7 +42,7 @@ Sous tous les angles, il paraissait scellé.
 Jiwoo poursuivit, tout bas :
 
 « C'est dissimulé. »
-« Pas obstrué -- dissimulé. »
+« Pas obstrué — dissimulé. »
 
 En même temps que ces mots,
 son doigt suivit lentement une fine ligne de jonction.
@@ -160,7 +160,7 @@ Cette seule phrase suffit.
 
 Qui.
 D'où.
-Ce qu'ils faisaient là-bas -- rien de tout cela n'avait encore été dit.
+Ce qu'ils faisaient là-bas — rien de tout cela n'avait encore été dit.
 
 Mais cette seule ligne
 modifia imperceptiblement l'air de toute l'ancienne couche.

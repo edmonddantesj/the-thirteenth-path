@@ -1,93 +1,121 @@
 # Capítulo 70 — El cuerpo que aún queda por salvar
 
-Incluso después de que prendiera el primer fuego en la junta auxiliar, el trabajo de adentro no terminó ahí.
+Incluso después de que el fuego prendiera por primera vez en la junta auxiliar, el trabajo de adentro no terminó ahí. No podía terminar.
 
-No podía terminar.
+Mientras afuera terminaba el ajuste de cuentas con Harún y el aire del mercado de chatarra se asentaba, adentro se les fue casi la noche entera.
 
-Mientras afuera se cerraban las cuentas del día y el aire del mercado de chatarra se asentaba una vez, adentro se gastó casi la noche entera.
+Sion, aun con la brasa de su mano un poco retirada hacia atrás, seguía recordando aquel temblor que, hacía un momento, se había enlazado brevemente dentro del casco.
 
-Sion, con la brasa de la mano un poco recogida hacia atrás, seguía recordando aquel temblor mínimo que hacía un momento se había enlazado brevemente dentro del casco.
+Había sido muy breve y muy pequeño. Por eso era más nítido.
 
-Había sido muy breve.
-Había sido muy pequeño.
+Sion no pensaba que fuera algo nuevo. Algún punto de este casco todavía recordaba cómo pasaba.
 
-Pero por eso mismo, más nítido.
-
-Si hubiera sido falso, habría sido más vistoso. El sonido habría sido más fuerte, y la luz se habría notado más. Pero lo que acababa de ocurrir no era de esa clase.
-
-Tan pequeño que, al contrario, estaba más cerca de que algún punto de este casco todavía recordara el modo en que la corriente pasaba por él.
+Recordar quería decir que alguna vez había pasado. Después de pensarlo, Sion volvió a mirarse la mano.
 
 Han Jiwoo ya miraba lo siguiente.
 
-Iba pasando la mirada entre el interior de la junta auxiliar, la estructura del centro que aún no habían podido tocar, y el rastro mínimo de calor comido que quedaba en el molde receptor.
+Pasaba la mirada del interior de la junta auxiliar a la estructura del centro, que aún no habían podido tocar, y a la leve marca de calor absorbido que quedaba en el molde receptor.
 
-—Aquí no se puede ir más allá enseguida —dijo en voz baja.
+—No hay que ir más allá enseguida.
+Lo dijo en voz baja.
 
 Sion preguntó.
 
 —¿Por qué?
 
-—Pegarse y aguantar no es lo mismo —respondió Han Jiwoo—. Hace un momento no lo expulsó, pero eso no quiere decir que vaya a seguir aguantando.
+—Pegar y aguantar no es lo mismo.
+Así respondió Han Jiwoo.
+—Lo de antes quiere decir que no lo rechazó, no que vaya a seguir aguantando.
 
-Aka añadió en voz baja encima de aquellas palabras.
+Aka añadió en voz baja, encima de esas palabras.
 
-—Si le das más ahora, vuelve a morir.
+—Si ahora le das más, se vuelve a morir.
 
 Una frase corta.
 
-Pero Sion la entendió casi con el cuerpo. Antes también, cuando había bajado la mano apenas un poco más, la tensión entre el molde receptor y la junta auxiliar había cambiado de golpe. Había sido una diferencia mínima, y aun así, la sensación de que no se podía ir más allá estaba clara.
+Sion lo entendió con el cuerpo. Antes, cuando bajó la mano solo un poco más, lo que había entre el molde receptor y la junta auxiliar cambió de golpe. Fue una diferencia mínima, pero algo estaba claro: no había que ir más allá.
 
-Entonces lo que hacía falta ahora no era agrandar la escena del logro, sino darle tiempo a esa pequeña conexión recién viva para que no se enfriara mientras aguantaba.
+Sin darse cuenta, Sion retiró un poco la mano. Solo después de retirarla supo que lo había hecho.
 
 Han Jiwoo se inclinó más bajo el casco.
 
-—La junta auxiliar se puede salvar —dijo—. Pero para tirar hasta el centro no basta con esto. Hay que hacer otro eje que reciba el peso.
+—La junta auxiliar se puede salvar.
+Lo dijo ella.
+—Pero para tirar hasta el centro, con esto solo no basta. Hay que hacer también otro eje que reciba el peso.
 
-Aka asintió con la cabeza.
+Aka asintió.
 
-—Y hace falta más de la misma veta —dijo.
+—Y hace falta más de la misma veta.
+Lo dijo ella.
 
 Sion lo entendió enseguida.
 
-Algo como aquel trozo de eterita turbio y feo que había aguantado tanto tiempo. Material que recibiera primero el fuego pequeño, como ahora. Algo que no se podía sustituir clavando cualquier cosa.
+Algo como aquel trozo de eterita turbio y feo que, por serlo, había aguantado tanto. Material que recibiera primero el fuego pequeño. Algo que no se podía sustituir clavando cualquier cosa.
 
-—¿No hay mucho? —preguntó Sion.
+—¿No hay mucha?
+Lo preguntó Sion.
 
 Aka respondió breve.
 
-—Aquí adentro, poco.
+—Aquí adentro, poca.
 
-Aquello era, en realidad, decir que había que conseguir más afuera.
+Eso era, en la práctica, decir que había que conseguir más afuera.
 
 Han Jiwoo había llegado a la misma conclusión.
 
-—Hace falta otro molde que reciba —dijo—. Y veo dónde hay que cambiar el metal del revestimiento. Ahora aguanta por dentro, pero si se va a un nivel capaz de mover el casco, lo de afuera puede rasgarse primero.
+—Hay que hacer otro molde receptor.
+Lo dijo ella.
+—Y veo partes donde hay que cambiar el metal del revestimiento. Aunque ahora aguante por dentro, si llegamos a un nivel en que el casco se mueva, lo de afuera puede rasgarse primero.
 
 Sion volvió a mirar el casco.
 
-Lo que hasta ayer parecía apenas un cuerpo a medio morir, ahora dejaba ver, poco a poco, dónde aguantaba primero y dónde aún no podía aguantar.
+Hasta ayer le había parecido solo un cuerpo medio muerto. Ahora empezaba a ver, poco a poco, qué parte aguantaba primero y cuál todavía no podía aguantar.
 
-Y por eso, justamente, lo supo mejor.
+Como lo veía, lo supo mejor. Este no era un trabajo que fuera a terminar en uno o dos días. Lo que acababan de hacer era un comienzo, no el final.
 
-Este no era un trabajo que terminara en uno o dos días. Lo que acababan de hacer era un comienzo, no una conclusión.
+Aka no volvió a desprender el molde receptor; con cuidado, eligió fijarlo allí de forma provisional. Le añadió un hilo de unión muy débil y una fina lámina de metal, para sujetar la primera reacción recién despierta y que no se dispersara de inmediato.
 
-Aka no volvió a desprender con cuidado el molde receptor; eligió, en cambio, fijarlo provisionalmente en ese sitio. Sobreponiendo una fibra de unión muy débil y una fina lámina de metal, sostenía la primera reacción recién viva para que no se dispersara de golpe.
+—Esto se queda.
+Lo dijo ella.
+—Vamos a ver si se enfría.
 
-—Esto lo dejamos —dijo—. Vamos a ver si se enfría.
+A Sion esas palabras le pesaron de un modo extraño.
+
+Hasta ahora habían mirado si funcionaba. Ahora mirarían si se mantenía.
+
+Para saber si funciona basta una vez; para saber si se mantiene hay que seguir mirando. Si no se enfriaba en toda la noche, mañana darían un paso más; si se enfriaba, lo de hoy quedaría como si no hubiera pasado.
+
+—¿Cuánto tiempo hay que mirar?
+
+—Toda la noche.
+
+Lo dijo Aka.
+
+—¿Quién lo vigila?
+
+—No hace falta vigilarlo. Por la mañana, al tocarlo, se sabe.
+
+Sion pensó que eso daba más miedo.
+
+Mientras uno vigila, puede hacer algo. Si se enfría mientras todos duermen, nadie puede impedirlo.
 
 Han Jiwoo asintió enseguida a esas palabras.
 
-—Sí —dijo—. Ahora lo importante no es meter más, sino ver si esto de verdad aguanta.
+—Es verdad.
+Lo dijo ella.
+—Lo importante ahora no es meterle más, sino ver si esto aguanta de verdad.
 
 Sion volvió a envolver la brasa en su mano.
 
-Por primera vez pensó que este fuego también tenía que descansar. Lo había seguido sosteniendo, pero el ánimo mismo de querer acercarlo a algo, una y otra vez, podía ser, al contrario, lo más peligroso.
+Por primera vez pensó que este fuego también tenía que descansar.
+La había tenido siempre en la mano, pero las ganas mismas de acercarla a algo una y otra vez podían ser más peligrosas.
 
 Aka miró hacia Sion.
 
-—Tú también —dijo.
+—Tú también.
+Lo dijo ella.
 
-Sion volvió a preguntar.
+Sion preguntó a su vez.
 
 —¿Qué?
 
@@ -95,62 +123,113 @@ Sion volvió a preguntar.
 
 Sion se quedó un momento sin palabras.
 
-Aquellas palabras le resultaron extrañas. Desde que había entrado en Hazran hasta ahora, casi nadie le había hablado así. Casi siempre había tenido que correr más, aguantar más, decidir más rápido.
+Esas palabras le resultaron raras. Desde que había entrado en Hazran, casi nadie le había dicho algo así. Casi siempre había tenido que correr más, aguantar más, decidir más rápido.
 
-Pero Aka lo decía como si también eso fuera parte del trabajo, como si descansar fuera lo más natural.
+Aka hablaba de descansar con toda naturalidad, como si también eso fuera parte del trabajo.
 
-A su lado, Han Jiwoo rió muy bajo.
+Solo entonces Sion se dio cuenta de que Aka le había dicho lo mismo que antes le había dicho al barco.
 
-—Tiene razón —dijo—. Si ahora se te muere el tacto de la mano, lo que acabas de pegar tampoco lo vas a poder pegar la próxima vez.
+Si ahora le das más, se vuelve a morir. Si la metes directo, vuelve a quemar. Primero tiene que haber un molde receptor.
 
-Sion, ante esas palabras, soltó al fin un aliento corto.
+Lo que se decía del barco servía igual para una persona.
 
-Cierto.
+Sion supo también que no era una metáfora. Para esa niña, las dos cosas eran el mismo problema. Para salvar algo, primero no debe romperse lo que va a recibirlo.
 
-Lo que hacía falta ahora no era empujar más con valentía, sino dejar un estado en el que pudiera volver a fijar con precisión la próxima vez.
+Lo que ahora hacía de receptor para este barco era la mano de Sion.
 
-Aka dio un paso atrás desde el casco.
+Entonces también habría que ver si ese molde se enfriaba durante la noche.
 
-Y por primera vez habló como alguien que no piensa ir más allá dentro de hoy.
+A su lado, Han Jiwoo rio muy bajo.
+
+—Tiene razón.
+Lo dijo ella.
+—Si ahora se te muere el tacto de la mano, lo que pegó antes no lo vas a poder pegar la próxima vez.
+
+Ante eso, Sion acabó soltando un breve suspiro.
+
+Sion abrió y cerró la mano.
+
+Por haber estado en la misma postura desde hacía rato, tenía las yemas de los dedos algo torpes. Tocando se sabría, pero le parecía que ahora, aunque tocara, no notaría qué era distinto.
+
+Sion tocó una vez el metal de la parte baja del casco. Era un punto que había pasado mucho tiempo al aire de la noche; tenía que estar frío.
+
+Frío, estaba. Pero no sabía cuánto.
+
+Antes, cuando había puesto la mano junto a la junta auxiliar, la diferencia le llegaba por separado a cada falange. La mano sabía antes que él hasta dónde estaba revivido y desde dónde seguía muerto. Ahora la mano entera le llegaba como un solo bloque.
+
+Eso quería decir que el tacto se le había muerto.
+
+A Sion le asustó más no haberse dado cuenta por sí mismo. Si había creído que podía seguir, en realidad era porque sentía menos.
+
+Aka retrocedió un paso desde el casco.
+
+Y entonces, por primera vez, habló como alguien que no piensa ir más allá por hoy.
 
 —Hasta aquí.
 
 Fue una declaración corta, pero firme.
 
-En el instante en que Sion oyó aquello, antes que el hecho de que el trabajo de adentro se había detenido, sintió primero que ahora se había vuelto necesario lo de afuera.
+Al oírlo, Sion sintió, antes que el hecho de que el trabajo de adentro se detenía, que ahora hacía falta el afuera.
 
-Más material.
-Metal más adecuado.
-Tiempo.
-Y las manos de la gente que vivía afuera.
+Más material, un metal más adecuado, tiempo. Y las manos de la gente que vivía afuera.
 
 Han Jiwoo ya pensaba lo mismo.
 
-—Hay que ver más piezas —dijo—. Hace falta más eterita, y hay que elegir el metal que sustituya el revestimiento del casco.
+—Hay que buscar más piezas.
+Lo dijo ella.
+—Hace falta más eterita, y hay que elegir el metal que sustituya el revestimiento del casco.
 
-Aka dijo breve.
+Aka habló, breve.
 
-—En el mercado de chatarra.
+—Lo hay en el mercado de chatarra.
 
-Sion, al oír aquello, estuvo a punto de reír de un modo mínimo.
+—¿Pero no quedó todo volcado allí?
 
-Al final, otra vez afuera. Pero esta vez no salían expulsados, sino que salían para salvar.
+Lo preguntó Sion.
 
-Esa diferencia era grande.
+—Sale porque está volcado.
 
-Justo antes de cruzar el umbral de adentro, Sion miró atrás una vez.
+Lo dijo Aka.
 
-El primer molde receptor, fijado provisionalmente en la junta auxiliar. El calor mínimo que quedaba muy tenue en su interior. Y el casco, que acababa de oír que no era un cuerpo del todo muerto.
+—Si no se hubiera roto, no lo venderían.
 
-Aún quedaba lejos. Pero tampoco era algo del todo descabellado.
+A Sion le costó un poco entender aquello.
 
-Con esa sola sensación en la mano, los tres salieron de nuevo afuera.
+La arena se había roto, los dispositivos se habían arrancado, las carpas se habían venido abajo. Entonces el metal roto sale todo de golpe. Lo que hasta ayer usaba alguien, hoy sube a la tablilla de precios.
 
-El aire de afuera era más áspero que el de adentro, pero ahora esa aspereza ya no era tan abrumadora como antes.
+El metal que salvaría este barco había salido de que esa ciudad se rompiera ayer.
 
-Porque lo que había que hacer se había vuelto claro.
+A Sion eso no le gustaba. No le gustaba, pero lo necesitaba.
 
-Hazran ya no era un sitio del que partir, sino un sitio donde quedarse un poco más y reunir las cosas que salvarían este barco.
+Y a la gente de aquí ni siquiera le disgustaría. Juntar lo roto y venderlo era la forma de vivir de este sitio, y Sion lo había aprendido en esos días.
+
+Al oír aquello, Sion estuvo a punto de sonreír apenas.
+
+Al final, otra vez afuera. Pero esta vez no hacía falta cuidarse las espaldas.
+
+Justo antes de cruzar el umbral de adentro, Sion se volvió una vez.
+
+Allí estaba el primer molde receptor, fijado provisionalmente a la junta auxiliar. Por dentro le quedaba un calor muy tenue, y sobre él colgaba el casco que acababa de oír que no era un cuerpo del todo muerto.
+
+Aún faltaba mucho. Tampoco era algo del todo descabellado.
+
+Unos días antes, este barco era una carga moribunda. Arrastrarlo ya era un precio que pagar, y era algo que no se podía vender en ninguna parte.
+
+Ahora tenía una lista. Que tuviera una lista quería decir que se podía arreglar.
+
+Por primera vez desde que había entrado en Hazran, Sion repasó una lista.
+
+Otro molde receptor. Eterita de la misma veta. Metal para cambiar el revestimiento. Y unos días para conseguir las tres cosas.
+
+Era distinto de lo que contaba antes de llegar aquí. Entonces contaba cuánto quedaba. Ahora contaba qué hacía falta.
+
+Contar lo que se acaba y contar lo que hay que llenar no eran la misma cuenta.
+
+Los tres salieron de nuevo afuera.
+
+El aire de afuera era más áspero que el de adentro, pero ya no era tan desolador como antes, porque lo que había que hacer se había vuelto claro.
+
+Hazran ya no era un sitio del que irse. Se había vuelto un lugar donde quedarse un poco más y reunir lo necesario para salvar este barco.
 
 ---
 

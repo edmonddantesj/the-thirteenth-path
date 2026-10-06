@@ -1,146 +1,201 @@
 # Episode 55. The Line That Only Those Carrying Truth Could Hold
 
-The moment they slid down the dead slope as though falling, even the sound the craft made changed.
+The moment they slid down onto the dead slope, almost falling, the sound of the craft changed first.
 
-Above, sounds that still resembled an arena remained. Bursting heat, cracking glass layers, belated screams from the crowd, voices counting who had failed. But down here it was different. From here, this was not a board shown to spectators—it was a line ridden only by those who truly needed to get out alive.
+Up above there was still something like the sound of a race. Bursting heat, glass layers cracking, a crowd shouting too late, voices counting who had gone under. Down here it was different. From here on, this was not a board put on for the onlookers; it was a line ridden only by people who really meant to get out alive.
 
-Jiwoo did not force the skiff upright. Rather, she kept the half-falling angle and let the hull flow in the direction the dead slope pushed it. The right hover plate was nearly dead, and the underside kept grinding, but right now this craft was surviving not by holding on but by sliding.
+Han Jiwoo did not force the skiff to stop. Instead she let it keep the angle of a half fall and let the hull flow the way the dead slope pushed it. The right hover plate was nearly dead and the underside kept grinding, but right now the craft was not surviving by holding on; it was surviving by sliding.
 
-Sion wrapped the ember deeper in his hand.
+Sion closed his hand deeper around the ember.
 
-The real ember was still quiet. It did not flash inside his hand like a fake. It did not try to startle the one holding it. But it stayed alive. Its quiet was what made it more certain. If it survived even while dropping down this slope, it was real.
+The real ember was as quiet as ever. It did not flash in his hand like the fake, and it made no attempt to startle whoever held it. But it stayed alive. That quiet made it all the more certain. If it did not die even now, falling down this slope, then it was real.
 
-"Bend ahead."
-Sion said low.
+"It bends up ahead,"
+Sion said, low.
 
-Jiwoo answered shortly.
+Han Jiwoo's answer was short.
 
 "I know."
 
-The bottom of the slope did not look like a path. Broken outer frames, half-sunken vitrified layers, and metal debris driven into the sand tangled together so that at a glance, everything looked like a dead end. But Sion was beginning to understand how real paths formed in places like this. Not clean lines, but dirty gaps that appeared briefly beside structures that had just died. Living paths never looked good.
+The bottom of the slope didn't look like a path. Broken outer frames, half-sunken glassy layers and lines of metal wreckage stuck in the sand were tangled together, and at a wrong glance it all looked like dead ends. But Sion felt he was starting to understand a little how a real path formed in a place like this. Not a neat line, but a dirty gap that opened for a moment beside a structure that had only just died. A living path never looked good.
 
-"Not right. Down left."
-He said at once.
+"Not right. Lower left,"
+he said at once.
 "Inside the broken frame."
 
-Jiwoo tilted the skiff's nose.
+Han Jiwoo tilted the skiff's nose.
 
-Beneath the hull, the sound of metal grinding tore long. Sion nearly pitched forward, but Jiwoo did not let go. Changing direction beneath a dead slope was closer to instinct than steering. Not opening a visible path, but sliding and confirming one by one with the body which surfaces had not yet died.
+The sound of grinding metal tore out long from under the hull. Sion was nearly thrown forward, but Han Jiwoo did not let go. Changing direction at the bottom of a dead slope was closer to feel than to steering. Not turning onto a path you could see, but sliding and checking with your body, one by one, the surfaces that were not dead yet.
 
-From above and behind, the dark-red glider was descending again.
+Up behind them, the dark-red glider was coming down again.
 
-Experienced.
+It was seasoned.
 
-Even after hesitating briefly, they had not given up. But they could no longer use the bottleneck-herding method from before. Down here, bottlenecks themselves did not last long. So that team now closed more openly. Instead of blocking ahead, they angled to scrape alongside when the skiff changed direction and knock the ember loose.
+It had faltered for a moment, but it had not given up. Only, it could no longer herd them into a bottleneck the way it had before. Down here, bottlenecks themselves did not hold for long. So now that team closed in more openly. Instead of blocking the way ahead, it took an angle to scrape their side as Han Jiwoo's skiff made its next turn and knock the ember loose.
 
-"This time it's the seizure angle."
+"This time they're going to grab it,"
 Sion said shortly.
 
-Jiwoo did not smile at that.
+Han Jiwoo didn't even laugh at that.
 
 "Then it's easier."
 
-Sion understood immediately.
+Sion understood what she meant at once.
 
-A herding hand was complex. But a seizing hand ultimately had to close in. The moment it closed in, a pilot like Jiwoo could read it more easily.
+A hand that herds you is complicated.
+But a hand that means to take something has to close in, in the end.
+And the moment it closes in, a pilot like Han Jiwoo finds it easier to read.
 
-On the north wide detour line, Kael and Sern's glider was genuinely merging downward.
+On the wide northern bypass, Kael and Sern's glider was truly coming down to join them.
 
-It was a far more precarious line than it had looked from above. In some ways, only a blunt glider could manage it. A thin fast craft would have had its side panel ripped off long ago, but Kael's craft, heavy and blunt as it was, bounced less on a dead slope like this.
+It was a far shakier line than it had looked from above. Some of it was possible only because the glider was so dull. A thin, fast craft would have had its side panels torn off long ago in a place like this, but Kael's craft was heavy and slow, and on a dead slope like this it bounced less for it.
 
-"I see ahead."
-Kael said low.
+"I can see ahead,"
+Kael said, low.
 
-Sern was watching simultaneously: the dirty gap Jiwoo's team was riding, the angle of the dark-red glider trailing behind, and the two shadows moving along the outer edge.
+Sern was watching three things at once: the dirty gap Han Jiwoo's pair had bitten into, the angle of the dark-red glider following after them, and the two shadows moving along outside it.
 
-"Close in now and we all get tangled."
-He said.
-"Drop one more level, then take the side line when they bend."
+"If we close in now, we will be dragged in with them,"
+he said.
+"Go down once more, and take the side line when they turn."
 
 Kael asked shortly.
 
-"We're not racing anymore either, right?"
+"We're not in a race anymore either, are we?"
 
-Sern answered very briefly.
+Sern's answer was very short.
 
-"The side carrying the real thing out is the rule."
+"Whoever carries the real thing out is the rule."
 
-That was coldly precise.
+It was coldly exact.
 
-Above the stands, the sounds calling the race's name were now smaller than the sounds asking who had grabbed the real thing. Luhai clung to the railing's edge, sweeping nearly the entire escape line with his eyes. Seorin was already reading not hands but the flow of people. Who was descending below using the race collapse as cover, who was still watching and waiting from above.
+Up in the stands, the voices asking who had picked up the real thing were now growing louder than the ones calling out race names. Luhai was pressed to the end of the railing, sweeping almost the whole breakaway line with his eyes, and Seorin was already reading not hands but the flow of people. Who was using the collapse of the race to come down, and who was still up above, watching and waiting.
 
-"Two coming down."
-Seorin said very low.
+"Two coming down,"
+Seorin said, very low.
 
-Ater asked immediately.
+Ater asked at once.
 
-"Harun's side?"
+"Are they Harun's people?"
 
-"Don't know yet."
+"Don't know yet,"
 Seorin answered.
-"But if the ember dropped below, everyone will catch the scent down there soon."
+"But if the ember's gone down there, everyone's going to catch the scent down there soon."
 
-Ater extended his gaze farther.
+Ater sent his gaze further out.
 
-That was correct. The moment the real thing broke away from the race rules, the hand holding it was pushed outside the market rules too. From here on, the hands that closed in would not be race participants but hands hunting the real thing.
+She was right.
+The moment the real thing broke out of the race rules, the hand holding it was pushed out of the market's rules along with it. From then on, the hands that closed in would not be racers but hands that were after the real thing.
 
-Nasim was still calculating. Zahir had not moved to the end.
+"Won't let go."
 
-But not moving and not watching were different things. Ater could not discard the possibility that the silence was not mere observation but the silence of a man who had not yet decided at which line to intervene.
+Aka said it.
 
-The slope beneath Sion's side shook hard once more.
+Seorin turned her head.
 
-This time not the left but the front. The floor inside the broken frame slid downward, and the metal debris stacked on it poured at once. Jiwoo did not even curse—she twisted the steering bar. The skiff, nearly lying on its side, grazed past the debris flow, and Sion clenched his entire arm to keep the ember from slipping.
+"Won't let go of what?"
 
-Right behind, the dark-red glider took the same debris flow.
+"The thing in the hand."
 
-The experienced pilot righted the hull immediately, but the rear rider shook hard once. The angle reaching to grab the skiff's side collapsed, and the glider's nose pushed outward for an instant.
+Seorin looked at Aka for a moment, then back down.
 
-Jiwoo would not miss that gap.
+From here, the skiff down below was a dot. It was not a distance from which you could see what was in a hand. All you could see was the craft lying over on its side every time it shook.
 
-She pushed the skiff not further inside but beneath a broken frame below.
+"You can see it?"
 
-Sion knew almost by instinct.
+"No."
 
-That line looked dead going down, but if it held once, there was a hole breaking out to the outer edge on the opposite side.
+Aka said so.
 
-"Does that go through?"
-He asked shortly.
+"But won't let go."
 
-Jiwoo said without smiling.
+Seorin didn't ask anything more.
 
-"If it doesn't, I'm opening it now."
+Instead, her grip on the railing tightened. If the hand down there was still holding it, then what the two who had gone down were looking for was still there.
 
-The skiff drove straight beneath the dark frame.
+Ater heard that short back-and-forth.
 
-Metal struck metal, scraping his ears. For one instant the view died completely, and the red glow of the heat layer was pushed behind. Sion held his breath and gripped the ember harder.
+"Are you sure?"
 
-And the next moment, light leaked through the outside of the dark frame.
+"I don't know."
+
+That was Aka's answer.
+
+"If they were going to let go, they'd have let go before."
+
+Nasim was still calculating, and Zahir still did not move.
+
+But not moving and missing something are different things.
+Ater could not dismiss the possibility that the silence was not mere looking-on, but the silence of a man who had not yet decided at which line he would step in.
+
+Down on Sion's side, the slope shook hard once more.
+
+This time not on the left but straight ahead. The floor inside the broken frame slid away downward, and the metal shards piled on it poured down all at once. Han Jiwoo didn't even swear; she twisted the control stick. The skiff skimmed past the edge of the falling shards, lying nearly on its side, and Sion clamped his whole arm tight so the ember would not slip from his hand.
+
+Right behind them, the dark-red glider took the same rush of shards.
+
+The seasoned pilot righted the hull at once, but the rider behind lurched hard once. The angle of the hand reaching out to grab the skiff's side fell apart, and the glider's nose was shoved outward for an instant too.
+
+There was no way Han Jiwoo would miss that gap.
+
+She did not push the skiff further in; she pushed it instead down under a broken frame below.
+
+Sion knew it almost by instinct.
+
+That line looked dead below, but if it held just once, there was a hole that let out on the far outer side.
+
+"Is it open through there?"
+he asked shortly.
+
+Han Jiwoo didn't laugh when she spoke.
+
+"If it isn't, I'll open it now."
+
+The skiff drove straight in under the dark frame.
+
+The sound of metal striking metal scraped at his ears. For an instant his sight went completely dead, and even the red light of the heat layer fell away behind them. Sion held his breath and only gripped the ember harder.
+
+And the next instant, he saw light leaking in from outside the dark frame.
 
 Alive.
 
 For now.
 
-At the same time, from the wide detour line above, Kael and Sern's glider began aligning alongside that lower exit.
+At the same time, Kael and Sern's glider, up on the wide bypass, began to draw level with the exit below.
 
 Sern saw it first.
 
-"Now."
-He said low.
+"Now,"
+he said, low.
 
-Kael let the glider's full weight carry it down beneath the dead frame on the outer side. Not exactly the same line, but once they cleared the exit, the angle would merge them onto the same outer line as Jiwoo's team.
+Kael put the glider's full weight into it and dropped down under the dead frame on the outer side. It wasn't exactly the same line, but it was an angle that would merge with Han Jiwoo's pair onto the same outer line once they came out of the exit.
 
-Behind, the dark-red glider was biting a line again. But the ease from the start was gone. One had vanished beneath the dark frame. The other was descending from above and merging. By now, even deciding who to block first had to be done fast.
+Behind them, the dark-red glider had bitten onto the line again too.
+But it no longer had the ease it had at the start. One had vanished under the dark frame, and the other was coming down from above to join it. At this point it had to decide fast even which one to stop first.
 
-Sion felt it and drew a short breath.
+Sion felt that, and caught his breath for a moment.
 
-Finally, the two were joining.
+As he caught his breath, he looked at his hand first.
 
-Jiwoo and Sion. Kael and Sern.
+He hadn't opened it once since earlier. The gaps between his fingers were slick with sweat and the lower knuckles were numb. The numbness had started after he'd clamped his whole arm around it when the frame shook hard.
 
-The two teams called separately before this race had begun were now gathering on the same direction, carrying the real thing, on an escape line outside the game.
+Letting go would make it easier.
 
-And from that moment, the board surrounding the ember would grow larger still.
+Sion thought it once and erased it. Erasing it took no time at all.
+
+Something was coming down from above.
+
+At first he thought it was wreckage. Wreckage doesn't hold an angle like that.
+
+It was Kael's glider. Sern was riding behind him.
+
+Neither of them came inside the race line. They were coming down on the outer side, and that was a place where no points were counted.
+
+"Jiwoo,"
+Sion said.
+"Over there."
+
+Han Jiwoo was already looking.
 
 ---
 

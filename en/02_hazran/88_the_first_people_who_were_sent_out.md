@@ -1,198 +1,267 @@
 # Episode 88. The First People Who Were Sent Out
 
-When you only say *a fight to send them out*,
-and when you actually start sending someone first—
-those are completely different things.
+Calling it a fight to send people out, in words only, and actually starting to send someone out first were nothing alike.
 
-The difference
-shows first in people's eyes.
+The difference showed first in people's eyes.
 
-After Zahir's words dropped—pull people from the inside first—
-a very brief tremor ran through Hazran's interior.
+After the word came down that the people inside would be pulled out first, a very brief tremor ran through the inside of Hazran. A tremor in which the faint light of a chance to live and the dark calculation of who, then, would stay rose onto the same faces in a single instant.
 
-The faint light of *we can live*
-and the dark calculation of *then who stays*
-rising onto faces at the same instant.
+Watching it, Sion thought that from here on it would really get harder.
 
-Sion watched it
-and thought the truly harder part starts now.
+Stopping the enemy from coming in was one kind of fear. But once you began deciding the order of who would live and who would stay, fear suddenly became far more human, and far crueler.
 
-Blocking the enemy from entering is one kind of fear.
-But once you begin setting the order of who lives and who remains,
-fear suddenly becomes far more human and far more cruel.
+Nasim began sorting people and standing them in place.
 
-Zahir did not hesitate.
+"Children first. The injured, the slow-handed, anyone who can't do the work inside."
 
-"Children first."
-He said, low.
-"Wounded. Those with slow hands. Those who cannot work inside."
+His voice was already hoarse, yet it sounded strangely firmer.
 
-No one argued.
+He knew it too. This was not tidying up; it was work where you had to make an order even if it tore people's hearts.
 
-Words that decide who should live first are always cruel,
-but in this situation, they were too right to fight.
+Helping him, Sion noticed one thing.
 
-Nasim began sorting people immediately.
+Nasim was counting. He was counting two things separately.
 
-"You—take the two kids and stick to the inner line."
-"You, fall back."
-"No, there's no time to cry. Move."
+"How many now?"
+Sion asked.
 
-His voice was already hoarse,
-but it sounded strangely harder for it.
+"Thirty-two standing in line."
 
-He knew too.
-This wasn't organizing.
-This was work that required making an order even if it tears people's hearts.
+"And how many have gone out?"
 
-Luhai gathered three children first.
+"None."
 
-One was holding back tears.
-One was blank, not fully understanding the situation.
-The last one kept looking behind.
+Sion stopped for a moment.
 
-Luhai couldn't joke like he usually did.
-Instead, in a voice strangely calm, he said.
+"Not a single one has gone out yet?"
 
-"Eyes forward."
-He said.
-"Right now, really just forward."
+"Standing in line and going out are different,"
+Nasim said.
+"The ship hasn't lifted yet."
 
-At that one line,
-all three children actually turned their heads.
+Only after hearing that did Sion realize what he had been getting wrong.
 
-Seorin was holding the line of wounded.
+Standing people in front of the ramp was not saving them. It was getting ready to save them. The thirty-two standing there were still inside Hazran, and if this place broke, they would die together, the whole line.
 
-She didn't offer comfort.
-Instead she cut through it cold—whose arm goes over whose shoulder for speed,
-who can't walk alone,
-what luggage needs to be dropped right now.
+"Then why stand them up early?"
+
+"Gather them the moment the ship lifts and it's too late,"
+Nasim said.
+"And people only move once they see a line."
+
+That was true. Since the line had formed, the air inside had clearly changed. Until a moment ago everyone had been pressed to the walls; now everyone was looking toward that line.
+
+Just looking brings a person a little back to life.
+
+And at the same time, just looking tells them which number they are.
+
+Luhai gathered three little children first.
+
+One was holding back tears,
+one did not properly understand what was happening and stood blank,
+and the last one kept looking back.
+
+Luhai could not joke the way he usually did. Instead he spoke in a strangely calm voice.
+
+"Look ahead. Right now, really, look only ahead."
+
+At those words alone the three children really did turn their heads.
+
+Something about the scene snagged on Sion. Luhai had not stood in that line himself. He stood the three children in it and slipped off to the side.
+
+"What about you."
+
+"My hands aren't slow,"
+Luhai said.
+
+"That's not the standard."
+
+"It is the standard,"
+Luhai said.
+"Exactly what Nasim said. The slow-handed. I'm not slow."
+
+Sion knew the kid was setting his own price right now. A child raised in Hazran did not leave his price to anyone else. That was what this city taught, and at this moment it was working at its cruelest.
+
+Seorin was holding the line of the injured together.
+
+She offered nothing like comfort. Instead she cut it all down coldly: whose arm went over whose shoulder to be fastest, who could not walk alone, which bag had to be dropped right now.
 
 "Leave that and go."
-"If you don't stand now, you lie down with them."
+"Don't stand up now and you'll be lying down with them."
 "You can walk? Then walk."
 
-It sounded cruel,
-but Sion knew.
-That was Seorin's version of doing her best.
+It sounded cruel, but Sion knew. That was Seorin's way of doing her best. When you have to save people, vaguely soft words only make them slower.
 
-When you need to save people,
-vaguely gentle words only slow them down.
+Then one person did not move.
 
-Sion ran between the inner line and the first defensive line again.
+An old man. His legs were sound, but he stepped half a step back out of the line. When Seorin went to take his arm, he pulled his hand away.
 
-Who was missing.
-Whether the path was clear.
-How much more time Harun's side could buy.
-He kept checking and passing it to Zahir.
+"Me, at the back."
 
-The battlefield and the evacuation line
-were now completely overlapping.
+"Why."
 
-Harun was still standing at the end of the bait corridor through all of it.
+"If I stand up there, someone gets pushed back."
 
-When the enemy starts looking for empty paths,
-someone has to stand there pretending that path is the right one.
-That was Harun's role right now.
+Seorin did not answer that right away.
 
-He glanced back briefly and asked.
+Sion spoke instead.
 
-"How many."
+"No one's getting pushed back. The line goes around eleven times."
 
-Sion answered immediately.
+The old man looked at Sion.
 
-"First group, five."
+"It goes around all eleven?"
 
-Harun nodded.
+Sion could not answer.
 
-"Once five are out, next group."
+That held only if the ship could lift eleven times. To buy the time to move one line, Harun had spent a three-line barrier whole, once. To move eleven lines, something like that had to be made eleven times. No one had said what the remaining ten would be made of.
 
-Those words were so flat
-that Sion felt his chest tighten more.
+The old man looked at Sion's face and heard the answer.
 
-Because it meant that to pull five people out,
-that man would stand at his post one more time without abandoning it.
+Then he went straight to the back.
 
-Ater and Sern, on both sides of the corridor,
-were now fighting entirely in terms of *how much to slow* rather than *block*.
+"Hey,"
+Seorin called.
 
-"Two on the left—false advance."
-Ater said, low.
-"The real one is the single unit behind. It will swing right."
+"Leave it,"
+the man said.
+"I've lived here forty years. If a man who's lived forty years stands ahead of one who's lived forty days, the price doesn't add up."
 
-Sern moved immediately.
+This time Seorin did not hold him.
 
-Despite his wound, he used his body shorter and more precise than before.
-Instead of one deep entry,
-two short cuts and an immediate pullout.
-Because the other side was beginning to read Sern's movement now,
-staying longer had become the more dangerous option.
+That struck Sion as stranger. Seorin was the kind who saved people even if she had to shove them. But just now she had not shoved.
 
-Once.
-Twice.
+"Why didn't you hold him?"
 
-Each time the cutting tool caught a coupling line,
-the android line lost speed by the faintest margin.
-Those single beats
-were saving a few more footsteps of the people inside right now.
+"Hold him and he regrets it once he's at the back,"
+Seorin said.
+"Just now he set his own place in the order. Take that from him and he has nothing left."
 
-In the inner section,
-Jiwoo finally rose from beside the hull.
+Those words took Sion a long time.
 
-It wasn't fully ready to depart.
-But at least now
-it had reached a state that could carry people.
+This city put a price on people. But just now that man had set his own price, and Seorin had not touched it.
 
-She wiped sweat with the back of her hand and looked toward Zahir.
+Here, that seemed like the last thing a person could own.
 
-"First boarding is possible."
-She said, low.
+Nasim looked that way and, without a word, scratched something onto his slate. Sion did not ask what the mark meant.
 
-When those words fell,
-the air inside Hazran trembled differently for once.
+"Thirty-one standing in line,"
+Nasim said.
 
-Too soaked to call hope.
-Too late to call relief.
-But it was clearly
-the kind of words that made people actually move.
+One fewer.
 
-Aka touched the hull surface once with her fingertips
-and spoke, very low.
+And it was a number made by one man walking out of a place to live, on his own feet.
 
-"It is still broken."
+For the first time, Sion hated the number.
 
-Jiwoo answered.
+And the first thirty-one moved.
 
-"So are we."
+From the inner tents to the hull sections was not far. A hundred steps or so on foot. Only, thirty of those hundred steps had no roof. When the central market line collapsed, what had covered them had come down with it.
 
-Short words.
-But strangely, Sion felt they would stay a long time.
+Nasim stood at the head of the line.
 
-Zahir spoke at once.
+"From here, don't run."
 
-"Send the first group."
+"Running's faster, isn't it?"
+someone asked.
 
-That moment,
-Luhai pushed the children forward.
-Seorin pressed one more wounded person further inside.
-Sion ran to check the empty paths again.
-Nasim, pulling out the last remaining person, nearly screamed.
+"Run and the ones behind run after you,"
+Nasim said.
+"Then they fall. When they fall, the line stops, and when the line stops, everyone ends up standing here."
 
-For the first time in Hazran,
-someone was actually beginning to be sent outside.
+Sion knew that was right, and still his feet itched. Thirty steps with no roof looked long just to look at.
 
-Not fully departed yet.
-Not over yet.
+The line set off.
 
-But from this moment,
-the battle had clearly changed.
+The wind passed over it. The sand that kept coming in from the collapsed place rose high once under the open sky, and the back of the person ahead blurred for a moment.
 
-Defense was no longer simply about blocking the enemy.
-It existed now for the purpose of passing people, one by one, beyond the battlefield.
+"Good,"
+Nasim said, low.
 
-And that shift
-was making the shoulders of those who would remain in Hazran
-a little heavier.
+Sion looked at him.
+
+"This is good?"
+
+"The dust is covering our side."
+
+Only then did Sion understand. No roof did not mean only this side could be seen. The other side had to measure this side too. And right now, grey-brown dust hung between them.
+
+Hazran was hiding its people with the dust that had come from cutting out its own heart.
+
+Around the middle of the line, one child slowed. It was the one of Luhai's three who kept looking back. This time, too, the child looked back.
+
+"I said look only ahead."
+
+Luhai's voice came from behind. He had not stood in the line, but he was walking along beside it.
+
+"The man's not coming,"
+the child said.
+
+"Follow along."
+
+"He's not coming, though."
+
+For a moment Luhai did not answer.
+
+"Then you have to get there first, so there's a place for him to come after."
+
+It was not a lie. Nor was it the truth. The child half believed it and looked ahead again.
+
+Seorin heard it beside them and spoke very low.
+
+"You're good at this."
+
+"Not good at it at all,"
+Luhai said.
+
+The thirty steps ended. The line went into the shade of the hull sections, and the moment the last person stepped under the roof, Sion realized he had been holding his breath.
+
+No one was hit.
+
+This time.
+
+Sion stood there and looked again at the thirty steps they had just crossed.
+
+Footprints were left on the ground. Thirty-one pairs pressed in the same direction, and dust had already begun to settle thin over them. By the time the next line came out, these footprints would not be visible.
+
+Sion did not know whether that was good or bad.
+
+If they could not be seen, the other side could not read them either. But if they could not be seen, the fact that thirty-one people had passed here would not remain anywhere.
+
+"When does the next line go out?"
+he asked.
+
+"After the ship takes people on,"
+Nasim answered.
+"Twenty at a time, I told you."
+
+"Thirty-one came, though."
+
+"So eleven wait here."
+
+Sion looked at those eleven. They were people who had just crossed the thirty steps together. They had crossed together, but twenty would board and eleven would stay. A line had formed inside the line.
+
+"Are those eleven the very first next time?"
+
+Before answering, Nasim looked at his slate for a moment.
+
+"We'll have to see then."
+
+Sion knew what that answer meant. If someone more urgent turned up next time, these eleven would be pushed back again. Here the order was not set once and done; it was set again every time.
+
+In a city where prices kept being set again, the order of people rolled the same way.
+
+Nasim scratched one more mark onto his slate.
+
+"Thirty-one arrived,"
+he said.
+"But none have gone out yet."
+
+Sion wanted to correct him. Thirty-one people had just crossed thirty roofless steps. That was not nothing.
+
+But Nasim was right.
+
+Until the ship lifted, everyone here was still inside Hazran.
 
 ---
 

@@ -1,131 +1,221 @@
 # Episode 60. The Price Paid Back to the Stage
 
-The road back carrying the real thing was, strangely, quieter than the road fleeing outward.
+The way back inside with the real thing was, if anything, quieter than the way fleeing out.
 
-Sion felt that was more ominous.
+Sion found that more ominous.
 
-After the arena had fully flipped, there should have been more sound chasing them. Curses, warnings, gunshots, crashing metal. But on this line re-attaching beneath the inner structures, sound died in strange intervals. As though someone was deliberately emptying the sound near the center of the board.
+With the arena turned completely over, more sound should have been chasing them. Curses, warnings, gunfire, metal breaking apart. But on this line closing back in under the inner structures, the sound kept dying out every so often, strangely. As if someone were deliberately clearing the sound out around the center of the board.
 
 Zahir was waiting.
 
-He could not confirm it in words, but the silence said it.
+No one could confirm it in words, but that silence was saying so.
 
-Jiwoo's skiff and Kael's glider were now riding beneath the inner structures at nearly the same speed. Not fully joined, but the reason to split had shrunk. The dark-red glider still bit behind, but could not lunge as roughly as before. Overturning the hand trying to bring the real thing back before Zahir midway carried a different value from seizing it on the arena floor.
+Han Jiwoo's skiff and Kael's glider were now running under the inner structures at nearly the same speed. Not fully together, but with fewer reasons left to split. The dark-red glider was still biting at their tail, but it could not swoop in as roughly as before. Upending, halfway there, a hand that was trying to carry the real thing back before Zahir came at a different price from snatching it in the arena.
 
-"Touch us here and they flip too."
-Kael said low.
+"Touch us here now and they go over with us,"
+Kael said, low.
 
-Sern answered shortly.
+Sern's answer was short.
 
-"They'll still bite if they see an opening."
+"Even so, if they see a chance, they will bite."
 
 "Obviously."
 
-Jiwoo said shortly, watching the dead shutter shadow ahead.
+Watching the dead shutter shadows ahead, Han Jiwoo spoke, short.
 
-"That's why we get inside fast."
+"So we'd better get in fast."
 
-Sion gripped the ember tighter in his hand.
+Sion gripped the ember in his hand more tightly.
 
-The real ember was still not vivid. It had not grown on the way back, nor had it died. It simply stayed alive in his hand, low and tenacious. That quiet felt like the largest piece of evidence in the middle of this entire chaos.
+The real ember was still not showy. All the way back here it had neither grown nor gone out. It simply stayed alive in his hand, low and stubborn. In the middle of all this chaos, that quiet felt like the biggest proof of all.
 
-"Opens ahead."
-Sion said low.
+"It's opening up ahead,"
+Sion said, low.
 
-When the line running beneath the dead structures ended, a wide access surface connecting back to the outer layer of Hazran's central courtyard was revealed. It was the same place as the starting line from before the race, yet now it looked entirely different. The red tent covers were half-overturned. Parts of the viewing railings had collapsed. People were no longer standing like spectators. Some had pulled back. Some were still watching inside. Some were calculating which side to attach to next.
+As the line under the dead structures ended, a wide joining surface came into view, closing back onto the outer tier of Hazran's central courtyard. It was the same place as the starting line they had seen before the race, yet now it looked completely different. The red awnings were half overturned, part of the spectator railing had collapsed, and the people no longer stood like onlookers. Some had pulled back, some were still watching the inside, and some were weighing which side to join next.
 
-And in the middle of it all, Zahir was still standing.
+And in the middle of it, Zahir was still standing.
 
-This time he was not seated.
+This time he was not sitting.
 
-Sion felt that strangely larger. Until now, Zahir had always been the man sitting in his seat, watching the stakes roll toward him. But now he was standing. As though the final scene of who carried the real thing back before him was one he would not receive sitting down.
+To Sion, that somehow made him seem larger. Until now Zahir had always been the man who sat in his place and watched the stakes roll toward him. But now he was on his feet. Like a man who would not take that last scene—who came back before him holding the real thing—sitting down.
 
-Nasim was half a step behind him. Harun stood further to the side. Nahira half-blocked Aka's front. Luhai had climbed down to below the railing, nearly tilting inward. Seorin and Ater wore the faces of people no longer spectators but ready to enter the board again.
+Nasim was half a step behind him, and Harun stood farther to the side. Nahira was still half-blocking Aka from the front, Luhai had come down to the foot of the railing and was leaning nearly inward, and Seorin and Ater were no longer spectators; their faces were ready to step back into the board.
 
-The moment the two craft reached the center, the crowd's noise rose once, large, then died on its own.
+The moment the two craft reached the front of the center, the crowd's noise surged once, loud, then died out on its own.
 
 Because everyone had seen it.
 
-The race was broken. The rules were twisted. And yet the hand holding the real thing had returned alive.
+The race had been broken.
+The rules had been twisted.
+And still the hand holding the real thing had come back alive.
 
-That single fact became the center holding together the entire board that had just been flipping.
+That one fact became the center that held together the whole board, which had been upside down a moment ago.
 
-When Jiwoo stopped the skiff, one last thin metal tremor leaked long from beneath the hull. Simply surviving this far was a miracle. Kael's glider stopped a short distance to the side. Slow and blunt, but a craft that had never torn and held on all the way here.
+When Han Jiwoo stopped the skiff, one last thin metal tremor leaked out, long, from under the hull. It was close to a miracle that it had lasted this far. Kael's glider stopped a little way off to the side. Slow and clumsy, but a craft that had never torn apart and had stayed with them all the way here.
 
-Sion did not step down immediately.
+Sion did not get out right away.
 
-This single ember in his hand felt like it should be seen before the person.
+He felt that, right now, this one ember in his hand needed to be seen before any person.
 
 Zahir spoke first.
 
 "You came back."
 
-The voice was still not loud.
+His voice was still not loud.
 
-But the entire courtyard heard that low voice first. This man still had no need to raise his volume.
+But the whole courtyard heard that low voice before anything else.
+This man still had no need to raise his voice.
 
-Sion could tell immediately that the words were not a simple welcome.
+Sion could tell at once that it was not a simple welcome.
 
-You came back. Inside those words lived: you survived, you brought it, and you stand before me again—all at once.
+You came back.
+In those words was all of it at once: you survived, you brought it, and in the end you stood before me again.
 
-Jiwoo stepped down first, and Sion followed, feet touching the ground. His legs trembled faintly as though still remembering the heat-layer's shaking, but his hand did not open.
+Han Jiwoo got off first, and Sion followed her, setting his feet on the floor. His legs shook faintly, as if they still remembered the shaking of the heat layer, but he did not open his hand.
 
 Zahir's gaze went straight to that hand.
 
-"Show me."
-He said.
+"Show it,"
+he said.
 
-Short words.
+A short word.
 
-Sion did not hide it any longer.
+Sion stopped hiding it.
 
-He opened his hand and quietly revealed the red ember, still alive.
+He opened his hand and showed the red ember, quietly alive.
 
-It was not vivid. But it had not died.
+It was not showy.
+But it had not died.
 
 That alone was enough.
 
-Inside the crowd, someone swallowed a breath. Luhai stepped forward one more pace almost without knowing it. Ater's gaze sharpened. Seorin caught her breath for just an instant before killing her expression again. Aka was still far away, but this time no one needed to see her eyes. It was too clear whose hand the real thing had entered.
+Somewhere inside the crowd someone caught a breath, and Luhai stepped one pace farther forward, almost without knowing it. Seorin steadied her breath for only a moment, then wiped her expression flat again.
+
+This time nobody looked toward Aka. They did not need to look at Aka to see whose hand held the real thing. It was open right in front of them.
+
+For the first time since the race had begun, Aka stood where nobody was looking.
 
 Zahir looked at the ember for a long time.
 
-"It did not die."
-He said low.
+"It didn't die,"
+he said, low.
 
-"It is not a fake."
+"Because it isn't fake,"
 Sion answered.
 
 A short silence.
 
-That sounded like provocation, yet at this moment it was the most precise sentence spoken.
+It sounded like a provocation, and yet in that place, just then, it was the most accurate sentence.
 
-Nasim smiled by the faintest degree.
+Nasim smiled, very faintly.
 
 Harun did not smile.
 
-That silence was more distinct. How the arena devices had been twisted, who had intervened and how far—no one present could be unaware. The question now was who would be the first to say it aloud.
+If anything, that silence was sharper. How the arena devices had been twisted, who had stepped in and how far—there was likely no one here who did not know. The question now was who would say it out loud first.
 
-Zahir lifted his gaze from the ember to Sion's face.
+Zahir was the first to lift his gaze, from the ember to Sion's face.
 
-"Then let me ask."
-He said.
-"Who broke the board."
+"Then I'll ask,"
+he said.
+"Who ruined the board?"
 
-This time the courtyard air stopped for a different reason.
+This time the air in the courtyard stopped for a different reason than before.
 
-This was no longer just about settling the race. The hand holding the real thing had returned alive. Which meant now, who had broken the rules had to be settled alongside it.
+This was no longer just a matter of settling the race.
+The hand holding the real thing had come back alive, and that meant who had broken the rules had to be settled now too.
 
-Seorin smiled very low.
+Seorin laughed, very low.
 
-"Finally that conversation."
+"Finally getting to that."
 
-Ater, right beside her, said nothing and looked once toward Harun. Sern did the same. Luhai held his breath. Nasim's smile thinned further. Nahira, for the first time, shifted to cover Aka's front by the smallest additional degree.
+Inside the courtyard, several people began the same calculation at once. Whom to raise, whom to cover, how much to admit and where to cut it off.
 
-In that moment, Sion knew.
+Before that calculation was done, another sound came.
 
-From here, this was no longer a scene about proving they had returned alive. It was a scene about deciding whose blood would settle the cost of that return.
+"Those people are still here."
 
-And in the center of it all, the real thing sat in his hand.
+It was Aka.
+
+Her voice was not loud. But the courtyard was quiet just then, so it carried all the way to the front.
+
+Nasim's smile thinned.
+
+"What people?"
+
+"The people who were standing down below before."
+
+Aka did not point to the area below the stands. Instead she looked toward the people standing in the courtyard now.
+
+"They weren't watching the race. Not from the start."
+
+A stir went through the courtyard.
+
+Sion looked to see where the stir had started. Not the front. Somewhere around the middle, a few people closed the gaps between them, and once they had, they said nothing.
+
+Nahira raised a hand to pull Aka back.
+
+She stopped halfway.
+
+It had already been said.
+
+For the first time, Zahir turned his head.
+
+He took his eyes off the ember in Sion's hand and looked toward the stands. Toward a part of them, among the people there, that Zahir had not looked at until then.
+
+"Whose child is that?"
+
+Nasim answered at once.
+
+"She is with the outsiders."
+
+Zahir asked without looking at Nasim.
+
+"Can the child be asked?"
+
+He had said *can the child be asked*, not *may I ask her*. Sion caught the difference. The highest person in the courtyard had just put a child on the board.
+
+Nasim's smile was gone entirely.
+
+"That's a little…"
+
+"She says she's been watching since the start."
+
+That was Zahir.
+
+"She's the one here who's watched the longest."
+
+Hearing that, Sion looked toward the stands.
+
+It was far. He could not see faces. Even so, Sion could tell that Aka had not stepped back. Nahira's hand had stopped where it was, caught behind Aka's shoulder.
+
+The few who had closed their gaps around the middle of the courtyard now drew back half a step.
+
+Drawing back was easy to see.
+
+There, Sion learned one more thing about how this city worked.
+
+Here, nobody dragged anyone off. Zahir had asked once who did it, and after asking he gave no order at all. But the people in the courtyard split apart on their own.
+
+Now there were those who had drawn back and those who had not.
+
+Once people split, prices get attached. Those who had drawn back would now have to live in this market at the price of having drawn back.
+
+Nasim was running his eyes over the split. He did it without smiling, and it was the face of someone counting.
+
+Sion looked into his own hand.
+
+The ember was the same as before. It had neither grown nor shrunk.
+
+In this city, it was the one thing whose price had not changed.
+
+In that moment Sion knew.
+
+From here on,
+this was not the scene where they proved they had come back alive,
+but the scene that decided whose blood would pay to settle that return.
+
+And in the middle of it, the real thing was in his hand.
 
 ---
 

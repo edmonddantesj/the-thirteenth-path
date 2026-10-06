@@ -23,15 +23,13 @@ fue Seorin, que volvía a ocupar un sitio largo tiempo vacío.
 
 Arrastró al centro de la sala una vieja tabla,
 y sobre ella empezó a poner, uno a uno,
-los flujos de movimiento que conocían las máquinas de recuperación,
+los flujos de movimiento que conocían las manos de recuperación,
 la estructura de cierre que había leído Kael,
 el sector ceremonial de arriba que había visto Ater,
 los huecos del sistema de aprobación que había señalado Sern,
 y la información de las líneas de mantenimiento que sostenían las máquinas viejas de dentro.
 
-—Bien.
-—dijo Seorin, baja—.
-Dejemos un momento de lloriquear
+—Bien —dijo Seorin en voz baja—. Dejemos un momento de lloriquear
 y ordenemos primero qué hay que romper.
 
 Esas palabras sonaron frías,
@@ -49,8 +47,8 @@ alguien tenía que ordenar todo esto en frases.
 Seorin era la persona más útil en esos momentos.
 
 —De momento, lo confirmado son tres cosas.
-—dobló los dedos—.
-Una:
+Seorin dobló los dedos.
+—Una:
 sacar a unas pocas personas no termina esta estructura.
 —Dos:
 Serakion, en cuanto lo perforan, aprende enseguida y lo sutura.
@@ -64,22 +62,20 @@ Ater también lo aceptó sin más.
 Seorin pasó enseguida a lo siguiente.
 
 —Entonces el problema es este.
-—golpeó la tabla—.
-Qué hay que cortar en Serakion
+Seorin golpeó la tabla.
+—Qué hay que cortar en Serakion
 para que arriba se tambalee y abajo se abra.
 
 Esta vez fue Kael quien abrió primero la boca.
 
-—Con el camino solo no basta.
-—dijo bajo—.
-Hay ya demasiados caminos,
+—Con el camino solo no basta —dijo bajo—. Hay ya demasiados caminos,
 y también aprende el modo de bloquear.
 —Cortar una línea de movimiento es retraso,
 no derrumbe.
 
 Seorin ordenó al instante.
 
-—Bien. El camino es resultado,
+—Entonces el camino es resultado,
 y lo que apuntamos es el eje.
 
 Sern continuó esas palabras.
@@ -115,16 +111,14 @@ era lo que permitía sacudir también la política.
 
 Ater puso encima de eso su propia mirada.
 
-—Arriba rueda también por el decoro.
-—dijo bajo—.
-Más que quién decide,
+—Arriba rueda también por el decoro —dijo bajo—. Más que quién decide,
 importa quién debe parecer que decide.
 —Si ese decoro se rompe una vez,
 también la línea real de autoridad puede tambalearse.
 
 Seorin habló como riendo un poco.
 
-—Bien. Eso lo tomas tú.
+—Eso lo tomas tú.
 —Quién rueda por presumir,
 y dónde tocar para que arriba empiecen a vigilarse entre sí.
 
@@ -163,7 +157,7 @@ el compás con que leen a la gente puede retrasarse.
 
 Seorin ordenó esas palabras al instante, como si las anotara.
 
-—Bien. Más que la parada total,
+—Listo. Más que la parada total,
 apuntamos a retrasar el compás de lectura.
 
 Esa frase sonó como el núcleo que enlazaba los rescates de hasta ahora con la estrategia de después.
@@ -182,9 +176,7 @@ Han Jiwoo, aun tras oír todo aquello, todavía no relajaba del todo el gesto.
 
 Pero esta vez no quedaba en ella solo la ira.
 
-—¿Y la gente?
-—preguntó baja—.
-Los que quedan dentro,
+—¿Y la gente? —preguntó en voz baja—. Los que quedan dentro,
 ¿dónde se paran cuando sacudimos esta estructura?
 
 Esa pregunta era importante.
@@ -207,9 +199,7 @@ sino como uno de los ejes de la estrategia propiamente dicha.
 
 Seorin no dejó pasar esas palabras.
 
-—Bien. Entonces queda ordenado.
-—dijo—.
-Ater: el decoro de arriba y el eje político.
+—Bien. Entonces queda ordenado —dijo—. Ater: el decoro de arriba y el eje político.
 Sern: el eje de aprobación y registro.
 Kael: el eje de cierre y movimiento.
 Las máquinas viejas de dentro: la línea de mantenimiento y el amortiguamiento del derrumbe.
@@ -258,9 +248,7 @@ aceptaba con toda naturalidad como cosa propia ese papel de sostener la conexió
 
 Seorin recorrió por última vez la tabla entera con la mirada, como barriéndola.
 
-—Bien.
-—dijo—.
-Por primera vez tiene sentido.
+—Bien —dijo—. Por primera vez tiene sentido.
 —No armamos un plan para sacar a unas pocas personas más,
 sino para enredar la estructura con que Serakion lee, hace rodar y devuelve a la gente.
 

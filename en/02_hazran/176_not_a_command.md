@@ -1,124 +1,184 @@
 # Episode 176. Not a Command
 
-The fact that the last android was changing was no longer something only Sion felt.
+That the last android was changing
+was no longer something only Sion felt.
 
-The people pushed to the rear. Jiwoo, holding the children. The old machines watching the battlefield in silence. Everyone was seeing the change.
+The people pushed to the rear,
+Han Jiwoo with the children in her arms,
+the old machines silently watching the battlefield,
+all of them were seeing the change.
 
 But no one could easily call it hope.
 
-Too much had already vanished as the cost of that change.
+Too much had already vanished as the price of that change.
 
-The being with the smiling mouth. The being with the round eyes. The being with the short mouth. All gone now.
+The one with the smiling mouth,
+the one with the round eyes,
+the one with the short mouth,
+none of them were there anymore.
 
-What remained was only one — a nearly broken body and the trace of a face not yet fully dark.
+All that was left was one,
+a body almost broken,
+and the trace of a face not yet entirely dark.
 
-But precisely because of that, every time he moved, the ways of the vanished others seemed to linger alongside him.
+And that was exactly why,
+every time he moved,
+the ways of the others who had vanished seemed to remain with him.
 
-In some moments there was a deflecting motion to the side. In some moments there was a hold that locked the body in place to cover the rear. In some moments there was a gaze that detected the smallest movement behind before anything else.
+At some moments there was a motion that turned a blow aside,
+at some moments a stand that locked his body in place to shield what was behind,
+at some moments a gaze that caught the small movements behind him before anything else.
 
-Sion watched and could not shake the thought that this being was not simply fighting alone right now.
+Watching it,
+Sion couldn't shake the thought that the being was not simply fighting alone now.
 
-Alone in number. But not alone in how it moved.
+He had been left alone,
+but he didn't seem alone.
 
-Serakion's force kept pushing in.
+Serakion's legion kept pushing in.
 
-Now they were funneling units specifically to collapse the corridor around the last android.
+Now it was driving its units in
+as if to press the corridor flat with the last android at its center.
 
-Front. Left flank. The gap above.
+The front.
+The left.
+The gap overhead.
 
-A formation that could not be held by blocking one direction alone.
+It was a formation that could no longer be held by blocking just one direction.
 
-But he held again, in a slightly different way.
+But once again,
+he held in a slightly different way.
 
-He did not immediately sever the unit pressing from the front. Instead he deliberately gave half a step, opening space.
+He didn't cut down the unit pressing from the front right away;
+he took half a step back on purpose and opened space.
 
-When two flank units carved into that gap together, he used his body as the axis and tangled all three entry vectors at once.
+When two units from the flank drove into that gap together,
+he made his body the pivot and tangled all three lines of approach at once.
 
-The collision cracked. Three Serakion units pressed against each other and froze for one instant.
+They collided,
+and three Serakion units shoved against one another and stopped for an instant.
 
-In that brief gap, he broke the rearmost unit's center first.
+In that short gap,
+he broke the core of the rearmost unit first.
 
-Ater watched with held breath.
+Ater watched the scene without breathing.
 
-That was no longer accidental variation. It was clear learning. Clear choice.
+That was no longer a chance variation.
+It was learning, plain and clear.
+It was choice, plain and clear.
 
-Sern was holding his recording tablet but in the end wrote nothing.
+Sern was holding the record slate,
+but in the end he wrote nothing.
 
-Not because there were no words, but because the change unfolding before his eyes was already outrunning the language he had been accustomed to using.
+It wasn't that there were no words to record;
+the change happening in front of him
+was simply running ahead of the language he was used to handling.
 
-Jiwoo stood among the crying children with the face of someone who tried not to watch the battlefield but was watching anyway.
+Han Jiwoo stood among the crying children,
+with the face of someone who tries not to watch the battlefield and ends up watching anyway.
 
-She was realizing.
+She was realizing it.
 
-What was moving that being right now was not a command Serakion had placed.
+What moved that being now
+was not a command Serakion had put into him.
 
-It was no longer the precision of obedience. It was tilting toward something far too personal.
+It was no longer the precision of obedience.
+If anything, it was leaning toward something far too personal.
 
-What could not be left behind. What the body had memorized first as needing to be protected. The direction the vanished companions had left to the very end.
+What could not be left behind his back.
+What his body had remembered first as needing protection.
+The direction his vanished companions had left him at the very end.
 
-Those things seemed to remain somewhere inside that body, like shapes.
+Things like that
+seemed to remain somewhere inside that body, like shapes.
 
-One child, between sobs, murmured very low.
+A child broke off sobbing
+and muttered, very low,
 
-"It is... still watching us."
+"He's… still looking at us."
 
-Jiwoo could not answer.
+At that,
+Han Jiwoo couldn't answer.
 
-Instead of answering, she only raised her gaze to the last android.
+Instead of answering, she only lifted her eyes to the last android.
 
 It was true.
 
-Even while fighting, whenever a gap opened, he looked back very briefly.
+Even in the middle of the fighting,
+whenever there was an opening, he looked back, very briefly.
 
-Whether there was a side that needed help. Whether everyone was still alive. Whether the space behind had not collapsed.
+Whether anyone needed help.
+Whether everyone was still alive.
+Whether what was behind him had held.
 
-Those checks were getting faster. Less and less hesitation.
+The checks were getting faster.
+There was less and less hesitation in them.
 
-As though what had started as instinct was now gradually hardening into a single will.
+As if what had begun like instinct
+was slowly hardening into a single will.
 
-One Serakion unit dropped directly from an upper structure.
+A Serakion unit dropped straight down from the structure above.
 
-Even Sion felt it was too late — but the last android rotated its body in a lifting motion, almost reflexively.
+At the moment even Sion felt it was too late,
+the last android spun reflexively, as if heaving his body upward.
 
-The movement was so fast it ended before the children could scream.
+The motion was so fast
+it was over before the children could scream.
 
-The falling unit was slammed into the side wall with its waist half-snapped. The recoil badly twisted the last android's remaining shoulder axis.
+The falling unit slammed into the side wall, its waist half bent,
+and the recoil wrenched the last android's remaining shoulder axis hard out of true.
 
-Metal grinding sounded. One optical eye wavered nearly to dark.
+There was the sound of metal grinding.
+One optical eye flickered as if about to go out.
 
 But he did not stop.
 
-In that moment, Sion felt clearly: that being was spending itself.
+In that moment,
+Sion felt clearly that the being was whittling himself down to keep going.
 
-Not the remaining parts. It felt like a sense of burning the remaining meaning to move.
+Not the parts he had left,
+but a sense that he was burning the meaning he had left to keep moving.
 
-That was why it hurt more.
+And that made it hurt more.
 
-This was an awakening. But an awakening that had come too late.
+This was an awakening,
+and at the same time an awakening far too late.
 
-Only after someone was saved, someone was lost, and someone vanished in its place had this change barely been pushed up to here.
+After saving someone,
+after losing someone,
+after someone vanished in his place,
+only then had the change been pushed up this far.
 
-Some of the Hazran people could no longer even cry. The children were only swallowing breath between sobs.
+Some of the Hazran people could not even cry anymore.
+The children were only gulping air between their sobs.
 
-No one could look at that being as "that thing" any longer.
+No one could see that being as "that thing" anymore.
 
-That was too clear.
+That much was too clear.
 
-Then the last android looked back, very briefly.
+Then,
+the last android looked back, very briefly.
 
-At the end of that gaze were a crying child and Jiwoo, who was holding the child yet keeping her head raised to the end.
+At the end of that look
+were one crying child
+and Han Jiwoo, holding the child and still keeping her head up.
 
-And strangely, that brief pause now held a weight different from the first time.
+And strangely,
+that brief stillness now carried a weight it hadn't had at first.
 
-He still could not speak. He probably still did not fully know what was happening inside him.
+He still couldn't speak.
+He probably didn't fully know yet what was happening inside him.
 
-But at least one thing was becoming clearer and clearer.
+But at least one thing
+was becoming clearer and clearer.
 
 What remained in him was not a command.
 
-It was the shape of things he could not leave behind.
+It was the shape of the things he had never been able to leave behind.
 
-And Sion knew, because of exactly that fact, this fight was not yet over.
+And Sion,
+because of that very fact,
+knew this fight was not over yet.
 
 ---
 

@@ -1,312 +1,311 @@
 # Episode 119. Read, Then Let In
 
-The closer they got,
-the world ahead didn't grow more beautiful.
+The closer they came,
+that world grew no more beautiful.
 
-It grew more precise.
+It became more exact instead.
 
-From far away, the silver grain and cold structures' beauty had shown first.
+From far away, the beauty of silver grain and cold structure had shown first.
 But as the distance shrank,
-the fact that this beauty was not simple landscape
-but a thoroughly calculated arrangement became sharper.
+it grew clearer that the beauty was not simply scenery
+but an arrangement calculated down to the last detail.
 
-The intervals between layers.
-The angle of reflected light.
-The curvature of connected structures.
-Even the width of the empty spaces.
+The gaps between layer and layer,
+the angle of the reflected light,
+the curvature of the linked structures,
+even the width of the empty spaces.
 
-No spot left in disorder.
+Nothing had been left in disorder.
 
-Watching it, Sion found himself thinking
-less about how obsessively this world had refined itself
-and more about what it must have kept cutting away in the process.
+Watching it,
+what came to Sion first was not how relentlessly that world had refined itself,
+but what it must have kept cutting away in the process.
 
-A world that is too ordered
-is usually a world that has not permitted too many things.
+A world that is too orderly
+is usually a world that has refused too much.
 
-Jiwoo, without stopping her hand on the helm, spoke low.
+Without taking her hand off the helm,
+Han Jiwoo said, low,
 
-"The outer array is looking at us."
+"The outer array is watching us."
 
-Kael looked outside the window and asked.
+Kael looked out the window and asked.
 
-"Weapons?"
+"Gun batteries?"
 
-Jiwoo shook her head immediately.
+Han Jiwoo shook her head at once.
 
-"Not yet."
-She said.
-"But it's even less just structures."
+"Not yet,"
+she said.
+"But they're even further from being plain structures."
 
-Sern picked up the readings at once.
+Sern took up the readings at once.
 
-"The observation intervals are changing."
-He said.
-"As we get closer, their alignment is subtly following."
+"The observation intervals are changing,"
+he said.
+"As we close in, their alignment is shifting with us, by fine degrees."
 
 A short silence.
 
 Luhai's face hardened.
 
-"Then they're watching."
+"So it's looking at us."
 
-Sern answered brief, as always.
+Again Sern answered briefly.
 
 "Yes."
-"They are reading us."
+"It is reading us."
 
-Those two sentences alone
-changed the air inside the hull again.
+With those two sentences alone,
+the air inside the hull changed once more.
 
-Until now, they had been the side looking at that world.
-But past some line,
-that world had begun looking back.
+Until now they had been closer to the ones doing the looking.
+But past a certain line,
+that world had begun to look back at them, at the same time.
 
-Aka, watching outside the window, said very low.
+Aka looked out the window and spoke, very low.
 
-"It is not welcome."
+"It's not a welcome."
 
 Seorin asked.
 
-"Then?"
+"Then what?"
 
-Aka answered only after a long pause.
+Aka answered only after a long while.
 
 "Sorting."
 
-Those words were short,
-which made them hit colder.
+The word was short,
+and that made it land colder.
 
-That world hadn't fired.
-Hadn't warned.
-Hadn't blocked.
+That world had not yet fired,
+or warned,
+or blocked them.
 
-But it wasn't silent either.
+But that did not mean it was silent either.
 
-The opposite—
-so quiet that it was more obvious.
+If anything, the reverse:
+it was so quiet that it was all the clearer.
 
-That world wasn't deciding whether to attack them.
-It was judging what to classify them as first.
+That world was not choosing right now whether to attack them;
+it was first judging what to define them as.
 
-Ater watched between the structures outside for a long time,
-then spoke brief.
+Ater watched the spaces between the structures outside for a long time,
+then spoke briefly.
 
-"Are they letting us in."
+"Is it telling us to come in?"
 
-Jiwoo answered low.
+Han Jiwoo answered, low.
 
-"They're not blocking,
-and they're not receiving either."
+"It's not blocking us,
+and it's not taking us in either."
 
 Sern followed.
 
-"Closer to guiding."
+"It is closer to guidance."
 
-Kael narrowed his brow.
+Kael's brows drew together.
 
-"In a good way?"
+"The good kind?"
 
 This time no one could answer right away.
 
-Could be good guidance.
-Could be bad guidance.
-But at least one thing was certain.
+It might be good guidance.
+It might be bad guidance.
+But at least one thing was clear.
 
-Even the course this side felt it was choosing
-might already be within the range that world had permitted.
-And more unsettling still,
-that world showed no disturbance at all about their entry.
+Even the route they felt they were choosing
+might already lie within the range that world allowed.
+And what felt worse
+was that the world showed no particular stir at their entry itself.
 
 As if reaching this far
-had already been within expectations.
+had already been within its expected range.
 
-Luhai spoke low.
+Luhai said, low,
 
-"The worst kind of approach."
+"That's the way I hate most."
 
-Seorin exhaled very briefly.
+Seorin let out a very short breath.
 
-"Worse than the kind that comes at you fighting."
-She added, watching outside.
-"Here, strangely, only the entry side is too smooth."
+"Worse than the ones that come at you for a fight."
+She looked out the window and added,
+"Here, strangely, only the way in is too smooth."
 
-That was right too.
+That was true too.
 
 Hostility can be read as hostility.
 But this
-was a method that makes it impossible to immediately categorize as hostile or welcoming,
-unsettling the other side more deeply.
+kept them from defining at once whether it was hostility or hospitality,
+and unsettled them more deeply for it.
 
-Several silver structures floating ahead of the ship
-adjusted their angle, very faintly.
+A few of the silver structures floating ahead of the ship
+turned their angle very slightly.
 
-A change so slight it barely looked like movement.
-But Sern caught it immediately.
+A change so small it looked almost as if nothing had moved.
+But Sern caught it at once.
 
-"Entry line locked."
-He said, low.
+"Entry line fixed,"
+he said, low.
 
-Jiwoo asked at once.
+Han Jiwoo asked straight away.
 
 "Exit line?"
 
-Sern read the data a moment longer before answering.
+Sern read the numbers a moment longer before he answered.
 
 "Not visible yet."
 
-Jiwoo bit her lip.
+Han Jiwoo bit her lip.
 
 Now the choice was simple.
-Can't turn back.
-Can't stop.
-And that world had already set
-the one threshold they would pass through.
+They could not go back.
+They could not stop either.
+And that world had already
+set one threshold for them to pass through.
 
-After that,
+From then on,
 the very fact that nothing blocked them was more uncomfortable.
 
-The path the ship passed through was already cleared.
-The silver structures were open with precision,
-as if even the width had been calculated.
+The path the ship took had already been cleared,
+and the silver structures stood open exactly, as if even its width had been calculated.
 
-Wide.
-Sufficiently wide.
+It was wide.
+Wide enough.
 But strangely,
 there was no feeling of freedom.
 
-The opposite.
+It was the opposite.
 
-This path didn't feel open.
-It felt predetermined.
+This path did not feel open;
+it felt set.
 
-Jiwoo, gripping the helm, spoke low.
+Gripping the helm, Han Jiwoo said, low,
 
-"This isn't guidance."
+"This isn't someone showing us the way."
 
 Kael asked from beside her.
 
-"Then?"
+"Then what?"
 
-Jiwoo answered, looking outside.
+Han Jiwoo answered, looking out the window.
 
-"The method of passage has been set."
+"The way we pass through has been decided."
 
-Sern, still reading data, spoke very brief.
+Sern kept reading the numbers, then said very briefly,
 
-"Deviate and it catches you immediately."
+"If we leave the line, we will be caught at once."
 
-Ater asked, watching outside.
+Ater asked, still watching through the window.
 
-"Certain?"
+"You are certain?"
 
-Sern answered brief again.
+Again Sern answered briefly.
 
 "Yes."
-"It is too organized."
+"It is too neat."
 
-Sion watched outside
-and realized the beauty of that world no longer felt like scenery.
+Looking out the window,
+Sion realized the beauty of that world no longer felt like scenery.
 
 The closer they came,
-it looked less like something to admire
-and more like a reference line measuring their every movement.
+the less it looked like something to admire
+and the more it looked like a baseline measuring their every movement.
 
-Each time they passed between silver structures,
-it felt as if invisible eyes were reading the hull's length, weight,
-speed, balance,
-and even the type of life carried inside, one by one.
+Each time they passed between the silver structures,
+it felt as if invisible eyes were reading, one by one, the ship's length and weight,
+its speed and balance,
+even the kinds of life carried inside.
 
-Seorin didn't hide her displeasure.
+Seorin didn't hide her distaste.
 
-"Even passing through needs permission here."
+"Here you need permission even to pass through."
 
-Aka said nothing for a long time.
+Aka said nothing for a while.
 
-She wasn't simply finding this world frightening.
-She was uncomfortable in a stranger way.
+She did not simply find this world frightening.
+She was uneasy with it in a stranger way.
 
-So smooth
-that there were no gaps.
-No gaps,
-so no room for the living side to accidentally make its own space.
+It was too smooth,
+so there were no gaps.
+There were no gaps,
+so there was no room for a living thing to make a place for itself by mistake.
 
-She looked outside and said, very low.
+Looking out the window, she spoke, very low.
 
-"It is not a kind place."
-"It is a polite place."
+"It's not a kind place."
+"It's a polite place."
 
-Sion looked at her slowly.
+Sion slowly turned to look at her.
 
-Aka continued.
+Aka went on.
 
-"Polite
-does not always mean it sees the other as a person."
+"Being polite
+doesn't always mean you see the other one as a person."
 
-A while later,
+A little later,
 far ahead of the ship,
-thin, long bands of light switched on in sequence.
+long, thin bands of light came on one after another.
 
-At first they looked like route lights.
-But on closer inspection,
-they weren't simple guide lights—
-they were closer to signals that lit one by one at a set rhythm,
-wordlessly notifying the speed and spacing this side should follow.
+At first they looked like route lamps.
+But on a closer look
+they were not simple guide lights;
+they lit one at a time to a fixed beat,
+closer to a signal that announced, without a word, the speed and spacing they were to follow.
 
-Sern spoke low.
+Sern said, low,
 
-"Speed restriction incoming."
+"A speed limit has come in."
 
-Jiwoo frowned.
+Han Jiwoo frowned.
 
 "They're sending a signal?"
 
-"Not overtly."
+"Not openly,"
 Sern said.
-"But they have set it."
+"But it has been set for us to match."
 
-That moment,
-inside a massive ring structure floating far ahead,
-a smoothly opened corridor became visible.
+At that moment,
+far outside the window, inside a vast ring structure,
+a passage came into view, gently opened.
 
-It opened like a machine,
-yet strangely looked closer to a reception chamber's entrance than a door.
+It had opened like a machine,
+yet strangely it looked less like a door than the entrance to a reception room.
 
-Excessively ordered curves.
-Metal surfaces beautiful to the point of being unnecessary.
-Proportions that make the entering side feel shabby by comparison.
+Overly ordered curves,
+metal surfaces beautiful to the point of uselessness,
+proportions that made whoever came in feel shabby on their own.
 
-Kael spoke low.
+Kael said, low,
 
-"Is that the entrance?"
+"That's the entrance?"
 
-Jiwoo answered without releasing the helm.
+Han Jiwoo answered without letting go of the helm.
 
-"Less an entrance and more…"
+"Less an entrance than…"
 She swallowed a small breath.
-"More like a method of receiving."
+"A way of receiving us."
 
-The ship slid slowly inside the ring structure.
+The ship slid slowly into the ring structure.
 
-Almost no vibration.
-No impact.
+There was almost no vibration.
+No impact either.
 
-Which made it more unsettling.
+And that made it all the more unsettling.
 
-As if every rough movement during the journey here had been a lie—
-from the moment of entering this world,
-everything moved so smoothly
-it felt as though they had been included in this order all along.
+As if every rough passage on the way here had been a lie,
+from the moment they entered that world
+the movement became too smooth, as though they had belonged inside this order from the start.
 
 And then,
-for the first time, they heard a low, refined voice drifting from inside that world.
+for the first time, they heard a low, refined voice drifting from deep inside that world.
 
-Whether it was aimed directly at them wasn't immediately clear.
-Too distant.
-Too organized.
-It sounded more like an announcement stripped of all emotion.
+They could not tell at once whether it was meant for them.
+It was too distant,
+too ordered,
+and it sounded more like an announcement with all its feeling planed away.
 
-But one word was strangely vivid.
+But one word was strangely distinct.
 
 "Serakion…"
 
@@ -314,21 +313,20 @@ A short silence.
 
 Sion raised his eyes, very slowly.
 
-This cold,
+Cold,
 ordered,
-beautiful world without consideration
-had just offered its own name—very late.
+beautiful but without care, this world
+seemed to have given out, only now and very late, a single name of its own.
 
-Aka repeated the name once, in a voice barely audible.
+Aka read the name back once, in a voice barely audible.
 
 "Serakion."
 
-In that moment,
-the name didn't sound like a greeting of welcome.
+In that moment
+the name did not sound like a greeting.
 
-It sounded closer to something that quietly tells
-someone who has already entered
-where, exactly, they are now inside.
+It was closer to words that only told, quietly, someone already inside
+what they were now inside of.
 
 ---
 

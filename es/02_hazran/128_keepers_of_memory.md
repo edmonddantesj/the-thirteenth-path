@@ -91,7 +91,7 @@ No se podía saber si la máquina vieja había oído esas palabras.
 Pero poco después,
 la máquina que había abierto el camino al principio habló muy bajo.
 
-—Si lo escondes, se asustan más.
+—Si se esconde, se asustan más.
 
 Luhai lo oyó y soltó una risa baja por la nariz.
 

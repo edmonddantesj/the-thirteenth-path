@@ -92,7 +92,7 @@ Han Jiwoo respira très lentement en les observant.
 
 Elle avait encore peur. Elle ne voulait toujours pas conclure trop vite.
 
-Mais il devenait de plus en plus difficile de nier que les réactions que montraient les androïdes, à cet instant précis, ne s'expliquaient pas seulement par une erreur de système ou par le résidu d'un ordre.
+Mais il devenait de plus en plus difficile de nier que les réactions que montraient les androïdes, à cet instant précis, ne s'expliquaient pas seulement par une erreur de système ou par l'écho d'un ordre.
 
 Devant l'androïde auquel il avait dessiné une bouche souriante, un enfant demanda :
 
@@ -124,9 +124,9 @@ Sern répondit doucement :
 
 Luhai murmura, avec un visage qui peinait encore à y croire :
 
-« Alors ils le reçoivent vraiment chacun à leur façon... »
+« Alors ils le reçoivent vraiment chacun à leur façon… »
 
-Personne ne put l'affirmer. Mais personne ne put non plus dire aussi facilement qu'avant qu'elle se trompait.
+Personne ne put l'affirmer. Mais personne ne put non plus dire aussi facilement qu'avant qu'il se trompait.
 
 Une femme venue de Hazran, debout derrière les enfants, regarda la scène les yeux humides et souffla :
 
@@ -180,7 +180,17 @@ Cette fois, c'était trop net pour que quiconque parle de hasard.
 
 Ils firent chacun un pas, très lentement, non pas devant les enfants, mais entre les enfants et cette obscurité.
 
-Il n'y avait pas eu d'ordre.
+Il n'y avait pas eu d'ordre. Personne ne le leur avait demandé.
+
+Mais ce mouvement était, sans le moindre doute, celui d'êtres qui se tenaient prêts.
+
+Sion regarda la scène en retenant son souffle.
+
+Le danger n'était pas encore visible. Mais ceux qui l'avaient perçu les premiers, ici, c'étaient peut-être eux.
+
+Des êtres qui avaient reçu un visage, reçu des rires, et commencé à faire leurs ces expressions étranges commençaient désormais, de leur propre volonté, à se placer devant les enfants.
+
+À cet instant, l'air de l'ancienne couche changea de nouveau entièrement.
 
 ---
 

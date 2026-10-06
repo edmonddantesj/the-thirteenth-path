@@ -1,203 +1,222 @@
 # Capítulo 62 — El interior que ella terminó por mostrar
 
-En cuanto se cerró el ajuste de cuentas del patio central, la gente no se dispersó de inmediato.
+En cuanto terminó el ajuste de cuentas del patio, la gente no se dispersó enseguida.
 
 Más bien al contrario.
 
-Cuanto más violentamente se había volcado un tablero, más tarde se movían los de Hazran. No levantaban el pie hasta haber visto hasta el final quién había perdido de verdad, quién sostenía lo auténtico, quién agarraría la siguiente apuesta. Por eso, incluso después de que Zahir dijera que «la compensación se ajusta dentro», el aire del patio central no se aflojó con facilidad.
+Cuanto más se había vuelto del revés una partida en un lugar, más tarde se movía la gente de Hazran. No levantaba el pie hasta haber visto hasta el final quién había perdido de verdad, quién tenía lo verdadero y quién iba a quedarse con la siguiente apuesta. Por eso, incluso después de que Zahir dijera «la recompensa se ajusta dentro», el aire del patio no se aflojó con facilidad.
 
-Esas palabras eran un permiso,
-y al mismo tiempo una línea trazada.
+Esas palabras eran un permiso y, a la vez, una raya trazada.
 
-Quienes podían pasar de este umbral hacia dentro,
-y quienes debían quedarse aquí mirando sin ir más lejos: la separación acababa de hacerse.
+Querían decir que, a partir de ahí, se separaban los que podían entrar y los que debían quedarse de pie mirando solo hasta allí.
 
-Harún no dijo nada. Nasim, esta vez, tampoco añadió ninguna broma. Luhai tenía cara de morirse por hablar, pero, como un crío lo bastante listo para saber que lo cortarían en seco si se metía de verdad, apretó los dientes una vez y se contuvo. Seorin, por su parte, antes que esas reacciones de alrededor, ya estaba releyendo la distancia entre Zahir, Aka y Nahira.
+Harún no dijo nada.
+Nasim tampoco añadió esta vez ninguna broma. Luhai tenía cara de morirse por hablar, pero, como el chico que sabía que, si se metía de verdad, lo cortarían en seco, apretó los dientes una vez y se aguantó. Seorin, más que las reacciones de alrededor, estaba volviendo a leer la distancia entre Zahir, Aka y Nahira.
 
-Sion aún no había soltado la brasa que tenía en la mano.
+Sion todavía no había soltado la brasa que tenía en la mano.
 
-Ya no se sentía como un trofeo traído de la arena. Estaba más cerca de una llave que ponía a prueba hasta dónde podía llevarla hacia dentro. Un calor muy bajo y tenaz seguía batiendo su pulso en la palma.
+Ya no la sentía como un botín traído del terreno. Se parecía más a una llave que ponía a prueba hasta dónde podía llevarla hacia dentro. Un calor muy bajo y tenaz seguía latiendo en su mano.
 
-Zahir dijo, breve.
+Zahir habló, breve.
 
-—Por aquí.
+—Adentro.
 
-A esa sola palabra se movieron Harún, Nahira y dos manos envueltas en tela negra del interior. No sumar un número excesivo de personas parecía ser otra regla. Como si llevar lo auténtico hacia dentro exigiera menos testigos que espectadores.
+Solo con esa palabra se movieron Harún, Nahira y dos manos del interior envueltas en tela negra. Que no se añadiera demasiada gente también parecía una regla. Como si, para entrar llevando lo verdadero, tuviera que haber menos testigos que mirones.
 
-—¿Hasta dónde? —preguntó Seorin en voz baja.
+—¿Hasta dónde?
+Seorin lo preguntó en voz baja.
 
 Zahir respondió sin mirarla siquiera.
 
-—Hasta donde yo quiera mostrar.
+—Hasta donde haya que mostrar.
 
-La cara de Seorin decía que esa respuesta no le gustaba, pero no insistió. Ya sabía que lo que importaba aquí, en este interior de Hazran, no era arrancar más palabras primero, sino ver hasta dónde te mostraban de verdad.
+Seorin tenía cara de que esa respuesta no le gustaba, pero no preguntó más. Ya sabía que lo que importaba ahora, en aquel interior de Hazran, no era arrancar antes más palabras, sino ver hasta dónde les mostraban de verdad.
 
-El corredor interior estaba aún más silencioso que las secciones que habían cruzado antes de la carrera.
+El pasadizo interior era más silencioso que los sectores que habían atravesado antes de la carrera.
 
-El calor y el olor a arena de fuera se adelgazaban, y se acercaba más el olor a metal largamente pulido, a hierbas medicinales secas y a tela sin humedad. El olor de un espacio hecho para que alguien se quedara mucho tiempo sin dejar que se sintiera del todo a salvo. Sion recordó el interior de la tienda donde había visto a Aka por primera vez. Pero esto era más hondo. Un espacio de vida y al mismo tiempo un sector oculto. Un lugar que servía a la vez para el descanso, para el aislamiento, y que solo admitía las manos que habían pasado la prueba: más cerca de un interior verdadero.
+El calor y el olor a arena de fuera se iban adelgazando, y se acercaban más el olor a metal limpiado durante mucho tiempo, a hierbas medicinales secas y a tela sin rastro de humedad. Era el olor de un espacio que dejaba a alguien quedarse mucho tiempo, pero sin dejarle sentirse a salvo a la ligera. Sion recordó el interior de la carpa donde había visto a Aka por primera vez. Pero esto era más hondo. Un espacio para vivir y, al mismo tiempo, un sector oculto. Un interior que tanto servía para que la gente descansara como para aislarla, y que se parecía más a un sitio donde solo dejaban entrar a las manos que habían pasado la prueba.
 
-Luhai no logró contenerse al final y murmuró muy bajo.
+Luhai, al final, no pudo aguantarse y murmuró muy bajo.
 
-—Anda, nos dejan entrar de verdad.
+—Vaya, de verdad nos dejan entrar.
 
-Nasim respondió esta vez sin sonreír.
+Esta vez Nasim habló sin sonreír.
 
-—Que tú también entres, eso aún no lo ha decidido nadie.
+—Que te dejen entrar también a ti todavía no lo ha decidido nadie.
 
-A Luhai se le cerró la boca al instante.
+A Luhai se le cerró la boca en el acto.
 
-Con esa breve escena le bastó a Sion para saberlo. Los que iban ahora hacia dentro no eran simples acompañantes, sino únicamente las manos directamente ligadas al resultado del tablero. La mano que sostenía la brasa auténtica, las manos que la habían traído viva, y la mano que juzgaría el resultado.
+Con esa breve escena le bastó a Sion para saberlo. Los que iban ahora hacia dentro no eran simples acompañantes, sino solo las manos ligadas directamente al resultado de la partida de antes. La mano que llevaba la brasa verdadera, las manos que habían hecho que esa brasa volviera viva y la mano que juzgaría ese resultado.
 
-Kael seguía siendo igual de parco. En cambio, no dejaba de observar las paredes interiores, la disposición de los accesos, la posición de las manos de la gente de Harún. Que la carrera hubiera terminado no significaba que la guardia hubiera muerto. Al contrario, eran estos tramos silenciosos los que podían resultar más peligrosos: la mirada de alguien cuyo cuerpo sabía eso antes que la cabeza.
+Kael seguía hablando poco. En cambio, no dejaba de mirar las paredes interiores, la forma de las entradas y la posición de las manos de la gente de Harún. Que la carrera hubiera terminado no quería decir que la vigilancia hubiera muerto. Eran los ojos de alguien cuyo cuerpo sabía antes que nada que un tramo silencioso como aquel podía ser, más bien, más peligroso.
 
-Sern, en cambio, miraba otra cosa.
+Sern miraba otra cosa.
 
-La estructura misma de este interior.
+La propia estructura de aquel interior.
 
-Quién se quedaba mucho tiempo y dónde, qué puertas eran para vivir, cuáles para el almacenaje, de qué lado quedaban el agua y las hierbas medicinales y de dónde venía más fuerte el olor a metal. Quien calcula lee siempre el espacio así. No para preparar luego una fuga, sino para distinguir ahora mismo qué compensación era solo palabra y cuál existía de verdad.
+Quién se quedaba mucho tiempo y dónde, qué puertas eran para vivir y cuáles para almacenar, por dónde quedaban el agua y las hierbas medicinales y dónde se hacía más intenso el olor a metal. Quien calcula siempre lee así un espacio. No para escapar después, sino para distinguir primero qué recompensa era solo de palabra y cuál existía de verdad.
 
-Al fondo del corredor, Zahir se detuvo.
+Al final del pasadizo, Zahir se detuvo.
 
-Ante él se revelaba a medias un sector nuevo.
+Delante tenían un sector nuevo, a medio descubrir.
 
-Era un espacio que Sion veía por primera vez, pero lo entendió de golpe. No era una sala de espera, ni un taller, ni un tablero abierto como el patio central. El interior del interior. El interior verdadero al que Zahir no admitía a la ligera a los de fuera.
+Era un espacio que veía por primera vez, pero Sion lo supo de golpe. Aquello no era una sala de espera, ni un taller, ni una partida a la vista de todos como el patio. El interior del interior. El interior de verdad, donde Zahir no dejaba entrar a la ligera a la gente de fuera.
 
-Y dentro,
-colgaba suspendido un casco a medio desmontar.
+Y dentro colgaba un casco a medio desmontar.
 
-Más exactamente, no era solo el esqueleto de un pecio desguazado.
+Más exactamente, no era solo el esqueleto de una de las naves muertas.
 
-Era un casco de una hechura del todo distinta a la de los esquifes del desierto o los planeadores corrientes. Más largo, la osamenta más fina, el revestimiento medio arrancado pero la forma original aún no muerta. Estructuras de placa extensible parecidas a aletas plegadas más que a alas. Fijaciones de empuje orientadas de otra manera que los dispositivos de sustentación del desierto. Y aquí y allá, rastros de acoplamiento de eterita.
+Era un casco de una hechura distinta a la de los esquifes del desierto o los planeadores que conocían. Más largo, con un armazón más fino, y aunque el revestimiento estaba medio arrancado, la forma original aún no había muerto. Una estructura de placas desplegables que parecía más una aleta plegada que un ala, anclajes de empuje orientados en otra dirección que los sistemas de sustentación del desierto y, aquí y allá, señales de acoplamientos de eterita añadidos.
 
 Por primera vez, los ojos de Han Jiwoo cambiaron por completo.
 
-Ya no eran los ojos de una piloto que examina un aparato,
-sino los de alguien que acababa de reconocer que un aparato que creía muerto no estaba del todo muerto.
+Esta vez no eran los ojos de una piloto que mira un aparato, sino los de alguien que acababa de reconocer que un aparato que creía muerto todavía no estaba muerto del todo.
 
-Dio un paso adelante, casi por reflejo.
+Casi por reflejo, dio un paso adelante.
 
 —Esto…
 
-No terminó la frase.
+No pudo terminar la frase.
 
 Sion también contuvo el aliento.
 
-Esto no era una simple compensación.
-No era un intercambio de metal que se saldara con un poco de eterita,
-sino un objeto de un calibre capaz de poner en juego, entero, el siguiente medio de transporte.
+Aquello no era una simple recompensa.
+No era un trato de metal que se cerraba dando un poco de eterita, sino algo de un nivel con el que se podía poner en juego, entero, el medio para pasar a la siguiente etapa.
 
-Luhai tampoco pudo esta vez mantener la boca cerrada.
+Esta vez Luhai tampoco pudo cerrar la boca.
 
-—Anda —dijo, admirado de verdad—. ¿Tenían esto escondido aquí dentro?
+—Vaya.
+Lo dijo admirado de verdad.
+—¿Tenían esto escondido aquí dentro?
 
-Harún dijo entonces, breve.
+Solo entonces habló Harún, breve.
 
 —Todavía no está terminado.
 
-Han Jiwoo lo recogió al instante.
+Han Jiwoo recogió esas palabras en el acto.
 
 —Pero no está muerto.
 
-Zahir, viendo esa reacción, movió el rincón de los labios apenas un asomo.
+Al ver esa reacción, Zahir movió de forma mínima la comisura de los labios.
 
-—Sabes mirar —dijo.
+—Sabes mirar.
+Lo dijo Zahir.
 
-Han Jiwoo respondió esta vez sin apartar los ojos.
+Esta vez Han Jiwoo respondió sin apartar la mirada.
 
-—Una mano que confundiera esto con chatarra no sobrevive hasta aquí.
+—Una mano que confunde esto con chatarra no llega viva hasta aquí.
 
 Un breve silencio.
 
-Nasim esbozó entonces una sonrisa muy leve.
+Solo entonces Nasim sonrió, muy levemente.
 
-—Bien —dijo—. Por fin el trato se parece a algo.
+—Bien.
+Eso dijo Nasim.
+—Por fin esto parece un trato como es debido.
 
-A Sion no le gustaba esa frase, pero no pudo negarla. Esto, desde luego, no era una compensación pequeña.
+A Sion no le gustaron esas palabras, pero no pudo negarlas. Desde luego, aquella no era una recompensa pequeña.
 
-En ese momento, Aka caminó por primera vez hacia el casco.
+En ese momento, Aka avanzó por primera vez hacia el casco.
 
-Unos pasos muy silenciosos.
-Pero, por extraño que fuera, aquí dentro esos pocos pasos parecían cargar más sentido que las palabras de Zahir. Aka se acercó hasta muy cerca del costado del casco sin levantar la mano y, a esa distancia mínima, se limitó a serenar el aliento una vez.
+Fueron pasos muy silenciosos.
+Pero, de forma extraña, en aquel interior esos pocos pasos parecían tener más peso que las palabras de Zahir. Aka llegó muy cerca del costado del casco y, sin levantar la mano, desde una distancia mínima, recuperó el aliento una vez.
 
-Luego dijo en voz baja.
+Y habló en voz baja.
 
-—Este todavía no remeda una puerta.
+—Este todavía no se hace pasar por una puerta.
 
-A Sion esas palabras le entraron, por extraño que fuera, como un alivio.
+A Sion esas palabras le entraron, de forma extraña, como un alivio.
 
-No era una puerta acabada.
-Pero al menos significaba que no era una mentira.
+No era una puerta completa.
+Pero al menos quería decir que no era una mentira.
 
-Aka miró esta vez la brasa en la mano de Sion.
+Esta vez, Aka miró la brasa que Sion tenía en la mano.
 
-—Sin eso, no aguantará mucho —dijo—. Pero solo con eso tampoco se parte.
+—Sin eso no llega lejos.
+Lo dijo ella.
+—Pero solo con eso tampoco despega.
 
-—¿Qué más hace falta? —preguntó Sion enseguida.
+—¿Qué más hace falta?
+Sion lo preguntó enseguida.
 
-Aka hizo una breve pausa.
+Aka se detuvo un momento.
 
-—Alguien que lo enlace —dijo.
+—Alguien que lo enlace.
+Eso dijo ella.
 
-Sion supo que no hablaba de simple mano de obra técnica.
+Sion supo que no se refería a una simple mano de obra técnica.
 
 Estaba la brasa,
 estaba el casco que no había muerto,
-pero unir ambos no bastaría para abrir el camino.
-Hacía falta alguien que enlazara la gramática entre los dos.
+pero no por pegar sin más las dos cosas se abriría el camino.
+Hacía falta alguien que enlazara la gramática que había entre ellas.
 
-Sern preguntó muy bajo.
+Sern preguntó en voz muy baja.
 
-—¿Esa eres tú?
+—¿Es usted esa persona?
 
 Aka lo miró.
 
 Una mirada breve y silenciosa.
 
-—Yo sola no —dijo—. Pero si no vigilo, lo vuelven a matar.
+—Yo sola no.
+Lo dijo ella.
+—Pero si yo no miro, otra vez lo matan.
 
-En el instante en que esas palabras cayeron, todas las líneas arrastradas desde el patio central parecieron enlazarse de golpe.
+Sion se quedó prendido de esas dos palabras.
+
+Otra vez.
+
+Quería decir que ya lo habían matado una vez. No dijo quién había matado qué ni cuándo. No tenía intención de decirlo.
+
+Sion estuvo a punto de preguntar y no lo hizo. En un sitio donde les habían dejado entrar hasta tan adentro, había cosas que se podían preguntar y cosas que no, y esta parecía de las segundas.
+
+En el instante en que cayeron esas palabras, sintió que todas las líneas que venían arrastrando desde el patio se unían de golpe.
 
 La puerta falsa.
-El remedo que recordaba una puerta.
+La imitación que recordaba una puerta.
 La prueba de que el camino no había muerto del todo.
-Y ahora, ante sus ojos, este casco que aún no estaba muerto.
+Y el casco que ahora, delante de sus ojos, todavía no había muerto.
 
 Lo que hacía falta ahora
-era ver esto,
-enlazarlo,
-y manos que impidieran que muriera.
+eran manos que vieran esto,
+que lo enlazaran
+y que no lo dejaran morir.
 
-Zahir, tras escuchar ese intercambio hasta el final, dijo al fin en voz baja.
+Zahir escuchó aquella conversación hasta el final y solo entonces habló en voz baja.
 
-—La compensación son tres cosas —dijo—. Eterita. Ese casco. Y las palabras que esa niña les dará.
+—La recompensa son tres cosas.
+Lo dijo Zahir.
+—Eterita. Ese casco. Y las palabras que les dará esa niña.
 
 Luhai casi se tragó el aliento.
 
-—Anda, lo apuestan todo de verdad.
+—Vaya, de verdad lo pone todo.
 
-Seorin esta vez no sonrió.
+Esta vez Seorin no sonrió.
 
 Porque era demasiado grande.
-A ese nivel, ya no era una compensación, sino casi una apuesta de un solo bloque sobre todo lo que venía después.
+A ese nivel, aquello no era una recompensa, sino algo más parecido a una partida en la que se jugaba entero todo el camino que tenían por delante.
 
 La mirada de Zahir volvió hacia Sion, Han Jiwoo, Kael y Sern.
 
-—Pero ninguno de los tres es gratis —dijo.
+—Pero ninguna de las tres es gratis.
+Eso dijo Zahir.
 
-A Sion, al contrario, esas palabras le cayeron bien.
+A Sion, al contrario, esas palabras le alegraron.
 
 Claro.
-Hazran no podía terminar dando las cosas sin contrapartida.
+Era imposible que Hazran terminara simplemente regalando las cosas.
 Eso era más propio de Zahir.
 
-—¿Qué queda? —preguntó Sion.
+—¿Qué falta?
+Sion lo preguntó.
 
-Zahir respondió muy bajo.
+Zahir respondió en voz muy baja.
 
-—La resolución de entrar más adentro.
+—La disposición a entrar todavía más adentro.
 
-Con esa sola frase,
-quedó claro que hasta este espacio interior no era todavía más que un umbral.
+Con esas palabras quedó claro que incluso aquel espacio interior no era todavía más que un umbral.
 
 ---
 

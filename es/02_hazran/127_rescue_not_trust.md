@@ -115,7 +115,7 @@ con un rostro que a cualquiera le diría que llevaba mucho sin dormir bien.
 Pero su mirada, eso sí, era extrañamente nítida.
 
 —¿Recién llegados?
-—preguntó.
+Preguntó ella.
 
 Sion asintió con la cabeza.
 

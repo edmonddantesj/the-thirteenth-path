@@ -1,160 +1,237 @@
 # Episode 155. Serakion Learns
 
-The traces left by the first rescue showed far sooner than expected.
+The trace the first rescue had left behind
+showed itself sooner than anyone expected.
 
-The day they went out to check the next transit line, Kael recognized first that it was not the paths but the intervals that had changed.
+The day they went out to check the next movement line again,
+Kael was the first to see that it was not the path that had changed but the intervals.
 
-Before, three or four children crossed over in short, even beats.
+Before, three or four children at a time
+had crossed in short, even beats.
 
 This time was different.
 
-The spacing between lines had become faintly irregular. The pauses just before the shift line were no longer consistent. Between two machines that had appeared to move at the same speed, there were now traces of deliberately different response times.
+The spacing between the lines had turned faintly irregular,
+the pause just before the shift line was no longer steady,
+and between two machines that had seemed to run at the same speed
+there was even a sign that different response times had been set on purpose.
 
-Serakion had not raised a loud alarm. Instead it had learned precisely where the first fracture had opened, and quietly repaired from that gap outward.
+Serakion had not sounded a loud alarm.
+Instead it had learned exactly where the first crack had opened,
+and quietly mended that gap before anything else.
 
-Kael said it very low.
+Kael said, very low,
 
-"Faster than expected."
+"Faster than I expected."
 
 The first recovery hand answered.
 
-"That is how it always is here. It is not the loud part that is frightening. It is the second time onward."
+"That is how it is here."
+"More than any loud noise,
+it is the second time on that frightens you."
 
-That sounded like a truth describing all of Serakion.
+That sounded like a truth that explained all of Serakion.
 
-This world does not correct by loudly exposing errors. Instead, it adjusts the beat more courteously and more quietly, so the same misalignment never occurs again.
+This world does not correct a mistake by exposing it loudly.
+Instead, so that the same misalignment never happens again,
+it corrects the beat more politely and more quietly.
 
-That is why the second time is harder.
+That is why it gets harder from the second time on.
 
-Jiwoo looked at the children's side. Her face hardened immediately.
+Han Jiwoo looked toward the children.
+Her face set at once.
 
-They were not the same children as before. Their faces had not all changed, of course. But the arrangement had.
+They were not the same children as before.
+Not every face had changed, of course.
+But the arrangement was different.
 
-Slow children were no longer placed next to fast ones. Beside enduring hands, already-accustomed children had been mixed in. Between them, humans so quiet they felt almost like surveillance had been inserted.
+No fast child stood next to a slow one anymore,
+children already used to it had been mixed in beside the hands still holding out,
+and here and there among them stood humans so quiet they felt more like watchers.
 
-Serakion was no longer simply elevating the children. It was rearranging them so their misalignments cancelled each other out.
+Serakion was no longer simply moving the children upward;
+it was rearranging them so that their misalignments canceled each other out.
 
-Jiwoo said it low.
+Han Jiwoo said, low,
 
-"They even mixed the children."
+"They've mixed the kids too."
 
-The second recovery hand answered very short.
+The second recovery hand answered, very briefly.
 
-"Three got out. So."
+"Because some got out once."
 
-The words were dry, but clear anger lived inside them.
+The words were dry,
+but there was clear anger in them.
 
-Serakion uses humans as material even from its own failures. Who was slow. Who was fast. Who followed a hand. Who still held their own beat.
+Serakion uses people as material even in its failures.
+Who was late,
+who was fast,
+who followed a hand,
+who still had a beat of their own.
 
-It reads all of it, then arranges the next group so they bind each other tighter.
+It reads all of that,
+and next time arranges them so that they bind one another tighter.
 
-Ater studied the new arrangement for a long time, then said it low.
+Ater watched the new arrangement for a long time, then said, low,
 
-"More overt now."
+"It is more blatant now."
 
-Jiwoo looked at him.
+Han Jiwoo looked at him.
 
-Ater traced the positions of the upper guide machines and the humans between them with his eyes.
+Ater ran his eyes over the guide machines above and the positions of the humans between them, and went on.
 
-"They have gotten kinder than before. That is never the face of a good time. It is the face of tighter control."
+"It has become kinder than before."
+"That face shows up less when things are good
+than when the control has drawn tighter."
 
-That was precise.
+He was exactly right.
 
-The upper machines spoke more softly than before. They pretended to match the children's steps more often. The buffer between stops and movement had become more natural.
+The machines above spoke more softly than before,
+pretended more often to match the children's steps,
+and the buffer between stopping and moving had grown more natural.
 
-But precisely because of that, it was more suffocating.
+But that very thing
+made it harder to breathe.
 
-The increase in courtesy was not consideration. It was closer to a new technique for sealing the first fracture.
+The added courtesy was not care;
+it was closer to a new technique for sewing up the first crack.
 
-Serakion had not gripped the children more roughly. It had made them harder to escape from — more softly, more naturally.
+Serakion did not grip the children more roughly.
+If anything, it made its hold softer,
+more natural,
+harder to slip out of.
 
-Kael read that structure and reached his conclusion almost immediately.
+Kael read that structure and reached a conclusion almost at once.
 
-"The same method will not work."
+"The same way won't work."
 
 The first recovery hand asked.
 
-"How does it change."
+"Then how does it change?"
 
-Kael did not answer right away.
+Kael didn't answer for a moment.
 
-He was watching not the upper line, but one auxiliary machine moving outside it.
+He was watching not the line above
+but one auxiliary machine moving outside that line.
 
-A type that had been less visible before. But now it was so natural that its very presence registered later.
+It was the kind that had been less noticeable before.
+But now it was so natural
+that you noticed it was there later than you should have.
 
-"We cannot shake from outside." He said it low. "Now we have to split from inside."
+"We can't shake it from outside,"
+he said, low.
+"Now we have to split it from inside."
 
-Brief silence.
+A short silence.
 
-Ater understood the meaning first.
+Ater caught the meaning first.
 
-"Instead of shaking the entire line, pre-split the beat from within?"
+"Instead of shaking the whole line,
+you mean we split the beat apart from inside first?"
 
 Kael nodded.
 
-"If we create confusion from outside, they seal it immediately now. But if a different speed already exists inside, for a moment even they might be unsure what to align first."
+"If we make confusion outside,
+they seal it right away now."
+"But if there's already a different speed inside,
+for a moment even they might not know what to match first."
 
-Dangerous, but the kind of thinking they needed right now.
+The idea was dangerous,
+but it was exactly the kind of idea they needed now.
 
-The first rescue had been opened by hands from outside. From the second onward, they might have to use the time still remaining on the human side inside as well.
+In the first rescue, outside hands had opened the gap.
+From the second on,
+they might have to use the time of the people still left inside as well.
 
-Jiwoo looked at the children again.
+Han Jiwoo looked at the children again.
 
-Far harder than before. Reading who would respond first, who would follow, who might create confusion — all of it was more difficult.
+It was much harder than before.
+Who would react first,
+who would follow,
+who would cause confusion—all of it was harder to read.
 
-But even in the midst of that, small misalignments still existed.
+But even in the middle of that,
+there were things that slipped out of line, very slightly.
 
-Some children still moved their feet before their hands. Some still checked sideways before looking up. Some grew more rigid the kinder the guidance became.
+One child still moved feet before hands,
+one child still checked sideways before looking up,
+and one child, the kinder the guidance became,
+only stiffened more.
 
-Serakion had grown smarter. But it also meant people had not yet fully hardened into material.
+Serakion had grown smarter.
+But it also meant that, so far,
+people had not set entirely into material.
 
-Jiwoo said it very low.
+Han Jiwoo said, very low,
 
-"They are still there."
+"There's still something left."
 
 This time no one asked what she meant.
 
-What remained was the children. What remained was their own beat. What remained might be the time that remembered Hazran.
+What was left was the children.
+What was left was their own beat.
+What was left might be the time that remembered Hazran.
 
-And perhaps, the fact that a hand had reached in once from outside now remained somewhere inside as well.
+And maybe,
+the fact that a hand had once reached in from outside was now left somewhere inside, too.
 
-The second recovery hand asked low.
+The second recovery hand asked, low,
 
-"Who do we look at first this time."
+"Who do we look at first this time?"
 
-The question was simple, but the weight inside it was heavier than before.
+The question was simple,
+but the weight in it was greater than before.
 
-This was no longer just choosing three as they had the first time. Inside a Serakion that had changed since the first rescue, they had to re-read who could still be a gap.
+This was no longer a matter of choosing three, as they had the first time.
+Inside a Serakion that had changed since the first rescue,
+they had to read all over again who could still become a gap.
 
-And then, a very small child standing at the end of the line turned their head sideways for what felt like a single instant.
+And then,
+one very small child standing at the end of the line
+turned their head to the side, for no more than an instant.
 
-The movement was so short that at first glance it could have looked like a meaningless habit.
+The movement was so short
+that at first glance it could pass for a meaningless habit.
 
-But the moment Jiwoo saw it, her gaze changed. Ater looked the same direction almost simultaneously.
+But the moment Han Jiwoo saw it, her eyes changed.
+Ater looked that way almost at the same time.
 
-Kael read both their reactions and said it very low.
+Kael read both their reactions and said, very low,
 
-"You saw it."
+"You saw that."
 
-Jiwoo did not answer. But she did not look away.
+Han Jiwoo didn't answer.
+But she didn't look away.
 
-The child had already returned into the beat Serakion had given, as though nothing had happened.
+As if nothing had happened, the child
+was already back inside the beat Serakion had given.
 
-That was precisely why it was more dangerous, and more important.
+That was exactly why it was more dangerous,
+and more important.
 
-The second rescue could not be done with more force than the first. It had to be quieter, had to split from deeper inside, and had to read more precisely who was still holding on to time on the human side.
+Now the second rescue
+could not be done with more force than the first.
+It had to be quieter,
+it had to split from further inside,
+and it had to read more exactly who was still holding on to time on the human side.
 
 Serakion had already learned once.
 
-But the recon team, the recovery hands, and perhaps even the children remaining inside — none of them were the same as before either.
+But the recon team,
+the recovery hands,
+and maybe the children still inside, too,
+were no longer quite the same as before.
 
-When they returned that day, no one thought this would be easier.
+When they came back that day,
+no one thought this time would be easier.
 
-Everyone knew, in fact.
+If anything, they all knew.
 
-The first fracture had been about breaking Serakion's beat.
+The first crack had been about breaking Serakion's beat.
 
-But from the second onward, they had to prove against a world that had re-learned its beat — that the time on the human side was not yet fully dead.
+But from the second on,
+against a world that had learned that beat over again,
+they had to prove that time on the human side was not yet entirely dead.
 
 ---
 

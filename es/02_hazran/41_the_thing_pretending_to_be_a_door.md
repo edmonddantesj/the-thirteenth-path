@@ -4,171 +4,205 @@ Después de que cayera la frase de Aka, el aire del interior se quedó un tiempo
 
 *No es una puerta.*
 
-La frase era corta, pero fue justamente esa brevedad la que se clavó más hondo. Sion comprendió de inmediato que aquella frase no sonaba ni a simple metáfora ni a impresión. No era una cuestión de si algo parecía bueno o malo, ni de creencia ni de instinto. Aka acababa de emitir un veredicto. Y ese veredicto golpeaba en pleno centro de aquello que el grupo de Sion había perseguido hasta aquí.
+La frase era corta, pero esa misma brevedad se clavó más hondo. Sion supo enseguida que aquella frase no le sonaba a simple metáfora ni a impresión. No era cuestión de si algo parecía bueno o malo, ni de fe ni de intuición. Aka acababa de emitir un veredicto sobre algo. Y ese veredicto se clavaba de lleno en el centro de aquello que el grupo de Sion había perseguido hasta aquí.
 
 Quien reaccionó antes que Sion fue Ater.
 
-—Qué quiere decir —preguntó en voz baja.
+—¿Qué quiere decir?
+Lo preguntó en voz baja.
 
-Aka no miró hacia él. Seguía yendo y viniendo con la mirada entre el fragmento en los brazos de Kael y la eterita en la mano de Luhai. Unos ojos que, antes de cruzarse con los de nadie, leían primero el desajuste mismo, el que nacía cuando esos dos objetos se colocaban en un mismo espacio.
+Aka no miró hacia él. Seguía mirando por turnos el fragmento que Kael llevaba contra el pecho y la eterita de la mano de Luhai. Eran unos ojos que, más que cruzarse con los de una persona, leían primero el desajuste mismo que nacía cuando esos dos quedaban en el mismo espacio.
 
-—Está imitando una puerta —dijo muy bajo—. Pero no es una puerta.
+—Está imitando una puerta.
+Lo dijo muy bajo.
+—Pero no es una puerta.
 
-La expresión de Ater se endureció de manera imperceptible. Sion lo vio y lo entendió. No era la reacción de quien acaba de oír una metáfora extraña. Era el rostro de un hombre en quien acababa de entrar de golpe el siguiente cálculo: las líneas de aprobación reunidas hasta ahora, los dos trazos, la estructura de aprobación múltiple, la secuencia cortada, todo eso quizá había que darle la vuelta de arriba abajo otra vez.
+La expresión de Ater se endureció levemente. Sion lo supo al verle la cara. No era la reacción de alguien que acaba de oír una metáfora rara. Era la cara de alguien en quien entraba de golpe el cálculo de que quizá había que volver a darle la vuelta a todo lo reunido hasta ahora: las líneas de aprobación y los dos trazos, la estructura de aprobación múltiple, la secuencia cortada.
 
-—Quiere decir que es falsa —preguntó Ater.
+—¿Quiere decir que es falsa?
+Lo preguntó Ater.
 
-Aka, esta vez, negó con la cabeza muy despacio.
+Esta vez Aka negó con la cabeza muy despacio.
 
-—Tampoco es falsa —dijo—. No es una imitación muerta. Es algo que se hace pasar por una puerta.
+—Es distinto de falso.
+Eso dijo.
+—No es una imitación muerta: es algo que se hace pasar por una puerta.
 
-Luhai, al oír esas palabras, murmuró casi por reflejo:
+Al oírlo, Luhai murmuró casi por reflejo.
 
-—¿Es mucha la diferencia?
+—¿Tanta diferencia hay?
 
-La mirada de Aka tocó a Luhai por primera vez.
+La mirada de Aka tocó por primera vez a Luhai.
 
-—Mucha —dijo—. Lo que está muerto no se abre. Pero eso se lleva a la gente haciéndoles creer que va a abrirse.
+—Mucha.
+Lo dijo ella.
+—Lo muerto no se abre. Pero eso se lleva a la gente como si fuera a abrirse.
 
-En el instante en que cayeron esas palabras, Sion sintió que el interior de su espalda se enfriaba.
+En el instante en que cayeron esas palabras, Sion sintió que algo, dentro de la espalda, se le enfriaba.
 
-Lo que no se abre,
-y lo que se lleva a la gente haciéndoles creer que va a abrirse.
+Lo que no se abre, y lo que se lleva a la gente como si fuera a abrirse.
 
 Eran dos peligros completamente distintos.
 
-Hasta ahora habían pensado que, si encontraban la secuencia cortada y recosían las líneas de aprobación que aún no estaban muertas, algún día podrían llegar a la estructura verdadera. Pero si Aka tenía razón, el problema quizá no era una simple pérdida o un simple corte. Una estructura dejada desde el principio para conducir a alguien en la dirección equivocada. Algo que no era una puerta, hecho para parecer una puerta.
+Hasta ahora habían pensado que, si encontraban la secuencia cortada y volvían a unir las líneas de aprobación que no habían muerto, algún día llegarían hasta la estructura verdadera. Pero si Aka tenía razón, el problema quizá no era una simple pérdida o un corte. Una estructura dejada desde el principio para guiar a alguien en la dirección equivocada. Algo que no era una puerta, hecho para parecer una puerta.
 
-Nasim no había retirado su sonrisa ni un ápice, pero Sion sabía que no había oído aquellas palabras a la ligera. Harún seguía sin moverse, y Nahira se había vuelto aún más callada. Cuando Aka emitía esa clase de veredicto, la gente del interior parecía no añadir palabras a la ligera. No por costumbre, sino porque sabían cuánta magnitud de valores podía hacer cambiar una palabra así.
+Nasim no retiró la sonrisa ni un poco, pero Sion se dio cuenta de que no había tomado a la ligera lo que acababa de oírse. Harún seguía sin moverse, y Nahira, al contrario, se había vuelto más callada. Cuando Aka emitía esa clase de veredicto, la gente de aquí dentro parecía no echarle palabras encima sin más. No por costumbre, sino porque sabían lo grandes que eran los precios que esas palabras podían cambiar.
 
-Seorin preguntó muy bajo:
+Seorin preguntó muy bajo.
 
-—¿Entonces qué hemos perseguido hasta aquí?
+—¿Entonces qué hemos venido persiguiendo?
 
-Aka, esta vez, miró un poco más rato el fragmento del lado de Sion.
+Esta vez Aka miró un poco más de rato el fragmento del lado de Sion.
 
-—El sitio donde se cortó —dijo—. No es una puerta, pero han seguido el lugar donde una puerta tendría que haber estado.
+—El sitio cortado.
+Lo dijo ella.
+—No es una puerta, pero han seguido el sitio donde tenía que haber una puerta.
 
-Sion encontró que esas palabras, por extraño que fuera, se entendían de inmediato. El nombre había sobrevivido, pero la secuencia había sido cortada, solo una parte de las líneas de aprobación subsistía, y la aprobación múltiple había vuelto la estructura aún más turbia. Así que lo que habían perseguido quizá no era una puerta intacta, sino la huella de un lugar donde una puerta debería haber existido.
+Esas palabras, por extraño que fuera, Sion las entendió de inmediato. El nombre había sobrevivido, pero la secuencia estaba cortada; solo quedaba una parte de las líneas de aprobación, y la aprobación múltiple había enturbiado aún más la estructura. Así que lo que habían perseguido quizá no era una puerta entera, sino la huella del sitio donde tendría que haber habido una puerta.
 
-Si alguien había cubierto ese lugar con otra cosa.
-Algo que se hacía pasar por una puerta.
+Si alguien hubiera tapado ese sitio con otra cosa.
+Con algo que se hace pasar por una puerta.
 
-Ater dio un paso más y preguntó:
+Ater dio un paso más y preguntó.
 
 —¿Puede distinguirlo?
 
-Aka tampoco respondió de inmediato a su pregunta. En su lugar, cerró los ojos un brevísimo instante y volvió a abrirlos. No era alguien rebuscando en la memoria, ni alguien escogiendo entre conjeturas, sino el instante de una persona que reordenaba una vez más, dentro de sí misma, la textura que se percibía aquí y ahora.
+Aka tampoco respondió enseguida a su pregunta. En cambio, cerró los ojos un instante muy breve y los volvió a abrir. No era rebuscar en la memoria ni elegir entre conjeturas, sino el instante de alguien que vuelve a ordenar dentro del cuerpo la textura que siente aquí y ahora.
 
-—Sola no puedo con todo —dijo—. Pero cuando los dos están juntos, hacen demasiado ruido.
+—Sola no puedo con todo.
+Eso dijo ella.
+—Pero cuando los dos están juntos, hacen demasiado ruido.
 
 Esta vez todos miraron al mismo sitio.
 
-El fragmento en los brazos de Kael.
-La eterita en la mano de Luhai.
+El fragmento que Kael llevaba contra el pecho.
+La eterita de la mano de Luhai.
 
-Solo entonces comprendió Sion por primera vez. Por qué Aka se había sentido incómoda desde hacía rato al mirarlos juntos. Por separado, cada uno de los dos objetos todavía se aguantaba, pero colocados en el mismo espacio resonaban demasiado fuerte y enturbiaban mutuamente su textura. Como si dos cosas verdaderas, en vez de hacerse más nítidas la una a la otra, vibraran al contrario con tanta fuerza que impedían ver cualquier otra cosa.
+Solo entonces entendió Sion, por primera vez, por qué Aka se había mostrado incómoda desde hacía rato al mirar los dos juntos. Cada objeto, por separado, todavía se aguantaba, pero en el mismo espacio reaccionaban con demasiada fuerza y se enturbiaban la textura el uno al otro. Como si dos cosas verdaderas, en lugar de volverse más nítidas entre sí, vibraran tan fuerte que impidieran ver todo lo demás.
 
-Kael preguntó en voz baja:
+Kael preguntó en voz baja.
 
 —¿Basta con separarlos?
 
-Aka asintió con la cabeza, breve.
+Aka, en lugar de responder, dio un paso atrás.
 
-—Lejos —dijo—. Y en un sitio tranquilo.
+Y abrió la palma de la mano hacia Kael.
 
-Nasim abrió entonces la boca por primera vez.
+—Levántalo.
 
-—Bien —dijo—. Entonces el verdadero problema es simple ahora. Hace falta la eterita, hace falta tu veredicto, y ese fragmento tampoco se puede tirar.
+Kael sacó un poco el fragmento que llevaba contra el pecho. Solo había asomado la mitad de la superficie por un hueco de la tela, pero los hombros de Aka se tensaron un instante muy corto. Aguantó así unos cuantos compases y cerró los ojos.
 
-Seorin respondió con frialdad:
+—Ya está. Guárdalo.
 
-—Simple para ti, quizá.
+Kael volvió a taparlo.
+
+—Luhai.
+
+Luhai, tanteando el ambiente, abrió un poco la mano. En ese instante, Aka retrocedió medio paso más hacia el otro lado. Esta vez no cerró los ojos. En cambio, la cara se le puso pálida.
+
+—Basta.
+
+Luhai cerró la mano de golpe.
+
+—¿Qué? ¿Qué ves?
+
+—No veo nada.
+Lo dijo Aka.
+—Ese es el problema.
+
+Solo entonces lo entendió Sion. Cuando dos cosas verdaderas están juntas, no se vuelven más nítidas entre sí: vibran tan fuerte que no dejan ver nada. Aka no tenía ahora la vista más aguda; estaba cegada.
+
+—Lejos.
+Eso dijo ella.
+—Y en un sitio tranquilo.
+
+Solo entonces habló Nasim.
+
+—Entonces el problema es sencillo.
+Así lo dijo.
+—Hace falta la eterita, hace falta tu veredicto, y ese fragmento tampoco se puede tirar.
+
+Seorin respondió con frialdad.
+
+—Será sencillo para ti.
 
 Nasim sonrió.
 
-—Cuanto más complicado, más valor se le pega.
+—Cuanto más complicado, más precio se le pone.
 
-Ante esas palabras, Luhai torció la cara.
+Ante eso, Luhai arrugó la cara.
 
-—Aquí todo termina con un precio.
+—Aquí, de verdad, cada frase termina en precio.
 
-Nahira cortó esas palabras sin alzar la voz:
+Nahira lo cortó sin alzar la voz.
 
-—En Hazran, así es como se vive mucho.
+—En Hazran, así es como se vive mucho tiempo.
 
-Luhai no encontró nada que replicar. Esta vez no era simplemente que le hubieran cerrado la boca: era el rostro de quien sabía que esas palabras no estaban equivocadas.
+Luhai no supo qué contestar. Esta vez no era que simplemente le hubieran cerrado la boca: era la cara de quien sabe que esas palabras no son falsas.
 
-Sion miró de nuevo a Aka.
+Sion volvió a mirar a Aka.
 
-Aka seguía viendo la textura entre los objetos antes que a las personas. Y, sin embargo, esa manera de hacer volvía a la gente, por extraño que fuera, más nítida. Luhai era el crío que llegaba tarde por las letras, Kael el que cortaba el paso con la mano primero, Seorin la que cortaba la primera incluso con la boca cerrada, Ater el que intentaba ordenar el sentido. Aka, en apenas unas pocas palabras, acababa de hacer ver a cada cual desde un ángulo completamente nuevo.
+Aka seguía mirando la textura entre los objetos antes que a las personas. Y, sin embargo, por extraño que fuera, esa era una manera de mostrar a las personas con más nitidez. Luhai era el chico que llega tarde, por las letras; Kael, el que para primero con las manos; Seorin, la que corta primero aun con la boca cerrada; y Ater, el que intenta ordenar el sentido. Con solo unas pocas palabras, Aka acababa de hacer que se los volviera a ver a todos desde otro ángulo.
 
-Nahira dijo muy bajo:
+Nahira habló muy bajo.
 
-—Por hoy no se ve más.
+—Hoy ya no se ve más.
 
 Un breve silencio.
 
-Sion no logró decidir si esas palabras se referían al fragmento de eterita, a Aka, o al hecho de extraer una verdad más honda de este instante. Pero que las tres interpretaciones pudieran ser ciertas a la vez era precisamente lo que hacía a Hazran.
+Sion no supo decidir enseguida si esas palabras iban por el fragmento de eterita, por Aka o por sacar a la luz, aquí y ahora, una verdad más honda. Pero que las tres pudieran ser ciertas era todavía más propio de Hazran.
 
-Seorin preguntó:
+Seorin preguntó.
 
 —¿Por qué?
 
-Nahira respondió con calma:
+Nahira respondió con calma.
 
-—Porque han entrado con demasiadas cosas —dijo—. Ese fragmento, ese nombre, ese crío, la necesidad de un barco. Cuando se trae todo a la vez, aquí, primero se mezcla.
+—Porque han entrado cargando demasiadas cosas.
+Eso dijo ella.
+—Ese fragmento, el nombre, el chico, la necesidad del barco. Si se trae todo junto, aquí primero se mezcla.
 
-Sion creyó comprender un poco lo que significaban esas palabras. Por ahora, aunque intentara ver una sola cosa, los demás valores no dejaban de mezclarse. Había que salvar la nave, hacía falta eterita, había que decidir si soltar o retener a Luhai, había que escuchar más a Aka. Así que un veredicto más hondo todavía no podía emitirse.
+Sion creyó entender un poco lo que querían decir esas palabras. Ahora, aunque intentara ver una sola cosa, los demás valores no dejaban de mezclarse. Había que salvar el barco, hacía falta eterita, había que decidir si soltar o retener a Luhai, había que oír más a Aka. Así que todavía no se podía emitir un veredicto más hondo.
 
-Harún dijo, breve:
+Harún habló con brevedad.
 
-—Por eso separamos.
+—Por eso se separa.
 
-Nasim recogió esas palabras:
+Nasim recogió esas palabras.
 
-—Bien. El fragmento aparte, la eterita aparte, las conversaciones aparte —dijo—. Entonces a partir de ahora los valores van a escindirse de verdad.
+—El fragmento aparte, la eterita aparte, la conversación aparte.
+Lo dijo él.
+—Entonces ahora sí que los valores se van a separar de verdad.
 
-Al oír esa frase, Sion entrevió de forma vaga la etapa siguiente.
-
-A partir de ahora:
-- el fragmento de Kael,
-- el fragmento de eterita,
-- el veredicto de Aka,
-- el saber de Luhai,
-- y la necesidad de reparar el barco de Han Jiwoo
-
-se separarían cada uno por su lado, y luego empezarían a enredarse de nuevo.
-
-Y esa separación misma tenía muchas probabilidades de empujarlos a todos hacia un tablero aún más vasto.
-
-Aka dijo una última vez, muy bajo:
+Aka habló muy bajo, por última vez.
 
 —Eso no es una puerta.
 
-Esta vez Sion preguntó de inmediato:
+Esta vez Sion preguntó enseguida.
 
 —¿Entonces qué es?
 
-Aka guardó silencio un instante.
+Aka guardó silencio un momento.
 
-Ese silencio no era el de alguien que no sabía, sino el de alguien que sabía y que, sin embargo, todavía no debía ponerle nombre.
+Ese silencio no parecía el de alguien que no sabe, sino el de alguien que sabe pero que todavía no debe ponerle nombre.
 
-Y respondió:
+Y entonces respondió.
 
-—Una imitación que recuerda una puerta.
+—Una imitación que se acuerda de una puerta.
 
 Sion estuvo a punto de perder el aliento.
 
-Una imitación que recuerda una puerta.
+Una imitación que se acuerda de una puerta.
 
-Eran palabras aún más inquietantes que una puerta muerta. Algo que no estaba ni del todo roto ni del todo vivo. Una estructura que sobrevivía en un entremedias, capaz de seguir llevando a la gente al lugar equivocado.
+Una puerta muerta no se abre. Por eso, una puerta muerta no se lleva a nadie.
 
-Lo que habían perseguido hasta aquí quizá no era simplemente una verdad cortada,
-sino una imitación que cubría el lugar donde había sido cortada.
+Sion volvió a contar las cosas que había seguido hasta aquí. La línea de aprobación cortada. La marca de la que solo quedaban dos trazos. La aprobación múltiple. Las dos palabras que Elia le había escrito en un papel.
 
-Y para separar eso,
-habían acabado por adentrarse hasta el tablero más profundo de este desierto.
+Había pensado que todo era lo que quedó porque alguien lo borró.
+
+También podía ser algo que alguien hizo y dejó ahí.
+
+Las dos cosas tienen la misma forma, pero una es un accidente y la otra, un gesto.
 
 ---
 

@@ -25,7 +25,7 @@ se daba cuenta un compás tarde de dónde estaba atrapado.
 Kael llevaba un buen rato observando la rendija fina de observación, las junturas ocultas junto al techo,
 el desgaste del suelo y hasta la deformación térmica fina de los muros.
 
-La segunda máquina de recuperación lo notó y preguntó bajo.
+La segunda mano de recuperación lo notó y preguntó bajo.
 
 —¿Qué mira?
 
@@ -44,7 +44,7 @@ pero siguió con los ojos las bifurcaciones y los pliegues mientras hablaba.
 sino que pliegan primero el punto que se nota más tarde.
 —Así uno se mete más adentro creyendo que sigue abierto.
 
-La primera máquina de recuperación soltó un aliento muy corto.
+La primera mano de recuperación soltó un aliento muy corto.
 
 —Cierto —dijo bajo—. Por eso siempre te toca correr una vez más.
 
@@ -99,13 +99,13 @@ y si atrapaban a uno, los demás no lo sabían.
 
 Y así podían volver a clasificarlos uno a uno.
 
-La primera máquina de recuperación dijo muy bajo.
+La primera mano de recuperación dijo muy bajo.
 
 —Por eso nosotros siempre miramos dos cosas.
 —Uno, el camino por donde sacarlos;
 otro, el punto que sujeta hasta el final.
 
-Kael la miró por primera vez.
+Kael miró por primera vez hacia ese lado.
 
 Los dos leían la estructura de un modo más parecido de lo esperado.
 
@@ -149,7 +149,7 @@ Kael observó un buen rato más las líneas del suelo, el reflejo de los muros y
 —Para sacarlos no se pelea aquí,
 hay que desviar antes, un punto más atrás.
 
-La segunda máquina de recuperación preguntó muy corto.
+La segunda mano de recuperación preguntó muy corto.
 
 —¿Por qué?
 
@@ -189,7 +189,7 @@ En Serakion el rescate no era un pulso de fuerza.
 Se acercaba más a una lucha contra el tiempo para sacar a la gente antes de que la estructura se pliegue.
 
 Y entonces,
-la primera máquina de recuperación dijo muy bajo, mirando al frente.
+la primera mano de recuperación dijo muy bajo, mirando al frente.
 
 —Pronto se mueve la fila de espera de los que suben arriba.
 

@@ -1,175 +1,198 @@
-# Capítulo 53 — El terreno que dejó de ser un juego
+# Capítulo 53 — La partida que dejó de ser un juego
 
-Desde el instante en que Sion cerró la mano sobre la brasa, la zona de brasas bajo la capa térmica dejó de ser un terreno de carrera.
+Desde el instante en que Sion cerró la mano sobre la brasa, la zona de brasas de la capa térmica dejó de ser un terreno de carrera.
 
-Han Jiwoo forzó el esquife a virar hacia Sion, y este, deslizándose casi sobre el suelo vitrificado que aún temblaba, tomó impulso y saltó a bordo. En el momento en que su pie enganchó de milagro el estribo trasero, el esquife salió disparado hacia fuera.
+Han Jiwoo giró el esquife a la fuerza para arrimarlo a Sion, y Sion, casi resbalando sobre el suelo vítreo que temblaba, tomó impulso y subió de un salto. En el instante en que su pie se enganchó a duras penas en el estribo auxiliar de atrás, el esquife salió disparado hacia fuera.
 
-Detrás de ellos, todo se fisuraba ya.
+Detrás, todo se estaba agrietando ya.
 
-Varias luces que, un instante atrás, llamaban a la gente con tanta crudeza como las de verdad, estallaron de golpe hacia arriba, y la capa de vidrio de debajo escupió grietas en cadena. No era el calor que se había torcido por sí solo: parecía un dispositivo enterrado de antemano que ahora sacudía toda la capa térmica de una sola vez. Las luces que fingían sobrevivir ardieron con más fuerza, y los equipos que no habían atrapado la brasa verdadera se dejaron engañar una última vez por ese resplandor estridente.
+Varias luces que hasta hacía un momento llamaban a la gente como si fueran verdaderas estallaron hacia arriba a la vez, y la capa de vidrio de debajo escupió grietas en cadena. No era que el calor se hubiera torcido por sí solo: parecía que un mecanismo que alguien había plantado de antemano sacudía ahora, de una sola vez, la capa térmica. Las luces que fingían haber sobrevivido ardieron con más estrépito, y los equipos que no habían cogido la brasa verdadera se dejaron engañar una última vez por esa reacción vistosa.
 
-El planeador rojo oscuro fue el primero en tambalearse con violencia.
+El planeador rojo oscuro fue el primero en tambalearse con fuerza.
 
-El ocupante de atrás, que había cogido una falsa, sacudió la mano como para deshacerse de ella, pero ya era tarde. Un costado del casco había resbalado sobre la capa de vidrio agrietada, y el piloto de delante, luchando por recuperar el equilibrio, perdió su ángulo de retorno. El equipo era lo bastante curtido como para no morir en el acto, pero, al menos, la sangre fría de hasta hacía un momento acababa de hacerse pedazos.
+El piloto de atrás, que había cogido la falsa, la soltó como quien se sacude la mano, pero ya era tarde. Un lado del planeador resbaló sobre la capa de vidrio agrietada, y el piloto de delante, forzándose a recuperar el equilibrio, perdió el ángulo de retorno. Era un equipo curtido y no se mató al instante, pero al menos la calma que tenía hasta hacía un momento se había roto.
 
-—¿No miras atrás? —preguntó Sion en pocas palabras.
+—¿No hace falta mirar atrás?
+Sion lo preguntó, breve.
 
 Han Jiwoo respondió enseguida.
 
-—Por ahora mira solo adelante.
+—Ahora mira solo adelante.
 
 La placa de sustentación derecha del esquife se levantó una vez más con retraso.
-El casco se inclinó, pero Han Jiwoo aprovechó hasta ese bandazo, empujando el aparato desde dentro hacia fuera como si convirtiera el desequilibrio en trayectoria de retorno. Nada de virajes vistosos: un pilotaje que cabalgaba a contrapelo la fuerza con que el terreno, al derrumbarse, lo empujaba.
+El casco dio un bandazo, pero Han Jiwoo empujó el aparato de dentro hacia fuera como si aprovechara hasta esa sacudida como línea de retorno. No era un giro vistoso, sino un pilotaje que montaba al revés la fuerza con que el terreno empujaba al derrumbarse.
 
-Sion, sin ni siquiera tiempo de volverse, apretó más fuerte la brasa en su mano.
+Sin tiempo siquiera para volverse, Sion apretó la brasa en la mano.
 
-Estaba caliente, pero no era un calor que quemara.
-Un calor bajo y tenaz, que golpeaba el interior de su palma como un pulso vivo.
-No destellaba a la manera de una falsa, ni se envolvía alrededor de quien la sostenía para hacerse valer.
-Sencillamente no se apagaba.
+Quemaba, pero no era un calor que abrasara.
+Un calor que golpeaba el interior de la palma, bajo y tenaz, como un pulso vivo.
+No destellaba como la falsa, ni envolvía a quien la sostenía como para presumir de él.
+Simplemente no se apagaba.
 
-Era la verdadera.
+Era verdadera.
 
-Y justo por eso pesaba más.
+Por eso pesaba más.
 
-El planeador de Kael y Sern se abrió paso por el borde exterior del terreno que se rompía con medio tiempo de retraso. Sern leía ya el flujo del derrumbe antes incluso que la línea de retorno: dónde el suelo todavía aguantaba, dónde moriría a continuación. Kael hundía el aparato según sus indicaciones. Cuando los demás giraban primero hacia la baliza de retorno, esos dos elegían antes la línea en la que uno no muere. En ese instante, esa era la respuesta más acertada.
+El planeador de Kael y Sern se metió medio tiempo después por el exterior del terreno que se rompía. Sern ya miraba el flujo del derrumbe antes que la línea de retorno de la carrera: dónde se aguantaba todavía y dónde moriría a continuación. Kael apretaba el aparato siguiendo esas indicaciones. Mientras los demás giraban primero hacia el banderín de retorno, esos dos elegían antes que nada una línea en la que no morir. Ahora, eso era lo más acertado.
 
-—La línea de retorno se cierra —dijo Sern en voz baja.
+—La línea de retorno se cierra.
+Sern habló en voz baja.
 
-—¿Desvío?
+—¿Rodeamos?
 
-—Aún no. Mira primero cómo sale el equipo de Han Jiwoo.
+—Todavía no. Mire primero cómo sale el equipo de Han Jiwoo.
 
-Kael chasqueó la lengua brevemente.
+Kael chasqueó la lengua, breve.
 
-—En momentos así, siempre van ellos delante.
+—En momentos así, siempre van delante.
 
-Pero no sonaba a queja. Era más bien la lucidez de quien sabe exactamente quién, en un caos como ese, rasga el camino primero.
+Pero no sonaba a queja. Se parecía más a saber con exactitud quién, en una partida así, era el primero en rasgar el camino y salir.
 
-Por el lado de las gradas ya se había rebasado el simple tumulto.
+En la tribuna, la cosa ya pasaba de alboroto.
 
-Los apostadores habían rugido al principio con más fuerza. Como gente convencida de que cuanto más se rompe el tablero, más alto vuela el dinero. Pero cuando el derrumbe de la capa térmica empezó a morder hasta la línea de retorno, las reacciones se partieron en dos. Unos retrocedieron, atentos a su pellejo antes que a su apuesta; otros se asomaron aún más por encima de la baranda. Una carrera al estilo de Hazran había sido siempre un espectáculo donde se contaba con que muriera alguno, pero ahora la marca de una mano venida de fuera del juego, tocando lo de dentro, era demasiado nítida.
+Al principio, los apostadores aclamaron con más fuerza. Como gente convencida de que cuanto más se rompe la partida, más dinero salta. Pero cuando el derrumbe de la capa térmica empezó a alcanzar la línea de retorno, las reacciones se dividieron. Unos retrocedieron para salvar el pellejo antes que la apuesta; otros, al contrario, se asomaron todavía más por encima de la baranda. Una carrera al estilo de Hazran siempre había sido una partida en la que también se veía morir a alguno, pero esta vez la huella de unas manos de fuera de la carrera tocando lo de dentro era demasiado nítida.
 
-Luhai, colgado del extremo de la baranda, soltó con una voz que casi era un grito:
+Luhai, colgado del extremo de la baranda, habló casi gritando.
 
-—¡Esa no es una mano de la carrera!
+—¡Esas no son manos de la carrera!
 
-Ater rastreó al instante el flujo de sombras de abajo.
+Ater siguió de inmediato el movimiento de las sombras de abajo.
 
-—Las veo —dijo en voz baja—. El despliegue es demasiado rápido.
+—Las veo.
+Lo dijo en voz baja.
+—El despliegue es demasiado rápido.
 
-Seorin miraba ya otra cosa.
+Seorin ya estaba mirando otra cosa.
 
-En el borde exterior de la zona bajo la capa térmica, más allá de la línea por donde ninguna mano de recuperación debía entrar, tres siluetas se movían por separado. Una hacia los dispositivos térmicos, otra hacia la línea de guía de retorno, la última hacia un cuello de botella estrecho, propicio para que las manos de la carrera se despedazaran entre sí. Esa gente no había entrado por casualidad: se habían repartido los papeles de antemano.
+En el borde exterior de la zona de la capa térmica, en una línea por donde en principio no debían entrar las manos de recuperación, tres sombras se movían por separado. Una hacia los mecanismos térmicos, otra hacia la línea de guía de retorno y otra hacia un cuello de botella estrecho, muy a propósito para que las manos de la carrera se despedazaran entre sí. No habían entrado por casualidad: era gente que había entrado con los papeles repartidos de antemano.
 
-—Es una mano de Harún —dijo Seorin muy bajo.
+—Es Harún.
+Seorin lo dijo muy bajo.
 
 Ater la miró al instante.
 
 —¿Está segura?
 
-—En este mundillo, que los dispositivos y la línea de recuperación tiemblen a la vez nunca es un accidente —respondió Seorin—. Alguien decidió romper el tablero antes de entrar.
+—Aquí, que los mecanismos y la línea de recuperación tiemblen a la vez no es casualidad.
+Seorin respondió.
+—Alguien decidió romper la partida y se metió.
 
-Luhai torció el gesto.
+Luhai torció la cara.
 
-—Están locos. ¿Se comen hasta el terreno de la carrera?
+—¿Están locos? ¿Van a sacarle tajada hasta al terreno de carrera?
 
 Seorin habló sin apartar la mirada.
 
-—En Hazran, lo que más caro cuesta no es quien rompe las reglas. Es quien cree en ellas.
+—En Hazran, lo que más caro sale es el que cree en las reglas. No el que las rompe.
 
-Esas palabras no llegaron a oídos de Sion, pero quedaron suficiente tiempo en el aire.
+Esas palabras no llegaron a los oídos de Sion, pero quedaron de sobra en el aire.
 
-Nasim, por su parte, no había retrocedido ni un paso hasta entonces. Al contrario, cuanto más crecía el desorden, más rápido leía los rostros de alrededor. No podía ignorar que el tablero acababa de romperse. Y, sin embargo, en su cara el cálculo iba por delante del desconcierto. La cara de quien medía cómo cubrir ese derrumbe con palabras, sobre quién echar la responsabilidad y qué era lo que debía preservar a toda costa.
+Nasim no había retrocedido ni un paso hasta entonces. Al contrario, cuanto más crecía el alboroto, más deprisa leía las caras de alrededor. Era imposible que no supiera que la partida se había roto. Pero en ese momento, en su expresión asomaba antes el cálculo que el desconcierto. La cara de quien mide cómo tapar ese derrumbe con palabras, a quién pasarle la responsabilidad y qué proteger a toda costa.
 
-Harún, en cambio, estaba aún más callado.
+Harún, en cambio, estaba más callado.
 
-Observaba el intervalo entre el límite de la capa térmica y la línea de retorno, moviéndose solo con gestos muy breves. Aquel silencio resultaba, extrañamente, más inquietante. Si Nasim era la mano que ordenaba las palabras, Harún parecía alguien que ya sabía qué había entrado ahí dentro y qué tenía que salir.
+Miraba el espacio entre el final de la capa térmica y la línea de retorno, y solo se movía muy brevemente. Ese silencio, extrañamente, resultaba más ominoso. Si Nasim era la mano que ordenaba las palabras, Harún parecía alguien que ya sabía qué había entrado allí dentro y qué tenía que salir.
 
-Aka, hasta el final, no se movió.
+Aka habló entre los dos.
 
-Pero Nahira, por primera vez, se interpuso muy levemente delante de ella.
-Aquel gesto era menos protección que velo: a partir de ahora había que tapar hasta las expresiones que Aka pudiera dejar ver. Aka seguía callada, pero sus ojos ya no perseguían a las manos de la carrera. Eran los ojos de alguien que ya sabía en qué mano había caído la brasa.
+—Esto ya no es una carrera.
 
-Sion, detrás de Han Jiwoo, recobraba el aliento en inspiraciones cortas.
+Nasim dejó de hablar.
 
-En condiciones normales, a estas alturas debería haber estado leyendo el ángulo de la línea de retorno.
+Lo había dicho la más pequeña, en un sitio donde había seis adultos de pie. Nasim abrió la boca para replicar y la dejó abierta sin que saliera nada.
+
+No era que no tuviera con qué replicar. Lo que acababa de estar midiendo era cómo tapar la partida, y acababa de oír que ya no quedaba partida que tapar.
+
+Solo Harún giró la cabeza a medias para mirar a Aka.
+
+Después de mirarla, volvió a mirar el final de la capa térmica. No dijo nada, pero era la mano de quien seguía midiendo lo que había estado midiendo hasta entonces.
+
+Nahira posó la mano en el hombro de Aka. No tiró de ella hacia atrás.
+
+Aka siguió mirando bajo esa mano. Ya no seguía a las manos de la carrera. Eran los ojos de quien ya sabía en qué mano había acabado la brasa.
+
+Sion, detrás de Han Jiwoo, respiraba corto.
+
+En condiciones normales, a estas alturas tendría que estar leyendo el ángulo de la línea de retorno.
 Pero ahora no.
-El suelo seguía fisurándose,
-las falsas luces estallaban y le emborronaban la vista,
-y manos venidas de fuera de las reglas sacudían lo de dentro.
+El suelo seguía agrietándose,
+las luces falsas estallaban y le emborronaban la vista,
+y unas manos de fuera de las reglas sacudían lo de dentro.
 
-Aquello se parecía menos a un retorno que a una huida.
+Aquello ya se parecía menos a un retorno que a una huida.
 
-—¿Ves la línea de retorno? —preguntó Han Jiwoo.
+—¿Ves la línea de retorno?
+Han Jiwoo lo preguntó.
 
 Sion miró al frente.
 
-La línea de guía roja por donde las manos de la carrera debían volver seguía allí. Pero la mitad estaba viva y la otra mitad muerta. Algunos tramos parecían aún un camino, mientras que justo al lado el derrumbe térmico lo había desgarrado todo. Quien lo viera por primera vez no sabría leer la diferencia y se lanzaría de cabeza.
+La línea de guía roja por la que debían volver las manos de la carrera seguía allí. Pero la mitad estaba viva y la otra mitad, muerta. Algún tramo todavía parecía un camino, y justo al lado el derrumbe térmico lo había desgarrado por completo. Quien lo viera por primera vez no sabría leer la diferencia y se estrellaría de lleno.
 
-—Verla, la veo —dijo Sion—. Pero eso ya no es una línea de carrera.
+—Verla, la veo.
+Lo dijo Sion.
+—Pero eso ya no es una línea de carrera.
 
 Han Jiwoo soltó una risa breve.
 
-—Bien. Entonces lo hacemos a mi manera.
+—Bien. Entonces vamos a mi manera.
 
-Con esas palabras, el esquife se pegó más bajo no a la línea de guía roja, sino al suelo exterior medio muerto que la bordeaba. No la trayectoria reglamentaria de retorno, sino la línea de fuga que solo un piloto podía elegir en el instante en que las reglas se derrumbaban.
+Con esas palabras, el esquife se pegó, más bajo, no a la línea de guía roja, sino al suelo exterior medio muerto que quedaba por fuera. No una línea para volver según las reglas, sino la línea de escape que solo un piloto puede elegir en el instante en que las reglas se derrumban.
 
-Fue entonces cuando el planeador rojo oscuro volvió a pegarse a su cola.
+Justo entonces, el planeador rojo oscuro volvió a pegárseles detrás.
 
-Era el equipo que había perdido la falsa y, aun así, no se había retirado. Al contrario, en aquella refriega, arrancar la verdadera de la mano de otro podía resultar más rápido: ese parecía ser su cálculo. Como buen equipo curtido, también calculaba deprisa.
+Era el equipo que había perdido la brasa falsa y, aun así, no se había retirado del todo. Al contrario, parecía haber decidido que en esa refriega podía ser más rápido arrebatar la verdadera de la mano de otro. Como buen equipo curtido, también calculaba deprisa.
 
-—Vienen —dijo Sion en pocas palabras.
+—Vienen.
+Sion lo dijo, breve.
 
-Han Jiwoo lo supo sin volverse.
+Han Jiwoo lo supo sin mirar atrás.
 
 —Agárrate.
 
-Aquello significaba a la vez no soltar la brasa y prepararse físicamente para lo que venía.
+Aquello quería decir que no soltara la brasa, y también que, a partir de ahora, preparara el cuerpo.
 
-Al norte, Kael y Sern también habían visto el mismo planeador rojo oscuro.
+Desde el norte, Kael y Sern también miraban el mismo planeador rojo oscuro.
 
-Sern dijo muy bajo.
+Sern habló muy bajo.
 
-—Ese equipo ha pasado de la carrera al robo.
+—Ese equipo ha cambiado la carrera por el robo.
 
-Kael replicó.
+Kael le contestó.
 
-—Entonces, para nosotros, esto tampoco es ya una carrera.
+—Entonces para nosotros esto tampoco es ya una carrera.
 
-Sern respondió breve.
+Sern respondió, breve.
 
 —Hace rato que no lo era.
 
-Apenas pronunciadas esas palabras, un dispositivo más estalló con mayor violencia en el borde de la capa térmica.
+En cuanto acabaron esas palabras, otro mecanismo del borde de la capa térmica estalló con más fuerza.
 
-Una reacción roja se extendió por el cielo y devoró de un tirón una línea de guía que aún quedaba intacta. El resplandor fue tan intenso que de las gradas brotaron gritos, y varias personas que intentaban huir tarde se enredaron y cayeron unas sobre otras bajo la baranda.
+La reacción roja se extendió hacia el cielo y devoró entera una de las líneas de guía que quedaban. La luz fue tan grande que hasta en las gradas estallaron gritos, y varias personas que huían tarde cayeron enredadas unas con otras bajo la baranda.
 
-El patio central empezó a volcarse por entero.
+El patio central empezó a volcarse por completo.
 
-Sion apretó más fuerte la brasa en su mano.
+Sion apretó con más fuerza la brasa en la mano.
 
-Lo que importaba ahora no era presentarla para marcar puntos.
+Lo importante ahora no era demostrar que era verdadera y recibir puntos.
 Era salir vivo con ella.
-Y, probablemente, el simple hecho de tenerla en la mano era ya el motivo de la siguiente persecución.
+Y, probablemente, el mero hecho de tenerla en la mano ya se había convertido en el motivo de la siguiente persecución.
 
-Han Jiwoo, con los dientes apretados, dijo:
+Han Jiwoo habló con los dientes apretados.
 
 —Agárrate fuerte.
 
-El esquife rasó el borde del vidrio agrietado casi rascándolo y salió disparado hacia fuera.
+El esquife salió disparado por fuera de la capa de vidrio agrietada, casi raspándola.
 
-Detrás, el planeador rojo oscuro le pisaba los talones;
-por el flanco, el planeador de Kael y Sern buscaba el ángulo para confluir en una línea más ancha;
-y sobre las gradas, los que habían comprendido que las reglas estaban rotas se mezclaban con los que aún contaban su dinero.
+Detrás se les pegaba el planeador rojo oscuro;
+a un costado, el planeador de Kael y Sern buscaba el ángulo para unirse por una línea más ancha;
+y en lo alto de la tribuna se mezclaban los que se habían dado cuenta de que las reglas estaban rotas y los que todavía contaban primero su dinero.
 
 Y Sion supo que ya nadie podía llamar a aquello una carrera.
 
 La carrera de la brasa no había terminado.
-Pero ya no rodaría según los términos que Hazran había prometido al principio.
+Pero ya no iba a rodar como Hazran había prometido al principio.
 
-El terreno,
-ya había dejado de ser un juego.
+La partida, ahora, había dejado de ser un juego.
 
 ---
 

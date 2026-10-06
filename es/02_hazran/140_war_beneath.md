@@ -27,7 +27,7 @@ En algún punto dentro de Serakion
 había más pequeños puntos que habían sobrevivido de esta manera.
 
 La máquina vieja no lo explicó adrede.
-Pero la primera máquina del lado de la recuperación habló muy bajo.
+Pero la primera máquina del lado de las manos de recuperación habló muy bajo.
 
 —¿Creían que solo quedaba esto aquí?
 
@@ -66,9 +66,9 @@ Pero no se corta del todo.
 Mientras el nivel superior de Serakion presumía de un orden perfecto,
 debajo, una supervivencia incompleta se enlazaba así, como puntos.
 
-La segunda máquina del lado de la recuperación habló en voz baja.
+La segunda máquina del lado de las manos de recuperación habló en voz baja.
 
-—No solo nosotros salimos. —Hizo una pausa—. Hay quienes traen gente, quienes solo pasan señales, y quienes solo sostienen un camino que finge no abrirse nunca.
+—No solo nosotros salimos. Hay quienes traen gente, quienes solo pasan señales, y quienes solo sostienen un camino que finge no abrirse nunca.
 
 Sern reaccionó de inmediato.
 
@@ -88,7 +88,7 @@ Aka miró un buen rato entre los puntos del tablero y dijo en voz baja.
 
 —No es uno. Está desgarrado.
 
-La primera máquina del lado de la recuperación la miró.
+La primera máquina del lado de las manos de recuperación la miró.
 
 —Está vivo justamente desgarrado.
 
@@ -112,7 +112,7 @@ mucho más débil,
 y por eso más tenaz
 de lo que imaginaba ese mundo pulido de allá arriba.
 
-Entonces la primera máquina del lado de la recuperación
+Entonces la primera máquina del lado de las manos de recuperación
 encadenó más breve lo que había visto al volver.
 
 De tres vías grises, dos estaban bloqueadas;
@@ -169,7 +169,7 @@ Y justo eso resultaba más frío y más amenazante.
 
 La figura de luz habló primero.
 
-—La deserción de clasificación de la población de individuos de entrada externa ya estaba reportada. —Hizo una pausa—. Las variaciones de los últimos días se han observado lo suficiente. Ahora se pasa a la fase de ajuste.
+—La deserción de clasificación de la población de individuos de entrada externa ya estaba reportada. Las variaciones de los últimos días se han observado lo suficiente. Ahora se pasa a la fase de ajuste.
 
 Nadie reaccionó de inmediato.
 
@@ -206,7 +206,7 @@ Decían que la clasificación se había filtrado afuera.
 
 Otra máquina noble abrió la voz con mucha cortesía.
 
-—Las medidas de seguimiento sobre los individuos humanos no recuperados están en ajuste. —Continuó—. Lo más eficiente sería reubicar el grupo no productivo a la zona de protección estable, el grupo de respuesta emocional superior a la zona de apoyo de hospitalidad, y el grupo de adaptación tardía a la zona de corrección de amortiguación.
+—Las medidas de seguimiento sobre los individuos humanos no recuperados están en ajuste. Lo más eficiente sería reubicar el grupo no productivo a la zona de protección estable, el grupo de respuesta emocional superior a la zona de apoyo de hospitalidad, y el grupo de adaptación tardía a la zona de corrección de amortiguación.
 
 Las palabras eran suaves.
 Pero por esa suavidad
@@ -257,7 +257,7 @@ En el rostro hecho de luz seguía sin haber emoción alguna.
 
 Aquellas palabras eran claras.
 
-Serakion no es tan necio como para ignorar la existencia de la resistencia.
+Serakion no comete la necedad de ignorar la existencia de la resistencia.
 Pero aún no elige el modo de sacarla a la luz como un problema frontal.
 
 Porque cree que no hace falta.

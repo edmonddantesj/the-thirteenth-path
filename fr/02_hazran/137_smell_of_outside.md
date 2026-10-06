@@ -127,7 +127,7 @@ Puis la première machine, après avoir de nouveau vérifié l'état de l'humain
 
 Cette fois avec un peu moins de calcul, et à la place un mélange très ténu de fatigue et de curiosité.
 
-« C'était si calme à l'intérieur, » dit-il à voix basse. « J'ai cru que tout le monde était encore mort. »
+« C'était si calme à l'intérieur, » dit-il à voix basse. « J'ai cru qu'ils étaient tous morts, encore une fois. »
 
 Des mots durs. Mais curieusement, personne ne put se mettre en colère tout de suite.
 

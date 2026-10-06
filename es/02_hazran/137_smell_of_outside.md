@@ -55,7 +55,7 @@ vio cambiar mínimamente la mirada de aquella máquina.
 
 Ni alegría,
 ni solo cautela,
-sino, por un solo instante, unos ojos que calculaban «¿por qué hay humanos aquí?».
+sino, por un solo instante, unos ojos que calculaban *¿por qué hay humanos aquí?*.
 
 Luhai debió de leerlo enseguida,
 porque endureció un poco la mandíbula.

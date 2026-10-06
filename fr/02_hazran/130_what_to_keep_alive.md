@@ -11,7 +11,7 @@ la question de savoir qui a survécu demeure-t-elle.
 Et ceux qui ont survécu
 se retrouvent avant la question suivante.
 
-A l'intérieur ici,
+Ici, à l'intérieur,
 qu'est-ce qu'on garde en vie en premier ?
 
 La vie de chacun.
@@ -27,13 +27,13 @@ C'est pourquoi l'air dans cette vieille couche
 semblait toujours porter le parfum du prochain choix à côté de tout le reste.
 
 Sion commença à le comprendre,
-regarder les machines et les humains passer devant les blessés.
+en regardant les machines et les humains passer auprès des blessés.
 
 Personne n'a paniqué.
 Mais personne n’avait de place non plus.
 
-Tout le monde était déjà ému par la familiarité
-de savoir quoi retenir en premier et quoi repousser.
+Tout le monde bougeait déjà avec l'aisance de ceux qui savent
+quoi retenir en premier et quoi repousser.
 
 L'eau chaude était d'abord destinée aux enfants et aux personnes âgées.
 Les moins blessés rejoignirent sans un mot les blessés graves.
@@ -42,8 +42,8 @@ Le matériel réparable a été immédiatement mis de côté.
 Et à travers tout cela,
 les informations qui ne pouvaient pas être écartées s'accumulaient très silencieusement, à part.
 
-Où a été bloqué.
-Quel couloir la légion androïde avait envahi.
+Où le passage était bloqué.
+Dans quel couloir la légion androïde s'était retournée.
 Quelle zone était encore vivante.
 Qui était resté jusqu'au tout dernier.
 
@@ -56,7 +56,7 @@ Une femme humaine à proximité répondit.
 « Nous sommes en deuil. »
 
 Sa voix était sèche,
-mais étrangement plus précis.
+mais étrangement plus précise.
 
 continua la femme, le visage fatigué.
 
@@ -75,7 +75,7 @@ Aka se tenait un peu plus loin,
 scrutant longuement un vieux schéma structurel sur le mur intérieur.
 
 Des rainures métalliques courent comme des lignes.
-Marquages ​​effacés.
+Marquages effacés.
 Traces ajoutées ultérieurement.
 
 Quand Sion s'approcha,
@@ -116,7 +116,7 @@ Le visage de Luhai se durcit immédiatement.
 Cette réaction est venue si vite
 qu'un humain à proximité laissa échapper un très bref soupir.
 Moins de rire,
-plus un genre de réponse *bien sûr, c'est la première chose qu'ils disent*.
+plus un genre de réponse *évidemment, c'est la première chose qu'il allait dire*.
 
 La vieille machine regarda Luhai et parla.
 
@@ -127,7 +127,7 @@ Luhai ne répondit pas tout de suite.
 
 Il pouvait dire que les mots n'étaient pas un mensonge,
 mais son visage ne s'était toujours pas libéré du langage de classification
-avait-il entendu depuis son entrée à Serakion.
+qu'il entendait depuis son entrée à Serakion.
 
 Sion ressentait la même chose.
 
@@ -145,17 +145,17 @@ La vieille machine jeta un très bref coup d’œil vers Jiwoo.
 
 « Ils aident à maintenir en vie ce qui peut l'être en premier. »
 
-A cette réponse,
-L’expression de Jiwoo se resserra légèrement.
+À cette réponse,
+l’expression de Jiwoo se resserra légèrement.
 
-la femme humaine qui a vu cela a ajouté la première.
+La femme humaine qui l'avait vu ajouta la première.
 
 « Ici, on ne voit pas les gens uniquement pour leurs compétences. »
 « Mais si tu as du talent, »
-« te faire prétendre que tu ne le fais pas est la chose la plus cruelle. »
+« te laisser faire comme si tu n'en avais pas, c'est ça le plus cruel. »
 
 C'était moins réconfortant et plus proche de l'explication.
-C’est pourquoi Jiwoo resta silencieux plus longtemps.
+C’est pourquoi Jiwoo resta silencieuse plus longtemps.
 
 En ce moment, cet endroit
 ne ressemblait pas à un endroit qui exploite le talent de quelqu'un.
@@ -172,7 +172,7 @@ un petit enfant plus profond à l’intérieur s’est réveillé d’une somnol
 Le regard de tout le monde se tourna dans cette direction pendant un instant.
 Mais personne n’a montré d’agacement.
 
-Au lieu de cela, une vieille machine a essuyé grossièrement la graisse sur sa main avec un chiffon.
+Au lieu de cela, une vieille machine a essuyé grossièrement la graisse sur sa main avec un chiffon,
 et s'approcha d'un mouvement très maladroit.
 
 Maladroit.
@@ -180,14 +180,14 @@ Lent.
 Pas beau.
 
 Mais ces mains
-avait l'air moins effrayant que toutes les mains qu'ils avaient vues dans le Serakion au-dessus.
+avaient l'air moins effrayantes que toutes les mains qu'ils avaient vues plus tôt dans le Serakion d'en haut.
 
 Aka a dit, très bas.
 
 « Ici, ils ne prétendent pas être bons dans ce domaine. »
 
-En entendant cela, Sion se sentit
-toute l’ancienne couche s’accrochait en fait avec la même attitude.
+En entendant cela, Sion sentit que
+toute l’ancienne couche tenait en fait avec la même attitude.
 
 Ne prétendez pas être complet.
 Ne prétendez pas être tout-puissant.
@@ -200,7 +200,7 @@ que peut-on transmettre maintenant,
 ce qu'il ne faut pas abandonner maintenant.
 
 Et probablement,
-c'est pourquoi il ne s'est pas encore effondré.
+c'est pourquoi elle ne s'est pas encore effondrée.
 
 La vieille machine a parlé une dernière fois au groupe de Sion.
 
@@ -212,8 +212,8 @@ Ce n’était pas une simple instruction de préparation.
 
 Cela ressemblait à un avertissement
 que dans ce monde à l'avenir,
-ce que tu n'as pas encore lâché
-compterait autant que ce que vous avez perdu.
+ce qu'on n'avait pas encore lâché
+compterait autant que ce qu'on avait perdu.
 
 Sion a entendu ces mots
 et réfléchit à ce qu'il avait apporté de Hazran.
@@ -226,7 +226,7 @@ Et un chemin pas encore terminé.
 Ce jour-là, l'ancienne couche de Serakion
 ne leur avait pas seulement donné un endroit pour reprendre leur souffle.
 
-Il avait commencé à demander
+Elle avait commencé à leur demander
 ce qu'ils garderaient en vie.
 
 ---

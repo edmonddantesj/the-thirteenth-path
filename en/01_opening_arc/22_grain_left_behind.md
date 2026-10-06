@@ -1,195 +1,249 @@
 # Episode 22. Grain Left Behind
 
-When the three stepped down onto the external foothold, the structure was alive — colder and thinner than expected.
+When the three stepped down onto the outer gangplank, the structure was alive in a colder, thinner way than they had expected.
 
-Not a complete vacuum section. Between the severed outer wall and the half-collapsed corridor, an old maintenance field still survived, not yet dead — a cold, thin but clearly breathable air layer barely holding. The smell of power lines long dead, cold dust that only comes from severed metal surfaces, and a very faint ozone afterscent. The smell of someone having killed function here — yet not fully.
+It was not a full vacuum. Between the severed outer wall and the half-collapsed passage, an old sustaining field had not yet died, and a layer of air, cold and thin but certainly breathable, was barely holding on. The smell of power lines long dead, the cold dust smell that only comes off cut metal faces, and the faintest lingering scent of ozone. It was the smell of someone having killed the functions here and still not managing to kill them completely.
 
-Behind them, Jiwoo's ship sat half-perched against the structure's outer wall, at an angle neither entering nor retreating. Docking closer would be faster, but equally irreversible. Right now, leaving room to correct mattered more than speed.
+Sion looked up once from the end of the gangplank.
 
-Seorin's voice came through the close-range sealed channel first.
+Beyond where the structure's outer wall ended, there was nothing. Not wall, not ceiling, and not dark either. To be dark, something had to block the light, and there was nothing there to block it.
 
-"Looks worse from out here."
+There were stars. Far more than he had seen from the port, far smaller, and not one of them wavered. That was the first time Sion knew with his body that without an atmosphere, stars do not twinkle.
 
-Jiwoo received short.
+The field holding his feet down was alive only up to ankle height. Above that, nothing held his body. If this thin layer he stood on gave out, what came next would not be a floor but those stars.
 
-"At least it's not dead yet."
+"Don't look up," Seorin said over the channel.
 
-Instead of answering, Sion looked at the structure's interior. The guide afterglow that had come alive after passing the first judgment surfaced from deep within, then sank as if dying again — repeating. Not a steady guide line. More like testing the one who reads: follow and it cuts once more; stop and it barely revives.
+"How'd you know?"
+
+"I can see the angle of your head on the screen."
+
+"…It's worth seeing."
+
+"Look and your knees go."
+
+Sion lowered his head. His knees had gone a little.
+
+Seorin spoke.
+
+"Seeing it like this, it looks even worse."
+
+Han Jiwoo answered.
+
+"Still, it's not dead yet."
+
+Instead of answering, Sion looked inside the structure. The guiding afterglow that had come alive after the first judgment kept appearing once deep inside, then sinking again as if dead. It was not a steady guide line. If anything it seemed to be testing whoever read it: follow and it cut out once more; stop and it came back to life, just slightly.
 
 Ater watched that flow and said quietly.
 
-"Not a continuously readable signal — a structure that verifies response while pulling you forward."
+"It is not a signal that can be read continuously. It is a structure that leads you on while checking your response."
 
-Sern added immediately.
+Sern added at once.
 
-"It guides the approaching party inward while making them lose it if a single step in the sequence is wrong."
+"It draws the approacher inside, and at the same time makes them lose it if they get even one step of the sequence wrong."
 
-This was still a structure that severed wrong hands. One wrong touch and the reaction died before the fragment — and then the reason for coming this far would sever with it.
+Touch it wrong once and the reaction dies before the fragment does.
 
-Sion pressed the structure's surface once with his toe, then moved slowly inward. The gaps between metal plates were not smooth. Cut traces, patched traces, and old alignment line marks tangled together. Not a path you walked like a formal dock — a path that only continued inward if you stepped on the grain left behind.
+Sion pressed the structure's surface once with the tip of his foot, then moved slowly inward. The gaps between the metal plates were not smooth. Cut marks, patch marks and the scars of old alignment lines were tangled together. It was not a path you walked like a proper dock, but one that only led inward if you stepped on the grain left behind.
 
-Sern said low from behind.
+Sern spoke low from behind.
 
-"Third panel on the left — load is unstable."
+"Third panel on the left. The load is unstable."
 
-Sion shifted his foot immediately.
+Sion turned his foot at once.
 
-Ater, at the rear, was scanning the markings left on the structure's walls. At first they looked like simple cut marks, but up close there was pattern. The marks that killed the guide line's core and the marks that deliberately left the auxiliary alignment — their layers were different. The hand that damaged and the hand that preserved might not be the same.
+Ater, at the very rear, was running his eyes over the patterns left on the structure's walls. At first he had taken them for plain cut marks, but up close there was a rule to them. The marks where the core of the guide line had been killed and, against them, the marks where the auxiliary alignment had been left on purpose lay on different layers. It meant the hand that damaged and the hand that preserved might not be the same.
 
-He stopped and said, very low.
+He stopped where he stood and said, very low.
 
-"Sion. This was not severed at once."
+"Sion. This was not cut all at once."
 
-Sion's step stopped.
+Sion's steps stopped.
 
-"Meaning it was touched more than once?"
+"Meaning someone worked on it more than once?"
 
-"Yes. First it was cut to kill function. Then someone left behind a minimal discrimination unit and alignment section."
+"Yes. First it was cut to kill its function, and after that someone left a minimal judgment unit and alignment section."
 
-Sern picked up immediately.
+Sern took that up at once.
 
-"Then what remains now is not wreckage of the original — it is a residual structure someone deliberately kept alive."
+"Then the path left now is not the wreckage of the original, but a residual structure someone deliberately kept alive."
 
-Sion heard that and smiled, very slowly.
+Hearing that, Sion smiled, very slowly.
 
 "Then it's even more certain."
 
-Even from the slots and fragments visible before them, it was clear: what someone had erased was not just one name — it was the path that name was supposed to reach.
+That moment, a very faint light passed across a groove in a panel near his toes.
 
-At that moment, from a panel groove near his feet — a very faint light grazed past.
-
-Sion dropped low immediately. A thin, long groove remained there, and at its edges were gauge traces where an insertable record fragment would have once interlocked.
+Sion dropped low at once. A long, thin groove was left there, and along its edge were the marks of a fitting where an insert-type record fragment might once have been seated.
 
 "Here."
 
-Sern came to his side at once.
+Sern came right beside him.
 
-"An insertion slot."
+"An insertion slot?"
 
 "Probably."
-Sion said, running his fingertip along the groove.
+Sion said, running a fingertip over the groove.
 "But it's empty now."
 
-Ater approached and looked at the marks.
+Ater came closer too and looked at the marks.
 
-"This is not a place where a fragment was tested for fit. It is a place where the type of fragment was verified."
+"This is not where fragments were fitted together. This is where the type of fragment was checked."
 
-Sion raised his head slowly.
+Sion slowly raised his head.
 
-"Then what we're carrying isn't just a record fragment either."
+"So what we're carrying isn't just any record fragment either."
 
-Seorin called from the ship side.
+Seorin called out from the ship.
 
-"Don't tell me you're about to say let's insert it here."
+"Don't you dare say we should try putting it in right here."
 
-"Not inserting."
-Sion cut short.
-"This is a structure where you read first, then compare after."
+"We're not putting it in."
+Sion cut her off.
+"This is the kind where you read first, and only then compare."
 
-Sern, examining below the groove, said low.
+Sern was examining the area below the groove and said low.
 
 "Wait."
 
-All eyes gathered.
+Every eye went there.
 
-Just below the slot, wedged between severed metal plate gaps, one very thin shard was caught. Covered in dust and ash, it looked like a metal fragment at first — but when Sern lifted it with his gloved fingertip, very carefully, the fine grain remaining on its surface was revealed.
+Right below the slot, in a gap in the cut metal plate, one very thin shard was wedged.
 
-A record fragment.
+Sern did not pick it up right away. First he took off his glove.
 
-Not a complete plate. Thumbnail-sized, burned edges, surface half-dead. But on one face, clearly artificial lines remained. Too short to call a sentence; too severed to call a coordinate.
+"You are touching it bare-handed?" Ater asked.
 
-Sion drew breath, very shallow.
+"With a glove I cannot judge the thickness."
+
+Sern laid a fingertip on the shard, very lightly. It was cold. Colder than the metal plate around it. That meant it was not metal.
+
+Then he lifted the edge, just a little, with his fingernail. It did not snap. It bent.
+
+It was a record fragment.
+
+Not a complete panel face. The size of a fingernail, burned edges, the surface half dead. But on one face an artificial line clearly remained. Too short to be a sentence, too cut off to be coordinates.
+
+Sion drew a very shallow breath.
 
 "There it is."
 
-Jiwoo asked from the ship side immediately.
+Han Jiwoo asked at once from the ship.
 
-"What."
+"What is?"
 
 Sion answered without taking his eyes off the shard.
 
 "The first real fragment."
 
-Ater looked down at the shard on Sern's hand. Small, incomplete, explaining nothing yet. And still — everyone knew. To prove that the path which brought them here was not illusion, that single small shard was enough.
+Ater looked down at the shard in Sern's hand. Small, incomplete, and as yet it explained nothing.
 
 He said, very low.
 
-"This is not a record fragment. It is the first physical evidence that the erased path actually existed."
+"This is not a scrap of record. It is the first physical evidence that the erased path actually existed."
 
-But Sion was looking longer at the slot's edge where the shard had come from, rather than the shard itself.
+But Sion was looking longer at the edge of the slot the shard had come out of than at the fragment itself.
 
 Seorin noticed first.
 
-"Why."
+"What."
 
-Instead of answering, Sion touched the inner edge of the slot with his fingertip. Inside was empty — but the manner of emptiness was wrong. Not a groove long vacant — a place where something much larger had been interlocked until just recently, then pulled out in a rush. Burned powder had not settled evenly; inside the metal groove, a line freshly scraped away was still alive.
+Instead of answering, Sion touched the inner edge of the slot with a fingertip. It was empty inside, but the way it was empty was wrong. It was not a groove that had been empty a long time, but a place where some larger panel had been seated until just now and then pulled out in a hurry. The burned powder had not had time to settle evenly, and inside the metal groove a line that looked freshly scraped was still sharp.
 
-Sern read the same grain immediately.
+Sern read that grain at once as well.
 
-"A larger plate was here."
+"There was a larger panel."
 
 Ater added, very low.
 
 "And it was removed recently."
 
-Short silence.
+A short silence.
 
-Seorin narrowed her brow.
+Seorin narrowed her brows.
 
-"So we didn't find a fragment — we picked up crumbs from a place someone already cleaned out."
+"So we didn't find a fragment. We picked up the crumbs left in a place somebody already cleaned out."
 
 Sion nodded slowly.
 
-"Yeah. What was originally inside was probably much larger. This looks like the piece that broke off when they pulled it in a hurry."
+"Yeah. Whatever was in there was probably a lot bigger than this. This looks like the piece that broke off and got left when someone yanked it out in a hurry."
 
-Jiwoo swallowed a curse from the cockpit.
+From the pilot's seat, Han Jiwoo bit back a low curse.
 
-"I hate hearing that most."
+"That's the line I hate most."
 
 Sion pointed to the outer side of the metal plate below the slot.
 
-A trace scraped through the dust. Not quite a footprint of someone entering the structure's interior — closer to the slick weight-shift of someone clutching something against their body and turning back out in a rush. Not a complete footprint, but a mark where someone lost their center once and caught themselves again.
+One mark brushed across the dust. Less a footprint of someone coming into the structure than the slipping weight shift of someone who had turned and gone out in a hurry, clutching something against their body. It was not a whole footprint, but there was a mark where they had lost their balance once and then held.
 
-Sern dropped to a knee immediately.
+"One hand," Sion said.
 
-"Recent."
+"Why one hand?" Sern asked.
+
+"When they lost their balance, only one hand went out. One palm print here on the wall. Nothing on the other side."
+
+"And the other hand."
+
+"Holding something, I'd guess."
+
+Sion laid his own hand beside the palm print. It was about the same size. That was not much to go on. But one thing could be known.
+
+"They nearly dropped it, and didn't."
+
+"Why does that matter?"
+
+"Because if you drop it, it breaks." Sion took his hand away. "It's a hand that knew it was carrying something that mustn't break."
+
+Sern crouched at once.
+
+"It is recent."
 
 "How recent."
 Seorin asked.
 
-Sern swept the trace, dust, and severed powder layers quickly.
+Sern ran his eyes quickly over the trace, the dust, the broken layer of powder.
 
-"Not very old. High probability they exited before we passed the first judgment."
+"Not very long ago. It is likely they had already left before we passed the first judgment."
 
-Ater's gaze turned toward the deeper darkness inside the structure.
+Ater's gaze turned toward the darkness deeper inside the structure.
 
-"Then they may not have gotten far."
+"Then they may not have gone far yet."
 
-Sion looked at the small shard in his hand, then back at the empty slot. The sense of having obtained a first fragment was clear. But simultaneously, the fact that what truly mattered had been taken by someone who got there first — that was also clear.
+Sion looked at the small shard Sern had handed him, then at the empty slot again. He clearly had the sense of having gotten a fragment. But at the same time it had become just as clear that someone had gotten what really mattered first and run.
 
 He said, very low.
 
-"Now we've finally caught a tail."
+"Now we've finally got hold of a real tail."
 
-Jiwoo asked from the ship side.
+Han Jiwoo asked from the ship.
 
-"So. Chase now?"
+"So. Going after them right now?"
 
-Sion did not answer immediately.
+Sion didn't answer right away.
 
-Sern was calculating the recent trace; Ater was turning over the fact that whoever pulled the larger piece first was someone who could read this structure. Seorin watched the three faces in turn, seeing who would tip first toward the reckless side.
+Sern was calculating the recent traces, and Seorin was looking from one of the three faces to the next, watching who would lean toward something reckless first.
 
-From deep inside the structure, one very faint guide reaction came alive again. A signal that more remained further in — and that the end of the path someone had rushed through and severed was not completely dead.
+Deep inside the structure a very faint guiding reaction came alive once more. A sign that there was still more further in, and a sign that the end of a path someone had hurriedly cut on their way through was not completely dead.
 
-Sion placed the small shard inside his recovery pocket and said low.
+Sion tucked the small shard deep into his retrieval pocket and said low.
 
-"First fragment, secured. And whoever took the larger one hasn't gotten very far."
+"We keep the first fragment. And whoever took the bigger piece first hasn't gotten very far yet."
 
-Ater picked up, quiet, as if continuing.
+Ater spoke quietly, as if taking that up.
 
-"Then the choice is one of two. Confirm deeper inside first — or bite the trace that's emerged right now."
+"Then the choice is one of two. Check further inside here first, or bite down on the trail that was just made."
 
-## And before the five — what was opening was not simple ruin exploration, but a true next stage: chasing who had read this path first, and who had fled holding the larger fragment.
+Seorin asked over the channel.
+
+"Just one thing."
+
+"Go ahead."
+
+"Why didn't they take it? That crumb."
+
+None of the three answered.
+
+Whether they had left it knowing it had broken off, or had not known it had broken. Those were two completely different people.
 
 ---
 
