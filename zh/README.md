@@ -190,3 +190,4 @@
 - [第一百八十章 战斗之后所见](02_hazran/180_after_the_battle.md)
 - [第一百八十一章 不止是活下来](02_hazran/181_more_than_surviving.md)
 - [第一百八十二章 同一个计划，新的心脏](02_hazran/182_same_plan_new_heart.md)
+- [第一百八十三章 他们的一员](02_hazran/183_one_of_theirs.md)

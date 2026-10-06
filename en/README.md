@@ -190,3 +190,4 @@ Current public English release:
 - [Episode 180. After the Battle](02_hazran/180_after_the_battle.md)
 - [Episode 181. More Than Surviving](02_hazran/181_more_than_surviving.md)
 - [Episode 182. Same Plan, New Heart](02_hazran/182_same_plan_new_heart.md)
+- [Episode 183. One of Theirs](02_hazran/183_one_of_theirs.md)

@@ -279,6 +279,7 @@ Each language directory is organized by arc:
 - [180. 전투 뒤에 본 것](ko/02_hazran/180_after_the_battle.md)
 - [181. 살아남은 것 이상](ko/02_hazran/181_more_than_surviving.md)
 - [182. 같은 계획, 새 심장](ko/02_hazran/182_same_plan_new_heart.md)
+- [183. 그들의 것](ko/02_hazran/183_one_of_theirs.md)
 
 ### English
 
@@ -468,6 +469,7 @@ Each language directory is organized by arc:
 - [180. After the Battle](en/02_hazran/180_after_the_battle.md)
 - [181. More Than Surviving](en/02_hazran/181_more_than_surviving.md)
 - [182. Same Plan, New Heart](en/02_hazran/182_same_plan_new_heart.md)
+- [183. One of Theirs](en/02_hazran/183_one_of_theirs.md)
 
 ### Japanese
 
@@ -657,6 +659,7 @@ Each language directory is organized by arc:
 - [第百八十話　戦いの後に見たもの](ja/02_hazran/180_after_the_battle.md)
 - [第百八十一話　生き残った以上のもの](ja/02_hazran/181_more_than_surviving.md)
 - [第百八十二話　同じ計画、新しい心臓](ja/02_hazran/182_same_plan_new_heart.md)
+- [第百八十三話　彼らのもの](ja/02_hazran/183_one_of_theirs.md)
 
 ### Chinese
 
@@ -846,6 +849,7 @@ Each language directory is organized by arc:
 - [第一百八十章 战斗之后所见](zh/02_hazran/180_after_the_battle.md)
 - [第一百八十一章 不止是活下来](zh/02_hazran/181_more_than_surviving.md)
 - [第一百八十二章 同一个计划，新的心脏](zh/02_hazran/182_same_plan_new_heart.md)
+- [第一百八十三章 他们的一员](zh/02_hazran/183_one_of_theirs.md)
 
 ### French
 
@@ -1035,6 +1039,7 @@ Each language directory is organized by arc:
 - [Chapitre 180 — Ce qu'on vit après le combat](fr/02_hazran/180_after_the_battle.md)
 - [Chapitre 181 — Plus que survivre](fr/02_hazran/181_more_than_surviving.md)
 - [Chapitre 182 — Le même plan, un nouveau cœur](fr/02_hazran/182_same_plan_new_heart.md)
+- [Chapitre 183 — L'un des leurs](fr/02_hazran/183_one_of_theirs.md)
 
 ### Spanish
 
@@ -1224,7 +1229,8 @@ Each language directory is organized by arc:
 - [Capítulo 180 — Lo que se vio tras la batalla](es/02_hazran/180_after_the_battle.md)
 - [Capítulo 181 — Más que sobrevivir](es/02_hazran/181_more_than_surviving.md)
 - [Capítulo 182 — El mismo plan, un nuevo corazón](es/02_hazran/182_same_plan_new_heart.md)
+- [Capítulo 183 — Uno de los suyos](es/02_hazran/183_one_of_theirs.md)
 
 ## Status
 
-Public archive currently published through Episode 182 in Korean, Episode 182 in English, Episode 182 in Japanese, Episode 182 in French, Episode 182 in Chinese (Simplified), and Episode 182 in Spanish.
+Public archive currently published through Episode 183 in Korean, Episode 183 in English, Episode 183 in Japanese, Episode 183 in French, Episode 183 in Chinese (Simplified), and Episode 183 in Spanish.

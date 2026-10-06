@@ -190,3 +190,4 @@
 - [第百八十話　戦いの後に見たもの](02_hazran/180_after_the_battle.md)
 - [第百八十一話　生き残った以上のもの](02_hazran/181_more_than_surviving.md)
 - [第百八十二話　同じ計画、新しい心臓](02_hazran/182_same_plan_new_heart.md)
+- [第百八十三話　彼らのもの](02_hazran/183_one_of_theirs.md)
