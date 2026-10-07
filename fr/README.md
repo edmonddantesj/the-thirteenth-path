@@ -191,3 +191,4 @@ Chapitres publics actuels :
 - [Chapitre 181 — Plus que survivre](02_hazran/181_more_than_surviving.md)
 - [Chapitre 182 — Le même plan, un nouveau cœur](02_hazran/182_same_plan_new_heart.md)
 - [Chapitre 183 — L'un des leurs](02_hazran/183_one_of_theirs.md)
+- [Chapitre 184 — Se remettre en mouvement](02_hazran/184_moving_again.md)
