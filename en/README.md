@@ -192,3 +192,4 @@ Current public English release:
 - [Episode 182. Same Plan, New Heart](02_hazran/182_same_plan_new_heart.md)
 - [Episode 183. One of Theirs](02_hazran/183_one_of_theirs.md)
 - [Episode 184. Moving Again](02_hazran/184_moving_again.md)
+- [Episode 185. Serakion's First Hesitation](02_hazran/185_serakions_hesitation.md)

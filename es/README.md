@@ -188,3 +188,4 @@ Capítulos públicos actuales:
 - [Capítulo 182 — El mismo plan, un nuevo corazón](02_hazran/182_same_plan_new_heart.md)
 - [Capítulo 183 — Uno de los suyos](02_hazran/183_one_of_theirs.md)
 - [Capítulo 184 — De nuevo en marcha](02_hazran/184_moving_again.md)
+- [Capítulo 185 — La vacilación de Serakion](02_hazran/185_serakions_hesitation.md)

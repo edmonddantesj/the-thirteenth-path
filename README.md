@@ -281,6 +281,7 @@ Each language directory is organized by arc:
 - [182. 같은 계획, 새 심장](ko/02_hazran/182_same_plan_new_heart.md)
 - [183. 그들의 것](ko/02_hazran/183_one_of_theirs.md)
 - [184. 다시 움직이다](ko/02_hazran/184_moving_again.md)
+- [185. 세라키온의 첫 망설임](ko/02_hazran/185_serakions_hesitation.md)
 
 ### English
 
@@ -472,6 +473,7 @@ Each language directory is organized by arc:
 - [182. Same Plan, New Heart](en/02_hazran/182_same_plan_new_heart.md)
 - [183. One of Theirs](en/02_hazran/183_one_of_theirs.md)
 - [184. Moving Again](en/02_hazran/184_moving_again.md)
+- [185. Serakion's First Hesitation](en/02_hazran/185_serakions_hesitation.md)
 
 ### Japanese
 
@@ -663,6 +665,7 @@ Each language directory is organized by arc:
 - [第百八十二話　同じ計画、新しい心臓](ja/02_hazran/182_same_plan_new_heart.md)
 - [第百八十三話　彼らのもの](ja/02_hazran/183_one_of_theirs.md)
 - [第百八十四話　再び動く](ja/02_hazran/184_moving_again.md)
+- [第百八十五話　セラキオンの躊躇い](ja/02_hazran/185_serakions_hesitation.md)
 
 ### Chinese
 
@@ -854,6 +857,7 @@ Each language directory is organized by arc:
 - [第一百八十二章 同一个计划，新的心脏](zh/02_hazran/182_same_plan_new_heart.md)
 - [第一百八十三章 他们的一员](zh/02_hazran/183_one_of_theirs.md)
 - [第一百八十四章 再次行动](zh/02_hazran/184_moving_again.md)
+- [第一百八十五章 瑟拉基昂的迟疑](zh/02_hazran/185_serakions_hesitation.md)
 
 ### French
 
@@ -1045,6 +1049,7 @@ Each language directory is organized by arc:
 - [Chapitre 182 — Le même plan, un nouveau cœur](fr/02_hazran/182_same_plan_new_heart.md)
 - [Chapitre 183 — L'un des leurs](fr/02_hazran/183_one_of_theirs.md)
 - [Chapitre 184 — Se remettre en mouvement](fr/02_hazran/184_moving_again.md)
+- [Chapitre 185 — L'hésitation de Serakion](fr/02_hazran/185_serakions_hesitation.md)
 
 ### Spanish
 
@@ -1236,7 +1241,8 @@ Each language directory is organized by arc:
 - [Capítulo 182 — El mismo plan, un nuevo corazón](es/02_hazran/182_same_plan_new_heart.md)
 - [Capítulo 183 — Uno de los suyos](es/02_hazran/183_one_of_theirs.md)
 - [Capítulo 184 — De nuevo en marcha](es/02_hazran/184_moving_again.md)
+- [Capítulo 185 — La vacilación de Serakion](es/02_hazran/185_serakions_hesitation.md)
 
 ## Status
 
-Public archive currently published through Episode 184 in Korean, Episode 184 in English, Episode 184 in Japanese, Episode 184 in French, Episode 184 in Chinese (Simplified), and Episode 184 in Spanish.
+Public archive currently published through Episode 185 in Korean, Episode 185 in English, Episode 185 in Japanese, Episode 185 in French, Episode 185 in Chinese (Simplified), and Episode 185 in Spanish.
