@@ -193,3 +193,4 @@ Current public English release:
 - [Episode 183. One of Theirs](02_hazran/183_one_of_theirs.md)
 - [Episode 184. Moving Again](02_hazran/184_moving_again.md)
 - [Episode 185. Serakion's First Hesitation](02_hazran/185_serakions_hesitation.md)
+- [Episode 186. The Begging Man](02_hazran/186_the_begging_man.md)

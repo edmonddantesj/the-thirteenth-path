@@ -194,3 +194,4 @@
 - [183화. 그들의 것](02_hazran/183_one_of_theirs.md)
 - [184화. 다시 움직이다](02_hazran/184_moving_again.md)
 - [185화. 세라키온의 첫 망설임](02_hazran/185_serakions_hesitation.md)
+- [186화. 살려 달라던 남자](02_hazran/186_the_begging_man.md)

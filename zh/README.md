@@ -193,3 +193,4 @@
 - [第一百八十三章 他们的一员](02_hazran/183_one_of_theirs.md)
 - [第一百八十四章 再次行动](02_hazran/184_moving_again.md)
 - [第一百八十五章 瑟拉基昂的迟疑](02_hazran/185_serakions_hesitation.md)
+- [第一百八十六章 求救的男人](02_hazran/186_the_begging_man.md)

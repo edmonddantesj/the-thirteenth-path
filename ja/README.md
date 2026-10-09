@@ -193,3 +193,4 @@
 - [第百八十三話　彼らのもの](02_hazran/183_one_of_theirs.md)
 - [第百八十四話　再び動く](02_hazran/184_moving_again.md)
 - [第百八十五話　セラキオンの躊躇い](02_hazran/185_serakions_hesitation.md)
+- [第百八十六話　助けを求めた男](02_hazran/186_the_begging_man.md)
