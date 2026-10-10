@@ -194,3 +194,4 @@
 - [第一百八十四章 再次行动](02_hazran/184_moving_again.md)
 - [第一百八十五章 瑟拉基昂的迟疑](02_hazran/185_serakions_hesitation.md)
 - [第一百八十六章 求救的男人](02_hazran/186_the_begging_man.md)
+- [第一百八十七章 两手都不放的判断](02_hazran/187_split_judgment.md)

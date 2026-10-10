@@ -190,3 +190,4 @@ Capítulos públicos actuales:
 - [Capítulo 184 — De nuevo en marcha](02_hazran/184_moving_again.md)
 - [Capítulo 185 — La vacilación de Serakion](02_hazran/185_serakions_hesitation.md)
 - [Capítulo 186 — El hombre que pedía auxilio](02_hazran/186_the_begging_man.md)
+- [Capítulo 187 — El juicio partido](02_hazran/187_split_judgment.md)

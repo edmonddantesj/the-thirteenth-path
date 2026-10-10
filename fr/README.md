@@ -194,3 +194,4 @@ Chapitres publics actuels :
 - [Chapitre 184 — Se remettre en mouvement](02_hazran/184_moving_again.md)
 - [Chapitre 185 — L'hésitation de Serakion](02_hazran/185_serakions_hesitation.md)
 - [Chapitre 186 — L'homme qui suppliait](02_hazran/186_the_begging_man.md)
+- [Chapitre 187 — Tenir le jugement en deux](02_hazran/187_split_judgment.md)

@@ -194,3 +194,4 @@ Current public English release:
 - [Episode 184. Moving Again](02_hazran/184_moving_again.md)
 - [Episode 185. Serakion's First Hesitation](02_hazran/185_serakions_hesitation.md)
 - [Episode 186. The Begging Man](02_hazran/186_the_begging_man.md)
+- [Episode 187. Judgment Split in Two](02_hazran/187_split_judgment.md)

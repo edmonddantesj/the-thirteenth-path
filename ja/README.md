@@ -194,3 +194,4 @@
 - [第百八十四話　再び動く](02_hazran/184_moving_again.md)
 - [第百八十五話　セラキオンの躊躇い](02_hazran/185_serakions_hesitation.md)
 - [第百八十六話　助けを求めた男](02_hazran/186_the_begging_man.md)
+- [第百八十七話　割って握った判断](02_hazran/187_split_judgment.md)
