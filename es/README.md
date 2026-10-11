@@ -191,3 +191,4 @@ Capítulos públicos actuales:
 - [Capítulo 185 — La vacilación de Serakion](02_hazran/185_serakions_hesitation.md)
 - [Capítulo 186 — El hombre que pedía auxilio](02_hazran/186_the_begging_man.md)
 - [Capítulo 187 — El juicio partido](02_hazran/187_split_judgment.md)
+- [Capítulo 188 — La perfección como debilidad](02_hazran/188_perfection_as_weakness.md)

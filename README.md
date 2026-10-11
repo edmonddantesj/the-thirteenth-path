@@ -284,6 +284,7 @@ Each language directory is organized by arc:
 - [185. 세라키온의 첫 망설임](ko/02_hazran/185_serakions_hesitation.md)
 - [186. 살려 달라던 남자](ko/02_hazran/186_the_begging_man.md)
 - [187. 둘로 쪼갠 판단](ko/02_hazran/187_split_judgment.md)
+- [188. 완전함이라는 약점](ko/02_hazran/188_perfection_as_weakness.md)
 
 ### English
 
@@ -478,6 +479,7 @@ Each language directory is organized by arc:
 - [185. Serakion's First Hesitation](en/02_hazran/185_serakions_hesitation.md)
 - [186. The Begging Man](en/02_hazran/186_the_begging_man.md)
 - [187. Judgment Split in Two](en/02_hazran/187_split_judgment.md)
+- [188. Perfection as Weakness](en/02_hazran/188_perfection_as_weakness.md)
 
 ### Japanese
 
@@ -672,6 +674,7 @@ Each language directory is organized by arc:
 - [第百八十五話　セラキオンの躊躇い](ja/02_hazran/185_serakions_hesitation.md)
 - [第百八十六話　助けを求めた男](ja/02_hazran/186_the_begging_man.md)
 - [第百八十七話　割って握った判断](ja/02_hazran/187_split_judgment.md)
+- [第百八十八話　完全さという弱点](ja/02_hazran/188_perfection_as_weakness.md)
 
 ### Chinese
 
@@ -866,6 +869,7 @@ Each language directory is organized by arc:
 - [第一百八十五章 瑟拉基昂的迟疑](zh/02_hazran/185_serakions_hesitation.md)
 - [第一百八十六章 求救的男人](zh/02_hazran/186_the_begging_man.md)
 - [第一百八十七章 两手都不放的判断](zh/02_hazran/187_split_judgment.md)
+- [第一百八十八章 名为完美的弱点](zh/02_hazran/188_perfection_as_weakness.md)
 
 ### French
 
@@ -1060,6 +1064,7 @@ Each language directory is organized by arc:
 - [Chapitre 185 — L'hésitation de Serakion](fr/02_hazran/185_serakions_hesitation.md)
 - [Chapitre 186 — L'homme qui suppliait](fr/02_hazran/186_the_begging_man.md)
 - [Chapitre 187 — Tenir le jugement en deux](fr/02_hazran/187_split_judgment.md)
+- [Chapitre 188 — La faiblesse de la perfection](fr/02_hazran/188_perfection_as_weakness.md)
 
 ### Spanish
 
@@ -1254,7 +1259,8 @@ Each language directory is organized by arc:
 - [Capítulo 185 — La vacilación de Serakion](es/02_hazran/185_serakions_hesitation.md)
 - [Capítulo 186 — El hombre que pedía auxilio](es/02_hazran/186_the_begging_man.md)
 - [Capítulo 187 — El juicio partido](es/02_hazran/187_split_judgment.md)
+- [Capítulo 188 — La perfección como debilidad](es/02_hazran/188_perfection_as_weakness.md)
 
 ## Status
 
-Public archive currently published through Episode 187 in Korean, Episode 187 in English, Episode 187 in Japanese, Episode 187 in French, Episode 187 in Chinese (Simplified), and Episode 187 in Spanish.
+Public archive currently published through Episode 188 in Korean, Episode 188 in English, Episode 188 in Japanese, Episode 188 in French, Episode 188 in Chinese (Simplified), and Episode 188 in Spanish.

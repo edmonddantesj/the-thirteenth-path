@@ -196,3 +196,4 @@
 - [185화. 세라키온의 첫 망설임](02_hazran/185_serakions_hesitation.md)
 - [186화. 살려 달라던 남자](02_hazran/186_the_begging_man.md)
 - [187화. 둘로 쪼갠 판단](02_hazran/187_split_judgment.md)
+- [188화. 완전함이라는 약점](02_hazran/188_perfection_as_weakness.md)

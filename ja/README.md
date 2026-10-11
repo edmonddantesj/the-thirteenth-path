@@ -195,3 +195,4 @@
 - [第百八十五話　セラキオンの躊躇い](02_hazran/185_serakions_hesitation.md)
 - [第百八十六話　助けを求めた男](02_hazran/186_the_begging_man.md)
 - [第百八十七話　割って握った判断](02_hazran/187_split_judgment.md)
+- [第百八十八話　完全さという弱点](02_hazran/188_perfection_as_weakness.md)
