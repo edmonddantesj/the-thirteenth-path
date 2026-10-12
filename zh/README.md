@@ -196,3 +196,4 @@
 - [第一百八十六章 求救的男人](02_hazran/186_the_begging_man.md)
 - [第一百八十七章 两手都不放的判断](02_hazran/187_split_judgment.md)
 - [第一百八十八章 名为完美的弱点](02_hazran/188_perfection_as_weakness.md)
+- [第一百八十九章 崩塌的笃信](02_hazran/189_broken_confidence.md)

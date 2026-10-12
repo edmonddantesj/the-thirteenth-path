@@ -197,3 +197,4 @@
 - [186화. 살려 달라던 남자](02_hazran/186_the_begging_man.md)
 - [187화. 둘로 쪼갠 판단](02_hazran/187_split_judgment.md)
 - [188화. 완전함이라는 약점](02_hazran/188_perfection_as_weakness.md)
+- [189화. 무너지는 확신](02_hazran/189_broken_confidence.md)

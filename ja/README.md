@@ -196,3 +196,4 @@
 - [第百八十六話　助けを求めた男](02_hazran/186_the_begging_man.md)
 - [第百八十七話　割って握った判断](02_hazran/187_split_judgment.md)
 - [第百八十八話　完全さという弱点](02_hazran/188_perfection_as_weakness.md)
+- [第百八十九話　崩れゆく確信](02_hazran/189_broken_confidence.md)
