@@ -198,3 +198,4 @@
 - [187화. 둘로 쪼갠 판단](02_hazran/187_split_judgment.md)
 - [188화. 완전함이라는 약점](02_hazran/188_perfection_as_weakness.md)
 - [189화. 무너지는 확신](02_hazran/189_broken_confidence.md)
+- [190화. 읽을 수 없는 순간](02_hazran/190_unreadable.md)

@@ -197,3 +197,4 @@ Chapitres publics actuels :
 - [Chapitre 187 — Tenir le jugement en deux](02_hazran/187_split_judgment.md)
 - [Chapitre 188 — La faiblesse de la perfection](02_hazran/188_perfection_as_weakness.md)
 - [Chapitre 189 — La certitude qui s'effondre](02_hazran/189_broken_confidence.md)
+- [Chapitre 190 — L'instant illisible](02_hazran/190_unreadable.md)

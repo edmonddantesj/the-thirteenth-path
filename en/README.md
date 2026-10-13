@@ -197,3 +197,4 @@ Current public English release:
 - [Episode 187. Judgment Split in Two](02_hazran/187_split_judgment.md)
 - [Episode 188. Perfection as Weakness](02_hazran/188_perfection_as_weakness.md)
 - [Episode 189. Broken Confidence](02_hazran/189_broken_confidence.md)
+- [Episode 190. Unreadable](02_hazran/190_unreadable.md)

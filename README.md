@@ -286,6 +286,7 @@ Each language directory is organized by arc:
 - [187. 둘로 쪼갠 판단](ko/02_hazran/187_split_judgment.md)
 - [188. 완전함이라는 약점](ko/02_hazran/188_perfection_as_weakness.md)
 - [189. 무너지는 확신](ko/02_hazran/189_broken_confidence.md)
+- [190. 읽을 수 없는 순간](ko/02_hazran/190_unreadable.md)
 
 ### English
 
@@ -482,6 +483,7 @@ Each language directory is organized by arc:
 - [187. Judgment Split in Two](en/02_hazran/187_split_judgment.md)
 - [188. Perfection as Weakness](en/02_hazran/188_perfection_as_weakness.md)
 - [189. Broken Confidence](en/02_hazran/189_broken_confidence.md)
+- [190. Unreadable](en/02_hazran/190_unreadable.md)
 
 ### Japanese
 
@@ -678,6 +680,7 @@ Each language directory is organized by arc:
 - [第百八十七話　割って握った判断](ja/02_hazran/187_split_judgment.md)
 - [第百八十八話　完全さという弱点](ja/02_hazran/188_perfection_as_weakness.md)
 - [第百八十九話　崩れゆく確信](ja/02_hazran/189_broken_confidence.md)
+- [第百九十話　読めなくなった瞬間](ja/02_hazran/190_unreadable.md)
 
 ### Chinese
 
@@ -874,6 +877,7 @@ Each language directory is organized by arc:
 - [第一百八十七章 两手都不放的判断](zh/02_hazran/187_split_judgment.md)
 - [第一百八十八章 名为完美的弱点](zh/02_hazran/188_perfection_as_weakness.md)
 - [第一百八十九章 崩塌的笃信](zh/02_hazran/189_broken_confidence.md)
+- [第一百九十章 读不出的瞬间](zh/02_hazran/190_unreadable.md)
 
 ### French
 
@@ -1070,6 +1074,7 @@ Each language directory is organized by arc:
 - [Chapitre 187 — Tenir le jugement en deux](fr/02_hazran/187_split_judgment.md)
 - [Chapitre 188 — La faiblesse de la perfection](fr/02_hazran/188_perfection_as_weakness.md)
 - [Chapitre 189 — La certitude qui s'effondre](fr/02_hazran/189_broken_confidence.md)
+- [Chapitre 190 — L'instant illisible](fr/02_hazran/190_unreadable.md)
 
 ### Spanish
 
@@ -1266,7 +1271,8 @@ Each language directory is organized by arc:
 - [Capítulo 187 — El juicio partido](es/02_hazran/187_split_judgment.md)
 - [Capítulo 188 — La perfección como debilidad](es/02_hazran/188_perfection_as_weakness.md)
 - [Capítulo 189 — La certeza que se derrumba](es/02_hazran/189_broken_confidence.md)
+- [Capítulo 190 — El instante ilegible](es/02_hazran/190_unreadable.md)
 
 ## Status
 
-Public archive currently published through Episode 189 in Korean, Episode 189 in English, Episode 189 in Japanese, Episode 189 in French, Episode 189 in Chinese (Simplified), and Episode 189 in Spanish.
+Public archive currently published through Episode 190 in Korean, Episode 190 in English, Episode 190 in Japanese, Episode 190 in French, Episode 190 in Chinese (Simplified), and Episode 190 in Spanish.
