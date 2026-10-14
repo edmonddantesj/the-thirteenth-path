@@ -198,3 +198,4 @@
 - [第百八十八話　完全さという弱点](02_hazran/188_perfection_as_weakness.md)
 - [第百八十九話　崩れゆく確信](02_hazran/189_broken_confidence.md)
 - [第百九十話　読めなくなった瞬間](02_hazran/190_unreadable.md)
+- [第百九十一話　最初の門](02_hazran/191_first_gate.md)

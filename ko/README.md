@@ -199,3 +199,4 @@
 - [188화. 완전함이라는 약점](02_hazran/188_perfection_as_weakness.md)
 - [189화. 무너지는 확신](02_hazran/189_broken_confidence.md)
 - [190화. 읽을 수 없는 순간](02_hazran/190_unreadable.md)
+- [191화. 첫 번째 문](02_hazran/191_first_gate.md)

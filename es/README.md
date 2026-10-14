@@ -194,3 +194,4 @@ Capítulos públicos actuales:
 - [Capítulo 188 — La perfección como debilidad](02_hazran/188_perfection_as_weakness.md)
 - [Capítulo 189 — La certeza que se derrumba](02_hazran/189_broken_confidence.md)
 - [Capítulo 190 — El instante ilegible](02_hazran/190_unreadable.md)
+- [Capítulo 191 — La primera puerta](02_hazran/191_first_gate.md)

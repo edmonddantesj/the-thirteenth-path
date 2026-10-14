@@ -287,6 +287,7 @@ Each language directory is organized by arc:
 - [188. 완전함이라는 약점](ko/02_hazran/188_perfection_as_weakness.md)
 - [189. 무너지는 확신](ko/02_hazran/189_broken_confidence.md)
 - [190. 읽을 수 없는 순간](ko/02_hazran/190_unreadable.md)
+- [191. 첫 번째 문](ko/02_hazran/191_first_gate.md)
 
 ### English
 
@@ -484,6 +485,7 @@ Each language directory is organized by arc:
 - [188. Perfection as Weakness](en/02_hazran/188_perfection_as_weakness.md)
 - [189. Broken Confidence](en/02_hazran/189_broken_confidence.md)
 - [190. Unreadable](en/02_hazran/190_unreadable.md)
+- [191. First Gate](en/02_hazran/191_first_gate.md)
 
 ### Japanese
 
@@ -681,6 +683,7 @@ Each language directory is organized by arc:
 - [第百八十八話　完全さという弱点](ja/02_hazran/188_perfection_as_weakness.md)
 - [第百八十九話　崩れゆく確信](ja/02_hazran/189_broken_confidence.md)
 - [第百九十話　読めなくなった瞬間](ja/02_hazran/190_unreadable.md)
+- [第百九十一話　最初の門](ja/02_hazran/191_first_gate.md)
 
 ### Chinese
 
@@ -878,6 +881,7 @@ Each language directory is organized by arc:
 - [第一百八十八章 名为完美的弱点](zh/02_hazran/188_perfection_as_weakness.md)
 - [第一百八十九章 崩塌的笃信](zh/02_hazran/189_broken_confidence.md)
 - [第一百九十章 读不出的瞬间](zh/02_hazran/190_unreadable.md)
+- [第一百九十一章 第一道门](zh/02_hazran/191_first_gate.md)
 
 ### French
 
@@ -1075,6 +1079,7 @@ Each language directory is organized by arc:
 - [Chapitre 188 — La faiblesse de la perfection](fr/02_hazran/188_perfection_as_weakness.md)
 - [Chapitre 189 — La certitude qui s'effondre](fr/02_hazran/189_broken_confidence.md)
 - [Chapitre 190 — L'instant illisible](fr/02_hazran/190_unreadable.md)
+- [Chapitre 191 — La première porte](fr/02_hazran/191_first_gate.md)
 
 ### Spanish
 
@@ -1272,7 +1277,8 @@ Each language directory is organized by arc:
 - [Capítulo 188 — La perfección como debilidad](es/02_hazran/188_perfection_as_weakness.md)
 - [Capítulo 189 — La certeza que se derrumba](es/02_hazran/189_broken_confidence.md)
 - [Capítulo 190 — El instante ilegible](es/02_hazran/190_unreadable.md)
+- [Capítulo 191 — La primera puerta](es/02_hazran/191_first_gate.md)
 
 ## Status
 
-Public archive currently published through Episode 190 in Korean, Episode 190 in English, Episode 190 in Japanese, Episode 190 in French, Episode 190 in Chinese (Simplified), and Episode 190 in Spanish.
+Public archive currently published through Episode 191 in Korean, Episode 191 in English, Episode 191 in Japanese, Episode 191 in French, Episode 191 in Chinese (Simplified), and Episode 191 in Spanish.

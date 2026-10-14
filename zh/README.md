@@ -198,3 +198,4 @@
 - [第一百八十八章 名为完美的弱点](02_hazran/188_perfection_as_weakness.md)
 - [第一百八十九章 崩塌的笃信](02_hazran/189_broken_confidence.md)
 - [第一百九十章 读不出的瞬间](02_hazran/190_unreadable.md)
+- [第一百九十一章 第一道门](02_hazran/191_first_gate.md)
