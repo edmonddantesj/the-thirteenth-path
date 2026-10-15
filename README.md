@@ -288,6 +288,7 @@ Each language directory is organized by arc:
 - [189. 무너지는 확신](ko/02_hazran/189_broken_confidence.md)
 - [190. 읽을 수 없는 순간](ko/02_hazran/190_unreadable.md)
 - [191. 첫 번째 문](ko/02_hazran/191_first_gate.md)
+- [192. 완전한 새장](ko/02_hazran/192_perfect_cage.md)
 
 ### English
 
@@ -486,6 +487,7 @@ Each language directory is organized by arc:
 - [189. Broken Confidence](en/02_hazran/189_broken_confidence.md)
 - [190. Unreadable](en/02_hazran/190_unreadable.md)
 - [191. First Gate](en/02_hazran/191_first_gate.md)
+- [192. Perfect Cage](en/02_hazran/192_perfect_cage.md)
 
 ### Japanese
 
@@ -684,6 +686,7 @@ Each language directory is organized by arc:
 - [第百八十九話　崩れゆく確信](ja/02_hazran/189_broken_confidence.md)
 - [第百九十話　読めなくなった瞬間](ja/02_hazran/190_unreadable.md)
 - [第百九十一話　最初の門](ja/02_hazran/191_first_gate.md)
+- [第百九十二話　完全な鳥籠](ja/02_hazran/192_perfect_cage.md)
 
 ### Chinese
 
@@ -882,6 +885,7 @@ Each language directory is organized by arc:
 - [第一百八十九章 崩塌的笃信](zh/02_hazran/189_broken_confidence.md)
 - [第一百九十章 读不出的瞬间](zh/02_hazran/190_unreadable.md)
 - [第一百九十一章 第一道门](zh/02_hazran/191_first_gate.md)
+- [第一百九十二章 完美的笼](zh/02_hazran/192_perfect_cage.md)
 
 ### French
 
@@ -1080,6 +1084,7 @@ Each language directory is organized by arc:
 - [Chapitre 189 — La certitude qui s'effondre](fr/02_hazran/189_broken_confidence.md)
 - [Chapitre 190 — L'instant illisible](fr/02_hazran/190_unreadable.md)
 - [Chapitre 191 — La première porte](fr/02_hazran/191_first_gate.md)
+- [Chapitre 192 — La cage parfaite](fr/02_hazran/192_perfect_cage.md)
 
 ### Spanish
 
@@ -1278,7 +1283,8 @@ Each language directory is organized by arc:
 - [Capítulo 189 — La certeza que se derrumba](es/02_hazran/189_broken_confidence.md)
 - [Capítulo 190 — El instante ilegible](es/02_hazran/190_unreadable.md)
 - [Capítulo 191 — La primera puerta](es/02_hazran/191_first_gate.md)
+- [Capítulo 192 — La jaula perfecta](es/02_hazran/192_perfect_cage.md)
 
 ## Status
 
-Public archive currently published through Episode 191 in Korean, Episode 191 in English, Episode 191 in Japanese, Episode 191 in French, Episode 191 in Chinese (Simplified), and Episode 191 in Spanish.
+Public archive currently published through Episode 192 in Korean, Episode 192 in English, Episode 192 in Japanese, Episode 192 in French, Episode 192 in Chinese (Simplified), and Episode 192 in Spanish.

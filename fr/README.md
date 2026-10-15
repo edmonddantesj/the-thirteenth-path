@@ -199,3 +199,4 @@ Chapitres publics actuels :
 - [Chapitre 189 — La certitude qui s'effondre](02_hazran/189_broken_confidence.md)
 - [Chapitre 190 — L'instant illisible](02_hazran/190_unreadable.md)
 - [Chapitre 191 — La première porte](02_hazran/191_first_gate.md)
+- [Chapitre 192 — La cage parfaite](02_hazran/192_perfect_cage.md)
