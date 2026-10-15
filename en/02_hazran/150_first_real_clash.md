@@ -1,68 +1,56 @@
-# Episode 150. First Clash
+# Episode 150. The First Real Clash
 
-After watching the children being handed upward,
-the recon team did not stay there any longer.
+The way back was quieter than the way up.
 
-The way back was far quieter than the way in.
+No one spoke on the way back, and the only sound was the second recovery hand's leg; Han Jiwoo walked in time with it. At the gap, Ater scraped the groove three times, and when the gap opened, an old machine was standing inside.
 
-They had already seen enough of what they needed to understand,
-and from here on, they had to decide what to do.
+Back on the hidden level, the yellow lamp was lit under the low lighting. Sion, who had been standing there holding the board, wiped the marks from the dots of the five who had gone. While Luhai came over from the children and Sern came from the dark exit, Seorin pushed off the wall.
 
-The trouble
-came after that.
-
-When they were back in the hidden layer
-and had stopped under the low lights,
-the first to speak was the first recovery hand.
+The first to speak was the first recovery hand.
 
 "It cannot be done."
 
-Han Jiwoo looked at it almost as if she had been waiting for it.
+Han Jiwoo looked at it. It was the face she had been expecting.
 
-The first recovery hand spoke in a lower, harder voice.
+The first recovery hand spoke in a low, firm voice.
 
-"If we move now,
-we will not be getting anyone out. We will lose more."
+"If we move now, we will not be getting anyone out. We will lose more."
 
-It wasn't meant to frighten anyone.
-It sounded like the conclusion of one that had truly confirmed it with its own body, countless times.
-
-Han Jiwoo didn't back down right away.
+Han Jiwoo did not back down.
 
 "So you've just kept watching?"
-she said, low.
-"All this time you kept understanding the structure,
-you kept letting the kids cross over?"
 
-The second recovery hand cut in briefly.
+Her voice was low.
 
-"We were not just watching."
-"We could not move."
+"All this time you kept understanding the structure, and you kept letting the kids cross over?"
 
-Those short sentences
-held more weariness than excuse.
+The second recovery hand cut in briefly. It sat with its back to the wall and its leg stretched out.
 
-Ater looked once between the two of them
-and did not push with emotion first.
-Instead, as coldly as anyone could, he went straight to the heart of it.
+"We were not just watching. We could not move."
 
-"Let us lay out again why you could not move,"
-he said, low.
-"What we need now is not anger
-but the exact conditions for failure."
+It pointed at its own leg, the leg that had been opened four times.
 
-Thanks to that,
-the air in the room held, barely, without breaking.
+"This is what came of it."
 
-Kael seemed to have been drawing the structure in his head the whole way back.
+Han Jiwoo looked at the leg and shut her mouth. When she opened it again, Seorin spoke first.
 
-He bent low on one knee on the floor
-and began scratching simple lines in the dust.
+"Don't fight."
 
-"There's one window that might work,"
-he said.
-"Right before they're handed over,
-before they're fully in the upper beat."
+At those two short words Han Jiwoo looked at Seorin, but Seorin was looking at both of them.
+
+"Let's hear it."
+
+Ater looked once between the two of them and, coldest of all, went straight to the core in a low voice.
+
+"Let us lay out again why you could not move. What we need now is not anger but the exact conditions for failure."
+
+Sern opened his record panel, ready to write.
+
+Kael crouched and drew lines in the dust on the floor. It was the place where Seorin drew before a fight, the place where the dots had stayed. He drew around those dots as he spoke.
+
+"There's only one window that might work. Right before they're handed over, before they're fully in the upper beat."
+
+He drew a short notch on the line.
 
 The first recovery hand answered at once.
 
@@ -70,190 +58,277 @@ The first recovery hand answered at once.
 
 Kael nodded.
 
-"I know."
-"That's why we need what comes before it."
+"I know. That's why we need what comes before it."
 
-He drew a few more lines.
+He drew a few more lines in front of the short notch. Dust stuck to his finger, but he didn't wipe it off.
 
-"What we have to touch isn't the line the kids are standing in."
-"It's the flow right before it."
-"We have to slow it by even half a beat
-and throw it off before the alignment locks completely."
+"This is the column."
+
+A long stroke.
+
+"This is the wall."
+
+The notch at the end of the stroke.
+
+"This is us."
+
+Three dots beside the column. While Seorin looked at the dots, he went on.
+
+"What we have to touch isn't the column the kids are in. It's the flow right before it. We have to slow it by even half a beat and throw it off before the alignment locks completely."
 
 The second recovery hand asked.
 
 "With what?"
 
-This time Han Jiwoo answered at once.
+Han Jiwoo answered at once.
 
 "The children."
 
 A short silence.
 
-Not everyone understood her right away.
+Luhai looked back toward the children, where the Hazran children lay asleep, then looked at Han Jiwoo again.
 
 Han Jiwoo went on, her teeth set.
 
-"The kids already don't all move to the same beat."
-"Some are slow,
-some are fast,
-some still have stiff hands."
-"Serakion reads that and matches it to take them,
-but it can be used the other way too."
+"The kids already don't all move to the same beat. Some are slow, some are fast, some still have stiff hands. Serakion reads that and matches it to take them, but it can be used the other way too."
 
-Ater said, very low,
+Ater spoke very low.
 
 "You mean we make the misalignment itself the way through?"
 
-Han Jiwoo gave a short nod.
+Han Jiwoo nodded.
 
-"If it were a line of kids who'd been completely won over, we couldn't."
-"But if there are kids mixed in who haven't crossed over yet,
-that half-beat difference could throw the line into disorder."
+"If it were a column of kids who'd been completely won over, we couldn't. But if there are kids mixed in who haven't crossed over yet, that half-beat difference could throw the column into disorder."
 
-It was dangerous,
-and for that very reason, all the more real.
+"So you're using the children."
 
-Saving the children
-might have to rest on the fact that the children had not yet fully fallen into the same rhythm.
+Seorin said.
 
-The first recovery hand was silent for a long time, then said,
+Han Jiwoo looked at Seorin.
+
+"I'm using what the children are already doing."
+
+"Same thing."
+
+"I know. But it's there."
+
+Seorin said nothing more.
+
+Luhai came back from the children.
+
+"Those kids don't keep the beat either."
+
+Luhai said.
+
+"Even asleep. Their breathing's all different."
+
+Han Jiwoo looked at Luhai.
+
+"Right."
+
+"Then the kids up there too."
+
+"For now."
+
+Luhai went back to the children and sat down beside them, his lips moving without a sound.
+
+The first recovery hand was silent for a long time.
 
 "That leaves too much to luck."
 
 Kael cut in at once.
 
-"No."
-"Making sure it isn't luck is my job."
+"No. Making sure it isn't luck is my job."
 
-He said it quietly,
-and that made it all the firmer.
+He drew more lines.
 
-Kael drew more lines in the dust.
+"We shake it here and catch them here. And we don't fight here."
 
-"We shake it here,
-and catch them here."
-"And don't fight here."
-"This spot closes up beautifully;
-if we're spotted, the structure folds faster than people can run."
+He laid his palm on the third spot.
 
-The second recovery hand's expression changed, very slightly.
+"This spot closes up beautifully, so if we're spotted, the structure folds faster than people can run."
 
-It was something close to agreement.
+The second recovery hand's expression changed very slightly, and it pushed off the wall and looked down at the lines.
 
 Kael kept going.
 
-"We need three things."
-"One, throwing the line out of step."
-"One, hands to pull the kids out right away."
-"And last, someone in position to slow the closing."
+"We need three things. One, throwing the column out of step. One, hands to pull the kids out right away. And the last, someone in position to slow the closing."
 
-Ater looked down at the lines and asked, low,
+Three lines, one notch.
+
+Ater looked down at the lines, then asked, low.
 
 "Who takes what?"
 
-The answer was all but settled already.
+Kael looked at Ater.
 
-Han Jiwoo would watch the children.
-Who still had a beat of their own,
-who would respond if a hand reached out,
-who was too late,
-and who too fast.
+"You throw it off."
 
-Kael would keep hold of the timing of opening and closing.
-He would work out where to block,
-where to leave open,
-and where to start pushing so a gap would open for people to get through.
+"Why me?"
 
-Ater would read the habits of the upper order.
-How each machine reacted,
-in which stretch a reaction ran half a beat late from the effort to keep up appearances,
-and what kind of confusion would look most natural.
+"You know how to walk their walk."
 
-The three lenses
-were, for the first time, beginning to overlap on a single operation.
+The corner of Ater's mouth went hard, but he did not deny it.
 
-But just then,
-the first recovery hand spoke again.
+Kael looked at Han Jiwoo.
+
+"You pull them out."
+
+"I know."
+
+"I slow it."
+
+Sern wrote the three on his record panel.
+
+Luhai asked.
+
+"And me?"
+
+"You stay inside. The hands that catch the three kids when they come."
+
+Luhai looked at his own hands. Two.
+
+"There's three."
+
+"Seorin's one."
+
+Seorin nodded.
+
+Sern wrote two catching hands on the record panel.
+
+The first recovery hand spoke again.
 
 "It still cannot be done."
 
-Han Jiwoo's eyes sharpened again.
+Han Jiwoo's eyes sharpened.
 
-This time the first recovery hand spoke more slowly.
+The first recovery hand spoke slowly.
 
-"I know the chance is there."
-"But we also have to protect this place, in here."
-"If the three of you fail, it does not just end with you;
-it folds all the way down to here."
+"I know the chance is there. But we also have to protect this place, in here. If the three of you fail, it does not just end with you; it folds all the way down to here."
 
-It wasn't wrong.
+On the wall board it pointed at were four faded dots.
 
-The Serakion the recon team had seen from outside was vast,
-but this layer holding out inside was kept going by far fewer, far longer-worn hands than they had thought.
+"That is how those four faded."
 
-If one rescue operation failed,
-it would not just mean failing to get the children out;
-this whole line of connection could collapse.
+No one could keep from looking at the dots, and Han Jiwoo looked too. The old machine stood by the pillar, looking at the dots, but it said nothing.
 
-Ater heard it and still did not back down.
+Ater did not back down.
 
-"Which is why we must be more exact,"
-he said, low.
+"Which is why we must be more exact."
+
+He kept his voice low.
+
 "No one can become exact by choosing not to act."
 
-That sentence cut once through the room and left it quiet.
+Only when Sern had written all of it down did he look up.
+
+"There are more signals from the Serakion side than before."
+
+Sern said.
+
+"From above. Since the three of them went up and came back down."
+
+"Were we spotted?"
+
+Seorin asked.
+
+"Unknown. They have increased."
+
+The first looked at Sern.
+
+"That is being spotted."
+
+"Not yet."
+
+Sern answered.
+
+"When we are spotted, the signals drop. Right now they have increased. They are searching."
+
+The first said nothing more and looked toward the gap, but the wall was closed.
+
+The old Hazran man pushed off the wall, still holding his plate.
+
+"Three kids."
+
+The old man said.
+
+"If you bring them, where do I write them down?"
+
+The old machine looked at him.
+
+"We do not write them. They are here."
+
+"And if you can't bring them?"
+
+When the old machine did not answer, the man turned the plate over, looked at the blank side, and turned it back.
 
 The second recovery hand let out a slow breath.
 
 "How many?"
-it asked.
 
-This time no one could answer easily.
+No one could answer easily.
 
-Try to pull out many,
-and they could all die.
-Pull out few,
-and the rest would have to be left behind.
+Luhai looked toward the children. He counted the three asleep.
 
-That question wasn't about numbers;
-it was closer to how much failure they could bear to accept.
+Han Jiwoo spoke slowly.
 
-Han Jiwoo spoke very slowly.
+"Few, at first. Starting with the kids who'll definitely respond."
 
-"Few, at first."
-"Starting with the kids who'll definitely respond."
+Once she had said it, she shut her mouth and looked at her own hands.
 
-It was cold, unlike her,
-and that made it hurt more.
+Luhai asked.
 
-She truly wanted to bring every one of them out,
-but saying so from the start could mean no one got out at all,
-and it meant she knew that too.
+"What about them? When we go out."
 
-Kael added briefly,
+"You're not going."
+
+Seorin said.
+
+"Me?"
+
+Luhai looked at the three asleep.
+
+Kael added briefly.
 
 "We have to succeed for there to be a next time."
 
-It was cruel, but not wrong.
+The old machine pulled away from the pillar, took one step out, and stood before the lines, looking down at them.
 
-The first rescue would not save everyone.
-It was closer to making the first crack that would make the next one possible.
+"Who erases these lines?"
 
-And the moment they all understood that,
-this operation was no longer an impulse.
+It asked.
 
-It had started with Han Jiwoo's stubbornness,
-but now it had entered all three of their calculations.
+Kael looked up at it.
 
-By the end of that night,
-they still hadn't moved.
+"Me, when it's over."
 
-But unmistakably,
-for the first time, they had begun to design a real rescue.
+"When it is over."
 
-The reconnaissance hadn't fully ended there;
-for the first time, it had begun to be translated into the language of action.
+The old machine repeated.
+
+"When it is over, erase them. Until then, leave them."
+
+It turned and went back to the pillar. It did not stop them. It did not give permission, either.
+
+The first watched its back.
+
+"You will not stop us?"
+
+"I have stopped a hand before. That hand became a faded dot too."
+
+The first asked nothing more.
+
+Luhai looked at the old machine.
+
+"Even though you stopped it?"
+
+"Even though I stopped it. So this time I will not stop you."
+
+Luhai looked at the four faded dots on the board, but he didn't know which one it was.
+
+Sion looked at the board, then made a mark beside the dots of the five who had come back. Out, again.
+
+Even while the yellow lamp flickered, Sern was not counting; he was writing.
 
 ---
 

@@ -1,156 +1,118 @@
-# Episode 151. Who Gets Out First
+# Episode 151. Who Comes First
 
-The rescue plan first stepped out of the shape of words
-on the following night.
+The rescue plan first stepped out of the shape of words on the following night.
 
-The recon team and the recovery hands
-picked one narrow route, the longest unused even deep inside the hidden layer,
-and began matching real movement speed against closing time.
+One narrow route deep inside the hidden level, the one left unused the longest. The ceiling was low and the dust was thick. The old machine pointed to that path no one walked, and the five of them stood there. Sion stood at its mouth holding the board, and Sern beside him holding the record panel.
 
-Against Serakion,
-being right in your head was not enough.
-
-Half a beat could keep a person alive,
-or finish them on the spot.
-
-So this time Kael had them move their bodies before they talked.
-
-"Again,"
-he said, low.
-
-The second recovery hand moved first,
-Han Jiwoo followed,
-and Ater peeled off to the side line a step late.
-
-Kael shook his head at once.
-
-"Late."
-
-Ater's face set.
-
-Kael said it without heat.
-
-"If you're late, it isn't confusion, it's suspicion."
-"It has to look natural."
-
-It was cold, but it was right.
-
-Ater's job was not to fight,
-but to make a misalignment that, even through the eyes of the upper order, could be explained away for a moment.
-
-Block something by force and the alert goes up at once.
-But the more thoroughly ordered a world is,
-the more it tries, at first, to tidy a small imbalance away without losing face.
-
-They had to make that half beat.
+Kael had their bodies move before their words.
 
 "Again."
 
-This time Ater changed the rhythm first.
+His voice was low.
 
-Not too hurried,
-not too awkward,
-just enough to muddle the next machine's response, once.
+The second recovery hand moved first, dragging its leg, and Han Jiwoo followed behind. Ater peeled off to the side line a step late.
 
-The first recovery hand watched and said, very low,
+Kael shook his head.
+
+"Late."
+
+Ater's face went stiff, but the voice that came next held no feeling.
+
+"If you're late, it isn't confusion, it's suspicion. It has to look natural."
+
+"What counts as natural?"
+
+"Their walk. You know it. You saw it."
+
+Ater shut his mouth and looked down at his own feet, then turned his toes inward, at the angle he had seen up above. He took one step on that foot, and it made no sound.
+
+"Again."
+
+This time Ater changed the rhythm first. He didn't hurry, and he wasn't slow either. He overlapped half a step into the space the second was passing through and then stepped aside, and the move came neither late nor early. Just once. A misstep that was over before someone watching from the side could finish saying "Huh."
+
+The first recovery hand watched it and spoke very low.
 
 "That would work."
 
-Ater didn't answer.
-But his eyes had sunk lower.
+Ater didn't answer; his eyes had gone still as he walked the step he had just taken once more. It was the same as the walk of the machines he had seen up above. His feet stopped.
 
-That what he had to do
-was, in the end, the kind of thing possible only by imitating this order's habits exactly
-seemed to sour him a little more.
+"Once more."
 
-Han Jiwoo's share was harder.
+Ater did it once more, and it was the same again.
 
-She had to read first who would follow if she took their hand,
-whose body would respond even if they couldn't follow the words,
-who would freeze in fear,
-and who would instead run too fast and become the danger.
+"That's it."
 
-The problem was
-that none of it could be certain at this stage.
+Ater did not look like someone who thought that was it. He put his back to the wall and looked down at his own feet.
 
-Han Jiwoo leaned on the wall, closed her eyes for a moment, and opened them.
+"Do you know where I learned this walk?"
 
-"I know it has to be the ones who respond first,"
-she said, low.
+He asked no one in particular.
+
+"Up above."
+
+Kael answered.
+
+"Before that. At home."
+
+No one answered, and Sern did not write it down.
+
+Han Jiwoo's part was harder.
+
+Who would follow if someone took their hand, who would react with their body even without understanding the words. Who would freeze in fear, who would run too fast and put themselves in danger. With no children here, none of that could be practiced now. There were the Hazran children, but she did not use those children.
+
+She leaned against the wall and closed her eyes, then opened them.
+
+"I know it has to be the ones who respond first."
+
+She kept her voice low.
+
 "But that's the way that hurts most."
 
-No one answered.
+While no one answered, Luhai looked toward the sleeping children.
 
-Because what it meant
-was that there would be children the first rescue couldn't bring out.
+The first recovery hand spoke slowly.
 
-The first recovery hand spoke very slowly.
-
-"The first time, we have to prove it."
-"That we can get them out."
-"That is what makes a next time."
+"The first time, we have to prove it. That we can get them out. That is what makes a next time."
 
 Kael took it up briefly.
 
 "Right."
 
-It wasn't that Han Jiwoo didn't know that.
-That was why her face looked angrier.
+It wasn't that Han Jiwoo didn't know; her face said as much. She pressed on her tool pouch, the one that was two short.
 
-Bring out the ones you can save first:
-it's the right thing to say.
-But to anyone trying to rescue, it is always the cruelest thing to say as well.
+Ater spoke up, as if to cut that silence.
 
-Ater spoke up, as if to cut the silence.
+"Let us set criteria."
 
-"We need criteria."
+Kael drew three short lines with his finger in the dust on the floor.
 
-Kael drew three short lines on the floor.
+"One: kids who haven't fully gone into the upper beat. Two: kids whose hands or eyes react to something from outside. Three: kids who won't bring the whole column down when we make them run."
 
-"One: kids who haven't fully gone into the upper beat."
-"Two: kids whose hands or eyes react to something from outside."
-"Three: kids who won't bring the whole line down when we make them run."
+The second recovery hand spoke low.
 
-The second recovery hand said, low,
+"The last criterion hurts the most."
 
-"The last one hurts most."
+"Why?"
 
-It was true.
+Luhai asked from the mouth of the passage.
 
-A rescue begins with a heart turned toward everyone,
-but the first real attempt begins with picking the few who won't bring the whole thing down.
+The second looked at Luhai.
 
-And so some child,
-not because they aren't worth saving
-but because bringing them on this beat could kill everyone, gets left behind.
+"Because it means the ones who would bring it down get left behind."
 
-That difference matters enormously,
-and to the one left behind it will mean nothing at all.
+Luhai shut his mouth and looked toward the children again.
 
 Han Jiwoo spoke with her jaw clenched.
 
 "Put in the ones who can remember, too."
 
-Kael looked at her.
+When Kael looked at her, she went on slowly.
 
-Han Jiwoo spoke slowly.
+"Kids who remember Hazran, or remember hands from outside, who can hold on later to the fact that someone came for them. Even if the first rescue works, for there to be a next one, the kids left inside need a trace too."
 
-"Kids who remember Hazran,
-who remember hands from outside,
-who can hold on later to the fact that someone came for them."
-"Even if the first rescue works,
-for there to be a next one, the kids left inside need a trace too."
+Sern wrote that on the fourth line of the record panel.
 
-The room went quiet for a moment.
-
-It sounded like feeling talking,
-but it was also a very cold criterion.
-
-The first rescue doesn't end with getting a few out.
-It also means leaving, inside the children who see it happen,
-the time outside, the hands, the chance that someone can arrive.
-
-Ater said, low,
+Ater spoke low.
 
 "So it is not a rescue, but a crack."
 
@@ -158,72 +120,178 @@ Han Jiwoo answered shortly.
 
 "Both."
 
-Kael didn't deny it.
-
-Instead he said, lower still,
+Kael didn't deny it, and he spoke lower.
 
 "Then we can afford to fail even less."
 
+He drew a fourth line beside the three.
+
 After that they ran the same route again and again.
 
-Where to step out a pace early,
-who had to come in at what angle to draw the children along without shoving them,
-how many seconds the confusion could last before the alert came up,
-how many could cling on along the way back before they lost speed.
+Where to step out ahead of the rest. Ater went first. At what angle each had to go in to pull the children without pushing them. Han Jiwoo from the left, the second from the right.
 
-Everything was worked out like numbers,
-but what was inside the numbers was, in the end, human bodies.
+How many seconds the confusion could run before the alert came up. Kael counted. Three. How many could cling on along the way back before they lost speed. The first took the rear.
 
-After a few more runs,
-the second recovery hand said, very low,
+Without anyone telling him to, Luhai played the child. He let himself be pulled along by the wrist when Han Jiwoo took it, and when the second wrapped an arm around his shoulders, he went stiff on purpose.
+
+"What if they stiffen like this?"
+
+"Push anyway. A stiff kid goes if you push."
+
+Luhai was pushed three steps along, then stopped and turned around.
+
+"And the ones who don't stiffen?"
+
+"The ones who don't, you pull. By the wrist. Not the arm."
+
+"Why the wrist?"
+
+"An arm slips loose. A wrist doesn't."
+
+Luhai took hold of his own wrist and twisted it, but the wrist didn't slip.
+
+"You push hard enough to hurt?"
+
+"Hard enough to hurt. If it doesn't hurt, they don't go."
+
+Luhai touched his own shoulder, where he'd been pushed.
+
+"The kids too?"
+
+"The kids too."
+
+He took the child's place again.
+
+This time Ater passed in front of Luhai with their walk. Luhai watched that walk, and before he knew it, his feet had stopped.
+
+"Why'd you stop?"
+
+Kael asked.
+
+"Dunno. Seeing that walk makes me stop."
+
+Ater stopped, but he didn't look back.
+
+"It does that."
+
+He did not raise his voice.
+
+"That is why everyone up there stops."
+
+Luhai looked at his feet where they had stopped, then lifted them off the floor on purpose.
+
+Sern counted the time on his fingers without saying it aloud. Most runs ended before his fingers had all folded once. One went past, and he wrote down how many went past.
+
+"How many went over?"
+
+Kael asked.
+
+"One in three."
+
+Sern answered.
+
+"Every one that went over was when the third child came in."
+
+Kael looked at Luhai, who was playing the third child, the fast one. All three times, Luhai had shot out first, just as he'd been told.
+
+"Shoot out faster."
+
+"Faster?"
+
+"The real ones are faster."
+
+Luhai took the child's place again.
+
+After a few more runs, the second recovery hand spoke very low.
 
 "Three."
 
 They all looked at it.
 
-"Three is the limit the first time,"
-it said.
-"Four if it goes well."
-"Any more and the way back collapses."
+"Three is the limit the first time."
 
-The number was smaller than they had expected,
-and it made the room heavier.
+The second said.
+
+"Four if it goes well. Any more and the way back collapses."
+
+"Why three?"
+
+Luhai asked.
+
+"Because there are two hands."
+
+The second pointed at Han Jiwoo, then at itself.
+
+"One for each hand. And one who runs."
+
+Luhai looked at his own hands. Two. He took a step in from the mouth of the passage.
+
+"I've got two hands too."
+
+"You stay inside."
+
+Han Jiwoo said.
+
+"You're the hands for the kids here."
+
+Luhai stopped where he was, then turned and went back to the mouth of the passage.
 
 Three.
 Four, at best.
 
-Absurdly few, against the rate Serakion was taking them.
-But the first crack the hands of this layer could carry
-was probably about that size.
+Han Jiwoo said nothing. She closed her hand and opened it, then closed it.
 
-Han Jiwoo said nothing.
+Ater leaned his back against the wall and closed his eyes, and with them still closed he moved one foot once in their walk, then stopped.
 
-Instead she slowly closed her hand and opened it.
-That movement hurt more.
+Kael looked at the four lines in the dust again, and as the old machine had said, he didn't wipe them away with his palm.
 
-Ater put his back to the wall and closed his eyes.
-Kael looked over the lines one last time.
+On the board Sion looked at, the children's place lay beside the five dots. In the empty space he drew dots for the three who hadn't come yet. He looked at the dots he had drawn, but he didn't draw a fourth.
 
-And in that moment
-they all understood the same thing, very clearly.
+Seorin looked over at the board.
 
-The question was no longer whether they could do it.
+"The fourth?"
 
-They could.
-But it would be three the first time,
-four at best,
-and choosing those few
-would be the first thing to tear them apart.
+"Only if it goes well, they said."
 
-By the time that night was over,
-they had not yet stood before a single child,
-and already they wore the faces of people who had been wounded once.
+"Then draw it if it goes well."
 
-The real rescue hadn't started yet.
+Sion didn't draw it.
 
-But the moment they began deciding who would come out first
-and who had to stay behind this time,
-they had already taken a share of that world's cruelty into their own hands.
+"I'll draw it when they come."
+
+Instead of saying more, Seorin put a finger to the dust beside the board and pressed one dot on the floor, outside Sion's board.
+
+"One here."
+
+"What's that?"
+
+"If it goes well."
+
+Sion looked at that dot and didn't wipe it away.
+
+Sern spoke as he closed the record panel.
+
+"The signals have increased further. Tonight."
+
+The first spoke, looking toward the gap.
+
+"Tomorrow night. Not before then."
+
+"Why?"
+
+Han Jiwoo asked.
+
+"Tonight the signals increased. Tomorrow they drop, or they increase more."
+
+"And if they increase more?"
+
+"If they increase more, the night after."
+
+The first said.
+
+No one said no.
+
+While the yellow lamp flickered, Luhai went and sat down beside the children. He had two hands. He laid them on his knees.
 
 ---
 

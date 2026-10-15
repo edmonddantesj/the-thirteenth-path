@@ -1,238 +1,274 @@
 # Episode 164. Too Complete to Be Alive
 
-Once the strategy for shaking the structure had begun to take its first shape,
-the next thing they needed was a deeper look at the upper level.
+The day after the plate was settled, five of them went up again: Kael, Ater, Han Jiwoo, the first recovery hand, and Aka as well.
 
-To know what to cut,
-they had to see more precisely what was holding up what.
+The second stood just inside the gap on its straightened leg. Sion made a mark on his board—outside, the fifth time—and Aka's dots grew by one.
 
-And the first to find something strange in it
-was Aka.
+In the narrow passage Aka got through without turning her shoulders, but Kael turned his twice. Up, and up again, they climbed as far as the place they had stopped before, where the walls began to reflect.
 
-Aka didn't read paths the way the others did,
-or interpret approval structures,
-or put political face into sentences.
+The first raised a hand, and the five stopped.
 
-Instead, she saw things first.
-Things that were off somewhere but couldn't be explained yet,
-repetitions that didn't feel like the repetitions of something alive,
-things so well ordered that you could hardly feel anyone's breath in them.
+"This far."
 
-The day they began looking at Serakion's upper level again,
-the first thing Aka caught was that kind of wrongness.
+It said.
 
-The higher they looked,
-the more ordered Serakion's machines became.
-Their movements were smoother,
-the distance they kept from one another more exact,
-their sounds lower and steadier.
+"Above this, the walls all reflect."
 
-But Aka looked at it
-and her face went stiff, oddly, from the very start.
+Aka had her eye to the slit and kept looking for a long time. Han Jiwoo and Ater both waited, but Aka did not pull back.
 
-"They're too alike,"
-she said, very low.
+The protocol routes up above came into view, machines coming and going along them. Their steps were the same, and so was the width by which they made way when passing each other. The angle at which they bowed their heads was the same, and so was the time it took to bow and lift again.
 
-Han Jiwoo looked at her.
+Aka counted with her own breath. Four while one machine stood still. The next machine, four too. The one after that, four.
 
-Without taking her eyes off the protocol routes above, Aka went on.
+"They're too alike."
 
-"I get that it's orderly,
-but that's past orderly."
-"It's not like living things that got alike from fitting themselves to each other for a long time,
-it looks like they were cut to the same form from the start."
+Her voice was very low.
 
-It wasn't something everyone could understand right away.
-But it stayed with them, strangely, for a long time.
+Han Jiwoo looked at Aka, but Aka did not take her eyes from the slit.
 
-Serakion's upper order was undeniably splendid.
-But there was an uncanniness to it that the word splendid alone couldn't explain.
+"I get that it's orderly, but that's past orderly. It's not like living things that came to look alike from fitting themselves together for a long time. It looks like they were cut to the same form from the start."
 
-The sense of different beings who had grown alike under long rule
-is not the same as the sense of forms, ordered by one mold from the start, moving about.
+"Kids are different?"
 
-Aka was reading that difference first, by feel.
+Han Jiwoo asked.
 
-Hearing it, Ater looked at the upper protocol sector again.
+"Kids breathe differently. The kids down below. The kids up there too. Their chests all move differently. Those chests don't move. Fine, they're machines. But the stops are the same length too. Four. Four. Four."
 
-In fact, with the machines up there,
-what you sensed first was not individual desire or character
-but how thoroughly each role had been perfected.
+Han Jiwoo put her eye to the slit and counted.
 
-Who opened their mouth first,
-who received the response,
-who passed on the decision,
-who arranged everything around them to fit that decision.
+Four.
+Four.
+Four.
 
-All of it was far too smooth.
+When she pulled back, Ater put his eye to it.
 
-In a world where politics was alive,
-you would see some ambition jutting out,
-some calculation running late,
-some awkward rivalry.
+Two machines met; one stopped, and one bowed its head. The one that bowed went by first, and the one that stopped went after. The next two were the same, and before he could see which one would bow, one already had. No machine hesitated, and none tried to go first.
 
-But here there was too little of that friction.
+"Less a nobility keeping a wary eye on one another, it seems more like one protocol divided up and performed by many bodies."
 
-Ater said, low,
+Ater spoke low.
 
-"Less a nobility keeping a wary eye on one another,
-it seems more like one protocol divided up and performed by many bodies."
+"Wasn't your house like that?"
 
-At that, Aka nodded slowly.
+Han Jiwoo asked.
 
-That was exactly the sense of it.
+"At my house, they tried to go first."
 
-The machines up there were plainly many separate units,
-yet strangely, more often than not, they looked less like individual political players moving in concert
-than like parts each assigned to one upper-level form.
+Ater said.
 
-It was less the landscape of an ordinary ruling class
-than the landscape of a form already set, being reproduced.
+"While pretending to bow. Here there is no pretending."
 
-Only after hearing that
-did Sern carefully bring out the wrongness he had been sensing on the records side.
+Aka nodded slowly.
 
-"The upper-level approval records show something similar,"
-he said, low.
+Along the route Kael was watching, a machine going from one spot to another didn't go straight but passed through the middle and went around, and the next machine passed through the same middle and went around too. Kael measured the length with his own feet. Straight, six; around, eleven.
+
+"They don't take the shortest way."
+
+Kael said.
+
+"They take the way that runs closest to the middle."
+
+"Why?"
+
+"Don't know. All of them do."
+
+The middle Kael was looking at was empty. It was a place where no one stood, where everything only passed through.
+
+Looking at that place, Ater spoke.
+
+"There was a place like that at my house too."
+
+"Who stands there?"
+
+"No one. Not even my father."
+
+Ater said.
+
+"It is not a place to stand. It is a place you bow to as you pass."
+
+The floor of that empty place, as Han Jiwoo saw it, bore no marks.
+
+The first raised a hand. While a light passed, the five kept pressed to the wall, and at last the light went on.
+
+When Aka put her eye to the slit again and looked past the reflecting wall, higher up, there was a light far away. It didn't move, it didn't waver, and it didn't flicker like the yellow lamp.
+
+Each time the machines passed through the middle, their heads turned half a knuckle toward that light and then turned back. All of them.
+
+Aka stopped counting breaths and watched the light for a long time.
+
+"That…"
+
+She started to speak, then stopped.
+
+Aka's shoulders, Han Jiwoo saw, had gone stiff.
+
+"That… it's so complete it doesn't even seem alive."
+
+No one answered. Ater put his eye to the spot and looked at the light, and even after he pulled back he said nothing.
+
+When Han Jiwoo put her eye to it, the light was still far off. A machine passed through the middle and turned its head half a knuckle toward the light. Han Jiwoo looked at that head, then at the light. The light did nothing, and she pulled back.
+
+"What is that?"
+
+"I do not know."
+
+The first said.
+
+"None of our hands has ever been there."
+
+The first raised a hand as it spoke.
+
+"We go down."
+
+As the five drew away from the slit, Aka put her eye to it one last time, but the light stayed as it was, and she pulled back.
+
+On the plate in the hidden level the five stones were still in place, and beside Seorin, who sat in front of the plate, Sern was holding the record panel.
+
+Aka sat down in front of the plate and, without picking up a stone, made a dot with her finger at the very top of the plate, outside the four squares.
+
+"A light."
+
+Aka said.
+
+"It doesn't move. They all turn their heads toward it."
+
+Seorin looked down at the dot and asked.
+
+"The center?"
+
+"Don't know. It's a light."
+
+Only after looking at the record panel for a long while did Sern speak.
+
+"The upper-level approval records show something similar."
 
 Seorin reacted at once.
 
 "Similar how?"
 
-Sern answered very slowly.
+Sern set the record panel, with the lines coming down from above floating on it, beside the plate, and answered very slowly.
 
-"The deciding party is unclear,
-but the form of the decision is excessively clear."
-"Before any trace of who spoke,
-what remains is the form in which something came down."
+"The deciding party is unclear, yet the form of the decision is excessively clear. Before any trace of who spoke, what remains is the form in which something came down."
 
-It was cold,
-and so it sounded all the more precise.
+"For example."
 
-In a normal political system,
-a decision usually carries traces of whoever made it.
-Who pushed it,
-who held it back,
-who covered it up.
+"A child goes up."
 
-But the upper-level records Sern had read
-were clear, to a strange degree, only in *the form of the decision*.
+Sern touched one line with his finger.
 
-As if what a record kept first was not who had wielded the power,
-but what face the decision had worn coming down.
+"The signal shows above first. Where it shows can be seen. Who raised it is nowhere. There is only the place it was raised from, and nothing that raised it."
 
-Seorin said, low,
+"Was the record erased?"
 
-"So up there, more than we thought,
-they hold on longer to the form a decision comes down in than to whoever makes it?"
+"There is no trace of erasure."
 
-Sern did not go straight to a conclusion.
+Sern said.
 
-"It is still hard to go that far."
-"But at the very least,
-it does not look like a structure where friction between political individuals shows first."
+"It was never written in the first place."
 
-The answer was careful.
-But that only made it heavier.
+Aka looked at that line.
 
-Aka looked up again.
+"Maybe it's not that it wasn't written. Maybe there's no one to write it."
 
-At the end of her gaze,
-a single shape of light hung, far too stable even from that distance.
+Sern looked at Aka.
 
-It didn't speak to anyone directly,
-didn't give orders directly,
-was always much too far away,
-and yet, strangely, was set at the center of every protocol.
+"That may be so."
 
-Aka watched it a long while, then said, very low,
+Sern said.
 
-"That… it's so complete it doesn't even seem alive."
+"For now, I will record only that the space for it is empty."
 
-The moment those words fell,
-the air in the room stiffened, faintly.
+Seorin's voice was low.
 
-The sentence was not the answer.
-It wasn't supposed to be the answer, either.
+"So up there, more than we thought, they hold on longer to the form a decision comes down in than to whoever makes it?"
 
-What was needed at this stage was not an explanation
-but a sharper feel for the strangeness.
+Sern did not commit to it right away.
 
-And yet,
-Aka's words changed, once, the way all of them saw the upper level.
+"It is hard to go that far yet. But at the least, it does not look like a structure where friction between political individuals shows first."
 
-From now on, when they looked up,
-they wouldn't simply be seeing an orderly noble hierarchy.
+Ater spoke from the exit.
 
-They would be seeing a kind of centralized protocol so intricate,
-so smooth,
-so formally complete
-that the life of any individual in it could hardly be felt.
+"There was no friction."
 
-Hearing all that, Kael stopped looking at paths
-and began looking again at the repetitions in the upper-level routes.
+Seorin looked at him.
 
-In fact, the protocol lines up there
-followed routes closer to repeated reenactment than to working efficiency.
+"Who goes first was all decided. Not a single machine contended. At my house, that was what there was most of."
 
-Not the shortest path,
-but the path that most displayed the center.
-Not the fastest arrangement,
-but the arrangement that most made the hierarchy visible.
+"Why is there none here?"
 
-Tactically that might be inefficiency,
-but the fact that the inefficiency kept being maintained
-also meant this structure did not run on practicality alone.
+"I do not know."
 
-Which meant Serakion's upper level,
-apart from whatever power it actually held,
-was very likely keeping up a reenactment of how power was supposed to look.
+Ater said.
 
-If they could cut that reenactment,
-the face Ater had spoken of would shake,
-the form-centered approval Sern had spoken of would crack,
-and the speed of reading and sealing Kael had spoken of might collapse for a moment.
+"Either there is nothing to contend over. Or there is no one to contend."
 
-Listening, Han Jiwoo
-found her thoughts going back to the people again.
+With the stone, Kael drew a line on the plate across the four squares, through the middle.
 
-If the top truly ran that close to pure form,
-then the humans beneath it would be read even less as individual people.
+"Every path goes through here."
 
-Hands,
-reactions,
-compliance,
-deployability.
+Kael said.
 
-The reason they were read only that way
-might be that the top itself was already a structure that worshipped form before life.
+"They skip the short path. They take the one through the middle."
 
-Seorin, sorting the board again, said very low,
+"Why?"
 
-"Good. Then we've got one more."
-"We don't just watch the paths and the approvals,
-we also have to see why that top keeps repeating the same form to that degree."
+"To be seen. Go through the middle, and you're seen from above. The short path isn't seen."
 
-That meant
-the push against Serakion's upper level was moving past simple infiltration or structural disruption
-into **the stage of dissecting the central politics and the protocol structure itself**.
+Seorin looked at that line, then at the dot Aka had made above; the line pointed toward the dot.
 
-And at its starting point
-were the eyes that had felt it before anyone else's, "That's so complete it doesn't seem alive"—
-Aka's eyes.
+Han Jiwoo looked at her own stone in the middle of the plate.
 
-At the end of that day,
-they still didn't know what the center was.
+"Then the kids. If that place up there is built like that, the kids don't get read as people. They get read as hands."
 
-But they had come to know at least one thing for certain.
+"Hands, reactions, positions."
 
-Serakion's highest order
-was stranger than it looked from outside,
-and that strangeness was less the simple arrogance of power
-than something closer to a form that was somehow far too complete.
+Sern said.
 
-And that very thing
-might become the most dangerous crack in the upper level, the one they would have to dig into without fail.
+"There are no people's names in the records. Only position numbers."
+
+Han Jiwoo kept her mouth shut and looked at the stone, but did not touch it.
+
+Seorin looked again at the four squares, the line through the middle, and the dot above, then with the stone drew a circle around that dot.
+
+"That's one more. We don't just watch the paths and the approvals; we also have to see why that top keeps repeating the same form to that degree."
+
+"Who watches?"
+
+Luhai asked from beside the children.
+
+Seorin looked at Aka.
+
+"The one who saw it."
+
+Aka looked at the dot she had made on the plate and nodded.
+
+From the pillar, the old machine had been watching that dot, and its optical eyes rested there a long time. The optical eyes of the wall-side machine rose to the same dot too, but neither of them said anything.
+
+The first looked at the two of them.
+
+"Have you ever been up there?"
+
+It asked the old machine.
+
+"I have not."
+
+The old machine answered.
+
+"I have come from there."
+
+Sion looked at the old machine and asked.
+
+"Where did you come from?"
+
+The old machine was looking at the dot on the plate.
+
+"From above. Before I was discarded."
+
+Sion asked nothing more and pressed down on his metal plate.
+
+When the yellow lamp flickered, the shadows of the stones on the plate wavered. The dot above had no shadow.
+
+Aka did not take her eyes off that dot.
 
 ---
 

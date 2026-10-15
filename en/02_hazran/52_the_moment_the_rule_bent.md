@@ -29,7 +29,7 @@ she said, low.
 
 Sion lowered his body instead of answering.
 
-The dark-red glider closing in from the outside on the right had far sharper responses. Even with its speed killed, the hull did not slide loosely; it hugged the ground only as low as it needed, reading the push of the surface. Like the previous year's winners they were, it showed that surviving this far had not been luck.
+The dark-red glider closing in from the outside on the right had far sharper responses. Even with its speed killed, the hull did not slide loosely; it hugged the ground only as low as it needed, reading the push of the surface. As befitted last year's champions, it showed that surviving this far had not been luck.
 
 Its two riders were visible too.
 The pilot holding the front barely moved an arm, and the other one, leaning out from the back, was already studying the angle to reach. These were the hands of people who took not the fast grab but the split second when someone else hesitated first.

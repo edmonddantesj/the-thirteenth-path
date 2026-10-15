@@ -28,7 +28,7 @@ Ater's expression did not change at all.
 
 "And your side is quieter than a harbor-floor laborer, I see."
 
-Seorin cut in low over the close-range channel.
+Seorin cut in low over the close-range channel. Sion had left his wrist terminal open on the speaker. In a space this tight, everyone heard the channel, and everything said on this side went across to all of them too.
 
 "Keep that up only while you're both still alive."
 

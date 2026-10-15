@@ -1,264 +1,199 @@
 # Episode 153. First Rescue
 
-The first rescue
-began more quietly than they had expected.
+The first rescue began quietly.
 
-Serakion had always been a world that took people without a sound,
-so the first shaking of that order
-couldn't begin too loudly either.
+The five split up and took their places along the stretch just before the shift line.
 
-The recon team and the recovery hands
-split up and took their places along the stretch just before the shift line they had chosen.
-
-Kael where he could hold back the order of the closing,
-Ater where he could make confusion look most natural,
-Han Jiwoo and the second recovery hand where they could pull the children out,
-and the first recovery hand where it could hold the flow on the way back.
+Kael took the middle line under the ceiling joint, the place from which to hold back the closing order. Ater took the mouth of the corridor, the place where he would blend in most naturally. Han Jiwoo and the second recovery hand were right beside the gap, the place to pull the children out, and the first recovery hand was at the rear, the place to hold the flow coming back.
 
 No more words.
 
-They had already calculated too much,
-and from here on each of them had to prove it with their own body.
+The column came, and four of them stood on the footprint shapes: the fingertip child, the child looking down, the child whose feet went first. And one more, a child she didn't know. Han Jiwoo looked at that fourth, who had not been among the three they picked, then looked away.
+
+The second touched her arm once with three fingers, and Han Jiwoo nodded.
 
 Ater moved first.
 
-As if mimicking the beat of the upper sector,
-he walked in, neither hurried nor slow.
+He walked into the corridor in the beat of the upper sector. He didn't hurry, and he wasn't slow either. The angle of his bowed head matched the humans they had seen earlier.
 
-And with one machine moving along the alignment line
-he crossed paths, by only the smallest possible margin.
+With one machine moving along the alignment line, he overlapped paths by half a step, as if by mistake, then stepped aside; the sidestep took exactly as long as the machine's.
 
-Just enough to look like a mistake.
-Just enough to call for tidying up, not suspicion.
+The faces of the two machines in the front row split: one toward Ater, one toward the column. One beat.
 
-With that one small misalignment,
-the attention of the two machines in the front row split, just once.
+The machine facing Ater spoke low.
+"Please confirm your designated route."
+When Ater bowed his head at the angle of the people they had seen earlier and took a step back, the machine's face stayed on him one beat longer.
 
-That was truly all.
-
-But in a world as over-ordered as Serakion,
-that was enough.
-
-If the beat wavered even slightly, even once,
-a short gap opened before the alignment behind it locked shut.
+That one beat.
 
 Kael had been waiting for that moment.
 
-He turned straight toward the narrow closure axis on the opposite side
-and slowed, precisely, one folding structure he had marked in advance.
+Twisting toward the narrow closure axis on the far side, he raised his hands to the middle joint line of the ceiling.
+They touched.
+He didn't push.
+He braced it.
 
-He didn't force it to stop.
-He didn't break it outright either.
+The joint line tried to come down and stopped on his hands, and the weight came down into his shoulders. He held until his shoulders rang and his teeth locked together. His feet slid half a span across the floor, but he dragged them back into place. When the line tried to come down again, his palms went hot. The order that should have closed fell one beat behind.
 
-He only delayed the order in which it was meant to close
-by a little less than one beat.
+Serakion's structure was weaker against not closing precisely than against opening completely. When the middle did not close, both sides waited. The space while they waited was the gap.
 
-Serakion's structures were less vulnerable to being thrown wide open
-than to not closing exactly.
+In that instant, Han Jiwoo and the second recovery hand went in together.
 
-Put them out by a single step,
-and the next fold, busy recalculating itself,
-left a gap for an instant.
-
-In that instant
-Han Jiwoo and the second recovery hand went in together.
-
-The line had not fully broken.
-But it was no longer the same order it had been.
-
-Inside the alignment line, three children were swaying, very faintly, each on a different beat.
+The column hadn't collapsed yet, but nor was it the same order as before. Three children were wavering inside the alignment lines, each to a different beat, but the fourth wasn't wavering.
 
 Han Jiwoo didn't hesitate.
 
-First
-she took the wrist of the child whose fingertips had not yet let go of their own stop.
-
-She didn't pull hard.
-Instead she spoke, very low and fast.
+The fingertip child. She took the child's wrist and, without pulling hard, spoke very low and fast.
 
 "Go."
 
-At that one word
-the child seemed at first to freeze.
+The child's body had frozen, but the hand was different. The hand came first, toward where the outside force was coming from. When Han Jiwoo pulled along with that hand, the body followed, and the feet came off the footprint shapes.
 
-But the hand was different.
-Even before the word, the hand
-was already following the direction the pull from outside was coming from.
+The second child. The child looking down.
 
-The second was the child Ater had chosen.
+The second recovery hand wrapped an arm around the back of the child's shoulders in a short, machine-like motion, and the child's body stiffened. The eyes that had been looking down looked further down.
 
-That child wasn't looking up,
-and was still keeping their eyes down.
-
-With a short movement, almost machinelike,
-the second recovery hand wrapped an arm behind the child's shoulders.
-
-The child's body went rigid for an instant.
-
-But then
-Ater said, very low,
+Ater spoke very low from the mouth of the corridor.
 
 "Do not look. Come."
 
-Strangely, it worked.
+The child's eyes moved from down to the side, toward Ater. Not up. The stiff body didn't fully loosen, but when one foot came free, the second caught that foot. The child came.
 
-The child's rigid body
-didn't fully loosen,
-but at least it began to pull itself away from the upper beat.
+The third child. The child whose feet went first.
 
-The third was the most dangerous.
+The most dangerous child sensed the confusion and moved first, bolting sideways almost at a run. When an alignment line right beside them wavered harder than planned, the fourth child turned their head toward that wavering.
 
-The small child who ran half a beat fast,
-maybe sensing the confusion had already begun,
-tried to move first instead.
-
-That didn't work out only for the good.
-
-The child sprang sideways, almost at a run,
-and because of it, the alignment line right beside them
-shook harder than planned.
-
-Kael said, low,
+Kael spoke low.
 
 "Too fast."
 
-The words had barely landed
-when one of the upper machines turned its attention fully around.
+The face of one of the upper machines turned all the way. It wasn't tidying up. It was detecting.
 
-From here it was closer to detection beginning than to tidying up.
+Without letting go of the first child's hand, Han Jiwoo twisted her body toward the fast child. One child in one hand, and the other hand empty.
 
-Han Jiwoo didn't even have time to swear;
-her body was already wrenching toward the child.
+The fast child bolted again.
+Toward the wall.
+Toward the side that was closing.
+Han Jiwoo reached out her empty hand.
+A fistful of clothing.
+Caught.
+She pulled.
+The child's body swung back and slammed into her chest. The breath went out of her.
+She didn't let go.
 
-In that instant the first recovery hand cut the flow from behind.
+At the rear, the first recovery hand cut the flow. It put its own body in the one path the alignment needed to fall back into line. Two of Serakion's machines tried to set the beat again, but the first was between them. Half a beat.
 
-Very briefly,
-it blocked with its body one path the alignment needed in order to reset.
+While Han Jiwoo hugged the fast child to her and pulled inward, the second recovery hand passed the second child back. The first child was keeping up at the speed they were pulled, on their own feet.
 
-Just as two of Serakion's machines tried to set the beat again together,
-that flow folded back by half a turn.
+The fourth child stood alone on the footprint shapes, head still turned. A machine stood beside them, half a step away.
 
-Half a turn was enough.
+Kael, who did not look back, read only the closing order, even though the hands bracing the ceiling were shaking.
 
-Han Jiwoo caught the fast child, nearly hugging them, and pulled inward,
-and the second recovery hand passed the second child, already in hand, back behind.
+"Now."
 
-The first child was coming along at a pace more dragged than running,
-but clearly on their own feet.
+He spoke low.
 
-Kael didn't look back.
-He kept reading only the order of the closing.
-
-"Now,"
-he said, low.
 "Not left. The middle."
 
-The first recovery hand turned as he said.
+The first recovery hand turned. The left was wider, but the middle was narrow and rough, wide enough to get through only once. The left was already folding, and the middle was under Kael's hands.
 
-Normally the structure made breaking left the more natural way out.
-But that was exactly why
-Serakion would have folded that side first.
+The three children moved at different speeds. The first child kept up, struggling not to let go of the hand. The second child came on their own feet, holding out against looking back. The third was fast and bolted ahead twice, and twice the first recovery hand stopped the child.
 
-The middle was narrow and rough,
-and in exchange for not being seen
-it was a path you could get through exactly once.
+A very low sound rang out behind them. Not an alarm, but a polite guidance tone.
+"Restoring alignment."
+The same words, twice.
 
-The three children each moved at a different speed.
+The moment Kael heard it, he spoke.
 
-The first followed as if struggling not to let go of the hand,
-the second came on their own feet while fighting the whole time not to look back,
-and the third was so fast they nearly wrecked the beat several times.
+"Don't run. Just match the speed."
 
-That disordered tempo
-made the escape harder than they had expected.
+If they ran, the slow child would fall behind. The fast child would pull ahead, and one line would become three. So they didn't run.
 
-Serakion had always been a world good at reading and controlling different speeds.
-But now this side
-had to drag those different speeds out in one direction by force.
+While Han Jiwoo kept hold of the first child's hand, the second kept pushing the second child's shoulder at a steady pace, and the first held the third child back each time. Forced, at the same speed.
 
-If one child was slow, everyone was late;
-if one was fast, the alignment broke;
-if anyone froze, what was behind them folded shut at once.
+When Kael took his hands off the ceiling, the joint line came down and closed behind his back. It made a low, heavy sound, and the guidance tone from above layered over it.
+"Restoring alignment."
+Only after rolling his shoulders twice did he go into the middle passage.
 
-Carrying all of that,
-they had to keep moving.
+The last corner came into view, the corner that folded into the hidden level.
 
-Behind them, something like a very low alarm sounded once.
+Even up to the moment they reached it, no one thought they had succeeded. Han Jiwoo looked only at the hand in her hand.
 
-It wasn't loud.
-That was exactly what made it worse.
+Ater scraped the groove three times and the gap opened; the old machine was there.
 
-Serakion was always like that.
-Before it showed anything fully,
-it began, quietly, to close.
+Han Jiwoo crossed without letting go of the hand. The second passed the second child through, and the first pushed the third child in. After Ater came in, Kael came in last, rolling his shoulders twice.
 
-The moment Kael heard it, he said,
+The gap closed.
 
-"Don't run."
-"Just match the pace."
+No one could speak right away.
 
-It was strangely exact.
+Han Jiwoo was catching her breath, still not letting go of the hand. The child's hand inside hers was small, and trembling. She didn't let go.
 
-Break into a blind run here,
-and the slowest child would be abandoned on the spot,
-the fastest would shoot out ahead again,
-and the whole thing would fall apart faster.
+Ater, his jaw clenched, did not look back at the wall where the gap had closed. Kael closed his eyes and opened them, and when he rolled the shoulder that had braced the ceiling, it made a sound.
 
-So instead of running,
-they forced a beat that all went the same way.
+Sion had been standing there holding the board. Of the three dots and the empty square beside them, he marked the three as having come, and left the empty square empty.
 
-Han Jiwoo didn't let go of the first child's hand,
-the second recovery hand kept a steady push at the second child's shoulder,
-and the first recovery hand checked the third child now and then so they couldn't get too far ahead.
+Luhai came running from where the children were, stopped, and counted. Three. He didn't count any further.
 
-And at last
-the final corner folding into the hidden layer came into view.
+Seorin, who was there to take them, stood behind him, but Han Jiwoo was holding on to both.
 
-Even up to the moment they reached it,
-no one could think they had made it.
+"Let go."
 
-Because in Serakion
-things so often closed fastest just when you felt you were nearly there.
+Seorin said.
 
-But that day,
-just once.
+"I'll take them."
 
-The fold Kael had slowed,
-the misalignment Ater had made,
-the hands Han Jiwoo had read,
-and the flow the recovery hands had held
-fit together, by the narrowest margin.
-
-When the three children were fully across into the hidden layer,
-no one could speak right away.
-
-Han Jiwoo was catching her breath, still not letting go of the hand,
-Ater had his jaw clamped shut so as not to look back,
-and Kael, only now, closed his eyes once and opened them.
+Han Jiwoo let go of the fast child's clothes. The child gripping her finger didn't let go. When Seorin took the fast child by the shoulder, the child went stiff, but Seorin didn't let go.
 
 The first recovery hand was the first to speak, low.
 
-"One opened."
+"One has opened."
 
-It didn't sound like joy.
-It sounded more like confirmation that something bigger had only now begun.
+It didn't sound like joy. It was confirmation.
 
-And it had.
+Sern looked at the record panel.
 
-They had gotten three out.
-But Serakion was still above,
-the other children were still inside that rhythm,
-and there was no guarantee this crack would work the same way next time.
+"The signals."
 
-Even so,
-that day, for the first time,
-three children Serakion had been taking as if it would never once let go
-were truly caught by hands from outside and brought back.
+He said.
 
-It couldn't be called a victory yet.
+"They have decreased."
 
-But it was, without doubt,
-the first time anyone had been pulled out of that world's beat.
+The first looked at Sern.
+
+"Decreased, meaning?"
+
+"Either it has stopped searching, or it has found what it was searching for."
+
+No one answered.
+
+"Which is it?"
+
+Ater asked.
+
+"I do not know."
+
+Sern answered.
+
+"For now, both are quiet."
+
+"Is quiet a bad thing?"
+
+"Here, it is."
+
+Sern lowered the record panel.
+
+"Something always came after the quiet."
+
+The third child, the one who had been fast, sank down, panting. The second child stood under the yellow lamp, looking down. The first child was holding one of Han Jiwoo's fingers.
+
+The old machine looked at the three, one beat per child, then looked at the board on the wall. Four faded dots, five clear dots. It made no mark.
+
+Han Jiwoo spoke, looking at the child's hand.
+
+"You came."
+
+The child didn't answer, and didn't let go of the finger either.
 
 ---
 

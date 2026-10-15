@@ -2,213 +2,223 @@
 
 The first thing they saw was not a face.
 
-From the dark beyond that gap,
-what pushed out first was sound and smell.
+What pushed out of the dark beyond the gap first was sound and smell.
 
-Not the slow metallic sounds of the old layer's interior,
-but a sound that was shorter,
-more hurried,
-more worn.
+It was not the slow metal sound of the old layer's interior. It was shorter, more hurried, more worn, and mixed in with it was the sound of a dragging leg.
 
-And not long-stagnant metal,
-but the smell of a machine that carried outside air and heat and dust and burning all at once.
+The smell came next. Not the smell of long-stagnant metal, but the smell of outside air, of heat, of dust, of something burnt. Han Jiwoo caught that smell and took her hand off the tool pouch.
 
-Aka had been right.
+Aka spoke low.
 
-This was the smell of coming and going.
+"The smell of going out and coming back."
 
-The dark inside the gap stirred first,
-then, with a very low scrape,
-a figure twisted its body and squeezed out through the narrow gap.
+The gap opened to the width of a pair of shoulders.
 
-The moment he saw it,
-Sion knew at once.
+The dark inside the gap stirred, and there was a scrape. As someone twisted sideways and squeezed out through the narrow gap, a shoulder scraped the edge of the gap with a grating sound. That spot wore down again.
 
-This was on the same side as the old machines they had seen here so far,
-and yet a being of an entirely different speed.
+Sion looked at the shape that had come through.
 
-Its outer shell showed signs of having been replaced many times over,
-one shoulder plate was patched with parts that didn't match the original spec,
-and one arm carried scratches and heat damage so blatant they would never be allowed in Serakion's upper districts.
+Its outer shell showed signs of having been swapped out many times, and one shoulder plate was patched with a part that didn't fit the spec. One arm bore deep scratches and heat damage, and it hadn't covered them. Both optical eyes were lit. Dust lay over the uneven light, this layer's light.
 
-But strangely,
-all that damage made this being look not more broken
-but sharper.
+As soon as it was out of the gap, the machine did not look at Sion's group; it looked at the state of the entrance and the edge of the gap, and then looked behind it. Only after it had checked even the six places where the old machine's hands rested did it look at the people.
 
-If the old layer's machines were beings that had held out,
-this one looked like a being that kept going in and out as it wore down.
+Sion watched the order in which the machine looked.
 
-As soon as it was out of the gap,
-the machine scanned not Sion's party but the surrounding structure and the state of the entrance.
+Its optical eyes passed over Sion's group, one beat per person.
 
-In that look, checking came before relief.
+Sern.
+Aka.
+Luhai.
+Han Jiwoo.
+Sion.
 
-Whether they had made it back alive,
-whether anything had been exposed,
-whether the threshold was still holding—eyes that read those things first.
+They stayed on Sion one beat longer, then went back to the old machine.
 
-And a beat late,
-it looked at the humans standing there.
+Luhai's jaw set.
 
-In that moment, Sion
-saw the machine's look shift, very slightly.
-
-Not gladness,
-not wariness alone,
-but for just one instant, eyes calculating, "Why have humans come this far?"
-
-Luhai seemed to read that right away;
-his jaw set a little.
-
-But the one who spoke first, unexpectedly, was the machine.
+It was the machine that spoke first.
 
 "Lot of new faces."
 
-The voice was younger than expected.
-But rough.
+Its voice was young and rough. A sound with its edges worn down.
 
-Not a voice worn down low like the machines inside the old layer,
-but closer to one whose edges had worn off
-from passing again and again through outside noise and impact and coming back.
-
-The old machine said, very low, beside it,
+The old machine said, very low.
 
 "They came from Hazran."
 
 A short silence.
 
-The machine looked Sion's party over once more.
-This section with the blocked path was not entirely empty,
-and a little way off, toward the outer side, a few human shadows were moving.
-
-Then it said, very briefly,
+The machine swept its gaze over Sion's group once more and looked toward the passage. In the distance a few human shadows were moving: people who had woken from sleep.
 
 "Brought a whole crowd, then."
 
-It could have sounded cold.
-But Sion, strangely,
-felt something like calculation and fatigue and relief packed into it all at once.
+Luhai opened his mouth. Seorin was not there, and Luhai closed his mouth.
 
-More living humans meant more problems.
-But at the same time,
-it also meant more had been saved.
+The machine turned back to the gap and reached its arm deep inside.
 
-It sounded like the words of a being that lived through that contradiction in its own body every time.
+A second shadow followed it out of the gap.
 
-A second shadow soon followed out of the gap.
-This one looked much heavier than the first.
+It was heavier than the first, and one leg dragged. It was the sound they had heard earlier. Folded gear and recovery straps were tangled on its back. The second machine came through the gap as the first machine pulled, and when its leg caught on the edge, the first lifted that leg and passed it over.
 
-It was limping slightly on one leg,
-and folded gear and recovery straps were tangled across its back.
+Behind it, a person was dragged out.
 
-And behind it,
-a person was dragged out, all but carried on its back.
+The person was strapped to the second machine's back. The head lolled over the machine's shoulder, and the arms hung loose.
 
-In that moment,
-the whole air froze, very briefly.
+Han Jiwoo moved first, and Luhai moved almost at the same moment. When Sion took a step toward the gap, Sern caught him by the arm.
 
-Han Jiwoo moved first,
-Luhai reacted almost at the same time,
-and only then did Sion understand that they had not simply come back from scouting or a patrol.
+The human who had been carried out had their eyes half open but weren't looking at anything. Their torn clothes were the clothes of Serakion's upper level, and where metal ornaments had hung, there were only holes. There was no tag at the neck; only a mark was left where a tag had hung.
 
-They had not gone out to do something;
-they had come back bringing someone.
+Han Jiwoo moved to take the person.
 
-The human who had been carried out seemed barely conscious,
-and their clothes were torn and filthy in a way that had nothing to do with the tidy order of Serakion's upper level.
+The first machine spoke very briefly.
 
-It looked less like the trace of an escape
-than the trace of someone barely pulled out.
+"Mind the shoulder. Left ribs too."
 
-Just as Han Jiwoo moved to take the human,
-the machine that had come out first said, very briefly,
+Han Jiwoo's hands stopped and shifted their grip. Right armpit and waist. When the second machine undid the straps and Han Jiwoo took the person, the full weight came onto her, and Luhai held up the legs. As the two of them slowly laid the person on the floor, Sern took off his coat and spread it there before the head touched the floor.
 
-"Mind the shoulder."
-"Left ribs too."
+The first machine watched that, then without a word began to undo the straps and gear on the second machine's back. One strap, one folded panel, one empty canister, set down on the floor in turn, by hands that knew where each thing went. It turned the empty canister over and shook it, but nothing came out.
 
-It was so fast and so exact
-that Han Jiwoo followed it on reflex.
-
-From that one short scene alone,
-Sion got a little sense of how those machines dealt with humans.
-
-Not gentle.
-But practiced.
-
-Not machines imagining humans from a distance,
-but the hands of machines that had actually carried, dragged, pulled out, lost, and caught hold of humans again.
-
-Which was why, if anything,
-they seemed to touch humans more directly than even the inside of this old layer did.
-
-Aka looked at that first machine for a long time, then said, low,
+Aka watched the first machine for a long time.
 
 "That side wears down differently."
 
-The machine looked at Aka.
-Then it made a very short noise, something like a laugh.
+The machine looked at Aka and made a very short noise, almost like a laugh. The sound of a circuit trembling. It was the same sound the machine that had opened the way for them had made.
 
-"We break down faster than the ones inside, you know."
+"We break down faster than the ones inside."
 
-At that,
-the old machine beside it gave no reaction at all.
-But to Sion, that silence already felt like a familiar conflict.
+The old machine beside it made no response at all and took its hands off the grooves in the wall. The gap narrowed, but it left it open to shoulder width.
 
-The hands that stayed and held out,
-and the hands that went out and came back.
+Footsteps came. It was Seorin, with Ater behind her. Neither of them ran, but they came fast. Seorin looked at the gap, at the human on the floor, and then at the machine that had come out first.
 
-They were the same community,
-but their wear was different.
-So they probably understood each other a little differently too.
+"Who's that."
 
-Luhai, still wary, asked,
+The old machine answered.
+
+"A recovery hand."
+
+"Recovery?"
+
+"It recovers people."
+
+Seorin looked at the human on the floor again.
+
+"So that one got recovered."
+
+"Yes."
+
+While Seorin slowly took her hand off the hilt of her blade, Ater went to the gap and looked at its worn edges without touching them.
+
+Luhai asked, his face guarded.
 
 "You go out there every day?"
 
-The first machine looked at Luhai for a moment and answered.
+The first machine looked at Luhai briefly.
 
-"If we come back alive, then we went.
-If not, then we never did."
+"If we come back alive, then we went. If not, then we never did."
 
-It wasn't a joke,
-or bravado,
-just how things were on that side.
+Luhai started to say something, then didn't.
 
-With that one line, Sion
-felt a weight with a different grain from the weight he had felt inside this old layer so far.
+The second machine sat down on the floor. It was less sitting than collapsing. When it stretched out the leg that had been dragging, the inside of a half-open joint showed, and Han Jiwoo saw it without taking her eyes off the injured person.
 
-This was a place that counted what it had lost.
-And that side
-was the side that went out again, knowing it would lose more.
+"That leg."
 
-Two worlds, in front of the same gap,
-were breathing the same air for the first time.
+Han Jiwoo said.
 
-Then the machine that had come out first,
-after checking the carried human's condition again,
-looked toward Sion's party once more.
+"This one first."
 
-This time there was a little less calculation,
-and instead a very faint mix of fatigue and curiosity.
+The second machine answered.
 
-"It was quiet in here,"
-it said, low.
+It was the first time it had spoken. Lower than the first, and more worn.
+
+Han Jiwoo said nothing more and tore the injured person's clothes open with her hands.
+
+The old machine went and stood beside the second machine and looked down at it without lowering its knees.
+
+"Recovery hands. Both of you came back."
+
+"There are three."
+
+The first machine indicated the human on the floor with its chin.
+
+The old machine nodded slowly.
+
+Sion looked at the three of them. The old machine, the first, the second. The same kind of light, with different amounts of dust settled on it.
+
+The first machine checked the injured person's condition again, then brought its own hand beside Han Jiwoo's without touching it and pointed at the ribs. Han Jiwoo looked there.
+
+After that, the machine looked toward Sion's group once more. This time its optical eyes moved slowly.
+
+"It was quiet in here."
+
+It spoke low.
+
 "So I figured you'd all died off again."
 
-It was a harsh thing to say,
-but strangely no one could get angry right away.
+Luhai's face hardened; his mouth opened, then closed. He looked at the human lying on the floor. Still breathing, but shallowly. Luhai said nothing.
 
-Because that machine had just
-truly carried in a human who was not dead.
+Sern looked at his coat spread on the floor. Blood was seeping into it, but he didn't pull it out.
 
-And in that moment Sion knew.
+Aka asked the first machine.
 
-What this old layer had shown them so far
-were hands that held on so nothing would collapse.
+"How many times?"
 
-But now, beyond the threshold,
-hands that grabbed what was about to collapse and dragged it in by force
-were beginning, for the first time, to show themselves.
+"How many times what."
+
+"You've gone out and back."
+
+The machine looked at Aka. One beat.
+
+"I do not count."
+
+"Why."
+
+"Because if I counted, I would stop going out."
+
+Aka asked nothing more.
+
+Sern wrote those words on his record panel. After writing them he looked at what he had written, but he didn't erase it.
+
+"I count."
+
+Sern said.
+
+"That is why you do not go out."
+
+The first machine answered.
+
+Sern didn't argue; he closed the record panel and tucked it under his arm. The first machine watched him do it.
+
+"Someone who counts is needed too."
+
+It added.
+
+"In here."
+
+Sern heard that but didn't write it down; he pressed once on the record panel under his arm. It was the hand of someone who counts.
+
+The old machine turned back to the gap and laid its hands on the six grooves, and the gap closed and became a wall. Only the worn place remained. The place Han Jiwoo had touched, now worn down once more.
+
+With her hand on the injured person's chest, Han Jiwoo looked at that place, then at her own hand. A hand that wears down. She looked away.
+
+The human on the floor breathed. Once, then again, late. Han Jiwoo's hand stayed on that chest.
+
+"Fire. Water. Cloth. Now."
+
+Under her palm, the chest rose once more, late.
+
+When the sound of people moving came from farther in, Luhai ran that way.
+
+The tired-faced woman came first. She stopped in front of the human on the floor holding a bowl of water, and without setting the bowl down she looked at the person's neck. The mark where a tag had hung. She touched her own neck, took her hand away, and only then set the bowl down.
+
+"Whose is this one?"
+
+She asked the first machine.
+
+"Later."
+
+Its optical eyes did not leave the injured person.
+
+The woman took a folded cloth from inside her clothes and knelt beside Han Jiwoo.
 
 ---
 

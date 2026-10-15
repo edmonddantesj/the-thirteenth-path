@@ -1,69 +1,70 @@
 # Episode 119. Read, Then Let In
 
-The closer they came,
-that world grew no more beautiful.
+The closer they came, that world grew no more beautiful. It grew more exact.
 
-It became more exact instead.
+From far off, the silver lines and the cold structures had shown first, but as the distance shrank, the gaps between layer and layer, the angle of the reflected light, the curvature of the linked structures, even the width of the empty spaces came into view. All of it was the same; not one place was different.
 
-From far away, the beauty of silver grain and cold structure had shown first.
-But as the distance shrank,
-it grew clearer that the beauty was not simply scenery
-but an arrangement calculated down to the last detail.
+Sion counted the intervals in front of the viewport and stopped once he reached five, and all five were the same.
 
-The gaps between layer and layer,
-the angle of the reflected light,
-the curvature of the linked structures,
-even the width of the empty spaces.
+Behind him, a child asked an adult.
 
-Nothing had been left in disorder.
+"How many of those are there?"
 
-Watching it,
-what came to Sion first was not how relentlessly that world had refined itself,
-but what it must have kept cutting away in the process.
+When the adult didn't answer, Sern answered instead.
 
-A world that is too orderly
-is usually a world that has refused too much.
+"One hundred thirty-two, counting only the visible ones."
 
-Without taking her hand off the helm,
-Han Jiwoo said, low,
+The child's mouth fell open, and the adult made the child close it.
+
+Han Jiwoo's hand kept working the helm as she spoke, low.
 
 "The outer array is watching us."
 
-Kael looked out the window and asked.
+Kael looked out the viewport and asked.
 
 "Gun batteries?"
 
 Han Jiwoo shook her head at once.
 
-"Not yet,"
-she said.
-"But they're even further from being plain structures."
+"Not yet. But they're definitely not just structures, either."
 
 Sern took up the readings at once.
 
-"The observation intervals are changing,"
-he said.
+"The observation intervals are changing."
+
+He went on.
+
 "As we close in, their alignment is shifting with us, by fine degrees."
 
-A short silence.
+He laid two lines over each other on the record panel and showed them. One line was this ship's speed and the other was the far side's angle, and the two lines bent in the same shape.
 
-Luhai's face hardened.
+At the end of a short silence, Luhai's face hardened.
 
 "So it's looking at us."
 
 Again Sern answered briefly.
 
-"Yes."
-"It is reading us."
+"Yes. It is reading us."
 
-With those two sentences alone,
-the air inside the hull changed once more.
+Han Jiwoo's hand slipped once on the helm; she wiped it on her trousers and gripped again.
 
-Until now they had been closer to the ones doing the looking.
-But past a certain line,
-that world had begun to look back at them, at the same time.
+"Reading what, exactly?"
 
-Aka looked out the window and spoke, very low.
+Luhai asked.
+
+"Size. Speed. Mass."
+
+Sern answered.
+
+"Beyond that, I do not know."
+
+Luhai looked down at himself.
+
+"Even what's riding inside?"
+
+While Sern only looked at the record panel without answering, Luhai took one more step back from the viewport.
+
+Aka looked out the viewport and spoke, very low.
 
 "It's not a welcome."
 
@@ -75,30 +76,17 @@ Aka answered only after a long while.
 
 "Sorting."
 
-The word was short,
-and that made it land colder.
+While Kael shaped the word with his lips without making a sound, Luhai stepped back from the viewport.
 
-That world had not yet fired,
-or warned,
-or blocked them.
+That world had not yet fired, or warned, or blocked them. The silver structures only changed their angles little by little, and they made no sound as they shifted. Beyond the viewport there was no way to hear it anyway, but Han Jiwoo listened all the same.
 
-But that did not mean it was silent either.
-
-If anything, the reverse:
-it was so quiet that it was all the clearer.
-
-That world was not choosing right now whether to attack them;
-it was first judging what to define them as.
-
-Ater watched the spaces between the structures outside for a long time,
-then spoke briefly.
+Ater watched the spaces between the structures outside for a long time, then spoke briefly.
 
 "Is it telling us to come in?"
 
 Han Jiwoo answered, low.
 
-"It's not blocking us,
-and it's not taking us in either."
+"It's not blocking us, and it's not taking us in either."
 
 Sern followed.
 
@@ -108,45 +96,27 @@ Kael's brows drew together.
 
 "The good kind?"
 
-This time no one could answer right away.
+This time no one could answer right away; Sern looked at the record panel, Han Jiwoo at the helm, Seorin at the viewport.
 
-It might be good guidance.
-It might be bad guidance.
-But at least one thing was clear.
-
-Even the route they felt they were choosing
-might already lie within the range that world allowed.
-And what felt worse
-was that the world showed no particular stir at their entry itself.
-
-As if reaching this far
-had already been within its expected range.
-
-Luhai said, low,
+Luhai spoke low.
 
 "That's the way I hate most."
 
 Seorin let out a very short breath.
 
 "Worse than the ones that come at you for a fight."
-She looked out the window and added,
+
+She kept her eyes outside the viewport as she added more.
+
 "Here, strangely, only the way in is too smooth."
 
-That was true too.
+She was looking at her own face reflected in the viewport when a silver structure slid past behind it, and then across her face too. She stepped half a pace back from the viewport.
 
-Hostility can be read as hostility.
-But this
-kept them from defining at once whether it was hostility or hospitality,
-and unsettled them more deeply for it.
+When a few of the silver structures floating ahead of the ship turned their angles very slightly, Sern caught it at once.
 
-A few of the silver structures floating ahead of the ship
-turned their angle very slightly.
+"Entry line fixed."
 
-A change so small it looked almost as if nothing had moved.
-But Sern caught it at once.
-
-"Entry line fixed,"
-he said, low.
+He said it low.
 
 Han Jiwoo asked straight away.
 
@@ -156,31 +126,9 @@ Sern read the numbers a moment longer before he answered.
 
 "Not visible yet."
 
-Han Jiwoo bit her lip.
+Biting her lip, Han Jiwoo tried turning the helm a little to the left. As the hull swung with it, the structures outside the viewport swung the same distance with it, and she eased the helm back.
 
-Now the choice was simple.
-They could not go back.
-They could not stop either.
-And that world had already
-set one threshold for them to pass through.
-
-From then on,
-the very fact that nothing blocked them was more uncomfortable.
-
-The path the ship took had already been cleared,
-and the silver structures stood open exactly, as if even its width had been calculated.
-
-It was wide.
-Wide enough.
-But strangely,
-there was no feeling of freedom.
-
-It was the opposite.
-
-This path did not feel open;
-it felt set.
-
-Gripping the helm, Han Jiwoo said, low,
+The path the ship was taking had already been cleared. The silver structures stood open just wide enough to leave two hand-spans on either side of the hull, as if they had calculated even that width, and Han Jiwoo looked at those two hand-spans.
 
 "This isn't someone showing us the way."
 
@@ -188,72 +136,65 @@ Kael asked from beside her.
 
 "Then what?"
 
-Han Jiwoo answered, looking out the window.
+Han Jiwoo answered, looking out the viewport.
 
 "The way we pass through has been decided."
 
-Sern kept reading the numbers, then said very briefly,
+Sern kept reading the numbers, then spoke very briefly.
 
 "If we leave the line, we will be caught at once."
 
-Ater asked, still watching through the window.
+Ater asked, still watching through the viewport.
 
 "You are certain?"
 
 Again Sern answered briefly.
 
-"Yes."
-"It is too neat."
+"Yes. It is too neat."
 
-Looking out the window,
-Sion realized the beauty of that world no longer felt like scenery.
+Ater nodded, turned from the viewport, and looked at the people by the passage. The Hazran people were still standing at the mouth of the passage.
 
-The closer they came,
-the less it looked like something to admire
-and the more it looked like a baseline measuring their every movement.
+"It would be better to have them sit."
 
-Each time they passed between the silver structures,
-it felt as if invisible eyes were reading, one by one, the ship's length and weight,
-its speed and balance,
-even the kinds of life carried inside.
+He spoke to Seorin.
 
-Seorin didn't hide her distaste.
+"If we are caught while they are standing, they will be hurt."
+
+Seorin looked back at the people.
+
+"Please sit down."
+
+This time the old man sat first, then the child, then the rest. As the heads dropped below the viewport, only one child sat with knees drawn up, looking up at the viewport.
+
+While Ater looked at the viewport again, Sion looked outside too. Each time they passed between the silver structures, the hull's shadow slid over their surfaces, and where the shadow had passed, nothing was left. He lifted his hand close to the viewport, then lowered it.
+
+Seorin spoke.
 
 "Here you need permission even to pass through."
 
-Aka said nothing for a while.
+Aka held her forehead close to the viewport without letting it touch, and for a while she said nothing.
 
-She did not simply find this world frightening.
-She was uneasy with it in a stranger way.
+Looking out the viewport, she spoke, very low.
 
-It was too smooth,
-so there were no gaps.
-There were no gaps,
-so there was no room for a living thing to make a place for itself by mistake.
-
-Looking out the window, she spoke, very low.
-
-"It's not a kind place."
-"It's a polite place."
+"It's not a kind place. It's a polite one."
 
 Sion slowly turned to look at her.
 
 Aka went on.
 
-"Being polite
-doesn't always mean you see the other one as a person."
+"Being polite doesn't always mean you see the other one as a person."
 
-A little later,
-far ahead of the ship,
-long, thin bands of light came on one after another.
+Luhai started to say something and stopped, and Kael tapped Luhai's arm once; Luhai didn't push the hand away.
 
-At first they looked like route lamps.
-But on a closer look
-they were not simple guide lights;
-they lit one at a time to a fixed beat,
-closer to a signal that announced, without a word, the speed and spacing they were to follow.
+A little later, far ahead of the ship, long, thin bands of light came on one after another.
 
-Sern said, low,
+One.
+Then the next.
+At the same interval.
+
+Han Jiwoo knew the interval without counting it. Under the helm, the speed gauge was blinking in the same beat as that interval.
+
+Sern spoke low.
 
 "A speed limit has come in."
 
@@ -261,72 +202,75 @@ Han Jiwoo frowned.
 
 "They're sending a signal?"
 
-"Not openly,"
+"Not openly."
+
 Sern said.
+
 "But it has been set for us to match."
 
-At that moment,
-far outside the window, inside a vast ring structure,
-a passage came into view, gently opened.
+When Han Jiwoo didn't slow down, one of the bands ahead went dark, and only after she slowed did the band come back on. She opened her hand on the helm once and gripped it again.
 
-It had opened like a machine,
-yet strangely it looked less like a door than the entrance to a reception room.
+"Try it once more."
 
-Overly ordered curves,
-metal surfaces beautiful to the point of uselessness,
-proportions that made whoever came in feel shabby on their own.
+Seorin said.
 
-Kael said, low,
+Han Jiwoo sped up. Two bands went dark. She slowed. Both came back on.
+
+"The second time, it's two."
+
+Han Jiwoo said.
+
+"I'm not trying a third."
+
+Seorin nodded, and Sern wrote a two on the record panel.
+
+In that moment, far outside the viewport, a passage opened into a vast ring structure.
+
+It opened without a sound, and the metal surface of the opening curved smoothly all the way in. It was wide at the way in and narrow inside, a narrowness made to fit the width of the hull.
+
+Kael spoke low.
 
 "That's the entrance?"
 
 Han Jiwoo answered without letting go of the helm.
 
 "Less an entrance than…"
+
 She swallowed a small breath.
+
 "A way of receiving us."
 
 The ship slid slowly into the ring structure.
 
-There was almost no vibration.
-No impact either.
+There was no vibration, and no impact either. When Han Jiwoo put her hand to the wall, there was no ringing. This ship had never once been this quiet on Hazran, and she took her hand away.
 
-And that made it all the more unsettling.
+The child at the mouth of the passage took hold of an adult's hand, and the adult held it back.
 
-As if every rough passage on the way here had been a lie,
-from the moment they entered that world
-the movement became too smooth, as though they had belonged inside this order from the start.
+And then, for the first time, the party heard a low, refined voice drifting from deep inside that world.
 
-And then,
-for the first time, they heard a low, refined voice drifting from deep inside that world.
-
-They could not tell at once whether it was meant for them.
-It was too distant,
-too ordered,
-and it sounded more like an announcement with all its feeling planed away.
-
-But one word was strangely distinct.
+The voice was distant and flat, without rise or fall, and only one word was clear.
 
 "Serakion…"
 
 A short silence.
 
-Sion raised his eyes, very slowly.
-
-Cold,
-ordered,
-beautiful but without care, this world
-seemed to have given out, only now and very late, a single name of its own.
+As Sion very slowly raised his eyes, Han Jiwoo's hand stopped on the helm. Sern's finger stopped on the record panel, and Seorin turned from the viewport.
 
 Aka read the name back once, in a voice barely audible.
 
 "Serakion."
 
-In that moment
-the name did not sound like a greeting.
+Only that sound stayed inside the hull; the voice outside did not come again.
 
-It was closer to words that only told, quietly, someone already inside
-what they were now inside of.
+When the ship's lights fell on the metal surface inside the passage, the hull's solder marks were reflected everywhere the light was. This ship had never seen its own shape mirrored so clearly. When Han Jiwoo looked at the reflected shape, every plate she had patched on showed.
+
+The child sitting under the viewport tugged at the adult's sleeve.
+
+"Is that a name?"
+
+The adult only held the child's hand and didn't answer.
+
+The ship went on, deeper inside.
 
 ---
 

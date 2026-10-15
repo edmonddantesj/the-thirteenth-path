@@ -4,7 +4,7 @@ The moment the hand holding the red flare rose high, even the air outside the co
 
 Sion felt the craft's vibration before his own heart.
 
-Up close, the skiff Han Jiwoo had chosen looked even worse. The left side of the hull bore the marks of having been scraped wide open once, long ago, and then forcibly stitched shut, and of the two hover plates underneath, the right one was noticeably slow to lift. The engine housing too showed it had been bound up again and again with old metal bands and scraps of cloth. But Han Jiwoo hadn't hesitated the moment she saw it. A craft that hid nothing, even as it died. One that answered exactly as much as the strength it had left.
+Up close, the skiff Han Jiwoo had picked looked even sorrier. The left side of the hull bore the mark of a gash torn wide long ago and forced shut with stitching, and of the two hover plates underneath, the right one was visibly slow to lift. The engine housing, too, had plainly been lashed together again and again with old metal bands and scraps of cloth. Still, Han Jiwoo had not hesitated the moment she saw it. A craft that hid nothing, even while it was dying. A thing that answered exactly as far as its remaining strength would go.
 
 When she put her hands up, the steering rod and the auxiliary lever gave a short shudder.
 
@@ -17,11 +17,11 @@ On the other side, Kael and Sern took their places on a thicker, duller glider. 
 
 The local teams around them were far more at home.
 
-One team had tied a few more metal tags to the flank of its skiff like charms; another was shouldering the next team's craft before the start, scraping at their nerves. One team with a name's worth—last year's champions, maybe—took the very front row in a dark-red glider tuned without a wasted part, and two reckless drifter teams were already making far too much noise. Sion knew by instinct that that kind usually broke first.
+One team had tied a few extra metal tags to its skiff's flank like charms; another was already shouldering the next team's craft before the start, working at their nerves. One team with a name that carried weight, last year's champions by the look of it, brought a dark-red glider tuned down to nothing wasted into the very front row, and the two reckless drifter teams were already making far too much noise.
 
 Between the red tents and the makeshift stands, water sellers and gamblers, breakers and gunmen alike were all leaning forward. Some clutched their stakes, some were already shouting names, some were counting how many teams would flip over tonight.
 
-Harun stood beside the starting line, and Nasim a little behind him, seeming to read the faces in the crowd and, along with them, how the odds were moving. Aka never came out of the inner shade, but even from a distance Sion could feel that her eyes were on the starting line and the first route stretching away from it.
+Harun stood beside the starting line, and Nasim a little behind him, running his eyes over people's faces as if he were reading even how the odds were moving.
 
 The red flare burst atop the tall pillar.
 
@@ -91,7 +91,7 @@ Instead of answering, Seorin glared toward the far end of the glide strip.
 Ater said, low.
 "I suppose they mean to leave only the hands that will reach the heat layer."
 
-Luhai shut his mouth at that. Because, annoyingly, it was right.
+Hearing that, Luhai shut his mouth.
 
 As they entered the middle of the glide strip, the gaps between the surviving teams began to widen, very gradually.
 
@@ -105,6 +105,8 @@ Sion saw it too.
 
 Less an excellent craft than one that felt finished by someone who had lasted a long time on this floor and kept fixing it. Fast, low, and with responses that didn't hesitate.
 
+For a moment a hand showed in the cockpit. It wore no glove. White scars lay one over another on every knuckle of the fingers gripping the steering rod. That hand did not waver once.
+
 "Can we close on them?"
 Sion asked.
 
@@ -116,13 +118,11 @@ Instead she gave the steering rod a very short twist, read the skiff's shudder, 
 she said.
 "With this one, we have to find the line it can hold first."
 
-Sion liked that answer. Not chasing the lead too hard and breaking, but finding first the line this craft could live on. That was very much Han Jiwoo, too.
+Sion nodded. Han Jiwoo didn't see it.
 
 As they entered the last part of the glide strip, the wind shifted slightly.
 
-The sand columns thrown up ahead didn't blot out the view all at once, but they shook the surviving craft's lines more cunningly. On the surface it was a wide plain, but in fact it was a place like a sieve, sifting people one last time before they entered the next stretch.
-
-Sion caught it at once.
+The sand column thrown up ahead didn't blot out the view all at once, but it shook the lines of the surviving craft more slyly.
 
 On the left the sand was thin; on the right, the last collision had laid bare the hard plates underneath. The right looked firmer on the surface, but in a stretch like that the craft bounces the very next moment.
 
@@ -132,15 +132,13 @@ he said at once.
 
 Han Jiwoo took that line without so much as a smile.
 
-Right beside them, another team rode the exposed plates on the right. For the first half beat it looked faster. But soon the hull bucked hard once from below, and the steering twisted slightly. That one small misalignment let the hover plate of the team behind scrape its flank, and both craft lost balance at once.
+Right beside them, another team took the bare plates on the right. For the first half beat it looked faster. Then the hull jolted hard once from below, and its steering twisted slightly. That one small slip let the hover plate of the team behind scrape its flank, and both craft lost their balance at once.
 
 Slipping out past them, Han Jiwoo spoke very briefly.
 
 "You were right."
 
-Those few words came to Sion strangely louder than anything else.
-
-Because they meant that here on this glide strip, his eyes weren't mere backup; they were truly keeping the craft alive.
+Sion eased his grip on the footboard handle once, then took hold again.
 
 On the north line, Kael and Sern were climbing up bit by bit too.
 
@@ -155,13 +153,9 @@ Sern said shortly.
 
 Instead of answering, Kael dropped the glider's nose lower.
 
-The closer they came to the end of the glide strip, the more the surviving teams stopped shoving each other and started reading the entry line into the next stretch first. They all knew the real run wasn't over yet, and that this was only the first sieve.
+The closer the end of the glide strip came, the more the surviving teams stopped shoving one another and began reading the entry line of the next stretch first.
 
 Far off, Sion saw the first frames of the hulk wreckage zone rising out of the dark.
-
-If the red glide strip had sifted people by speed, the next would sift them by reading the way.
-
-And from there on, his part would grow bigger.
 
 Han Jiwoo spoke low.
 
@@ -177,7 +171,7 @@ Behind them, metal was still breaking and curses still bursting,
 ahead, the shadows of the hulk wreckage gaped open,
 and in the courtyard, the shouts and the stakes were still alive and moving.
 
-The Ember Run had only just begun.
+Han Jiwoo pushed the steering rod all the way.
 
 ---
 

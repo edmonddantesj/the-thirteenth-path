@@ -217,9 +217,9 @@ Watching that, Seorin asked.
 
 "So you're splitting us up."
 
-"For a moment,"
+"It's only for a moment,"
 Harun said.
-"Only for twelve."
+"Only while you're twelve steps apart."
 
 "That's the part I believe least,"
 Sion muttered.

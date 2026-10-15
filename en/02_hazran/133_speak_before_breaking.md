@@ -1,129 +1,76 @@
-# Episode 133. Before It Breaks
+# Episode 133. Speak Before It Breaks
 
-When night came,
-this old layer grew quieter than it was by day.
+When night came, this old layer grew quieter than it was by day.
 
-But that quiet was not the stillness of rest.
+Far off, the sound of metal cooling rang faintly, and nearer, groans held back all day leaked out thin. Someone was pretending to sleep, but the breathing was uneven. Someone was truly asleep, mouth hanging open.
 
-It was a night when, as the sound fell away,
-the signs of people holding on could be heard more clearly.
+Sion stood by the middle passage, checking the layout on the old board against people's faces.
 
-Far off, the sound of metal cooling rang very faintly,
-nearer, groans held back all day leaked out thinner,
-someone pretended to sleep,
-and someone had truly collapsed from exhaustion.
+One dot, one person. One dot, one person.
 
-Sion stood by the middle passage,
-slowly matching the layout on the old board against people's faces.
+At the third dot he stopped: the person wasn't in that spot but had moved over to the next one. With a fingernail he scratched the dot into its new place on the board.
 
-The role didn't feel familiar yet, didn't feel like his own.
+By day, everyone holds on, and when others are watching, they hold on harder. Night was the time that holding loosened first.
 
-But the sense that had built up since Hazran
-knew how to move first, even when things weren't familiar.
+After his first round, Sion stopped in front of one person.
 
-Who was pretending to be all right.
-Who was sitting in place now,
-but would actually break with just a little more time.
-Who must not be left alone.
+It was a young man from Hazran, the one who had stuck with the supply carrying by day and moved without a word, the one who had said he knew a little about wiring.
 
-Things like that.
-
-By day, everyone holds on.
-When others are watching, they hold on harder.
-
-Night was the time that holding loosened first.
-
-After his first round,
-Sion stopped at once in front of one person.
-
-A young man from Hazran.
-
-By day he had stuck with the supply carrying,
-and had moved in silence without a single big word.
-
-But now he sat with his back against the wall,
-and though his eyes were closed, his body was locked far too stiff.
-
-It was not a sleeping posture.
-
-It was the posture of someone who had been holding on and had stopped for a moment.
+Now he sat with his back against the wall and his eyes closed, but his body was rigid and his shoulders were raised. They were not a sleeping man's shoulders. On his knees his two hands were laced together, gone white.
 
 Sion called to him, low.
 
-"You okay?"
+"Are you all right?"
 
-The man didn't answer.
+The man didn't answer, but his shoulders trembled, very slightly.
 
-But his shoulders trembled, very faintly.
+Sion went no closer and stopped three steps away. The distance the machine had kept from the child yesterday.
 
-Seeing that, Sion didn't move any closer.
-Instead he kept the same distance and spoke again.
+"If you are not all right, you need to say so now."
 
-"If you're not okay, you have to say it now."
+The man was quiet for a long time, then spoke, almost chewing the words and swallowing them.
 
-After that,
-the man was quiet for a long time.
-
-Then he spoke, almost as if chewing the words and swallowing them.
-
-"My brother not being here—
-I only realized it earlier, when they counted."
+"My younger brother not being here—I only realized it earlier, when they counted."
 
 Sion said nothing.
 
-Eyes still closed, the man added,
+Eyes still closed, the man went on.
 
-"All day I thought he was right beside me."
-"They kept giving me work,
-so I just kept doing it."
+"All day I thought he was right beside me. They kept giving me work, so I just kept doing it."
 
-That wasn't resentment.
-But that made it hurt more.
+His laced hands came apart, and one hand felt along the floor beside him. In that empty spot, the hand stopped.
 
-When people keep moving,
-they can fool themselves for a while.
-That it isn't over yet.
-That they haven't really lost anything yet.
+Sion looked at that hand and stood beside the man for a while, then spoke, very low.
 
-But night
-was also the time that lie broke first.
+"I don't think you should be left alone tonight."
 
-Sion stood beside the man for a while,
-then said, very low,
+The man opened his eyes and looked at Sion, then, without a word, drew back the hand that had been searching the floor beside him.
 
-"You can't be left alone tonight."
+Sion brought water and set it beside the man, where his younger brother would have been, and the man looked at the water.
 
-That wasn't comfort.
-But what was needed now, before comfort,
-was not leaving him alone.
+Sion left that spot and went to two humans nearby. The tired-faced woman was one of them.
 
-A little later,
-Sion set water down beside the man
-and signaled to two humans nearby.
+"That man. He should not be left alone tonight."
 
-*You must speak first.*
+The woman looked over and nodded, then tapped the person beside her. That person got up, went over, and sat down beside the man without saying anything. The man didn't look at them, but he didn't tell them to get up, either.
 
-What the old machine had said
-was a far more practical sentence than he had thought.
+The woman looked at Sion.
 
-If you see who's about to break,
-then you have to tell someone.
+"You said it."
 
-If you notice it alone and let it pass,
-you haven't done the job.
+"Yes."
+
+"That's it."
+
+The woman went back to folding the cloth.
 
 The first one passed like that.
 
 The second came faster.
 
-Near the children,
-a woman from Hazran kept folding and unfolding the same cloth.
+Near the children, the woman who came with two children was folding and unfolding the same cloth. Once, twice. The third time, her hands shook, and the fourth time her hands would not open; she froze with the cloth in her grip.
 
-At first it looked like a simple habit.
-But from the third time on, Sion saw that her hands were shaking.
-
-And on the fourth fold,
-the woman could not open her hands at all.
+When the child on her lap looked at the hands, the child beside her looked too.
 
 Sion went straight over.
 
@@ -133,97 +80,175 @@ The woman shook her head at once.
 
 "I have to get the kids to sleep."
 
-"Right now you're the one burning out first."
+"Right now, you are the one who will collapse first."
 
-At that,
-the woman looked at Sion for the first time.
+Only then did the woman look at Sion, startled. The hands gripping the cloth still hadn't opened.
 
-Her face was startled.
+When Sion looked at those hands, the woman looked down at her own hands too and tried to open them, but they wouldn't open.
 
-The face of someone who had never expected anyone to say that to her directly.
+"Do you see?"
 
-The moment he saw that look,
-Sion felt he understood why his share was needed in this old layer.
+The woman closed her mouth.
 
-Everyone here had held on a long time.
-And so, if anything,
-they were the last to admit when they were breaking.
+Sion looked back; the tired-faced woman was already watching. Seeing Sion nod, she got up, came and sat down by the children, and moved the child from the mother's lap onto her own. The child didn't want to go, but when the mother pushed on their back, the child went.
 
-Someone had to see it first and say so.
+Only then did the woman who came with two children sink down by the wall. The cloth fell from her hands, and her hands opened. She looked at her hands, and without crying, she closed her eyes.
 
-A little later,
-another human sat down with the children in the woman's place,
-and the woman sank down by the wall, almost collapsing.
+Sion let out a slow breath and made a mark on the board with his fingernail. Two people.
 
-Only at that moment
-did the cloth fall from her hands.
+Han Jiwoo was still sitting in front of the parts under the single lamp, but her hands had slowed, and she picked up the same part twice.
 
-Watching that, Sion let out a very slow breath.
+Sion set water down beside her.
 
-As the night grew deeper,
-other cracks inside this old layer began to show.
+"Jiwoo."
 
-It wasn't only the people.
-The machines were the same.
+"I'm not sleeping."
 
-One old machine had clearly had a joint slip badly once while moving,
-yet without a word it realigned its axis and kept going.
+"I know."
 
-Another machine, partway through sorting signals,
-stopped as if its vision had gone dark for a moment,
-then carried on with the work as if nothing had happened.
+Han Jiwoo raised her head and looked at the board tucked under Sion's arm.
 
-Watching those scenes, Sion felt a strange fatigue.
+"Am I on there too?"
 
-This was not a place where only people held on.
-It was a place where machines, too, held on by hiding their own breakdowns to the end.
+"Yeah."
 
-And that
-was making the whole community more dangerous.
+"Did you mark me?"
 
-Just then, from behind,
-the human woman who had first spoken to him during the day came over quietly.
+When Sion didn't answer, Han Jiwoo put the part down.
 
-She followed the line of Sion's gaze,
-looked once at the two old machines, and spoke, low.
+"And you."
+
+"I'm on there too."
+
+"Who marks you?"
+
+Sion couldn't answer.
+
+Han Jiwoo drank the water, and instead of picking the part back up, she leaned her back against the wall.
+
+"Ten minutes."
+
+She said it and closed her eyes.
+
+Sion didn't count the ten minutes; he just stood there.
+
+As the night grew deeper, other cracks began to show.
+
+It wasn't only people.
+
+One old machine's joint slipped badly as it moved. When it made a sound, the machine stopped, and without a word pressed down on its knee with its hand to realign the axis before it moved again. On the next step the sound came again, but the machine didn't stop.
+
+Another machine, partway through sorting signals, had its optical eye go dark.
+
+One beat.
+
+It came back on. The machine carried on with the work as if nothing had happened. Even while Sern, sitting beside it, saw this and wrote it on the record panel, the machine didn't look at what Sern was writing.
+
+When Sion went to Han Jiwoo, ten minutes had passed, and her eyes were open.
+
+"That machine's knee."
+
+Sion said.
+
+While Han Jiwoo looked over, the machine walked, and the sound came. Han Jiwoo stood up and went over to the machine.
+
+"Can I look at this?"
+
+The machine stopped but didn't answer.
+
+Han Jiwoo crouched in front of the machine and only looked at the knee joint without touching it; the axis was half a knuckle out.
+
+"Tomorrow. I can't do it now. Tomorrow morning."
+
+The machine walked on again without answering, and the sound came; Han Jiwoo counted the sounds.
+
+Sion looked at the two machines, then at the board. There were no dots where the machines were; the dots were only where the people were.
+
+From behind, the tired-faced woman came over quietly. She had just handed the child off to someone else.
+
+She followed the end of Sion's gaze and looked at the two old machines.
 
 "You saw?"
 
 Sion nodded.
 
-The woman added, with a bitter face,
+The woman added, low.
 
-"Here, they're no different."
-"It's not only people who pretend they're fine to the end."
+"Here, they're no different. It's not only people who pretend they're fine to the end."
 
-Strangely, those words
-left Sion a little chilled.
+"Do they say so too?"
 
-By day, this old layer had felt like a place that lied less than Serakion above.
-But when night came,
-another kind of lie showed even inside it.
+"No. So we find out later."
 
-Not pretending to be complete,
-but pretending they could still hold on.
+Sion looked at the board again; there were no dots where the machines were. With a fingernail he scratched one dot where the machine with the slipped joint was, and another where the machine whose optical eye had gone dark was.
 
-That lie was kinder,
-more pitiful,
-and so it was found out later.
+The woman saw it.
 
-Sion left one more mark on the old board.
+"That's your board. You can mark it."
 
-Two people,
-one machine.
-And one zone needing provisional watch.
+She left it at that and went back.
 
-The mark was small,
-but from that moment the night was no longer just a duty shift.
+Sion counted the marks on the board. Two people, two machines. And one dot at his own place. There was no one beside it. He looked at that dot for a while, then folded the board.
 
-Where this old layer was beginning to crack again—
-this was the night that told it first.
+At the end of the passage, in a spot the rotation had left empty, was Kael. When Sion looked that way, Kael was standing without leaning on the wall, and had been for three hours now.
 
-And for the first time, Sion
-stood on the side that had to say it.
+Sion opened the board again and found Kael's place; there was a dot. He set his fingernail beside it, didn't scratch right away, and only after a long while did.
+
+He tucked the board under his arm again and walked toward Kael.
+
+Kael heard Sion coming but didn't turn around.
+
+"Kael."
+
+"I'm still good."
+
+"I marked your spot."
+
+Only then did Kael turn around.
+
+"What mark."
+
+"About to break."
+
+Kael looked at Sion, then at the board.
+
+"…I won't break."
+
+"I know."
+
+Sion said.
+
+"I marked it anyway."
+
+Kael said nothing and stood without leaning on the wall. Sion stood beside him. They stood there together. The end of the passage was dark, and nothing came.
+
+Sern came that way with the record panel tucked under his arm.
+
+"I will stand watch."
+
+"I'm still good."
+
+Kael said.
+
+"I know."
+
+Sern answered.
+
+"I will stand watch anyway."
+
+Kael looked from Sion to Sern and stood there a long while, then went over to the wall and sat with his back against it. His eyes closed the moment he sat.
+
+When Sion opened the board and made a mark beside Kael's dot, Sern looked at the board.
+
+"Do you record that as well?"
+
+"Yeah."
+
+"What do you record?"
+
+"That he sat down."
+
+While Sern nodded and looked at the end of the passage, Sion folded the board.
 
 ---
 

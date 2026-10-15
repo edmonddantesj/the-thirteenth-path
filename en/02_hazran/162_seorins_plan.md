@@ -1,267 +1,246 @@
 # Episode 162. Seorin's Plan
 
-Even after it had been said that repeating rescues would never save everyone,
-and that if so, they had to shake the structure itself,
-no path showed itself right away.
+The next day, Seorin dragged a plate into the middle of the room.
 
-That was only natural.
+It was an old metal plate that had been standing in a corner, one of its corners bent. She laid it flat on the floor and swept the dust off with her palm, once, twice. The bared plate held old scratch marks, and there was room to draw over them.
 
-Bring it down.
-Cut it.
-Break it.
+Seorin picked up a shard of stone with a sharp edge and set it to the plate; it scraped, leaving a white line.
 
-Easy words.
-But against an order stacked layer upon layer, like Serakion,
-for those words to become an actual plan,
-they first had to sort out again who knew what,
-what they didn't know,
-and what had to be touched first.
+"Good."
 
-And the first one to do it
-was Seorin, back in a seat that had long stood empty.
+Her voice was low.
 
-She dragged an old board into the middle of the room,
-and began setting out on it the routes the recovery hands knew,
-the closing structure Kael had read,
-the upper ceremonial sectors Ater had seen,
-the gaps in the approval system Sern had pinpointed,
-and the maintenance-line information the old machines inside had been holding on to, one piece at a time.
+"Now stop the whining for a second, and let's sort out what we have to break."
 
-"Good,"
-Seorin said, low.
-"Now stop the whining for a second,
-and let's sort out what we have to break."
+Han Jiwoo looked at her and opened her mouth, then closed it, and, still holding the little child's hand, came over to the plate and sat.
 
-It sounded cold,
-but strangely, it steadied the room instead.
+Kael came; Ater turned from the exit but did not come over, and watched from there. When Sern brought the record panel and set it beside the plate, the first recovery hand came too.
 
-It wasn't that anyone's feelings had gone away.
-Han Jiwoo's anger still hadn't settled,
-Kael was chewing over the failure as calculation,
-Ater's face grew harder the deeper his thoughts went,
-and the old machines knew that the lines they had held on to for so long might now become targets.
+The second came from the wall, dragging its straightened leg once with every step, but it stood beside the plate and did not sit. The old machine came a step out from the pillar and stopped; from there it could see the plate.
 
-But exactly because of that,
-someone had to put it into sentences.
+Luhai stayed beside the children, and so did Aka. Sion stood between the Hazran people and the plate and didn't sit on either side.
 
-At times like that, Seorin was the most useful person there.
+Seorin tapped the plate three times with the stone.
 
-"So far we've confirmed three things,"
-she said, folding down a finger.
-"One:
-pulling a few people out won't end this structure."
-"Two:
-once Serakion gets breached, it learns and seals it right away."
-"Three:
-so from now on we don't just pull people out,
-we go after the axis that makes people get pushed around like that."
+"So far we've confirmed three things."
 
-Kael gave a very short nod.
-Ater took it in without a word, too.
+She folded down a finger.
 
-Seorin moved straight on.
+"One: pulling a few people out won't end this structure."
 
-"So here's the problem,"
-she said, tapping the board.
-"What do we cut in Serakion
-so the top shakes and the bottom opens?"
+One line on the plate.
 
-This time Kael spoke first.
+"Two: once Serakion gets breached, it learns and seals it right away."
 
-"Paths won't do it,"
-he said, low.
-"There are already too many paths,
-and it learns how they get blocked."
-"Cutting one movement line is a delay,
-not a collapse."
+Two lines.
 
-Seorin summed it up at once.
+"Three: so from now on we don't just pull people out, we go after the axis that makes people get pushed around like that."
 
-"Then the paths are the result,
-and what we aim for is the axis."
+Three lines. She didn't put the stone down.
 
-Sern picked it up from there.
+Kael gave a very short nod, while Ater said nothing from the exit and the first looked at the three lines on the plate.
 
-"The approval system is the same."
-"If we shake only the end routes or the guide machines,
-the upper level quickly covers it over in another form."
-"The problem is who approves what,
-and through what record structure that approval connects to placement."
+"So here's the problem."
 
-Seorin narrowed her eyes.
+Seorin tapped the plate.
 
-"So what you're saying is,
-you need to look harder at the administrative structure that actually runs the top."
+"What do we cut in Serakion so the top shakes and the bottom opens?"
+
+Kael spoke first. He crouched in front of the plate, took Seorin's stone, and drew several long lines under the three. The ones they had wiped away yesterday: paths.
+
+"Paths won't do it."
+
+He said it low.
+
+"There are already too many paths, and it learns the ways they get blocked, too. Cutting one movement line is a delay, not a collapse."
+
+He drew across one of the long lines and cut it. There was another long line beside it, and another beside that.
+
+"Cut one and it goes around to the side."
+
+"Then the paths are the result, and what we aim for is the axis."
+
+Seorin said.
+
+Under the long lines, Kael scraped the stone into the plate and dug a single deep dot.
+
+"This."
+
+"Where is it?"
+
+"Don't know. I know it's there. The paths all close at the same place."
+
+Sern took it up from there and slid the record panel over beside the plate. On the record panel the signal floated as a line that rose and fell.
+
+"The approval system is the same. Shake only the end-point routes or the guide machines, and the upper level soon covers it over in another form. The question is who approves what, and through what record structure that approval connects to placement."
+
+Seorin narrowed her eyes as she spoke.
+
+"So what you're saying is, you need to look harder at the administrative structure that actually runs the top."
 
 Sern answered briefly.
 
-"Yes."
-"The order that shows on the surface
-and the order that actually holds up permits and placements may be different."
+"Yes. The order that shows on the surface and the order that actually holds up permits and placements may be different."
 
-That was not mere administrative information.
+"How do you look?"
 
-However elegant Serakion looked,
-to actually keep that elegance up,
-someone had to approve,
-someone had to place,
-someone had to record,
-and someone had to cover it all over again.
+Han Jiwoo asked.
 
-Only by knowing that working structure
-could they shake the politics too.
+"I follow the signal backward."
 
-Ater laid his own view on top of that.
+Sern said.
 
-"The upper level also runs on face,"
-he said, low.
-"Who decides matters less
-than who must be seen to decide."
-"Once that face breaks,
-the real lines of authority can shake too."
+"When a child is taken up, where the signal shows first. On the child's side, or up above."
+
+"Where does it show?"
+
+"Up above. Before the child moves."
+
+Han Jiwoo closed her mouth, and Sern touched a finger to one of the lines on the record panel, the one going up.
+
+Ater spoke from the exit, without coming over.
+
+"The upper level also runs on face."
+
+Seorin looked his way.
+
+"Who decides matters less than who must be seen to decide. Once that face breaks, the real lines of authority can shake too."
 
 Seorin said it with something close to a snort of a laugh.
 
-"That one's yours."
-"Who runs on showing off,
-and where to poke so the top starts glancing at each other."
+"That one's yours. Who runs on showing off, and where to poke so the top starts glancing at each other."
 
-Ater didn't even look offended.
-He just gave a short nod.
+His face unchanged, Ater gave a short nod from the exit.
 
-Reading a political structure that resembled his own world
-was not something he enjoyed,
-but it was exactly the thing only he could do.
+"Is that something you saw in your House?"
 
-Seorin tapped another part of the board.
+The first asked.
 
-"Kael, axis, not paths."
-"Not what to block so movement slows,
-but what to cut so the closing itself gets tangled."
+"It is something I did in my House."
 
-This time Kael answered at greater length.
+Ater answered.
 
-"Upward movement lines,
-auxiliary seal lines,
-and the living lines—there's a point where they all twist together."
-"Hit that, and it's not just one path;
-the whole way the top handles the bottom could slip out of alignment for a moment."
+Seorin tapped another part of the plate, beside the dot Kael had made.
 
-Luhai blinked.
+"Kael, the axis, not the paths. Not what to block so movement slows, but what to cut so the closing itself gets tangled."
+
+This time Kael answered at greater length, drawing three lines on the plate with the stone that met at a single point.
+
+"Upward movement lines, auxiliary seal lines, and the living lines—there's a point where they all twist together. Touch that, and it's not just one path; the whole way the top handles the bottom could slip out of alignment for a moment."
+
+He stood the stone up where the three met.
+
+"Here."
+
+"You've seen it?"
+
+Seorin asked.
+
+"Three times. I passed it every time I went in. Two ceiling lines split there. The floor lines on the level above bend there too. The footprint shapes end there."
+
+The second, still standing, looked at that spot.
+
+"There are many people there."
+
+"I know."
+
+Luhai asked from beside the children.
 
 "So then nothing can move?"
 
-Kael shook his head.
+Kael shook his head as he answered.
 
-"No. That's what makes it hard."
-"It won't stop completely.
-But while everything's busy readjusting to everything else,
-the beat at which it reads people might slow down."
+"No. That's what makes it hard. It doesn't stop completely. But while everything's busy realigning with everything else, the beat at which it reads people might slow down."
 
-Seorin summed it up at once, as if taking it down.
+"By how much?"
 
-"Done. We don't go for a full stop;
-we go for slowing the reading beat."
+"Don't know. It's never once been slow."
 
-That sentence sounded like the core that tied the rescues so far to the strategy to come.
+Seorin took that up at once and drew a short line on the plate with the stone, as if writing it down.
 
-Serakion reads people,
-sorts them,
-fits them,
-raises them,
-sends them back.
+"Done. We don't go for a full stop; we go for slowing the reading beat."
 
-Then bringing that structure down, too,
-would most likely begin with breaking the beat of that reading and fitting.
-
-Even hearing all this, Han Jiwoo's face hadn't fully eased yet.
-
-But this time, it wasn't only anger left in it.
+Han Jiwoo looked at that line, but her face didn't ease. Her grip tightened on the little child's hand; the child looked at the hand, and only then did Han Jiwoo loosen it.
 
 "And the people?"
-she asked, low.
-"The people still in there—
-where do they end up standing when we shake this structure?"
 
-It was an important question.
+Her question was low.
 
-If they shook the structure to save people
-and ended up crushing those people even further inside, it would mean nothing.
+"The people still in there—where do they end up standing when we shake this structure?"
 
-One of the old machines answered.
+Seorin's stone stopped, and Kael looked at it. It was at the point where the three lines met, where the second had said there were many people.
 
-"That is why our hands are needed."
-"The inner maintenance lines,
-the signal lines,
-the hidden access lines—we know them."
-"Even if we cannot destroy it completely,
-we can keep it from collapsing on the side where people would be buried."
+The old machine came one step farther out, to where it could see the plate.
 
-It was the first time
-that the old machines inside came in not merely as beings holding out
-but as one full axis of the strategy.
+"That is why our hands are needed. The inner maintenance lines, the signal lines, the hidden access lines—we know them. Even if we cannot break it entirely, we can keep it from collapsing on the side where people would be buried."
 
-Seorin didn't let that slip.
+It pointed below the three lines on the plate, to the floor beyond the plate's edge.
 
-"Good. Then that settles it,"
-she said.
-"Ater, face and politics up top,
-Sern, the approval and records axis,
-Kael, the closing and movement axis,
-the old machines inside, maintenance lines and cushioning the collapse."
+"Our lines are down here. If the top tangles, we brace it."
 
-She paused for a moment.
-Then she looked at Han Jiwoo.
+"And if you go out while bracing it?"
+
+Han Jiwoo asked.
+
+The old machine didn't answer right away.
+
+"We calculate that as well. This time, our side does not come first."
+
+The optical eyes of the wall-side machine rose, and their weak light fell across the plate. Seorin saw that light and still said nothing.
+
+"Good. Then that settles it."
+
+As she spoke, Seorin divided the plate into four with the stone. Four lines.
+
+"Ater, face and politics up top; Sern, the approval and records axis; Kael, the closing and movement axis; the old machines inside, maintenance lines and cushioning the collapse."
+
+She set a stone in each square. Four. Seeing that one stone was left over, she paused for a moment, then looked at Han Jiwoo.
 
 "You've got the people."
 
 Han Jiwoo raised her eyes.
 
-Seorin said it very simply.
+Seorin set the fifth stone outside the squares, in the middle of the plate.
 
-"How far the humans left inside
-can move,
-where they break,
-where they're still holding on to their own beat—
-you see that best."
+"How far the humans left inside can move, where they break, where they're still holding on to their own beat—you see that best."
 
-It was neither comfort nor a handoff.
-It was a precise assignment.
+Han Jiwoo looked at the stone in the middle for a while, then, still holding the child's hand, nodded slowly.
 
-Han Jiwoo nodded very slowly.
+"And the kids?"
 
-Now her role was no longer just a hand that brought out a few more people,
-but someone who saw where the humans' time could come back to life when this structure was shaken.
+She asked.
 
-Hearing that, Sion quietly spoke up.
+"Kids are people too. Watch them as well."
+
+Sion came over from the Hazran people to the plate and stood beside it without sitting.
 
 "Then I'll hold on to both."
 
 Seorin looked at him.
 
-Sion said briefly,
+"Between the people left inside and the ones who have to run again out here. Neither side can get cut off, right?"
 
-"Between the people left inside
-and the ones who have to run again out here.
-Neither side can get cut off, right?"
+Without picking up a stone, Seorin looked from Sion to the plate and back, but there were no stones left. With no stone, she ran a finger all the way around the edge of the plate, drawing a single line.
 
-It came out as if it were nothing much,
-but a few in the room knew how much those words mattered.
+"There."
 
-However good the strategy,
-if people fall apart, there is no next time.
-And Sion, right now,
-was naturally taking on as his own share that role of connection, holding on so no one fell apart.
+Sion looked at the line that circled the plate and nodded.
 
-Seorin looked over the whole board one last time, as if sweeping across it.
+The second asked, standing.
 
-"Good,"
-she said.
-"Now it finally makes sense."
-"We're not drawing up a plan to pull out a few more people;
-we're working out how to tangle the structure Serakion uses to read people, push them around, and send them back."
+"And the two of us?"
 
-Hearing that, Luhai muttered quietly.
+"Recovery. Keep doing that. If it stops, the kids won't know."
+
+While the second looked at its own leg, the first answered.
+
+"We will."
+
+Last, Seorin looked over the whole plate: the three lines, the long lines and the dot, the point where three lines met, the four squares and five stones, and the line around the edge.
+
+"Good. For the first time this makes sense. We're not planning how to pull a few more people out; we're working out how to tangle the structure Serakion uses to read people, push them around, and send them back."
+
+Luhai muttered quietly from beside the children.
 
 "So we're really breaking it, then."
 
@@ -269,17 +248,25 @@ Seorin gave a short laugh.
 
 "Yeah. Finally, properly."
 
-At the end of that day,
-none of them gathered in the room could yet calculate their odds.
-There was still much they didn't know,
-much of the upper order not yet revealed,
-and they still couldn't see all the way to what the center was.
+She set the stone down beside the plate and didn't pick it up again.
 
-But at least one thing had become clear.
+The old Hazran man peered over at the plate with the five stones on it, then looked at his own plate. Sixteen lines.
 
-From now on, rather than only surviving inside Serakion,
-they were aiming to break the very mechanism that let Serakion run no other way—
-and they had begun to draw up a real strategy for it.
+"Where are our lines?"
+
+Seorin looked at him as she answered.
+
+"On that plate. Keep them there. We'll work on this one."
+
+The old man held his plate against his chest and stepped back.
+
+From the exit, Ater looked at the plate from a distance. One of the four stones was in his square. Only after he had looked at that square for a long time did he turn and look at the exit.
+
+Sern had picked up the record panel and was searching the signal line, from its rising end, for the point where it began.
+
+When the yellow lamp flickered, the five stones on the plate cast shadows in five directions. The middle stone's shadow was the longest.
+
+Han Jiwoo looked at that shadow.
 
 ---
 

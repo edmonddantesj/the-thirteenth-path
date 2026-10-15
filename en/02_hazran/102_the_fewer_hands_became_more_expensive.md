@@ -206,7 +206,8 @@ Then, for the first time, Ater added a short explanation.
 
 "Then why did you stop me before?"
 
-"It would have been better if he had not known,"
+"It would have been better if he had not known."
+
 Ater said.
 
 "Now that he knows, we both have to know."

@@ -1,225 +1,284 @@
 # Episode 167. Not Empty
 
-After that day,
-inside the old layer, the section where the androids stood
-became the quietest place and, at the same time, the place most eyes brushed past.
+After that day, the front of the android sector became the quietest place there was.
 
-No one stayed long.
-But no one could look away completely either.
+It was also the place the most eyes passed over.
 
-The people from Hazran still went the long way around it,
-and the children hid behind adults just from seeing it at a distance.
+No one stood there long; everyone passed by with their heads facing forward and only their eyes turned to look. The Hazran people still went around along the wall, and the children peeked out from behind the adults. When an adult pushed a head back in, they peeked out again.
 
-But the other way,
-a few of the old machines inside circled near that section more often than the day before.
+The old machines, the other way around, passed in front of it more often than the day before—the old machine at the pillar, the wall-side machine, and the other two that had stood behind them, one at a time. They neither went in nor touched anything, but they made as if to pass by and then looked once more.
 
-They didn't approach.
-They didn't touch it.
-They only made a show of passing by,
-and took one more look.
+When Sion counted, it came to four times in the morning and six by midday.
 
-That repetition stayed with Sion strangely long.
+"Why are you counting?"
 
-The people kept away because they were afraid;
-the old machines seemed unable to go near for a reason a little different from fear.
+Aka asked.
 
-He didn't know yet what to call that difference.
-But it wasn't the same reaction.
+"To see who keeps going over. People don't. Only the machines do."
 
-Han Jiwoo didn't say much that day either.
+Aka spoke with her eyes on the entrance.
 
-Instead she watched longer than the day before.
-Not each android one by one,
-but the spaces between them,
-and which one moved first, faintly, and when.
+"People go too. Han Jiwoo."
 
-Luhai asked from beside her, low.
+Sion looked at Han Jiwoo, sitting in her spot ten steps away, and added one to his count.
+
+Han Jiwoo spoke little that day too. In the same spot ten steps away where she had sat yesterday, she had the little child beside her, and the child who looks down came for the first time and sat behind her. Without turning around, she watched the child's feet come to rest beside her own.
+
+She didn't look at the androids one by one; she looked between them. The spacing; who moved first, and when; whose face surface trembled first when an old machine went by; how many beats later the next one trembled.
+
+Luhai came beside her and asked, low.
 
 "What are you looking at so hard?"
 
-"The part I can't figure out,"
-Han Jiwoo said.
-"So I end up looking more."
+"What I don't know. So I end up looking more."
 
-Somehow the words sounded
-a little less sharp than the day before,
-and a little more tired.
+Luhai looked at the androids' column and soon turned his eyes away.
 
-Not the voice of someone who had come closer to an answer,
-but closer to the voice of someone who now knew more surely that the answer would not come easily.
+"To me they all look the same."
 
-Then one of the old machines inside,
-this time without stopping at all, passed in front of that section.
+"Earlier."
 
-Very slowly.
-It pretended to be passing by,
-but anyone could see it was watching.
+"Earlier what?"
 
-The gaze axis of one android standing at the very back
-followed the machine, very faintly.
+"When the old machine went by."
 
-This time Sion saw it clearly too.
-Sern saw it,
-and Ater saw it.
+Luhai looked again, but no old machine went by, and nothing moved.
 
-Luhai caught his breath, low.
+"I don't see it."
+
+"Look when it goes by."
+
+Luhai sat down beside Han Jiwoo and waited.
+
+The old machine at the pillar came to the entrance, and this time it went past slowly, without stopping.
+
+One step, a sound.
+One step, a sound.
+
+Its optical eyes were looking ahead, looking inside.
+
+The face surface of the innermost android trembled, following the old machine.
+
+One step.
+One step.
+
+When the old machine cleared the entrance, the surface stopped.
+
+Luhai caught his breath.
 
 "It did that again."
 
-This time no one was quick to say "reflex."
-
-That silence was different from the day before.
-
-If the day before had been closer to not knowing,
-now it was closer to refusing to insist carelessly.
-
-One of the outside hands spoke, low.
+No one said "reflex." Beside the entrance stood the outside hand that had stood behind yesterday, and when it looked at the innermost one, its optical eyes stayed there.
 
 "There is variance."
 
-It sounded like a brief report,
-but the word was different from yesterday's.
+It spoke low.
 
-What it would have called "error" yesterday,
-today it called "variance."
+Luhai looked at it as he spoke.
 
-The time it took for one word to change
-felt strangely large to Sion.
+"Yesterday you said it was an error."
 
-Perhaps people always worked that way,
-changing the words first and only then, barely, learning how to see.
+"It is variance. Once is an error. Three times is variance."
 
-Hearing that, Han Jiwoo looked at the outside hand for the first time.
+"You counted three?"
 
-"Right,"
-she said, low.
+"Four. One more in the night."
+
+"Who went by in the night?"
+
+Han Jiwoo asked.
+
+"No one. No one went by, and it moved. The one at the end."
+
+Han Jiwoo looked at the one at the end, still half a knuckle low, and then at the outside hand.
+
+"Right."
+
+Her voice was low.
+
 "That's how you have to say it."
 
-The outside hand didn't answer.
-But its optical eye stopped, very briefly.
+The outside hand didn't answer; its optical eyes went still once, then went back to the androids.
 
-To Sion it felt like neither denial nor agreement,
-but something closer to a correction.
-
-Then Sern spoke, very low.
+Sern, at the wall on the far side of the sector beside Ater, held up his record panel and spoke.
 
 "The side that insists they are empty is the one shaking first."
 
-Luhai looked at him.
+Luhai looked at him and asked.
 
 "Our side?"
 
-"Yes,"
+"Yes."
+
 Sern answered shortly.
-"Not that side,
-but the judgment on our side, the one looking at them, is what is shaking first."
 
-The words made everyone strangely quiet.
+"Not that side, but the judgment on our side, the one looking at them, is what is shaking first."
 
-Maybe the problem now was less what the androids were
-than their own habit of wanting to have already named them something.
+On the record panel he turned toward them was a table, one entry to a line: when the old machine went by, when a face surface moved, and the gap between.
 
-Ater stood off at a distance, leaning against the wall,
-watching the distance between the androids and the old machines.
+"It went by seven times. Four times they moved. Three times they did not. Of the four that moved, two were the innermost. One was the middle. One was the end."
 
-Then he spoke, low.
+"What's that supposed to mean?"
+
+Luhai asked.
+
+"I do not know."
+
+Sern said.
+
+"It means that under the same conditions, they were not the same. That is all I know."
+
+Ater, standing with his back against the wall, was watching the distance between the androids and the old machines—to the pillar, to the wall-side machine, to the other two passing the entrance.
 
 "They do not stop the same way."
+
+He spoke low.
 
 Han Jiwoo asked at once.
 
 "What doesn't?"
 
-"The beat at which the old machines stop to look at them,"
+"The beat at which the old machines stop to look at them."
+
 Ater said.
-"If it were only wariness, it would have been simpler."
-"But this is closer
-to stopping because they see something besides wariness, too."
 
-It was not long, the way an explanation would be,
-and that was exactly why it stayed longer.
+"If it were only wariness, it would be simpler. But that is closer to stopping because they see something besides wariness, too."
 
-What the old machines were watching might not be only a threat.
+"How does wariness stop?"
 
-Memory,
-or some old grain they once shared, cut off so long that now even they could not be sure of it.
+"Briefly. It looks, and turns away at once."
 
-For the first time that possibility
-rose into the air without becoming words.
+Ater said.
 
-One woman from Hazran still couldn't come near the section.
-But this time, glaring at the androids from a distance,
-she spoke in a very small voice.
+"Those look and do not turn away. They turn away and then look again."
 
-"If those things really aren't empty,
-then what have we been afraid of all this time?"
+Han Jiwoo looked at the old machine at the pillar. It had left the sector and stood turned away with its back to the pillar, but its optical eyes were on the sector.
 
-No one could answer easily.
+"Did you ask it?"
 
-Hearing that, Han Jiwoo spoke slowly.
+Luhai asked Han Jiwoo.
 
-"Maybe we've been using something that isn't empty
-as if it were empty, all along."
+"Ask what?"
 
-The words were aimed at the androids,
-and at the same time they sounded aimed at the humans themselves.
+"Why it keeps looking."
 
-In that moment,
-Sion dimly felt that this fight would not end simply with breaking Serakion.
+"I asked. It says it doesn't know. It says its hand went up first."
 
-Even after that order fell,
-there would still be the question of how people would see those things again.
+"That's an answer?"
 
-That had probably already begun, right now.
+"For now."
 
-Then hurried footsteps sounded from the outer passage.
+When Luhai looked, the old machine at the pillar had its optical eyes on the sector as well.
 
-Human ones, this time.
+On the Hazran side, the woman who came with two children had stepped two paces out from the wall and stood there. She was one step closer than yesterday, and both children were behind her. She glared at the androids for a long while, then spoke in a very small voice.
 
-A woman came in, breathing hard, and spoke low.
+"If those things really aren't empty, then what have we been afraid of all this time?"
 
-"A new circulation line opened up top."
-"Yesterday's change wasn't the end of it.
-The guide lines have started moving in two layers."
+While no one could answer, the man without a younger brother came and stood beside her without a word.
 
-Seorin raised her head at once.
+Han Jiwoo spoke slowly.
 
-Serakion was already placing its next move.
+"Maybe something that isn't empty has been used all along as if it were."
 
-While this side stood still and hesitated,
-that side was drawing its order tighter, without hesitation.
+"By who?"
 
-But strangely,
-when Seorin heard that, she didn't look to the androids right away.
+The woman asked.
 
-Instead she looked at Sion first,
-then at Han Jiwoo,
-then at the outside hands and the old machines, one after another.
+"Those up there."
 
-Then she spoke, low.
+Han Jiwoo said.
 
-"All right."
-"Then now we have to move faster than they do."
+"And."
+
+She looked at the outside hand, and the outside hand did not look away. Han Jiwoo did not finish.
+
+When the woman looked at her children, the child behind her was peeking out. This time she did not push the child's head back in.
+
+Sion stood beside the entrance, between the Hazran people and the sector. The old machine passed the entrance again.
+
+The seventh time.
+Sion counted.
+The eighth.
+
+When the innermost one's surface trembled, the middle one trembled too, half a beat late.
+
+When Sern wrote down a line, Ater looked at the table.
+
+"The middle one is late."
+
+"Yes."
+
+Sern said.
+
+"The innermost first. The middle half a beat after. The same sequence all three times."
+
+"If there is a sequence, then."
+
+"I record only that there is a sequence."
+
+Ater said nothing more.
+
+One of the hidden level's women, pressed to the wall on the gap side—the one who watched the gap—raised her hand. She didn't call out; she opened and closed her palm twice. As Seorin rose from in front of the plate, Kael went first, and Sion followed.
+
+Beyond the gap, in the passage above, two lines of light hung in the air instead of yesterday's one. When one stood still, the other moved, and there was no pause between one line and the next.
+
+"It just opened."
+
+The woman whispered.
+
+"What they changed yesterday wasn't the end of it."
+
+When Kael set his palm to the gap, the light crossed the back of his hand twice without resting.
+
+"No pause, no space between."
+
+Kael said.
+
+"No space, and we can't get a kid out."
+
+Han Jiwoo heard that from the sector side, but she did not turn her head.
+
+Seorin turned from the gap and said nothing all the way back to the plate; only when she stood in front of it did she speak.
+
+"Now we have to move faster than they do."
 
 Luhai asked right away.
 
 "With the androids?"
 
-Seorin gave a short shake of her head.
+Seorin gave a short shake of her head as she answered.
 
-"No."
-"We have to get faster at deciding whether we take them at all."
+"No. We have to decide faster whether we move with them at all."
 
-After that,
-no one could easily find the next thing to say.
+Luhai looked at the androids' column—the innermost, the middle, the end—at those three separately now.
 
-Now the question was no longer simply whether to use them or not.
+"When?"
 
-The side that goes ahead and calls them empty,
-and the side that bears the possibility that they are not, to the end.
+"Tonight. Everyone gathers."
 
-Which of the two they would take
-was becoming as important as how to break Serakion.
+"The Hazran people too?"
+
+Sion asked.
+
+"Anyone who wants to come. Whether we take those along or not is their business too."
+
+When Sion looked toward the Hazran people, the man without a younger brother was listening. He didn't nod, and he didn't turn away either.
+
+Seorin saw the stone still standing on the plate and didn't touch it.
+
+The old machine came away from its pillar and took one step toward the sector.
+
+The ninth.
+
+Sion counted, and Han Jiwoo counted too. This time Luhai saw the innermost one's surface tremble.
+
+"I saw it."
+
+Luhai said.
+
+No one answered, and the yellow lamp flickered, but inside the sector nothing flickered.
+
+The surface trembled, on a different beat from the flicker.
 
 ---
 

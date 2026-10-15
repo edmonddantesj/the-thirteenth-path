@@ -1,213 +1,278 @@
 # Episode 168. Stop Lying
 
-After the report came in that a new circulation line had opened,
-the air in the old layer went quiet again,
-but this time the quiet was different from the day before.
+That night, Seorin didn't keep everyone gathered for long.
 
-Now everyone
-knew that standing still would not be enough.
+Sion, Han Jiwoo, Sern, Ater and Luhai gathered around the plate, and the two old machines came too, the one at the pillar and the one by the wall, along with the two outside hands and the first recovery hand. The second recovery hand stood on the gap side with a hand braced on the wall, and from there it could see the plate as well. Kael sat beside the plate, and Aka was with the children.
 
-But that didn't mean they could just drag the androids out with them, either.
+The children were asleep; only the little child was awake, holding Han Jiwoo's hand.
 
-The problem was still the same.
+The Hazran people stood a little apart, and the man without a younger brother stood at the very front of them.
 
-It wasn't whether they could trust those things.
-First,
-it was whether they could stop insisting those things were empty.
+No one was the first to speak, and in that silence the yellow lamp flickered twice before Seorin picked up a stone.
 
-Seorin didn't keep everyone gathered for long.
+"Let's lay it out."
 
-As the day before, she kept only the faces she needed.
-Sion,
-Han Jiwoo,
-Sern,
-Ater,
-Luhai,
-and two old machines and the outside hands.
+Her voice was low.
 
-This time no one spoke first.
+"There's a lot we still don't know. But at the very least, we're past pretending we didn't see what we saw."
 
-It was Seorin who broke the silence.
+In the empty square on the plate she looked at, the standing stone was still up.
 
-"Let's lay it out,"
-she said, low.
-"There's a lot we still don't know."
-"But at the very least,
-we're past pretending we didn't see what we saw."
+On the record panel Sern had set in the middle of the plate, the rows of the table had grown.
 
-It was less a conclusion
-than a line drawn that there was no running from.
+"The variance has repeated. Under the same conditions, responses that are not the same have already appeared several times."
 
-Sern followed, quietly.
+"How many?"
 
-"The variance has repeated."
-"Under the same conditions,
-responses that are not the same have already appeared several times."
+Seorin asked.
+
+"Eleven passes. Seven times they moved."
+
+Sern said.
+
+"Three of them moved. The innermost, the middle, the end. The rest have not moved once."
 
 Luhai asked at once.
 
 "So they've got a will?"
 
-Sern didn't shake his head right away.
+Sern neither shook his head nor nodded.
 
-"That cannot be concluded either."
-"But concluding that there is none
-is now the more dangerous position."
+"That cannot be concluded either. But concluding that there is none is now the more dangerous position."
 
-It was cold in a very Sern way.
-And that was exactly why it shook them more.
+"Why more dangerous?"
 
-Listening, Han Jiwoo
-realized belatedly that what she had wanted was not an exact conclusion,
-but an attitude that refused to cut the matter off with a careless verdict.
+"Because it has been wrong seven times."
 
-Ater, arms folded by the wall, spoke low.
+Sern answered.
 
-"The old machines react first."
-"Before the people.
-Before the outside hands."
+"We said there was nothing and watched, and they moved seven times. Had we said there was something and watched, how many times we would have been wrong, we do not yet know."
 
-Seorin looked at him.
+While Luhai shut his mouth, Han Jiwoo looked at Sern, but Sern was looking at the table.
 
-Ater kept his eyes on the androids and went on.
+The outside hand that had stood in front looked at the table too.
 
-"That is not only the pause of seeing an enemy."
-"It is closer to seeing something unfamiliar,
-but not entirely unfamiliar."
+"We counted too."
 
-One of the old machines did not dispute it.
-That silence itself
-felt like perhaps the strongest agreement of all.
+It said.
 
-Watching it, Sion thought
-that what mattered first here might not be trust,
-but honesty.
+"Outside. They never moved without a command."
 
-It was too early to say they could be trusted,
-and too early to cut them off as untrustworthy.
+"Here they did."
 
-But at the very least,
-they had to begin by saying that what they had seen, they had seen.
+Sern said.
 
-Then a man from Hazran,
-his face uneasy, asked low.
+"The conditions are different. Outside, these two were not there."
 
-"So what are we actually going to do?"
-"Say those things might not be empty.
-Doesn't that make them scarier for us?"
+When Sern looked at the two old machines, the outside hand looked at them as well, but it said nothing.
 
-It wasn't cruel.
-It was so obvious that it hurt more.
+Ater spoke from the wall side, his arms folded.
 
-With a weapon that has no will, you can at least imagine control.
-But if it might have one,
-the fear could grow even larger.
+"The old machines react first. Before the people. Before the outside hands."
 
-Han Jiwoo looked at him, then spoke slowly.
+Seorin looked at him, but Ater was looking toward the android sector. From here, the inside of its entrance was dark.
 
-"You're right."
-"It could be scarier."
-"But being scared
-doesn't mean we get to force them over to the side of nothing."
+"That is not only the pause of seeing an enemy. It is closer to seeing something unfamiliar, but not entirely unfamiliar."
+
+"How do you know?"
+
+Han Jiwoo asked.
+
+"The length of the pause."
+
+Ater said.
+
+"When people see an enemy, they stop briefly. These two stop long. And then they turn away and look again."
+
+The old machine at the pillar said nothing, and neither did the wall-side machine. The two optical eyes that had come to rest on Ater did not drop, and they did not object.
+
+Seorin looked at the two of them and asked.
+
+"Is that right?"
+
+After a long while, the old machine at the pillar spoke.
+
+"I do not know. It is true that we stopped."
+
+"Why did you stop?"
+
+"I said the hand went up first. Beyond that, I do not know. This is the first time for me as well."
+
+When Seorin asked nothing more, the man without a younger brother spoke low from in front of the Hazran people, his face uneasy.
+
+"So what are we supposed to do, in the end? Fine, say those things might not be empty. Doesn't that make them scarier for us?"
+
+No one answered right away. Behind him, the woman who came with two children shifted her hold on one of them, and the tired-faced woman refolded the cloth she had already folded.
+
+Han Jiwoo looked at the man and spoke slowly.
+
+"Right. They could be scarier. But being scared doesn't mean we get to force them over to the side of nothing."
 
 A short silence.
 
-She looked toward the androids and went on, lower.
+She looked toward the dark entrance of the sector and went on, lower.
 
 "We've already seen where that way of doing things goes."
 
-No one could argue.
+"Where?"
 
-Serakion had done exactly that:
-after deciding there was nothing, it sorted;
-after sorting, it sent them up;
-after sending them up, it never brought them back.
+The man asked.
+
+"Up there. They say there's nothing and they count, and once they've counted they take them up, and once they've taken them up they never let them back down. That's how your brother went too."
+
+The man's laced fingers came apart, but he said nothing, and he didn't lace them again.
 
 Seorin picked it up from there.
 
-"All right. Then we settle this much."
+"This much we settle."
 
 Everyone looked at her.
 
-"We don't count them as strength right away."
-"But we don't count them as empty first, either."
+"We don't count them as strength right away. But we don't count them as empty first, either."
 
-Luhai narrowed his brows.
+Luhai frowned as he asked.
 
 "What's the difference?"
 
-"A huge difference,"
+"A huge difference."
+
 Seorin said flatly.
-"The first starts by looking for how to use them,
-the second starts by holding the line."
 
-It was simple,
-but strangely it made the room quieter.
+"The first starts by looking for how to use them, the second starts by holding the line."
 
-Now everyone knew.
+With the stone, she drew one short line across the inside of the empty square, in front of the standing stone.
 
-What they had to decide now was not how to use them,
-but how far they themselves would refuse to go.
+"This line. We don't go past it. Not until we've decided what to call them."
 
-Then one of the outside hands spoke, very low.
+Aka looked at the line from beside the children.
+
+"Once they have a name, do we go in?"
+
+"Once they have a name, we draw the line again. We don't rub it out."
+
+Luhai looked at the short line too, and spoke.
+
+"What's one line going to do?"
+
+"Serakion drew lines first too. On the floor. In footprint shapes. We're drawing ours the other way around."
+
+The outside hand that had stood in front spoke very low.
 
 "They will not wait."
 
-Seorin nodded.
+Seorin nodded as she answered.
 
 "I know."
 
-"Once the circulation lines go to two layers,
-the retrieval speed will change next."
+"Once the circulation lines go to two layers, the recovery speed will change next."
+
+"It already has."
+
+The second spoke from the gap side.
+
+"No pause, no getting them out. Kael said so."
+
+Kael nodded, looking at the two parallel lines drawn on the plate.
 
 Sern took that up.
 
 "We must move before then."
 
-"Right,"
+"Right."
+
 Seorin said.
-"But what we move with,
-we have to decide first, without getting it wrong."
 
-In that moment,
-one of the old machines inside brushed past the androids again.
+"But what we move with, we have to decide first, without getting it wrong."
 
-Closer than before, this time.
+"And if you are wrong?"
 
-Two androids' gazes,
-almost at once,
-but not on quite the same beat, followed it.
+The outside hand asked.
 
-Sern held his breath, very quietly.
-Ater pushed off the wall for the first time.
+"Get it wrong, and we become what's up there."
 
-Luhai couldn't say anything more.
+Seorin said.
 
-To Sion, that small misalignment
-strangely felt like a huge door opening just a crack.
+Han Jiwoo took that up.
 
-No one could yet put a name in front of that door.
-But it had become hard to pretend it was a closed wall.
+"The ones up there will think they weren't wrong."
 
-Han Jiwoo said, almost to herself,
+"That's why they're up there."
+
+Seorin said.
+
+Then the wall-side old machine took itself away from the ring around the plate. It was the first time that machine had gone toward the sector on its own feet.
+
+Its feet were slow, and the dust that had piled up before them lifted. The machine went to the sector's entrance and, without stopping, went inside, as far as the middle, three steps closer than where the old machine at the pillar had stood.
+
+Everyone held their breath.
+
+The wall-side machine didn't raise a hand the way the old machine at the pillar had; it only stood. The weak light of its optical eye swept slowly along the column, from the end to the innermost.
+
+The face surfaces of two androids moved with it, the middle and the innermost, almost together. Not the same.
+
+The middle one first.
+The innermost half a beat after.
+
+Even after the light had passed, the surfaces stayed turned that way.
+
+One beat.
+Two.
+
+Then they came back.
+
+As Sern swallowed hard, Ater came off the wall, and Luhai couldn't say a thing.
+
+The wall-side machine turned and came slowly back out, went to its own place by the wall, and stood on the floor where there was no dust. Its optical eye stayed turned toward the sector.
+
+Sion looked at the machine, then at the sector, and pressed the metal plate in his pocket.
+
+Han Jiwoo spoke almost to herself.
 
 "They've been watching all along."
 
-Who had been watching whom,
-how far,
-with what kind of heart,
-no one could know yet.
+"Who has?"
 
-But after those words,
-the air in the room was clearly different from all the days before.
+Luhai asked.
 
-They had not come to trust the androids.
+Han Jiwoo didn't answer; she was looking at the sector. The little child, holding her hand, looked at the same place.
 
-Instead,
-they could no longer cover what they had seen with a lie.
+Sern wrote one more row into the table. Twelve passes, eight that moved.
 
-And from that very point,
-it seemed the way they would break Serakion would begin, little by little, to change too.
+"The conditions were not the same."
+
+Sern said.
+
+"This time it was closer. I will record it separately."
+
+"So closer means they move more?"
+
+Luhai asked.
+
+"Two times is not enough to know."
+
+Sern answered.
+
+"We need to see a third."
+
+At that, the wall-side machine's optical eye came to Sern, then went back.
+
+Seorin looked at the empty square on the plate, the standing stone and the line in front of it, then set the stone down.
+
+"That's it for tonight. Tomorrow we decide positions. Who stands where and watches what."
+
+"And the androids?"
+
+Luhai asked.
+
+"The androids stay standing where they are. What we're deciding is where we stand."
+
+The two outside hands looked at each other but said nothing. The front outside hand went to the sector's entrance and, without going in, stood beside it with its hands lowered.
+
+While the Hazran people scattered, the man without a younger brother stayed standing to the last, his hands no longer laced. He looked once at the dark entrance of the sector, then turned away.
+
+As the yellow lamp flickered, the wall-side machine's optical eye flickered to a different beat. No one had passed, yet inside the sector a surface trembled.
+
+Only Han Jiwoo saw it. She didn't say anything.
 
 ---
 

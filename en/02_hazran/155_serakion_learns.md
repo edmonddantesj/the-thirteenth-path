@@ -1,237 +1,273 @@
 # Episode 155. Serakion Learns
 
-The trace the first rescue had left behind
-showed itself sooner than anyone expected.
+The trace the first rescue had left behind showed itself quickly.
 
-The day they went out to check the next movement line again,
-Kael was the first to see that it was not the path that had changed but the intervals.
+On the day they went out to check the next movement line, the five passed through the gap again. While the old machine laid its unshaking fingers in the groove, Sion made a mark on the board. Outside, the third time.
 
-Before, three or four children at a time
-had crossed in short, even beats.
+Kael was the first to put his eye to the slit in front of the holding area, and he saw that it was not the route that had changed but the intervals.
 
-This time was different.
+Before, three or four children at a time had crossed in a short, even beat, but this time was different.
 
-The spacing between the lines had turned faintly irregular,
-the pause just before the shift line was no longer steady,
-and between two machines that had seemed to run at the same speed
-there was even a sign that different response times had been set on purpose.
+The spacing in the column varied: the front group was three, the next two, the next five. The pauses just before the shift line varied too: long, short, long. Even the reaction time between two machines differed; one raised a hand, and a beat later the other raised one.
 
-Serakion had not sounded a loud alarm.
-Instead it had learned exactly where the first crack had opened,
-and quietly mended that gap before anything else.
+Serakion sounded no alarm; it learned only where the first crack had come from, and started its repairs from there.
 
-Kael said, very low,
+Kael spoke very low.
 
 "Faster than I expected."
 
 The first recovery hand answered.
 
-"That is how it is here."
-"More than any loud noise,
-it is the second time on that frightens you."
+"It is always like this here. More than the loud things, it is the second time on that frightens you."
 
-That sounded like a truth that explained all of Serakion.
+"And the third?"
 
-This world does not correct a mistake by exposing it loudly.
-Instead, so that the same misalignment never happens again,
-it corrects the beat more politely and more quietly.
+Kael asked.
 
-That is why it gets harder from the second time on.
+While the first did not answer, the second looked at its own leg, and Han Jiwoo looked at that leg too.
 
-Han Jiwoo looked toward the children.
-Her face set at once.
+"Open it up before the third."
 
-They were not the same children as before.
-Not every face had changed, of course.
-But the arrangement was different.
+"Not now."
 
-No fast child stood next to a slow one anymore,
-children already used to it had been mixed in beside the hands still holding out,
-and here and there among them stood humans so quiet they felt more like watchers.
+The second said.
 
-Serakion was no longer simply moving the children upward;
-it was rearranging them so that their misalignments canceled each other out.
+"It will make noise."
 
-Han Jiwoo said, low,
+Han Jiwoo put the screwdriver back.
 
-"They've mixed the kids too."
+Kael looked at the middle of the ceiling, at the joint line he had braced. That line had changed: beside it, one more new line had appeared. The middle had become two.
+
+"They added one. Next to the middle."
+
+The second looked at that line.
+
+"It was not there last time."
+
+"Because I braced it last time. They added it next to the place I braced."
+
+He looked at his own shoulder, but one shoulder could not brace two.
+
+"And if you held up both?"
+
+Ater asked.
+
+"Can't."
+
+Kael said.
+
+"While I hold one, the other comes down."
+
+"Then?"
+
+"Then I've got to do something other than hold it up."
+
+Of the two lines Ater looked at, the new one was thinner.
+
+Han Jiwoo looked toward the children, and her face went stiff.
+
+The arrangement was different. No fast child beside a slow one. Beside a slow child there was a slow child. Beside a child with white fingertips was a child with translucent fingertips, the familiar kind.
+
+And here and there among the children, one too-quiet adult had been slotted in. The adult looked only ahead and stopped when the children wavered, and the children saw the adult and stopped.
+
+Han Jiwoo spoke low.
+
+"They've mixed the kids in too."
 
 The second recovery hand answered, very briefly.
 
 "Because some got out once."
 
-The words were dry,
-but there was clear anger in them.
+"What's that adult?"
 
-Serakion uses people as material even in its failures.
-Who was late,
-who was fast,
-who followed a hand,
-who still had a beat of their own.
+"We do not know. There was none before."
 
-It reads all of that,
-and next time arranges them so that they bind one another tighter.
+"A watcher?"
 
-Ater watched the new arrangement for a long time, then said, low,
+The second looked at the adult who looked only ahead. There was a mark on the neck, and the fingertips were translucent.
+
+"Not a watcher. A standard. They are meant to look at that person and match."
+
+Han Jiwoo looked at the adult. Below the face that looked only ahead, the adult's hand was trembling very slightly. She looked at that hand.
+
+"That one doesn't fit either."
+
+"Pretending to fit. They set the ones who pretend well as the standard."
+
+Ater looked at the adult.
+
+"I know that hand."
+
+He said it low.
+
+"From where?"
+
+"The dinner table. In front of my father."
+
+Han Jiwoo looked at him, but Ater did not take his eyes off the adult's hand.
+
+"A hand that trembles while pretending it does not. Do it long enough, and it truly stops."
+
+"And that one?"
+
+"It still trembles."
+
+Ater watched the new arrangement for a long time.
+
+The guide machines above, and the places of the humans among them. The machines slowed to a child's steps more often than before, and their voices were lower too. Between stopping and moving, there was now a pause that had not been there before.
 
 "It is more blatant now."
 
-Han Jiwoo looked at him.
+His voice was low.
 
-Ater ran his eyes over the guide machines above and the positions of the humans between them, and went on.
+Han Jiwoo looked at him, but Ater went on without looking away.
 
-"It has become kinder than before."
-"That face shows up less when things are good
-than when the control has drawn tighter."
+"It has grown kinder than before. That is the face that shows, not when things are good, but when the control has drawn tighter."
 
-He was exactly right.
+"How do you know?"
 
-The machines above spoke more softly than before,
-pretended more often to match the children's steps,
-and the buffer between stopping and moving had grown more natural.
+"My house was like that."
 
-But that very thing
-made it harder to breathe.
+Ater said.
 
-The added courtesy was not care;
-it was closer to a new technique for sewing up the first crack.
+"Every time I wavered, my father grew quieter."
 
-Serakion did not grip the children more roughly.
-If anything, it made its hold softer,
-more natural,
-harder to slip out of.
+Han Jiwoo didn't ask anything more.
 
-Kael read that structure and reached a conclusion almost at once.
+One machine laid a hand on a child's shoulder and, without pushing, left it there for one beat. Before, it had been half a beat. When the child walked, the machine took its hand away, and even taking it away took one beat.
+
+Kael read that structure. Two ceiling lines, an adult as the standard, a hand that stayed a beat longer.
 
 "The same way won't work."
 
 The first recovery hand asked.
 
-"Then how does it change?"
+"How do we change it?"
 
-Kael didn't answer for a moment.
+Kael didn't answer right away; he looked not at the column but outside it. At the corner of the sector stood an auxiliary machine that had not caught the eye before. It neither moved nor did anything, but the light in its face was watching not one person at a time but the whole column.
 
-He was watching not the line above
-but one auxiliary machine moving outside that line.
+"That one's new."
 
-It was the kind that had been less noticeable before.
-But now it was so natural
-that you noticed it was there later than you should have.
+"No."
 
-"We can't shake it from outside,"
-he said, low.
+The second answered.
+
+"It was there before. It only did not stand there."
+
+"Where was it, then?"
+
+"Somewhere you could not see."
+
+Kael looked at the machine. Now it stood where it could be seen, standing there to be seen.
+
+"We can't shake it from outside."
+
+He kept his voice low.
+
 "Now we have to split it from inside."
 
 A short silence.
 
 Ater caught the meaning first.
 
-"Instead of shaking the whole line,
-you mean we split the beat apart from inside first?"
+"Instead of shaking the whole column, you mean we split the beat apart from inside first?"
 
 Kael nodded.
 
-"If we make confusion outside,
-they seal it right away now."
-"But if there's already a different speed inside,
-for a moment even they might not know what to match first."
+"If we make confusion outside, now it seals it right away. But if a different speed is already there inside, for a moment even they might not know what to match first."
 
-The idea was dangerous,
-but it was exactly the kind of idea they needed now.
+"Who, inside?"
 
-In the first rescue, outside hands had opened the gap.
-From the second on,
-they might have to use the time of the people still left inside as well.
+Han Jiwoo asked.
 
-Han Jiwoo looked at the children again.
+"Someone who's inside. Not us."
 
-It was much harder than before.
-Who would react first,
-who would follow,
-who would cause confusion—all of it was harder to read.
+Han Jiwoo looked at the people in the column, the children and the adult and the trembling hand, then looked at the children again.
 
-But even in the middle of that,
-there were things that slipped out of line, very slightly.
+With the adult among them, it was harder than before. Who would react first, who would follow.
 
-One child still moved feet before hands,
-one child still checked sideways before looking up,
-and one child, the kinder the guidance became,
-only stiffened more.
+Still, there were things that slipped out of line, very slightly. One child's feet came before the hands, so that child stopped before the adult did. One child looked to the side, at the adult's trembling hand, before looking up. One child, when a machine laid a hand on their shoulder, went stiff for a beat, and stayed stiff even after the hand came away.
 
-Serakion had grown smarter.
-But it also meant that, so far,
-people had not set entirely into material.
-
-Han Jiwoo said, very low,
+Han Jiwoo spoke very low.
 
 "There's still something left."
 
-This time no one asked what she meant.
+No one asked what she meant.
 
-What was left was the children.
-What was left was their own beat.
-What was left might be the time that remembered Hazran.
-
-And maybe,
-the fact that a hand had once reached in from outside was now left somewhere inside, too.
-
-The second recovery hand asked, low,
+The second asked, low.
 
 "Who do we look at first this time?"
 
-The question was simple,
-but the weight in it was greater than before.
+Just then, one very small child standing at the end of the column turned their head to the side for an instant. Not toward the adult, not toward the machines, but toward the empty spot behind them. Then the child looked ahead as if nothing had happened. The machine didn't lay a hand on the child's shoulder. It hadn't seen.
 
-This was no longer a matter of choosing three, as they had the first time.
-Inside a Serakion that had changed since the first rescue,
-they had to read all over again who could still become a gap.
+Han Jiwoo saw it, and her eyes changed. Ater looked that way almost at the same time.
 
-And then,
-one very small child standing at the end of the line
-turned their head to the side, for no more than an instant.
-
-The movement was so short
-that at first glance it could pass for a meaningless habit.
-
-But the moment Han Jiwoo saw it, her eyes changed.
-Ater looked that way almost at the same time.
-
-Kael read both their reactions and said, very low,
+Kael saw how the two of them reacted and spoke very low.
 
 "You saw that."
 
-Han Jiwoo didn't answer.
-But she didn't look away.
+Han Jiwoo neither answered nor looked away.
 
-As if nothing had happened, the child
-was already back inside the beat Serakion had given.
+The child was back inside the beat Serakion had given them. Feet on the footprint shapes, hands at their sides, head facing forward. The child didn't look like the same child that had turned their head a moment ago.
 
-That was exactly why it was more dangerous,
-and more important.
+The second looked at the child's feet.
 
-Now the second rescue
-could not be done with more force than the first.
-It had to be quieter,
-it had to split from further inside,
-and it had to read more exactly who was still holding on to time on the human side.
+"The feet did not move."
 
-Serakion had already learned once.
+"Only the head."
 
-But the recon team,
-the recovery hands,
-and maybe the children still inside, too,
-were no longer quite the same as before.
+Han Jiwoo said.
 
-When they came back that day,
-no one thought this time would be easier.
+"First kid I've seen move only the head."
 
-If anything, they all knew.
+"Before?"
 
-The first crack had been about breaking Serakion's beat.
+"Before, it was the feet first. Every one of them."
 
-But from the second on,
-against a world that had learned that beat over again,
-they had to prove that time on the human side was not yet entirely dead.
+The second looked at the child again. Feet on the footprint shapes, head facing forward.
+
+"Is it that child?"
+
+The second asked.
+
+"I don't know. But that kid looked back."
+
+"What is behind the child?"
+
+Han Jiwoo looked behind the child, at the empty spot and the wall.
+
+"Nothing. That's why the kid looked."
+
+When the light guide line came on, the column formed. The adult stood first, and the children saw the adult and stood. When the wall opened, the adult crossed first, and the children followed across.
+The small child was last.
+The child did not turn their head before crossing.
+Han Jiwoo waited for the child to turn.
+The child didn't.
+The wall closed.
+
+"The kid didn't look."
+
+Han Jiwoo said.
+
+"The child did."
+
+Ater said.
+
+"Earlier."
+
+Han Jiwoo looked at the closed wall.
+
+When the first raised a hand, the five pulled away from the slit. On the way down no one spoke, and there was only the sound of the second's leg. Kael rolled his shoulder once. Two lines. He spread two fingers.
+
+Sion was holding the board just inside the gap. Beside the five dots: outside, the third time. Beside that, above it, he scratched a small notch, and Kael looked at the notch.
+
+"What's that?"
+
+"You said two lines."
+
+Sion said.
+
+Kael didn't ask anything more.
 
 ---
 

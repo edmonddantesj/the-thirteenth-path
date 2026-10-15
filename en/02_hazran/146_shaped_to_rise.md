@@ -1,199 +1,200 @@
-# Episode 146. Where They Are Shaped
+# Episode 146. Shaped to Rise
 
-When the waiting line for going up began to move,
-the scouting party fell in behind that flow far more carefully than before.
+As the column moved along the light guide line, the scouting team moved too.
 
-From here on, just reading the paths was not enough.
+With a single wall between them, the column went down the path into the sector while the five took the narrow observation passage behind that wall. The same direction, at the same speed.
 
-They had to see in what order Serakion actually sent humans up,
-and what it put its hands on before that.
+The first matched its steps to the column: when the column stopped, it stopped, and when the column went, it went. The footsteps over there covered the footsteps on this side.
 
-The first recovery hand stopped more often,
-and the second checked behind them more often.
+"Do not lose the beat."
 
-Not many troops were in sight,
-but by now they all knew.
+The first spoke very low.
 
-Serakion was built to look like a small force
-and then, when it actually shut, to shut in an instant.
+"If they stop and we keep moving, they will hear us."
 
-So instead of moving fast,
-the scouting party had to pick the moments to stop more precisely.
+The second followed at the very back on its dragging leg, and each time the column stopped, that leg came to rest a beat late. The first didn't wait for that beat. It couldn't.
 
-The first thing they saw
-was an intermediate section where humans stayed just before being sent up.
+Han Jiwoo kept close beside the second and took hold of its elbow. Each time they stopped, she pressed down on that elbow, and the second's leg stopped with them.
 
-At a glance it looked almost like a ward or a waiting room.
+Here and there in the wall were slits a finger wide or a palm wide. They only looked through them in passing; no one stopped to look. Kael measured the space between slits in steps. One every seven steps.
 
-The light was soft,
-the temperature was steady,
-and the humans moving after the machines did not, on the surface, look very tense.
+Once the column stopped without warning, and one of Ater's feet was left in the air. He didn't set it down until the column moved again, and the tip of his foot trembled. Kael braced his shoulder with a single finger, and only when the column moved on did Ater put his foot down.
 
-But the moment Han Jiwoo saw the section,
-her face hardened almost by instinct.
+As the column turned, the light beyond the wall grew softer. Han Jiwoo laid the back of her hand to a slit as she passed; it was the same as her own body heat. She took her hand away.
 
-"This isn't a place to rest,"
-she said, low.
+Then the column stopped, and the five stopped with it.
+
+Beyond the palm-wide slit, it looked like a ward. Twelve humans sat there, and the people from the column went and sat in the empty places between them.
+
+A machine moving among them stopped in front of one person, lifted the person's hand, looked at the back, looked at the palm, and set it down. The next person.
+
+Han Jiwoo's face went hard.
+
+"This isn't a place to rest."
+
+Her voice was low.
+
 "It's where they get shaped."
 
-That was right.
+A machine brushed something clear onto one person's fingertips with a thin brush. From the tips of the nails to the second knuckle, the same as the fingertips of the child they had seen earlier.
 
-The humans there were not simply resting.
+Another machine set a small frame in front of one person, and the person put their fingers into it and moved them ten times in the same motion. The machine took the frame away and set down a slightly smaller one; the person put their fingers in, but they didn't fit. The fourth finger caught.
 
-Their hands were being tidied,
-a protective finish was being added to their skin,
-their posture was being corrected,
-and some of them had fine guide lines attached that made them learn the same motion over and over.
+While the machine wrote something down, the person looked at the finger that had caught.
 
-Before sending a human up,
-so that the human would look more suitable,
-be used more reliably,
-and be managed more beautifully, Serakion was laying hands on them once more.
+"What's that?"
 
-Han Jiwoo looked a long time at something like a workbench below.
+Han Jiwoo asked.
 
-There was a height made for resting a human hand,
-a device for testing finger movement,
-and very thin assisting tools that smoothed the grain of the back of the hand and the wrist.
+"Measuring."
 
-None of it was violent.
-If anything, it was too delicate.
+The first answered.
 
-Which made it worse.
+"Whoever fits a frame goes where that frame belongs."
 
-"Pretending to fix people,"
-Han Jiwoo said, almost chewing the words.
-"But it's not fixing them,
-it's making their usefulness fit more prettily."
+"And if it doesn't fit?"
 
-The first recovery hand did not really argue.
-Instead it said, very low,
+"Another frame."
 
-"This place doesn't save what's broken."
-"It's more about making the usable look better."
+"And if none of them fit?"
 
-That one remark struck, all too exactly, the whole feel of everything below Serakion's upper level.
+While the first didn't answer, Han Jiwoo looked down at her own fourth finger; it was thick, and it looked like it would catch. She closed her hand.
 
-Save.
-Restore.
-Protect.
+The machine stood again in front of the person whose fourth finger had caught, and this time there was no frame. When the machine held out a hand, the person stood up. The way the person turned was opposite to where the column had come from, toward a door at the back of the sector. It was the way down.
 
-This world uses words like those.
-But what it actually does
-is closer to arranging what it has already judged valuable into something more suitable.
+"The wide passage."
 
-Ater watched the section for a very long time without a word.
+The second spoke on a breath.
 
-Then, seeing two humans under a machine's guidance
-walking with identical stride and speed, he spoke low.
+"That is where they go."
 
-"They fit even the way of life in advance."
+The door opened, and as the machine and the person went out, Han Jiwoo followed the two of them from slit to slit, moving only her head. The two turned. This way.
 
-It was cold.
+The first raised a hand, and the five pressed against the wall.
 
-Han Jiwoo glanced at him.
+Two sets of footsteps came, one even and one not. One wall away, a hand's span off.
 
-Still looking down, Ater added,
+Right before Han Jiwoo's eyes, a sleeve passed the finger-wide slit. She saw the clear-coated fingertips and the fourth finger that had caught, and the hand was shaking. The machine's hand resting on that shoulder did not push.
 
-"How they are to live once they are up there—
-they put it into the body beforehand."
+When Han Jiwoo's hand went toward the wall, the first gripped her wrist hard, and Han Jiwoo didn't touch the wall.
 
-This was not simple etiquette training.
-It was politics.
+When the second's leg started to move, Han Jiwoo pressed down on its knee with her other hand before the joint could make a sound. The knee stayed held down.
 
-Perhaps Serakion was not a world that moved people between classes,
-but one that built bodies to fit a class in advance and then sent them up.
+The footsteps faded downward; when the uneven ones stopped once, the even ones waited. Once they walked on again, soon they could no longer be heard.
 
-Then the human who rises arrives already half
-fitted to the order up there.
+Even after the first let go, the marks of its fingers stayed on Han Jiwoo's wrist, but no one spoke.
 
-The Empire breaks people in too.
-But that was mostly toward loyalty and obedience.
+Han Jiwoo took her hand off the second's knee and crouched. She opened the joint with the screwdriver and gave it two turns without raising her head, then closed it.
 
-Serakion goes one step further.
-Not just obedience—
-it makes them take suitability itself to heart, beautifully.
+"That person. Will they be there tomorrow?"
 
-The moment Ater saw that difference,
-he seemed to feel an even deeper disillusion.
+"I do not know."
 
-Being more refined
-does not make it less cruel.
-It may be a more finished cruelty.
+The second said.
 
-Kael had hardly spoken all this while,
-watching the routes outside the section and the points where it would close.
+"We have never again seen anyone who went down."
 
-On the surface this intermediate section was calm,
-but in fact its structure closed far more tightly than anything before.
+Han Jiwoo looked through the slit toward the ward again. There was a worktable at just the right height to rest a person's hands on, a device that watched how fingers moved, a thin support brace that worked at the wrists. All of it small, all of it quiet.
 
-There seemed to be two ways in,
-but one was a guide line that pushed people farther inside,
-and only one side actually let you get out.
+"Pretending to fix people."
 
-And even that one,
-the moment a signal came down from a little higher up,
-was built to split into three segments and fold shut in order.
+Han Jiwoo almost chewed the words.
 
-Kael spoke low.
+"But it's not fixing them, it's making their usefulness fit more prettily."
 
-"This side isn't built for getting people out—
-it's built for handing them over."
+The first didn't argue, only spoke very low.
 
-The second recovery hand reacted briefly.
+"This place does not bring back what is broken. It makes what is useful look better."
 
-"Right."
-"Touch anything here and it's pretty much all over."
+"And what's broken?"
 
-That was not just a warning.
+"Below. It does not come here."
 
-Rescue is not done with courage.
-In front of a structure designed like this,
-courage at the wrong moment only loses people faster.
+Its optical eye went to the door at the back of the sector.
 
-Han Jiwoo heard that and still did not look away.
+Han Jiwoo drew back from the slit, set her back against the wall, and looked at her own hand gripping the screwdriver. A hand that brought broken things back. A hand that never came here.
 
-She watched a young human below, having their hands tidied, for a long time.
+Beyond the slit on the column side, where Ater was looking, two humans in one corner of the ward were walking under a machine's guidance, with the same stride and at the same speed. When one of them was half a step quick, the machine stood in front of that one, and the person stopped. After the machine stepped aside, the person walked again, at the same speed.
 
-The child looked startlingly docile on the surface.
-But the fingertips were stiff, very faintly.
+"How they are to live once they are up there—they build even that into the body in advance."
 
-They were hands holding on by force.
+Ater said it, and a long while later he added more.
 
-"The memory's still there,"
-Han Jiwoo said, very low.
+"The Empire puts it in after they have gone up. With blows."
 
-The first recovery hand asked.
+When the person who had been half a step quick went half a step quick again, the machine stepped in front again.
 
-"Meaning what?"
+"How many times does it step in?"
 
-Han Jiwoo answered.
+Han Jiwoo asked.
 
-"The body getting used to something,
-and the hand feeling safe—those aren't the same."
+"I do not know."
 
-That sentence took the whole scouting deeper.
+The second answered.
 
-Serakion can make the human body more and more suitable.
-But that may not mean it can fully tidy away the memory in the fingertips.
+"Anyone it stepped in front of more than three times was gone the next day."
 
-It was a sense that would tie into whether they could really pull anyone out later.
+Han Jiwoo watched that person and held up two fingers. It had been twice.
 
-Ater looked down again,
-Kael drew the closing order in his head again,
-and Han Jiwoo was looking at the hands, one person at a time.
+Lower down, a young human sat quietly, having their hands groomed. Even when the machine set the brush to the fingertips, the child's hand didn't move, not because the child was calm but because the hand was rigid. The fingertips were white.
 
-And in that moment
-the scouting party learned one more thing.
+"That hand's straining."
 
-In Serakion, going up
-is not simply moving somewhere better.
+Han Jiwoo spoke very low.
 
-It meant that, to be fitted to a higher order,
-a person first passed through the reshaping of their body, their hands, and their life.
+"A hand that's used to it doesn't strain."
 
-And the more beautiful that shaping,
-the more horrible this world became.
+The first looked at that hand for a long time, then at its own fingertips, oil-soaked, the joints worn.
+
+"So?"
+
+"So it's still a hand. Not a thing."
+
+When the machine took the brush away, the child rubbed the fingertips with the other hand, and when it didn't come off, rubbed once more. The child stopped when the machine took hold of that hand, and after the machine let go, laid the hand on their knee. The fingertips were white.
+
+The grown-up seated beside them looked at that hand; the grown-up's fingertips were clear-coated too. The grown-up started to lay a hand over the child's, then didn't, because the machine was watching.
+
+"Is that the kid's mother?"
+
+"I do not know."
+
+The first answered.
+
+"Here, no one asks that kind of thing."
+
+"Why?"
+
+"If you ask, they separate them."
+
+"How do you know?"
+
+"I have seen people who were separated. Down below. Both of them."
+
+The grown-up's hand, as Han Jiwoo saw it, lay on their knee beside the child's hand, not touching it.
+
+When the light guide line came on again, the shaped people rose first, all at the same moment. The five moved to that side's beat again. This time the second's leg wasn't late.
+
+There were two ways in, and one curved inward, so that going in drew you farther in. The column took the other, a straight path with three joint lines across the ceiling at even intervals. Kael counted those lines at every slit they passed.
+
+"This side isn't built for getting people out—it's built for handing them over."
+
+He spoke as he walked.
+
+"This is the place."
+
+The second said.
+
+"Where three went in and one came out."
+
+Kael nodded, looked at the middle of the three joint lines, and folded down one finger.
+
+At the head of the column, the wall opened where no seam had shown. The people went in one by one, all in the same rhythm, but the observation passage ended there. That was as far as the five could follow.
+
+The wall closed without a sound, and only the light guide line remained where the column had been, until soon that went out too.
+
+Han Jiwoo laid her palm on the closed wall; its warmth was the same as her own body heat. She didn't take her hand away.
+
+Only after the first pointed to a narrow passage leading upward did Han Jiwoo take her hand away. The wall's warmth stayed in her palm.
 
 ---
 

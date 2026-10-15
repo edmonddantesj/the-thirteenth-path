@@ -154,11 +154,11 @@ Sern asked quietly.
 
 Only then did Han Jiwoo look at Sern head-on.
 
-"Yeah. But it won't be a gentle ride."
+"Yeah. But we can't go straight there."
 She pointed her chin at the transport inside the waiting bay.
-"I'm the one who reads dead markers and still-living equipment together. This leg can't be stitched without that."
-She went on.
 "Of the routes into the outer cluster, two are already dead, and someone's been feeling along the third from behind for a while now. So we have to swing farther out than planned."
+She added,
+"Out there, the leg only holds together if you read dead markers and still-living equipment as one line. That's my job."
 
 Ater asked, low.
 

@@ -1,142 +1,136 @@
-# Episode 147. Sorted World
+# Episode 147. A Divided World
 
-The deeper the recon team pushed in,
-the less Serakion's hierarchy looked like an abstraction.
+One more level up, the bodies of the moving machines changed.
 
-Now it wasn't only the paths and sections;
-in the very bodies of the moving machines
-the differences had begun to show.
+The machines that came and went in the lower passages had exposed joints, and their replaced parts were a different color. They had big hands made for gripping things, and Han Jiwoo knew those hands. They were the same kind as the hands of the machines on the lower levels; only the worn places differed.
 
-The machines going back and forth below
-showed function and efficiency first.
+The higher they went, the more that changed.
 
-Exposed joints,
-parts still marked from replacement,
-frames built for fast movement,
-hands whose use and task could be read at a glance.
+The joints were covered with seamless casing. The hands grew smaller and the fingers longer, and they made no sound when they walked. Han Jiwoo listened to the second recovery hand's leg, and its sound didn't overlap with any sound from the machines above. Up there, there was no sound.
 
-But the higher up it went,
-the more the machines hid any trace of use.
+Han Jiwoo watched a long while, then spoke very low.
 
-Their surfaces were neater,
-their movements smoother,
-their voices lower and more even,
-and in their fingertips you felt the leisure of choice before any function.
-
-Han Jiwoo watched that difference for a long while, then said, very low,
-
-"The higher you go,
-the way they touch things changes too."
+"The higher you go, the way they touch things changes too."
 
 Ater asked briefly.
 
 "How do you mean?"
 
-Han Jiwoo followed two machines passing along an upper corridor with her eyes as she spoke.
+Han Jiwoo followed two machines passing along the upper passage with her eyes, and as she did, one machine handed something to the other. Not with its palm, but with its fingertips.
 
-"Down below, they're hands that grab what they need straight away,
-and up here, they're hands that never have to touch anything themselves."
+"Down below, they're hands that grab what they need straight away, and up here, they're hands that never have to bother touching anything themselves."
 
-That was exact.
+"If they do not touch it, who does?"
 
-Serakion's upper tiers weren't simply stronger;
-they looked like the ones who held a position where they never had to lay a hand on anything directly.
+"Below."
 
-Below: repeated production and upkeep,
-adjustment and hauling,
-control and mass deployment.
+While Ater watched those fingertips, the machine that had taken the thing passed it on to another machine, again with its fingertips.
 
-Above: selection,
-coordination,
-appreciation,
-the deciding of placement.
+"Then what do those hands do?"
 
-Even with nothing written down,
-bodies and routes and the distance kept by hands already spoke the hierarchy.
+"They choose."
 
-Ater narrowed his eyes at the scene.
+Han Jiwoo said.
 
-"So they are divided not by insignia,
-but by habit."
+"The grabbing gets done below."
 
-It was a sharp remark.
+Ater narrowed his eyes.
 
-In the Empire, insignia and uniforms and posts are what you see first.
-Serakion is different.
+"So they are divided not by insignia, but by habit."
 
-Here, the higher you go,
-the less you show yourself;
-instead you prove your rank by the number of things you never have to do.
+"Did you wear insignia?"
 
-You do not lift things yourself.
-You do not carry them yourself.
-You do not maintain them yourself.
-You do not hold on to them yourself.
+"I did. Where it could be seen."
 
-That distance becomes authority.
+"You can't see it here."
 
-The moment Ater saw it,
-he seemed to feel more sharply how complete a structure of discrimination this world stood on.
+"You can. In the hands."
 
-When discrimination is blatant, there is still room to push back.
-But once it has melted this far into habit and structure,
-even the people living in it come to accept it as order.
+Ater said.
 
-Through an observation gap that ran a little higher,
-a far more refined human section came into view.
+"I simply had not seen it."
 
-The people were cleaner,
-their clothes looked softer,
-the light was warmer,
-and even the machines' voices sounded more courteous than before.
+"When did you see it?"
 
-But perhaps because of exactly that,
-Han Jiwoo's face set even harder.
+"Now."
 
-"This isn't management. It's display,"
-she said, low.
+Listening, Han Jiwoo looked at Ater's hands. They had held a sword, they were a noble's hands, yet the scars left on the fingertips were the scars of hands that touched things, and she looked away.
 
-And so it was.
+"Which side are your hands?"
 
-The people in this section looked less worn out than the people below,
-less damaged,
-far more settled.
+Han Jiwoo asked.
 
-But that stability did not come from freedom.
+Ater looked at his own hands.
 
-It was a stability managed down to what to show, and how.
+"They were above."
 
-As Serakion raised people higher, it wasn't treating them better;
-it was closer to treating them so they would look better.
+He said.
 
-The first recovery hand said, very low,
+"Until Hazran."
 
-"This isn't a zone for keeping people going a long time."
-"It's a zone for keeping them looking good."
+Han Jiwoo asked nothing more and opened her own hand. The oil in the lines of her palm didn't come off, even when she rubbed it on her trousers.
 
-That laid bare, all too exactly, the nature of the human zones beneath Serakion's upper level.
+"And which side are yours?"
 
-People with good hands,
-people with good emotional responses,
-people well conditioned to comply,
-or people who suited the structures above.
+Ater asked.
 
-Serakion was very likely treating such people
-not as precious in themselves,
-but as components that raised the quality of its order.
+"Below."
 
-Kael had been watching the access lines and cutoff axes the whole time.
+Han Jiwoo said.
 
-And only here, in this upper section,
-did he stop for a long while, his mouth shut tighter than before.
+"Always."
+
+Beyond an observation slit that ran a little higher, they saw a human sector more refined than before.
+
+The people were clean, their clothes looked soft, and under the warm light the machines' voices were low. Han Jiwoo heard those voices coming over the wall. That sound had never come through in the lower sectors, but the walls here let sound through. It was sound that was allowed to be heard.
+
+Han Jiwoo's face hardened, and she spoke low.
+
+"This isn't management. It's display."
+
+The people sitting there looked less tired, less worn down. One laughed, and another laughed along. Before the third could laugh, a machine passed in front of them. The third didn't laugh, then laughed once the machine had gone by.
+
+The first recovery hand spoke, very low.
+
+"This isn't a sector where they keep people so they'll last. It's a sector where they keep them to be seen."
+
+"Seen by who?"
+
+Han Jiwoo asked.
+
+"Above."
+
+"Above comes all the way down here?"
+
+"It does not come down. It only watches."
+
+The ceiling the first pointed at was smooth, with nothing on it.
+
+"From where?"
+
+"I do not know. I only know that they are seen."
+
+Han Jiwoo looked up at the smooth ceiling, saw her own face faintly reflected there, and stepped back from the slit.
+
+Ater put his eye to the same place and looked at his own face reflected in the ceiling. He did not lower his head, and stayed like that a long while.
+
+"It is telling us to look."
+
+He said.
+
+"Who is?"
+
+"The ceiling."
+
+Han Jiwoo didn't ask, and Ater stepped back from the slit.
+
+Kael was watching the entry lines and the cut-off axes. Since coming up to this upper sector, he had stopped for a long time. He looked at the walls, at the ceiling, at the floor, then at the walls again, and kept his mouth shut the whole while.
 
 Han Jiwoo asked first.
 
 "What?"
 
-Kael didn't answer right away.
-
-Then he said, very low,
+Kael didn't answer right away; when he spoke, it was very low.
 
 "There's no separate defensive line here."
 
@@ -144,70 +138,161 @@ A short silence.
 
 Ater looked at him.
 
-Kael went on, his eyes moving in turn over the wall reflections, the folds in the ceiling, the placement of the floor lines, as if pointing to each.
+"Is that a good thing?"
 
-"The living lines are the defensive line."
-"The places where people are,
-they're built to be used as barriers when it closes."
+"No."
 
-That chilled whoever heard it.
+Kael didn't point; with his eyes alone he took in the reflections on the walls, the folds in the ceiling and the position of the floor lines, one after another.
 
-This upper section had not been beautifully arranged for protection.
-In an emergency, this whole beautiful living structure
-was made to turn at once into machinery for lockdown and separation.
+"The living lines are the defensive line. The places where people are, those places themselves are built to be used as barriers when it closes."
 
-Which meant the people here
-could be shut in again at any moment, living space and all.
+"How?"
 
-If Aka had been there, she surely
-would have read another kind of lie in this structure.
+Han Jiwoo asked.
 
-Instead, Han Jiwoo watched the hands people used,
-Ater watched the distance at which the machines treated those hands,
-and Kael watched the structure that closed over all of it.
+Kael looked at the floor lines around the places where people sat. The line at each place ran all the way to the wall. He opened his own palm and drew a square on it with a finger.
 
-The more the three gazes overlapped,
-the more Serakion read like a single, increasingly clear sentence.
+"This is one person's place."
 
-This was not simply a world with an above and a below.
+He drew another square beside it.
 
-It was a world that grew softer the higher you went,
-more refined,
-more beautiful,
-and for that very reason, more perfectly divided.
+"This is the person next to them."
 
-Just then, on an upper route not far off,
-three machines far more refined than any in the previous section came into view, passing by.
+He drew a line between the two squares.
 
-Their surfaces showed almost no damage,
-there was no sign of hurry about them,
-and even the gaze they swept over their surroundings was so smooth
-that they seemed the kind of beings who could watch you without your ever realizing it.
+"This line becomes a wall."
 
-The second recovery hand muttered, very low,
+Han Jiwoo looked at the palm.
 
-"Those ones up there,
-they always think time is on their side."
+"With a person inside."
 
-At that, Ater's eyes sank colder.
+"Inside."
 
-Those who think time is on their side.
-Those whose hands rarely have to get dirty.
-Those who read people not as lives but as placement and quality.
+Kael closed his hand, and the squares were gone.
 
-Serakion's upper tiers
-were very likely beings exactly like that.
+"Those lines aren't just on the floor. They go up to the wall. When it closes, the places where people sit become squares."
 
-And that day the recon team
-finally understood:
+Han Jiwoo followed the lines with her eyes, from the floor to the wall, up the wall, all the way to the ceiling. She couldn't see them herself, but she trusted what Kael saw.
 
-the higher you climbed Serakion's hierarchy, what you found was not greater power
-but a position from which one touched less,
-stood farther away,
-and could sort more perfectly.
+"But there are people inside."
 
-That very distance
-was one of this world's most intricate forms of violence.
+"It closes because they're inside. The people are the partitions."
+
+His closed hand still hadn't opened.
+
+Ater, who had been looking at those lines a long time, laid a hand on the wall on their own side, and there was no seam.
+
+"Here as well?"
+
+"Here too."
+
+Kael answered.
+
+"Where we're standing is a square too. When it closes."
+
+As Ater took his hand away, the second looked at its own leg, the leg that would have to run when it closed, and Han Jiwoo looked at that leg too. It wasn't time to stop yet.
+
+Along an upper route not far off, three machines passed.
+
+The undamaged machines didn't hurry and didn't look around, yet they walked like things that saw everything without looking. The three machines' feet touched the floor at the same moment, but there was no sound.
+
+The second recovery hand muttered, very low.
+
+"Those ones up there, they always think time is on their side."
+
+"Isn't it?"
+
+Han Jiwoo asked.
+
+The second paused a beat before answering.
+
+"Until now, it has been on their side."
+
+"And now?"
+
+The second looked at its own leg.
+
+"Now too. But we are standing here."
+
+Han Jiwoo stepped half a pace back from the slit and put her back to the wall, then put her eye to it again.
+
+His gaze gone still and heavy, Ater watched the three machines until they turned the corner, and kept watching that way after they had.
+
+"Is it things like that which choose?"
+
+He asked the first.
+
+"Above things like that."
+
+The first answered.
+
+"Those carry what has been chosen."
+
+When one of the upper machines passed soundlessly right beneath the observation passage, the five pressed against the wall. The machine didn't stop, and it didn't look up either.
+
+Its long fingers tapped the wall of a square below once in passing, and the person sitting in the square straightened their back to the sound.
+
+The second had been holding its leg off the floor, and only lowered it once the machine had turned the corner. The joint rang, but nothing came back.
+
+Han Jiwoo looked again at the lines around the places where people sat. Someone who had put a foot outside the line drew it back inside as the machine passed. The machine did nothing; it only passed by.
+
+"It doesn't touch them."
+
+Han Jiwoo said.
+
+"It doesn't need to."
+
+Kael answered.
+
+"It passes, and they go back in."
+
+Han Jiwoo looked down at her own feet. There were no lines on the floor of the observation passage, so she left her feet where they were.
+
+Kael folded his fingers as he counted the squares. One, two, three, and then he stopped counting.
+
+"Too many."
+
+He said.
+
+"Squares?"
+
+"Squares."
+
+Ater counted the seated people, moving only his lips, and stopped at twenty.
+
+"More than twenty."
+
+"There are more squares."
+
+Kael said.
+
+"Empty squares close too."
+
+"Why close empty ones?"
+
+"To fill them."
+
+Ater looked at the empty places that were only lines. Three. He stopped counting.
+
+When the second resettled its leg, Han Jiwoo crouched and took out her screwdriver for the fourth time.
+
+"Will it hold?"
+
+"It will hold. Until we are down, at least."
+
+The second's optical eye dropped to the joint.
+
+"And once we're down?"
+
+"Once we're down, you open it."
+
+Han Jiwoo was closing the joint when she stopped, opened it again, and gave it another half turn.
+
+Then she closed the joint.
+
+The first raised a hand, and the five moved.
+
+Upward.
 
 ---
 

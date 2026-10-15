@@ -30,7 +30,7 @@ Ater quietly closed the screen.
 
 The Empire Approval Bureau had always been a place that believed in sequence. What to open, what to close, what to erase, what to leave. Its whole order began with sequence. So a record whose sequence had gone wrong was worse than a simple error.
 
-"Barek. Prepare a field access line."
+"Barek. Trace that retrieval line back for me."
 
 Sern bowed his head.
 
@@ -88,7 +88,7 @@ Ater neither denied nor confirmed it. He only said, very low:
 
 "It seems an unordered hand has gone in."
 
-Sern asked nothing more. Instead he turned back toward the terminal. His lordship rarely called anything "unordered." And when that word came out, things usually ran in a direction more troublesome than a seal.
+Sern asked nothing more. Instead he turned back toward the terminal. When his lordship brought out the word "unordered," things usually ran in a direction more troublesome than a seal.
 
 He called up the outer access list he kept bundled separately outside the approval line.
 There was more than one way into the neutral port city. Official envoy lines, Empire logistics approval lines, civilian contract transfer lines, and the gray routes that never made it into any record. The question was which of them had moved first.
@@ -140,9 +140,11 @@ Ater straightened the hem of his coat.
 
 "As fast as possible, so long as it does not show."
 
-Sern asked nothing more.
+Sern only bowed his head.
 Move under the Valkar name, but keep the Valkar shadow to a minimum.
 That alone was enough to read that this case was not like the others.
+
+---
 
 The collection ship was even narrower inside than he had expected.
 
@@ -297,7 +299,7 @@ Seorin spoke first.
 
 "It wasn't just me who heard that."
 
-"No."
+"Yeah."
 
 Sion's voice had gone much lower than before.
 
@@ -351,16 +353,10 @@ Seorin asked, very low.
 
 "Open it?"
 
-Sion laid his hand on the door panel.
+Instead of answering, Sion laid his hand on the door panel.
 The cold feel of metal met his palm.
 
-"We have to."
-
-"Why."
-
-Listening to the voices beyond the door, Sion answered.
-
-"Because now we have to find out whether what we're chasing is a thing or a person."
+The voices beyond the door cut off.
 
 At that moment the whole collection ship lurched hard, once.
 Far off, a long arrival signal sounded, low.

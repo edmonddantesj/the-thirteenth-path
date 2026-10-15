@@ -1,58 +1,26 @@
-# Episode 139. Not Just One Person
+# Episode 139. Not Just a Survivor
 
-Even after the casualty's breathing had barely steadied,
-no one scattered right away.
+Even after the injured person's breathing steadied, no one scattered right away.
 
-The moment one human who had come back alive crossed the threshold,
-it seemed it had never been only a body coming in.
+The human who had come back carried on a machine's back was moved farther inside, and two of the inside machines and the tired-faced woman went with them. Han Jiwoo stayed behind and put her hands in the water. The water turned red, but she didn't take her hands out.
 
-Along with it,
-whatever had been seen and heard outside came in too.
+Those left near the threshold stood along the wall. The old machine, the two returned hands, and Sion's party. No one called this a report. Sern raised his record panel, then lowered it again.
 
-Like a smell,
-like dust,
-and like a tension not yet fully put into words.
+The machine that had come back first stood with its back almost against the wall.
 
-The human who had been carried back was moved farther inside,
-and Han Jiwoo and a few of the inner machines stayed close.
+Up close, the damage was bad. It wasn't just scratched; it had been torn open deep once and then covered over. The patch was darker than the original plating, and the heat damage was recent, so the edges were still black. Sion was looking at those edges when he realized the burnt smell was coming from there.
 
-The treatment wasn't over;
-it was closer to having barely begun to knit things back together.
-
-But the air left near the threshold
-was already moving on to the next thing.
-
-The old machines and the two returned hands,
-and Sion's party, still beside them.
-
-No one made it into anything like an official report,
-but the air was clearly leaning that way.
-
-The machine that had come back first set its back to the wall, almost leaning.
-
-Up close,
-the damage to its outer shell was worse than they had thought.
-
-Not scratches,
-but the trace of having been torn open deep once and forced shut again.
-The heat damage wasn't old, either; it was fairly recent.
-
-Seeing it,
-Sion felt, a little, how much the words "went out and came back" were leaving out.
+The second machine sat on the floor with its leg stretched out. Han Jiwoo took her hands out of the water and crouched in front of that leg, but she only peered into the open joint and didn't touch it. Not yet.
 
 The old machine asked, very low.
 
 "How far did you get."
 
-This time the ones who had come back didn't twist the question right away.
+The first machine let out a short noise like a breath.
 
-The first machine let out a brief noise like a breath, then spoke.
+"To just below the upper-level junction. Two of the gray routes we used to use are blocked, and one is still alive."
 
-"As far as just below the upper-level junction."
-"Two of the gray routes we used are blocked,
-and one is still alive."
-
-Sern's eyes changed at once.
+Sern's hand went to his record panel. He switched it on and drew three lines, then crossed out two of them.
 
 "So it is not a full lockdown."
 
@@ -60,164 +28,258 @@ The first machine tilted its head very slightly.
 
 "If it were a full lockdown, we wouldn't have come back."
 
-It was a curt thing to say,
-but not a wrong one.
+Sern didn't write that down; he looked down at the one line left on his record panel.
 
-Sion felt, within that single sentence,
-how much this side always treated *the fact of coming back alive* as information in itself.
+"Where does that one go?"
 
-Coming back alive means a path still exists.
-When someone doesn't come back,
-a different calculation starts from there.
+"Up."
+
+"How far does it go?"
+
+"We will know the next time we go."
+
+Sern asked nothing more and left the end of the line blank.
 
 The old machine asked the next thing at once.
 
 "The android legion."
 
-This time the second machine answered.
+The second machine answered with its head bowed toward Han Jiwoo, who was looking at its leg.
 
-"Their numbers have grown."
-"But the deployment's strange."
+"Their numbers have gone up. But the deployment's odd."
 
 A short silence.
 
-It shifted its weight on the limping leg for a moment, then went on.
+It adjusted its outstretched leg once with its hand and went on, and while it did, Han Jiwoo moved that hand away and set the leg herself.
 
-"It's stopped being a guarding deployment,
-it's turned into a herding one."
+"It's stopped being a guarding deployment; it's turned into a herding one."
 
-The moment those words fell,
-Sion felt a very thin chill.
+Ater, who had come over from the dark exit, pushed his back off the wall at those words.
 
-A herding deployment.
+"Where are they herding them?"
 
-It doesn't simply mean the guard has gotten stronger.
-It is closer to luring people somewhere,
-or making them pick which way to run,
-or driving them into a passage laid out in advance.
+The second machine looked at Ater. It was a face it had never seen before.
 
-Aka looked up the moment she heard it.
+"I do not know. I have never been on the side that gets herded."
+
+"Who is on the side that gets herded?"
+
+"People."
+
+Ater looked at the one line left on Sern's record panel.
+
+Seorin asked.
+
+"If the ones herding are androids and the ones herded are people, where do the people get herded?"
+
+"Up."
+
+The first machine answered.
+
+"Not down."
+
+"Herd them down, and they come to us. They know that perfectly well."
+
+Seorin looked at Sern's one line, the line that went up.
+
+Aka raised her head at that.
 
 "Penning them in, like at feeding time."
 
 The first machine looked at Aka once.
 
-"Close enough,"
-it said, low.
+"Close enough."
+
+Its voice was low.
+
 "But they'll be more refined about it."
 
-That short answer carried a very open disgust for Serakion's upper levels.
+"What's refined?"
 
-Then,
-the human woman beside the old machine cut in for the first time.
+Luhai asked.
+
+"There is a guidance tone. Even when they herd."
+
+Its optical eyes turned upward for a moment.
+
+Luhai shut his mouth, and Sion remembered that guidance tone, how polite it had been.
+
+Just then the tired-faced woman came back from inside and stood there with nothing in her hands, empty-handed, and asked.
 
 "And the person you brought back?"
 
-The first machine was silent a moment.
+The first machine was silent a moment. Unlike its hand on the injured body, this was a silence spent choosing the order of its words.
 
-Unlike its hands a while ago, working on the casualty's body,
-it seemed, faced with this question, to stop and choose the order of its words.
+"Pulled them out near the servants' quarters on the upper level. They wouldn't have held out much longer."
 
-"We pulled them out near the servants' quarters on the upper levels."
-"They wouldn't have lasted much longer."
+"The servants' quarters."
 
-The moment Sion heard that,
-he felt another face of Serakion's interior, one he hadn't seen yet, grow clearer.
+The woman repeated it.
 
-Happy faces,
-orderly arrangements,
-hospitality far too polite.
+"Those are still there?"
 
-And beneath it,
-human quarters where you don't last long unless someone pulls you out.
+"They are. They have grown larger."
 
-Serakion was most likely a world that kept even the way it ruined people
-beautifully hidden.
+The woman opened the empty hand she had clenched, and then, without a word, went back inside, toward the injured person.
 
-Han Jiwoo stepped out from inside for a moment.
-Her hands were still smeared with blood and oil together.
+Sion watched her back. The injured person with the mark of a tag on the neck; the servants' quarters. He thought back to the necks of the people he had seen on the upper level, and it was the same place.
+
+Han Jiwoo put her hand on the second machine's leg, spread the joint open, and looked inside.
 
 "Odds of survival?"
-she asked, low.
+
+She kept her eyes on the leg and her voice low.
 
 The second machine answered.
 
-"There weren't any to begin with."
-"Even fewer after we lost hold of them once on the way."
+"There weren't any to begin with. Even fewer after I lost them once on the way."
 
-When that was said,
-Han Jiwoo's face set hard for an instant.
+Han Jiwoo's hand stopped. A beat.
 
-There weren't any to begin with.
+"But you brought them back."
 
-The only ones who could say it that flatly,
-it seemed, were the ones who had tried to hold on to something with no odds at all.
+"I brought them back."
 
-The old machine, showing no feeling whatsoever, asked again.
+"Why?"
+
+The second machine looked down at Han Jiwoo.
+
+"Because I had lost them once."
+
+Han Jiwoo picked a worn, burst part out of the joint.
+
+Kael crouched beside the second machine.
+
+"How wide were the stairs?"
+
+"Three."
+
+"Three people?"
+
+"Three machines."
+
+"Railing?"
+
+"There was none."
+
+Kael nodded and looked at the width of his own shoulders. His face was working out the width of the stairs.
+
+Han Jiwoo glanced at the two of them once and went back to the part; it was broken, so she set it aside. She took a screwdriver out of her tool pouch, a pouch that was two tools short.
+
+The old machine asked again.
 
 "And farther in."
 
-This time the first machine's eyes changed before anything else.
+The first machine's optical eyes changed, and the even light jumped once.
 
-Over the fatigue,
-a very thin anger passed.
+"A new sorting has gone in."
 
-"A new sorting has gone in,"
-it said, low.
-"It's not simple labor like before."
-"The way they use people has gotten more refined."
+It dropped its voice.
 
-The air all around went quiet.
+"It's not simple labor like before. The way they use people has gotten more elaborate."
 
-Sion felt at once that those words
-touched, somewhere, the sorting that had been about to be done to the Hazran refugees.
+"How?"
 
-Serakion might be repeating the same thing, more finely, inside and outside alike.
+The old machine asked.
 
-Reading people,
-dividing them,
-putting them in the places that fit,
-and making sure they can't get out.
+"I didn't see it this time. We came out before we got in."
 
-Aka said, very low,
+"Next time."
+
+"Next time."
+
+The air around them went quiet.
+
+Sion looked toward the Hazran people; a few of them were watching from deeper in the passage. When the old man standing with his plate heard the word sorting, his hand tightened on the plate.
+
+He asked the old machine.
+
+"Do I scratch one for him too?"
+
+The old machine looked at him.
+
+"That one came back. The scratching is for the ones who did not come back."
+
+The man looked at his plate with its sixteen scratched lines. He turned it over to the blank side, but he didn't scratch.
+
+"Then where do I write the ones who come back?"
+
+He asked again.
+
+The old machine waited a beat before it answered.
+
+"We do not write them. They are here."
+
+The man looked toward the inner room where the injured person lay, then folded the plate away and tucked it inside his coat.
+
+Aka spoke very low.
 
 "It must've gotten prettier."
 
-This time no one answered right away.
-But the silence itself already sounded like an answer.
+No one answered, and the first machine, looking at Aka, neither nodded nor looked away.
 
-The more beautiful it became,
-the easier it would have been to hide.
-
-Luhai stood against the wall, his face hard.
-
-For the first time, with no joke in it, he asked.
+Luhai had been leaning against the wall with his face set hard, and there was no joke in his voice when he asked.
 
 "So you're going out again?"
 
-The first machine didn't even look at him.
+The first machine wasn't looking at him; it was looking at the closed gap.
 
 "If we don't, everything in there stays shut and rots."
 
-It was said with finality,
-but with no heroic note at all.
+"When?"
 
-Just work that someone has to do,
-and work it would most likely end up doing again itself; that was how it sounded.
+"When that leg is mended."
 
-In that moment,
-Sion felt clearly that these recovery hands weren't simply the bold ones,
-but beings who, between Serakion's outside and inside,
-kept dragging reality back in.
+It pointed at the second machine's leg.
 
-What they had brought back was not just one person.
+Han Jiwoo, working on that leg, raised her head.
 
-Proof that a blocked path was still alive,
-a fragment of what was happening beneath Serakion's upper levels,
-and even the fact that those who stayed inside could never simply hold on and forget the outside.
+"Three days."
 
-That day, the threshold
-looked for the first time like a mouth that carried news from outside all the way into the deep inner layers.
+"Two."
+
+"It's three."
+
+The first machine said nothing more, and Han Jiwoo went back to the leg. The screwdriver turned inside the joint; she turned it with her whole arm.
+
+On the record panel Sern was looking at, the one remaining line had a blank end. He put a dot at that end. Three days.
+
+Ater, heading back toward the dark exit, passed the first machine without stopping, and the first machine watched his back.
+
+"What does that man do?"
+
+"He is a man who stands."
+
+The old machine answered.
+
+The first machine lowered its optical eyes.
+
+Sion took out the metal plate. Two lines. Sern's record panel held one line and one dot, and his own plate held two lines. He put the plate back in his pocket.
+
+The threshold was closed, and the worn spot showed under the lamp. In three days it would be worn again.
+
+Inside, the injured person coughed once, and the tired-faced woman's voice came low. The words didn't carry.
+
+Han Jiwoo closed the joint she had opened.
+
+"Try standing."
+
+The second machine stood, and the leg held.
+
+One step. No drag.
+Two steps. It dragged.
+
+"Not yet. Sit."
+
+The tip of the screwdriver pointed at the joint.
+
+The machine sat down again, and Han Jiwoo opened the joint again.
+
+"It's three days."
+
+She said it to the inside of the joint.
+
+The first machine didn't answer; it was looking at the closed gap. On the floor in front of the gap, the second's gear still lay where it had been set down. A strap, a panel, an empty canister. It picked up the empty canister and shook it. When nothing came out, it set it back down.
 
 ---
 

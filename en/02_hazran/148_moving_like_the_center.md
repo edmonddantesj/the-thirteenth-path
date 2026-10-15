@@ -1,192 +1,202 @@
-# Episode 148. A Place That Moves Like the Center
+# Episode 148. Moving Like the Center
 
-The further in
-and the further up they went,
-the more Serakion seemed to converge in a single direction.
+The further in and the further up they went, the quieter it got.
 
-Sound,
-light,
-footsteps,
-the timing of every pause.
+Footsteps dwindled, voices dwindled, and the light didn't waver. Only the sound of the second recovery hand's leg remained, striking the walls and coming back, and because there was no other sound, Han Jiwoo counted it.
 
-Going higher, this world didn't simply grow more lavish.
-If anything, it grew more alike.
+The next sector they reached was wider and quieter than the last.
 
-The beings moving through it came, little by little, to share the same rhythm.
+There were decorations, but not many, set at equal intervals. The light was warm, yet it had no heat. When Han Jiwoo laid the back of her hand to the slit, it was the same as her own skin. Warm light, and it wasn't warm.
 
-Han Jiwoo felt it first in hands,
-Ater read it in the way people lived,
-and Kael caught it in how the structure forced that rhythm on them.
+The machines moved, but made no large motions, and the seated humans were the same.
 
-The next section they reached
-was wider and quieter than the last,
-and yet, strangely, it felt emptier.
+The moment he saw the space, Ater spoke, low.
 
-There was plenty of ornament, but never too much;
-the light was warm, but it held no body heat;
-the machines moved courteously,
-but so precisely that they wiped out any sense that anyone was *living* there.
+"This is not a place where people live. It seems a place where living has already been put in order, all the way to the end."
 
-The moment he saw the space, Ater said, low,
+"What's 'in order' supposed to mean?"
 
-"This is not a place where people live.
-It seems a place where living has already been put in order, all the way to the end."
+Han Jiwoo asked.
 
-That was exact.
+"That there is nothing more to do."
 
-The lower sections still had the friction of living.
-Signs of use,
-marks of repair,
-cracks where feeling leaked out,
-supports patched together somehow, by force if need be.
+Ater answered.
 
-But here there was almost none of that.
+"Nothing to fix, either."
 
-Everything had already been set at a proper distance and in a proper order.
+Beyond the slit Han Jiwoo peered through, there was nothing to fix. No cracks in the walls, no marks on the floor, no scars on people's hands. She looked down at her own hands.
 
-People sat quietly,
-machines made no large movements,
-no one was in a hurry,
-and no one got lost.
+The lower sectors had friction, signs of use, marks of repair, places forced together, but here there was none. The humans sat quietly while the machines passed. No one was in a hurry, and no one asked the way.
 
-That was exactly why
-this place was more frightening than below.
+Along a corridor not far off, humans and machines passed together.
 
-Never getting lost
-might mean never having to choose your own way.
+There were four humans and two machines, and the humans' clothes went beyond clean; each was different. One had short sleeves, so the hands showed entirely, and one had a wide neckline, so the whole line of the face showed. One only stood, without any ornament. The fourth had two marks on the neck.
 
-Just then, along a passage not far off,
-a group of people and machines could be seen passing together.
-
-They were far more ordered than in the previous section,
-and the people's clothes went beyond simply clean;
-they felt tuned to each person's role and position.
-
-Some were dressed so their hands showed best,
-some so the line of the face came through softly,
-some so that just standing there without a word, they gave off a sense of calm.
-
-The moment Han Jiwoo saw it, she said, very low,
+Watching them, Han Jiwoo spoke very low.
 
 "Now even the way they dress people is different."
 
 The first recovery hand answered briefly.
 
-"The higher you go,
-the clearer it is what they're used for."
+"The higher you go, the clearer it is what they're used for."
 
-It was short,
-but enough to make Han Jiwoo's expression colder.
+"The one with short sleeves?"
 
-Serakion does not stop at choosing people and polishing them.
-It designs even what each of them is supposed to look like.
+"Hands."
 
-Then a person no longer exists only in their own body.
-They come to exist wearing the very impression that world expects of them.
+"The one with the wide neck?"
 
-Ater was watching the scene
-when he stopped, at the sight of a person bowing to a machine with complete ease.
+"Face."
 
-It wasn't frightened obedience.
-Nor was it trained protocol.
+"The one with nothing?"
 
-It was a gesture so familiar
-that it looked like the person's own.
+The first answered after a beat.
 
-Ater muttered, low,
+"Standing."
+
+Han Jiwoo looked at that person. Even when a machine passed, the person didn't move, only stood. Their breathing showed, and that was the only thing that moved.
+
+"How long do they stand?"
+
+"I do not know. They were standing every time we came."
+
+"The same person?"
+
+"I do not know. It is the same place."
+
+When Han Jiwoo looked at that place, the footprint shapes on the floor were worn. They were the only worn marks in the place.
+
+"Shift change?"
+
+"I have not seen one. I have seen someone standing there, but I have never seen anyone step into it."
+
+Beyond the slit, that person still wasn't moving.
+
+Han Jiwoo saw that the person's knees didn't bend and their ankles didn't bend; only the breath moved.
+
+"And the two marks?"
+
+"I do not know. This is the first time I have seen two."
+
+Ater looked at the two marks set one above the other on that person's neck, then touched his own neck and took his hand away.
+
+The person's fingertips were more thickly transparent than anyone else's, so when the light caught them, the whole hand showed through.
+
+"What does that person do?"
+
+"I do not know."
+
+The first answered.
+
+"I said this is the first time I have seen two."
+
+Ater watched that hand all the way, until the person turned the corner.
+
+A human bowed to a machine.
+
+It was natural, neither deep nor shallow. When the machine didn't stop, the human raised their head and walked half a step behind it.
+
+Watching it, Ater muttered, low.
 
 "At this point, obedience itself must become a habit of daily life."
 
-It also sounded like mockery aimed at his own world.
+"And the Empire?"
 
-The Empire puts obedience on loud display.
-Serakion melts obedience into everyday life
-so that it looks like nothing more than a natural gesture.
+Han Jiwoo asked.
 
-Which of the two was crueler,
-Ater seemed to be asking himself all over again.
+"The Empire tells you to bow."
 
-Kael had been reading the closure structure of the upper sections all along.
+"And here?"
 
-And only here
-did he seem to reach a conclusion colder than before.
+"It does not."
 
-"There's not much need to close anything here,"
-he said, low.
+Ater said.
 
-Han Jiwoo looked at him.
+"They bow anyway."
 
-Kael went on without taking his eyes off it.
+Without lowering his own head, he stepped back from the slit and put his back to the wall, then a beat later put his eye to the slit again.
 
-"People already line up on their own inside."
-"The closing structure is more of a last safeguard."
+Kael was studying how the upper sector closed.
 
-That deepened the terror of Serakion's upper level.
+He ran his eyes over the walls, the ceiling and the floor in turn, looking for seams, and there were few. Four. He held up four fingers and didn't fold them.
 
-Below, things have to be closed.
-Above, everything is already aligned before it needs closing.
+"There's not much need to close anything here."
 
-So this upper order,
-while it never appears to be held in place by force,
-is in fact far stronger.
+His voice was low.
 
-Because the very thought of going against that order
-keeps shrinking, little by little, inside everyday life.
+Han Jiwoo looked at him, but Kael went on without taking his eyes off it.
 
-Just then,
-a very faint ripple of light brushed across the wall from deeper in the section.
+"They're already set up to line themselves up from the inside. The closing structure is closer to a last safety catch."
 
-The instant they saw it, a few machines
-corrected their posture by an absurdly small margin.
+"Only four?"
 
-No one had given an order.
-No one had reacted in any large way.
+"Four. Down below it was over ten."
 
-But unmistakably,
-the influence of some center had passed over that entire space for an instant.
+"Why?"
 
-Han Jiwoo felt an instinctive distaste at the sight.
+"Because down below they run. Up here they don't."
 
-Ater, by contrast, didn't let that small reaction slip by, and watched it longer.
+The four fingers he had held up stayed as they were.
 
-"Even without seeing it,
-they all already know, and move accordingly,"
-he said, low.
+Han Jiwoo looked at the seated people. None of them looked like they would run. They sat.
+
+Deeper in the sector, the light wavered once, very faintly, as if skimming across the wall. Han Jiwoo didn't see it; Ater did.
+
+A few machines corrected their posture, very slightly. Shoulders by half a knuckle, heads by half a knuckle. No one had given an order; the light had only passed. The humans corrected themselves too, a beat later than the machines, by the same amount.
+
+Watching those shoulders, Han Jiwoo felt a distaste that pulled at the back of her neck. She did not correct her own shoulders. On purpose.
+
+Ater watched that small reaction for a long time.
+
+"Even without seeing it, they all already know, and move accordingly."
+
+He said it low.
 
 The second recovery hand answered very briefly.
 
 "That's what there's most of here."
 
-It wasn't an explanation.
-But it was enough to describe this upper zone.
+"What is that light?"
 
-The center need not be in sight,
-orders need not come down loudly,
-it is enough for order to have soaked into daily life.
+"I do not know."
 
-Then, at one side of an orderly upward line,
-three people who looked younger than any before stopped for a moment with two machines.
+The second answered.
 
-One of them, for just an instant,
-missed the beat for stopping.
+"When it passes, they all do that. That is all I know."
 
-It was a tiny mistake.
-Barely noticeable at all.
+"Is it the center?"
 
-But the machine right beside them did not scold the mistake.
-Instead, ever so gently,
-as though it had always been that way, it made up the half beat for them again.
+"The center does not come down this far."
 
-That scene was worse.
+The second looked at the ceiling.
 
-Not because there was no violence,
-but because it seemed to mean that, by now, violence no longer needed to look sharp at all.
+"Only its shadow comes down."
 
-Serakion's upper order
-was a world where even the slightest misstep
-was courteously put back into alignment.
+The ceiling Ater looked up at was smooth, with nothing there. Then he looked at his own shoulders and found they had been corrected without his knowing. He let them drop again.
 
-Han Jiwoo watched it and spoke almost through gritted teeth.
+Han Jiwoo saw it.
+
+"You did it too."
+
+"I did."
+
+Ater said.
+
+"The body went first."
+
+Han Jiwoo looked at her own shoulders; they were down, and she left them there.
+
+To one side of the orderly upward route, three young humans stopped for a moment with two machines.
+
+All three had transparent fingertips, and Han Jiwoo recognized it.
+
+One of them missed the beat for stopping by half a beat, so a foot went out one more time.
+
+The machine beside that child neither scolded the mistake nor made the child stop; it slowed its own step by half a beat and matched it to the child's. Then the two stopped together, as if they always had.
+
+The child stood looking straight ahead, unaware of having been wrong, or of the machine matching them.
+
+Han Jiwoo spoke almost through her teeth.
 
 "At this rate they'll have people breathing in step too."
 
@@ -194,26 +204,73 @@ The first recovery hand answered briefly.
 
 "Just about."
 
-That one short answer
-drove the recon team into a deeper silence.
+"Just about?"
 
-What they saw up there that day
-was not luxury or a show of power.
+"Not the breathing, yet. If they matched even that, the ones over there would have nothing left to do."
 
-It was something more frightening.
+"And if they have nothing to do?"
 
-A place where people come to live
-with even the rhythm of their own bodies set to this world.
+"Then they are gone. A guide machine with nothing to guide is not kept here."
 
-And a place where, once you grew used to that rhythm,
-breaking out of it became far harder than a simple escape.
+Han Jiwoo saw the three children's chests rise and fall to different beats; that alone was different. She watched that beat for a long time.
 
-The recon team
-was now beginning to understand that almost with their bodies.
+Kael slowly folded the four fingers one by one, and when they were all folded, he looked at his fist.
 
-And that very understanding
-was making it ever clearer why the rescue to come
-would not end with simply opening a door and running.
+"We don't need to come here."
+
+Kael said.
+
+"Why?"
+
+"There's nothing to pull out."
+
+Han Jiwoo looked at the seated people. The laughing people, the standing person, the two marks.
+
+"There are people here."
+
+"There are."
+
+Kael answered.
+
+"Nobody who'll run."
+
+Han Jiwoo looked at the children. The three chests rose and fell to different beats.
+
+"What about them?"
+
+Kael looked at the children for a long while.
+
+"They don't stay here. They pass through."
+
+"To where?"
+
+"Up."
+
+Ater was still looking at the ceiling. The light didn't pass again, but the machines' shoulders stayed corrected.
+
+When the second resettled its leg, it made a sound. In the upper sector, no one heard it. The walls swallowed it. Still, Han Jiwoo heard it. It was the only sound in there that didn't match.
+
+The first raised a hand and spoke low.
+
+"We cannot go any higher. This is as far as the path goes."
+
+"Because there's no path?"
+
+Han Jiwoo asked.
+
+"Because the path can be seen. From here on there is nowhere to hide. The walls reflect everything."
+
+Han Jiwoo looked at the smooth wall that faintly reflected even the five of them inside the observation passage, and stepped back from it.
+
+"And above?"
+
+Ater asked.
+
+"Where they send people up. Where those children are going."
+
+As Ater watched, the three children started walking again. On the same beat as the machines, only their chests on a different beat.
+
+The five turned and headed down, the sound of the second's leg going ahead of them.
 
 ---
 

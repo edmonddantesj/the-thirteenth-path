@@ -1,271 +1,191 @@
-# Episode 157. A Higher Price
+# Episode 157. Quieter, and Costlier
 
-The second rescue
-made less noise than the first.
+The second rescue made less noise than the first.
 
-But that was not because it was less dangerous;
-it was because the danger had gone deeper.
-
-In the first rescue, outside hands had opened the gap.
-This time, though, a different time had to come alive first from inside the line.
-
-So for the first few beats,
-it looked as if the children inside were fighting before the rescuers were.
-
-Once the small child near the end of the line
-had slipped the beat twice,
-and even the human right beside had let a shoulder lag, very faintly,
-Serakion's kind alignment was briefly unsure, for the first time, what to correct first.
-
-That half a beat.
-Into that short and far too costly time,
-the second recovery hand and Han Jiwoo went in.
-
-This time they did not grab and pull first.
-
-Han Jiwoo dropped her whole body low,
-down to roughly the eye level of the small child inside the line.
-
-And she said, very briefly,
+Han Jiwoo was at the child's eye level. She spoke very briefly.
 
 "Now."
 
-It didn't sound like an order,
-or like a plea.
-It was simply a sign that the outside had barely managed to join
-a time that had already begun inside.
+The child wasn't startled; it was the face of someone who had been waiting. The feet turned first, and the foot that was already half a step ahead went a full step further. The hands followed late, and the whole body, frightened as it was, turned toward the outside of the column.
 
-The small child wasn't startled.
+Han Jiwoo did not grab the hand; she let it come. Only once the child's hand was inside hers did she hold on. It was a cold hand, and the translucent fingertips slid under Han Jiwoo's fingers. She gripped harder, but the child made no sound.
 
-If anything, in that moment,
-the child moved as if they had already been waiting, inside, for those same words.
+Han Jiwoo turned toward the gap, the child turned after her half a beat late, and the feet came off the footprint shapes.
 
-The feet turned first,
-the hands followed late,
-and the whole body, frightened as it was, clearly faced the outside of the line.
+The adult right beside the child stood with the machine's hand resting on their shoulder, the trembling hand gone still. Without turning their head, the adult watched the child go with their eyes alone.
 
-The second child, right beside, was harder.
+Han Jiwoo saw the adult's mouth move without sound, but she couldn't read it. The adult closed their mouth and looked ahead, and the machine's hand stayed on their shoulder.
 
-This one had slipped out of line first,
-and, by the same token, had been the first to get scared.
+The second child was harder.
 
-When the second recovery hand reached out,
-the child's body shrank back,
-and the alignment line behind moved almost instantly to fill the gap.
+It was the child behind the small one—not the one who had slipped first but the one who had seen it happen. Frightened by as much as they had seen, the child shrank back when the second recovery hand reached out. The rear alignment line moved to close that space, and a machine came half a step closer.
 
-Ater saw that,
-and this time threw out not a question but one very low confirmation.
+Seeing that, Ater spoke—not a question this time but a very low confirmation.
 
-"This line. Has the order changed?"
+"This column. Has the order changed?"
 
-One of the guide machines responded.
-More precisely,
-it had no choice but to respond.
+The first machine responded. It had no choice but to respond. The adult's shoulder, the child who had gone out, the confirmation from outside, a fellow machine's half step: four. Which first. The light in the machine's face stopped. One beat.
 
-Right now Serakion, caught between the misalignment on the children's side,
-the far-too-natural confirmation that had come in from outside,
-and the new alignment of its fellow machines,
-had to reset its priorities in an instant.
+Kael spoke from the corner.
 
-Kael didn't miss that gap.
+"Up to the second child. Don't look at the third right now."
 
-"Up to the second,"
-he said, low.
-"Don't look at a third now."
+The second set its jaw and dragged its leg a step toward the second child, and the leg scraped the floor. A sound. The face of one of the machines at the rear turned that way, and Ater stepped half a pace in front of that machine.
 
-The words were cruel,
-but exact.
+"Is it this way?"
 
-Reach for more,
-and the two inside times that had just come alive
-could fold back in all at once.
+The machine's face turned back to Ater.
 
-Teeth set, Han Jiwoo
-gave the second child's wrist one very short pull.
-
-This time it was less dragging the child out
-than teaching, with her body, where the gap to run through was.
-
-The child twisted once,
-and then came out of the line, nearly falling.
+Han Jiwoo clamped her teeth and gave the second child's wrist a short pull. It wasn't dragging the child out; it was showing, with the body, where the gap was. The child twisted once and came out of the column as if falling, and the second caught the child. Its leg held.
 
 The problem came next.
 
-A small figure that looked like a third child
-was, in that moment, looking this way first from inside the line.
+From inside the column, a third child was looking this way.
 
-It was not the child Han Jiwoo had read first,
-Ater had not marked them either,
-and by the recovery hands' measure, too, that side was very likely the dangerous one on this beat.
+Not the child Han Jiwoo had read, nor the one Ater had marked, but a small child between two adults at the end of the column. That child turned their head and watched the two going out until they were gone. Seeing those eyes, the second's step lagged a beat, and Han Jiwoo struck the second's arm. The second walked on.
 
-But strangely, that child
-didn't look like a child seen for the first time.
+Han Jiwoo looked at that child. The habit of checking the side first, the eyes that never missed who was slipping out, the way of turning the body and then swallowing it back. The child turned half a step this way, then set their feet back on the footprint shapes. Swallowed it.
 
-The habit of checking sideways first, to the very end, even inside the line,
-eyes that looked frightened yet never once lost track of who was getting out,
-and the way they turned their body, far too briefly, and then swallowed the movement back—
-all of it stayed in Han Jiwoo's eyes, strangely so.
+Han Jiwoo's breath stopped. She knew that habit, and knew where she had seen it. Hazran. The children who looked back from under the ramp, the children who watched the feet beside them before their own.
 
-Ater looked that way at almost the same moment.
-He could not explain it either,
-but somewhere in that small hesitation
-he felt something pass that resembled the grain the Hazran children still carried.
+Ater saw that child too. He knew children who did not look up. That child was not simply not looking up; they looked to the side, looked back, looked at whoever was leaving. His jaw set.
 
-But that child had clearly
-seen the two who had just slipped out.
+Once again the child's feet turned half a step this way.
 
-And had turned their own feet, very briefly,
-this way.
+Han Jiwoo's hand went that way before she knew it. Still holding the first child's hand—the other hand.
 
-Han Jiwoo's eyes wavered.
-
-Kael knew at once.
-
-This could become not a rescue but a lure.
-Push harder now,
-and the whole line could collapse,
-and they could lose even the two who had just come alive.
-
-He said it almost like a cut.
+Kael cut it off.
 
 "No."
 
-The moment the word fell,
-a very low alignment tone sounded from behind.
+Han Jiwoo's hand stopped in midair.
 
-It was the sound of Serakion learning again,
-and starting to adjust again.
+The third child looked at that stopped hand, then set their feet exactly on the footprint shapes and looked ahead. As Han Jiwoo's hand slowly came down, the first child pulled it toward the gap. Han Jiwoo was dragged half a step.
 
-This time Ater stepped one pace further in, openly.
-On purpose, he went halfway past the point of looking too natural.
+From the rear, the alignment tone sounded low.
+"Restoring alignment."
+It was the sound of Serakion starting to set itself right again.
 
-From here on it was no longer about slowing the suspicion;
-this was the stretch where they had to get the people out before suspicion rose.
+Of the two ceiling lines, the new one moved. The line Kael watched from the corner was in a place no one could brace. He folded a finger.
+One.
+Two.
+The new line came halfway down.
 
-"Take them out,"
-he said, low.
+Ater deliberately stepped one pace further in, past what would look natural. Now was not the time to slow suspicion down; it was the time to get people out before suspicion rose.
 
-This time the first recovery hand closed in from behind.
+"Take them out."
 
-The closing sequence, tighter than in the first rescue—
-it knocked it out of step almost with its own body, without breaking it.
+He said it low.
 
-Kael kept talking.
+When Han Jiwoo didn't move for a beat, Ater spoke again without looking back.
 
-"Not to the right."
-"Down, this time."
+"It is now."
 
-The path they had used in the first rescue
-was very likely one Serakion now remembered too.
+Han Jiwoo moved.
 
-So this time it had to be a worse path.
-Narrower,
-rougher,
-a path no one would ever have chosen first before.
+The first recovery hand closed in from behind and, with its body, knocked the closing sequence out of step. More tightly than in the first rescue, it blocked two places, one at a time.
 
-Han Jiwoo didn't let go of the first child's hand,
-and the second recovery hand held the second child almost as if lifting them up.
+Kael spoke.
 
-The two were quieter even than the three brought back in the first rescue.
-But that quiet was not cooperation;
-it was closer to fear, as if one wrong breath would drag them back inside the beat.
+"Not the middle. Low this time."
 
-Behind them, the guidance voice, which had sounded like a low and gentle voice,
-had clearly come a good deal closer this time.
+The middle was the path they had used the first time, the path Serakion remembered. The low one was narrow and rough, a path no one would pick first. So, low.
 
-Serakion still does not give chase with a raised voice.
-It simply, more and more gently,
-more and more surely,
-proposes again the position they ought to return to.
+At the mouth of the low path was a knee-high ledge. Han Jiwoo went over first and pulled the first child up. The child's knee scraped the ledge, but there was not a sound.
 
-That was what made it more horrible.
+The second stood before the ledge holding the second child, and the problem was the leg. It lifted the child onto the ledge first, and Han Jiwoo took the child. As the second climbed over, its leg struck the ledge and made a sound, but no one looked back.
 
-The second child stopped once, halfway.
-Not frozen solid.
-But the child seemed, for a moment, unable to decide whether the body should go forward
-or go back.
+While Han Jiwoo kept hold of the first child's hand, the second held the second child's hand and walked with its leg held straight. The two of them were quieter than the three had been in the first rescue—a quiet in which one wrong breath might send them back.
 
-Just as Han Jiwoo was about to turn,
-the first small child caught the back of that child's hand first.
+The soft guide voice came closer.
+"Please return to your assigned position."
+It didn't chase; it suggested. Once more.
 
-A very small,
-unsteady hand.
-But unmistakably,
-this time the time of the one rescued pulled another along.
+The second child stopped halfway.
 
-Seeing that, Han Jiwoo held her breath for a moment.
-Ater, glancing back, didn't miss it either.
+Not frozen: the feet could do neither, go forward or go back. Stopped there still holding the child's hand, the second could not keep its leg under it, and one knee buckled.
 
-Serakion had tried to control the children by binding them to one another.
-But in this moment, at least,
-the bond between the children worked the other way.
+Han Jiwoo started to turn back.
 
-In this second rescue, that was the closest thing to a miracle—the most precarious,
-and the strongest.
+The first child was quicker.
 
-Kael said, low,
+Still gripping Han Jiwoo's hand, the child took the back of the second child's hand with the other, small and trembling. The second child looked at that hand, and the feet moved forward.
+One.
+Two.
+
+Ater, behind, saw Han Jiwoo swallow her breath. A child was pulling a child.
+
+Kael spoke low.
 
 "All the way, now."
 
-The first and second recovery hands caught the last corner at the same time.
-They slowed the closing sequence,
-left enough width for two children to pass,
-and bought just enough time for Han Jiwoo and Ater to push themselves through.
+The first and the second held the last corner, the second holding on with one knee. They slowed the closing sequence, left enough width for two children to pass, just enough for Han Jiwoo and Ater to get in.
 
-And only just,
-the two crossed into the hidden layer.
+They were across.
 
-This time they didn't collapse right away, as in the first rescue.
-If anything, they were quieter.
+The gap closed. Under the yellow lamp of the hidden level, Sion stood holding the board.
 
-So it was several beats late before everyone understood,
-oh, they really had come back alive.
+They stayed quiet without collapsing right away; only a few beats later did they know they had come back alive.
 
-But at the same time,
-Han Jiwoo looked back.
+Only then did the second sink down, knee first, and Han Jiwoo, still holding the children's hands, looked at that knee. The joint had split open, a width no screwdriver would fix. She said nothing. Neither did the second.
 
-The third small child, who had looked this way for a moment from inside the line,
-was already being pushed back inside Serakion's beat.
+Han Jiwoo turned and looked at the closed wall.
 
-For a very brief moment,
-truly an instant.
-
-That child's gaze reached Han Jiwoo,
-then turned straight back away.
-
-They were not the eyes of a child who had slipped through their hands;
-they were the eyes of the one who, on this beat, could not be brought out in the end.
+The third child, who had looked this way from inside the column. Once, just before the wall closed, the child's eyes had reached Han Jiwoo and then gone back to the footprint shapes. Not the eyes of a child no one had managed to grab, but the eyes of the one they couldn't bring out on this beat. Eyes that knew there would be a next time.
 
 Han Jiwoo couldn't say a word.
 
-Kael,
-Ater,
-the recovery hands,
-they all knew exactly what this success meant.
+Ater stood beside her and looked at the same wall.
 
-They had gotten two out.
-But one had stayed.
-And that one
-had clearly just looked this way.
+"I saw it."
 
-That fact turned the success of the second rescue
-into something sharper than joy.
+He said.
 
-That day, what came back into the hidden layer was two children.
+"As did I."
 
-Fewer than in the first rescue.
-Quieter,
-more dangerous,
-and so more costly.
+Han Jiwoo didn't answer.
 
-But clearly,
-this time too, Serakion had failed to close completely.
+"Next time."
 
-And at the same time,
-what remained this time stood out more sharply than the first time.
+Ater stopped there. He did not go on.
 
-The reason they had to come back again,
-and the face they had not managed to bring out this time.
+Sion looked at the board and marked two of the three dots as arrived. He left the third dot empty along with the empty square beside it, so now there were two empty squares. Seorin looked at the board, then at the dot she had made on the floor, but she didn't rub it out with her foot.
+
+"Two."
+
+Luhai counted.
+
+"It's two."
+
+No one answered.
+
+Luhai set two water bowls in front of the two children and sat down. He had brought a third bowl as well, and he set it back down beside him, empty; the first child looked at that empty bowl.
+
+The first child was holding Han Jiwoo's hand and the second child was holding the first child's, so the three made one line. Han Jiwoo looked at that line. It was a line that started from her own hand.
+
+The old machine stood beside the second's knee and looked down at it.
+
+"This time. It cost more."
+
+"How much?"
+
+Luhai asked.
+
+The old machine looked at the second's knee.
+
+"That much."
+
+The second looked at its own leg and didn't answer.
+
+The old machine lowered itself. It took a long time, and at the end its optical eyes rested on the split joint.
+
+"It needs small hands."
+
+Han Jiwoo looked at her own hands. Both were hands holding a child's hand. The old machine nodded.
+
+"Later."
+
+Still holding the children's hands, Han Jiwoo put her back to the wall, closed her eyes and opened them. The third child's eyes. She didn't close them again.
 
 ---
 

@@ -1,152 +1,144 @@
 # Episode 131. What They Kept
 
-The next day,
-the air in this old layer was quieter than the day before,
-and a little clearer.
+The next day, this old layer was quieter than the day before.
 
-The crying had thinned,
-the groaning had thinned,
-and instead the way people looked at one another had changed.
+The crying had thinned, and so had the groaning. The lamp that had flickered all night was still on, and someone had set a bowl of water beneath it, so the light showed in the water.
 
-Every face now said
-they had learned this was not just a place to hide for a day.
+In one wide sector further in, Sion's group, the people from Hazran, and the humans and machines who had been on this layer a long time gathered again.
 
-Those who survive end up staying,
-and those who stay must, in the end, say what their share is.
+Everyone sat along the walls, so the middle was left empty. No one stood in the middle.
 
-That seemed to be the way of this place.
-
-In one wide inner section,
-Sion's group, the people from Hazran,
-and the humans and machines who had been in this layer a long time gathered again.
-
-No one called it a meeting,
-but it was clearly that kind of hour.
-
-The old machine, still keeping the manner of something that did not want to look like the center,
-had stopped a little off to one side.
-
-And yet, strangely,
-every gaze passed over it once in the end.
+The old machine had stopped off to one side, beside a pillar. While people's eyes passed over it one by one, it did not meet them; it kept looking at the floor.
 
 It spoke first.
 
-"I have come to hear what I spoke of yesterday."
-"What each of you has brought this far without losing."
+"We have come to hear what was spoken of yesterday. What each of you has carried here without losing it."
 
 A short silence.
 
-No one could answer right away.
+The old Hazran man turned over the metal plate on his knees. The eleven lines went face down and the empty side came up, and he laid his hand on the empty side.
 
-Everyone there sensed
-that the question was not simply asking about skills or supplies.
+Sion laid his hand over his pocket. The plate inside had two lines on it.
 
-It was a more uncomfortable question.
+The first to speak was that old man.
 
-What they had not thrown away to the end.
-What they had never let slip.
-What they had brought along so it would not vanish.
-
-Sion felt that the question, strangely,
-resembled the sense that had stayed in him when he left Hazran.
-
-He had kept nothing whole.
-But that didn't mean he had truly come empty-handed.
-
-The first to speak
-was an old man from Hazran.
-
-He hesitated a long while,
-then spoke almost apologetically.
+He hesitated a long while, then spoke almost apologetically.
 
 "I still know how to farm."
 
-After those words,
-the space went strangely quieter.
+When he had finished, he lowered his head, and the hand on the plate closed.
 
-It was no great skill,
-and nothing that would help in a fight right now.
+In the quiet that followed, Luhai started to say something, then shut his mouth.
 
-But the old machine gave a very small nod, without hesitating.
+The old machine nodded, very slightly. Its head took time to go down and come back up.
 
 "That is something kept, too."
 
-That one line
-shifted the grain of the air a little.
+As the man raised his head to look at the old machine, the hand on the plate opened.
 
-What was being asked here was not specialness.
-It was closer to counting, widely, the kinds of things that could be kept alive.
+Next, the woman who came with two children spoke, low. One child was on her lap, the other beside her.
 
-Next, a woman who had brought two children spoke, low.
+"I know how to get children to sleep. Even when they keep crying, how to help them catch their breath without being scared."
 
-"I know how to get children to sleep."
-"Even when they keep crying,
-how to help them catch their breath without being scared."
+The child on her lap took hold of her hand.
 
-Again the old machine answered briefly.
+The old machine's answer was short.
 
 "That is needed."
 
-After that,
-the words began to come out one by one.
+At that, the tired-faced woman raised her head and looked at the woman who came with two children. When their eyes met, the tired-faced woman was the first to give a small nod.
+
+After that, the words began to come out one by one.
 
 "I can patch a cracked water can."
+
+The man with cloth wound around his leg spoke from where he leaned against the wall.
+
 "I don't know machines, but I know a bit about sorting wiring."
+
+It was the young man who had spent the night with his back to the wall. The cloth wound around the back of his hand was new, and once he had spoken, he closed his eyes.
+
 "I haven't forgotten how to read the desert wind."
+
+It was the old woman Luhai had pushed along. At that, Luhai looked at the old woman.
+
 "I know where to hold the wounded when you move them."
 
-Words that were nothing grand.
-But exactly because of that,
-they were the kind of words that could last longer.
+It was the one who had come alone; yesterday a hand had covered that mouth, but not today.
 
-Listening, Han Jiwoo slowly came to see
-that the question was not measuring what a person was worth,
-but feeling for the skills and senses that had not vanished.
+Each time words came out, the old machine nodded to the same depth. Farming and water cans and wind and the wounded, all to the same depth.
 
-But at the same time,
-that made it a question she couldn't brush past.
+Leaning against the wall, the young one spoke quietly, though no one had asked.
 
-Because she already knew
-what she would have to say when her turn came.
+"…I don't know yet."
 
-The old machine's gaze finally turned toward Han Jiwoo.
+The old machine looked that way.
 
-For a moment Han Jiwoo said nothing.
+"That is kept too."
 
-She looked down at her hands.
+The young one raised his head.
 
-Hands that had fixed things countless times,
-held things together by force,
-touched them while telling them to hold on.
+"Not knowing?"
 
-Then she spoke, low.
+"Saying that you do not know."
 
-"Before giving up on something broken for good,
-I know how to try once more to bring it back."
+When the young one said no more, the tired-faced woman tapped his knee once.
 
-It was short,
-yet strangely it stayed longer.
+The old machine looked at the machine that had opened the way.
 
-The old machine looked at her a long while before it spoke.
+"Machines speak too."
+
+The machine that had opened the way answered after a beat.
+
+"How to borrow someone else's voice."
+
+Luhai looked at that machine, and so did the people from Hazran. It was the machine that had gotten them out with that voice.
+
+"Did you give back what you borrowed?"
+
+The old machine asked.
+
+"I gave it back."
+
+The old machine nodded. To the same depth.
+
+Sern was writing what was said on his record panel, one line each. When Han Jiwoo looked at the record panel, they were plain lines, with no order, no size, no mark at all beside what was written.
+
+The old machine's gaze came to Han Jiwoo.
+
+For a moment Han Jiwoo said nothing and looked down at her hands. Hands that had wound cloth yesterday, hands whose tool pouch was two screwdrivers short.
+
+She spoke low.
+
+"Before giving up on something broken for good, I know how to try once more to bring it back."
+
+Having said it, she laid her hands on her knees.
+
+The old machine looked at her for a long time. Its uneven optical eye rested on her hands.
 
 "Here, that is closer to an attitude than a skill."
 
 Han Jiwoo narrowed her eyes slightly.
 
-Not praise,
-not hiring,
-not sorting.
+"Meaning that's bad?"
 
-But it wasn't something she could take lightly either.
+"No. It is something that lasts."
 
-If anything, it was closer
-to the way beings who had stayed here a long time recognized one another.
+Han Jiwoo didn't ask anything more. She turned the hands on her knees palm up and looked at her palms.
 
-Luhai had been standing beside Han Jiwoo,
-and when his turn came he hung back for just a moment.
+Beside her, Luhai spoke low.
 
-At first he wore the face of someone about to play it off as a joke.
-But this time he couldn't.
+"An attitude, it says."
+
+"Quiet."
+
+Han Jiwoo was still looking at her palms when she said it.
+
+Luhai went quiet, but the corners of his mouth stayed up.
+
+The machine that had opened the way had been watching those hands; it touched the mark below its neck.
+
+Luhai, standing beside Han Jiwoo, took his time when his turn came. The corners of his mouth went up once, then came down.
 
 Only after a long while did he blurt it out.
 
@@ -154,114 +146,103 @@ Only after a long while did he blurt it out.
 
 A short silence.
 
-Luhai added, as if it were nothing.
+Luhai added more than he needed to.
 
-"Don't know if I'm any good at it,
-but anyway, I try not to lose them."
+"Don't know if I'm any good at it, but anyway, I try not to lose them."
 
-This time a very small breath came from among the humans.
-It wasn't a laugh.
-It was closer to the reaction of people who understood
-how rare a kind of ability that was.
+At that, the old woman looked at Luhai, then down at her own wrist. The hand Luhai had kept hold of and pushed along yesterday.
+
+The very small breath from the human side was the tired-faced woman's, and it wasn't a laugh. She looked at Luhai once and lowered her eyes.
 
 Even when her turn came, Aka said nothing for a while.
 
-Sion thought she might not answer again.
+She looked at the old structures, at the people, and, one by one, at the machines that had stayed here. The machines met that gaze, and one machine turned its body slightly.
 
-But Aka looked at the old structures and the people,
-and at the machines that remained here, one by one,
-then spoke very quietly.
+Aka spoke very quietly.
 
-"I can tell where something's lying."
+"I can tell where something's false."
 
 No one spoke right away.
 
-A little later,
-Aka added,
+A little later, Aka added one more thing.
 
 "Places shut a long time, too."
 
-The moment those words fell,
-the gaze of a few machines that had been in this space a long time shifted, very faintly.
+The optical eyes of a few machines that had been in this space a long time moved. They looked at one another, then back at Aka. The old machine did not move, but its uneven light rested on Aka for a long time.
 
-Sion didn't miss it.
+Sion watched that light. It stayed longer than on anyone else.
 
-Those words,
-at least here, were not the kind to pass over lightly.
+Sern was brief.
 
-Sern said, briefly,
 "I read flows."
-And Seorin,
-after lowering her eyes a moment,
-spoke evenly.
 
-"What must not be mixed,
-I know how to keep apart to the end."
+He did not hold up his record panel; it stayed on his knees.
 
-It was not a showy answer.
-But in that one line
-was all the time she had spent dividing and holding people, supplies, and feelings so the space would not collapse.
+Seorin lowered her eyes for a moment, but her hand did not go to her hilt; she spoke with both hands on her knees.
 
-"I look first at what will hold and what will collapse,"
-Ater said.
+"What must not be mixed, I know how to keep apart to the end."
 
-Kael thought for a long while,
-then spoke, very low.
+As the old machine nodded, the tired-faced woman looked at Seorin for a long time.
 
-"When someone has to stay standing to the end,
-I can be the one who does not go down first."
+Ater spoke.
 
-It was dry, the way Kael was,
-but Sion, strangely, felt it was sad.
+"I look first at where things will hold and where they will give way."
 
-Someone has to be the one who holds out longest,
-and Kael had always been that one.
+As he spoke, he glanced once toward the dark exit where he had stood yesterday.
+
+Kael thought for a long time, closing his big hands and opening them.
+
+"When someone has to stay standing to the end, I can be the one who does not go down first."
+
+When he finished, he looked at no one, only at the floor. The hands Han Jiwoo saw were the ones that had wound cloth yesterday.
+
+"And you don't go down?"
+
+Kael raised his head.
+
+"If I do, I'll tell you."
+
+"First."
+
+"…First."
+
+Han Jiwoo nodded. Kael looked at the floor again, his hands clenched.
 
 At last the gaze came to Sion.
 
-Sion couldn't speak right away.
-
-Responsibility,
-debt,
-a road not yet finished.
-
-All of it was true,
-but said here just as it was, it seemed it would not quite reach.
+Sion couldn't speak right away; with the hand over his pocket, he pressed the metal plate. Two lines. Nothing under them.
 
 Only after a long while did he open his mouth.
 
-"When it's time to leave,
-I know when I'm not going to."
+"When it is time to leave, I know when I am not going to."
 
-After those words fell,
-a short silence passed.
+Having said it, he heard what he had said. He didn't take it back.
 
-Belatedly, Sion felt that what he'd said was a little strange.
-But he didn't correct it.
+A brief silence.
 
-Because what he had held on to until the very last in Hazran
-was, in the end, that sense.
+Looking at Sion, the old Hazran man turned his plate over. The eleven lines came face up.
 
-The sense of knowing when to stay,
-when to leave,
-and how much falls apart if you get the two wrong.
+The old machine was silent for a while, then spoke, very low.
 
-The old machine said nothing for a while.
+"That is often the last thing to be learned."
 
-Then it spoke, very low.
+No one answered that.
 
-"That is often
-the last thing to be learned."
+One line for each person who had spoken: Sern wrote the last line on his record panel. He did not count the lines, and he left the record panel open on his knees.
 
-After that one line,
-Sion felt this old layer had come a little closer than it had been the night before.
+The old machine pushed off from the pillar and took one step forward.
 
-It could not be called trust yet.
-But at least,
-it was the hour that confirmed none of them had come empty-handed.
+"From today, we use them."
 
-And that confirmation, above all,
-looked like the first threshold for deciding what could be entrusted to them next.
+It said.
+
+As the old man got up holding his plate, the woman who came with two children picked up a child. Luhai held out his hand to the old woman, and she took it and got up.
+
+Han Jiwoo, who had stayed sitting until then looking at her palms, looked at her tool pouch.
+
+Kael passed in front of her and went to where the heavy things were. The back she saw was the back of someone who had said he would tell her first.
+
+She too picked up something heavy and stood.
 
 ---
 

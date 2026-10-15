@@ -2,216 +2,176 @@
 
 The battle was already tilting to one side.
 
-For the first few minutes,
-it had looked as though the androids with faces were driving the Serakion legion back against all reason.
+For the first few minutes, the androids that had been given faces drove the Serakion legion back. The point ten steps in from the gray route entrance had been the line for a while, and now that line had been pushed five steps farther in.
 
-But the Serakion side had no intention of stopping.
+The Serakion side did not stop.
 
-When one fell, the next came straight in,
-and when the front rank broke, a rank that rammed in bodily took its place.
+When one fell, the next came straight in, and when the front rank broke, a rank that rammed in bodily took its place. The bodies that rammed in did not get up. The next bodies climbed over them. The broken bodies piled up on the passage floor into footing, and the higher that footing rose, the faster the ranks behind came over.
 
-It was less a breakthrough than attrition.
-Whatever heart and body this side had left to hold out with,
-it meant to grind down to nothing with numbers and numbness, and so it kept pushing in.
+On the rear line, Seorin was counting the column getting out. While the Hazran people pushed themselves one by one through the gap the two old machines had widened, Seorin tapped each one on the shoulder as they went through. Her tapping hand was getting faster.
 
-Even as she passed children back to the rear line,
-Han Jiwoo kept watching the androids that were left.
+"How many."
 
-By now she couldn't even tell at a glance how many remained.
+She asked Sern.
+
+"Twelve are out."
+
+"And the rest."
+
+"Three children. Six adults. Us."
+
+"Children first."
+
+Sern pushed a child toward the gap. The child did not go; their eyes were on the front line. Sern tucked the record panel under his arm and picked the child up.
+
+Han Jiwoo kept passing the children back to the rear line, but her eyes stayed on the androids that were left. She could not tell at a glance how many remained.
 
 One smiling mouth.
-One pair of round eyes.
 One crooked mouth.
+One short mouth.
 
-Beings that only a moment ago had worn different faces amid the children's giggles
-were now breaking one by one,
-losing their light,
-and each time one fell, its face went out with it.
+Each time one fell, the light in its face went out with it. Where the light died, the face went back to the color of metal, exactly the smooth face it had worn standing in front of the children earlier.
 
-The sight was so direct
-that no one could think of it as losing weapons anymore.
-
-A child from Hazran, worn out from crying, voice almost gone,
-kept repeating the same words.
+A child from Hazran, voice gone hoarse, kept repeating the same words.
 
 "That one… was mine…"
 
-The words lodged straight in Han Jiwoo's chest.
+Han Jiwoo didn't answer; she shifted her hold on the child.
 
-She was the one holding the child,
-and yet she couldn't hide the feeling that she was the one falling apart inside first.
+"It was mine…"
 
-Mine.
+"It's yours. Still."
 
-The word should have sounded like ownership,
-but now it meant the exact opposite.
+Han Jiwoo was holding that child. Each time the words came again, her arms tightened around the child, then eased. When she pressed the child's head into her shoulder so they could not see the battle, the child's dirt-stained fingers gripped her collar. She did not turn her own eyes away.
 
-I gave it a face,
-I took it in,
-and so I can't push it away as a stranger anymore. That was what it meant.
+Just then three Serakion units cut into the side line at once. They slid in along the wall, and a child heading for the rear line was knocked down. The child lay face down on the floor and could not get up.
 
-That meaning hurt so much
-that for a moment even breathing was hard for Han Jiwoo.
+Luhai threw himself that way. A Serakion unit came in between.
+Luhai's iron bar went into its knee.
+The unit buckled.
+The next unit came over it.
+Luhai was driven against the wall. The child was three steps away.
+He could not reach.
 
-Then three of the Serakion legion cut into the flank at once.
+Two of the remaining androids turned almost together. One to the right, one in front of the children.
 
-Two of the remaining androids turned almost together.
-One to the right,
-one in front of the children.
+The one that went right was the one with the crooked mouth. It pinned the first unit coming in along the wall flat against the wall, and light leaked from the pinned body. The one that went to the front was the smiling mouth. It planted its body between the children and the second unit, seized that unit's arms and wrenched them back.
 
-And in that moment
-Sion saw a third android moving very late, half a beat behind.
+Sion saw a third android moving half a beat behind.
 
-That one had been the farthest back.
-On his face were the two very clumsy eyes a child had drawn,
-and a mouth drawn far too short.
+That one had been the farthest back. On his face were the two very clumsy eyes a child had drawn, and a mouth drawn far too short.
 
-He was not as fast as the units just ahead of him.
-If anything, he was a step late,
-and that made him look all the more precarious.
+He was slower than the two ahead. He was late once, and by that much, the space between him and the enemy units was narrower.
 
-But for exactly that reason,
-Sion's eyes kept going back to that one.
-
-While the other two held the enemy units head-on,
-that last android paused, just long enough to look like hesitation.
-
-And then,
-instead of the front, he chose first the shortest way to a child who had fallen.
-
-The moment Sion saw that movement,
-he knew the android had already decided, in his own way, what he had to protect.
+While the other two held the enemy units head-on, that last android paused, briefly. His optical eyes went once between the front and the child lying face down, and then, instead of the front, he chose first the shortest way to the fallen child.
 
 A Serakion unit read that path and came crashing in almost at the same moment.
 
-The last android twisted and got between the child and the enemy unit first.
-There was a crash of impact,
-and one eye line on his face shook hard with the blow.
+The last android twisted and got between the child and the enemy unit first. There was a crash of impact, and one eye line on his face shook hard with the blow. Behind his back, the child lay flat on the floor, both hands over their head.
 
-But even as he was driven back, he never gave up that spot.
+Driven back, he still did not give up the spot. His sliding foot stopped just short of the child's fingers. He dropped low, hooked the enemy unit at the waist and bent it up as if lifting it, and went down with it, away from the child. Even as they fell, he kept the enemy unit's head pressed toward the floor.
 
-Instead he dropped low, hooked the enemy unit at the waist and bent it up and over,
-and went down with it, away from the child.
+In those few seconds, the other two were smashed almost together, farther in.
 
-In those few seconds,
-the other two were smashed almost together, farther in.
+The crooked mouth, on top of the unit it had pinned to the wall, took the three that followed all at once. The smiling mouth, still not letting go of the arms it had wrenched back, took the next unit's torso full in the chest.
 
-Light burst,
-metal shards poured down,
-and the places where faces had been only a moment ago
-went far too quiet all at once.
+Light burst, metal shards poured down, and the places where faces had been only a moment ago went quiet. The smiling mouth line flared once more, then went out.
 
-The children screamed all at once.
+The children screamed all at once. This time it was not just one of them.
 
-It was louder this time.
-No longer one child crying,
-but the sound of every child who had finally understood that they were really losing them.
+A few of the Hazran people sank to the floor. Seorin's hand, which had been tapping shoulders, stopped.
 
-Some of the Hazran people simply sank to the floor,
-and one of the old machines, for the first time, took another step toward the fight.
+"Get up."
 
-It looked less like an attack
-than the movement of one that could not bring itself to let something go.
+Seorin said it to the ones who had sunk down.
 
-But it was already too late.
+"The gap. Now."
 
-Only the last android was left.
+No one got up. Seorin hauled one of them up by the arm and shoved them into the gap. Then the next.
 
-It took no more than a few seconds for that to reach everyone in the room.
+One of the old machines took a step toward the battle. It was the one that had lowered itself earlier. The other machine, the one bracing the gap, turned its head that way.
 
-The Serakion legion was still pouring in,
-and he was already broken in several places.
+One was left.
 
-His right leg couldn't hold its axis,
-his left shoulder was half ripped away,
-and the short mouth line on his face was down to little more than a flicker.
+The Serakion legion was still pouring in.
 
-But he did not fall.
+As the last android got up from where he had fallen, his right leg could not hold its axis and buckled once more. His left shoulder was half ripped away, and the short mouth line on his face was down to a flicker.
 
-He was still in front of the children.
+Still he got up, and where he got up was in front of the children.
 
-Then,
-one of the old machines that had been watching from behind walked forward, very quietly.
+Han Jiwoo pulled the child who had been lying face down back from behind. Even as the child was dragged away, their eyes did not leave his back.
 
-At first no one understood why it was moving like that.
+The old machine that had stepped forward kept walking.
 
-It hadn't taken up a weapon,
-and it hadn't shoved anyone aside.
+It carried no weapon and shoved no one aside. Its stride was not like the Serakion units'. Between one foot touching the floor and the next one lifting, the old joints made a sound. The sound came ten times. Luhai counted.
 
-It simply went up beside the last android
-and looked at him, very briefly.
+Ten.
 
-Strangely, the look didn't seem afraid.
-It was closer to the eyes of a person who, after hesitating a long time, had at last decided where to stand.
+He could not stop counting.
 
-Two Serakion units lunged at them at once.
+As it walked, its optical eye faced only forward. Not once did it turn toward the children.
 
-And in that exact instant,
-the elder shoved the last android aside.
+Han Jiwoo handed the child she was holding to the person beside her and reached out. Her hand did not touch the machine's back. The machine was already three steps ahead.
 
-The impact was so fast
-that Sion knew it by sound first.
+The machine went all the way up beside the last android and stopped. When its optical eye turned his way once, the last android's optical eye turned toward it as well. No sound passed between them.
 
-Among the sounds of tearing metal
-came the sound of a person's body that could hold out no longer.
+Sion watched the two of them. Old joints and a twisted shoulder stood side by side.
 
-Han Jiwoo made a sound as her breath stopped.
-Luhai froze, not even able to curse.
+One beat.
 
-The old machine's body buckled along with the Serakion units and vanished toward the floor.
+Sion took a step forward. Seorin's hand caught his arm.
+
+"No."
+
+She spoke.
+
+"That's not your place."
+
+Sion stopped. The hand gripping his blade shook.
+
+He sheathed the blade and turned away. The wall panel at the rear-line gap was closing in again. It was the side the remaining machine's shoulder had come away from when it turned its head. When Sion set his back against it, the wall panel pushed at his back, and his heels slid a hand's width across the floor, then stopped. One of the Hazran people brushed past his side and slipped out.
+
+Two Serakion units lunged at once at the two standing side by side.
+
+The old machine shoved the last android to one side.
+
+Sion knew it by sound first. It was the sound of metal tearing, and it went on longer than the others.
+The bodies of the two Serakion units punched through the machine's chest plate and came out its back. The old machine's two arms wrapped around them both.
+The arms did not come loose.
+
+Han Jiwoo made a sound as her breath stopped. Her outstretched hand hung still in the air.
+
+Aka, a child in each arm, saw it from the gap; she started to cover the children's eyes, then didn't. She did not close her own eyes either.
+
+The old machine's body buckled together with the two Serakion units. The three went over as one mass, and nothing rose from that spot. The light in its optical eye dimmed slowly, then went out.
 
 The last android stopped, still in the posture of having been shoved aside.
 
-For a while he did not move.
+For a while he did not move. His optical eye wavered once, and the short mouth line that was left broke off, very faintly, and came back.
 
-As if he could not process, inside himself, what had just happened.
+He touched the shoulder that had been shoved, once, with his own hand, then looked at the place where the old machine had gone down. He looked back and forth between that place and his own shoulder, three times.
 
-His optical eye wavered once,
-and the short mouth line that was left cut out and came back, very faintly.
+Han Jiwoo brought her hand down out of the air, pressed it to her chest, and took one breath.
 
-He did not know yet.
+"Don't look."
 
-Why someone had shoved him away to save him.
-Why someone had thrown themselves in his place.
-What that meant.
+She said it. It was too far to be heard.
 
-He had gained a will,
-but he was a being that did not yet know what devotion and sacrifice were.
+"Eyes front."
 
-And that not-knowing itself
-felt all the more painful.
+In the meantime, the front rank of the Serakion legion had come within five steps.
 
-Watching that android, Sion
-felt that too much had been left to that being all at once.
+The last android raised his head. He looked at the children, at the people pushed to the back, at Han Jiwoo's lowered hand.
 
-The companions who were gone.
-The faces the children had given.
-The old machine's death.
-And this battle, which wasn't over yet.
+Then he turned toward where the Serakion legion was coming from.
 
-But he couldn't even put names to any of it yet.
+His right leg buckled once again. He dragged that leg back under him and stood, then moved where he stood half a step to the side. It was the narrowest point between the children and the enemy.
 
-The last android slowly raised his head.
+Luhai, gripping his iron bar, pushed himself off the wall. Sern shifted his grip on the record panel. Above, Ater pressed his foot down on a seam in the structure, and the seam shook. Behind Sion's back the wall panel creaked, but he did not take his back off it.
 
-The first thing he saw was the children.
-The crying faces.
-The people pushed back.
-And the place where, not because of him
-but to save him, someone had disappeared.
+Seorin tapped the last person's shoulder. The gap was empty. She turned toward the front line.
 
-He looked at it for a long time.
-
-Then, very slowly,
-he turned forward again.
-
-Watching him, Sion felt his chest tighten.
-
-He wasn't moving because he understood, not yet.
-And yet,
-the one thing he hadn't let go of was that what remained in front of him had to be protected.
-
-Because that had been born so late,
-it was all the crueler, and all the sadder.
+The next rank of the Serakion legion was coming in, filling the passage.
 
 ---
 

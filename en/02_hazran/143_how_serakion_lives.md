@@ -1,215 +1,280 @@
 # Episode 143. How Serakion Lives
 
-Before the sun was fully up,
-Han Jiwoo, Ater, and Kael went into the path that had played dead, along with two of the recovery hands.
+Before the lamp went out, Han Jiwoo, Ater, and Kael went into the path that had played dead, along with the two recovery hands.
 
-The path was less a passage leading outside
-than a breathing hole Serakion had deliberately erased from its own surface.
+The gap closed behind them without a sound, and when Han Jiwoo looked back, there was only wall. The worn spot was there on this side too.
 
-A low ceiling,
-tilted metal plates,
-marks of patching laid over patching,
-and handholds and footholds left where they would not catch the eye.
+The path was low. The ceiling touched their heads, so Ater walked with his head bowed, and Kael bowed lower. Over the tilted metal plating, patches lay over patches. The handholds at hand height had not been made as handholds; they were places where the pipes bent. Places worn down by human hands gripping them.
 
-No official route would ever have been built this way.
+It was not the first recovery hand who took the lead at first but Han Jiwoo, and the first did not stop her.
 
-But that was exactly why
-it felt like a better fit for the hands that went out beyond Serakion and tried to come back alive.
+From the very mouth of the path Han Jiwoo kept stopping, and only after looking at the metal seams and the worn grain at hand height did she put her hand on it.
 
-The first to take the lead was not the first recovery hand but Han Jiwoo.
+"More grips with the right hand here."
 
-More precisely,
-it did not stop her.
+Her voice was very low.
 
-From the mouth of the path Han Jiwoo kept stopping,
-reading the metal seams and the worn grain at hand height before anything else.
-
-"More grips with the right hand here,"
-she said, very low.
 "When they're in a hurry, they twist right and slip out this way."
 
 The first recovery hand looked at her once.
 
-Not suspicion, not admiration—
-closer to a short confirmation: "she really can read that."
+"Best to put you in front, then."
 
-"Best to put you in front, then,"
-it said, offhand.
+The words came out flat.
 
-That did not sound like permission.
-It sounded like nothing more than the most efficient call.
+Han Jiwoo didn't answer and looked ahead. When she gripped the pipe with her right hand, her hand fit the worn spot.
 
-Han Jiwoo didn't answer and kept her eyes ahead.
+When the second dragged its leg behind them and made a sound, Han Jiwoo slowed. Only once the second had caught up did she walk fast again, and now her pace matched the second's sound.
 
-The farther they followed the path,
-the more the underside of the world called Serakion began to show.
+The first raised a hand, and the five stopped.
 
-Unlike the orderly upper level,
-down here there were hidden pipes and transport lines,
-auxiliary structures that did less to hide their wear,
-and the shadow of a life that humans and machines were actually holding up.
+From the wide passage below, a machine's footsteps went on at an even interval. The five pressed their backs to the wall and held their breath, and while the second lifted its leg off the floor and stood on one foot, Han Jiwoo held up its arm.
 
-On the surface Serakion looks like a single finished aesthetic.
-But what actually kept it standing
-was the endless hauling and maintenance and sorting on this underside.
+As the machine passed along the path below, the light from its face swept the wall but did not climb as far as the upper path, and the footsteps faded.
 
-For the first time, Han Jiwoo began to see
-not only how Serakion's hands read humans
-but what hands Serakion itself was standing on.
+When the second lowered its foot, it made a sound, and the first looked back, but nothing came.
 
-The well-polished structure was above,
-and the structure that actually wore down was below.
+The farther they followed the path, the more of Serakion's underside showed.
 
-The more blatant the difference,
-the more horrible it was.
+Pipes ran out of the walls, nothing they had ever seen up above. Along the empty line of a conveyor track running over the floor, a crate went on its own with no one pulling it. While the five pressed against the wall, the crate passed by, heading toward the way up.
+
+"What's in it?"
+
+Han Jiwoo asked.
+
+"I do not know."
+
+The first answered.
+
+"I have never opened one. If you open it, it stops."
+
+"And if it stops?"
+
+"They come."
+
+The crate turned a corner.
+
+The auxiliary structures showed signs of use. The handholds were worn, and the floor bore scrape marks where something heavy had been dragged.
+
+Ater looked at those marks and their width: the width of two people pulling.
+
+"None of this was visible from above."
+
+He said.
+
+"Because it must not be seen."
+
+The first answered.
+
+"Up there is where things are seen. Down here is where things wear out."
+
+One pipe Han Jiwoo touched was warm; the heat used up above passed through here. She took her hand away and looked at each bend of pipe that had become a handhold. Each was worn to a different depth.
+
+"Six."
+
+She said.
+
+"Six what?"
+
+"Hands that use this path. The wear's at six heights."
+
+The first looked at those spots one by one before it answered.
+
+"Five. One did not come back."
+
+The sixth height Han Jiwoo looked at was the lowest. A short person's hand. She didn't touch it.
+
+Kael put two fingers on that spot and measured the width of the wear.
+
+"How old were they?"
+
+"I did not ask."
+
+The first answered.
+
+"Ask, and you start counting."
+
+As Kael took his fingers away, the second walked past without looking at the spot.
 
 The second recovery hand spoke, very low.
 
-"First fork's coming up."
+"The first fork is coming up."
 
-And sure enough,
-a little farther on, the path split three ways.
+The path split three ways.
 
-One went higher,
-one slid off long to the side,
-and one dropped heavily downward.
+One went up, narrow enough for a single person to pass. One ran sideways, long, two people wide. One went down, wide enough for four people to walk abreast. The floor marks were heaviest on the way down.
 
-The moment Ater saw that structure, his expression changed.
+Ater looked at the layout, and his expression changed.
 
-"They have built the hierarchy into the paths,"
-he said, low.
+"They have built the hierarchy into the paths."
 
-Since they had come outside without Sion,
-Ater's words seemed shorter than before, and more coldly refined.
+He kept his voice low.
 
 He looked at the fork for a long while, then went on.
 
-"The way up is narrower,
-the way down is wider."
-"Those who go up are selected;
-going down assumes mass movement."
+"The way up is narrower, and the way down is wider. Those who go up are selected; the way down is built on the assumption of mass movement."
 
 The first recovery hand answered briefly.
 
-"Mark it."
-"In Serakion, the paths are more honest than the words."
+"Take a good look. In Serakion, the paths are more honest than the words."
 
-Those words stayed with them longer than expected.
+Ater measured the width of the way up with his hand. It came up more than a hand-span short of his shoulders.
 
-If politics is not made only of laws and declarations,
-then Serakion's politics had to be built into its paths, its structures, its placements as well.
+"To go up, one has to stand sideways."
 
-Who could get where easily,
-who stopped where,
-who was raised up,
-and who was gathered below.
+"Yes."
 
-In this world, space itself was already the grammar of sorting.
+The first said.
 
-Watching it, Ater wore a look as if he had set his teeth, very slightly.
+"Whoever goes up has to turn."
 
-Sion was not there,
-but strangely, Han Jiwoo felt she could guess a little of what Ater was thinking.
+Ater said nothing more; he looked at the width again, then at his own shoulders and at Kael's.
 
-The Empire is no different.
-On the surface it divides people with soldiers and gates and laws,
-but in the end it is the structure that speaks first about who is put where and which paths are opened.
+"And Kael?"
 
-Serakion had only made it more beautiful;
-the essence might be no different.
+"I turn twice, then."
 
-All this time Kael had been silently watching the rear and the flanks together.
+Kael answered.
 
-Then, at the first fork, he spoke, very low.
+"Or I don't go."
+
+"Go."
+
+Han Jiwoo said.
+
+"Turn twice."
+
+Kael had been watching behind and to the side at once; at the first fork he spoke, very low.
 
 "Where you block and where you pull out are right up against each other."
 
-The second recovery hand looked at him.
+While the second recovery hand turned to look at him, Kael pointed to the wear marks on the floor, and then to the regular scratches cut at the same interval, to the same depth.
 
-Looking back and forth between the wear marks left on the floor
-and the regular gouges that seemed to have been left by an android legion passing through, Kael went on.
+"This isn't just a passage. It's built to herd people in, shut fast when it needs to, and pull out only one particular side."
 
-"This isn't just a passage."
-"It's built to herd people in,
-shut fast when it needs to,
-and pull out only one particular side."
+He touched the mouth of each of the three forks in turn.
 
-That fit exactly with the reading Sern had given back inside.
+Up.
+Sideways.
+Down.
 
-Serakion does not simply guard.
-It guides,
-it sorts,
-and it designs its paths so that only the side it needs can be pulled out separately.
+"Shut them, and only the bottom's left."
 
-As he read it, Kael
-was working out where to open and where to block, once the fighting started, to get people out.
+The second nodded.
 
-For that moment at least,
-he looked less like a plain shield than like a tactician on the side that breaks structures and makes openings.
+"That is why they are always herded down."
 
-A little farther on,
-they saw the shadow of an actual living quarter for the first time.
+Kael said nothing more; looking at the way down, four people wide, he spread four fingers.
 
-They did not go in.
-But through a thin gap
-they could see a few humans passing down an orderly corridor
-and the machines moving beside them, guiding them.
+Han Jiwoo saw that the second's leg was dragging.
 
-The humans were startlingly docile,
-their clothes were clean,
-and their steps were orderly.
+"Wait."
 
-And that was exactly why
-it was more ominous.
+With that she crouched, opened the joint, slid in a screwdriver, and gave it one full turn.
+
+"Go."
+
+The second walked. It dragged, but less.
+
+A little farther on, the upper corridor came into view beyond a thin slit.
+
+A few humans passed over the orderly floor, and a machine walked alongside them at the same speed.
+
+The humans were quiet, and their clothes were clean. The marks on their necks were all in the same place.
 
 Ater spoke, low.
 
 "More orderly than a military occupation zone."
 
-Han Jiwoo watched one human's hand through the gap for a long time.
+"You have seen occupation zones?"
 
-The back of the hand was clean,
-but the fingertips held the fine grain that repetitive labor leaves.
+The first asked.
 
-Neat on the outside,
-but in fact a hand that had been touching and repeating something over and over.
+"I have."
 
-"There's the life they show,
-and there's the life they use,"
-she said, low.
+"What was it like there?"
 
-Those words seemed to explain the whole structure of life on Serakion.
+"It was loud."
 
-The order on display is above,
-and the labor and sorting that actually hold it up are below.
+The first asked nothing more.
 
-But Serakion dresses the two up as if they lived inside the same beauty.
+Han Jiwoo looked at one human's hand beyond the slit. The back of the hand was clean, but the fingertips were thick beside the nails: a hand that had pressed the same spot for a long time. She looked at her own fingertips; they were thick in the same place.
 
-The first recovery hand did not let them stay stopped for long.
+"There's the life they show, and there's the life they use."
 
-"Look farther in,"
-it said, very low,
-"and you'll see better why they send the kids with good hands up."
+She said it low.
 
-That one remark
-made the purpose of the scouting clear again.
+"What do those hands do?"
 
-This was not just looking at paths.
-It was seeing what Serakion read as precious,
-what it left below,
-and what it hauled up.
+"I do not know."
 
-And only by understanding that structure
-would they see whom to pull out, and from where.
+The second answered.
 
-The path they first walked that day
-showed them, before it showed where Serakion was hiding what,
-how Serakion lived.
+"What is used up there is known only up there."
 
-Politics and life were not separate.
-In that world,
-a single path, a single hand, the height of a single stair,
-all of it was part of sorting and rule.
+Han Jiwoo watched the hand until it turned the corner.
+
+The first recovery hand didn't let them stay stopped for long.
+
+"If you look farther in,"
+
+It spoke very low.
+
+"you will see more clearly why they send the kids with good hands up."
+
+Han Jiwoo took her eyes from the slit and asked.
+
+"How much farther?"
+
+"Two more forks."
+
+"And the second's leg?"
+
+"It goes."
+
+The second answered before Han Jiwoo could ask.
+
+They turned sideways and entered the way up. Han Jiwoo went in first, her shoulders touching both walls. Ater turned his body and went in after her; Kael had to turn twice, and that was how he got in. The second dragged its leg in, and the leg knocked against the wall with a sound; the first was last.
+
+In the narrow path, the five breathed close together. Kael's shoulders scraped the wall with every step, but he didn't stop.
+
+When the second's leg caught on the wall, Han Jiwoo reached back from in front, and the second took her hand. Only when Han Jiwoo pulled did the leg come over.
+
+"You bring people out this way?"
+
+Han Jiwoo whispered.
+
+"Children."
+
+The first answered.
+
+"Adults cannot come through."
+
+Han Jiwoo felt the width between the walls again. Touching both shoulders: a child's width.
+
+From above, a soft light came down from the end of the narrow path. The first raised a hand and the five stopped; when the light had passed, the first lowered its hand.
+
+"They watch from up there too?"
+
+Han Jiwoo whispered.
+
+"Up there they do not look down. That is why this path is still alive."
+
+Han Jiwoo looked up, but the light didn't come again.
+
+From above, a polite guidance tone sounded faintly. Han Jiwoo heard it with her back against the wall; it came from the side going up.
+
+"What's it saying?"
+
+Kael asked.
+
+"Next batch."
+
+The first answered.
+
+"It always says that."
+
+Han Jiwoo waited for it once more. It came. At the same pitch.
 
 ---
 

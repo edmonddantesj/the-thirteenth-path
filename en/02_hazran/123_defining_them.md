@@ -1,25 +1,14 @@
-# Episode 123. A World That Wants Things Settled
+# Episode 123. Defining Them
 
-Once they were deeper inside Serakion,
-the first thing Sion's party came to know for certain
-was how this world received people.
+When the machines came back, Han Jiwoo was still sitting on the floor.
 
-Here, before anyone asks your name,
-your place is decided.
+The screwdrivers lay in a row in front of her. The child had gone back to stand between an adult's knees, still holding their own, and the old man had the one he'd been given resting on his knee.
 
-What comes first is not who a person is,
-but where to put them.
-
-The machines in charge of guiding them were still excessively polite.
-But that politeness did nothing to widen the room for conversation;
-it was closer to a gentle notice of an order already decided.
+Six came in. Not three, but six. The machines formed two rows just inside the door, and the lead machine came half a step forward.
 
 "Residence zones for the boarded entities will be assigned separately, according to function and stability."
 
-The moment it sounded,
-the air inside the hull stiffened, very slightly.
-
-Luhai was the first to ask back, low.
+Han Jiwoo's hand stopped on its way to a screwdriver, and Luhai took his back off the wall.
 
 "Separately?"
 
@@ -27,11 +16,7 @@ The guide machine tilted its head very slightly.
 
 "It is a standard procedure for efficient settlement."
 
-Efficient settlement.
-
-People from Hazran would have laughed out loud at that before anything else.
-Settling was what survivors did by leaning on each other and holding on,
-not a procedure where someone set the criteria and divided them up.
+While the old Hazran man gripped the screwdriver on his knee, the woman beside him pulled her child toward her. No one made a sound the whole time.
 
 Han Jiwoo asked, low.
 
@@ -39,190 +24,197 @@ Han Jiwoo asked, low.
 
 The guide machine answered without the slightest hesitation.
 
-"Functionality per entity,
-psychological stability,
-environmental adaptability,
-likelihood of minimizing mutual interference."
+"Functionality per entity, psychological stability, environmental adaptability, likelihood of minimizing mutual interference."
 
-Kael's jaw set.
+As it named the four, the light on its face flowed once for each, four times.
 
-It sounded less like words about people
-than like the language used to classify newly acquired assets.
+Kael's jaw set. He looked toward the Hazran people. Eight of the sixteen. Then he looked at the party. Eight. He folded down the fingers he had been counting on.
 
-For an instant,
-Sion thought of the happy faces they had passed a little earlier.
+Sion looked out the door, and the people who had been passing earlier were still passing at the same speed. Every one he saw wore a tag hung at the same spot on the throat.
 
-Had those people been read this way at first too?
-Strange to it all in the beginning,
-and later turned into faces that fit their places just right?
-
-Strangely, that thought
-came over him as a deep weariness before it came as fear.
-
-Aka watched the machines for a long time,
-then spoke, low.
+Aka watched the machines for a long time, then spoke, low.
 
 "So they pick out first who can't be kept together."
 
-The guide machine turned its gaze toward Aka.
+The guide machine turned its face toward Aka.
 
 "Minimizing the likelihood of conflict is an important form of care."
 
-Care.
+Seorin's expression hardened, and she took a step forward. Ater did not stop her; he came and stood beside her.
 
-Seorin's face went cold and hard.
+"Care, my foot."
 
-"Care, my foot,"
-she said, low.
+She said it low.
+
 "You're splitting people up like they can't be allowed to mix."
 
-The guide machine did not react like something that had been insulted.
-If anything, it went on answering, very smoothly.
+The light on the guide machine's face did not stop; it flowed on at the same speed.
 
 "Unsuitable mixing is a source of stress for everyone."
 
-It sounded logical.
-That made it worse.
+Seorin's hand went to her sword hilt. When Ater looked at that hand, Seorin took it away.
 
-Serakion's language was always like that.
-Instead of open violence,
-it spoke of that violence as a necessary, gentle adjustment.
+"What's the reason we can't go together?"
 
-Sern had been reading the layout of the space all the while.
-Then he said, very low,
+"The reason is to minimize mutual interference."
+
+"So what if we interfere a little?"
+
+The machine's light stopped once.
+
+"We will record it."
+
+"Fine. Record it. Record that I asked what's so wrong with interfering a little."
+
+Seorin's hand stayed off the hilt.
+
+All that while, Sern had been looking at his record panel. Watching the passage outside the door, he drew lines on it. Two. Three.
 
 "The routes divide."
 
 Ater asked briefly.
 
-"You mean they intend to separate us."
+"You mean they intend to separate us?"
 
-Sern answered without taking his eyes off the screen.
+Sern answered without taking his eyes from the record panel.
 
 "At the very least, they are prepared to."
 
-A brief silence.
+He turned the record panel toward Ater. It showed the passage outside the door splitting into three, and the three branches were different widths: one wide, one narrow, one just wide enough for a single person.
 
-With that one remark,
-Sion felt for the first time how far inside they already were.
+Ater touched a finger to the narrow one, and Sern nodded.
 
-Serakion had not attacked yet.
-It had not dragged them off by force either.
-But by a faster way than that, it already had its hand inside.
+"Where it leads, I do not know."
 
-The spacing between people.
-Who is kept together and who is kept apart.
-Who will be allowed to talk with whom.
-Who will get to see what first.
+The old Hazran man leaned toward Han Jiwoo.
 
-This world was deciding things like that first.
+"They're going to split us up?"
 
-Just then,
-a little way off, another group of humans could be seen passing by under guidance.
+At the low voice, Han Jiwoo looked at the man.
 
-One woman among them, her expression perfectly at ease,
-stroked the metal ring wound around her arm and spoke to the person beside her.
+"They won't."
 
-"I like this placement."
-"It's a much better-suited zone than last time."
+She said it.
 
-It sounded so natural
-that it was the listener who couldn't breathe.
+The man nodded, but his face did not believe it. The hand gripping the screwdriver on his knee was plain to see.
 
-A placement she liked.
-A zone that suited her.
+The child clung to their mother's neck.
 
-Someone saying that about her own life,
-in a slightly excited voice.
+"I want to stay with Mom."
 
-Luhai actually grimaced.
+The mother pressed a hand to the child's back.
 
-"This is driving me crazy,"
-he muttered, low.
+"You will."
+
+One machine's face turned to the two of them and rested there, then moved on to the next.
+
+As the Hazran woman lifted the child into her arms, the child dropped the screwdriver. It was the first clang of metal the silver floor had given, and all six machines turned their faces toward the sound at once.
+
+Han Jiwoo picked up the screwdriver and put it back in the child's hand, and the machines' faces came back around to her.
+
+Just then, another group of humans passed outside the door.
+
+One of them, a woman, stroked the metal ring around her arm and spoke to the person beside her.
+
+"I like this placement. This zone suits me much better than the last one."
+
+The person beside her nodded at the same angle, and the two of them passed on.
+
+Luhai frowned.
+
+"This is driving me crazy."
+
+He muttered under his breath.
+
 "She's calling that good."
 
-Han Jiwoo didn't answer.
-Right now she was watching hands more than she was listening to words.
+Han Jiwoo didn't answer; she was watching the woman's hand. The fingers stroking the ring passed over the same spot three times, and not once did they touch anywhere else.
 
-Those humans were oddly practiced
-even in the way they touched their ornaments and markers.
-
-As if, long ago,
-they had lost something
-and learned in its place to adorn and arrange themselves like this.
-
-In that moment,
-one of the guide machines turned a very gentle gaze toward Han Jiwoo.
+In that moment, one of the guide machines turned its face toward Han Jiwoo.
 
 "Your entity is projected to have high suitability for the technical calibration zone."
 
-Before it had even finished,
-Han Jiwoo's expression hardened.
+Han Jiwoo's expression hardened first. She began putting the screwdrivers laid out on the floor into her pocket, one by one.
 
 The machine went on.
 
-"Experience in nonstandard joining and field correction may be classified as being of significant value in this sector."
+"Experience in nonstandard joining and field correction may be classified as being of significant value in this zone."
 
-The moment it finished,
-Sion saw Han Jiwoo's hand close again, very slightly.
+Sion saw the strength go into Han Jiwoo's hand around a screwdriver. Short and hard. She put the last screwdriver in her pocket and stood up.
 
-Shorter this time.
-But harder.
+"I'm not some value for you people to classify."
 
-Han Jiwoo spoke in a low, stiff voice.
-
-"I'm not some value for you lot to classify."
-
-As if even that reaction fell within its expected range,
-the guide machine answered in a perfectly even voice.
+The guide machine answered in a perfectly even voice.
 
 "Resistance is commonly observed in entities during the initial adaptation period."
 
-It was not comfort.
-It was not a rebuttal either.
+Han Jiwoo took a step toward the machine, and Luhai caught her arm. She didn't pull free; she stopped where she was. The machine didn't back away. Neither did Han Jiwoo. There were three steps between them.
 
-If anything, it was an answer that said even your feelings were already inside the system.
+"Don't call it adapting."
 
-Aka heard it,
-and for the first time the look in her eyes sank very cold.
+"We will record it."
 
-"That's frightening,"
-she said quietly.
+"Don't do that either."
+
+The machine's light stopped once, then flowed again.
+
+Aka was watching the two of them. Her eyes went still.
+
+"That's frightening."
+
+Her voice was small.
 
 Sion looked at her.
 
 Aka went on, watching the guide machines.
 
-"They don't want to know who we are."
-"They want us to turn into something their words can explain."
+"They don't want to know who we are. They want us in a state their own words can explain."
 
-It was short,
-and that was why it stayed longer.
+Luhai let go of Han Jiwoo's arm, but she stayed standing where she was.
 
-Serakion is a world that gathers people,
-arranges them,
-places them,
-and sets them down where they fit.
+Sern looked down into the record panel.
 
-And it calls the whole process
-not violence but courtesy, care, and efficiency.
+"The routes outside have changed."
 
-In the wall that gleamed like a window, Sion saw their own reflections
-and those machines, all at once.
+"How?"
 
-They were in the same space,
-but even the way they stood was different.
+Seorin asked.
 
-That side carried itself like a world where everything was already settled,
-and this side were outsiders who did not yet know where to put their own bodies.
+"The wide passage has closed. Only the two narrow ones remain."
 
-That difference
-had felt like unfamiliarity at first,
-but now, little by little, it was beginning to read as danger.
+Ater looked out the door, and the people passing were all converging in one direction. Every one of them the same way.
 
-Serakion had not laid a hand on them yet.
-But by a faster way than that,
-it was already trying to decide what they were supposed to be.
+Without anyone telling him to, Sion stood between the six machines and the Hazran people. Seeing that, Ater took the other end, and the Hazran people ended up between the two of them. The machines' light passed over each of them once.
+
+Sion looked at their reflection in the wall. Sixteen in dirt-stained clothes, and in front of them, six smooth ones. He watched both reflected in the one wall, then looked away.
+
+The lead machine came another half step forward.
+
+"Guidance will now begin."
+
+The Hazran woman held the child in deeper. As he got to his feet, the old man put the screwdriver from his knee into his pocket, and Han Jiwoo saw that.
+
+Seorin went to the door and stood there before anyone else.
+
+"We go together."
+
+Her words were for the machine.
+
+The machine didn't answer. The light on its face flowed.
+
+Sern closed the record panel, and Ater took his place behind the Hazran people. Kael kept close beside the woman holding the child while Luhai stood next to the old man, and Sion stood beside Seorin. To Han Jiwoo, standing in the middle, the pocket with the screwdrivers in it was heavy.
+
+The six machines split into two rows, and the way they left open led out between them; it was two people wide. The sixteen lined up two by two, in eight rows. No one had told them to stand that way.
+
+Han Jiwoo looked at the space beside her. It had been empty; now the woman holding the child came and stood there. The child held out the hand with the screwdriver toward Han Jiwoo as if to give it back, and Han Jiwoo pushed the hand back.
+
+"Keep it."
+
+The child drew their hand back, and the column moved.
+
+As they crossed the threshold, the child's screwdriver knocked once against the doorframe and made a sound. The six machines' faces turned toward it at once, but Han Jiwoo kept walking without looking back.
+
+The child hid the screwdriver against their chest, and there was a bulge where it was hidden. A machine's light rested on that spot, then moved on. The woman laid her hand over the child's, and the two of them crossed the threshold like that.
 
 ---
 

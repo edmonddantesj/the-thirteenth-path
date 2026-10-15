@@ -71,7 +71,7 @@ Below the outer mooring layer, hand-painted guide lines outnumbered the official
 The one with the limp glanced back once.
 Sion ducked his head at once and fell in with a passing crew of cargo hands. Any slower, and at that distance he would have been spotted.
 
-Seorin clicked her tongue from the other side.
+The two of them met up again at the end of the mooring layer. Seorin clicked her tongue the moment she got there.
 
 "Those two have chased people before too."
 
@@ -79,7 +79,6 @@ Seorin clicked her tongue from the other side.
 
 "Real wholesome port."
 
-The two of them met up again at the end of the mooring layer.
 The pair ahead were heading down toward the lower transfer bridge. At the end of that route were the temporary lodging blocks, cheap bars and warehouses that doubled as pawnshops. A district where people vanished before the records did.
 
 Sion looked that way and said quietly.

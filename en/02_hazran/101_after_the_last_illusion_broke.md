@@ -56,7 +56,7 @@ What he could only hear with a hand on the hull wall, he could hear like this, h
 
 "You want us to hear this and just stand there?"
 
-the man said.
+The man said it.
 
 Sion couldn't look him in the eye.
 
@@ -128,8 +128,6 @@ He went back and pushed frightened people on the back. While he pushed, he said 
 That last one stayed with Sion a long time.
 
 It meant you had to go even knowing full well it wasn't okay. This kid must have said it any number of times today.
-
-It took Sion no time at all to understand it.
 
 The ones digging were all people who couldn't board today. The ones who would board stood in line, and the ones who couldn't had come here. Nobody told them to split that way, but they had split on their own.
 

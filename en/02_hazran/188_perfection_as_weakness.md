@@ -1,10 +1,6 @@
 # Episode 188. Perfection as Weakness
 
-The two Hazran men took the man under the arms and went back.
-The man's feet dragged across the floor.
-They left no marks.
-Seorin didn't look that way.
-She looked ahead.
+The two Hazran men took the man under the arms and went back. The man's feet dragged on the floor but left no marks. Seorin did not look that way; she looked ahead.
 
 "Hold the main line."
 
@@ -16,19 +12,11 @@ Sion looked at her.
 
 "As it is?"
 
-"As it is."
+"As it is. If we change the place they shook, we come apart the way they want. We stand shaken."
 
-Seorin said.
+Sion took a new grip on his blade with a palm that was still wet.
 
-"Change the place they shook and we come apart just the way they want. We stand shaken."
-
-Sion shifted his grip on the blade.
-His palm was still wet.
-
-Sern opened the record panel.
-Where the man had stood.
-Where they stood.
-With a finger he wiped away the line he had drawn between them.
+Sern opened the record panel and, with a finger, erased the line he had drawn between where the man had stood and where they stood.
 
 "The gap on the man's side remains closed."
 
@@ -48,76 +36,37 @@ Seorin said.
 
 "That's their road."
 
-Luhai went back to the right axis.
-The iron bar slung across his shoulder.
-One of the old machines stood there.
-He stood beside it.
-Han Jiwoo looked behind them.
-The spot the two Hazran men had left empty.
-The wall panel lay on the floor.
-She stood the wall panel up and leaned it against the wall.
-She didn't lift it.
+Luhai slung his iron bar over his shoulder, went back to the right axis, and stood beside the old machine standing there. When Han Jiwoo looked behind her, a wall panel lay on the floor where the two Hazran men had left their places. She stood the wall panel up and leaned it against the wall, but did not hold it up.
 
-The last android looked at the wall panel.
-He lifted it.
-With one hand.
-He set it up in front of Han Jiwoo.
-With the hand on the side of the lowered shoulder.
-The shoulder made a sound.
+The last android looked at that wall panel, then lifted it with one hand and set it up in front of Han Jiwoo. It was the hand on the side of the lowered shoulder, so the shoulder made a sound.
 
 "I'll hold it."
 
 Han Jiwoo said.
 
-He didn't let go.
-Han Jiwoo took a corner of the wall panel.
-They held it together.
+He didn't let go. Han Jiwoo took hold of the wall panel's edge, and they held it together.
 One beat.
-Then he took his hand away.
-Han Jiwoo was holding it.
+Then he took his hand away. Han Jiwoo was holding it.
 
-The corridor moved.
-The guidance tone came from far off.
-Low and even.
-"The route has been rearranged."
-The wall surface was smooth.
-A wall where nothing had happened.
-The boundary lights on the floor changed color.
-One row.
-Another row.
-Which paths were opening and which were closing.
-In the same voice.
+While the corridor shifted, the guidance tone came from far off, low and even.
+"The route has been reassigned."
+The wall surfaces were smooth, as if nothing had happened, but the boundary lights on the floor changed color, one line, then another. Which way opened and which way closed, in the same voice.
 
-The last android stood beside Han Jiwoo.
-The shoulder where the knot had been retied.
-The lowered shoulder.
-He didn't look at that shoulder.
-He looked at the end of the corridor.
+The last android stood beside Han Jiwoo. The shoulder where the knot had been retied hung low, but he did not look at it; he looked at the end of the corridor.
 
-Ater signaled from above.
-Briefly.
+Ater signaled briefly from above.
 
-"They are coming."
-"Three ways this time."
+"They are coming. Three branches this time."
 
-At the far end of the corridor, three boundary lights on the floor changed color at once.
-Footsteps came.
-Footsteps split three ways.
-Along the walls.
-At the same interval.
+When three boundary lights on the floor at the far end of the corridor changed color at once, footsteps came. Split three ways, the footsteps came along the walls at the same intervals.
 
 Three rows came in.
 
-They didn't push the way they had in the first battle.
-The front row's feet fell out of step once.
-The stray foot was corrected on the next stride.
-The row behind took up that beat.
-The rows fixed themselves as they walked.
-Sern's fingers moved fast over the record panel.
+They didn't push the way they had in the first battle. The front row's feet slipped out of step once and matched on the next stride, and the row behind took up that beat. While the rows corrected themselves on the move, Sern's fingers moved fast over the record panel.
 
 "Third recovery line, repeating."
 
-Sern said.
+He said.
 
 "If we cut the left, the upper right goes empty."
 
@@ -125,47 +74,27 @@ Sern said.
 
 Seorin asked.
 
-"Three. All three times the same place goes empty."
+"This is the third. All three times the same place goes empty."
 
-Seorin tilted her head once.
-To the left.
+Seorin tilted her head to the left once.
 
-Kael saw the tilt.
-He looked at the old machine.
+Kael saw that tilt and looked at the old machine.
 
-"Deeper."
+"Deeper. Half again as deep as last time."
 
-Kael said.
+When the old machine put its hand under the panel up to the elbow, Kael laid his own hand over it.
 
-"Half again as far as last time."
+On the left axis, Kael cut one panel deeper. When the old machine took hold of that panel and pried it open, the light in the circulation line slowed by one more line.
 
-The old machine slid its hand under the panel.
-Up to the elbow.
-Kael laid his own hand over it.
-
-On the left axis, Kael cut one panel deeper.
-The old machine caught that panel and pried it open.
-The light in the circulation line slowed.
-One more row.
-The right axis didn't pull out.
-Luhai lowered his iron bar.
-Half a step late.
-The old machine, half a step late.
-An empty row opened.
-Serakion came to fill that row.
+The right axis did not pull out; Luhai lowered his iron bar half a step late. The old machine, half a step late too. When one row went empty, Serakion came to fill that row.
 
 Four came.
 To the same spot.
 All at once.
-Shoulder plate struck shoulder plate.
-A dull clang of metal.
-Four times.
-One after another.
-The four stood jammed into one spot.
-They couldn't move.
 
-Luhai looked at the four.
-He raised the iron bar.
+Shoulder plate struck shoulder plate. A dull metal sound came four times in a row. The four stood jammed together in one spot and couldn't move.
+
+Luhai looked at the four and raised his iron bar.
 
 "Not yet."
 
@@ -173,90 +102,53 @@ Seorin said.
 
 "Leave them like that. Clear them and they'll just set them up again."
 
-Luhai lowered the iron bar.
-The four pushed at each other's shoulder plates.
-The harder they pushed, the tighter they jammed.
+While Luhai lowered his iron bar, the four pushed at each other's shoulder plates, and the harder they pushed, the tighter they jammed.
 
 The upper lane went empty.
 
-Sion moved.
-Almost a glide.
-Between wall and floor.
-A single seam.
-The same as the one he had seen earlier.
-Straighter than the others.
-He set the tip of the blade to it.
-One point.
+Sion moved as if sliding. Between wall and floor there was a seam line. Like the one he had seen earlier, it was straighter than the others.
+He set the tip of his blade to one point.
 He pressed.
 He put his weight on it.
 His palm slipped.
 He pressed again.
 
-Metal ground, briefly.
-One circulation line slid out sideways.
-Sideways, not down.
-A section of the right wall began to fold and stopped.
-It stopped at a slant.
+Metal ground briefly, and then one circulation line slid out not downward but sideways, and one panel of the right wall started to fold, then stopped at a slant.
 
-The shoulder of the lead unit in the second row caught on that edge.
-The unit behind it ran into its back.
-A halt.
-Short.
+The shoulder of the lead unit in the second row caught on that edge. The unit behind it ran into its back. It was a short stop.
 
-One old machine went in between them.
-It bent the caught unit's leg back.
-Another shoved the unit clinging behind the recovery line into the wall.
-It lodged there.
-The machine's chest plate rang.
-Once.
+One old machine went in through the opening and bent the caught unit's leg back. The other shoved the unit clinging behind the recovery line toward the wall; the unit drove into the wall, and the machine's chest plate rang once.
 
-The last android went out.
-Not to the front.
-To the head of one row.
-He stood.
+The last android went out. Not to the front; he stood before one row.
 That row's optical eyes turned to him.
 He stepped aside half a beat.
 The row twisted after him.
 The flank of the twisted row opened.
-Luhai's iron bar went in there.
-The knee.
+Luhai's iron bar went in there, into a knee.
 The unit buckled.
 
-The android came back.
-His shoulder axis made a sound.
-To where Han Jiwoo could see him.
+When the android came back to where Han Jiwoo could see him, his shoulder axis made a sound.
 
-He stopped where he had come back to.
-His optical eye came to Han Jiwoo.
-Once.
-Then to the corridor.
+Back in that place, he turned his optical eye to Han Jiwoo once, and then to the corridor.
 
-"Don't go any farther."
+"Don't go any farther. My voice won't reach."
 
-Han Jiwoo said.
+He did not nod, but the next time he went out, he went two steps less.
 
-"My voice won't reach you."
+From where she had pulled back, Han Jiwoo watched the distance between him and the legion.
 
-He didn't nod.
-The next time he went out, he went two steps less.
-
-From where she had pulled back, Han Jiwoo watched the distance.
-Him and the legion.
 Three steps.
 Two.
+
 She spoke short.
 
 "Move aside, now."
 
-He moved aside.
-A unit came into the spot where he had stood.
-Into an empty spot.
+When he moved aside, a unit came into the empty spot where he had stood.
 
 "Second row first."
 
-He looked at the second row.
-The second row looked at him.
-The first row stopped.
+He looked at the second row. The second row looked at him. The first row stopped.
 
 "Get out before the back opens."
 
@@ -264,24 +156,13 @@ He got out.
 The back opened.
 He wasn't there.
 
-Han Jiwoo stood beside the wall panel.
-Not in the middle of the fighting.
-Not far off either.
-Within reach of her voice.
-She kept that distance.
-Her hand gripped the corner of the wall panel.
-Her fingertips were white.
+Han Jiwoo stood beside the wall panel. It was not the middle of the battlefield, but not far from it either—close enough for her voice to reach. While she kept that distance, her fingertips on the wall panel's edge were white.
 
-One Serakion unit locked its optical eyes on the last android.
-It didn't come from the front.
-It circled along the flank.
-To make another place he would react to.
-Sion saw it.
-He clenched his teeth.
+One Serakion unit fixed its optical eyes on the last android and, instead of coming head-on, circled along the flank, to make another place he would react to. Sion saw it and clenched his teeth.
 
 "It's circling."
 
-Sion said.
+He said.
 
 "I know."
 
@@ -291,52 +172,25 @@ Seorin said.
 
 "If it circles, our back goes empty."
 
-Sion said.
+"If our back goes empty, that's where it comes. Knowing where it comes is enough."
 
-"If our back goes empty, that's where they'll come."
+Sion looked back; it was empty. While he looked at the empty place, Sern marked that spot on the record panel.
 
-Seorin said.
-
-"All we need is to know where they're coming."
-
-Sion looked behind.
-It was empty.
-He looked at the empty place.
-Sern marked the spot on the record panel.
-
-Above, Ater scraped the floor once with his heel.
-Under the ceiling seam.
-The place he had picked out earlier.
-No one was there.
+Above, Ater scraped the floor once with his heel. It was the spot under the ceiling seam that he had picked out earlier, and there was no one there.
 
 Seorin's order was short.
 
 "Fold it now."
 
-The right axis drew back one step.
-Luhai.
-The old machine.
-Together.
-An empty space.
-Two Serakion units came in to fill that space.
-At once.
-By the shortest path.
+Luhai and the old machine on the right axis stepped back together, and an empty space opened. Two Serakion units came in at once to fill it, by the shortest path.
 
 The upper drop-plate fell.
 
-A thick plate let loose from the ceiling seam.
-Down between the two units and the right wall.
-Straight down.
-The floor shook.
-Once.
-Hard.
-Dust rose.
-Before it settled, the two units were gone from sight.
+The thick plate, released from the ceiling seam, came straight down between the two units and the right wall. The floor boomed once and dust rose, and before it settled, the two units were gone from sight.
+
 Under the plate.
 
-Ater looked down from above.
-The spot he had scraped.
-The plate was there.
+Ater looked down from above. The plate lay where he had scraped.
 
 Luhai let out his breath.
 
@@ -348,20 +202,11 @@ Seorin said.
 
 "He knew they'd come there?"
 
-"It's the shortest path."
+"It's the shortest way. They always come the shortest way."
 
-Seorin said.
+Luhai shifted his grip on the iron bar, looking at the plate.
 
-"They always come by the shortest path."
-
-Luhai looked at the plate.
-He shifted his grip on the iron bar.
-
-Ater came down from above.
-He stood beside the plate.
-He put a hand to its edge.
-It was hot.
-He took his hand away.
+Ater came down from above and stood beside the plate. When he put his hand to its edge it was hot, and he took his hand away.
 
 "There is no next plate."
 
@@ -377,25 +222,13 @@ Ater said.
 
 "Through the floor."
 
-Seorin looked at the floor.
-The boundary lights.
-Their color was changing.
+On the floor Seorin looked at, the boundary lights were changing color.
 
-From beyond the fallen drop-plate the guidance tone came.
-Low and even.
-"The route has been rearranged."
-Which paths had opened and which had closed.
-In the same voice as before.
-Han Jiwoo heard it.
-The path it called open.
-Under the drop-plate.
-It was the path they had just closed.
+From beyond the fallen drop-plate the guidance tone came, low and even.
+"The route has been reassigned."
+Which way had opened and which had closed, in the same voice as before. When Han Jiwoo heard it and looked, the way it said had opened was the one under the drop-plate—the way they had just closed.
 
-Sern wrote on the record panel.
-Third recovery line.
-Four units.
-One row.
-When he had written it, he looked up.
+Sern wrote on the record panel. Third recovery line, four units, one row. When he had written it, he looked up.
 
 "The fourth recovery line is late."
 
@@ -403,11 +236,7 @@ When he had written it, he looked up.
 
 "Two beats. The first time."
 
-Seorin didn't nod.
-She looked ahead.
-The three rows had become two.
-The two rows were correcting their own feet.
-As they walked.
+Seorin did not nod; she looked ahead. The three rows had become two, and the two rows were correcting their own feet as they walked.
 
 "How long does the correction take?"
 
@@ -421,27 +250,12 @@ Sern said.
 
 "It is getting slower. This is the first time they are going through it too."
 
-Han Jiwoo looked at the two rows.
-Three steps.
-Their feet fell into step.
-They walked as one row again.
-She had counted those three steps.
+As Han Jiwoo watched, the two rows matched their feet in three steps and walked as one row again. She counted those three steps.
 
-Han Jiwoo took her hand off the wall panel.
-The last android had come back.
-The knot was still in place.
-She looked at the knot.
-She didn't touch it.
-She looked ahead.
+When she took her hand off the wall panel, the last android was back, the knot unchanged. She looked at the knot, but she did not touch it; she looked ahead.
 
-Sion looked at the tip of the blade.
-Metal dust clung to it.
-He didn't wipe it.
-He looked for the next seam.
-Between wall and floor.
-There it was.
-A straight line.
-He counted the steps to it.
+When Sion looked at the tip of his blade there was metal dust on it, but he didn't wipe it. He looked for the next seam line and found a straight line between wall and floor. He counted the steps to it.
+
 Four.
 
 Sern counted the steps with him.
@@ -456,11 +270,7 @@ He said.
 
 "Go in on the second. The first is still too fast."
 
-Sion nodded.
-He switched the blade to his other hand.
-The left.
-He rubbed his right palm on his trousers.
-The sweat didn't come off.
+Sion nodded and shifted the blade to his left hand. He rubbed his right palm on his trousers, but the sweat didn't come off.
 
 ---
 

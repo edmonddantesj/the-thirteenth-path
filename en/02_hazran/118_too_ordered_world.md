@@ -1,112 +1,138 @@
-# Episode 118. An Orderly Unease
+# Episode 118. Too Ordered a World
 
 The first thing they saw was not a city.
 
 It was light.
 
-Far beyond the window,
-silver grain, laid too straight across the black of space, came up first.
+Far beyond the viewport, silver lines laid out straight against black space rose into view first. They were not scattered like starlight, nor set here and there like route markers. They were fixed in place at the same intervals, at the same brightness, at the same angle.
 
-It didn't look like starlight scattered the way starlight scatters,
-and it wasn't as simple as route markers.
+The moment Sion saw them, he took a step back from the viewport. What he had felt earlier with his eyes closed was there, and with his eyes open, it was the same.
 
-If anything, it looked as though someone had taken the dark
-and coldly driven metallic lines into it at exact intervals.
+Cold, smooth, orderly.
 
-The moment Sion saw it,
-he knew at once that he was now seeing with his eyes the same grain as the air that had seeped in ahead of it.
-
-Cold,
-smooth,
-orderly.
-
-And that was exactly why
-it was strange.
-
-A living city or civilization,
-however grand, is crooked somewhere.
-Traces of things added late,
-sectors left half in order,
-the kind of imbalance that comes from people living there.
-
-But what was rising ahead of them was different.
-
-It was too exact.
-Too uniform.
-So beautiful
-that it looked less like life than like something on display.
+In Hazran's sky, something was always crooked. A relay tower put up late, a marker lamp half burned out, the marks people left by living there. Up ahead, there was not one thing like that.
 
 Luhai was the first to mutter, low.
 
 "That… doesn't look like a place people live."
 
-Han Jiwoo couldn't answer right away either.
+Han Jiwoo kept her hand on the helm and couldn't answer right away. Her eyes, which had been on the hull stability readings, went to the viewport and came back, went again and came back. The third time, they took a while to come back.
 
-Even as she kept watching the helm and the hull stability readings,
-part of her gaze kept getting pulled out the window.
+"I'm not getting an outside temperature."
 
-They could be structures built by machines.
-In fact, that would make more sense.
-The problem was
-that where those structures should have looked functional,
-they carried a strangely showy precision.
+She spoke.
 
-It looked like waste,
-and it was perfect at the same time.
+"It is masked."
 
-It didn't look like the work of machines that cared only for efficiency.
-But it wasn't warm either, the way something made by the living is warm.
+Sern answered.
 
-That somehow misaligned in-between
-made Han Jiwoo more uneasy.
+"By what?"
+
+"I do not know. The reading is blank."
+
+Han Jiwoo tapped the blank spot on the instrument panel twice with her finger, but it stayed blank.
+
+The structures outside the viewport grew larger as they drew nearer, yet they never fell out of order, and their surfaces had no seams. Han Jiwoo knew the seams of her own hull, where it rang and where it leaked. Over there, there seemed to be no such places. She tightened her grip on the helm.
+
+"Height?"
+
+Seorin asked.
+
+"Can't get it."
+
+Han Jiwoo answered.
+
+"I can't see the end, so I can't measure it."
+
+Sern added.
+
+"It is the same below. No floor registers."
+
+Seorin looked from the top of the viewport to the bottom and back. Lines above, lines below.
 
 Again Sern read the numbers first.
 
-"The reflectance values are off,"
-he said, low.
+"The reflectance values are off."
+
+He said it low.
 
 Kael asked.
 
 "Meaning what?"
 
-Sern pointed to one of the structures outside the window.
+Sern pointed to one of the structures outside the viewport.
 
-"At that size, more scattered reflection should be mixed in,"
-he said.
+"At that size, more scattered reflection should be mixed in."
+
+He went on.
+
 "But it is too neat."
 
-It was short,
-and ominous enough.
+When Kael looked at that structure, the light was coming back in one direction only, without a scrap of it scattering. He narrowed his eyes, but it was still the same.
 
-What they could see was strange,
-and what they could read was strange too.
+"Are those all machines?"
 
-Which meant that world was not simply a world pleasant to look at;
-it might be *a world that controlled even its own beauty*.
+"Machines made them."
 
-Seorin stood straight, not leaning on the rail,
-and for a long time watched the view outside draw closer.
+Han Jiwoo answered.
 
-Then she said, very briefly,
+"Whether they're machines themselves, I don't know."
+
+From the passage, Ater asked Sern.
+
+"Is the spacing between those lines all the same?"
+
+"It is the same."
+
+Sern answered, looking at the record panel.
+
+"If there is a difference, this ship's instruments cannot pick it up."
+
+Ater came three steps toward the viewport and stopped there. He came no closer.
+
+From inside the passage, the Hazran people came out one or two at a time toward the viewport, and no one spoke. A child came up under the viewport holding on to an adult's clothes, and when the child was too short to see, the adult picked the child up.
+
+The child looked outside and fell silent. The child didn't cry, and didn't smile either.
+
+The old man stood behind them; instead of looking at the viewport, he looked at the backs of the people looking at it.
+
+Seorin turned toward them.
+
+"Please sit down. It might shake."
+
+No one sat. Seorin didn't say it twice; she looked at the viewport again.
+
+With all sixteen gathered in front of one viewport, the cabin grew cramped. Walls patched together on Hazran, solder marks, the steel plates Han Jiwoo had added, tools laid out on the floor, water bottles, bundles of cloth. Beyond all of it, a single viewport filled with silver.
+
+Seorin stood straight, not leaning on the rail, and for a long time watched the view outside draw closer. Her folded arms came loose, and her hands dropped to her sides.
+
+Then she spoke, very briefly.
 
 "Stifling."
 
-That one word was the most accurate.
+Luhai looked at Seorin, but Seorin didn't take her eyes off the viewport. Luhai tugged once at his collar.
 
-Grand,
-cold,
-strange,
-beautiful.
-All of it was true.
+"Should I shut the viewport?"
 
-But past all of those,
-the feeling left at the end was closer to being unable to breathe.
+Kael asked.
 
-So well ordered
-that it felt as if someone like her would not be allowed even room to make a mistake here.
+"Don't."
 
-Aka looked out the window for a long time,
-then spoke, very low.
+Han Jiwoo answered, her eyes on the helm.
+
+"We need to see it."
+
+When Kael took his hand down from the viewport shutter, his handprint was left on the shutter handle. He rubbed it off with his sleeve.
+
+Luhai saw that and spoke.
+
+"What are you doing?"
+
+"Don't know. Just because."
+
+Luhai looked at his own hands. There was oil on them, but he didn't wipe it off.
+
+Aka looked out the viewport for a long time, then spoke, very low.
 
 "It's not like a place that's spent long looking at living things."
 
@@ -116,86 +142,101 @@ Aka went on.
 
 "More like a place that handles them."
 
-After those words fell,
-no one could speak right away.
+After those words fell, no one could speak right away.
 
-That world was undeniably intricate,
-quiet,
-dazzlingly in order.
+The adult who had been holding the child set the child down, and the child raised a hand to be lifted up again. The adult didn't lift the child again, but took hold of that hand.
 
-But there was no feeling of welcome at all.
-If anything, from a long way off,
-it was more like a world that wanted first to sort them, asking what they were.
+Sern lifted his eyes from the record panel.
 
-Looking out the window,
-Sion felt all over again that it was the exact opposite of Hazran.
+"One of the structures has changed its angle."
 
-Hazran had been a world where living people held on, even as it crumbled to the end.
-Ill-fitting,
-half in order,
-everything worn down,
-and still, there were people.
+Han Jiwoo looked at the viewport.
 
-But the world ahead
-looked as if it would never fall.
-Instead it looked as if no room for people inside it had been calculated from the start.
+"Which one?"
 
-Luhai said, very low,
+"The second from the left."
+
+Han Jiwoo looked at the second from the left, but she couldn't see anything different.
+
+"By how much?"
+
+"Below what I can measure."
+
+"But you say it changed?"
+
+"The reflectance values changed."
+
+Han Jiwoo shut her mouth and didn't take her eyes off the second from the left.
+
+Aka looked at that structure.
+
+"Did it turn because it saw us?"
+
+"I do not know."
+
+Sern answered.
+
+"It turned after we came in. That is all I know."
+
+Aka nodded, but she didn't step back from the viewport.
+
+Sion didn't take out the metal plate; he kept his hand over his pocket and looked at the viewport. The second from the left. He looked for it, but they all looked the same, so he couldn't tell which one it was.
+
+He looked outside the viewport, and then he looked behind him. The Hazran people were gathered at the mouth of the passage. Worn clothes, wrapped cloth, faces that hadn't been washed in days. Behind them he could see the solder marks on the hull wall.
+
+When he looked at the viewport again, there was not a single solder mark outside it.
+
+Luhai spoke very low.
 
 "This place wasn't built to keep us alive."
 
-Ater let that go unanswered
-and, still watching through the window, spoke briefly.
+Ater let that go unanswered and, still watching through the viewport, spoke briefly.
 
 "Do we go in?"
 
 The question was short.
-But the answer was already settled.
 
-They had come this far.
-The words Zahir had left them,
-the responsibility Hazran had handed over,
-the condensed trace,
-all of it was now gathering at that world's threshold.
+Seorin looked at Ater, but Ater was looking at the viewport. Han Jiwoo's hand stopped on the helm, and Sern lifted his eyes from the record panel.
 
-Sion said, very low,
+Sion's voice was very low.
 
 "We've got to go."
 
-It didn't sound brave.
-It was closer to accepting that there was no other choice left.
+He pressed once on his pocket. The metal plate was there. Two lines.
 
-Han Jiwoo checked the hull readings once more.
-Sern read the outer structure and the gaps in the watch,
-Seorin still hadn't taken her eyes off the window,
-and Aka stayed silent longest.
+While Han Jiwoo checked the hull readings once more, Sern read the outer structure and the watch intervals, and Seorin didn't take her eyes off what was outside the viewport.
 
-Then, much later,
-she spoke, almost to herself.
+Kael went over to the Hazran people and waved them back into the passage, but they didn't go. After waving twice, Kael gave up, stood in front of them, and looked at the viewport with them.
+
+While Luhai clicked his flashlight on and off, Aka stayed silent the longest. Then, much later, she spoke, almost to herself.
 
 "It's beautiful, but there's no care in it."
 
-Strangely, the words caught in everyone's chest at once.
+Hearing that, Sern wrote something on the record panel, and it wasn't a number. Han Jiwoo was watching, but Sern didn't hide the record panel.
 
-She was right.
+Toward the zone where those cold, straight structures floated, the ship turned, far more quietly than before.
 
-That was exactly the first impression the world gave.
-Beautiful,
-but no care.
-Intricate,
-but no welcome.
-Perfect,
-but no trace that it had ever thought first of a living thing's breath.
+The hull didn't ring as it turned. Han Jiwoo took one hand off the helm and laid it on the wall, but there was no ringing, and she put her hand back on the helm.
 
-Toward the sector where those cold, straight structures floated,
-the ship turned, far more quietly than before.
+The silver lines outside spread past both edges of the viewport, and now they were not lines but planes. On the planes there were more lines, and on those lines, more lines again. There was no end in sight.
 
-The planet of machines
-was no longer a distant destination.
+The child let go of the adult's hand and pressed a palm to the viewport. The adult didn't pull the hand away. The child's palm print stayed on the viewport, but outside the viewport, there was not a single mark.
 
-So orderly
-that, from the very first sight, it had become an ominous and real world,
-and it was spreading quietly outside the window.
+Sern looked at the record panel.
+
+"The second from the left has changed once more."
+
+This time no one asked. Han Jiwoo opened the fingers gripping the helm one at a time, then closed them. All five.
+
+Even after the child took the hand away from the viewport, the print stayed. Han Jiwoo saw it and didn't wipe it away.
+
+"Leave it."
+
+She spoke. No one had tried to wipe it away, and still she said so.
+
+Beside Kael as he pulled his sleeve back down, Luhai rubbed his oily hands on his trousers, but the oil didn't come off. Sern lifted his eyes from the record panel and looked at the viewport. It was the first time.
+
+The planet of machines filled the whole viewport.
 
 ---
 

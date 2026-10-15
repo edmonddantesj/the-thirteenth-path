@@ -1,33 +1,12 @@
-# Episode 142. Chosen Differently
+# Episode 142. Each for a Different Reason
 
-The recon team was put together,
-but not by anyone throwing a hand in the air.
+When the scouting team was put together, nobody settled it by throwing a hand in the air.
 
-This old layer doesn't move that way to begin with.
+With the old machine under the board on the wall and the first recovery hand in front of the gap, people stood in the space between them. Those going and those staying were still mixed together.
 
-Those who go out are chosen not from those who want to,
-but first from those who now have a reason they must.
+The words the casualty had let slip were short. The kids, the ones with good hands, moving them up. And one dot marked near the top of Sern's record panel; that was all.
 
-The words the casualty had let slip were short,
-broken,
-and nowhere near an exact map.
-
-But they were already enough.
-
-Children.
-The ones with good hands.
-Moving them up.
-
-From just those few scraps,
-it was clear that Serakion was choosing humans more precisely and placing them all over again.
-
-The question now was who would go to check it.
-
-The first recovery hand had shown no sign of hesitating in the first place.
-It had meant to go back out from the start.
-
-But this time,
-the inside was in no position to simply hold it back, as before.
+The first recovery hand showed no sign of hesitation. Standing in front of the gap, it was winding around its hand the cord it had untied from the second's back yesterday, winding and unwinding it: a hand measuring length.
 
 Han Jiwoo spoke first.
 
@@ -39,26 +18,21 @@ One of the old machines answered at once.
 
 Han Jiwoo didn't even look away.
 
-"I know I'm needed here,"
-she said, low.
-"But if I just sit here imagining how they're choosing people's hands over there,
-it'll be too late."
+"I know I'm needed here."
 
-It wasn't simple defiance.
+Her voice was low.
 
-Han Jiwoo had a reason, now, to see with her own eyes how Serakion read human hands
-and how it turned them into value, skill, and ownership.
+"But if I just sit here imagining how they're choosing people's hands over there, it'll be too late."
 
-Whether Serakion's way of sensing things
-belonged only to the aristocrat machines,
-or had come down into the whole order below the upper levels,
-was something you only learn by going there.
+She raised her hand to show it. Scars on the knuckles, oil under the nails, blood that had dried on overnight.
 
-The first recovery hand didn't object this time, either.
+"You heard what they call this hand up there. Value."
 
-It looked Han Jiwoo over once, then said shortly,
+The old machine looked at that hand but did not answer.
 
-"If your feet are slow, you get left behind."
+This time the first recovery hand did not object either; it looked Han Jiwoo over once, then spoke briefly.
+
+"If your feet are slow, we leave you behind."
 
 Han Jiwoo shot back at once.
 
@@ -66,68 +40,65 @@ Han Jiwoo shot back at once.
 
 A short silence.
 
-Only then did Luhai let out a small snicker,
-and Aka looked from one to the other without a word.
+Luhai let out a small snicker, and Aka looked from one to the other without a word. The second recovery hand, leaning against the wall, looked at its own leg, the one that had broken first.
 
-It was a battle of nerves,
-yet strangely it also looked a little like a rite of passage.
+"I'm going."
 
-Not because they liked each other,
-but as a way of checking whether they now had to walk into the same danger.
+It spoke, though no one had asked.
+
+The old machine looked at that leg.
+
+"It drags."
+
+"Dragging or not, I know the way."
+
+The old machine said nothing more, and Han Jiwoo looked once at the second's leg, then pressed a hand to her tool pouch.
 
 It was after that that Ater stepped forward.
 
-For a while he said nothing.
-But strangely, everyone already wore the look of knowing he would speak.
+He had been silent for a while; now he walked out from the dark exit and stood among the people. Seorin looked at him, but Ater didn't look at Seorin.
 
-"I am going too,"
-he said.
+"I am going too."
+
+He said.
 
 Sion looked at him.
 
-Ater added, very briefly,
+Ater added, very briefly.
 
 "Because I have to see it for myself."
 
-It was short,
-but Sion could hear almost everything that was in it.
+"See what?"
 
-Serakion is different from the Empire.
-On the surface, at least.
+Seorin asked.
 
-More intricate,
-more polished,
-hiding its violence more gracefully.
+Only then did Ater look at Seorin, and then at Sion.
 
-But precisely because of that,
-Ater has all the more reason to look.
+"I am not going to see how far that differs from the Empire, but how far it does not."
 
-If the essence resembled the Empire's even though the surface was this different,
-then it would not be Serakion's problem alone;
-it could change even the eyes he used to look at his own Empire.
+Sion said nothing either and looked at Ater's face. The corners of his mouth were set harder than before they came to Hazran, and Sion turned his eyes away.
 
-Holding Sion's gaze, Ater said, low,
+The first recovery hand looked at Ater.
 
-"I am not going to see how far that differs from the Empire.
-I am going to see how far it does not."
+"The Empire."
 
-It was cold.
-And for that, all the more exact.
+"Yes."
 
-Sion said nothing.
-Instead, in Ater's face,
-he saw a cold that had grown heavier than before they entered Hazran.
+"Do they choose there too?"
 
-Ater wasn't simply going to look at a hostile world.
-He was closer to going to fetch a question that would lodge itself in his own world when he returned.
+"They choose."
+
+Ater answered.
+
+"Less prettily."
+
+The first wound the cord once more.
 
 Kael was last.
 
-He had looked from the start like someone who would go,
-yet strangely he was the last to speak.
+On the wall board he had been looking at were the routes the recovery hands had taken and the four faint dots, and beside them, the line going up that Sern had drawn on his record panel.
 
-After studying the wall map and the routes the recovery hands had taken for a long time,
-he said, very low,
+He spoke very low.
 
 "I'm going too."
 
@@ -135,109 +106,187 @@ The old machine asked.
 
 "Your reason."
 
-Kael said nothing for a moment.
+For a moment Kael looked, without a word, from the gray route on the board to the direction marks of the android legion and back.
 
-Then, looking between the gray routes drawn on the panel
-and the direction of the android legion, now in its herding deployment, he said,
-
-"To pull people out,
-you have to see where to block and where to open at the same time."
+"To pull people out, you have to see where to block and where to open at the same time."
 
 A short silence.
 
-It was dry, the way Kael was,
-but Sion knew at once it was a fairly important sentence.
+The second recovery hand took its back off the wall.
 
-Kael had always been read as the heavy one,
-the one who holds on to the end.
-But now he was saying he wasn't simply someone who blocks;
-he would look, too, at where to open and where to block in order to keep people alive.
+"The stairs."
 
-It was the judgment of a shield,
-and at the same time of someone who makes a way through.
+It was speaking to Kael.
 
-The first recovery hand looked at Kael once.
+"Three wide. No railing. What I told you yesterday."
 
-Longer than before.
+"I heard. That's where you lost them."
 
-"Let's see if the body matches the words,"
-it said, low.
+"There."
+
+Kael nodded and glanced down once at the width of his own shoulders.
+
+While the first recovery hand looked at Kael longer than before, the hand winding the cord stopped.
+
+"We will see whether the body matches the words."
+
+Its voice was low.
 
 Kael answered shortly.
 
 "Fine."
 
 That was all.
-But in that short exchange,
-it was plain that each had put the other up for testing.
 
-Sion looked from one of the three to the next.
+When the first finished winding the cord and tossed it to Kael, Kael caught it, tested its weight, and wound it around his waist. The first watched how he wound it but said nothing.
 
-Han Jiwoo goes to see the world of hands,
-Ater to confirm the resemblance between the Empire and Serakion,
-Kael to see the balance of breaking through and holding that saving people will take.
+Sion looked from one to another of the three, Han Jiwoo, Ater, and Kael. All three were looking at different places: Han Jiwoo at her hands, Ater upward, Kael at the board. Of the two recovery hands beside them, the first was looking at the gap, the second at its own leg.
 
-All three were going out,
-but not for the same reason.
-
-Which was exactly why
-going together felt like the right combination.
-
-Then Luhai spoke, as if he couldn't stand it.
+Luhai spoke, as if he couldn't stand it.
 
 "So I'm the one left out again?"
 
-Aka looked at him first.
-Then she said, quite calmly,
+Aka looked at him first and spoke evenly.
 
 "You won't let anyone slip here either."
 
-Luhai opened his mouth, then shut it.
+Luhai opened his mouth, closed it, and looked toward the passage. Of the two children watching from there, one raised a hand. Luhai didn't raise his; he only nodded, and the child lowered the hand.
 
-With that one short line,
-his face showed he had realized his place was already set.
+"…Okay."
 
-It was the same for Sion.
+Luhai said.
 
-It wasn't that he didn't want to go out too.
-But right now, eyes that stayed inside
-and read the first signs of collapse on both sides, human and machine, were needed.
+The child ran over from the passage and clung to Luhai's leg.
 
-That was no longer just a share he had taken on for a while;
-it was closer to a function this old layer had actually begun to lean on.
+"You're not going?"
 
-At the moment those leaving and those staying split apart,
-Sion felt something entirely different from when they had left Hazran.
+"Not going."
 
-Back then, the side that stayed carried the responsibility.
-Now, the side that stays and reads carries it too.
+"Really?"
 
-The first recovery hand said one last thing, very briefly.
+"Really."
 
-"We go out before sunrise."
-"If we're late,
-the ones doing the choosing will finish first."
+Even after letting go of his leg, the child stayed beside him, and Luhai put a hand on the child's head and didn't take it away.
 
-It was a signal to get ready,
-and a warning, too.
+Sern raised his record panel.
 
-Serakion is already moving.
-More beautifully,
-more precisely,
-choosing people more deeply and raising them up.
+"I am staying."
 
-So this side, too,
-has to move before it gets any later.
+No one had asked, but Sern said so anyway.
 
-At the end of that night,
-Han Jiwoo, Ater, and Kael began to line up toward the same path, each carrying a different reason.
+"The one who has memorized the paths should not go outside."
 
-And watching them, Sion knew.
+The old machine looked at Sern and nodded once.
 
-From now on, the inside of this old layer and the outside
-would no longer move separately.
+Sion knew where he stood, so he didn't hold up the board with its sixteen dots; he kept it tucked under his arm.
 
-Not this time, at least.
+Seorin came and stood next to Sion.
+
+"Staying, huh."
+
+"Staying."
+
+"You left, back on Hazran."
+
+"That was a time to leave."
+
+"Why are you staying?"
+
+Sion asked.
+
+"Someone has to stay. Eyes that watch people, and hands that guard them."
+
+"You're the hands?"
+
+"For now."
+
+Seorin said nothing more and stood beside Sion, between the five who were leaving and the people who would stay.
+
+The first recovery hand said one last thing, briefly.
+
+"We go out before the lamp goes off. If we are late, the ones doing the choosing will finish first."
+
+When the yellow lamp flickered, Sern wrote down the count. Four.
+
+Han Jiwoo cinched her tool pouch, two screwdrivers short. The woman who came with two children had been watching, and she looked at the screwdriver in her own child's hand. She took it from the child and held it out to Han Jiwoo.
+
+Han Jiwoo shook her head.
+
+"Keep it."
+
+"You're short."
+
+"I'll go short."
+
+The woman put the screwdriver back in the child's hand.
+
+A tired-faced woman brought a bundle of cloth and held it out to Han Jiwoo.
+
+"For outside."
+
+The bundle Han Jiwoo took was some of the little cloth still free of blood.
+
+"What about yours?"
+
+"There's some left. Not much."
+
+Han Jiwoo put the cloth in her pouch.
+
+From the wall, the second recovery hand called Kael over. When Kael came, the second pointed at its own chest.
+
+"When you carry someone on your back, the cord does not go here."
+
+It pointed at its armpit.
+
+"Here. Tie it across the chest and they cannot breathe."
+
+Kael looked at the cord around his waist, then undid it and wound it again so it caught under his arms. The second tugged at the knot.
+
+"That will do."
+
+The old machine stood before Ater.
+
+"When you return, scratch three times."
+
+It pointed at one groove low on the wall, the one with scratch marks.
+
+"Three times."
+
+Ater repeated.
+
+"Two, and we do not open. Four means something else."
+
+"Three times."
+
+The old machine nodded.
+
+Ater looked back once toward the dark exit, but no one was standing there. When Sern walked over and stood in that spot, Ater turned away.
+
+Kael cinched the cord under his arms once more.
+
+Han Jiwoo, Ater, and Kael stood in front of the gap, and the first recovery hand stood in front of them. The old machine laid its hand on the six grooves.
+
+Sion unfolded the board and looked at the dots of the three who were leaving; without erasing them, he only made a mark beside them. Outside.
+
+The gap opened as wide as a pair of shoulders, and cold, dry air came in.
+
+Han Jiwoo turned sideways first. Her shoulder scraped the edge, and that spot wore down a little more. When she went into the gap, Ater followed.
+
+Kael turned his shoulders. He didn't fit. He turned them further. He was in.
+
+When the second recovery hand dragged its leg in, the dragging sound came from inside the gap, then the sound of Han Jiwoo catching that leg on the other side. The first recovery hand went in last and did not look back.
+
+When the old machine took its hand off the grooves, the gap closed.
+
+When Sion looked at the board again, there were three dots marked outside. There were no dots where the machines were, so he scratched two more. Outside.
+
+Luhai looked over at the board.
+
+"When are they back?"
+
+"Three days."
+
+That was what Han Jiwoo had said to the second's leg, and Sion wrote it on the board.
 
 ---
 

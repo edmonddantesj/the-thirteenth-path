@@ -1,201 +1,194 @@
-# Episode 128. Keepers of Memory
+# Episode 128. Those Who Carry Memory
 
-After the old machine appeared,
-the air around them went noticeably quiet.
+After the old machine appeared, everything around them went quiet.
 
-No one had ordered silence.
-But those who had been in this space a long time
-seemed used to adding no sound of their own before that machine spoke.
+No one had ordered silence. The beings who had been in this space a long time did not add a sound of their own before that machine spoke. From farther in came only the sound of water boiling.
 
-Sion saw it and knew at once.
+The old machine watched the newcomers for a while, then slowly moved its gaze.
 
-That was not simply an old machine.
-Within this community,
-it was closer to something carrying time itself on everyone's behalf.
+The injured, the old, the children, the people trying to stay on their feet to the end.
 
-The old machine watched the newcomers for a while,
-then slowly moved its gaze.
+One of those trying to stay on their feet was the old Hazran man. His knees shook as he stood with his back off the wall, but he did not sit.
 
-The injured,
-the old,
-the children,
-and those determined to stay on their feet to the end.
+The old machine spoke again.
 
-That look held none of the reading they had felt in the upper levels of Serakion.
-But it wasn't an empty look either.
+"Medical parts are not plentiful. Even so, the treatment needed now comes first."
 
-If anything, it had seen too many cases for too long,
-and it was a look that no longer put names on things easily.
+At that, several other machines further in moved at once.
 
-The machine spoke again.
+Not one machine raised its voice; in the quiet, one machine opened a crate and cloth came out, and another carried over bowls of water. A third knelt in front of the injured man, and its knee made a sound.
 
-"Medical parts are not plentiful."
-"Even so, the treatment needed now comes first."
+The injured with the injured, over by the wall, the children and the old toward the warm side farther in, those who could walk toward where the crates were being carried.
 
-At that,
-several other machines further in moved at once.
+Luhai saw that and looked at Seorin, and when Seorin shook her head, he kept his mouth shut.
 
-It was startlingly quiet,
-and though no one raised a voice,
-the space began to rearrange itself very quickly.
+The old Hazran man was waved toward the inner side, but he did not go and stayed standing against the wall. The machine did not wave again; instead it set a bowl of water at the man's feet and moved on, and a long while later, the man picked it up.
 
-But it was not like the arrangements of the Serakion above.
+It looked like the same kind of sharing, but there was a difference. Up there, a machine had stood in front of a person and pointed the way; here, a machine picked up a crate and came toward the person. If the person didn't move, the machine did.
 
-This was not sorting meant to keep people apart;
-it was emergency triage, to keep anyone from dying or breaking down right now.
+The hands of the moving machines, as Han Jiwoo saw them, were clumsy. One machine had four fingers; another's wrist bent the wrong way. The parts didn't fit, so the angles were off. When that hand went to pick up the cloth, it missed twice and got it on the third try. Once it had it, laying it over the injured man's leg, it did not drop it.
 
-The injured with the injured,
-children and the elderly a little farther in, where it was warmer,
-and those who could walk toward carrying supplies and helping others stay upright.
+A child took fright at the sight of the treatment cloth and hid behind the hem of an adult's clothes.
 
-Roles were divided.
-But worth was not.
+One of the machines farther in stopped its hands and, very slowly, lowered itself on its knees to the child's eye level, its knee making a sound as it went.
 
-Sion felt that difference immediately.
+The machine said nothing to soothe; it spread its hand in front of the child, back of the hand up.
 
-It might look like the same sorting,
-but the Serakion above tried to fix people in place to fit its own order,
-while here they watched first for who might go out soonest
-and held on to the most urgent first.
+A scarred metal back of the hand, worn joints, connectors whose color had been rubbed away by long use. One finger was missing its tip.
 
-Han Jiwoo seemed to notice it too;
-she watched the hands of the working machines for a long time.
+The child looked at that hand, and the crying stopped. The child's hand left the adult's clothes and went close to the back of the machine's hand, but did not touch. The machine did not move its hand, and even while the child touched a scratch on the back of it with one finger, the machine stayed as it was.
 
-The machines above had been trained beautifully, down to their fingertips.
-These were different.
+"Does it hurt?"
 
-They were clumsy,
-familiarity came before efficiency,
-and on some, the parts didn't match, so even the angle of the fingertips was slightly off.
+The child asked.
 
-And yet, strangely,
-that was why they seemed more careful when they touched people.
+The machine did not answer; it turned its hand over so the palm faced up. There were scratches on the palm too, and the child touched those as well.
 
-When a child took fright at the sight of a dressing cloth,
-an old machine stopped its hands and very slowly bent its knees to come down lower.
-
-It said nothing to soothe.
-Instead it let the child look at its hand first.
-
-The scarred metal back of the hand.
-Worn joints.
-Connectors whose color had been rubbed away by long use.
-
-Seeing it, the child stopped crying.
+The adult took hold of the child's shoulder. Did not pull. Only held on.
 
 Aka watched the scene and muttered quietly.
 
 "They don't hide it here."
 
-There was no telling whether the old machine had heard.
-But a little later,
-the machine that had first opened the way said, very low,
+Whether the old machine had heard that, no one could tell. A little later, the machine that had first opened the way spoke, very low.
 
 "Hiding makes them more afraid."
 
 Luhai gave a small snort at that.
 
-"Weird."
-"Less in one piece, and that makes it less scary?"
+"Weird. Less in one piece, and somehow less scary."
 
 This time it was Han Jiwoo who answered.
 
 "It doesn't pretend to be fine."
 
-After that,
-there was a brief silence.
+Luhai looked at Han Jiwoo, but Han Jiwoo was looking at the machine's hand. The child was still touching the back of it.
 
-And in that short silence,
-Sion felt the sense of what divided the Serakion above from the one below grow sharper.
+In the brief silence, the sound of boiling water grew louder. From farther in, the sound of someone setting down a bowl.
 
-Up there was a world that pretended to be complete.
-Down here was a world that didn't hide that it was broken.
+The tired-faced woman came out carrying bowls of water and set them first in front of the Hazran children, then the old, then the injured. She set none in front of Sion's party, but Seorin saw that and said nothing.
 
-That difference
-was keeping people alive right now.
+The woman looked at Seorin.
 
-A little later,
-the old machine turned its gaze back toward Sion's party.
+"You lot can walk."
 
-"This is not a place for holding out long."
-"It is closer to a place that remains to hand memory on,
-and to make the next failure smaller."
+"I know."
 
-Sion turned the words over.
+Seorin answered.
 
-Handing memory on.
+The woman nodded and went back inside.
+
+A little later, the old machine turned its gaze back toward Sion's party.
+
+"This is not a place for holding out long. It is closer to a place that remains to pass memory on, and to make the next failure smaller."
+
+Sion repeated the words to himself without a sound.
 
 Aka reacted first.
 
 "To who?"
 
-The old machine's optic flickered, very faintly.
+The old machine's optical eye trembled very slightly, and its uneven light went uneven once more.
 
 "To the side that has not broken down yet."
 
-The answer was oddly cold.
-But inside it were the resignation and the will that only something long-enduring could hold, both at once.
+Aka looked at the three solder marks below the old machine's neck.
 
-Without meaning to, Han Jiwoo kept looking at the machine.
-
-That was no working weapon or management machine.
-If anything,
-to remember the names and failures and routes that kept vanishing,
-it had held on past what it was built for.
+Han Jiwoo looked at that machine for a long time. The parts of a different make in its joints, the uneven optical eye, three marks. She laid her hand on her tool pouch, then took it away.
 
 Sern asked, low.
 
 "Are you the ones who run this place?"
 
-The old machine shook its head at once.
+The old machine shook its head at once, but its head took time to turn.
 
-"We do not run it."
-"We maintain it."
+"We do not run it. We maintain it."
 
-A short silence.
+Sern wrote the two words side by side on his record panel, and Ater, looking at the record panel, looked at the space between the two.
 
-The difference between those two words
-sounded like the whole of this community.
+"What is the difference?"
 
-Running meant order.
-Maintaining meant slowing the collapse.
+Ater asked. He was asking the old machine.
 
-And this place
-was clearly the latter.
+"Running is for growing."
 
-Two humans came out from further in carrying a crate of supplies,
-and two machines took a share of the weight without a word.
+The old machine answered.
 
-The movement was natural.
-But it looked less like practiced cooperation
-than an agreement reached at last, after long discomfort.
+"Maintaining is for shrinking less."
 
-Watching it, Sion felt for the first time
-that this was not just a place where people in hiding had gathered.
+Ater nodded once at that.
 
-It was not a place only for fighting.
-Inside a world that kept collapsing,
-it was a structure for handing on memory and purpose and the record of failure, very slowly.
+When two humans came out from farther in carrying a supply crate, two other machines took a share of the weight without a word. A human at one end, a machine at the other. The crate tilted. The machine end was lower. The machine raised its arm. The crate leveled out. The four of them walked like that.
 
-People
-and machines,
-never fully trusting each other,
-still holding on to something that must not be allowed to break off.
+Kael watched that and went to lift a crate himself, and a machine took the other end. Kael looked at the machine. The machine looked at Kael. The two of them lifted. The crate tilted with Kael's end higher, so Kael lowered his arm.
+
+Luhai saw that and went over too, but there was no crate left to lift. He stood empty-handed for a moment, then came back.
+
+"All lifted."
+
+He told them.
+
+No one laughed, but the corner of Han Jiwoo's mouth moved a little.
+
+Seorin came over beside Sern.
+
+"Of the two exits, which one goes up?"
+
+"I do not know."
+
+"Ask."
+
+Sern asked the machine that had opened the way, and the machine pointed to the dark one.
+
+"That one goes up. The lit one goes farther in."
+
+Seorin looked at the dark one.
+
+"You've blocked it?"
+
+"We do not block it. We watch it."
+
+While Seorin asked nothing more, Ater went and stood at the mouth of the dark one. No one had told him to.
 
 Last of all, the old machine looked at Sion's party and spoke.
 
-"Questions come later."
-"For now, we must count the lost first."
+"Questions come later. Right now, the number lost must be counted first."
 
-It was said with an almost cruel calm.
-But no one could argue.
+At that, the old Hazran man went down on his knees. The legs he had been standing on would not hold any longer. Sitting there, he spread his fingers. The same hand that had stopped counting earlier.
 
-Since they had entered Serakion,
-this was the first time they understood
+The old machine went to the man, its knee ringing at every step, stopped, and lowered itself on its knees until its eyes were level with the man's.
 
-that at the heart of this old layer
-there were not people shouting that they would change the world,
-but, before anything else, those who refused to forget how much of the world had been broken.
+The man raised his head and looked into the old machine's uneven optical eye.
+
+"Must I start with the names?"
+
+The man asked.
+
+"No. The number comes first. The names remain afterward."
+
+The man looked at his fingers.
+Five.
+The other hand.
+Ten.
+He folded them and spread them again.
+
+Watching those fingers, Sion thought of the metal plate in his pocket. Two lines. He did not take it out.
+
+What the tired-faced woman held as she came out from farther in was a thin metal plate, covered in scratches. Across, down, slantwise. She set the plate beside the old machine, right in front of the man.
+
+"Scratch it here. Say it out loud and you forget."
+
+Her fingernail tapped one of the marks on the plate.
+
+The man looked at the plate; there were hundreds of marks on it. He took the screwdriver from his pocket. The one Han Jiwoo had given him. Then he set the tip of the screwdriver against the plate.
+
+Watching that, Han Jiwoo closed her hand.
+
+The man scratched the first line. The screwdriver tip scraped against the metal. To Han Jiwoo, it was the same sound as Sion scratching his plate on Hazran.
+
+The man scratched the second line.
+
+The old machine stayed as it was, lowered on its knees. It did not get up; it stayed there while the lines grew.
 
 ---
 

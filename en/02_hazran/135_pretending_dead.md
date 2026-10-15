@@ -1,81 +1,88 @@
-# Episode 135. The Path That Played Dead
-
-The first time Sion took those words seriously,
-it was because of Han Jiwoo, not Aka.
+# Episode 135. The Path Pretending to Be Dead
 
 It was true that Aka had said it first.
 
-*That path isn't dead.*
-*It's pretending to be dead.*
+*That path isn't dead. It's pretending to be dead.*
 
-But the words were so very Aka
-that they were also the kind that made the listener stop short before understanding them.
+After hearing that, Sion had looked at the wall three times. All three times it looked the same as any other wall, and all he knew was that it had less rust.
 
-So Sion had only kept them hanging in one corner of his mind.
+Han Jiwoo came to crouch in front of that wall after she had fixed the knee of the machine whose joint had slipped.
 
-Was there really something in there?
-Or was it some grain only Aka could read?
+She set her tool pouch down beside her and felt along the metal edge with her fingertips, top to bottom and back up again, and for a while she said nothing.
 
-The question came back to life
-when Han Jiwoo crouched close to that wall and began running her fingertips along the metal edge.
+The blocked passages of the old layer all looked alike. Every worn wall had been patched over, weld marks layered on weld marks. Han Jiwoo stopped for a long time in front of only one of them.
 
-For a while she said nothing.
+It was the place the two machines had been opening up yesterday; today the machines were gone, and all that was left were the marks of their handling, the places where the dust had been wiped away.
 
-Most of the blocked passages on the old layer looked alike.
-Worn,
-patched over,
-weld scars overlapping here and there.
-
-But Han Jiwoo stopped for an unusually long time in front of one spot only.
-
-Sion went closer and asked, low,
+Sion went closer and asked, low.
 
 "What's different?"
 
-Han Jiwoo answered without taking her hand away.
+Han Jiwoo answered without taking her hand off the wall.
 
 "This isn't a hand that shut it for good."
 
-Sion looked at the wall again.
-No matter how he looked, it was blocked.
+Sion looked at the wall again, and it was plainly blocked.
 
-Han Jiwoo went on, low.
+"It's hidden. Not blocked."
 
-"It's hidden."
-"Not blocked."
+Her fingertip followed one seam slowly down from shoulder height to knee height, then turned there and moved sideways, drawing a frame big enough for one person.
 
-As she said it,
-her fingertip moved slowly along a single fine seam.
+"Look here."
 
-On the surface it looked as if it had set hard long ago,
-but there was a worn grain left from taking force from the inside.
+She touched one point on the seam with her fingernail.
 
-It was very faint.
-But once you knew,
-it no longer looked like an entirely dead surface.
+Sion looked at the spot, but it still looked the same as everywhere else.
+
+"It's worn. When force comes from inside, it wears like this. Push from outside and it wears the other way."
+
+Her fingernail scraped the spot once more.
+
+When Sion looked at it again, the difference was no bigger than a fingernail mark, but once he had seen it, he could see it.
 
 Aka spoke beside her.
 
 "They keep coming through."
 
-Han Jiwoo gave a short nod.
+Han Jiwoo nodded.
 
-"Yeah."
-"Not a lot,
-but it's never stopped."
+"Yeah. Not many, but it's never stopped."
 
-The moment the two of them said the same thing,
-Sion truly accepted, for the first time, that the wall might not be just a sealed-off zone.
+"How do you know?"
 
-It seemed the same went for the machines of the old layer.
+Sion asked.
 
-Two old machines watching from a little way off
-exchanged a look without a word.
+"If it stops, rust comes up."
 
-Their reaction was less surprise
-than something closer to being found out.
+Her finger moved along the seam.
 
-Han Jiwoo pressed her whole palm flat against the wall and said, low,
+"None came up here. Someone keeps touching it."
+
+A little way off, the two old machines that had been opening it up yesterday were watching this side, and then they looked at each other. When one machine took a step back, the other caught its arm, and both stayed standing there.
+
+To Sion, the two of them stood like they had been caught.
+
+One of the two looked toward the old machine, but the old machine had not come yet, so that machine spoke.
+
+"We opened it yesterday."
+
+It was not clear whom it was speaking to.
+
+"I know."
+
+Han Jiwoo answered without taking her eyes off the wall.
+
+"I can see where the dust was wiped."
+
+"It was not wiped. It was touched."
+
+The machine's fingers curled in on their own.
+
+"Same thing. Touch it and it gets wiped."
+
+The machine said nothing more and looked at its own hand; the fingertips were clean.
+
+Han Jiwoo laid her whole palm against the wall and stayed like that a long while.
 
 "This hand goes outside."
 
@@ -83,112 +90,101 @@ Sion looked at her.
 
 "You're sure?"
 
-This time Han Jiwoo took a little longer to answer.
+This time she waited even longer, then lifted her palm away and looked at it; there was almost no dust on it.
 
-"It's not for repairs,
-and it's not for keeping it sealed."
-"It's not a hand that shut it in a hurry to open it again later,
-it's a hand that keeps working it so it gives away less, even if it's found."
+"It's not for repairs, and it's not for keeping it sealed. It's not a hand that shut it in a hurry and opened it again. It's a hand that keeps working it so it gives away less, even if it's found."
 
-That was a completely different story.
+Luhai, a child on his back, heard that from behind.
 
-Until now, this old layer
-had looked only like an inner place where hurt people barely held on.
+"There's a way out?"
 
-But if that path was alive,
-it meant that somewhere in here there were still hands that went outside and came back.
+"There is. I don't know where it goes out to."
 
-Sion suddenly
-thought of the machine that had first brought them all the way here.
+The strap of the tool pouch wound once around her hand.
 
-Wearing Serakion's face,
-a hand that pulled people out before it explained anything.
+Sern came over without his record panel and measured the frame of the seam with his hand. One span, two spans, three spans. Two spans across.
 
-If that was tied to this path,
-then this old layer was a place that kept memory
-and, at the same time, a place that was not simply hiding to the very end.
+"It is shoulder width."
 
-Just then,
-a very low scrape of friction came from behind them.
+He said.
 
-When Sion turned,
-one of the old machines that had been watching them since the day before was slowly coming toward them.
+"A machine's width, not a person's."
 
-It looked at the wall for a moment,
-looked again at the spot Han Jiwoo's hand was resting on,
-and said, dryly,
+"People can't get through?"
+
+Luhai asked.
+
+"They can. Sideways."
+
+Sern turned his body sideways to show him.
+
+Luhai looked at his own shoulders, at the child on his back, at the wall. The child looked too, over his shoulder, but neither of them saw anything.
+
+Sion thought of the machine that had first brought them this far. It was the hand that had opened the way while wearing Serakion's face. That machine was sitting beside Sern now, marking dots, and even when Sion looked its way, it did not look over; it went on marking dots.
+
+From behind came a low scrape.
+
+Sion turned and saw the old machine approaching slowly. The sound of its knee drew closer. It was not the knee Han Jiwoo had fixed; it was the other knee.
+
+It looked at the wall, then at the worn place Han Jiwoo's hand was touching, and spoke dryly.
 
 "So you know how to read that."
 
 Han Jiwoo answered without taking her hand off the wall.
 
-"It's less that I read it
-than that the way it's hidden stands out."
+"It's less that I read it than that the way it's hidden stands out."
 
-The old machine did not answer that right away.
+"It is not supposed to stand out."
 
-Instead, after a long while,
-it said, very low,
+"It only stands out to me. The ones up there can't see it. They've never fixed anything."
+
+The old machine didn't answer right away. Its optical eyes rested on Han Jiwoo's hand, on the scars across her knuckles.
+
+After a long while, it said, very low.
 
 "It is not a path everyone knows."
 
-That sentence was closer to admission than denial.
+Sion heard that. It had not said no.
 
-Sion didn't let it slip past.
-
-Aka looked at the wall and asked, quietly,
+Aka looked at the wall and asked quietly.
 
 "Does it go outside too?"
 
-This time too, the old machine did not answer right away.
+The old machine didn't answer, and the silence went on. The child squirmed on Luhai's back, and Luhai shifted the child higher. Even while that made its noise, the old machine still didn't answer.
 
-The longer that silence went on,
-the closer Sion came to feeling certain.
-
-It was there.
-
-And it was a path
-known not to the whole old layer
-but precisely to only a few in it.
-
-Only after a long while did the old machine speak.
+Only after a long while did it speak.
 
 "There are those who come back."
 
-That one line was enough.
+Who they were, from where, what they had been doing before they came back, it did not say.
 
-Who,
-from where,
-having done what out there—it had not said yet.
+Han Jiwoo took her hand off the wall.
 
-But that one sentence alone
-changed the whole air of the old layer, a little.
+"How many."
 
-This was not simply an inner place that slowed the collapse.
-There were still hands that went out and came back.
+"Few."
 
-Han Jiwoo touched the wall once more.
+"How often."
 
-Then she said, very low,
+"We do not set it. If we set it, we are found out."
 
-"Those hands,
-they must be rough."
+Only after touching the wall again and laying a finger on the worn place did Han Jiwoo speak, very low.
 
-Only then did the old machine move its optical eye, very slightly.
+"Those hands, they must be rough."
 
-"They wear down faster
-than the hands that hold out long."
+The old machine moved its optical eyes very slightly.
 
-Strangely, those words
-struck Sion's chest a little hard.
+"They wear down faster than the hands that hold out long."
 
-There were hands that stayed inside and held on to memory,
-and hands that went outside and wore down faster.
+"Who fixes them."
 
-Both were part of this old layer.
+"We fix them when they come back."
 
-What Sion's party had seen so far
-was only the very deepest inside of it.
+"And if they don't come back."
+
+While the old machine gave no answer, of the two machines standing behind it, one lowered its head and the other did not. Han Jiwoo didn't ask again either.
+
+Sion looked at the wall. There are hands that stay inside and hold on to memory, and hands that go outside and wear down faster. He pressed on his pocket. Two lines. There are hands that scratch the lines, and lines no one has managed to scratch.
 
 Aka murmured, her hand still on the wall.
 
@@ -198,31 +194,69 @@ Sion looked at her.
 
 Aka went on without even moving her eyes.
 
-"In here it smelled like hiding,
-out there it smells like coming and going."
-
-It didn't sound like an explanation,
-but it was strangely exact.
+"In here it smelled like hiding, out there it smells like coming and going."
 
 Han Jiwoo followed with a short line of her own.
 
-"Yeah."
-"It's not the smell of metal that's stayed put."
+"Yeah. It's not the smell of metal that's standing still."
 
-Then, for the first time, Sion felt clearly
-that even outside this old layer
-there was a story still in motion.
+She brought her nose close to the wall without touching it, drew a breath in, and pulled back.
 
-Serakion behaved like a finished world,
-and this inner place looked like a world that was holding on.
+"It smells like wind."
 
-But somewhere between the two
-were hands moving at a different speed, slipping in and out unnoticed
-and bringing back people and supplies and news.
+"Wind?"
 
-And that path
-was not dead;
-it had been playing dead from the start.
+"Moving air. Something there isn't any of in here."
+
+Luhai, the child still on his back, took a step closer, put his face near the wall, and drew a breath in.
+
+"I don't get it."
+
+All he got was a little dust on the tip of his nose.
+
+"You've never fixed a machine."
+
+He rubbed his nose and stepped back. The child on his back reached toward the wall, but the small fingertips didn't reach.
+
+While the old machine stood unmoving before the wall, two old machines came and stood behind it. The three stood with their backs to the wall, facing Sion's group.
+
+It was not a stance for blocking. It was a stance for standing.
+
+Han Jiwoo picked up the tool pouch she had set on the floor and stood.
+
+"I won't open it."
+
+"I know."
+
+The old machine answered.
+
+"When does it open."
+
+"When they come back."
+
+Han Jiwoo nodded, stepped three paces back from the wall, and stopped there. It was the distance the machine had kept from the child.
+
+When Sion stood beside her, Aka stood too, and Luhai stood with the child on his back.
+
+The four of them looked at the wall. The three looked at the four. No one moved.
+
+Sion took out the metal plate. Two lines. He looked at the worn place on the wall that Han Jiwoo had touched. The hand that scratches and the hand that wears down. Then he put the plate away again.
+
+From Luhai's back, the child asked.
+
+"Is that a door?"
+
+"Dunno."
+
+"If it's a door, will you open it?"
+
+"No."
+
+With a chin propped on Luhai's shoulder, the child looked at the wall.
+
+No sound came from inside the wall, and Han Jiwoo listened to that soundlessness. A blocked wall makes no sound. A hidden wall makes no sound either. It was the same soundlessness.
+
+She didn't move from her spot three steps back. There was no dust on her fingertips.
 
 ---
 

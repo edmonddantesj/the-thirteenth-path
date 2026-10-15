@@ -81,8 +81,8 @@ Han Jiwoo snapped back.
 
 "You can tell by looking?"
 
-"The engine sound's different,"
-Kael said.
+"The exhaust tails are different,"
+Kael said. "A civilian ship can't cut its burn that short."
 "One scares you. One means to bite and hang on to the end. There's a separate catching hand."
 
 Sern asked at once.
@@ -97,7 +97,7 @@ he said, low.
 
 No one asked him to explain.
 
-Sion found that strange. Kael had said what kind of people those were from the engine sound alone, and no one asked him for proof.
+Sion found that strange. Kael had said what kind of people those were from the exhaust tails alone, and no one asked him for proof.
 
 Seorin was already asking about the next thing.
 
@@ -142,11 +142,11 @@ Kael muttered low.
 
 As he said it, Sion saw another afterglow driving in between the outer frames on the right.
 
-Then he tried listening. Kael had said he'd told them apart by sound.
+Then he looked at the exhaust tails behind them. Kael had said that was how he'd told them apart.
 
-He couldn't hear it. The roar inside the hull was too loud.
+To Sion's eyes, the two lines of light looked the same.
 
-He could see it instead. That one turned after they turned. Half a beat late every time, at the same angle every time.
+He saw something else instead. That one turned after they turned. Half a beat late every time, at the same angle every time.
 
 "Jiwoo,"
 Sion called, short.

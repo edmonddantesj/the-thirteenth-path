@@ -8,7 +8,7 @@ Sion Lapis was crouched in the middle of those failures. The sleeves of his dark
 
 He turned over a storage case whose retrieval tag had been half torn off, and scraped at the black soot left in its inner corner with a fingernail.
 
-Footsteps came in from the passage behind him. Sion's ears turned toward them first. The rest of him stayed where it was.
+Footsteps came in from the passage behind him. Sion's ears reacted to the sound first. The rest of him stayed where it was.
 
 "Hey, Bloodhound. That one's already stamped for disposal."
 
@@ -22,7 +22,7 @@ The footsteps didn't stop; they went on past. From the far end of the passage, a
 
 "Then that's handled."
 
-Sion didn't look that way either. Bloodhound was a word people said to your face, so it ended the same day; ragpicker was a word that went into the paperwork, so it got passed on to the next person.
+Sion didn't look that way either. Bloodhound was a word people said to your face, so it ended the same day; ragpicker came out of the mouths that handed the work down, so it followed the work on to the next person. Even when the paperwork said disposal inspector, clean as you like.
 
 He tilted the case back toward the light. There were plenty of burn marks, yet one side was oddly too clean. Too hasty for something erased, too blatant for something just shoved aside.
 
@@ -48,7 +48,7 @@ The supervisor held a thin transfer pad out toward Sion. The surface showed only
 
 "Which is why I'm giving it to you."
 
-Sion took the pad and skimmed it. Even a skim snagged on two or three spots. At this point the paperwork was more suspicious than the salvage.
+Sion took the pad and skimmed it. The retrieval point field held a single line. Neutral port city, lower district, fire-debris outlet. Even a skim snagged on two or three spots. At this point the paperwork was more suspicious than the salvage.
 
 He asked without even lowering the pad.
 
@@ -104,7 +104,7 @@ A moment later, she raised one eyebrow, very slightly.
 
 "This is the only place to throw it."
 
-"Right. Write one line saying it went to the ragpicker, and nobody ever opens it." Seorin didn't take her eyes off the pad. "Up there, that counts as closed."
+"Right. On paper, one line saying transferred for inspection is enough. Everyone who reads it hears that it went to the ragpicker, and nobody ever opens it." Seorin didn't take her eyes off the pad. "Up there, that counts as closed."
 
 Sion laughed low.
 
@@ -264,9 +264,9 @@ Seorin laughed, almost a sigh.
 
 "Then it's even worse."
 
-Sion opened the storage case again. He moved much faster than before.
+Sion opened the storage case again. He moved much faster than before. He turned the pieces over one by one. Every one had been eaten by fire right to the edge. Not a single piece was only partly burned.
 
-"I need to go to the site."
+"Only the burned-through ones came up. The partly burned ones must still be down there. I need to go to the site."
 
 "The neutral port city?"
 
@@ -291,11 +291,11 @@ The Administration's official transit line was built with no need to be fast. Wh
 
 Seorin asked from beside him.
 
-"Pretending to book the official line, at least."
+"Going to wait for approval?"
 
-"It's not pretending. It's leaving a trace."
+"No. I'm still filing the request, though. So nobody calls it unauthorized departure later."
 
-Sion answered, then opened the request window. He set the cursor at the very top of the input field and paused a moment, then typed the sentences in with a practiced hand.
+Sion opened the request window. He set the cursor at the very top of the input field and paused a moment, then typed the sentences in with a practiced hand.
 
 **Request for origin cross-check on classification-hold item. Identification code mismatch and gaps in retrieval route. On-site verification of retrieval link line required.**
 
@@ -349,19 +349,19 @@ Seorin saw the number and clicked her tongue.
 
 "By then the site will have closed at least three more times."
 
-"That's why I'm only pretending to wait."
+"So we go down tonight."
 
-Sion opened the list of outer cargo transfer lines. Three reached it within the day, and two of those were no use.
+Sion opened the list of outer cargo transfer lines. Three ships were going down to the neutral port city tonight. Two of them needed an Administration boarding permit.
 
 "Bottom one, then."
 
-Seorin said it first.
+Seorin said it first. It was a waste collection ship.
 
-"Yeah." Sion nodded. "Now that I've put in for an on-site cross-check, going out on a retrieval link line counts as an excuse."
+"Yeah." Sion nodded. "That box probably came up on this line too. Someone going to cross-check the origin riding down on the same ship makes sense."
 
-"A waste collection ship is a retrieval link line?"
+"So that's how you'll write it up?"
 
-"Some days, if the paperwork says so, it is."
+"I will. It's what I'm actually going there to do."
 
 Seorin looked at Sion's face for a moment, then laughed low.
 
@@ -371,15 +371,15 @@ Sion opened the last route's details. The registered weight and the actual load 
 
 A dock number remained on one side of the screen. 18-B.
 
-"So, this time we're just stowing away?"
+"So we're boarding before the approval comes through?"
 
 Seorin asked.
 
-"No." Sion closed the terminal as he answered. "We pretend to wait, then go first."
+"Yeah." Sion closed the terminal as he answered. "If it comes through, I can take it there."
 
-"There's a difference?"
+"And if it doesn't?"
 
-"A little, when they try to pin it on us later."
+"I filed the request. Better than slipping out on the quiet."
 
 Seorin only snorted. An Administration-grade lawbreaker. That was exactly the smell of it.
 
@@ -473,9 +473,13 @@ Sion walked up the ramp.
 
 He didn't look up on the way. If he looked, they would know he had seen.
 
-Instead he pressed on the pocket once more.
+Halfway up, the rattle of the chain overhead stopped.
 
-Still thin. Something this thin, and the supervisor had carried it down in his own hands.
+Instead the railing creaked once. The sound of someone shifting their weight forward. It was also the sound that comes right before someone jumps.
+
+Seorin's step fell half a beat behind. From there she could see up.
+
+Sion didn't slow down. If he slowed, that would be an answer.
 
 ---
 

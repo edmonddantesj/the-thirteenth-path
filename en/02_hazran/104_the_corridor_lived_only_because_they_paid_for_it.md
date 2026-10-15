@@ -168,7 +168,8 @@ Only then did Zahir look at Sion.
 
 At that, Sion's breath caught.
 
-"If the other side breaks through today, it opens whether we dig or not,"
+"If the other side breaks through today, it opens whether we dig or not."
+
 Zahir said.
 
 "So for us, it opens if we dig and it opens if we don't."

@@ -224,7 +224,19 @@ Elia picked up the snack bag again.
 
 The air in the room settled once more.
 
-Sern stood beside the reading plate, still looking at the cut face.
+Sion took another fragment out of the retrieval pocket inside his coat. He had carried it all the way from the Administration dock. He set it down beside the reading plate.
+
+Elia put that one on the light too. She didn't look for long.
+
+"Same panel. Burned the same day." Elia pushed the two fragments side by side. "The fire ate this one all the way through. This one only burned at the edges."
+
+"So the one that came up to the dock is the burned-through one," Sion said.
+
+"And the one he ran with is the partly burned one," Seorin said.
+
+Elia nudged the burned-through fragment away a little with her fingertip. "Send a burned-through one up as disposal and it ends in paperwork. The partly burned one was still out there, so they chased it."
+
+Sern stood beside the reading plate, still looking at the cut face of the archivist's fragment.
 
 "My lord."
 

@@ -6,8 +6,6 @@ The long shadows the craft had laid across the red sand began to break apart. Wh
 
 The hulk wreckage zone.
 
-Sion knew it at first sight.
-
 This was not a place where whoever refused to slow down won. It was a place where whoever knew where to kill their speed survived.
 
 Han Jiwoo seemed to have read the same thing. The hands that had pushed all the way down the glide strip pressed the craft down, very briefly, just before they reached the mouth of the wreckage zone. The skiff's nose dipped a little and the hover plates dropped one notch in height. They were still fast, but a completely different tension had taken hold.
@@ -36,9 +34,9 @@ The next instant, the floor ahead gave way once.
 
 A plate no one had seen sank downward, and the nose of the lead craft buried itself at a slant. The two teams behind had no room to avoid it and wrenched their angles, and one of them had a hover plate torn off with a rough burst of metal.
 
-Han Jiwoo skimmed past the outside of it and said, very short,
+Han Jiwoo skimmed past the outside of it and spoke very briefly.
 
-"Good."
+"Clear."
 
 That one word set Sion's shoulders firmer.
 
@@ -61,11 +59,7 @@ Sern answered only briefly.
 
 "Here, the one that does not tear lasts longer than the fast one."
 
-Behind them, teams that had barely made it through the collisions on the glide strip were being sifted hard once more at the mouth of the wreckage zone. The faster the craft, the more it underestimated this stretch and the deeper it crashed. Craft that were too slow, on the other hand, could not claim a line before the open gaps shut. Only now did Sion understand in his body why the race needed a second stage.
-
-If the red glide strip had sifted people by speed,
-this place weighed the sense to read the way
-together with how far a craft could hold.
+Behind them, the teams that had barely got through the collisions on the glide strip were being sifted hard once more at the mouth of the wreckage zone. The faster the craft, the more it made light of this stretch and the deeper it plowed in. The craft that were too slow, on the other hand, could not find their place before the open gaps closed.
 
 Three ways opened in front of Han Jiwoo at once.
 
@@ -77,7 +71,7 @@ Sion swept all three fast.
 
 The top looked good. It looked so good that it snagged him. With that much bare metal showing it would be slick, and one side-on hit would drop a craft straight off it.
 
-The low gap in the middle was empty for now. But the dust right in front of it was being drawn downward, oddly fast. That was not a passage open underneath; it was a spot that would cave in once.
+The low gap in the middle was empty for now. But the dust just in front of it was being drawn downward, strangely fast. That was not a way through; it was a spot about to cave in.
 
 The left detour was long. But instead of tread marks it held only light scratches. Big craft could not get through; it might be a line only something the size of their skiff could just reach.
 
@@ -87,13 +81,13 @@ Sion said.
 
 This time Han Jiwoo truly did not pause for even a beat.
 
-She laid the skiff over hard and slid it into the narrow seam between sand and metal. Metal dust sprayed from under the hull, the right hover plate lifted a beat late, and the craft tipped for an instant. Sion thought his breath would stop. But Han Jiwoo, as if she had been waiting for that very split second, twisted the steering bar and pressed the balance back down.
+She laid the skiff far over and slid it into the narrow seam between sand and metal. Metal grit spat from under the hull, the right hover plate lifted a moment late, and the craft tipped for an instant. Sion thought his breath had stopped. But Han Jiwoo, as if she had been waiting for that very instant, twisted the steering rod and pressed the balance back down.
 
 The skiff came around almost sideways in a slide and threw away, in one move, the two ways everyone else had wanted.
 
 A huge crash sounded behind them.
 
-Someone pushing into the low middle gap went half under along with the plate beneath it, and a team following behind scraped the upper frames and bounced straight up. Metal fragments scattered across the night air, and from the crowd, once again, cheers and curses burst out together.
+Someone forcing their way into the low middle gap went half under along with the plate beneath, and a team following behind scraped the upper frames and bounced straight up. Metal shards scattered across the night air, and on one side of the stands someone flung the stake box they had been clutching to the ground.
 
 Luhai, hanging off the end of the tent railing and looking down, let his mouth fall open outright.
 
@@ -104,15 +98,13 @@ Ater answered without taking his eyes away.
 
 "I expect it was made so that only those who can read it survive."
 
-Seorin said not a word. But Sion could tell even from that distance. Her gaze kept returning to the point where Han Jiwoo's piloting and Sion's calls meshed.
+Seorin did not say a word. Her hand on the railing twisted each time Han Jiwoo's skiff twisted below.
 
-Aka was still quiet.
-
-But since the craft had entered the hulk zone, she had been watching this part longer than she had watched the heat-layer stretch. Like an eye that sorted not real embers from false ones but a real path from a gap pretending to be one.
+Aka was watching not the heat layer but the wreckage zone. Not the gaps that had collapsed, but the ones that had not collapsed yet.
 
 In the north, Kael and Sern had pushed up to just behind the leaders.
 
-The previous year's winners, in the dark-red glider, were still holding the front, but the places after them were already tangled. A reckless drifter team that had survived the glide strip by some miracle had half its hull torn open here, and a smuggler team, wedged in a narrow gap, was blocking the team behind it too.
+Last year's champions, in the dark-red glider, were still holding the front, but the places after them were already tangled. A reckless drifter team that had survived the glide strip by some miracle had half its hull torn open here, and a smuggler team, wedged in a narrow gap, was blocking the team behind it too.
 
 "The two ahead will go down together shortly,"
 Sern said.
@@ -137,9 +129,6 @@ The craft they had taken for slow seized, for that one moment, the shortest line
 
 Watching from a distance, Sion nearly laughed without meaning to.
 
-Those two were not flashy.
-But in a stretch like this, that kind was the more frightening.
-
 Once they were into the middle of the wreckage zone, the number of surviving teams had visibly shrunk.
 
 Half of the twelve had already dropped back or stopped, and the rest were not intact either.
@@ -148,25 +137,18 @@ One had lost a hover plate on one side,
 one had its outer shell torn away,
 one was still fast, but it was unclear whether it could take one more hit.
 
-Han Jiwoo's skiff was not intact either. The right hover plate answered even later than before, and under the hull came a steady thin grinding of metal. But nothing vital had gone yet. Han Jiwoo, like someone who knew exactly what state it was in, neither pushed harder nor saved it for no reason.
+Han Jiwoo's skiff was not intact either. The right hover plate answered even later than before, and under the hull came a steady, thin grinding of metal. Still, nothing vital had gone yet. As if she knew exactly what state it was in, Han Jiwoo neither pushed it harder nor spared it for nothing.
 
-"Two stages in, more of them die,"
+"Two stages in, and it's dying more,"
 she said.
 
-Sion understood at once.
-
-She was not worried about the craft; she meant people.
-Once they reached the heat-layer ember zone, speed and reading the way would no longer be enough.
-
-They would have to pick the real thing.
-
-And that, most likely, would be the stretch where eyes like his, Aka's and Sern's would be caught deepest.
+Sion looked down at the right hover plate. It lifted half a beat later than before.
 
 That was when it happened.
 
 Right in front of Sion, from the shadow behind the next frame, the tail of the dark-red glider flashed once.
 
-The previous year's winners.
+Last year's champions.
 
 That team was holding the lead, riding an upper route that looked like a straight line.
 
@@ -194,9 +176,9 @@ And exactly three beats later, the upper frame plate split wide and the front of
 
 The whole crowd caught its breath at once.
 
-It was not completely over yet. That team was seasoned too, and it twisted its craft at once and held on. But the easy rhythm with which it had kept the lead was broken.
+It was not over yet. That team was seasoned too, and twisted its craft at once to hold on. Still, the rhythm in which it had kept the lead so easily was broken.
 
-Han Jiwoo drove into the line below and said, very short,
+Han Jiwoo drove into the line below and spoke very briefly.
 
 "Good."
 
@@ -217,24 +199,14 @@ Han Jiwoo spoke low.
 
 Sion did not answer right away.
 
-Instead, he looked once more at the shimmering air ahead.
-
-On the red glide strip, Han Jiwoo's hands had come first;
-in the hulk wreckage zone, the two of them together had kept the way alive;
-and now, from the next stage on,
-the eye that told the real from the imitation had to step further forward.
-
-Sion said it short.
+Instead he took one more look at the shimmering air ahead. Then he spoke briefly.
 
 "I won't miss it."
 
-At that moment the surviving craft cleared the last bend of the wreckage zone almost together and began to spread out in a long line toward the mouth of the heat-layer ember zone.
+Han Jiwoo pressed the craft down once more.
+The hover plates dropped another notch.
 
-Behind them the crack of breaking metal and the curses were still alive,
-ahead hot air and hazy lights had begun to shimmer,
-and over in the courtyard the wagers and the shouting were growing louder.
-
-The Ember Run now stood before its real test.
+The last bend of the wreckage zone was right ahead.
 
 ---
 

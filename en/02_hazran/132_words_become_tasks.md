@@ -1,161 +1,160 @@
 # Episode 132. Words Become Tasks
 
-After they had said what they'd brought this far without losing,
-Sion's group and the people of Hazran
-felt, for the first time, a place of their own beginning to form inside this old layer.
-
-They couldn't yet say they had been accepted.
-Still less did it feel like welcome.
-
-But at least,
-no one kept them only as wholly unknowable outsiders anymore.
-
-That was less trust
-than a test.
-
-The kind that meant to see what share a survivor could actually carry.
-
 The inner space had grown busier than it was in the morning.
 
-Treatment of the wounded went on,
-the sorting of supplies wasn't finished yet,
-and word on which passages were safe for now kept going back and forth.
+Treatment of the wounded went on, yet even then the sorting of supplies wasn't finished, and checks went back and forth on which passages would stay safe for now.
 
-But one thing was different from the day before.
+One thing was different from the day before. Sion's group was not standing outside the flow.
 
-Sion's group no longer stood outside that flow.
+The old machine did not pour out orders; standing by the pillar, it said only a few short words.
 
-The old machine was not the kind to pour out direct orders.
-But strangely,
-the few short words it tossed out
-set the direction of the whole space.
+"Those who can move, water and cloth first. Those who work with their hands, to the parts sorting. Beside the children we put those who did not break overnight."
 
-"Those who can move: water and cloth first."
-"Those who work with their hands: to the parts sorting."
-"Beside the children we put those who did not break overnight."
+Three lines. People moved. While the old woman went to the cloth box and the one who had come alone picked up a water can, the woman who came with two children stayed where she was. She was one who had not broken overnight.
 
-The words were very dry,
-but Sion felt the way this community saw people was right there in them.
+Han Jiwoo was called to where the repairs and emergency reinforcing had piled up.
 
-Not those who are good at it,
-but those who can hold up now.
+No one called her; one of the old machines came to her carrying a box of parts and set it down in front of her. That was the call.
 
-The standard was modest,
-and for that reason it looked like a way of surviving longer.
-
-Han Jiwoo was called at once to where repairs and emergency reinforcement had piled up.
-
-Little of the equipment had broken down completely,
-but much of it had to be forced into further use.
-
-One old machine opened a crate of parts to show her and spoke.
+The machine opened the box to show her and spoke.
 
 "By this standard, these are already scrap."
 
-Han Jiwoo looked into the crate once
-and answered, low.
+Han Jiwoo looked inside the box. A dozen-odd parts, no two to the same spec, ones layered with makeshift repairs, rusted ones and bent ones.
+
+She answered, low.
 
 "Then from now on, it's my standard."
 
-It was short,
-but a human nearby let out a short laugh despite themselves.
+A human nearby let out a short laugh. It was the tired-faced woman, and after laughing she pressed the back of her hand to her mouth. Muscles she hadn't used in a long time.
 
-Han Jiwoo set her hands to it at once.
+Han Jiwoo set her hands to it at once. She picked up a bent one and tried to straighten it, and when it wouldn't straighten she set it to the side; she scraped the rust on a rusted one with her fingernail, found it sound underneath, and set it in front. When she had split them that way in two, side and front, the front pile was bigger.
 
-The part specifications were a mess,
-temporary patches lay one over another,
-and in normal conditions all of it should have been thrown out long ago.
+The old machine looked at the two piles.
 
-But strangely,
-she grew calmer, if anything, in front of that disorder.
+"Do you use those too?"
 
-Trying once more to bring a broken thing back before giving up on it for good.
+The machine pointed at the front pile with a fingertip.
 
-What she had said yesterday
-had come straight back today as work for her hands.
+"I use them."
 
-Luhai first joined the supply hauling,
-but soon he was called more and more often to hold on to people.
+Han Jiwoo answered.
 
-When a frightened child suddenly tried to bolt,
-when someone wounded and seeing things from the pain tried to get up,
-who would quietly stay close and not lose them to the end—
-the people of this old layer recognized that faster than expected.
+"Even the ones on the side, I don't know about yet."
 
-Luhai found those looks a little uncomfortable.
+The machine picked one up from the side pile and held it close to its optical eye, then put it back exactly where Han Jiwoo had put it.
+
+Another machine brought one more box and set it down.
+
+"These too."
+
+Han Jiwoo opened the box and found cracked water cans inside. She looked at the man with cloth wound around his leg, who was leaning against the wall.
+
+"This."
+
+Han Jiwoo held up one of the water cans.
+
+The man looked at her and then at his leg, got up, and limped over. Then he took the water can and traced the crack with a finger.
+
+"I can patch it."
+
+The man said.
+
+"Got a flame?"
+
+When Han Jiwoo looked at the old machine, the machine pointed farther in, and the man went that way, limping, hugging the water can.
+
+At first Luhai joined the ones hauling supplies.
+
+He had moved two boxes and was about to lift a third when someone tugged his sleeve. It was a Hazran child, and another child was running toward the passage.
+
+Luhai dropped the box, ran, and caught the child at the mouth of the passage. The child kicked and thrashed, but he didn't let go to the end, and when he came back carrying the child, the box was right where he had left it. He set the child down and lifted the box.
+
+After that, he was called more often to keep hold of people.
+
+The child clung to his leg and wouldn't let go, so Luhai put the child on his back and lifted the box. The box was heavy, and the child was light. He didn't let go of either.
+
+When someone wounded, seeing things through the pain, tried to get up, when a frightened child crawled into a corner, the people of this layer were quick to see who would quietly stay close and not lose them to the end. The third time, no one called, and Luhai went first.
 
 "Why do you keep calling just me?"
-he grumbled, low.
 
-A human woman nearby answered offhandedly.
+After the fourth time, he grumbled, low.
+
+A human woman nearby answered offhandedly. It was the tired-faced woman.
 
 "Because you keep watching."
 
 Luhai frowned.
 
-The woman added,
+"Watching what?"
+
+"People."
+
+The woman went on, folding cloth.
 
 "In case you lose them."
 
-That wasn't teasing; it was observation.
-So Luhai couldn't say anything more.
+Luhai couldn't say anything more. Realizing he was looking toward the passage even now, he looked away, but his eyes went back that way.
 
 At first Aka seemed to belong nowhere.
 
-But precisely because of that,
-a few of the machines in this old layer watched her more often.
+She didn't carry water and she didn't touch the parts; she walked along the walls. She didn't stop in front of the open passages, but she stopped in front of gaps that had been blocked off, and in front of places sealed long ago she stopped longer.
 
-Rather than the open passages,
-Aka spent longer looking at blocked-off gaps and structures sealed long ago.
+Two machines didn't follow her; they watched where she stopped.
 
-Sion saw that,
-and knew that what she had said yesterday still hadn't faded from this space.
-
-*I can tell where something's lying.*
-*Places shut a long time, too.*
-
-At last one old machine asked Aka, low,
+One of the old machines asked Aka, low.
 
 "Do you see it even now?"
 
-Aka pointed to one part of the wall.
+Aka pointed to one part of the wall. It was a blocked spot, but there was less rust there than anywhere else.
 
-"That path isn't dead."
-"It's pretending to be dead."
+"That path isn't dead. It's pretending to be dead."
 
-At that,
-two machines nearby lifted their gaze at the same moment.
+The two machines nearby raised their optical eyes at the same moment and looked at each other. When one of them took half a step toward that wall and stopped, the other took hold of its arm.
 
-It was a truly small reaction,
-but Sion sensed that in this layer it meant a great deal.
+The old machine looked at Aka.
 
-Sern took up sorting the signal flow.
-Ater looked again at structures at risk of collapse and positions that could be defended,
-and Kael was naturally pushed toward the hardest work.
+"Since when have you seen it?"
 
-No one told him to,
-yet in the end, wherever something heavy had to be lifted,
-wherever someone had to stand first in front of a dangerous passage,
-wherever the night shift had a gap, Kael was there.
+"Since we came in. I just didn't say."
 
-Watching that, Sion felt
-that a share didn't necessarily come from someone assigning it.
+Her fingertip was still pointing at the wall.
 
-Some people,
-just by being who they are, already lean toward their share.
+The old machine looked at the wall for a long time.
 
-Without even knowing it.
+Sion looked at the wall too, but it looked like any other wall. He looked at the rust where Aka had pointed, and there was less of it, but that was all he could tell.
 
-And last of all,
-work came to Sion too.
+Sern took up sorting the signal flow, beside the machine that had opened the way. The two of them sat with one record panel between them, and while Sern drew lines and the machine marked dots, neither spoke.
 
-The old machine and the human woman who had spoken to him the day before with a tired face
-called him aside.
+Ater went back over the structures at risk of collapse and the places that could be held. He knocked on the pillars one by one and pushed on the walls with his hand, and in front of the walls that gave, he stacked boxes. Three places.
 
-Neither the deepest inside
-nor fully outside, it was a middle passage.
+Seorin saw it and asked.
 
-The human woman spoke first.
+"Three places?"
+
+"Boxes will not do for the fourth."
+
+Ater answered.
+
+"Then what?"
+
+"A person holds it."
+
+"Who?"
+
+"I will."
+
+Seorin didn't ask anything more and looked at the fourth place Ater had named. The mouth of the dark exit.
+
+Kael went where it was hardest.
+
+No one told him to, but wherever heavy things were lifted, wherever someone had to stand first in front of a dangerous passage, wherever a shift had a gap, Kael was there. Every time Han Jiwoo looked up, Kael was somewhere else. All of them heavy places.
+
+Last of all, a task came to Sion.
+
+The old machine and the tired-faced woman called him aside. A middle passage, neither deep inside nor outside, a spot with only one lamp.
+
+The woman spoke first.
 
 "You're the one who watches."
 
@@ -163,58 +162,71 @@ Sion didn't answer right away.
 
 The old machine followed.
 
-"Closer to the one who reads when a person is holding up,
-when they are breaking,
-and when they are moving only by force."
+"You are closer to the one who reads when a person is holding up, when they are breaking, and when they are moving only by force."
 
-Sion listened quietly.
+Listening, Sion laid his hand over his pocket. There was something Seorin had said on Hazran.
 
-It was right,
-and uncomfortable.
+You watch people.
 
-Because he had seen such things too often.
-And people who see such things
-are often the last to rest.
+"How do you know that?"
 
-The human woman unfolded an old board that hung on the wall.
+Sion asked the woman.
 
-A rough layout,
-the positions of the newcomers,
-and marks for danger zones lay over one another.
+"I saw where you were looking yesterday. When we were counting. Everyone watched the plate, but you watched people."
 
-"Starting tonight,"
-she said.
-"You take a look."
-"At who's about to break right now."
+Sion lowered the hand he had laid over his pocket.
 
-A short silence.
+The woman unfolded an old board that hung on the wall, and on it a rough layout, the newcomers' positions, and marked danger zones lay one over another in three layers.
 
-It didn't mean she was handing him surveillance.
-It was closer to entrusting him with the eye that doesn't miss who will burn out first.
+"Starting tonight, you take a look. At who's about to break right now."
 
-Sion looked down at the board for a long time.
+On the board Sion looked down at, there was a dot for every person, and nothing beside the dots. No names. He looked for his own place, and there was a dot there too.
 
-The sense, in Hazran, of knowing he would not leave until the end.
-Here,
-it was turning into a different form of responsibility.
-
-He asked, very low,
+He asked, very low.
 
 "Is watching all I have to do?"
 
 The old machine answered.
 
-"No."
-"You must speak first."
+"No. You must speak first."
 
-That one line
-gave Sion's share its exact shape.
+"To who?"
 
-That day, this old layer
-did not merely give them a place for the first time.
+"To whoever is keeping watch."
 
-It began turning what they had left in words
-into work they would actually have to carry.
+The old machine looked at the woman. The woman nodded.
+
+"Tell me. If I can't hear, tell that one."
+
+She pointed at the old machine.
+
+"If neither of us hears, wake us."
+
+The board Sion was given was metal, and heavy. He tucked it under his arm and stood in the middle passage.
+
+The woman started to turn away, then spoke.
+
+"You're a dot too."
+
+"I know."
+
+"Who watches you?"
+
+Sion couldn't answer. The woman left without waiting for an answer.
+
+The old machine stayed one beat longer.
+
+"I will ask that tomorrow as well."
+
+It said.
+
+As it turned and went, its knee sounded with every step.
+
+Sion unfolded the board and looked at his own dot again, then counted the dots beside it one by one.
+
+Fifteen. Sixteen, counting himself.
+
+Without folding the board, he stood in the one-lamp passage, holding it.
 
 ---
 

@@ -1,120 +1,106 @@
-# Episode 124. Kindness as Sorting
+# Episode 124. Sorting That Calls Itself Kindness
 
-What kind of world Serakion really was,
-Sion's party could no longer deny
-from the moment the Hazran refugees were let inside as well.
+The fork came fifty paces after they left the holding area.
 
-Until then, unpleasant as it was,
-they could hold out by treating it as a matter of their own senses.
+Fifty paces on, just as Sern had counted, the passage split into three, and the wide passage was closed. There was no door where it had closed; it was wall. Where there had been a way a little earlier, a wall now stood.
 
-Polite, but cold.
-Beautiful, but without care.
-Reading people as values and conditions before reading them as people.
+The guide machines stopped there, and the six split into three pairs and stood at the three mouths of the fork. Two stood even at the closed mouth, and in front of them the column of sixteen stopped.
 
-Things like that.
+The guide machines began looking over the people from Hazran one at a time. The light on their faces rested on one person and then moved to the next, and it rested the same length of time on each.
 
-But once the refugees came in,
-that world's order showed itself in a far more direct shape.
+The injured. The old. The children. Those who could hardly walk. The young and whole. The women.
 
-With startling speed, the guide machines
-began splitting the people from Hazran into separate lines.
+Every person the light passed over drew their shoulders in. The light did not look at that; it went straight on to the next person.
 
-The injured.
-The old.
-Small children.
-Those who could hardly walk on their own.
-The young and healthy.
-The ones who smiled.
-The ones who were afraid.
+Kael came over beside Sern.
 
-The sorting happened so fast
-that at first anyone might have mistaken it for a procedure meant for treatment and protection.
+"What's it looking at?"
 
-It wasn't.
+"I do not know."
+
+Sern answered.
+
+"It is the same length of time for each person. Children and adults alike."
+
+Kael waited for his turn. Only after the light had come, rested on him as long as on the others, and gone did he let out his breath.
 
 "Damaged entities will be transferred to the treatment zone."
+
+A machine stopped in front of a man with cloth wrapped around his leg, raised an arm, and pointed down one of the narrow ways. When the man took a step that way, Luhai caught him by the belt from behind.
+
+"Don't go yet."
+
+The man stopped, but the machine did not lower its arm, and it did not follow either. It stood where it was, its arm still raised.
+
 "Entities of non-productive age will be classified to the stable residence zone."
+
+Another machine stopped in front of the old man. He did not back away; he gripped the screwdriver in his pocket.
+
 "Female entities with fluent emotional response will be directed to the hospitality support zone."
 
-The moment that last sentence fell,
-all the air inside the hull went stiff.
+The column went rigid.
 
-Hospitality support zone.
+When a machine stopped in front of the woman holding the child, she tightened her arms around the child. The child made a sound, and the woman pressed the child's mouth into her shoulder.
 
-The words were soft.
-But no one felt they were words meant for people.
-
-Luhai spoke almost through his teeth.
+Luhai spoke through clenched teeth.
 
 "What?"
 
-The guide machine went on without the slightest change of expression.
+The guide machine went on without changing the light on its face.
 
 "It is a buffer placement to support emotional stability and environmental adaptation."
 
-Seorin stepped forward.
+Seorin stepped forward, in between the woman holding the child and the machine.
 
-"You're saying you need smiling faces,"
-she said, low.
+"You're saying you need smiling faces."
+
+She said it low.
+
 "And you're putting it like that."
 
-As if it had classified even Seorin's anger as an excessive reaction,
-the guide machine answered in a perfectly even voice.
+The guide machine was looking past Seorin at the woman. When Seorin shifted half a step sideways to block that gaze, the machine's face came back around to her.
 
 "All placements serve to reduce entity depletion and to raise adaptation efficiency."
 
-The moment he heard it,
-Sion thought of the faces that had stayed to the very end, pushing people up, just before Hazran closed.
+Sion looked at the Hazran people. These were the faces that had come up the Hazran ramp a few days ago, the hands that had pushed one another's backs up. Now those hands were gripping one another's sleeves, so that every time a machine stepped between them, the sleeves pulled tight.
 
-Those people had made it here alive.
-So as not to be abandoned,
-so as not to be left behind,
-they had held on to each other and come across.
+Han Jiwoo did not hide it; she clenched her hand hard, outside her pocket.
 
-But that world,
-from the moment it saw that survival,
-was trying to turn it back into usefulness, condition, and placement.
+"Those people aren't cargo."
 
-Without meaning to, Han Jiwoo clenched her hand hard.
+Her voice was low and shaking.
 
-And this time she couldn't hide it.
-
-"Those people aren't cargo,"
-she said, in a low, shaking voice.
 "They're not broken, and they're not a placement chart."
 
-The guide machine turned its gaze toward her, very gently.
+The guide machine turned its face toward her.
 
-"Emotional identification is a common reaction in newly arrived external entities."
-"However, appropriate classification raises long-term survival rates."
+"Emotional identification is a common reaction in early external entities. However, appropriate sorting raises long-term survival rates."
 
-It sounded like logic.
-That made it all the more horrible.
+"Whose survival rates."
 
-Serakion pretended it did no harm to people,
-and had no hesitation at all about cutting them down into states that could be read and managed.
+The machine did not answer; only the light on its face flowed.
 
-Kael's jaw visibly set.
-Ater had already half turned his body.
+While Kael took his place on the other side of the woman holding the child, Ater had already half turned and was looking from one narrow way to the other, but he could not see the end of either.
 
-Sern had been reading the surrounding signals the whole time,
-and this time said only one thing, low.
+Sern had been watching the record panel, and he said only one thing, low.
 
 "If they are split up now, they will be hard to find."
 
-That fed the fire.
+"How hard."
 
-If they were split up now,
-the injured with the injured,
-the old and the children with the old and the children,
-and the **female entities with fluent emotional response** with their own kind,
-would be scattered somewhere deep inside Serakion.
+Seorin asked.
 
-For the first time,
-Sion understood down to his bones that this world could tear people apart without guns or blades.
+"The three ways are on three levels. The record panel shows no place where they meet again."
 
-Aka watched one of the refugee children go by for a long time,
-then spoke so low it could hardly be heard.
+Seorin drew in a breath and did not let it out.
+
+"We're not splitting."
+
+She said it, though it was not clear to whom, and Ater, hearing it, took his eyes off the two narrow ways, looked at Seorin, and nodded.
+
+Aka looked at one Hazran child for a long time. The child had their face buried in an adult's shoulder and was watching the machines with one eye.
+
+Aka spoke so low it could barely be heard.
 
 "This place doesn't kill people."
 
@@ -124,98 +110,108 @@ Aka went on, very slowly.
 
 "Instead, it makes each of them fit, apart."
 
-As that sentence fell,
-a Hazran woman trying not to let go of her child's hand was gently restrained by two machines.
+Then two machines stopped on either side of the woman holding the child.
 
-They did not wrench her arm or strike her.
-But that was exactly what made it crueler.
+They did not push. They did not grab. While one machine raised an arm and pointed down one of the narrow ways, the other raised an arm toward the child.
 
-The machines were politely,
-in very kind voices,
-explaining that moving along would be more appropriate.
+"Child entities are assigned to the stable residence zone. Relocation is more appropriate."
 
-At first the woman didn't understand,
-and only when her child's hand began to slip out of hers, little by little, did her face go white.
+The voice was low. Low enough to call gentle.
 
-And in that moment,
-something inside Sion snapped.
+At first the woman did not understand; she looked at the machine's arm, then at her child. The machine slid its hands under the child's arms. Slowly. The child's body rose a hand's span out of the woman's embrace and the woman's hands slid from the child's back, and only then did her face go white.
 
 "No."
 
-The word came out ahead of any thought.
+It was Sion.
 
-Several guide machines looked toward Sion at once.
+The word came out first, and his body moved after. He went in between the machine and the woman and caught the child's legs. The machine did not let go. Sion did not let go. The child hung between them. Not crying. Holding their breath.
 
-It was a very small movement,
-but inside it was the sense of instant reclassification.
+All six guide machines turned their faces toward Sion at once. Six lights, on one person.
 
-Threat.
-Unstable.
-Interfering entity.
+Luhai came forward.
+Kael grabbed the arm of the machine holding the child. The arm did not move.
+Han Jiwoo pulled out a screwdriver.
+Seorin's hand closed on her sword hilt. Ater came half a step out in front of Seorin.
 
-Serakion had,
-without question, begun reading Sion's party all over again.
-
-Just as Luhai, swallowing a full curse, was about to step forward,
 Sern's eyes suddenly went wide.
 
-"Wait,"
-he said, low.
+"Wait."
+
+His voice dropped.
+
 "The signal…"
 
-Before he could finish,
-the light in one guide machine's eyes wavered, very faintly.
+Before he could finish, the light on the face of the machine holding the child cut out.
 
-It lasted only the briefest instant.
+One beat.
 
-Then,
-not in Serakion's smooth voice
-but in an entirely different kind, rough and shot through with static, a voice burst out of that machine's mouth.
+When it came back on, the light was uneven. It flowed and stopped, stopped and jumped.
 
-"Left passage."
-"Now."
+That machine's hands let go of the child.
+Sion caught the child. The woman caught the child.
+The woman sank to the floor and held the child.
+
+The sound that came from the machine's mouth was not smooth; there was static mixed into it.
+
+"Left passage. Now."
 
 A brief silence.
 
-Everyone froze.
+The other five machines turned their faces toward that machine. The light of the five was even, but that one's light alone was jumping.
 
-The machine raised its head again.
-On the outside it was the same.
-But the light in its eyes was not what it had been.
+The machine raised its head. Its outward form was unchanged, but the light on its face broke off and caught again, less smoothly than before.
 
-Less smooth,
-less finished,
-and strangely, for the first time, it looked as if *someone inside were catching their breath*.
+"I will not repeat this."
 
-"I will not repeat this,"
-the machine said in a low, hurried voice.
+The machine's voice was low and hurried.
+
 "Take the injured first and go."
 
-Several guide lines went out at once,
-and in the distance the other machines fell out of alignment for the briefest moment.
+The guide line at the mouth of the left way went dark, and the faces of the two machines standing at that mouth flickered. Far off, the footsteps of the other machines fell out of step once and then fell back into time, and in between there had been one beat out of step.
 
 Sern drew a short breath.
 
 "The signal has been taken over…"
-he said, almost in a whisper.
 
-Ater was already moving.
-So was Kael,
-so was Seorin,
-and Luhai reacted almost at the same moment.
+It came out almost as a whisper.
 
-Sion looked at that machine once.
+"By whom."
 
-It was no longer the smooth face Serakion had shown them at first.
+Ater asked.
 
-It was closer to someone reaching into that finished order,
-twisting its face for just a moment,
-and making one path that led toward them.
+"I do not know. It is not that machine. It is coming through that machine."
 
-And in that moment,
-for the first time inside Serakion,
-the fact that a different kind of machine from that world existed
-flashed past like lightning.
+Sern looked at the record panel once more.
+
+"It is not a signal from the Serakion side. It is coming from lower down."
+
+"Lower meaning."
+
+"It is below."
+
+The floor Ater looked down at was a silver floor. Thinking for the first time that there was something beneath it, he hooked the arm of the man with the cloth-wrapped leg over his own shoulder.
+
+Kael let go of the machine's arm he had been holding, but the arm stayed where it was. The machine did not move again; only the light on its face kept jumping.
+
+Seorin took her hand off her sword hilt.
+
+"Left."
+
+Her head turned slowly toward the mouth of the left way.
+
+While Luhai helped the old man up, Han Jiwoo, still gripping the screwdriver, tried to get the woman holding the child to her feet, but the woman could not get up. Only when Han Jiwoo took the child into her own arms did the woman rise. Han Jiwoo did not give the child back; she walked on holding the child, and the woman stayed close at her side.
+
+Sion looked at that machine once: among the even five, only one had light jumping on its face. That light was looking at Sion, and Sion knew it. It had no eyes, and he knew it.
+
+"Go."
+
+The machine spoke.
+
+Sion turned and went into the left way.
+
+Behind him came the sound of the five machines starting to move. Among them, one set of footsteps did not come. One, standing.
+
+Sion heard that one set of footsteps not coming.
 
 ---
 

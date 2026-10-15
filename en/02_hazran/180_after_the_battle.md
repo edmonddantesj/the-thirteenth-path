@@ -1,191 +1,168 @@
 # Episode 180. After the Battle
 
-Even after the wave at the front broke off,
-even after the last android had finally gone down on one knee,
-the air in the old layer could not get out of the battle for a while.
+Even after the wave from the front broke off and the last android went down on one knee, the people in the old layer stayed inside the battle for a while.
 
-Some still thought the next attack was coming,
-some only now felt their legs give,
-and some, holding children who had barely stopped crying,
-were enduring the sound of their own hearts, far too loud.
+Some couldn't take their eyes off the mouth of the route; some, leaning on the wall, slid down and sat as their legs gave out. And some, holding children who had stopped crying, were listening to their own hearts.
 
-But even so,
-people's eyes kept going back to the same place.
+Their hands were busy, but their eyes kept going back to the same place.
 
 The last android.
 
-He had no name yet,
-and no one could yet define what he was,
-but now no one could see him as mere remaining combat strength.
+Han Jiwoo was still sitting beside him. She had taken her hand back from the surface at the side of his face, but her knees were still on the floor. Where the shard had lodged, she was bleeding a little, and she didn't look at it.
 
-Han Jiwoo was still sitting beside him.
-
-She had carefully taken her hand back from the surface at the side of his face,
-but she kept close, where she could take hold again at any moment.
-
-The short mouth line the child had traced over earlier was still there, very faint,
-and one optical eye, even nearly dark, gave a flicker of light now and then.
-
-But even that weak response
-now felt enormous to everyone in the room.
-
-Because it meant he was still here.
+The short mouth line the child had traced over earlier was faintly lit. One optical eye stayed dark, and the other gave a flicker of light only now and then. Every time it flickered, Han Jiwoo's eyes went to it.
 
 Sion was watching from a little way off.
 
-The way you look at people after a battle is over
-and the way you look at a being that held on with you in the middle of one were clearly different.
+Three lay on the floor. The smiling mouth, the round eyes and the narrow eyes were all dark. Sion looked at the three in turn, then at the one who was kneeling.
 
-Until a moment ago, he had been watching
-how long that being would last,
-how much he could hold back,
-how he would change.
+Ater came back from the mouth of the route.
 
-But not anymore.
+"The mouth is blocked. I brought down the upper side. What remains is the one gap on the rear line."
 
-What Sion was looking at now
-was a being who would have to face what came next together with them.
+Seorin nodded.
 
-The difference was bigger than he had thought.
+"We go out through that."
 
-Seorin, back from clearing the rear,
-watched the last android for a while without a word.
+Ater said nothing more and went back toward the mouth. On the way he passed the three on the floor, and his pace did not slow. His eyes went to them.
 
-In scenes like this she was not, by nature,
-someone who let feelings rise easily onto her face.
+Luhai came back from the mouth of the route. Passing among the fallen enemy units, he never once looked down at them, but in front of the three on this side his steps slowed, and he stopped in front of the round eyes. He crouched and looked at the arms, frozen spread open. He did not touch them. Then he got up and came over.
 
-But this once,
-the very fact that she let her gaze stay so long already said a great deal.
+Seorin, back from clearing the rear, watched the last android for a while without a word. Her arms weren't folded; both hands hung at her sides. They clenched once and opened.
 
-Ater ran his eyes over the broken routes and the marks of the fighting, then said, low,
+Ater ran his eyes over the broken routes and the marks of the fighting, then spoke low.
 
 "Next time it comes bigger."
 
-No one argued.
+No one argued. Seorin nodded once. One of the old machines turned and stood facing the mouth of the route, and it did not move from there.
 
-If anything, everyone already knew.
+Sern spoke very quietly.
 
-This had been the first crack.
-Serakion would surely learn from this failure.
-It would not easily allow the same kind of gap again.
+"This must be recorded. Not only the pattern of the battle. The conditions of the change must be written down as well."
 
-And precisely because of that,
-what they had seen here mattered now.
+He opened the record panel. There was a line he had struck through earlier, and he began writing beneath it. Partway, he looked once toward the children. Partway, he looked once at the three on the floor. Partway, he looked once at the place where the old machine had gone down. Each time, a line was added.
 
-Sern said, very quietly,
+Ater looked down at the record panel.
 
-"This must be recorded."
-"Not only the pattern of the battle…
-the conditions of the change as well."
+"How many."
 
-It was not a simple report.
+Sern read from the record panel.
 
-What had shaken them.
-What had made them listen.
-What had pushed the last android this far.
+"Faces. A child's words. One step."
 
-The children's faces.
-A child's single word.
-The sacrifice of the old machines.
-A formation that put what must be protected first.
+"Three?"
 
-All of it
-had now become something they had to weigh whenever they prepared for the next battle.
+"The fourth is over there."
 
-Even hearing that, Han Jiwoo could not easily raise her head.
+Sern pointed with his chin at the place where the old machine had gone down. Ater looked that way but did not nod. Sern never wrote the fourth; he stood holding the record panel, looking at that place.
 
-She could not be glad right now,
-and she could not be relieved.
+Two old machines went to that place. Two Serakion units lay there, and a body bent together with them into a single mass.
 
-They had survived.
-That was true.
-But too much had vanished as the price of that survival.
+The two worked their own free of that mass, and it took a long time. The arms wrapped around the others would not come loose until they bent one joint back. At the sound of the bending, a child covered their ears.
 
-That fact had settled in her chest first.
+The two lifted the body. One took the shoulders and one the legs, carried it to the wall and set it down beside the three on the floor, in a row with the three. Having set it down, both stayed standing there.
 
-Then
-the child who had traced the face again earlier
-came carefully and sat down beside Han Jiwoo.
+The last android's optical eye followed the two, from the place where it had gone down to the wall, until they set it down. The hand braced on the floor moved a little that way, one finger's width. It stopped there. Han Jiwoo looked at that hand.
 
-And, looking at the last android, asked very small,
+Luhai, watching, spoke to Seorin.
+
+"Those… we're leaving them there?"
+
+"Leave them."
+
+Seorin said.
+
+"We'll come back to them on the way out."
+
+Luhai nodded, then went over to the two old machines and stood beside them. He said nothing.
+
+Han Jiwoo heard it and did not raise her head.
+
+She got up, went over to the three on the floor and crouched in front of the smiling mouth. Its chest plate was crushed so that the inside showed, and a small piece broken off from it lay on the floor: half a palm across, a piece of the surface the mouth line had once run across. She picked it up and held it for a long time.
+
+Then she put it in the inside pocket of her clothes. After that she pressed once over it.
+
+Luhai saw, but he said nothing.
+
+She came back to the last android's side and sat down again.
+
+Just then, the child who had traced the face again earlier came carefully and sat down beside Han Jiwoo.
+
+The child brushed the shards off the floor by hand before sitting. Han Jiwoo saw and swept the floor under the child's knees once more.
+
+Looking at the last android, the child asked, very small.
 
 "Does he… have to fight again?"
 
-At that question,
-the air in the room seemed to stop for a moment.
+The hands in the room stopped. A man holding up a wounded person's arm stopped just as he was, and Sern's hand stopped over the record panel too. Seorin looked at the child.
 
-No one could answer right away.
+No one answered right away.
 
-Because it was not a simple question.
-
-A question of whether they could put that being on a battlefield again.
-A question of whether they would make use of that body again.
-And at the same time,
-a question of whether that being now had to cross into what came next together with them.
-
-Only after a long while did Han Jiwoo
-answer, very low.
+It was a long while before Han Jiwoo answered, very low.
 
 "I don't know."
+
 "But what happened this time can't be undone."
 
-Strangely, those words
-didn't sound light to anyone in the room.
+When the child heard that and looked at the android, the android's optical eye turned toward the child. The child raised a hand, then lowered it.
 
-It could not be undone.
+A Hazran woman was gathering what the children had left behind. Scraps of cloth, a water bowl, one of someone's shoes.
 
-That was true.
+She went from child to child, looking at their feet for the shoe's owner, and put it on a barefoot child. Even while she did, the child kept watching the android. The woman gripped the child's ankle once and let go, then tied the laces twice.
 
-Now everyone had seen it.
-What that being responded to.
-What he was trying to protect.
-What he had lost, and how he had changed.
+Sern began writing again, and Seorin took her eyes off the child and looked at the last android.
 
-So the next battle
-could not be prepared the same way as before.
+He still could not move properly. He was still kneeling, just as before.
 
-Thinking about that, Sion looked at the last android.
+The hand braced on the floor let go of the shard it had been gripping. The shard made a sound as it hit the floor, and the child flinched at the sound. The android's hand was empty, and he left the empty hand where it was on the floor.
 
-He still couldn't move properly,
-and he probably didn't fully know what change was happening inside him.
+Seorin looked at him once more. Then at Han Jiwoo.
 
-But already,
-his very existence was changing everyone's strategy.
-
-Where to put a single child.
-Who to keep beside him.
-How to have the old machines move.
-Where to stand Han Jiwoo.
-
-At the center of all those questions,
-that being had now stepped in.
-
-And it was not a simple reshuffling of strength.
-
-It meant that what this fight was protecting,
-its very meaning, was slowly being realigned into a different shape.
-
-Seorin looked at him once more, one last time,
-then spoke briefly.
+She spoke briefly.
 
 "We're keeping him alive."
 
-The words were as short as an order,
-but strangely they sounded like a declaration.
+When Han Jiwoo raised her head, Seorin had already turned away. Behind her turned back she raised a hand once, and the hand pointed toward the mouth of the route.
 
-He had to be kept alive.
-Not because he was a fighting asset.
-Because the truth this battle had left behind
-had to be carried all the way into the next fight.
+"Two on watch. In shifts."
 
-Hearing that, Sion quietly let out a breath.
+Luhai and a Hazran man went that way.
 
-And for the first time,
-he felt clearly that the next battle would not just be a bigger battle
-but a battle of an entirely different meaning.
+Sern said.
 
-What they had seen in him after the battle
-had already begun to change everyone.
+"They will change over after half a cycle."
+
+Seorin nodded.
+
+Ater went to the mouth of the route and climbed up to sit on the heap of fallen enemy units. He sat facing outward. The room was at his back, but he did not look back.
+
+Sion went to the man standing at the gap on the rear line. It was the man whose sleeve he had grabbed earlier.
+
+The man was still standing with a hand on the wall. When Sion laid a hand on his shoulder, the man turned around.
+
+"Please sit down."
+
+The man slid down the wall and sat. Once he was sitting, he looked at his hand; his fingertips had scraped the wall and were bleeding.
+
+"…I'm sorry."
+
+"It's all right."
+
+Sion said. He sat down next to the man. Sitting, he looked at the four on the floor. Three, and one. The man looked that way too, and the two of them stayed like that for a while.
+
+"You can stay here."
+
+Sion said. The man nodded, but he did not take his back off the wall.
+
+Han Jiwoo rested a hand over her inside pocket, then brought that hand close to the last android's shoulder. Not the twisted side, the one that was left. It did not touch. She left it there, not touching.
+
+One of the old machines turned away from the mouth of the route, came three steps toward Han Jiwoo and the android, and stopped. As it lowered itself to the height of the kneeling android, its old joints made a sound. It stayed like that.
+
+Sion looked at the three of them. The one kneeling, Han Jiwoo sitting beside him, and the old machine, lowered, three steps off.
+
+One more line was added to Sern's record panel.
+
+From beyond the collapsed structure, the sound of the circulation line running came a little closer than before.
 
 ---
 

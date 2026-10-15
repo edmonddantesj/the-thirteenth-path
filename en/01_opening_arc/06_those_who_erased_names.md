@@ -179,7 +179,9 @@ Sern answered without closing the screen.
 
 That one short sentence changed the air in the passage completely.
 
-"What did you just say," Sion asked. "Black what?"
+Sion's eyes had already gone to the screen on Sern's wrist. Reading small text in a dark passage took nothing more than night vision.
+
+"What just came up there?" Sion asked. "Black what?"
 
 Sern closed the screen.
 
@@ -292,7 +294,7 @@ Sion was already turning toward the crack.
 
 "Is this the time to ask about that?"
 
-"No. That is why I am asking now. Later, you would not answer."
+"No. That is why I am asking now. Later, I do not think you would answer."
 
 Sion didn't answer.
 

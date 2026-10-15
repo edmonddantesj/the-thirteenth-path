@@ -1,157 +1,160 @@
 # Episode 144. A Polite Order
 
-The second place the scouting party stopped
-was a middle level where the living zones met the transit zones.
+The second place the scouting team stopped was a middle level where the living zones met the transit zones.
 
-Serakion did not cut its zones apart roughly.
-If anything, it joined them too smoothly.
+As the narrow path widened, their shoulders came off the walls. Han Jiwoo rolled her shoulder and looked at where the wall had scraped her sleeve.
 
-That made it more dangerous.
+The bulkhead was thin enough that light showed through it, but sound didn't. It was the wall Sern had told them about, the wall that ate sound.
 
-Where life began,
-where management began,
-where control began—
-at first sight it was hard to tell.
+There was a finger-wide slit in the bulkhead. The first recovery hand put its optical eye to the slit and drew back, and Han Jiwoo put her eye to it.
 
-Because everything ran into everything else far too naturally.
+She saw a clean corridor and rest chairs set out in neat rows, one person sitting in each chair. When one person stood up, a machine passed, and the person sat down again. The machine hadn't stopped, and still the person sat.
 
-The view beyond the thin bulkhead
-was, on the surface alone, close to peaceful.
+Among the humans moving along after the machines there were no loud voices and no shoving hands.
 
-Clean corridors,
-neat rest benches,
-humans moving quietly after the machines,
-no sound too loud,
-no open coercion.
+When Han Jiwoo drew back, Ater put his eye to it.
 
-But the moment Ater saw it, his face set hard.
+His face hardened, and he spoke without drawing back from the slit.
 
-"This is not governing. It is staging,"
-he said, low.
+"This is not governing. It is staging."
 
-The first recovery hand glanced at him.
-
-Ater added, without taking his eyes off it,
+When the first recovery hand looked at him, Ater drew back from the slit.
 
 "A way of making the onlooker believe, all on their own, that there is order."
 
-It was short,
-but Han Jiwoo understood it at once.
+"Who is looking?"
 
-It was not that Serakion failed to hide its oppression.
-It was a world that had succeeded in making oppression not look like oppression.
+The first asked.
 
-The Empire at least overawes with bootprints and gates and swords.
-But here it was different.
+"The people inside."
 
-Polite guidance,
-beautiful structures,
-low voices,
-straight-ruled living sections.
+Ater answered.
 
-Everything put people at ease,
-so they realized all the later how far they were being managed.
+"Because the people outside cannot see it."
 
-The moment Ater saw that,
-he seemed to feel a loathing colder, if anything, than the Empire stirred in him.
+Kael kept his eye to the slit for a long time, looking not at the chairs but at the walls, at the seams in the walls and the lines of the ceiling. Even after he drew back he said nothing, only held up three fingers.
 
-Open violence at least makes the enemy easy to know.
-But a system this refined
-can make people accept their own chains as a way of life.
+The second put its eye to the slit briefly and drew back.
 
-Inside a thin observation passage that ran a little higher,
-they moved for a while, holding their breath.
+"Left at the end of this passage."
 
-Below them, several human zones were staggered in layers,
-and surprisingly they were not divided by mere poverty and crowding.
+It whispered.
 
-Some zones were too bright,
-some were too quiet,
-some had a great deal of handwork,
-and some had a conspicuous number of devices and ornaments meant to draw out feeling.
+"The right side is closed off. That happened last time."
 
-Han Jiwoo watched it a long time, then spoke low.
+"When was last time?"
 
-"Not by where they live—
-they've split them up by how they're used."
+Han Jiwoo asked.
 
-That was right.
+"Before this leg."
 
-Serakion was not herding humans into one place;
-it was making the living environment itself different according to how each would be handled.
+A machine passed right on the other side of the bulkhead, in front of the slit, sweeping the slit with the light of its face. The five pulled away from the wall and held their breath.
 
-Humans who used their hands a lot,
-humans whose emotional responses were needed,
-humans who had long since conformed,
-humans not yet fully adjusted.
+The light passed the slit without stopping, and the machine went on. Kael let out his breath and rapped the wall with a knuckle, but the wall was too thick to make a sound.
 
-No one had to write it on a label;
-the space itself was already divided that way.
+Holding their breath, they moved upward along the observation passage. When the second's leg made a noise, the first stopped; the second stopped too, and only after the noise had died did the first walk on.
 
-Kael watched it and spoke, very low.
+Below the passage, the human zones showed tier on tier.
+
+Some zones were bright, and some were dark. In one, people working with their hands repeated the same motion over and over. Another was heavily decorated, its light warm, and people sat in it smiling. Their smiles were all at the same angle.
+
+Han Jiwoo looked at the zones one by one and stayed longest on the one where the hands were at work.
+
+"Not by where they live—they've split them up by how they're used."
+
+She said it low.
+
+"What do they make, where those hands work?"
+
+"I do not know. We have never been inside."
+
+The second answered.
+
+"From outside, you cannot see what they make. You can only see the hands."
+
+The hands Han Jiwoo saw, a dozen or more, were moving to the same beat. Fourteen. Of the fourteen she counted, one was half a beat late. When a machine stood beside it, the hand caught the beat, and the machine moved on. She clenched her own hand.
+
+Kael looked at the spaces between the zones. Between every two there was a wall, and in every wall there was a seam.
 
 "They've set it up so if one place blows, the rest don't all go down with it."
 
 The second recovery hand answered briefly.
 
-"Right."
-"So that running,
-and fear,
-don't spread."
+"Right. So that running, and fear, don't spread."
 
-That was chilling.
+Kael counted the seams. Five. He held up five fingers and folded them.
 
-Serakion did not stop at gathering humans and controlling them.
-It cut up even the flow of feeling that passed between humans.
+"What order do they shut in?"
 
-Then fear,
-anger,
-and the urge to escape
-have a hard time spreading through a crowd.
+"I do not know. We have only seen them after they shut."
 
-Ater said nothing for a very long time.
+"And after they open?"
 
-Then, abruptly,
-he looked at one section below and spoke low.
+"They do not open."
 
-"The Empire frightens people onto their knees."
-"Here, it makes them used to it, so they keep to their places on their own."
+When Kael looked at the five seams again, Ater came up beside him and they looked together.
 
-It sounded as if he were muttering to himself,
-which made it all the more real.
+"Which one is first?"
 
-Ater was looking at Serakion now,
-and at the same time looking at the Empire again.
+"The middle."
 
-The forms differ.
-But the essence of power locking humans inside a structure
-is, in the end, not so very far apart.
+Kael said.
 
-Serakion does it more beautifully.
-The Empire does it more roughly.
+"Both sides after that. Shut the middle and people pile up on both sides."
 
-If you believed yourself a different world on that difference alone,
-that might be cowardice.
+"So the middle is first."
 
-Just then,
-a little deeper in, a few human children could be seen moving in a straight line.
+"That's why."
 
-They did not look as if they were being dragged.
-If anything, they were too quiet,
-and looked so used to it
-that the ones watching found it harder to breathe.
+To Ater the middle seam looked the same as the other four, but he trusted what Kael saw all the same.
 
-A small guide line of light floated ahead of the children,
-and behind them a machine followed at a fixed distance.
+"Sound doesn't get through either?"
 
-And when one child at the end of the line
-glanced down at their hands without thinking,
-Han Jiwoo's expression stiffened, very slightly.
+"It does not."
 
-On that child's fingertips
-something like a very thin protective finish had been laid over the skin.
+The second answered.
 
-Han Jiwoo swallowed a quiet breath.
+"If someone screamed on the other side, no one here would know."
+
+The wall looked thin to Kael, but when he laid a hand on it, it was thick.
+
+"Who made this slit?"
+
+"I do not know. It was here before us. One finger wide."
+
+Kael set his own finger to the slit, and it went in to the second knuckle. He pulled it out.
+
+Ater was silent for a long time. He had been watching one of the sectors below, the heavily decorated zone where people smiled, and at last he spoke low.
+
+"The Empire makes people kneel by frightening them. Here, they make people used to it, so that they hold their own places."
+
+Han Jiwoo looked at him.
+
+"Which is better?"
+
+Ater only kept looking at the smiling zone and did not answer right away.
+
+"I do not know."
+
+He said.
+
+"I thought I knew."
+
+Han Jiwoo asked nothing more.
+
+In a zone a little farther in, a few human children were moving in a column.
+
+There were five of them, a light guide line ahead and a single machine behind. The spacing was even, and the children's feet touched the floor at the same moment.
+
+They didn't look like they were being dragged. None of them looked back, and none of them looked sideways.
+
+One child at the end of the column looked down at their own hands as they walked.
+
+Han Jiwoo pressed her face close to the slit, counted the five, and watched those hands. Only one child was looking at their hands; the other four looked ahead.
+
+Something thin had been coated over the fingertips, so clear it showed only when it caught the light. From the tips of the nails to the second knuckle.
+
+Han Jiwoo caught her breath.
 
 "They're even managing the hands."
 
@@ -159,64 +162,100 @@ The first recovery hand answered briefly.
 
 "Candidates for going up get shaped first."
 
-It was dry,
-and that made it more horrible.
+"Shaped how?"
 
-Serakion looks at human hands,
-reads their value,
-and tidies even the surface so that value can be used better.
+"So they do not get hurt. So they do not get rough."
 
-Humans do not stay as people;
-they are managed, little by little, into a more suitable form.
+"Why?"
 
-Ater did not take his eyes off the scene the whole time.
+"So they look good when they are used up there."
 
-If Sion had been there,
-he would probably have read first whether that look was anger or disillusion.
+Han Jiwoo drew back from the slit and looked at her own fingertips, callused and scarred and soaked with oil. She put her hand in her pocket, then took it out again rather than hide it.
 
-Han Jiwoo could tell instead.
+As the children's column turned the corner, the last child missed a step there. Half a beat. The machine behind laid a hand on that shoulder without pushing, and when the child's step came back, it took the hand away. The column was gone.
 
-Watching those children, Ater was angry,
-and at the same time he was seeing, somewhere in his own memory, how the Empire had broken people in from childhood.
+Han Jiwoo drew back from the slit, set her back against the wall, and closed her eyes, then opened them. When she put her eye to the slit again, the corner was empty.
 
-That feeling went deeper than plain hostility.
+"How many?"
 
-It was the kind that comes only when you see, from outside, something that resembles your own world—
-a cold there is no running from.
+She asked.
 
-Then the first recovery hand spoke, very low.
+"How many what?"
 
-"Farther in,
-you reach the zone where they send people up."
+"A day. Like that."
+
+The second waited a beat before answering.
+
+"We have never counted."
+
+"Count."
+
+"If we count—"
+
+"You said once you count, you stop going out. Count anyway."
+
+When the second didn't answer, the first looked at it, and only then did the second nod.
+
+"Five."
+
+After a long while, the second spoke.
+
+"Five, just now."
+
+"And before that?"
+
+"We did not count."
+
+Hearing the number five, Han Jiwoo held up five fingers and folded them.
+
+Ater looked at her hand.
+
+"If it is five a day—"
+
+"It is not a day."
+
+The first said.
+
+"Five at a time. We do not know how many times a day."
+
+While Ater closed his mouth, Han Jiwoo spread her fingers again, and this time she didn't fold them.
+
+Even after the children were gone, Ater kept looking at that corner.
+
+His mouth, as Han Jiwoo saw it, was set hard and his eyes were on the corner, but she didn't ask.
+
+When the second shifted its leg into place, the leg made a noise, and the first turned; the second shook its head to say it was fine. To Han Jiwoo's eye that leg wasn't fine. She said nothing and decided to open it up the next time they stopped.
+
+The first recovery hand spoke, very low.
+
+"Farther in, you reach the zone where they send people up."
 
 Kael asked at once.
 
-"How many on guard."
+"How many on guard?"
 
 The second recovery hand answered.
 
-"Fewer than it looks."
-"But it shuts a lot faster."
+"Fewer than it looks. But it shuts a lot faster."
 
-That explained the whole structure of Serakion once more.
+"How much faster?"
 
-Troops on show, made to look few;
-the structure that shuts, made fast.
+"Faster than you can run."
 
-In governing, a visible threat is always weaker
-than a blockade you notice too late.
+Kael nodded and looked at his own legs, the legs he ran on, then looked at the seams again. Five.
 
-Han Jiwoo looked at the zone below once more.
-Ater, jaw set, looked farther in.
-Kael was already sketching in his head where the retreat line and the cut-off line would fall.
+Han Jiwoo looked down at the zones again. In the zone where the hands were at work, the hands were still moving to the same beat.
 
-And in that moment
-the scouting stopped being simple scouting.
+Ater, his jaw set, looked farther in, past the corner.
 
-They were now watching how Serakion let people live.
+Kael looked from the seams to the ceiling lines and back, gauging the order they would shut in. He folded his fingers one at a time.
+Five.
+Four.
+Three.
 
-And that life
-was where this world's politics was carved deepest.
+The first walked and the second followed, its dragging leg scraping the floor. While Han Jiwoo kept close beside the second and Ater followed behind, Kael was the last to take his eyes from the slit.
+
+The passage narrowed further. Upward.
 
 ---
 

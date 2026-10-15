@@ -1,77 +1,60 @@
-# Episode 152. Left Behind
+# Episode 152. The Ones Left Behind
 
-Once they had decided on the first rescue,
-what took longest was not reading the route again.
+Once they had decided on the first rescue, what took longest was not reading the route again.
 
 It was deciding whom to get out first.
 
-It wasn't simply a matter of picking the children who would respond well.
-Whom they had to bring out for the next crack to open,
-whom bringing out would instead bring the whole line down,
-who, even left inside, could still hold on to a trace of outside—
-they had to think about all of it together.
+The next night, after Han Jiwoo had opened the second recovery hand's leg once more, the five went up through the gap again. While the old machine laid its hand on the groove, Sion made a mark on the board. Outside, the second time.
 
-So the recon team watched the upper transit line again.
+In front of the holding area, where the footprint shapes and the shift line were, the five pressed close to the slit. This time it wasn't to understand the world but to choose three. To choose meant leaving the rest behind, but no one said that aloud.
 
-This time not to understand the world,
-but to choose the children the first rescue would be for.
+The second adjusted its leg beside the slit. With the joint Han Jiwoo had opened, it dragged less and made less noise. The first recovery hand heard that sound and nodded for the first time.
 
-Which also meant
-that this time they might have to leave the other children behind.
+Han Jiwoo had the face of someone who hated that job most, yet she was also the one who began to look most coldly.
 
-Han Jiwoo looked like the one who hated that most.
+She watched the children's hands: whether the body moved before the machine's gesture, whether the head turned toward a sound, whether, inside the column, a child kept even a little of their own beat. She gave each child one beat of looking, the way the machines did, and she knew it, but she didn't stop.
 
-And yet, strangely,
-she was also the one who began to look most coldly.
-
-She kept watching how the children held their hands,
-whether their bodies moved before the machines' gestures did,
-whether their heads turned at sounds from outside,
-whether, even in line, they still kept any of their own beat.
-
-After a long while
-she said, very low,
+After a long while, she spoke very low.
 
 "That one first."
 
 Kael and Ater followed her gaze.
 
-Not at the front of the line,
-not at the very back,
-but a small human standing somewhere in the middle.
+Not at the front of the column, nor at the very back, but around the middle, there was one small human. The child looked obedient, but the hands didn't.
 
-On the surface the child looked like one of the most docile.
-But the hands didn't.
-
-Every time a machine gave the beat to stop,
-the child's fingertips held on, very faintly, one moment longer.
-
-Not frozen—
-they were hands that still seemed to decide for themselves when to stop.
+A machine made the gesture to stop, and the column stopped. That child's fingertips moved once more, very slightly, after stopping, and only then stopped. They were hands that did their own stopping.
 
 "Will that one come?"
+
 Kael asked, low.
 
 Han Jiwoo didn't answer right away.
 
-"It's less that they'll come if I take their hand,"
-she said, very slowly.
+"It's not so much that they'll come if I take their hand."
+
+She spoke very slowly.
+
 "It's that they haven't completely given up on being held."
 
-It was less hope
-than the smallest possibility anyone could expect inside Serakion right now.
+"Is that enough?"
+
+"Here, now, that's all we can hope for."
+
+While Kael watched those fingertips, they moved once more at the next stop too. He nodded, and the second looked at that child as well.
+
+"You cannot tell from the hands alone. The feet?"
+
+The feet Han Jiwoo looked at sat exactly on the footprint shapes, and then the heel lifted very slightly and came back down.
+
+"It lifted."
+
+"I saw. Then it will do."
 
 Ater was the one who picked the second child.
 
-That was a little unexpected.
+Han Jiwoo looked at him as if she hadn't expected it.
 
-The child he chose didn't look the most frightened,
-and wasn't resisting the most clearly either.
-
-If anything, the child was so quiet
-that at first glance it could look as though they had already been won over, deep down.
-
-Han Jiwoo looked at him.
+The child he picked was quiet, neither frightened-looking nor seeming to resist. So quiet that, at first glance, this looked like a child already gone over.
 
 Ater spoke without taking his eyes off the child.
 
@@ -79,163 +62,219 @@ Ater spoke without taking his eyes off the child.
 
 A short silence.
 
-What it meant,
-Kael understood first.
+Kael understood first. The children in the column looked ahead, at the center line the machines guided them along and at the back of the child in front, but that child alone looked to the side and down. Never once up, not even when the light guide line came on.
 
-Humans trying to rise into upper Serakion
-usually follow the center line the machines guide them along,
-or the beat just ahead of them.
+Ater added, low.
 
-But that child kept looking, ever so slightly,
-to the side, or down.
+"That may not be compliance, but the silence of someone holding out."
 
-Which meant the child was not longing upward,
-nor had handed their gaze over to that beat entirely.
+"How do you know?"
 
-Ater added, low,
+Han Jiwoo asked.
 
-"That may not be compliance,
-but the silence of someone holding out."
+Ater answered after a beat.
 
-It sounded as if it came from his own experience.
+"I have seen it before."
 
-Even inside the Empire,
-there are people who look completely broken but have only shut themselves in, and are holding out.
-Ater knew those faces.
+"Where?"
+
+"At home."
+
+Han Jiwoo asked nothing more and looked at that child. The child looking down was looking at the footprint shapes on the floor, at whether their own feet were inside them.
+
+"And if you take that one's hand?"
+
+"I do not know."
+
+Ater answered.
+
+"Whether that one lets a hand be taken or not."
+
+"And you're choosing anyway?"
+
+Han Jiwoo asked.
+
+"I am."
+
+Ater answered.
+
+"A child who does not look up is a child who does not fit. A child who does not fit goes down. Down the wide passage."
+
+Han Jiwoo looked at the child again. Only down and to the side; never once up.
 
 The second recovery hand chose the third.
 
-Smaller this time.
-And far more dangerous-looking.
+Smaller, and more dangerous-looking.
 
-This child was half a beat faster than the others.
-The feet went before the machines' gestures did,
-and when it was time to stop, the child was already trying to look ahead before coming fully to a halt.
+Half a beat faster than the other children. The child's feet went out before the machine's gesture, and when it was time to stop, the child looked toward the next spot before stopping all the way. A machine stood half a step closer beside that child, then drew back once the child stopped. And then the child's feet went out first again.
 
-Kael said at once,
+Kael spoke at once.
 
 "Risky."
 
 The second recovery hand nodded.
 
-"It is."
-"But a kid like that,
-once you take their hand, is the fastest to bolt."
+"It is. But a child like that, once you take their hand, is actually the fastest to bolt."
 
-That was right too.
+"Also the fastest to bring the column down."
 
-A slow child might freeze.
-A child too used to it might not turn back.
-But a child whose body still went first
-might be the first through the gap, if the beat was right.
+Kael said.
 
-The trouble was that, the other way round,
-the same child could bring the whole line down fastest.
+"So, last."
 
-So even after the three were picked,
-no one could say right away that it was settled.
+The second answered.
 
-Because choosing who might be saved
-was also writing the sentence that said who could not be brought out this time.
+"After the first two are out."
 
-Then Han Jiwoo's gaze
-stopped for a long time on one child at the very back of the line.
+As Kael watched, the child's feet went out first again, and he folded down one finger.
 
-That child was noticeably small,
-and the rhythm of their walking wasn't steady either.
+The first looked at the machine beside that child.
 
-Hands,
-feet,
-eyes.
+"That machine won't come away."
 
-All of it still unsteady.
+"It will."
 
-Han Jiwoo watched the child for a long time,
-then slowly took her eyes away.
+The second said.
 
-Ater noticed,
-but said nothing.
+"When the child stops, it draws back. You saw."
 
-Kael didn't ask either.
+"It comes back."
 
-That silence hurt more.
+"Before it comes back."
 
-Because without anyone saying it,
-there was something all three of them knew.
+The second folded a finger once and opened it, the hand signal Kael had been using, and the first said nothing more.
 
-Some children are too slow,
-some are too young,
-and some, if you try to bring them out on this beat,
-could cost you the other three as well.
+Even after choosing three, no one said it was settled.
 
-That is not because the child matters less.
+The first asked.
 
-Which was exactly
-why it was crueler.
+"Those three?"
 
-Han Jiwoo said, very low,
+No one answered.
 
-"Three, the first time."
-"We go with those three."
+Han Jiwoo's gaze stopped on one child at the very back of the column.
 
-Kael worked out the route one last time.
+The child was smaller than any of the three. Hands, feet, eyes: the beat of the child's walk wavered in all of them. When a machine stood half a step to the side, the child stopped, but the machine didn't draw back; it stayed there, half a step off.
 
-The point where the confusion starts,
-the place where the children are pulled out,
-the point where the folding structure gets slowed,
-the corner on the way back where the path splits once more.
+Han Jiwoo looked at that child for a long time, then slowly took her eyes away. Once she had, she closed her eyes and opened them.
 
-Then he said, very briefly,
+Ater saw that but said nothing. Kael didn't ask either, and neither did the second.
 
-"Just before the next shift line turns over."
-"That's the best time."
+The first looked at that child, the child the machine half a step away would not draw back from.
 
-The first recovery hand asked,
+"And that one?"
+
+"No."
+
+Han Jiwoo answered.
+
+"Why?"
+
+"The machine won't come away."
+
+"And if we draw it away?"
+
+"Who?"
+
+When the first did not answer, Han Jiwoo looked at that machine. Half a step away, its hand was at the child's shoulder height, a hand that did not rest there.
+
+"So?"
+
+"So no. Take that kid and the machine comes too."
+
+Han Jiwoo's voice was very low.
+
+"Three, the first time. We go with those three."
+
+While the third child's feet went out first again, the second child looked down, and the first child's fingertips moved once more. The child at the very back stood still together with the machine half a step to the side.
+
+Kael worked out the route one last time: the starting point for the confusion, the spot to pull the children out, the point to slow the folding structure, the corner on the way back where the path splits once more. He spread four fingers and spoke very briefly.
+
+"Just before the next shift line turns over. That's the best time."
+
+The first recovery hand asked.
 
 "Are you certain?"
 
 Kael answered.
 
-"No."
-"But of what we can do now, it's the least wrong."
+"No. But of what we can do now, it's the least wrong."
 
-Strangely, that
-sounded like the words that suited this operation best.
+The first did not nod; it looked at the shift line beyond the slit.
 
-In getting anyone out of Serakion,
-there would be no such thing as perfect certainty.
+"When?"
 
-Only the least wrong moment,
-the least wrong path,
-the least late beat—nothing to do but hold on to those.
+"The next column."
 
-Ater looked at the children once more.
+"And this column?"
 
-The child he had chosen still didn't look up,
-the fingertips of the child Han Jiwoo had chosen were still, very faintly, keeping their own stop,
-and the child the second recovery hand had chosen was still treading the world half a beat early.
+"Not this column. We've already watched those kids all the way through. While we stood here."
 
-All three were still standing on time that hadn't fully gone over.
+Han Jiwoo stepped back from the slit and put her back to the wall, then took one breath and put her eye to the slit again.
 
-Which was exactly why
-this time it might be possible.
+"The third one, by the wrist too?"
 
-And at the same time,
-exactly why, if they failed, they might never see the same children in the same place again.
+The second asked.
 
-At the end of that day
-the recon team and the recovery hands finally fixed one window for the first rescue.
+"The third one gets carried."
 
-A gap very short,
-closing if they were a little late,
-turning awkward if they were a little early.
+Han Jiwoo said.
 
-The gap seemed to be on the route,
-but in truth it was opening first in people's hearts.
+"Grab the wrist and they'll drag you running. Carry them and they can't run."
 
-Only after deciding who would come out first
-and who would be left behind this time
-were they finally ready, for the first time, to actually reach out a hand against Serakion.
+"Who carries?"
+
+"Me."
+
+Ater looked in turn at the child looking down, the fingertip child, and the child whose feet went first. All three still stood in a time that hadn't gone over yet. He looked at the child at the very back too, and at that half step, and then he looked away.
+
+The light guide line came on, the column stood, and the wall opened. Three went across, then a fourth. The wall closed.
+
+Han Jiwoo didn't count.
+She counted.
+Four.
+
+"Four from this column too."
+
+The second said.
+
+"If it's four, one's left."
+
+Kael said.
+
+"I know."
+
+Han Jiwoo answered.
+
+As the five pulled away from the slit and went down, Han Jiwoo matched her steps to the sound of the second's leg.
+
+At the gap, Ater scraped the groove three times and the gap opened. The old machine was there, and Sion was holding the board.
+
+"Did you choose?"
+
+Sion asked.
+
+"Three."
+
+Han Jiwoo answered.
+
+Sion drew dots on the board for the three who hadn't come yet and left one square empty beside them. Han Jiwoo looked at the empty square.
+
+"Why leave it empty?"
+
+"I don't know."
+
+Luhai looked over at the board.
+
+"Is that the fourth's spot?"
+
+"No. I didn't draw a fourth. It's just an empty square."
+
+Luhai looked at the empty square beside the three dots. When he put his finger on that square, Sion pulled the board away.
+
+Han Jiwoo put her back to the wall and closed her eyes. Half a step. The child the machine had not drawn back from.
+
+She did not open her eyes.
 
 ---
 

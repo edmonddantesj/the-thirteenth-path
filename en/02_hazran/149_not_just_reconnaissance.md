@@ -1,62 +1,37 @@
 # Episode 149. Not Just Reconnaissance
 
-After following the rhythm of the upper order further in,
-the recon team at last saw for themselves how Serakion handed its young people upward.
+On the way down, the five of them stopped again in front of the holding area.
 
-Until then they had
-looked at sections,
-read routes,
-and come to understand the differences in hands and living and tiers.
+It was the sector with the footprint shapes they had passed on the way up, and the shift line happened to be moving just then. The first recovery hand raised its hand, and the five pressed up to the slit.
 
-But that day, for the first time,
-how all of that structure actually worked, and on whom,
-came into view at a single glance.
+The children did not move many at a time. They moved in threes and fours, at short intervals. One group stood on the footprint shapes, and when the light guide line came on, they stopped and were aligned. A seamless place in the inner wall opened, then closed once the children had crossed. The next group.
 
-The children didn't move in large numbers at once.
+Kael counted the time one group took, from the three standing to crossing over. The hand that folded and opened its fingers, folded and opened, was not counting times but measuring a length, and the second recovery hand watched that hand.
 
-As always, Serakion
-moved them in a way that never looked like mass transport.
+"How many is it?"
 
-Three,
-four at most.
-Very short intervals.
-A quiet stream, never quite enough to draw the eye.
+"Twelve."
 
-Those small clusters
-paused for a moment,
-were aligned,
-were handed over,
-and vanished.
+Kael said.
 
-That was exactly what made it more horrible.
+"Twelve from standing to crossing."
 
-It wasn't that the numbers were small.
-Because they had been split up to look few,
-your sense of who disappeared, and how often, blurred.
+"And how many of those can we use?"
 
-Serakion managed even loss
-so that it never showed all at once.
+"One. Before the wall opens."
 
-The whole time she watched them move, Han Jiwoo stood almost as if she had stopped breathing.
+The second looked at its own leg, which would have to move in that one count out of twelve.
 
-The children were all different.
+A polite guidance tone sounded from beyond the wall.
+It was the third time for words like "Next group." Han Jiwoo counted them.
 
-One already walked far too quietly,
-one had been adjusted right down to how high they lifted their head,
-one still had stiff fingertips,
-one was keeping pace with the machine beside them before their own feet.
+All the while, she stood as if she weren't breathing.
 
-Those differences
-struck all the harder.
+The children were each different.
 
-They were not all alike.
-They had not all been won over at the same speed.
-They had not all held out in the same way.
+One child walked so quietly that their feet made no sound touching the floor. One held their head at the same height as the machines, and one had fingertips gone white beneath the transparent coating. One child watched the feet of the machine beside them before their own. When the machine's feet stopped, theirs stopped.
 
-But Serakion read even those differences
-and was raising each of them upward at the pace that suited them.
-
-Han Jiwoo said, very low,
+Han Jiwoo spoke very low.
 
 "They're reading a separate tempo even for the kids."
 
@@ -64,195 +39,259 @@ The first recovery hand answered.
 
 "That is what this place does best."
 
-It was said evenly,
-but it sounded almost like self-mockery.
+"How do they read it?"
 
-Serakion is not a world that handles people all at once.
-If anything, the most dangerous part of it
-lay in its ability to recognize the different speed at which each person breaks
-and to tame them one by one to match.
+"I do not know. I only see what the reading turns out."
 
-Ater watched the scene for a long while,
-then, seeing a child stop and be realigned with complete ease, said, low,
+"And what does it turn out?"
+
+"That."
+
+The first pointed with its chin at the child with the quiet walk.
+
+"The child whose footsteps make no sound. They were not like that from the start."
+
+Han Jiwoo looked at the child's feet. They touched the floor, and there was no sound. When she looked at the child with white fingertips, the machine beside that child stood half a step closer than the other machines. The machines beside two other children were also at half a step; only one child's machine was at a full step.
+
+"Why is that one kept so close?"
+
+"Because they do not fit yet."
+
+The second answered.
+
+"The ones who fit are kept farther off."
+
+Han Jiwoo looked at that half step, at the half-step child.
+
+"So if they fit, they're kept far, and if they don't, they're kept close."
+
+"Yes."
+
+"Then the close one is the one who doesn't fit yet."
+
+The second answered after a beat.
+
+"If you look at it that way, yes."
+
+Han Jiwoo counted the children kept within half a step. Three out of four. While she held on to that number, the second looked at those three.
+
+"Even so, we cannot take three."
+
+"Why?"
+
+"Because there are three machines close to them."
+
+Han Jiwoo counted the machines. Three at half a step, one at a full step.
+
+"It's three out of four, though."
+
+"That is why we cannot. … Two will look back."
+
+While Han Jiwoo kept her mouth shut, Ater heard it too.
+
+"Then the children kept close are visible to that side as well."
+
+"They are."
+
+The second answered.
+
+"They are seen, so they are kept close."
+
+Ater said nothing more and watched the half step, then watched a child stop and be aligned again.
+
+The child stopped half a beat late, a machine stepped beside them, and the child moved their feet onto the footprint shapes. Even after the machine withdrew, the child stood in that place and did not move.
+
+Ater spoke low.
 
 "Now I understand."
 
 It wasn't clear whom he was saying it to.
-It might have been himself.
 
-"Why it was so quiet all this time,"
-he went on, low.
-"This is not mass rule,
-but rule cut into pieces so that it never looks like mass rule."
+"Why it was so quiet all this time."
 
-That ran through Serakion's whole structure once again.
+He went on, low.
 
-From below all the way up to here,
-everything had moved by the same principle.
+"This is not mass rule, but rule cut into pieces so that it never looks like mass rule."
 
-Never drive them in great numbers.
-Never bring them down all at once.
-Never close too much at once.
-Never take too much at once, either.
+"In threes."
 
-Always a little at a time,
-politely,
-in manageable units.
+Han Jiwoo said.
 
-So resistance comes late,
-loss shows late,
-and anger is cut off before it can become a crowd.
+"In threes."
 
-All this while, Kael had kept reading where the children stopped,
-the angle at which the machine beside them raised its hand,
-and the order in which the wall opened and closed right after.
+Ater took it up.
 
-And at last,
-he spoke, very quietly.
+"No one counts it when three disappear."
 
-"I've got it."
+Han Jiwoo counted the groups that crossed.
+Three.
+Then three.
+Then four.
+Ten.
+She did not stop counting.
+
+"Do not count."
+
+The second said.
+
+"I'm counting. If nobody counts, nobody will."
+
+Her lips went on counting, soundlessly.
+
+The second said nothing more, looked at its own fingers, and folded one.
+One.
+
+Kael was watching where the children stopped, the angle at which the machine beside them raised its hand, and the order in which the wall opened and closed right after.
+
+A hand goes up.
+The children stand.
+The wall opens.
+They cross.
+The wall closes.
+The hand comes down.
+
+In between. After the hand goes up and before the wall opens, when the children are on the footprint shapes but the alignment isn't finished.
+One beat, maybe half.
+
+He spoke, very quietly.
+
+"Got it."
 
 Han Jiwoo and Ater looked at him at the same moment.
 
 Kael spoke without taking his eyes off it.
 
-"Why nobody's been able to get them out till now."
-"And the only place it might work."
+"Why nobody's gotten them out until now. And the only place it could work."
 
 The second recovery hand reacted very briefly.
 
 "Where?"
 
-Kael tipped his chin toward the short stretch just before the children crossed into the next section,
-where the alignment loosened for a moment.
+Kael pointed with his chin at the footprint shapes, the spot before the wall opened.
 
-"There."
-"Right before they're handed over, before they're fully in the upper beat."
-"But it's too short."
+"There. Right before they're handed over, before they're fully into the upper beat. But it's too short."
 
-Those few short words
-made the situation even more suffocating.
+"How short?"
 
-There was a chance.
-But it was not the kind of chance
-that opened if you pushed at it with courage or strength.
+The first asked.
 
-A very brief misalignment,
-the moment before alignment is complete,
-the last beat in which a person still uses their body as their own.
+Kael folded his fingers once and opened them.
 
-Miss it, and it's over.
+"This long."
 
-Even after hearing that, Han Jiwoo couldn't take her eyes off the children.
+The first looked at that hand.
 
-She saw one child
-lift their head half a beat later than the machine's gesture,
-and another, instead, step off half a beat early.
+"Three of them, inside that."
 
-Those tiny misalignments
-might be the time still left on the human side.
+"Inside that."
 
-"They haven't all crossed over yet,"
-she said, almost biting the words.
+The second looked at its own leg, which would have to move inside that.
 
-The first recovery hand said nothing.
+Han Jiwoo did not take her eyes off the children.
 
-But that silence wasn't a denial.
-It was closer to a fact it had already watched for far too long
-now being confirmed by Han Jiwoo's own eyes.
+While one child raised their head half a beat later than the machine's gesture, another child's foot left the floor half a beat early. The machine brought both into step, one by waiting, the other by blocking.
 
-Ater was watching not the lower side
-but the machines receiving the children above.
+"They haven't all crossed over yet."
 
-There was no impatience in their hands,
-their voices were low,
-their manner far too steady.
+She almost bit the words.
 
-That very steadiness
-was the kind of thing he found hardest to bear.
+"That slow one. That fast one."
 
-"Over there, they will act as if they mean well,"
-he said, low.
+The first recovery hand said nothing. It looked at the slow child, then at the fast child. It did not nod, and it did not look away, either.
+
+Ater was watching the machines that received the children on the upper side.
+
+They were machines beyond the wall, seen only when it opened, their hands slow and their voices low. Those hands settled on a child's shoulder without pushing.
+
+"Over there, they will act as if they mean well."
+
+He said it low.
+
 "That is why they can go on stealing for so long."
 
-That set Han Jiwoo harder still,
-and made Kael's eyes sink deeper.
+"They don't mean well?"
 
-Now all three of them knew.
+Han Jiwoo asked.
 
-What Serakion did
-was violent selection,
-graceful abduction,
-courteous dispossession.
+"They do."
 
-It was only that now,
-in the pace and hands and feet of the children in front of them,
-they had confirmed it directly.
+Ater answered.
 
-Then another cluster of children was passed on to the next line.
+"By their own measure."
 
-The small one standing at the very back
-turned their head to the side for just a moment.
+Han Jiwoo watched the hand resting on the shoulder, and when the wall closed, the hand was gone too.
 
-It wasn't toward the recon team.
-It was only a movement, as if checking somewhere behind them.
+Kael looked at the wall where it had opened, but there was no seam.
 
-But that one brief gesture,
-strangely, would not let Han Jiwoo stay still any longer.
+"That wall can't be opened."
 
-Right up until they vanished,
-those children were still looking for someone.
+He said.
 
-Han Jiwoo said, low and firm,
+"So it has to be in front of it."
+
+"In front of it."
+
+Kael looked at the footprint shapes; from there to the wall was three steps.
+
+"Within three steps."
+
+To Han Jiwoo's eye, those three steps were three of her own steps and five of a child's.
+
+"Five steps in one beat. Can't be done."
+
+"What if I carry one and run?"
+
+The second said.
+
+"Three steps."
+
+"Not on that leg."
+
+The first said.
+
+The second didn't answer and looked at its own leg, and Han Jiwoo pressed a hand to her tool pouch.
+
+Another group stood on the footprint shapes.
+
+The small child standing at the very back turned their head to the side once. Not toward the scouting team, but behind them, at a place where no one was. A machine laid a hand on that child's shoulder, and the child's head turned forward again. The wall opened, and the child crossed.
+
+Han Jiwoo stepped back from the slit and put her back to the wall, and her palms pressed flat against it. It was cold, the same temperature as the walls on the lower levels; the walls up top had been warm.
+
+She took her hands away and spoke, low and firm.
 
 "That's enough watching."
 
-Both recovery hands looked at her at once.
+The two recovery hands, Kael too, and Ater all looked at her at once.
 
-Kael
-and Ater
-looked at her without a word.
+Han Jiwoo spoke again, her back still to the wall.
 
-Han Jiwoo kept her eyes on the children and spoke again.
+"We needed to understand the structure better. But not anymore. If we watch any longer, all that happens while we understand is the kids go over."
 
-"We needed to understand the structure better."
-"But not anymore."
-"If we keep watching,
-all that happens while we understand is the kids go over to them."
+"That's ten."
 
-It wasn't an emotional outburst.
-If anything, it was like a conclusion that had arrived far too late.
+She added.
+
+"Ten went over while we stood here."
 
 Ater closed his eyes, then opened them.
-Then he said, very low,
 
 "I agree as well."
 
-Kael took in, one last time,
-the closing sequence, the points where the children stopped,
-and the intervals at which they were handed over.
+Kael took one last look at the order of the closing, the points where the children stopped and the intervals of the handover, then folded his fingers once and opened them.
 
-Then he said briefly,
+"If we do it, we do it exactly."
 
-"If we do it,
-we do it exactly."
+The first looked at Han Jiwoo, Ater and Kael in turn, then at the second. The second nodded, but the first did not.
 
-It was neither permission nor restraint.
+"Once we are down."
 
-It meant all three of them
-had already reached the point where this could no longer be called mere reconnaissance.
+It said.
 
-What they understood last that day
-was not some deeper secret of Serakion's structure.
+"We will not do it here."
 
-It was the opposite.
+As the five drew away from the slit, the wall opened and closed once more. Han Jiwoo didn't count. She tried not to.
 
-It was that, precisely because they now understood enough,
-they could not go on just watching.
-
-And at that very moment,
-the reconnaissance hadn't ended,
-but it had already begun to move into the next stage.
+Eleven.
 
 ---
 

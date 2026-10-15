@@ -1,219 +1,314 @@
 # Episode 182. Same Plan, New Heart
 
-As the short rest drew to an end,
-the movement in the old layer began to settle again into a quiet tension.
+As the short rest drew to an end, movement inside the old layer began to settle into order again.
 
-The children were moved farther inside,
-the wounded lay in a makeshift safe section,
-and the collapsed routes and the gaps in the structures were blocked again as best they could be.
+The children were moved farther inside, and the wounded lay in a makeshift safe sector. The collapsed routes and the gaps in the structure were blocked again as best they could be, and at every patched spot one of the Hazran sat with their back against it.
 
-And in the middle of it all,
-Seorin called the people together again.
+The three from the floor had been moved to the wall, and cloth covered them. No one asked who had covered them. When one splayed arm stuck out from under the cloth, one of the old machines pulled the cloth back over that arm.
 
-This time not everyone could stand, the way they had right before the battle.
-Some leaned against the wall,
-some were wiping off blood,
-some still couldn't get their breath even.
+A child who had drawn the smiling mouth sat in front of the cloth. The child didn't lift it, only kept a hand on the cloth where the arm was. A Hazran woman tried to take the child away, but the child wouldn't go, so she sat down beside them.
 
-But that didn't mean
-the gathering had come apart.
+In the middle of all that, Seorin called the people together again.
 
-If anything, having all seen too much,
-it was closer to a place where no one could easily say anything empty anymore.
+Not everyone could stand the way they had right before the battle. Some leaned against the wall, some were wiping off blood, and some still couldn't get their breath even. Luhai sat with cloth wound around his left shin, and Sern had his record panel open on his knees. Ater stood without leaning on the wall.
 
-Seorin looked around at the people for a while without a word.
+For a while Seorin looked around at the people one by one without a word. When she had seen them all and lowered her eyes to the floor, one dot remained where she had wiped the lines away with her palm.
 
-Watching that silence, Sion could tell.
-She wasn't making a new plan right now;
-she was taking the bones of the existing plan back into her hands
-and choosing what to change and what to keep.
+"How many?"
 
-At last Seorin spoke.
+She asked Sern.
+
+"Fourteen people who can walk. Three machines. That android."
+
+Sern said.
+
+"The children are not counted."
+
+"Don't count them."
+
+Seorin said.
 
 "We don't change the big picture."
 
-At that one line,
-the air in the room actually grew a little sharper.
+When a Hazran man who had been leaning on the wall took his back off it, Luhai raised his head too.
 
-"The layer split stays."
-"The order we go in stays."
-"Nobody's axis changes either."
+"We keep splitting into layers. We keep the order going in. Nobody changes the axis they've got."
 
-It was not simple stubbornness.
+"We've got fewer people."
 
-The plan already in place had its reasons.
-Each person's position and role
-had been built on the information and the understanding of the routes they had gathered so far.
+Luhai said.
 
-Overturning all of it would be closer to the very confusion Serakion wanted.
+"The axes don't shrink. Shrink an axis and they come into that spot. Move people."
 
-But Seorin went straight on.
+"Who goes where?"
+
+"I'm telling you now."
+
+Sern put a finger on the old lines on his record panel. Three lines, top to bottom; he didn't erase them.
+
+Seorin went straight on.
 
 "The execution changes, though."
 
-Only then did everyone's eyes
-drift, naturally, once toward where the last android was.
+Only then did everyone's eyes drift once toward where the last android was.
 
-He had not fully recovered yet.
-He was leaning near the wall,
-and the shoulder axis Han Jiwoo had just finished bracing in place still looked unsteady.
+He was propped against the wall, close to it. On the shoulder axis Han Jiwoo had just finished fixing in place for now, three knot marks showed. The one lit optical eye was looking at Seorin, and Seorin met it.
 
-But now that being could not be left outside this conversation.
+"Can you hear me?"
 
-Seorin didn't hide that.
+The optical eye didn't waver.
 
-"On their side there are still command-driven androids."
-"And now on our side,
-there's an android that doesn't move on commands."
+"I'll take that as a yes."
 
-It sounded like an explanation,
-but in truth it was closer to a declaration.
+Seorin spoke with that gaze still on her.
 
-The fighting from here on could not be the same.
-Because the conditions of the battlefield themselves had changed.
+"Over there, they still have command-driven androids. And now, over here, there's an android that doesn't move on commands."
 
-Ater was the first to ask, low,
+A Hazran woman covered a child's ears with her hands and then took them away, but the child was already listening.
+
+"If he doesn't move on commands, what does he move on?"
+
+The man without a younger brother asked.
+
+Seorin didn't answer right away; she looked at Han Jiwoo.
+
+"I don't know."
+
+Han Jiwoo said.
+
+"I saw him move. I don't know what moves him."
+
+The man didn't ask anything more.
+
+Ater was the first to ask, his voice low.
 
 "Will you put him at the front?"
 
-Everyone reacted a little sharply to that question.
-Han Jiwoo raised her head,
-and Sion stopped breathing for a moment too.
+Han Jiwoo raised her head, and Sion's breath stopped. When Luhai leaned forward where he sat, the wound cloth pulled tight.
 
-But Seorin didn't waver.
+Seorin looked at Ater.
 
-"No."
-"I'm not letting him stand in for everything."
+"No. I'm not having him carry all of it for us."
 
-It was a short answer,
-and only then did a few of the people there breathe, just a little.
+As Han Jiwoo's shoulders came down, Luhai settled back against the wall again. Ater nodded once.
+
+"What happens if he's in front?"
+
+Sion asked.
+
+"They look at him first."
+
+Seorin said.
+
+"If they only look at him, they don't see us. Sounds good, right? It isn't. If he breaks, we're next."
+
+When Sion looked at the android, the three knots caught his eye.
 
 Seorin kept going.
 
-"The existing teams stay."
-"Who takes which layer stays as it is."
-"Instead, that goes in as a variable."
+"The teams stay as they are. Who takes which layer stays the same. But that one goes in as a variable."
 
 Variable.
 
-The word could have sounded cold,
-but strangely no one took it badly.
+At the word, Han Jiwoo looked at Seorin, and Seorin looked back at her. Neither of them looked away.
 
-It sounded not like turning him into an object,
-but like a way of pinning down too big a change with too small a word.
+Han Jiwoo was the first to give a small nod, and then she looked down at her own knee. Cloth was wound where the shard had been lodged.
 
 Sern summed it up, as if taking over from her.
 
-"In other words, the existing structure is maintained,
-and only the handling in execution is revised."
+"In other words, the existing structure is maintained, and only the handling in execution is revised."
 
-"Right,"
+"Right."
+
 Seorin answered.
-"Reaction speed will change too,
-and so will the way their androids move."
 
-Hearing that,
-Sion remembered when this plan was first born.
+"Reaction speed will change too, and so will the way their androids move."
 
-Back then, without a doubt,
-the strategy had been built from a mix of anger, the need for rescue, and calculation.
+"Change how?"
 
-But now it was different.
+Sion asked.
 
-Now, on top of that calculation,
-there was a being who had already once received a face,
-once protected,
-once survived.
+"They stop when they see him."
 
-So even if it was the same plan,
-it could only become an entirely different fight.
+Seorin said.
 
-Han Jiwoo asked, very low,
+"You saw it. Two units couldn't move their feet in front of him. We use that."
 
-"Then…
-where do we put him?"
+"Why do they stop?"
 
-The question was a strategic one
-and, at the same time, a completely different one.
+"No idea. I only know they stop."
 
-Whose side he should be kept at.
-Who he should move with.
-And where he could be placed
-so that he would protect the most
-without being used in the least human way.
+Sern turned the record panel to a fresh page. He copied the three old lines over just as they were, then left one empty square beside them.
+
+Luhai asked from where he sat.
+
+"His shoulder going to last on that?"
+
+Han Jiwoo answered without looking at the android's shoulder.
+
+"I'll make it last."
+
+Luhai pulled the cloth on his shin tighter once more.
+
+"Parts?"
+
+Sern asked.
+
+"None."
+
+Han Jiwoo said.
+
+"Cloth and wire. That's what I tied it with. Three turns."
+
+"Will it hold?"
+
+"Once."
+
+Han Jiwoo said.
+
+"Twice, I don't know."
+
+Sern wrote that down. Once.
+
+Sion looked at the dot on the floor. On the day this plan was first made, the lines Seorin drew had no such dot. The lines had been wiped away, and the dot remained.
+
+Han Jiwoo asked, very low.
+
+"Then… where do we put him?"
+
+Even after asking, she didn't look toward the android; she looked at her hands. There was oil where she had gripped the tools. She tried wiping it off on her trousers, but it didn't come off.
+
+"Why do you keep wiping?"
+
+Luhai asked.
+
+"Because it won't come off."
+
+Luhai, who had been looking at his own bloodied hands, wiped them too. It didn't come off.
 
 Seorin looked at the last android for a moment.
 
-"Only one axis changes,"
-she said, low.
-"Attach him to the most unstable axis."
-"Not for breaking through directly,
-but for shaking up the flow."
+"Only one axis changes."
 
-Hearing that, Ater slowly nodded.
+She spoke low.
 
-It was a good choice.
+"Put him on the shakiest axis. Not for breaking straight through, but for shaking up the flow."
 
-If the last android became a cure-all that stood in for everything,
-the existing plan would die, and so would everyone else's roles.
+Ater heard that, nodded slowly, and leaned his back against the wall. In the empty square on the record panel, beside the dot, Sern wrote a single character.
 
-If instead he was set as a variable that changed the odds for one particular axis,
-the existing bones would live and the whole battlefield would change.
-
-That was exactly what mattered.
-
-One of the old machines murmured, very low,
+One of the old machines spoke, very low.
 
 "He shakes the commands."
 
-Seorin didn't deny it.
+Seorin turned her head toward that machine.
 
-"Yeah."
-"We're not trying to win with him."
-"We'll win through the gaps that open because he exists."
+"Right. We're not trying to win with him. We'll win through the gaps that open because he's there."
 
-At that,
-Sion felt something somewhere inside him quietly grow hot.
+"And if the gaps do not open?"
 
-It was good.
-This wasn't throwing the existing plan away.
-If anything, it was a way to make it more alive.
+Ater asked.
 
-And at that moment,
-a little way off, a child looked toward the last android and said, very small,
+"Then the original plan."
+
+Seorin said.
+
+"That plan was made without him. It works without him. Having him is just better."
+
+Ater nodded and looked at Sern's record panel; the three old lines were still there.
+
+When the old machine bowed its head once and raised it, the machine beside it made the same motion a beat late. It was the machine that had pulled the cloth back over the arm.
+
+"You going too?"
+
+Luhai asked.
+
+"We are going."
+
+The machine said.
+
+"Two."
+
+"And the ones staying?"
+
+"Some stay as well."
+
+Luhai didn't count them.
+
+He slapped his knee once with his palm; the sound was small. No one looked his way, and Luhai didn't look at anyone either.
+
+Sion sat down beside him without a word. When Luhai stretched out his leg, the cloth pulled tight.
+
+"Can you walk?"
+
+Sion asked.
+
+"I can walk."
+
+"Run?"
+
+"I'll have to."
+
+A little way off, a child looking toward the last android spoke, very softly.
 
 "Does he have to go with you?"
 
-The room went quiet for a moment.
+The room went quiet.
 
-This time no one could pretend not to have heard.
+Han Jiwoo closed her eyes, took one breath with them still closed, then opened them. The last android's optical eye flickered very faintly toward the child.
 
-In the time it took Han Jiwoo to close her eyes and open them,
-the last android's optical eye flickered, very faintly.
+While Seorin looked at the child, the Hazran woman sitting beside the child put an arm around the child's shoulders. The child didn't push the arm away, and didn't look away from the android either.
 
-No word of decision had come yet.
-But everyone already knew.
+Seorin didn't answer the question. Han Jiwoo did.
 
-Leaving him here would not be protection.
-Serakion would surely come looking for him again.
-And that danger would soon break in beside the children again.
+"Yeah."
 
-Because they wanted to be together,
-they had to take him with them and leave.
+The child looked at the android.
 
-That inevitability
-had already made its way into the very middle of the planning meeting.
+Seorin touched the dot on the floor once with the tip of her foot.
 
-In the end Seorin didn't spell it out at length.
-Instead she said, very briefly,
+"This time we hit first. As soon as we're ready, we go in."
 
-"This time we hit first."
-"We go in as soon as we're ready."
+As people got to their feet, Luhai staggered once getting up with a hand on the wall, and Sern caught his arm; Luhai didn't shake the hand off. Ater was already heading for the route. The Hazran men, too, took their backs off the patched gaps and stood up.
 
-Those words were the end of the rest.
+Han Jiwoo, still not getting up, looked at the last android, and the android looked back at her.
 
-And at the same time,
-they were the start of setting an entirely different battlefield on top of the same plan.
+"Can you go?"
+
+She asked.
+
+He didn't answer. He put a hand to the wall but didn't get up; he only braced it there.
+
+"Not now."
+
+Han Jiwoo said.
+
+"When we go."
+
+When he took his hand away, she stood up first, laying a hand briefly on his remaining shoulder. Only after a vibration came once under that hand did she take it away.
+
+The child looked at that hand, then at their own.
+
+Seorin turned away without wiping out the dot. Sern looked down at the dot once and closed the record panel.
+
+Aka came and stood beside the dot, beside the children.
+
+"I'll take below."
+
+She said.
+
+Seorin looked back.
+
+"The first and second recovery hands are there. The wall-side machine too."
+
+Aka said.
+
+"People?"
+
+Seorin asked.
+
+"Me."
+
+Seorin nodded once.
 
 ---
 

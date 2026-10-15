@@ -154,8 +154,9 @@ Better to let them go as far as the same threshold, and see there who tried to o
 
 Ater moved on.
 
-Meanwhile, on the level below,
-Sion had just made out the sign at the end of the alley.
+---
+
+On the level below, Sion had just made out the sign at the end of the alley.
 
 **R-12 Debris Access Bridge. No outer access.**
 

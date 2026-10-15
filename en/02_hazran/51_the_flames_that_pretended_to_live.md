@@ -41,7 +41,7 @@ he said at once.
 
 Han Jiwoo immediately turned the skiff's nose a little to the outside.
 
-A team following right behind them leaped toward that light almost by reflex. It was not the previous year's winners. It was a team that had held on through the wreckage zone by a miracle and come out alive—fast, but with its senses not yet settled.
+A team following right behind them leaped toward that light almost by reflex. It was not last year's champions. It was a team that had held on through the wreckage zone by a miracle and come out alive—fast, but with its senses not yet settled.
 
 As that team's craft drew near the light, the red glow grew bigger instead.
 
@@ -130,7 +130,7 @@ Instead she pressed the skiff toward it, slowly. Her hand, like a pilot who knew
 
 Just then, from the outside on the right, the dark-red glider cut in on a line that had come alive again.
 
-The previous year's winners.
+Last year's champions.
 
 Their rhythm had broken once in the wreckage zone, but they had not died outright. If anything, on the way here they had closed back up with the front-runners. That team had now also begun filtering out almost all the showy lights, and was narrowing its line in a direction much like theirs.
 

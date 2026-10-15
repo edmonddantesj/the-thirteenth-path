@@ -1,213 +1,169 @@
 # Episode 175. Beginning to Change
 
-The fact that only the last android remained
-reached, before anyone at the center of the battlefield,
-the people and children who had been pushed to the rear.
+The fact that only the last android remained reached the people and children who had been pushed to the rear before it reached anyone at the center of the battlefield.
 
-Because until then, at least,
-there had still been many faces.
+Before that, at least, there had still been many faces. There had been a smiling mouth, there had been round eyes, there had been a crooked expression.
 
-There had been a smiling mouth,
-there had been round eyes,
-there had been a crooked expression.
+Not anymore. Only one was left.
 
-But not anymore.
-
-Only one was left.
-
-And that fact was so stark
-that the children, if anything, stopped crying for a moment.
-
-A stop of disbelief.
-A stop that seemed to ask whether this was really the end.
+The children's crying stopped for a moment. One child only breathed, mouth open. Another child couldn't lower the hand that was pointing to where the android stood. A Hazran woman took that hand and lowered it, but the child raised it again.
 
 The last android was still standing in front of the children.
 
-His body was already broken in many places.
-One leg couldn't hold its axis,
-a shoulder was half torn away,
-and the short mouth line on his face kept going nearly dark and coming back.
+His body was already broken in many places. One leg couldn't hold its axis, his shoulder was half ripped away, and the short mouth line on his face kept going dark and coming back.
 
-But strangely,
-though he looked ready to fall, he did not collapse.
+That body stood. A knee buckled once and straightened again. It stayed straight.
 
-Watching him,
-Sion couldn't shake the thought that what held that being up now was not just mechanical drive.
+When he pushed an enemy unit that had fallen at his feet off to the edge of the passage with his foot, the floor between the children and him was clear. He stood again in the middle of the floor he had cleared.
 
-So much had already been cut,
-and yet some part of him was growing sharper instead.
+On the rear line, Seorin spoke.
 
-It was movement.
-It was gaze.
-It was a direction that would not stop.
+"The wounded first. Anyone who can walk, on your own feet."
 
-He probably didn't know yet what sacrifice was.
-He probably didn't know why he had survived.
+Two Hazran people hooked a bleeding man under the arms from either side. When the man tried to stand on his own feet and sank down, the two hooked him again. One of the old machines widened the rear-line gap further with its shoulder, and the wall panel moved another hand's width.
 
-And still,
-that being kept looking first at what was left in front of him.
+Sern, record panel in hand, was watching the mouth of the route.
 
-The children.
-The people crying.
-The old machines that had not been able to fall back.
+"Up to the third rank, the spacing was the same. Now they are coming in twos."
 
-It looked
-as if something like responsibility had stayed in his body before understanding could.
+Ater answered from above.
 
-Serakion's legion did not wait on any of that.
+"If they come in twos, there will be gaps between them."
 
-As if filling the places where the front line had fallen,
-more units pushed into the narrow corridor.
+Seorin heard it and kept her eyes on the mouth, but she said nothing.
 
-Bodies without faces.
-Movement without expression.
-A steady speed, as if only one will were left in all of them.
+The Serakion legion did not wait.
+
+As if filling the places where the front rank had fallen, more units pushed into the narrow route. Two of them. Faceless bodies, expressionless movement, footsteps at exactly the same spacing.
 
 The last android faced them and stopped, very briefly.
 
 Sion held his breath.
 
-Whether that moment of stillness
-was a malfunction,
-was hesitation,
-or was time spent choosing something, he couldn't tell.
+The last android moved in a slightly different way.
 
-But then,
-he moved in a slightly different way.
+He did not take them head-on, as before. He turned his body halfway and let the first unit pushing in slide past to the side. While that unit slammed its shoulder into the wall behind him and stopped, he put his hand between the neck and shoulder of the second unit behind it and cut it off in one move.
 
-He did not take them head-on, as before.
+Before the cut unit had fallen, he had already turned toward the first unit stuck in the wall. He broke its knee with his foot. There was no gap between the two movements.
 
-He turned his body halfway,
-let the first incoming unit slide past to the side,
-and cut, with complete precision, between the neck and shoulder of the second unit behind it.
+When he pushed the two fallen ones to the edge of the passage as well, they piled on top of the one he had pushed earlier.
 
-It was so natural
-that for a moment Sion felt his skin prickle.
+The moment Ater saw it, he spoke very low.
 
-That was not a simple repeated motion.
-It was a little different even from the fighting a moment ago.
+"He is changing."
 
-More efficient,
-shorter,
-closer to stopping more with less force.
+Sern said nothing. The hand holding the record panel stopped for a moment, then wrote one short line. After writing it he glanced up at Ater once, but Ater was watching the mouth.
 
-Ater saw it too, and said, very low,
+Seorin turned her head toward Sion, who had his back against the wall panel beside the gap.
 
-"It is changing."
+"Sion. The people."
 
-Sern said nothing at all.
-But his hand stopped on the record slate, just for a moment.
+Sion took his back off the wall and turned his eyes from the battle to the rear line.
 
-Han Jiwoo watched it, and her face only grew more pained.
+A Hazran man was moving along the wall away from the rear-line gap, not toward the gap but toward the mouth. His eyes were not on the mouth. They were not on anything.
 
-She was realizing it.
+When Sion caught his sleeve, the man looked back. It took him a beat to see Sion.
 
-That being was not just surviving;
-he was learning while he survived.
+"This isn't the way."
 
-How his companions had fallen.
-Where they had blocked first.
-What they had tried to keep behind them to the end.
+Sion said. Still holding the man's sleeve, he turned him toward the rear-line gap. As the man walked, Sion kept hold and walked three steps with him before he let go. The man kept going toward the gap.
 
-All of it
-seemed to be staying somewhere inside that body.
+Sion put his back to the wall again. This time he stood facing the people.
 
-But the price of that learning was too high.
+Han Jiwoo kept her hand on the back of the child she was holding and watched the battle to the end. When the child's hand tightened on her clothes, she pressed on the child's back in return, but she did not take her eyes off the battle.
 
-A child said, sobbing,
+A child spoke through sobs.
 
 "He's all alone…"
 
-Everyone in the room already knew it,
-but once it was spoken aloud, it became far crueler.
+A Hazran woman started to cover the child's mouth with her hand, then stopped, and instead held the child deeper in her arms.
 
-Yes.
+"I know."
+
+The woman said it into the top of the child's head.
+
+"I'm watching."
+
+The child lifted their face from the woman's chest and looked over there again. The woman did not turn the child away.
+
 He was alone.
 
-Only moments ago, different faces had stood beside him,
-each fighting in its own way,
-and now he was left alone,
-holding all of their places with one body.
+A moment ago there had been different faces beside him, each fighting in its own way, and now every one of those places was empty. One body stood in front of that empty width. The width was wider than the body. He picked the middle of that width and stood there.
 
-Behind them, one of the old machines said, very low,
+One of the old machines spoke from behind, very low.
 
 "He does not step back."
 
-It was not admiration, and it was not commentary.
-It was closer to confirmation.
+Having said it, the machine took a step forward, but the other machine beside it raised an arm to stop it. Stopped, both of them watched the battle. The arm that stopped it did not come down, and the stopped machine did not push against it.
 
-It was true:
-the last android had not once shown his back.
-
-Even when he looked behind him,
-it was always to check,
-never to run.
+The last android had not once shown his back. Even when he looked behind him, his body stayed facing forward; only his head turned, and turned back.
 
 This time two Serakion units came in at once, from left and right.
 
-He did not cut one of them down first.
-Instead he took one very short step back
-and waited until the gap between the two closed.
+Sern spoke.
 
-And at the instant the two were closest,
-he turned his body in one motion and made them crash into each other.
+"Left and right."
 
-The collision rang out loud.
-One's neck snapped,
-and the other's inner frame burst.
+The last android did not cut one side down first.
+He stepped back one pace. The foot he stepped back with landed on a shard on the floor, and it made a sound.
+The space between the two closed.
+At the moment the two were closest, he turned his body in one motion and made them crash into each other.
 
-But the last android did not come out whole either.
+The collision rang out loud. One's neck snapped, and the other's inner frame burst. Shards of the burst frame grazed the side of his face and left a scratch right beside the mouth line on his face.
 
-The recoil wrenched what was left of his shoulder axis completely out of true,
-and one of his optical eyes went dark for an instant, then came back on.
+The last android was not unharmed either. The recoil wrenched what was left of his shoulder axis completely out of true, and one of his optical eyes went dark for an instant, then came back on. After it came on, the focus returned a beat late. Where the refocused optical eye went first was not the mouth but the children, and only after that did it go back to the mouth.
 
 The children caught their breath all at once.
 
-Without meaning to, Han Jiwoo took a step forward.
-Seorin's arm shot out at once to stop her.
+Han Jiwoo, the child still in her arms, took a step forward. Seorin's arm shot out at once to stop her.
 
 "No."
 
-It was a short word,
-but there was despair in it.
+It was a short word. Seorin's arm stayed across Han Jiwoo's chest and did not come down. Han Jiwoo did not push it, and without pushing it, her foot, about to take one more step, stopped. The child she was holding threw their arms around her neck.
 
-Up ahead was now a place no one could easily step into.
+"Jiwoo."
 
-In that moment Sion felt
-this fight slowly tipping from a phase of just holding on toward something else.
+Seorin said it once more. This time it was her name.
 
-The last android still didn't understand sacrifice.
-He still didn't know what had been left to him.
+Han Jiwoo looked at Seorin. Seorin was watching the battle, and the arm stayed where it was.
 
-And even so,
-he was already changing.
+Seorin's arm was trembling. Han Jiwoo saw it. Seorin did not look.
 
-His body was learning first,
-his gaze was choosing first,
-his movement was turning different first.
+When Han Jiwoo's foot came back half a step, Seorin's arm came down. The hand that came down gripped her own belt.
 
-It wasn't that the change looked impressive.
-It was so sad, if anything,
-that Sion could barely stand to look.
+The last android faced forward again.
 
-On top of someone's death,
-on top of the faces someone had given,
-on top of the crying children,
-that being was being driven far too fast into whatever came next.
+The arm on the side of the twisted shoulder hung loose. He did not use that arm; he took the next unit with the other arm and his torso. When the loose arm swung with the impact, he twisted his body the other way so that the swinging arm would not fall back toward the children behind him.
 
-And it was less like growth
-than like the way loss pushes a being up from the inside.
+Luhai saw it and started to say something, then closed his mouth. He breathed in with his mouth shut, then picked up a piece of wall panel from the floor. He did not throw it, only held it.
 
-Serakion's legion kept coming in.
-But now no one in the room
-could see the last android as the same being he had been when they first saw him.
+On the old machines' side, no one spoke. Even after the arm that had stopped it came down, the machine that had been stopped stayed where it stood. It neither went forward nor stepped back.
 
-He wasn't finished yet.
-But he was already different from before.
+The Serakion legion kept coming in.
 
-And Sion,
-for the first time, and very clearly, felt an ominous premonition
-that this change would in the end reach somewhere far beyond this battlefield.
+When the next two units entered the mouth of the route, the last android had already set his body. It was not the stance he had used to let the first two slide past, nor the stance that had made the second two crash into each other.
+
+This was the third.
+
+Sern wrote on the record panel. This time it was two lines.
+
+"This is the sixth rank."
+
+Seorin answered.
+
+"Count."
+
+A child spoke between sobs.
+
+"More are coming…"
+
+Han Jiwoo pressed the child's head to her shoulder. She did not turn her own eyes away. Beside her, a Hazran woman wiped another child's face with her sleeve, but however she wiped, it was wet again. The woman did not lower her sleeve.
+
+Sion was watching the people. The man whose sleeve Sion had caught earlier was standing in front of the rear-line gap; he had not gone in, but had turned and was watching the battle. Sion did not go to catch him again.
+
+On the last android's face the short mouth line went dark once.
+Then it came on.
+With that face, he met the next two.
 
 ---
 

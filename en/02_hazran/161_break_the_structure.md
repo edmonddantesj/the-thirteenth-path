@@ -1,288 +1,212 @@
 # Episode 161. Bringing Down the Structure
 
-After the third rescue failed,
-for a long time no one inside the hidden layer was the first to raise their voice.
+After the third rescue failed, for a long time no one inside the hidden level was the first to raise their voice.
 
-Everyone was exhausted,
-everyone was thinking about what came next,
-and everyone knew this failure was more than a simple failure.
+Kael lifted his fist off the floor. There was dust on it, but he didn't wipe it off, and the second recovery hand stood leaning against the wall on its straightened leg.
 
-So the moment Han Jiwoo opened her mouth,
-it sounded, if anything, like something that had burst out late.
+The younger child was asleep beside Aka's knee, still holding Han Jiwoo's hand. Han Jiwoo didn't pull her hand away; she sat there beside the child for a long while.
+
+Then, when she drew her hand out, the child stirred. Aka pushed her sleeve into the child's hand, and the child gripped the sleeve. Han Jiwoo got up and, without leaning on the wall, stood in the middle of the room.
 
 "But."
 
-Her voice wasn't raised.
-Yet no one in that room could take the word lightly.
-
-Han Jiwoo didn't lean on the wall;
-she simply stood there and spoke.
+Her voice wasn't raised, but the first recovery hand lifted its head, and the old machine's optical eyes came to her.
 
 "I understand."
-"Why you can't get everyone out at once,
-why you've only ever brought out a few at a time,
-why if one thing goes even a little wrong, everyone dies together."
 
-It didn't begin as an attack on the recovery hands.
-If anything, it was so precise
-that it hurt more.
+Han Jiwoo said.
 
-She really did understand.
+"Why you can't get everyone out at once, why you've only ever brought out a few at a time, why if one thing goes even a little wrong, everyone dies together."
 
-Serakion closed fast,
-the hidden layer had few hands,
-the old machines couldn't hold out forever,
-and one wrong move would fold humans and machines alike.
+The first didn't look away, and the second looked at its own knee.
 
-She had already seen all of it with her own eyes,
-and lived it in her body.
+"But."
 
-"But,"
-she said again.
+She said it again.
+
 "My heart still can't understand it."
 
-That sentence split the room.
+Luhai raised his head beside the children, and Sern's hand stopped on the record panel.
 
-"Why you've only ever been able to live like this."
-"Why you keep letting them take people like that,
-and why we have to get through to the next time on a few people coming back alive."
-"Why those kids always have to look to the side that stays first."
+"Why it's only ever been possible to live like this. Why you let them keep taking people like that, and why we have to get through to the next time on a few coming back alive. Why those kids always have to look at the side that stays first."
 
-The last sentence sounded almost like self-reproach.
+On the last words her voice dropped. She didn't look toward the children; she looked at the board on the wall, at the four faint dots and the five clear dots, and then at the old machine.
 
-Han Jiwoo wasn't blaming the recovery hands or the old machines right now.
-It was closer to something worse.
+"Why has everyone spent so long living only by holding on inside this structure?"
 
-She knew why the humans crumbled like that,
-she knew why the old machines could only bring out a few at a time,
-and she knew those machines, too, were beings left abandoned, holding on so as not to be switched off.
+No one answered right away.
 
-She understood the humans,
-and she understood the machines.
+While the first opened its mouth and closed it again, the second didn't take its eyes off its knee. The old Hazran man looked at the plate he had stood up, and the man without a younger brother laced his fingers.
 
-But understanding both
-did not make this reality any less terrible.
-If anything, because she couldn't even easily hate anyone,
-it was harder to bear.
+The old machine came away from the pillar and stepped forward, but it didn't come all the way to Han Jiwoo; it stopped before the board, beneath the four faint dots.
 
-"Why has everyone spent so long
-living only by holding on inside this structure?"
+"For a long time, there was nothing left but holding on."
 
-After those words fell,
-no one answered right away.
+Its voice was low, and it did not speed up.
 
-Not because there was no answer,
-but because it was not an answer anyone could give easily.
+"We were thrown away by the order up there. Discarded, cut off, pushed over to the side of what is no longer needed. It was not only the humans."
 
-After a long while,
-one of the old machines spoke, very low.
+When it looked at its own leg, which made a sound with every step, Han Jiwoo looked at that leg too.
 
-"For a long time,
-there was nothing left but holding on."
+"We tried, in our way, not to be switched off, and the humans tried, in theirs, not to be taken. The two could not always manage it at the same speed."
 
-The voice was not defensive.
-Nor was it an excuse.
+Han Jiwoo closed her mouth, and the old machine came no closer.
 
-It was simply the voice of something that had looked at the same fact for far too long.
+From the dark by the wall, another old machine spoke. A machine that had never once come forward. The light of its optical eyes was weak, and it flickered on a different beat from the yellow lamp.
 
-"We were discarded by the order up there."
-"Scrapped,
-cut off,
-pushed aside as no longer needed."
-"It was not only the humans."
+"We felt sorry for the humans. We still do. That is why we have kept at it. But we had our own lives as well. Every time, we also had to calculate first how not to be switched off."
 
-Han Jiwoo looked at the machine.
+When that machine finished speaking and lowered its optical eyes, the light fell on the dust on the floor. Dust had piled up in front of the machine's feet. Feet that had not moved in a long time.
 
-The machine went on.
+Han Jiwoo looked at those feet, then at her own hand, and closed it.
 
-"We tried, in our way, not to be switched off,
-and the humans tried, in theirs, not to be taken."
-"The two were not always possible at the same speed."
+The second spoke from the wall.
 
-It was a cold thing to say,
-but it was also cruelly honest.
+"It is the same for all three of us."
 
-The old machines had not lived like heroes either.
-They too were discarded scrap,
-beings who had barely kept life going on whatever function was left before they went dark.
+"What is?"
 
-Along the way they had saved humans,
-hidden them,
-recovered them,
-held on to memory.
+"I calculate from the leg as well. Before I look at a child, I look at the leg. Whether it can go. If it cannot, I do not look."
 
-But that did not mean they had no lives, no upkeep, of their own.
+Han Jiwoo looked at it, but the second was looking at its knee.
 
-Holding out until the light went out.
-Remaining until memory was cut off completely.
-Keeping even one more connection line alive.
+"Today."
 
-For them, that was both life and purpose.
+"Today I looked. That is why I could not leave the gap."
 
-Another old machine added, very low,
+"And if you had?"
 
-"We felt for the humans."
-"We still do."
-"That is why we did it."
-"But we had our own lives too."
-"Every time, we too had to calculate first how not to be switched off."
+"If I had, neither of us would have come back. Not that child, not me. That is why I look at the leg first. It is not because I want to."
 
-Rather than making Han Jiwoo angrier,
-those words made her sink deeper.
-
-Because they were right too.
-
-There was not only malice here.
-Here was a reality in which beings abandoned together
-each held on so their own light would not go out.
-
-Han Jiwoo understood that.
-And so it hurt more.
-
-If only the humans were pitiable, the direction would at least have been simple.
-If only the machines were cold, she could have held on by hating them.
-
-But here the humans were pitiable,
-and so were the machines.
-Both had been abandoned,
-and both had held on to each other, a little at a time.
-
-So this tragedy ran deeper, not because someone was bad,
-but because of the structure itself that made it impossible to live any other way.
+Han Jiwoo looked at that leg, the straightened leg with the bent pin. While she said nothing more, the first laid a hand on the second's shoulder once and took it away.
 
 Han Jiwoo asked through clenched teeth.
 
-"So you'll keep doing it like this from now on?"
-"A few come back alive,
-you wait again for the next few,
-lose a few more,
-and hold out for the next time again?"
+"Then do you just keep doing this? A few come back alive, you wait again for the next few, lose a few more, and hold out for the next time again?"
 
-This time the first recovery hand had no answer.
+While the first could not answer and Kael looked at the lines on the floor, Ater turned around at the exit. The old machine stood before the board, and the optical eyes of the wall-side machine were lighting the floor.
 
-Kael,
-Ater,
-the old machines—
-none of them could readily say anything in the face of those words.
+Sern closed the record panel.
 
-Because that had been the reality until now,
-and it was also true that everyone was already worn out by it.
+As the silence grew long, the yellow lamp flickered twice.
 
-Just then,
-Luhai spoke in a perfectly ordinary tone.
+Luhai spoke from beside the children. The child holding the screwdriver was asleep against his knee, so he spoke without moving, and without lowering his voice either.
 
 "Then can't we just bring down the structure?"
 
-The room went quiet.
+No one answered. Seorin looked at him, and Aka looked at him. The first looked at him too.
 
-It was so simple
-that it was as if no one understood it at first.
+With the face of someone who didn't know why everyone was looking at him, Luhai said it once more.
 
-With the face of someone who didn't quite know what was strange about what he'd said,
-Luhai, still sitting against the wall, said it again.
+"If we keep pulling a few out of there at a time, somebody always gets left. So can't we just break the thing that makes them stay?"
 
-"If we keep pulling a few out of there at a time,
-somebody always stays behind, right?"
-"So can't we just break the thing that makes them stay?"
+He looked at the child on his knee, and when the child stirred, Luhai settled the child's shoulder.
 
-Before any logic, there was the heart of the matter in those words.
+The second came off the wall and took a step forward, then leaned back against the wall.
 
-What everyone had been counting so far came to four things.
-Where to pull people out, how many to bring,
-how not to die, how to buy the next beat.
-They had gone no further than that.
+Ater stepped from the exit into the room and was the first to speak.
 
-But Luhai was simply asking
-why they kept looking for the answer only inside that structure.
+"Because pulling only people out while facing the order is, in the end, a way of enduring that still accepts the order."
 
-If Serakion divided humans like that,
-read them,
-raised them,
-sent them back,
-and left them able to hold out only by being pulled out a few at a time,
-the question was why they should keep taking that structure as a given.
+His voice was very low.
 
-Ater was the first to react.
+Han Jiwoo looked at him.
 
-More precisely,
-he could not hide how quickly the words clicked into place inside him.
+"Is this about your House?"
 
-"Pulling only people out while facing the order
-is, in the end, a way of enduring that still accepts the order,"
-he said, very low.
+"It is about my House."
 
-Kael looked up too.
+Ater said.
 
-His eyes were already looking not at paths but at the structure.
+"It is about this place as well."
 
-"For it to work,"
-he said, low,
-"we don't cut the upward movement lines;
-we cut the axis that keeps them running."
+Kael lifted his gaze from the lines on the floor to the ceiling, to the wall, to the gap.
 
-Han Jiwoo slowly raised her head too.
+"For it to work."
 
-Her anger had not yet settled,
-she was still heartsick,
-and her heart still could not understand it.
+His voice was low.
 
-But exactly because of that,
-Luhai's words sank in deeper.
+"We don't cut the upward movement lines; we cut the axis that keeps them running."
 
-Until now they had always been the ones rescuing.
-But perhaps
-rescuing alone was no longer enough.
+"Where's the axis?"
 
-Only by shaking the structure that kept making them live that way
-might it finally become possible to say they would save everyone.
+Seorin asked.
 
-One of the old machines was silent for a very long time, then said,
+"Don't know. I only looked at the routes. I didn't look at the axis."
+
+"Then look."
+
+Kael nodded.
+
+Han Jiwoo slowly raised her head and looked at Luhai. Luhai was looking at the child's shoulder with the face of someone who didn't know how far his words had gone.
+
+"Luhai."
+
+"What."
+
+"You're right."
+
+Luhai looked at her, opened his mouth, and closed it.
+
+The optical eyes of the old machine, silent for a long time, went from Han Jiwoo to Luhai, to the child leaning on Luhai's knee, to the wall-side machine, to the board.
 
 "That… is what we have failed to do for a long time."
 
-There was not only defeat in it.
-There was, if anything, a very faint shame,
-mixed with a tremor, as though seeing that possibility again for the first time.
+It said.
 
-"So,"
-the machine went on, very low,
-"perhaps that is why, since you came,
-we keep looking outside again."
+The old machine's hand went to the faint dots on the board, then came down without touching them.
 
-That sentence landed differently in everyone in the room.
+"So."
 
-For the recovery hands,
-as meaning that what they had always done was not wrong, but might not be enough.
+It went on, very low.
 
-For Han Jiwoo,
-as meaning that her anger so far had perhaps not been wasted feeling
-but a signal that the direction truly had to change.
+"Perhaps that is why, since you came, we keep looking outside again."
 
-For Kael,
-as the starting point of a tactic that was no longer a rescue operation but one that brought the structure itself down.
+The optical eyes of the wall-side machine rose from the floor toward the gap. The light was weak, but it reached the closed wall.
 
-For Ater,
-as the thought that dismantling an order was the very question he could put to his own world and to Serakion alike.
+The first looked at that light, and the second looked at it too. Neither of them said anything.
 
-And for Luhai,
-as a sense that, though he still didn't really get why everyone thought so hard about everything,
-something had started moving the right way, anyhow.
+When Han Jiwoo sat down again beside the sleeping child, the child's hand slipped loose from Aka's sleeve. Han Jiwoo took that hand, and Aka lowered her sleeve.
 
-At the end of that day,
-every being inside the hidden layer came to hold a hope, each of a different shape.
+Kael crouched in front of the lines on the floor. Three lines, one notch. Two lines, a short notch. A dot, a line. Then he looked at the old machine.
 
-There was no plan yet.
-No path yet.
-Too much was still lacking.
+"It's done."
 
-But at least,
-when they thought about what came next now,
-the answer that came to mind was no longer only "how many more can we pull out."
+The old machine nodded.
 
-Perhaps for the first time,
-their hearts were beginning to move from rescuing people
-toward ending the very structure that made people live
-no other way.
+Kael wiped out the lines on the floor one by one with his palm, and the dust rose and settled. The floor was empty. He looked at the empty floor and drew nothing.
+
+Seorin looked at her own dot left on the empty floor, a dot only half left. She wiped that one away with her foot too.
+
+"Draw it fresh. Tomorrow."
+
+Sern opened the record panel again and wrote one line, but he showed that line to no one.
+
+Sion looked at his own board. The third dot, still empty, the long notch, the one dot outside it. He held the board against his chest and didn't put it down.
+
+The old Hazran man turned the plate he had stood up and looked. One line. Then he turned to Sion and asked.
+
+"What does it mean, breaking it?"
+
+Sion looked at him.
+
+"I don't know yet. But it's something different from bringing the children out."
+
+"Bringing out more of them?"
+
+"Stopping them from taking anyone."
+
+The old man stood the plate back up, the blank side facing the wall, the one line facing the wall.
+
+Luhai settled the child's shoulder again, but the child didn't wake. He looked at his own hands. Two.
+
+"Did I say something wrong?"
+
+He asked Aka.
+
+Aka shook her head.
+
+Even as the yellow lamp flickered, the optical eyes of the wall-side machine were still looking at the gap. On a different beat from the yellow lamp, they did not go out.
 
 ---
 

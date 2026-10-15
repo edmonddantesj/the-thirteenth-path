@@ -153,7 +153,7 @@ Sion asked.
 
 "Seven is fine. From eight, no."
 
-"You said seven, three times, before."
+"You said to cut it at seven, before."
 
 "That's why I said seven,"
 Han Jiwoo said.

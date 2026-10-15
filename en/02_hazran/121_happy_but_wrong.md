@@ -1,77 +1,56 @@
-# Episode 121. People Who Look Fine
+# Episode 121. Happy, but Wrong
 
 Serakion's first greeting came from the machines.
 
-But what truly sent a chill down their spines
-were the people they saw next.
+The people they saw after that.
 
-After following the guidance inward,
-Sion and the others saw, for the first time,
-the humans who lived inside this world.
+As they followed the line of light deeper into the ring structure, the lead machine walked ten paces ahead, and the other five took the sides and the rear. The spacing did not change. When Sion slowed his pace, the machine behind him slowed too, and when he quickened it, the machine quickened as well.
 
-At first they couldn't explain right away what was strange.
+The silver floor kept no footprints. Dirt fell from the soles of the Hazran people's shoes and lay there for a moment, but the next time anyone looked back, it was gone. Luhai checked it twice.
 
-Because everyone looked so fine.
+The passage widened, and the ceiling rose with it. In that place, where no one could see where the light came from, Sion looked down at his feet.
 
-Their clothes were clean,
-their skin was cared for,
-their expressions were settled.
+There was no shadow.
 
-Not starving faces,
-not injured faces,
-not frightened faces.
+And then there were people.
 
-It was the opposite.
+Everyone looked fine, so at first no one could say right away what was strange.
 
-They looked like people content with their lives,
-proud of their places.
+Their clothes were clean, their skin was cared for, their expressions were settled. Not starving faces, not injured faces, not frightened faces.
 
-And that was exactly why
-it was stranger.
+A Hazran child looked at those people and then down at the hem of the child's own clothes. There was dirt on it, and the child brushed at it by hand, but it did not come off.
 
-Sion glanced at a woman walking past without thinking,
-then found his eyes holding on her for a long time.
+Sion watched a woman walk past.
 
-She wore clothes hung with beautifully ordered metal ornaments,
-and her walking pace,
-the angle at which she rested her gaze,
-even the timing of her smiles were strangely ordered.
+She wore clothes hung with metal ornaments that ran from her neckline to her shoulders. Her walking pace was constant, and so was the angle where she rested her gaze. As she passed in front of Sion's party, she smiled, and the smile took exactly as long as the machine had taken to bow its head and lift it again.
 
-Anyone would have called her elegant.
-But in that elegance Sion couldn't feel any of the unevenness
-a person lets slip according to their mood.
+The woman went on. She never once looked back.
 
-She was like someone living a life she had rehearsed for a long time.
-
-Luhai muttered, low,
+Luhai muttered, low.
 
 "Those people… they seem to like living here."
 
-No one could answer right away.
+No one answered.
 
-Because at least on the surface,
-it really did look that way.
+Someone smoothed their own clothes with a hand, someone smiled and straightened the ornament of the person beside them, someone stood with another, talking. Their voices were low. Their laughter was low too. No sound rose.
 
-Someone touched their own attire with pride,
-someone smiled and straightened the ornaments of the person beside them,
-someone in Serakion's refined manner of speech
-was talking contentedly about the space and role assigned to them today.
-
-Watching the scene,
-Han Jiwoo felt a nausea she could hardly explain rise slowly in her.
-
-They weren't broken.
-They weren't crying.
-Their eyes weren't asking for help.
-
-But strangely,
-that was harder to bear.
-
-She said, very low,
+Watching it, Han Jiwoo slowed, and when the machine behind her slowed with her, she walked on.
 
 "Why are they so…"
 
-The words didn't carry through to the end.
+The words didn't carry through to the end. The hands she looked down at were oil-stained, while the hands of the people passing were clean down to the undersides of their nails.
+
+"They're not holding anything."
+
+Han Jiwoo said.
+
+Luhai looked at the hands of the people going by. Every one was empty, and not even a hand was in a pocket. Hands hanging at their sides, hands straightening a collar, hands touching the ornament of the person beside them. No hand carried anything.
+
+Luhai looked at his flashlight, then hung it at his waist.
+
+Kael looked down at his own hands, and he wasn't holding anything either. He put them in his pockets, took them out again and let them hang at his sides, and the posture was the same as the people passing. He put his hands back in his pockets.
+
+Sion looked at his own hand resting over his pocket and left it there.
 
 Aka spoke instead, low.
 
@@ -81,90 +60,107 @@ Sion looked at her.
 
 Still watching the humans passing by, Aka went on.
 
-"To themselves."
-"No… to here."
+"To themselves. No… to here."
 
-That short correction
-was, if anything, more exact.
+Kael looked at Aka, then at the people, and started to say something and didn't.
 
-Those people looked as if they fit their lives well.
-But as for that "self,"
-whether it was truly a self they had made
-or a mold this world had shaped over a long time,
-for a moment it was hard to tell.
+Seorin frowned and spoke low.
 
-Seorin's face twisted outright.
+"I hate that."
 
-"I hate that,"
-she said, low.
+She added one thing.
+
 "Those are happy faces, and not one of them looks at ease."
 
-It was accurate to the point of cruelty.
+Luhai turned to look at Seorin.
 
-These people did not look unhappy.
-If anything, they looked satisfied.
+"What counts as at ease, then?"
 
-But that satisfaction
-was nothing like the relief of the survivors they had seen in Hazran.
+Seorin didn't answer; she kept walking, eyes ahead.
 
-They were less faces smiling because they had survived
-than faces showing off a life well tamed.
+"Something like our ship."
 
-Then
-one of the Serakion machines acting as guide indicated the humans passing by, in a soft voice.
+A good while later, she spoke.
+
+"Our ship's uncomfortable."
+
+Luhai answered.
+
+"Exactly."
+
+Seorin said, and Luhai shrugged once.
+
+One of a pair walking past stopped, looked toward the party, and smiled. The other gave that arm a light tug and the two walked on again, but the one who had stopped looked back once more, still smiling.
+
+Just then, one of the Serakion machines acting as guides raised an arm toward the passing humans.
 
 "The resident entities of this sector are maintaining a stable placement state."
 
 Luhai slowly turned to look at the machine.
 
-A stable placement state.
+"Entities."
 
-It was not a thing to say about people.
-But in that world
-the expression seemed to sound not the least bit strange.
+Luhai said.
 
-The machine went on.
+"They're people."
+
+The machine did not turn its face toward Luhai.
 
 "The majority show high satisfaction with their currently assigned roles and environments."
 
-Kael's expression hardened.
+Kael's expression hardened. He looked at the old Hazran man walking beside him, and the man was walking with his eyes on the floor.
 
-Satisfaction.
-Environment.
-Assigned role.
+"Are you all right?"
 
-The words were soft,
-and that made them feel colder.
+Kael asked.
 
-Han Jiwoo's eyes met, for a moment, those of a young man passing by.
+The man nodded without raising his head.
 
-The man smiled brightly first.
-Then, with strange ease,
-he proudly stroked with his fingertips the beautiful metal tag hung around his neck.
+"Don't look at those people. Just keep your eyes on the floor and walk."
 
-"You've just arrived, haven't you,"
-he said in Serakion's refined manner of speech.
+The man was already doing that. Kael walked ten paces beside him with his own eyes on the floor, then raised his head again, but the man did not.
+
+Sern spoke low to Ater.
+
+"The word was 'majority.'"
+
+Ater nodded.
+
+"Which means there is a remainder."
+
+After that, neither said more.
+
+Han Jiwoo met the eyes of a young man going by.
+
+The man smiled first and ran a fingertip over the metal tag hanging at his throat, and the tag caught the light and flashed once.
+
+"You've just arrived, haven't you."
+
+He spoke.
+
 "You'll get used to it soon."
 
-There was no malice in the smile.
-If anything, he looked sincerely kind.
+Han Jiwoo didn't answer, and the man, not waiting for one, went past with the smile still on.
 
-But that sincerity
-felt even more horrible to Han Jiwoo.
+When Han Jiwoo looked at the man's back, there was no tag on that side, only at the front of his throat. Only where it could be seen.
 
-Get used to it.
+"That thing round his neck."
 
-It sounded like comfort,
-and strangely it sounded like a warning too.
+Luhai asked Han Jiwoo.
 
-Even after the man had passed, Sion couldn't take his eyes away for a while.
+"What is it?"
 
-Did that man know what he was here?
-Or didn't he?
+"Don't know. But they all wear it in the same spot."
 
-The question didn't make it out of his mouth.
-Because either way,
-he didn't want to hear the answer right away.
+Her oil-stained finger touched her own throat.
+
+Luhai looked at the throats of the people passing, and it was all the same spot. Between the collarbones, two finger-joints down.
+
+Sion kept looking that way for a while after the man had gone. The man turned a corner and disappeared, and his stride did not break as he turned.
+
+In the silver wall Aka had been looking at, a woman was reflected. The woman stopped, looked at her own face in the wall, pressed the corners of her mouth up once with a finger, and walked on with that face.
+
+Aka kept looking at the wall. Her own face was reflected there, but she did not touch the corners of her mouth.
 
 Ater swept his eyes over the surrounding structures and the paths of entry and exit, then spoke briefly.
 
@@ -174,55 +170,63 @@ Sern answered, low.
 
 "It has been made quiet."
 
-The exchange was short,
-yet through it the nature of this world grew a little clearer for a moment.
+Ater looked at Sern.
 
-This place was not peaceful.
-It was closer to being kept looking peaceful.
+"Where does the sound go?"
 
-Aka watched the humans passing for a long time,
-then spoke, very low.
+"The walls take it."
 
-"Those people,
-they look like they love their lives."
+Sern pointed at the wall.
+
+"Our footsteps do not come back either."
+
+When Sion listened to his own footsteps, there was the sound of them striking the floor, but nothing came back. On Hazran, sound came back from everywhere.
+
+Aka watched the humans passing for a long time, then spoke, very low.
+
+"Those people, they look like they love their lives."
 
 Seorin asked at once.
 
 "You're saying they don't?"
 
-Aka didn't answer for a long while.
-
-Then at last she said,
+Aka didn't answer for a long while. She watched one passing woman all the way, until the woman turned the corner.
 
 "I don't know."
+
+Then, at last, she said it.
+
 "But… it's like someone picked out the way they love for them, first."
 
-When those words fell,
-a few of those who had come from Hazran had already turned their faces away.
+Seorin looked at Aka, but Aka was looking at the corner.
 
-Some couldn't even envy those humans,
-some couldn't call them pitiful either,
-and some, without knowing why, couldn't stand in that spot for long.
+Some of the people from Hazran turned their faces away, and the old man walked with his eyes on the floor. The child looked at the clothes of the people passing, then at the clothes the child was wearing, and gripped the grown-up's hand tighter.
 
-The name of that feeling was not pity;
-it was closer to estrangement.
+"Why is everyone smiling?"
 
-And that estrangement
-was turning, little by little, into nausea.
+The child asked.
 
-From the first moment of meeting, Serakion was courteous,
-intricate,
-beautiful.
+When the grown-up didn't answer, the child didn't ask again. One of the people passing smiled at the child, but the child didn't smile back and ducked behind the grown-up's legs.
 
-But perhaps the reason this world was truly frightening
-was that inside that beauty
-it could make someone love even their own subjugation as the dignity of a life.
+Seeing that, Luhai moved in close beside the child.
 
-Sion steadied his breath once without a word,
-and looked again at the humans smiling inside that world.
+"You don't have to smile. I'm not smiling either."
 
-And for the first time
-he thought that what had to be saved here might not be only people's bodies.
+The child looked up at Luhai. Only after seeing that Luhai really wasn't smiling did the child come halfway out from behind the legs.
+
+Han Jiwoo had been watching the two of them, and when she touched the corners of her own mouth, they were turned down.
+
+As she walked, Han Jiwoo wiped her hands on her trousers. The oil didn't come off, and she put her hands in her pockets.
+
+When the lead machine stopped at the corner and turned around, the light on its face flowed once.
+
+"This is the holding area."
+
+Beyond the open door it was bright, and the inner walls were the same silver as the outer ones.
+
+Before going in, Sion looked back. In the passage they had come through, the people were all walking at the same speed, and no one looked this way.
+
+He went in. The door made no sound as it closed.
 
 ---
 

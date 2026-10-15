@@ -1,229 +1,236 @@
 # Episode 154. Three Returned
 
-Even after they were fully back inside the hidden layer with the three children,
-no one could feel relief right away.
+Even after they were fully back inside the hidden level with the three children, no one sat down right away.
 
-Making it back
-didn't mean they were safe.
+The three stood under the yellow lamp, and the five stood around them. The Hazran people watched from the mouth of the passage. The Hazran children watched from between the adults' legs.
 
-They hadn't come out of Serakion;
-it was closer to having folded themselves into a deeper crevice still inside it.
+The first to sink down was the small child who had been half a beat fast.
 
-And above all,
-they had to find out first what state the three they had brought were in.
+The child's knees folded while their breath still hadn't settled, and a hand went to the floor. Not a silver floor, but a floor with dust on it. Looking at that dust, at what had stuck to their palm, the child gulped for air.
 
-The first to sink down
-was the small child who had been half a beat fast.
+The first recovery hand lowered itself three steps in front of the child.
 
-The child whose body had kept lunging ahead, ready to bolt,
-now, fully out of the order's line,
-was gasping as if they couldn't keep up with their own speed.
+The child neither backed away nor came closer, eyes wavering. The hands couldn't keep still; they closed on the dust and opened.
 
-The first recovery hand crouched first.
+Han Jiwoo approached slowly, and since she still hadn't let go of the first child's hand, the two went together.
 
-The child didn't shrink back as if to flee.
-But the child didn't come forward to be held right away either.
+"It's all right."
 
-The eyes kept darting,
-the hands couldn't stay still,
-and the child seemed not yet to know where their body was supposed to stop.
+Her voice was low.
 
-Han Jiwoo came closer, very slowly.
-
-"It's all right,"
-she said, low.
 "You don't have to walk fast anymore."
 
-The words hung in the air longer than expected.
+Hearing that they didn't have to walk fast, the child looked up at her. Then a foot that wanted to go pushed against the floor once and stopped, and the child looked down at that foot.
 
-Inside Serakion
-that child must always have had to keep to some beat.
-Fast,
-or slow,
-in the end they must always have had to be fitted to something.
+"Slowly."
 
-But now, for the first time,
-they were being told they didn't have to.
+The child didn't know what slowly was, so the foot pushed again and stopped. The third time it didn't push, and the breaths grew a little longer.
 
-Which was exactly why
-calming down came harder.
+The second child was standing.
 
-The second strange one
-was the child who didn't look up.
+Whoever came near, whenever the yellow lamp flickered, whenever the old machines passed, the child did not look up, only down and to the side. When Han Jiwoo stood in front of the child, the child looked not at her face but at her feet.
 
-Even after coming back, that child didn't look up once.
+Ater watched for a long time, his back against the wall.
 
-Not when someone came near,
-not when the light changed,
-not when the strange machines inside the hidden layer came into view.
+"This will take time."
 
-The child kept their eyes only down, or to the side.
-
-Ater watched for a long while,
-and seemed to realize his guess had been only half right.
-
-That child did have the silence of someone holding out.
-But that silence was not simply will;
-it also held the habit of a body that had lived too long making sure not to look up.
-
-"This will take time,"
-he said, low.
+He spoke low.
 
 The second recovery hand answered shortly.
 
 "It does for all of them."
 
-Those few words
-showed how many first rescues, first failures, and first arrivals this hidden layer had already been through.
+"How long does it take?"
 
-The third child was the quietest.
+"It depends on the child. For some, it never ends."
 
-The child whose fingertips had not yet let go of their own stop
-still didn't let go of Han Jiwoo's hand after they were back.
+Ater looked at the child who was looking down, then looked at the floor himself, and a beat later raised his head.
 
-More exactly,
-the child seemed to have forgotten how to let go completely.
+Seorin crouched in front of the child. She lowered her face below the child's eye level, close to the floor, to where the child was looking. When the child's eyes met Seorin's from below, the child looked away. Seorin didn't get up.
 
-Not gripping hard,
-not clinging.
-Just, very small and firm,
-keeping hold of the tip of one of Han Jiwoo's fingers.
+"Take your time."
 
-Han Jiwoo didn't try to loosen it.
+Seorin said.
 
-Instead she knelt down low
-and only felt with what strength the child's hand was holding on to hers.
+"I look at the floor too. Before a fight."
 
-That small strength
-hurt more than the whole first rescue.
+The child didn't answer, but Seorin stayed sitting there in the dust for a long time.
 
-The child had followed of their own will.
-But even after following,
-they hadn't fully arrived.
+The first child was the quietest.
 
-A rescue doesn't end with getting the body out.
-After the body arrives,
-you have to carry the fact that the person is still trembling inside Serakion's beat as well.
+The child held one of Han Jiwoo's fingers and still hadn't let go since they got back. Not gripping hard, not clinging, but small and firm.
 
-All three were showing that, each in a very different way.
+Han Jiwoo didn't try to work it loose. She lowered herself to sit on her knees and felt the small, steady pressure the child's hand gave her finger. With her other hand she pressed the tool pouch that was two short. Then she brought that hand to the child's back without touching it, and left it there.
 
-Han Jiwoo quietly set her teeth.
+Luhai brought three bowls of water and set them on the floor, one in front of each child. When the fast child looked at the bowl but didn't pick it up, Luhai pushed the bowl a little closer. Only then did the child pick it up with both hands, and spilled half while drinking. Luhai didn't wipe up the spill; he sat down beside the child.
 
-Ater, by the wall, looked from one of the three children to the next.
-Kael was already going back over, in his head, how the way back had reacted as it closed.
+The child who looks down only looked at the bowl and didn't touch it. When Luhai pushed the bowl right up to the child's feet, the child drew their feet back first and then picked up the bowl.
 
-And the one who broke that silence first
-was the first recovery hand.
+A woman with a tired face came with a cloth and looked at the three children's necks. None of the three had a mark, but there were imprints. She touched her own neck, took her hand away, then set the cloth down and left.
+
+The woman who came with two children picked up the cloth and wiped the neck of the child who looks down. The child didn't flinch away, didn't move at all. The woman wiped over the imprint twice, but it didn't come off. So she folded the cloth and put it into the child's hand, and the child held it.
+
+A Hazran child came out from between an adult's legs, stood in front of the fast child, and held out a hand gripping a screwdriver. The fast child looked at the hand but didn't take it, and still the Hazran child didn't draw the hand back for a long time. Then the fast child took it and turned it from the wrist, and the Hazran child shook their head.
+
+"From the arm."
+
+The fast child turned it from the arm. Luhai saw it, and Han Jiwoo saw it too.
+
+When the Hazran child took the screwdriver back and put it in their own pocket, the fast child's hand was left empty. When those fingers closed and opened, the Hazran child took it out again and held it out.
+
+"Keep it."
+
+The fast child took it. Right away, this time.
+
+The first to break the silence was the first recovery hand.
 
 "From here it gets harder."
 
 No one could argue.
 
-The first rescue had worked, true.
-But that was exactly why
-Serakion was likely not to keep moving to the same beat as before.
-
-Just because the alarm hadn't sounded loudly
-didn't mean nothing would change.
-
-Kael said, low,
+Kael spoke low.
 
 "It'll change the folding order."
 
+When he rolled the shoulder that had braced the ceiling, it made a sound.
+
+"The middle might not come first. Next time."
+
 The second recovery hand nodded.
 
-"It will probably mix the people more, too."
-"It may stop keeping them in the same line,
-at the same spacing,
-at the same speed."
+"It will probably mix in more people as well. It may not keep them in the same column, at the same spacing, at the same speed."
 
-What that meant
-was that because the first crack had worked,
-a second done the same way would be harder.
+Ater's voice stayed low.
 
-Serakion had always been a world that leaned toward learning.
+"A beat it has lost once, it will never give up the same way again."
 
-Ater said, low,
+"It will not."
 
-"A beat it has lost once,
-it will never give up the same way again."
+The first answered.
 
-It was bitter, but exact.
+"We went out three times, and all three times were different."
 
-Yet even then,
-Han Jiwoo was still holding the hand of one of the three.
+Sern looked at the record panel.
 
-She said, very low,
+"The signal is rising again."
+
+Sern said.
+
+"It dropped earlier. And now this."
+
+"By how much?"
+
+Seorin asked.
+
+"More than at the start."
+
+Seorin looked toward the dark exit. Ater, who should have been there, was beside Sern, and Seorin walked over and stood there.
+
+"The exit?"
+
+"It was left empty. Briefly."
+
+Ater said.
+
+"Don't leave it empty. Not even briefly."
+
+"Yes."
+
+As Ater went toward the dark exit, Seorin stayed beside Sern and looked at the record panel.
+
+One child was still holding Han Jiwoo's finger.
+
+Han Jiwoo spoke very low.
 
 "We still did it."
 
-It wasn't a declaration of victory.
-It was closer to saying they had to do it again.
+She didn't say it to anyone in particular.
 
-"The thing everyone said couldn't be done,
-we did it once,"
-she said again.
+"The thing everyone said couldn't be done, we did it once."
+
+She spoke again.
+
 "So a next time isn't impossible."
 
-At that, the first recovery hand was silent for a long time.
+After a long silence, the first recovery hand answered very low.
 
-Then it answered, very low.
+"It is not impossible. But it will cost more."
 
-"It is not impossible."
-"Only,
-it will cost more."
+"How much?"
 
-That sentence sounded like the plain truth.
+"We do not know. Always more than the last time."
 
-The next rescue would close faster,
-would be decided by finer margins,
-and would ask them to bear more.
+Han Jiwoo didn't ask anything more.
 
-And above all,
-now the children would change too.
+Kael looked at the three lines and the one notch on the floor, the ones he had drawn when he said they needed three. He laid his palm on them but didn't wipe them out.
 
-Some would have seen the three slip away just now,
-some would have felt only the confusion,
-some would grow more anxious,
-and some would start looking for the outside even sooner.
+"Not yet?"
 
-The first crack doesn't stay only on the outside.
-It stays on the inside too.
+Luhai asked.
 
-That could be hope,
-or a faster collapse.
+"When it's over. It isn't over yet."
 
-Just then
-the small child who had been half a beat fast
-began, for the first time, to breathe a little less hard.
+The old machine looked at that hand, then pushed off the pillar, and as it took a step out, it made a sound. It stood in front of the three children and lowered its knees. After a long time, it came level with the three children's eyes.
 
-The child who didn't look up still didn't look up,
-but for a brief moment let their gaze move to the side.
+Its optical eyes rested one beat each on the fast child, the child who looks down, and the child holding the finger.
 
-And the child holding Han Jiwoo's hand
-shifted a little closer, without a word.
+"Three."
 
-They were small changes.
-So small
-that it was still too early to call them recovery.
+The old machine said.
 
-But one thing at least was clear.
+"These are not counted yet."
 
-The three they had brought back had not merely proven the rescue worked.
+"Why not?"
 
-How much time was still locked inside Serakion,
-and, to pull that time back out,
-how much longer and more painfully they would have to keep reaching—
-the three were showing that far more clearly.
+Luhai asked.
 
-That night,
-for a while, a very faint relief and a larger tension stayed together inside the hidden layer.
+"Because those who came back are not counted. They are here."
 
-The first three had come back.
+It stood up. Standing took a long time too. It went to the board on the wall and looked at the four faded dots, but made no mark.
 
-And exactly because of that,
-the number not yet back
-stood out even more sharply.
+The old Hazran man stood beside it, holding his own plate. Sixteen lines. He looked at the back of the plate, the blank side, but didn't scratch a line.
+
+The fast child, still gripping the screwdriver, began to breathe a little less hard. The child who looks down moved their eyes sideways for just a moment, toward Han Jiwoo's hand. The child holding the finger silently shifted a little closer, and their shoulder touched Han Jiwoo's knee. Han Jiwoo didn't move.
+
+Sion looked at the board. Three dots marked as having come, and one empty square. He looked at that empty square for a long time, but didn't draw a line.
+
+Ater asked Sern.
+
+"How much has it risen?"
+
+"Double."
+
+"Where?"
+
+"Above. And—"
+
+Sern turned the record panel around.
+
+"Below."
+
+Ater looked at the record panel. Below, beneath the hidden level. He looked at the floor.
+
+"What is below?"
+
+"I do not know."
+
+Sern answered.
+
+"There is only the signal. It was not there before."
+
+Ater did not take his eyes off the floor.
+
+When the yellow lamp flickered, the fast child looked up at the flickering lamp, then closed and opened their eyes in time with it. Han Jiwoo saw it.
+
+"You don't have to keep time with it."
+
+The child didn't understand. When the lamp flickered, the child blinked. Han Jiwoo covered the child's eyes with her hand for a moment, then took it away.
+The lamp flickered.
+The child didn't blink.
+Once.
+After that, the child blinked.
+
+Han Jiwoo didn't bring her hand back. Once was enough. For today.
 
 ---
 

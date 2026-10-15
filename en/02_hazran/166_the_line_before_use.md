@@ -1,268 +1,250 @@
 # Episode 166. Before Counting Them as Strength
 
-The day after they took the androids in,
-the air deep in the old layer had grown quieter than the day before.
+The day after they took the androids in, the hidden level was quieter than the day before.
 
-But that quiet was a long way from calm.
+No one walked past the front of the sector. Those who had to pass went the long way around, along the wall. A Hazran child passing in front of it holding an adult's hand gripped tighter, and the adult switched the child to the inside; only once their own body was on the sector side did they go past.
 
-No one rushed to go near them,
-and no one could bring themselves to say they should be thrown out entirely, either.
+An old machine passing the sector entrance stopped. One beat. It went on, came back, and stopped again, but it did not go in.
 
-It was as though everyone wore the face of someone
-who hadn't yet decided even what to call those things.
+Sion watched its steps and counted the stops. Three.
 
-The people from Hazran were more open about it.
+"How many times is that?"
 
-Around the sector where the androids were kept
-they took a wide detour altogether,
-and every time the children passed near it
-they gripped the adults' hands harder.
+Sion asked.
 
-Watching that, Sion felt again
-how fear always lodges in the body before logic does.
+The old machine stood still and answered.
 
-It wasn't the kind of reaction that would vanish just because someone added an explanation.
+"This is the third."
 
-Even the old machines inside
-paused for the briefest moment whenever they looked that way.
+"Are you going in?"
 
-It was hard to call it hostility.
-But it was even less a welcome.
+"I do not know. My feet stop there."
 
-That reaction
-looked closer to meeting again something so long gone by
-that even what to call it had blurred.
+Han Jiwoo had said nothing since morning. She sat ten steps from the sector with her back against the wall, watching the androids. In the evenly spaced column, the head at the very end had stayed half a knuckle low all night.
 
-Han Jiwoo had said little since morning.
+The little child came, sat down beside her, and took Han Jiwoo's hand. The child looked at the sector, back at Han Jiwoo, and back at the sector.
 
-She didn't think what she'd thrown out the day before had been too harsh.
-If anything, she felt she hadn't said enough yet.
-
-The problem was that there was no right answer.
-
-Whether they were really empty,
-or whether we just wanted to believe they were,
-for now no one could say for sure.
-
-And yet if words like
-"usable," "not usable," "a tool," "not a tool"
-started going back and forth this early,
-she felt too much would go wrong from that moment on.
-
-When one of the outside hands came into that sector again,
-Luhai was the first to ask, sharply,
+One of the outside hands, the one that had stood behind yesterday, came into the sector. Luhai, who was beside the children, asked first, sharply.
 
 "What are you up to this time?"
 
-The outside hand paused a moment.
-Then it said, very low,
+The outside hand stopped and turned its optical eyes on Luhai.
 
-"We cannot just leave them standing."
-"That side is already getting faster."
+"Leaving them standing is not enough. That side is already getting faster."
 
-"That's the most dangerous thing you can say,"
-Han Jiwoo said, low.
-"You say you're checking,
-and you end up using them."
+"That's the most dangerous thing you can say."
 
-The outside hand followed right on.
+Han Jiwoo spoke low, without getting up.
 
-"I am not saying we should not use them."
-"But if that side pushes them at us first,
-just standing and watching will be too late."
+"You say you're checking, and you end up using them."
 
-Han Jiwoo couldn't answer right away.
+The outside hand went straight on.
 
-Not because she had no answer,
-but because if she answered too easily one way
-she felt she would tumble straight down through that gap.
+"I am not saying we should leave them unused. But if that side pushes in first, just standing and watching will be too late."
 
-Then Sion, beside her, said very low,
+Han Jiwoo didn't answer right away; she looked at the end of the androids' column.
 
-"Right now
-we haven't even settled what we saw."
+Sion spoke very low beside her.
 
-It wasn't a word that took anyone's side.
-But that was why it made everyone stop for a moment.
+"Right now we haven't even settled what we saw."
 
-He was right.
+When the outside hand's optical eyes came to Sion, Luhai and Han Jiwoo fell silent.
 
-The day before they had taken the androids in,
-had been afraid,
-had been uneasy,
-had been angry.
+"What did you see?"
 
-But what they had actually seen after that,
-no one had properly sorted out yet.
+The outside hand asked.
 
-Ater stood at a distance
-watching the intervals at which the androids stood.
+"The head."
 
-Sern was as quiet as the day before,
-and one of the old machines lingered near the entrance to that sector
-but in the end did not go in.
+Sion said.
 
-All those movements
-looked like hesitation that came before any judgment.
+"The one at the end. Half a knuckle."
 
-Strangely, Sion felt that mattered more.
+The outside hand looked at the head at the very end for a long time.
 
-The fact that no one was sure yet.
-That might be the last safeguard left, right now.
+"That's an alignment error."
 
-Just then,
-one of the androids moved its head, very faintly.
+"Could be. Or not."
 
-No command had come before it.
-It was a moment when no one had gone near.
+The outside hand said nothing more.
 
-Luhai's head came up at once.
+Ater stood at the wall on the far side of the sector and took the androids' spacing with his eyes rather than his steps. Sern, beside him, didn't open his record panel either; he only watched. The old machine went past the entrance for the fourth time. It stopped, then went on.
+
+The second recovery hand stood on the gap side on its straightened leg, a hand braced on the wall. It was watching the gap rather than the sector when the first recovery hand came to its side.
+
+"Not looking?"
+
+"I looked."
+
+The second said.
+
+"When I look, the leg wants to go. So I don't look."
+
+"Go where?"
+
+Han Jiwoo asked from ten steps away, without turning around.
+
+"I do not know. I only know it wants to go. The leg with the bent pin."
+
+Han Jiwoo touched the screwdriver in her tool pouch but didn't take it out.
+
+Just then, one of the androids moved its head.
+
+Not the one at the end but the one in the middle. Very slightly, toward Han Jiwoo. There had been no command, and no one had gone near. The outside hand had its back turned.
+
+Luhai lifted his head and asked.
 
 "You see that?"
 
-The outside hand said immediately,
+The outside hand turned and looked at the middle one, but its head was facing forward again.
 
 "Reflex movement."
 
-But those words,
-the moment you heard them, felt all too easy.
+The outside hand said.
 
-Han Jiwoo looked that way and said,
+Han Jiwoo looked that way as she spoke.
 
 "You keep putting names on things too fast."
 
-The outside hand asked, short,
+The outside hand's question was short.
 
 "Then what do you make of it?"
 
-Han Jiwoo was silent a moment.
-
-Then she said, very carefully,
+During Han Jiwoo's brief silence, the little child's hand moved inside hers, and she looked at that hand.
 
 "We should say we don't know."
 
-After that one line,
-strangely, no one could argue back right away.
+No one argued. The outside hand's optical eyes went still once, then looked from the android in the middle to Han Jiwoo in turn. It said nothing.
 
-Saying you don't know was slow.
-It was frustrating.
-But here, right now,
-it also sounded like the most responsible thing to say.
+The old machine came to the sector entrance again. This time it did not stop; it went in.
 
-Just then, one of the old machines
-took a step inside for the first time.
+As the first held its breath, the second turned its head from the gap toward the sector, and the Hazran people pressed themselves to the wall.
 
-Everyone held their breath, on instinct.
+The old machine did not go all the way up to the androids; it stopped in the middle of the sector, five steps away. It stood a moment on one foot, then slowly raised its hand—not to shoulder height, not to waist height, but in between. The palm faced neither up nor down, but sideways. It held its hand there.
 
-The machine didn't go all the way up to the androids.
-It stopped about halfway.
-Then, very slowly, it raised one hand.
+There was no sound.
 
-Not an attack,
-not an instruction,
-not a signal, but an uncertain height.
+The androids stood as they were. On the one at the end, the smooth surface of the face moved—less moved than trembled, and there was no light. Once, the surface went toward the old machine, then back.
 
-That posture, strangely, stayed with them longer.
+As Sern raised his eyes, Ater's gaze stopped there and did not move.
 
-The androids stood as they were.
-But the gaze axis of the one at the very end
-wavered, very faintly.
-
-For the first time, Sern raised his eyes.
-For that moment, Ater too held his gaze fixed.
-
-Luhai muttered, low,
+Luhai muttered under his breath.
 
 "Now what's that?"
 
-No one could explain it.
+No one could answer.
 
-The fact that it couldn't be explained
-only grew sharper.
+The old machine slowly lowered its hand, turned, and came out. Even after it had gone to its pillar and put its back to it, its optical eyes stayed on the sector.
 
-One outside hand's optical eye flickered, very briefly.
+"What was that?"
 
-It looked less like a reaction to seeing a threat
-than like the moment the simple structure it had taken for granted was shaken.
+Sion asked, keeping his voice down.
 
-Only on seeing that
-did Han Jiwoo let out a slightly longer breath.
+The old machine didn't answer right away.
 
-Then she said,
+"I do not know. My hand went up first."
 
-"That's what I mean."
-"You can't just use them carelessly."
+The outside hand's optical eyes wavered briefly. They looked at the end of the androids' column, then at its own hand—the hand that gave the commands. It lowered that hand.
 
-This time even Seorin didn't take it up right away.
+Han Jiwoo let out a breath, just a little longer than the last.
 
-Instead she swept her eyes over the androids,
-the old machine,
-the people from Hazran,
-the outside hands,
-and Sion's party, one after another.
+"That's what I'm saying. You can't just use them."
 
-She wore the face of someone who knew, too,
-that if they settled even one thing hastily here,
-that decision would become the next standard.
+Seorin didn't take it up right away. She looked at the androids, at the old machine, at the Hazran people still pressed to the wall. She looked at the outside hand that had lowered its hand, at Sion, at Han Jiwoo, at the little child, at Aka, at Luhai. All the way around.
 
-Only after a long while did Seorin speak.
+Only after a long while did she speak.
 
 "Good."
 
-Everyone looked her way.
+Everyone turned to look at her.
 
-"We don't touch it any more today."
-"For now we're not keeping them,
-and we're not casting them out."
-"Don't rush to name them,
-and don't rush to decide what they're for."
+"We don't touch them any more today. Right now we're not keeping them, and we're not throwing them out. Don't rush to name them, and don't rush to decide what they're for."
 
-Luhai asked, as if fed up,
+Luhai asked.
 
 "So we just leave things like this?"
 
-Seorin shook her head.
+Seorin shook her head as she spoke.
 
-"No."
-"We're not leaving it like this,
-we're holding out for now by not calling them the wrong thing."
+"No. We're not leaving them like this; we're holding out for now by not calling them the wrong thing."
 
-Strangely, that shifted the air in the room a little.
+"What does it matter what we call them?"
 
-Not because they had an answer,
-but because at least it was settled what they must not yet call an answer.
+"What did Serakion call the kids?"
 
-Just then a hand who had rushed in from outside caught its breath and said,
+Seorin said.
 
-"Movement up top's gotten faster."
-"The guide-line intervals changed,
-and the beat they block on is different too."
+Sern answered instead of Luhai.
 
-Serakion did not wait.
+"Position numbers."
 
-That side was already moving faster,
-and this side couldn't stay standing still like this for long.
+Luhai closed his mouth.
 
-But for that very reason,
-Sion felt this slow hesitation mattered all the more right now.
+In front of the plate was the square Seorin had left empty yesterday, with no stone in it. She drew nothing there; she set one stone in the square, not lying down but on end. When the stone fell over, she stood it up again.
 
-Because there would surely come a moment when, in the name of having to be faster,
-they threw away first the very thing they must never throw away.
+It stayed up.
 
-Seorin said, short,
+"What's that?"
+
+"Something not decided yet."
+
+Seorin said.
+
+"If it falls, you stand it up again."
+
+The little child came to the side of the plate, looked at the standing stone, and reached for it, and Seorin didn't stop the child. When the child touched the stone, it fell, and while the child looked at Han Jiwoo, Seorin stood the stone up again.
+
+"It's fine. I stood it up so it could fall."
+
+The child didn't touch the stone again.
+
+Just then quick footsteps came from the gray route, with the sound of the old machines' feet. What came in was an outside hand that was not usually in the hidden level, come in from outside. It stopped and spoke.
+
+"Movement up top's gotten faster. The guide-line intervals changed, and the beat they block on is different too."
+
+Kael lifted his head and looked at it.
+
+"By how much?"
+
+"Half the gap between batches. The pauses are shorter. The walls close faster."
+
+Kael went to the plate and, beside the three corners of the triangle, drew one more short line with the stone.
+
+"The overlap must've sped up too."
+
+"Didn't look."
+
+"We have to."
+
+The second spoke from the gap side.
+
+"Tomorrow night."
+
+Looking at it, the first spoke.
+
+"Not you."
+
+"I know."
+
+The second said.
+
+"From the gap."
+
+When Seorin looked, the stone in the square was still standing. She looked at the android sector, at the mouth of the gray route, at the dark passage leading up.
 
 "Good. Then let's hurry it up."
 
-Luhai asked at once,
+Luhai asked at once.
 
 "Hurry what?"
 
-Seorin looked once at the sector where the androids were,
-then at the dark passage leading up toward Serakion's upper level.
+"The plan. Before that side does. Starting with how far we refuse to become like them."
 
-"The plan."
-"Before that side does.
-Starting with how far we refuse to become like them."
+In the sector Han Jiwoo was watching, the middle android's head faced forward, and the one at the end was still half a knuckle low. She didn't get up; she stayed right where she was, ten steps away, still holding the little child's hand.
+
+The yellow lamp flickered, but inside the sector nothing flickered. The standing stone stayed standing.
+
+The old machine's optical eyes did not come down from the sector.
 
 ---
 

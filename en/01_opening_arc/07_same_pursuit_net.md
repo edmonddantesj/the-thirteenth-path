@@ -205,7 +205,7 @@ Then he came down one more rung and added.
 
 No one answered.
 
-Ater knew this silence, too, was the second of the day.
+Ater knew this silence, too, was the second of the day. The first had been at R-12, when Sern asked about that name. Both of them had shut their mouths then, too. That name was a Myojok name.
 
 "In the Bureau's manuals, nearly the only name the Myojok left behind is that one. Written down as a traitor."
 

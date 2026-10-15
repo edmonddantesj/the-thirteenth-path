@@ -1,230 +1,228 @@
 # Episode 130. What to Keep Alive
 
-Even after all the lost had been counted,
-the space did not lighten right away.
+Even after all the lost had been counted, the space did not grow lighter.
 
-It was the opposite, if anything.
+What was left remained. The eight, and the people who had come to this layer before them. When Sern counted, there were eleven people and nine machines, counting only those he could see.
 
-Only now, at last,
-what remained was who had survived.
+Warm water went round to the children and the old first, and the less injured quietly attached themselves to the badly wounded. When the repairable equipment was gathered to one side, Han Jiwoo was standing where it was gathered. No one had told her to stand there, but she was standing there.
 
-And those who survived
-were set in front of the next question.
+In between all of it, the things that could not be thrown away were being gathered separately.
 
-In here,
-what should be kept alive first?
+One of the old machines was questioning the machine that had opened the way. Where things were blocked, in which passage the alignment of the machines above had broken, which sectors were still alive. Each time the machine that had opened the way answered, the old machine made a mark on a metal plate, not letters but lines and dots.
 
-Each single life.
-Minds.
-Memory.
-Skills.
-Paths.
+When Sern laid that plate beside his own record panel and looked, one line was the same.
 
-In a world that is falling apart,
-you can't hold on to everything.
+"This line. It is the same as on our record panel."
 
-So the air of this old layer
-always seemed to carry the scent of the next choice along with it.
+Sern told the old machine.
 
-Sion began to understand it, bit by bit,
-watching the machines and humans moving past the injured.
+"It is the way we came in."
 
-No one was flustered.
-But no one had room to spare either.
+"That way is still alive."
 
-Everyone already
-moved like people who knew by habit what to hold first and what to put off.
+The old machine answered.
 
-Warm water went around to the children and the elderly first,
-the less injured quietly attached themselves to the badly wounded,
-and any equipment that could be repaired was gathered to one side at once.
+"Until they close it."
 
-And in between all of it,
-information that could not be thrown away was being gathered separately, very quietly.
+"When will they close it?"
 
-Where the way had been blocked.
-In which passage the android legion had turned.
-Which sectors were still alive.
-Who had stayed to the very end.
+"If we knew, we would not be counting."
 
-Han Jiwoo saw it and muttered, low,
+Beside that line on his record panel, Sern marked the same dot that was on the old machine's plate.
+
+Watching that, Han Jiwoo muttered under her breath.
 
 "This isn't a place where everyone grieves together."
 
-The human woman close by answered.
+The tired-faced woman close by answered.
 
 "We grieve."
 
-Her voice was dry,
-but strangely more precise for it.
+She was winding fresh cloth around an injured man's leg, and her hands did not stop.
 
-Her face tired, the woman went on.
+"But put grief first, and next time more of us die."
 
-"But put grief first,
-and next time more of us die."
+Han Jiwoo couldn't say anything; she looked at the woman's hands. Winding the cloth and tying the knots, they made not one wasted motion. Hands that had been doing this for a long time.
 
-Han Jiwoo heard that and couldn't say anything.
+"I'll help."
 
-She thought of the hands she had held on to until the end in Hazran,
-and of the things that never made it across with them.
+The woman looked up and pushed a bundle of cloth toward Han Jiwoo.
 
-Even the time to grieve
-always came late;
-hers was the face of someone who already knew that.
+"Over there."
 
-A little way off,
-Aka had been looking for a long time at an old schematic fixed to the inner wall.
+Han Jiwoo went over and found a Hazran man with an injured shoulder. She knelt and began to wind the cloth. Her hands were used to tools, and this was the first time she had wound cloth. The first knot was loose, so she undid it and tied it again.
 
-Metal grooves running on like lines,
-erased markings,
-traces of things added later.
+Kael came and sat down beside her.
 
-When Sion came over,
-Aka asked, low,
+"Me too."
+
+Han Jiwoo tore off a strip for him, but Kael's hands were big, and the cloth kept slipping out of them.
+
+"Press with your thumb. Like you're holding a screwdriver."
+
+Han Jiwoo pressed the end of the cloth with her own thumb to show him.
+
+When Kael pressed with his thumb, the cloth didn't slip. He began to wind it around the injured man's arm; he was slow, but it didn't come loose.
+
+"This right?"
+
+Kael asked.
+
+Han Jiwoo gave the knot a tug.
+
+"It's right."
+
+"Isn't it too tight?"
+
+"As long as the blood gets through."
+
+Han Jiwoo pressed hard on the tip of the injured man's finger, and the color came back.
+
+"It's fine."
+
+As Kael looked at his own knot and gave it one more tug, the injured man looked up at him.
+
+"Thank you."
+
+Kael shook his head, looked at the knot once more, and pressed the tip of the man's finger himself. The color came back.
+
+A little way off, Aka had been looking for a long time at an old schematic fixed to the inner wall.
+
+Metal grooves running on like lines, erased markings, traces added over them, and more added on top of what had been added: three layers.
+
+When Sion came over, Aka asked, low.
 
 "Up there, they erased it all and built it new, right?"
 
 Sion looked at her.
 
-Without taking her eyes off the schematic, Aka said,
+Aka spoke without taking her eyes off the schematic.
 
 "But here, they added on instead of erasing."
 
-That difference mattered too.
+She touched the bottom layer with one finger. The markings had been erased; it couldn't be read. The second layer above it was lines you could read, and the third layer was dots.
 
-Upper Serakion was a world that erased the traces of its failures and pretended to be complete.
-But this,
-on top of failures that would not be erased,
-was a world that held on by adding each next choice.
+"Nobody knows what was at the very bottom, and they still didn't erase it."
 
-Just then,
-the old machine came close to Sion's party again.
+Looking at the three layers, Sion thought of the metal plate in his pocket. Two lines were scratched on it. Nothing under them.
 
-This time two other machines and two humans were with it.
+Just then, the old machine came close to Sion's party again.
 
-Not a center, exactly;
-it was a grouping that looked like different memories and roles brought together in one place for a while.
+This time two other machines and two humans were with it. One was the tired-faced woman, who had wiped her cloth-winding hands on her trousers before coming. The other was the young one who had cried out earlier. His eyes were swollen, but he was on his feet.
 
 The old machine spoke.
 
-"The people from Hazran will stay in this inner layer for the time being."
-"We will split them into those who need recovery, those who can travel, and those who have skills."
+"The people who came from Hazran will stay on this inner layer for the time being. We will divide them into those who need to recover, those who are able to move, and those who have skills."
 
-Luhai's face went hard at once.
+Luhai's face went hard.
 
 "Splitting us up again?"
 
-This time the reaction came so fast
-that a human nearby let out a very short breath.
-Less a laugh
-than something that meant "Of course that's what comes out first."
+The reaction was fast.
 
-The old machine looked at Luhai and said,
+The human nearby who let out a short breath was the young one. It was a breath close to a laugh; his face said he had asked the same thing at first.
 
-"It is not to divide people by their usefulness."
-"It is to slow the speed of the collapse."
+The old machine looked at Luhai and spoke.
 
-Luhai didn't answer right away.
+"It is not to sort people by their use. It is to slow how fast things fall apart."
 
-He could tell it wasn't a lie,
-but his face said the language of sorting he had heard nonstop since entering Serakion hadn't left his body yet.
+Luhai didn't answer right away; he looked at the old Hazran man leaning against the wall. The man had the plate with eleven lines scratched on it resting on his knees.
 
-Sion was the same.
+"Then where does he go?"
 
-Drawing distinctions could turn into violence at any time.
-But without them,
-a space like this one might not hold out at all.
+Luhai asked.
 
-In this old layer, that boundary line ran far too close.
+The old machine looked at the man.
 
-Sern asked, low,
+"He does not go anywhere. He stays here. A person who is finishing the lines on his plate is not moved."
+
+Luhai shut his mouth.
+
+Sern asked quietly.
 
 "Where do you put those who have skills?"
 
-The old machine glanced, very briefly, toward Han Jiwoo.
+The old machine glanced, very briefly, toward Han Jiwoo. She was winding cloth, and the second knot was firm.
 
 "They help save first what can be saved."
 
-At that answer,
-Han Jiwoo's expression stiffened, very slightly.
+Han Jiwoo's hands stopped, still holding the cloth.
 
-Seeing that, the human woman added before anyone else could,
+The tired-faced woman added something before anyone else could.
 
-"This place doesn't see people only as skills."
-"But if you've got a skill,
-letting you pretend you don't is crueler."
+"Here we don't see people only as skills. But if you have a skill, letting you pretend you don't is crueler."
 
-It was closer to an explanation than comfort.
-So Han Jiwoo stayed silent longer.
+Han Jiwoo looked at the woman, then at her hands, the hands that had been winding cloth.
 
-This place, now,
-did not look like one that wanted to exploit anyone's talents.
-But it wasn't a place that asked no responsibility of anyone either.
+"Is that why you do this too?"
 
-A place where those who survived
-had to shoulder, little by little, a share in proportion to having survived.
+Han Jiwoo asked.
 
-That felt like the rule of this layer.
+"This is all I can do. So I do it."
 
-A little later,
-somewhere further in, a small child woke from a doze and burst into tears.
+Han Jiwoo's hands moved again. The third knot.
 
-For a moment every eye went that way.
-But no one showed irritation.
+A little later, somewhere further in, a small child woke from a doze and burst into tears.
 
-Instead one of the old machines roughly wiped the oil off its hands with a cloth
-and, very awkwardly, went over to the child.
+Eyes went that way, but no one showed irritation.
 
-It was clumsy.
-It was slow.
-It wasn't beautiful either.
+Another machine roughly wiped the oil off its hand with a rag and went toward the child with that hand, the oil still on it. Its knees made a sound with every slow step. The machine stopped in front of the child and opened its hand, back facing up, the same as another machine had done earlier.
 
-But those hands
-looked less frightening than any of the hands they had seen up in Serakion earlier.
+The child didn't stop crying, and the machine didn't withdraw its open hand. When the child's mother turned the child a little toward the machine, the child looked at the back of the hand. The crying grew smaller but didn't stop, and still the machine stayed as it was.
 
-Aka said, very low,
+Aka spoke very low.
 
 "Here they don't pretend to be good at things."
 
-Hearing that,
-Sion felt that this whole old layer was in fact holding on with that same attitude.
-
-It didn't pretend to be complete.
-It didn't pretend to be all-powerful.
-It didn't pretend it would last forever.
-
-Instead,
-what could be kept alive now,
-what could be handed on now,
-and what must not be given up now, it settled one at a time.
-
-And maybe
-that was why it hadn't collapsed yet.
+Sion looked at the back of the machine's hand. He could see scratches and oil and worn joints. Then he looked at his own scarred hand, and lowered it.
 
 Last of all, the old machine turned to Sion's party and spoke.
 
-"Tomorrow I will ask in more detail."
-"Today, first,
-think about what each of you has carried here without losing it."
+"We will ask in more detail tomorrow. For today, first, think about what each of you has carried here without losing it."
 
-It wasn't simply an instruction to prepare.
+Seorin asked.
 
-It sounded like a forewarning that in this world, from now on,
-just as much as what they had lost,
-what they still hadn't let go of was going to matter.
+"And what do you do with that?"
 
-As he listened,
-Sion thought about what he had brought from Hazran.
+"That is what we keep alive first. We cannot bring back what is lost."
 
-Responsibility.
-Debt.
-Names that had vanished.
-And a road not yet finished.
+The uneven optical eye blinked once.
 
-That day, Serakion's old layer
-had not only given them a place to catch their breath.
+Seorin nodded, gripped the hilt of her sword once, and let go.
 
-It had begun to ask what they would keep alive.
+"Anything from up there ever made it this far?"
+
+She asked.
+
+"Three times."
+
+The old machine answered.
+
+"And how did all three go?"
+
+"That is why we came down this far."
+
+Ater was standing by the dark exit Seorin was looking at. She walked over and stood beside him, and the two of them watched the same dark side by side.
+
+"Three times."
+
+Ater said.
+
+"I heard."
+
+"When will the fourth be?"
+
+"Don't know. They decide."
+
+Ater nodded but did not take his eyes off the dark, and neither did Seorin. Behind them the yellow lamp flickered, but neither of them looked back.
+
+Sion took out the metal plate and looked at it under the yellow lamp. Two lines. It was what he had carried here. He didn't put the plate back; holding it in his hand, he leaned his back against the wall.
+
+Han Jiwoo finished tying the third knot and gave it a tug, but it didn't come loose. She patted the man's shoulder once. The way the tired-faced woman did.
+
+The old Hazran man turned over the plate on his knees, and its empty back came up. He looked at that empty side for a long while, then turned it back over. Eleven lines.
+
+The yellow lamp flickered once. It didn't go out.
 
 ---
 
