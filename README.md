@@ -289,6 +289,7 @@ Each language directory is organized by arc:
 - [190. 읽을 수 없는 순간](ko/02_hazran/190_unreadable.md)
 - [191. 첫 번째 문](ko/02_hazran/191_first_gate.md)
 - [192. 완전한 새장](ko/02_hazran/192_perfect_cage.md)
+- [193. 다른 방식으로 싸우다](ko/02_hazran/193_fight_differently.md)
 
 ### English
 
@@ -488,6 +489,7 @@ Each language directory is organized by arc:
 - [190. Unreadable](en/02_hazran/190_unreadable.md)
 - [191. First Gate](en/02_hazran/191_first_gate.md)
 - [192. Perfect Cage](en/02_hazran/192_perfect_cage.md)
+- [193. Fight Differently](en/02_hazran/193_fight_differently.md)
 
 ### Japanese
 
@@ -687,6 +689,7 @@ Each language directory is organized by arc:
 - [第百九十話　読めなくなった瞬間](ja/02_hazran/190_unreadable.md)
 - [第百九十一話　最初の門](ja/02_hazran/191_first_gate.md)
 - [第百九十二話　完全な鳥籠](ja/02_hazran/192_perfect_cage.md)
+- [第百九十三話　異なるやり方で](ja/02_hazran/193_fight_differently.md)
 
 ### Chinese
 
@@ -886,6 +889,7 @@ Each language directory is organized by arc:
 - [第一百九十章 读不出的瞬间](zh/02_hazran/190_unreadable.md)
 - [第一百九十一章 第一道门](zh/02_hazran/191_first_gate.md)
 - [第一百九十二章 完美的笼](zh/02_hazran/192_perfect_cage.md)
+- [第一百九十三章 以另一种方式作战](zh/02_hazran/193_fight_differently.md)
 
 ### French
 
@@ -1085,6 +1089,7 @@ Each language directory is organized by arc:
 - [Chapitre 190 — L'instant illisible](fr/02_hazran/190_unreadable.md)
 - [Chapitre 191 — La première porte](fr/02_hazran/191_first_gate.md)
 - [Chapitre 192 — La cage parfaite](fr/02_hazran/192_perfect_cage.md)
+- [Chapitre 193 — Combattre autrement](fr/02_hazran/193_fight_differently.md)
 
 ### Spanish
 
@@ -1284,7 +1289,8 @@ Each language directory is organized by arc:
 - [Capítulo 190 — El instante ilegible](es/02_hazran/190_unreadable.md)
 - [Capítulo 191 — La primera puerta](es/02_hazran/191_first_gate.md)
 - [Capítulo 192 — La jaula perfecta](es/02_hazran/192_perfect_cage.md)
+- [Capítulo 193 — Pelear de otra manera](es/02_hazran/193_fight_differently.md)
 
 ## Status
 
-Public archive currently published through Episode 192 in Korean, Episode 192 in English, Episode 192 in Japanese, Episode 192 in French, Episode 192 in Chinese (Simplified), and Episode 192 in Spanish.
+Public archive currently published through Episode 193 in Korean, Episode 193 in English, Episode 193 in Japanese, Episode 193 in French, Episode 193 in Chinese (Simplified), and Episode 193 in Spanish.

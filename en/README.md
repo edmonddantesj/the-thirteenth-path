@@ -200,3 +200,4 @@ Current public English release:
 - [Episode 190. Unreadable](02_hazran/190_unreadable.md)
 - [Episode 191. First Gate](02_hazran/191_first_gate.md)
 - [Episode 192. Perfect Cage](02_hazran/192_perfect_cage.md)
+- [Episode 193. Fight Differently](02_hazran/193_fight_differently.md)

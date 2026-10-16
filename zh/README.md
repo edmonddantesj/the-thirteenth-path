@@ -200,3 +200,4 @@
 - [第一百九十章 读不出的瞬间](02_hazran/190_unreadable.md)
 - [第一百九十一章 第一道门](02_hazran/191_first_gate.md)
 - [第一百九十二章 完美的笼](02_hazran/192_perfect_cage.md)
+- [第一百九十三章 以另一种方式作战](02_hazran/193_fight_differently.md)

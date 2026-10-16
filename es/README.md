@@ -196,3 +196,4 @@ Capítulos públicos actuales:
 - [Capítulo 190 — El instante ilegible](02_hazran/190_unreadable.md)
 - [Capítulo 191 — La primera puerta](02_hazran/191_first_gate.md)
 - [Capítulo 192 — La jaula perfecta](02_hazran/192_perfect_cage.md)
+- [Capítulo 193 — Pelear de otra manera](02_hazran/193_fight_differently.md)

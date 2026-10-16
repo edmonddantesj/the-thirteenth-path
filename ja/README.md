@@ -200,3 +200,4 @@
 - [第百九十話　読めなくなった瞬間](02_hazran/190_unreadable.md)
 - [第百九十一話　最初の門](02_hazran/191_first_gate.md)
 - [第百九十二話　完全な鳥籠](02_hazran/192_perfect_cage.md)
+- [第百九十三話　異なるやり方で](02_hazran/193_fight_differently.md)
