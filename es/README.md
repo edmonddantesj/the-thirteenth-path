@@ -197,3 +197,4 @@ Capítulos públicos actuales:
 - [Capítulo 191 — La primera puerta](02_hazran/191_first_gate.md)
 - [Capítulo 192 — La jaula perfecta](02_hazran/192_perfect_cage.md)
 - [Capítulo 193 — Pelear de otra manera](02_hazran/193_fight_differently.md)
+- [Capítulo 194 — El compás descuadrado](02_hazran/194_out_of_step.md)

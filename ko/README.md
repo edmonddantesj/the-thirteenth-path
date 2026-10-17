@@ -202,3 +202,4 @@
 - [191화. 첫 번째 문](02_hazran/191_first_gate.md)
 - [192화. 완전한 새장](02_hazran/192_perfect_cage.md)
 - [193화. 다른 방식으로 싸우다](02_hazran/193_fight_differently.md)
+- [194화. 어긋난 박자](02_hazran/194_out_of_step.md)
