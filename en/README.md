@@ -202,3 +202,4 @@ Current public English release:
 - [Episode 192. Perfect Cage](02_hazran/192_perfect_cage.md)
 - [Episode 193. Fight Differently](02_hazran/193_fight_differently.md)
 - [Episode 194. Out of Step](02_hazran/194_out_of_step.md)
+- [Episode 195. Shorter Gaps](02_hazran/195_shorter_gaps.md)
