@@ -203,3 +203,4 @@
 - [第百九十三話　異なるやり方で](02_hazran/193_fight_differently.md)
 - [第百九十四話　ずれた拍子](02_hazran/194_out_of_step.md)
 - [第百九十五話　短くなる隙](02_hazran/195_shorter_gaps.md)
+- [第百九十六話　引き裂き](02_hazran/196_cut_apart.md)

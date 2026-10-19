@@ -203,3 +203,4 @@ Chapitres publics actuels :
 - [Chapitre 193 — Combattre autrement](02_hazran/193_fight_differently.md)
 - [Chapitre 194 — Le rythme décalé](02_hazran/194_out_of_step.md)
 - [Chapitre 195 — Des failles plus courtes](02_hazran/195_shorter_gaps.md)
+- [Chapitre 196 — Séparer](02_hazran/196_cut_apart.md)

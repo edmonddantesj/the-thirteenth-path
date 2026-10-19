@@ -292,6 +292,7 @@ Each language directory is organized by arc:
 - [193. 다른 방식으로 싸우다](ko/02_hazran/193_fight_differently.md)
 - [194. 어긋난 박자](ko/02_hazran/194_out_of_step.md)
 - [195. 짧아지는 틈](ko/02_hazran/195_shorter_gaps.md)
+- [196. 갈라놓기](ko/02_hazran/196_cut_apart.md)
 
 ### English
 
@@ -494,6 +495,7 @@ Each language directory is organized by arc:
 - [193. Fight Differently](en/02_hazran/193_fight_differently.md)
 - [194. Out of Step](en/02_hazran/194_out_of_step.md)
 - [195. Shorter Gaps](en/02_hazran/195_shorter_gaps.md)
+- [196. Cut Apart](en/02_hazran/196_cut_apart.md)
 
 ### Japanese
 
@@ -696,6 +698,7 @@ Each language directory is organized by arc:
 - [第百九十三話　異なるやり方で](ja/02_hazran/193_fight_differently.md)
 - [第百九十四話　ずれた拍子](ja/02_hazran/194_out_of_step.md)
 - [第百九十五話　短くなる隙](ja/02_hazran/195_shorter_gaps.md)
+- [第百九十六話　引き裂き](ja/02_hazran/196_cut_apart.md)
 
 ### Chinese
 
@@ -898,6 +901,7 @@ Each language directory is organized by arc:
 - [第一百九十三章 以另一种方式作战](zh/02_hazran/193_fight_differently.md)
 - [第一百九十四章 错开的节拍](zh/02_hazran/194_out_of_step.md)
 - [第一百九十五章 越来越短的缝](zh/02_hazran/195_shorter_gaps.md)
+- [第一百九十六章 把他们拆开](zh/02_hazran/196_cut_apart.md)
 
 ### French
 
@@ -1100,6 +1104,7 @@ Each language directory is organized by arc:
 - [Chapitre 193 — Combattre autrement](fr/02_hazran/193_fight_differently.md)
 - [Chapitre 194 — Le rythme décalé](fr/02_hazran/194_out_of_step.md)
 - [Chapitre 195 — Des failles plus courtes](fr/02_hazran/195_shorter_gaps.md)
+- [Chapitre 196 — Séparer](fr/02_hazran/196_cut_apart.md)
 
 ### Spanish
 
@@ -1302,7 +1307,8 @@ Each language directory is organized by arc:
 - [Capítulo 193 — Pelear de otra manera](es/02_hazran/193_fight_differently.md)
 - [Capítulo 194 — El compás descuadrado](es/02_hazran/194_out_of_step.md)
 - [Capítulo 195 — Los huecos que se acortan](es/02_hazran/195_shorter_gaps.md)
+- [Capítulo 196 — Separarlos](es/02_hazran/196_cut_apart.md)
 
 ## Status
 
-Public archive currently published through Episode 195 in Korean, Episode 195 in English, Episode 195 in Japanese, Episode 195 in French, Episode 195 in Chinese (Simplified), and Episode 195 in Spanish.
+Public archive currently published through Episode 196 in Korean, Episode 196 in English, Episode 196 in Japanese, Episode 196 in French, Episode 196 in Chinese (Simplified), and Episode 196 in Spanish.

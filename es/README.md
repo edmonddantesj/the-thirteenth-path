@@ -199,3 +199,4 @@ Capítulos públicos actuales:
 - [Capítulo 193 — Pelear de otra manera](02_hazran/193_fight_differently.md)
 - [Capítulo 194 — El compás descuadrado](02_hazran/194_out_of_step.md)
 - [Capítulo 195 — Los huecos que se acortan](02_hazran/195_shorter_gaps.md)
+- [Capítulo 196 — Separarlos](02_hazran/196_cut_apart.md)

@@ -203,3 +203,4 @@
 - [第一百九十三章 以另一种方式作战](02_hazran/193_fight_differently.md)
 - [第一百九十四章 错开的节拍](02_hazran/194_out_of_step.md)
 - [第一百九十五章 越来越短的缝](02_hazran/195_shorter_gaps.md)
+- [第一百九十六章 把他们拆开](02_hazran/196_cut_apart.md)

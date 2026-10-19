@@ -204,3 +204,4 @@
 - [193화. 다른 방식으로 싸우다](02_hazran/193_fight_differently.md)
 - [194화. 어긋난 박자](02_hazran/194_out_of_step.md)
 - [195화. 짧아지는 틈](02_hazran/195_shorter_gaps.md)
+- [196화. 갈라놓기](02_hazran/196_cut_apart.md)
