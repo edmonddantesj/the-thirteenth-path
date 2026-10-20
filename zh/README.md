@@ -204,3 +204,4 @@
 - [第一百九十四章 错开的节拍](02_hazran/194_out_of_step.md)
 - [第一百九十五章 越来越短的缝](02_hazran/195_shorter_gaps.md)
 - [第一百九十六章 把他们拆开](02_hazran/196_cut_apart.md)
+- [第一百九十七章 开始显露的空洞](02_hazran/197_visible_emptiness.md)
