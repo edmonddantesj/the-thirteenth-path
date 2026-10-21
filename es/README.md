@@ -201,3 +201,4 @@ Capítulos públicos actuales:
 - [Capítulo 195 — Los huecos que se acortan](02_hazran/195_shorter_gaps.md)
 - [Capítulo 196 — Separarlos](02_hazran/196_cut_apart.md)
 - [Capítulo 197 — El vacío que empieza a verse](02_hazran/197_visible_emptiness.md)
+- [Capítulo 198 — La perfección hueca](02_hazran/198_hollow_perfection.md)

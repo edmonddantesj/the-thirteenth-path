@@ -205,3 +205,4 @@
 - [第百九十五話　短くなる隙](02_hazran/195_shorter_gaps.md)
 - [第百九十六話　引き裂き](02_hazran/196_cut_apart.md)
 - [第百九十七話　見え始めた空虚](02_hazran/197_visible_emptiness.md)
+- [第百九十八話　完全な準備の恐ろしさ](02_hazran/198_hollow_perfection.md)

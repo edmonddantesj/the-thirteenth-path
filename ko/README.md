@@ -206,3 +206,4 @@
 - [195화. 짧아지는 틈](02_hazran/195_shorter_gaps.md)
 - [196화. 갈라놓기](02_hazran/196_cut_apart.md)
 - [197화. 보이기 시작한 공허](02_hazran/197_visible_emptiness.md)
+- [198화. 완전한 준비의 끔찍함](02_hazran/198_hollow_perfection.md)

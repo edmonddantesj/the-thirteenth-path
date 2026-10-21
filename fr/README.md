@@ -205,3 +205,4 @@ Chapitres publics actuels :
 - [Chapitre 195 — Des failles plus courtes](02_hazran/195_shorter_gaps.md)
 - [Chapitre 196 — Séparer](02_hazran/196_cut_apart.md)
 - [Chapitre 197 — Le vide qui commença à se voir](02_hazran/197_visible_emptiness.md)
+- [Chapitre 198 — L'horreur de la préparation parfaite](02_hazran/198_hollow_perfection.md)

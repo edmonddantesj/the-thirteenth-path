@@ -294,6 +294,7 @@ Each language directory is organized by arc:
 - [195. 짧아지는 틈](ko/02_hazran/195_shorter_gaps.md)
 - [196. 갈라놓기](ko/02_hazran/196_cut_apart.md)
 - [197. 보이기 시작한 공허](ko/02_hazran/197_visible_emptiness.md)
+- [198. 완전한 준비의 끔찍함](ko/02_hazran/198_hollow_perfection.md)
 
 ### English
 
@@ -498,6 +499,7 @@ Each language directory is organized by arc:
 - [195. Shorter Gaps](en/02_hazran/195_shorter_gaps.md)
 - [196. Cut Apart](en/02_hazran/196_cut_apart.md)
 - [197. Visible Emptiness](en/02_hazran/197_visible_emptiness.md)
+- [198. Hollow Perfection](en/02_hazran/198_hollow_perfection.md)
 
 ### Japanese
 
@@ -702,6 +704,7 @@ Each language directory is organized by arc:
 - [第百九十五話　短くなる隙](ja/02_hazran/195_shorter_gaps.md)
 - [第百九十六話　引き裂き](ja/02_hazran/196_cut_apart.md)
 - [第百九十七話　見え始めた空虚](ja/02_hazran/197_visible_emptiness.md)
+- [第百九十八話　完全な準備の恐ろしさ](ja/02_hazran/198_hollow_perfection.md)
 
 ### Chinese
 
@@ -906,6 +909,7 @@ Each language directory is organized by arc:
 - [第一百九十五章 越来越短的缝](zh/02_hazran/195_shorter_gaps.md)
 - [第一百九十六章 把他们拆开](zh/02_hazran/196_cut_apart.md)
 - [第一百九十七章 开始显露的空洞](zh/02_hazran/197_visible_emptiness.md)
+- [第一百九十八章 完备准备的可怖](zh/02_hazran/198_hollow_perfection.md)
 
 ### French
 
@@ -1110,6 +1114,7 @@ Each language directory is organized by arc:
 - [Chapitre 195 — Des failles plus courtes](fr/02_hazran/195_shorter_gaps.md)
 - [Chapitre 196 — Séparer](fr/02_hazran/196_cut_apart.md)
 - [Chapitre 197 — Le vide qui commença à se voir](fr/02_hazran/197_visible_emptiness.md)
+- [Chapitre 198 — L'horreur de la préparation parfaite](fr/02_hazran/198_hollow_perfection.md)
 
 ### Spanish
 
@@ -1314,7 +1319,8 @@ Each language directory is organized by arc:
 - [Capítulo 195 — Los huecos que se acortan](es/02_hazran/195_shorter_gaps.md)
 - [Capítulo 196 — Separarlos](es/02_hazran/196_cut_apart.md)
 - [Capítulo 197 — El vacío que empieza a verse](es/02_hazran/197_visible_emptiness.md)
+- [Capítulo 198 — La perfección hueca](es/02_hazran/198_hollow_perfection.md)
 
 ## Status
 
-Public archive currently published through Episode 197 in Korean, Episode 197 in English, Episode 197 in Japanese, Episode 197 in French, Episode 197 in Chinese (Simplified), and Episode 197 in Spanish.
+Public archive currently published through Episode 198 in Korean, Episode 198 in English, Episode 198 in Japanese, Episode 198 in French, Episode 198 in Chinese (Simplified), and Episode 198 in Spanish.

@@ -205,3 +205,4 @@ Current public English release:
 - [Episode 195. Shorter Gaps](02_hazran/195_shorter_gaps.md)
 - [Episode 196. Cut Apart](02_hazran/196_cut_apart.md)
 - [Episode 197. Visible Emptiness](02_hazran/197_visible_emptiness.md)
+- [Episode 198. Hollow Perfection](02_hazran/198_hollow_perfection.md)

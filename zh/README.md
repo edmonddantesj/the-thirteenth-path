@@ -205,3 +205,4 @@
 - [第一百九十五章 越来越短的缝](02_hazran/195_shorter_gaps.md)
 - [第一百九十六章 把他们拆开](02_hazran/196_cut_apart.md)
 - [第一百九十七章 开始显露的空洞](02_hazran/197_visible_emptiness.md)
+- [第一百九十八章 完备准备的可怖](02_hazran/198_hollow_perfection.md)
