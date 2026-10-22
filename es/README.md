@@ -202,3 +202,4 @@ Capítulos públicos actuales:
 - [Capítulo 196 — Separarlos](02_hazran/196_cut_apart.md)
 - [Capítulo 197 — El vacío que empieza a verse](02_hazran/197_visible_emptiness.md)
 - [Capítulo 198 — La perfección hueca](02_hazran/198_hollow_perfection.md)
+- [Capítulo 199 — El recuerdo más antiguo](02_hazran/199_oldest_memory.md)

@@ -206,3 +206,4 @@
 - [第百九十六話　引き裂き](02_hazran/196_cut_apart.md)
 - [第百九十七話　見え始めた空虚](02_hazran/197_visible_emptiness.md)
 - [第百九十八話　完全な準備の恐ろしさ](02_hazran/198_hollow_perfection.md)
+- [第百九十九話　いちばん古い記憶](02_hazran/199_oldest_memory.md)

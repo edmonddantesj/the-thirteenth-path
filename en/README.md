@@ -206,3 +206,4 @@ Current public English release:
 - [Episode 196. Cut Apart](02_hazran/196_cut_apart.md)
 - [Episode 197. Visible Emptiness](02_hazran/197_visible_emptiness.md)
 - [Episode 198. Hollow Perfection](02_hazran/198_hollow_perfection.md)
+- [Episode 199. Oldest Memory](02_hazran/199_oldest_memory.md)
