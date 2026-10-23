@@ -207,3 +207,4 @@ Chapitres publics actuels :
 - [Chapitre 197 — Le vide qui commença à se voir](02_hazran/197_visible_emptiness.md)
 - [Chapitre 198 — L'horreur de la préparation parfaite](02_hazran/198_hollow_perfection.md)
 - [Chapitre 199 — Le plus ancien souvenir](02_hazran/199_oldest_memory.md)
+- [Chapitre 200 — Le trône vide](02_hazran/200_empty_throne.md)

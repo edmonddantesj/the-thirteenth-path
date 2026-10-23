@@ -296,6 +296,7 @@ Each language directory is organized by arc:
 - [197. 보이기 시작한 공허](ko/02_hazran/197_visible_emptiness.md)
 - [198. 완전한 준비의 끔찍함](ko/02_hazran/198_hollow_perfection.md)
 - [199. 가장 오래된 기억](ko/02_hazran/199_oldest_memory.md)
+- [200. 빈 왕좌](ko/02_hazran/200_empty_throne.md)
 
 ### English
 
@@ -502,6 +503,7 @@ Each language directory is organized by arc:
 - [197. Visible Emptiness](en/02_hazran/197_visible_emptiness.md)
 - [198. Hollow Perfection](en/02_hazran/198_hollow_perfection.md)
 - [199. Oldest Memory](en/02_hazran/199_oldest_memory.md)
+- [200. Empty Throne](en/02_hazran/200_empty_throne.md)
 
 ### Japanese
 
@@ -708,6 +710,7 @@ Each language directory is organized by arc:
 - [第百九十七話　見え始めた空虚](ja/02_hazran/197_visible_emptiness.md)
 - [第百九十八話　完全な準備の恐ろしさ](ja/02_hazran/198_hollow_perfection.md)
 - [第百九十九話　いちばん古い記憶](ja/02_hazran/199_oldest_memory.md)
+- [第二百話　空の玉座](ja/02_hazran/200_empty_throne.md)
 
 ### Chinese
 
@@ -914,6 +917,7 @@ Each language directory is organized by arc:
 - [第一百九十七章 开始显露的空洞](zh/02_hazran/197_visible_emptiness.md)
 - [第一百九十八章 完备准备的可怖](zh/02_hazran/198_hollow_perfection.md)
 - [第一百九十九章 最古老的记忆](zh/02_hazran/199_oldest_memory.md)
+- [第二百章 空王座](zh/02_hazran/200_empty_throne.md)
 
 ### French
 
@@ -1120,6 +1124,7 @@ Each language directory is organized by arc:
 - [Chapitre 197 — Le vide qui commença à se voir](fr/02_hazran/197_visible_emptiness.md)
 - [Chapitre 198 — L'horreur de la préparation parfaite](fr/02_hazran/198_hollow_perfection.md)
 - [Chapitre 199 — Le plus ancien souvenir](fr/02_hazran/199_oldest_memory.md)
+- [Chapitre 200 — Le trône vide](fr/02_hazran/200_empty_throne.md)
 
 ### Spanish
 
@@ -1326,7 +1331,8 @@ Each language directory is organized by arc:
 - [Capítulo 197 — El vacío que empieza a verse](es/02_hazran/197_visible_emptiness.md)
 - [Capítulo 198 — La perfección hueca](es/02_hazran/198_hollow_perfection.md)
 - [Capítulo 199 — El recuerdo más antiguo](es/02_hazran/199_oldest_memory.md)
+- [Capítulo 200 — El trono vacío](es/02_hazran/200_empty_throne.md)
 
 ## Status
 
-Public archive currently published through Episode 199 in Korean, Episode 199 in English, Episode 199 in Japanese, Episode 199 in French, Episode 199 in Chinese (Simplified), and Episode 199 in Spanish.
+Public archive currently published through Episode 200 in Korean, Episode 200 in English, Episode 200 in Japanese, Episode 200 in French, Episode 200 in Chinese (Simplified), and Episode 200 in Spanish.

@@ -207,3 +207,4 @@ Current public English release:
 - [Episode 197. Visible Emptiness](02_hazran/197_visible_emptiness.md)
 - [Episode 198. Hollow Perfection](02_hazran/198_hollow_perfection.md)
 - [Episode 199. Oldest Memory](02_hazran/199_oldest_memory.md)
+- [Episode 200. Empty Throne](02_hazran/200_empty_throne.md)
