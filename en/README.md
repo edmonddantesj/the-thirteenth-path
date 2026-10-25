@@ -209,3 +209,4 @@ Current public English release:
 - [Episode 199. Oldest Memory](02_hazran/199_oldest_memory.md)
 - [Episode 200. Empty Throne](02_hazran/200_empty_throne.md)
 - [Episode 201. Nothing Felt Over](02_hazran/201_nothing_felt_over.md)
+- [Episode 202. Emptying the Ruins](02_hazran/202_emptying_the_ruins.md)
