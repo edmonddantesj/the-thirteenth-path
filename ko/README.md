@@ -211,3 +211,4 @@
 - [200화. 빈 왕좌](02_hazran/200_empty_throne.md)
 - [201화. 끝나지 않은 것](02_hazran/201_nothing_felt_over.md)
 - [202화. 폐허 비우기](02_hazran/202_emptying_the_ruins.md)
+- [203화. 얼굴을 붙들다](02_hazran/203_keeping_faces.md)

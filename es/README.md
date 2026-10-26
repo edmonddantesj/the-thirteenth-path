@@ -206,3 +206,4 @@ Capítulos públicos actuales:
 - [Capítulo 200 — El trono vacío](02_hazran/200_empty_throne.md)
 - [Capítulo 201 — Nada se sentía terminado](02_hazran/201_nothing_felt_over.md)
 - [Capítulo 202 — Vaciar las ruinas](02_hazran/202_emptying_the_ruins.md)
+- [Capítulo 203 — Sostener los rostros](02_hazran/203_keeping_faces.md)

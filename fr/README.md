@@ -210,3 +210,4 @@ Chapitres publics actuels :
 - [Chapitre 200 — Le trône vide](02_hazran/200_empty_throne.md)
 - [Chapitre 201 — Rien ne semblait fini](02_hazran/201_nothing_felt_over.md)
 - [Chapitre 202 — Vider les ruines](02_hazran/202_emptying_the_ruins.md)
+- [Chapitre 203 — Garder les visages](02_hazran/203_keeping_faces.md)

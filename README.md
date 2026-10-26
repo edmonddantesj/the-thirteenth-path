@@ -299,6 +299,7 @@ Each language directory is organized by arc:
 - [200. 빈 왕좌](ko/02_hazran/200_empty_throne.md)
 - [201. 끝나지 않은 것](ko/02_hazran/201_nothing_felt_over.md)
 - [202. 폐허 비우기](ko/02_hazran/202_emptying_the_ruins.md)
+- [203. 얼굴을 붙들다](ko/02_hazran/203_keeping_faces.md)
 
 ### English
 
@@ -508,6 +509,7 @@ Each language directory is organized by arc:
 - [200. Empty Throne](en/02_hazran/200_empty_throne.md)
 - [201. Nothing Felt Over](en/02_hazran/201_nothing_felt_over.md)
 - [202. Emptying the Ruins](en/02_hazran/202_emptying_the_ruins.md)
+- [203. Keeping Faces](en/02_hazran/203_keeping_faces.md)
 
 ### Japanese
 
@@ -717,6 +719,7 @@ Each language directory is organized by arc:
 - [第二百話　空の玉座](ja/02_hazran/200_empty_throne.md)
 - [第二百一話　終わらなかったもの](ja/02_hazran/201_nothing_felt_over.md)
 - [第二百二話　廃墟を空にする](ja/02_hazran/202_emptying_the_ruins.md)
+- [第二百三話　顔を繋ぎ止める](ja/02_hazran/203_keeping_faces.md)
 
 ### Chinese
 
@@ -926,6 +929,7 @@ Each language directory is organized by arc:
 - [第二百章 空王座](zh/02_hazran/200_empty_throne.md)
 - [第二百零一章 尚未了结的](zh/02_hazran/201_nothing_felt_over.md)
 - [第二百零二章 清空废墟](zh/02_hazran/202_emptying_the_ruins.md)
+- [第二百零三章 守住面孔](zh/02_hazran/203_keeping_faces.md)
 
 ### French
 
@@ -1135,6 +1139,7 @@ Each language directory is organized by arc:
 - [Chapitre 200 — Le trône vide](fr/02_hazran/200_empty_throne.md)
 - [Chapitre 201 — Rien ne semblait fini](fr/02_hazran/201_nothing_felt_over.md)
 - [Chapitre 202 — Vider les ruines](fr/02_hazran/202_emptying_the_ruins.md)
+- [Chapitre 203 — Garder les visages](fr/02_hazran/203_keeping_faces.md)
 
 ### Spanish
 
@@ -1344,7 +1349,8 @@ Each language directory is organized by arc:
 - [Capítulo 200 — El trono vacío](es/02_hazran/200_empty_throne.md)
 - [Capítulo 201 — Nada se sentía terminado](es/02_hazran/201_nothing_felt_over.md)
 - [Capítulo 202 — Vaciar las ruinas](es/02_hazran/202_emptying_the_ruins.md)
+- [Capítulo 203 — Sostener los rostros](es/02_hazran/203_keeping_faces.md)
 
 ## Status
 
-Public archive currently published through Episode 202 in Korean, Episode 202 in English, Episode 202 in Japanese, Episode 202 in French, Episode 202 in Chinese (Simplified), and Episode 202 in Spanish.
+Public archive currently published through Episode 203 in Korean, Episode 203 in English, Episode 203 in Japanese, Episode 203 in French, Episode 203 in Chinese (Simplified), and Episode 203 in Spanish.
