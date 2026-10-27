@@ -300,6 +300,7 @@ Each language directory is organized by arc:
 - [201. 끝나지 않은 것](ko/02_hazran/201_nothing_felt_over.md)
 - [202. 폐허 비우기](ko/02_hazran/202_emptying_the_ruins.md)
 - [203. 얼굴을 붙들다](ko/02_hazran/203_keeping_faces.md)
+- [204. 아래에서 느낀 것](ko/02_hazran/204_felt_from_below.md)
 
 ### English
 
@@ -510,6 +511,7 @@ Each language directory is organized by arc:
 - [201. Nothing Felt Over](en/02_hazran/201_nothing_felt_over.md)
 - [202. Emptying the Ruins](en/02_hazran/202_emptying_the_ruins.md)
 - [203. Keeping Faces](en/02_hazran/203_keeping_faces.md)
+- [204. Felt from Below](en/02_hazran/204_felt_from_below.md)
 
 ### Japanese
 
@@ -720,6 +722,7 @@ Each language directory is organized by arc:
 - [第二百一話　終わらなかったもの](ja/02_hazran/201_nothing_felt_over.md)
 - [第二百二話　廃墟を空にする](ja/02_hazran/202_emptying_the_ruins.md)
 - [第二百三話　顔を繋ぎ止める](ja/02_hazran/203_keeping_faces.md)
+- [第二百四話　下から感じたもの](ja/02_hazran/204_felt_from_below.md)
 
 ### Chinese
 
@@ -930,6 +933,7 @@ Each language directory is organized by arc:
 - [第二百零一章 尚未了结的](zh/02_hazran/201_nothing_felt_over.md)
 - [第二百零二章 清空废墟](zh/02_hazran/202_emptying_the_ruins.md)
 - [第二百零三章 守住面孔](zh/02_hazran/203_keeping_faces.md)
+- [第二百零四章 自下方感到的](zh/02_hazran/204_felt_from_below.md)
 
 ### French
 
@@ -1140,6 +1144,7 @@ Each language directory is organized by arc:
 - [Chapitre 201 — Rien ne semblait fini](fr/02_hazran/201_nothing_felt_over.md)
 - [Chapitre 202 — Vider les ruines](fr/02_hazran/202_emptying_the_ruins.md)
 - [Chapitre 203 — Garder les visages](fr/02_hazran/203_keeping_faces.md)
+- [Chapitre 204 — Ce qu'on sentit d'en bas](fr/02_hazran/204_felt_from_below.md)
 
 ### Spanish
 
@@ -1350,7 +1355,8 @@ Each language directory is organized by arc:
 - [Capítulo 201 — Nada se sentía terminado](es/02_hazran/201_nothing_felt_over.md)
 - [Capítulo 202 — Vaciar las ruinas](es/02_hazran/202_emptying_the_ruins.md)
 - [Capítulo 203 — Sostener los rostros](es/02_hazran/203_keeping_faces.md)
+- [Capítulo 204 — Lo que se sintió desde abajo](es/02_hazran/204_felt_from_below.md)
 
 ## Status
 
-Public archive currently published through Episode 203 in Korean, Episode 203 in English, Episode 203 in Japanese, Episode 203 in French, Episode 203 in Chinese (Simplified), and Episode 203 in Spanish.
+Public archive currently published through Episode 204 in Korean, Episode 204 in English, Episode 204 in Japanese, Episode 204 in French, Episode 204 in Chinese (Simplified), and Episode 204 in Spanish.

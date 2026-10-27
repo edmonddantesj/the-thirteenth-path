@@ -211,3 +211,4 @@
 - [第二百一話　終わらなかったもの](02_hazran/201_nothing_felt_over.md)
 - [第二百二話　廃墟を空にする](02_hazran/202_emptying_the_ruins.md)
 - [第二百三話　顔を繋ぎ止める](02_hazran/203_keeping_faces.md)
+- [第二百四話　下から感じたもの](02_hazran/204_felt_from_below.md)
