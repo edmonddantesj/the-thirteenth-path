@@ -208,3 +208,4 @@ Capítulos públicos actuales:
 - [Capítulo 202 — Vaciar las ruinas](02_hazran/202_emptying_the_ruins.md)
 - [Capítulo 203 — Sostener los rostros](02_hazran/203_keeping_faces.md)
 - [Capítulo 204 — Lo que se sintió desde abajo](02_hazran/204_felt_from_below.md)
+- [Capítulo 205 — El tiempo desalineado](02_hazran/205_misaligned_time.md)

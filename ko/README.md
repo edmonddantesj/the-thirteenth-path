@@ -213,3 +213,4 @@
 - [202화. 폐허 비우기](02_hazran/202_emptying_the_ruins.md)
 - [203화. 얼굴을 붙들다](02_hazran/203_keeping_faces.md)
 - [204화. 아래에서 느낀 것](02_hazran/204_felt_from_below.md)
+- [205화. 어긋난 시간](02_hazran/205_misaligned_time.md)

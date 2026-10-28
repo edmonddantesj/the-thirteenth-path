@@ -212,3 +212,4 @@ Current public English release:
 - [Episode 202. Emptying the Ruins](02_hazran/202_emptying_the_ruins.md)
 - [Episode 203. Keeping Faces](02_hazran/203_keeping_faces.md)
 - [Episode 204. Felt from Below](02_hazran/204_felt_from_below.md)
+- [Episode 205. Misaligned Time](02_hazran/205_misaligned_time.md)

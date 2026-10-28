@@ -212,3 +212,4 @@ Chapitres publics actuels :
 - [Chapitre 202 — Vider les ruines](02_hazran/202_emptying_the_ruins.md)
 - [Chapitre 203 — Garder les visages](02_hazran/203_keeping_faces.md)
 - [Chapitre 204 — Ce qu'on sentit d'en bas](02_hazran/204_felt_from_below.md)
+- [Chapitre 205 — Le temps décalé](02_hazran/205_misaligned_time.md)
