@@ -214,3 +214,4 @@
 - [203화. 얼굴을 붙들다](02_hazran/203_keeping_faces.md)
 - [204화. 아래에서 느낀 것](02_hazran/204_felt_from_below.md)
 - [205화. 어긋난 시간](02_hazran/205_misaligned_time.md)
+- [206화. 버림이 아닌](02_hazran/206_not_abandonment.md)

@@ -213,3 +213,4 @@
 - [第二百三話　顔を繋ぎ止める](02_hazran/203_keeping_faces.md)
 - [第二百四話　下から感じたもの](02_hazran/204_felt_from_below.md)
 - [第二百五話　ずれた時間](02_hazran/205_misaligned_time.md)
+- [第二百六話　捨てたのではない](02_hazran/206_not_abandonment.md)

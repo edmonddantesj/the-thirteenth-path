@@ -302,6 +302,7 @@ Each language directory is organized by arc:
 - [203. 얼굴을 붙들다](ko/02_hazran/203_keeping_faces.md)
 - [204. 아래에서 느낀 것](ko/02_hazran/204_felt_from_below.md)
 - [205. 어긋난 시간](ko/02_hazran/205_misaligned_time.md)
+- [206. 버림이 아닌](ko/02_hazran/206_not_abandonment.md)
 
 ### English
 
@@ -514,6 +515,7 @@ Each language directory is organized by arc:
 - [203. Keeping Faces](en/02_hazran/203_keeping_faces.md)
 - [204. Felt from Below](en/02_hazran/204_felt_from_below.md)
 - [205. Misaligned Time](en/02_hazran/205_misaligned_time.md)
+- [206. Not Abandonment](en/02_hazran/206_not_abandonment.md)
 
 ### Japanese
 
@@ -726,6 +728,7 @@ Each language directory is organized by arc:
 - [第二百三話　顔を繋ぎ止める](ja/02_hazran/203_keeping_faces.md)
 - [第二百四話　下から感じたもの](ja/02_hazran/204_felt_from_below.md)
 - [第二百五話　ずれた時間](ja/02_hazran/205_misaligned_time.md)
+- [第二百六話　捨てたのではない](ja/02_hazran/206_not_abandonment.md)
 
 ### Chinese
 
@@ -938,6 +941,7 @@ Each language directory is organized by arc:
 - [第二百零三章 守住面孔](zh/02_hazran/203_keeping_faces.md)
 - [第二百零四章 自下方感到的](zh/02_hazran/204_felt_from_below.md)
 - [第二百零五章 错位的时间](zh/02_hazran/205_misaligned_time.md)
+- [第二百零六章 并非舍弃](zh/02_hazran/206_not_abandonment.md)
 
 ### French
 
@@ -1150,6 +1154,7 @@ Each language directory is organized by arc:
 - [Chapitre 203 — Garder les visages](fr/02_hazran/203_keeping_faces.md)
 - [Chapitre 204 — Ce qu'on sentit d'en bas](fr/02_hazran/204_felt_from_below.md)
 - [Chapitre 205 — Le temps décalé](fr/02_hazran/205_misaligned_time.md)
+- [Chapitre 206 — Pas un abandon](fr/02_hazran/206_not_abandonment.md)
 
 ### Spanish
 
@@ -1362,7 +1367,8 @@ Each language directory is organized by arc:
 - [Capítulo 203 — Sostener los rostros](es/02_hazran/203_keeping_faces.md)
 - [Capítulo 204 — Lo que se sintió desde abajo](es/02_hazran/204_felt_from_below.md)
 - [Capítulo 205 — El tiempo desalineado](es/02_hazran/205_misaligned_time.md)
+- [Capítulo 206 — No un abandono](es/02_hazran/206_not_abandonment.md)
 
 ## Status
 
-Public archive currently published through Episode 205 in Korean, Episode 205 in English, Episode 205 in Japanese, Episode 205 in French, Episode 205 in Chinese (Simplified), and Episode 205 in Spanish.
+Public archive currently published through Episode 206 in Korean, Episode 206 in English, Episode 206 in Japanese, Episode 206 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
