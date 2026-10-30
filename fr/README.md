@@ -214,3 +214,4 @@ Chapitres publics actuels :
 - [Chapitre 204 — Ce qu'on sentit d'en bas](02_hazran/204_felt_from_below.md)
 - [Chapitre 205 — Le temps décalé](02_hazran/205_misaligned_time.md)
 - [Chapitre 206 — Pas un abandon](02_hazran/206_not_abandonment.md)
+- [Chapitre 207 — Une crainte différente](02_hazran/207_different_dread.md)

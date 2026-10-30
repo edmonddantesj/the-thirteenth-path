@@ -303,6 +303,7 @@ Each language directory is organized by arc:
 - [204. 아래에서 느낀 것](ko/02_hazran/204_felt_from_below.md)
 - [205. 어긋난 시간](ko/02_hazran/205_misaligned_time.md)
 - [206. 버림이 아닌](ko/02_hazran/206_not_abandonment.md)
+- [207. 다른 공포](ko/02_hazran/207_different_dread.md)
 
 ### English
 
@@ -516,6 +517,7 @@ Each language directory is organized by arc:
 - [204. Felt from Below](en/02_hazran/204_felt_from_below.md)
 - [205. Misaligned Time](en/02_hazran/205_misaligned_time.md)
 - [206. Not Abandonment](en/02_hazran/206_not_abandonment.md)
+- [207. Different Dread](en/02_hazran/207_different_dread.md)
 
 ### Japanese
 
@@ -729,6 +731,7 @@ Each language directory is organized by arc:
 - [第二百四話　下から感じたもの](ja/02_hazran/204_felt_from_below.md)
 - [第二百五話　ずれた時間](ja/02_hazran/205_misaligned_time.md)
 - [第二百六話　捨てたのではない](ja/02_hazran/206_not_abandonment.md)
+- [第二百七話　異なる恐怖](ja/02_hazran/207_different_dread.md)
 
 ### Chinese
 
@@ -1155,6 +1158,7 @@ Each language directory is organized by arc:
 - [Chapitre 204 — Ce qu'on sentit d'en bas](fr/02_hazran/204_felt_from_below.md)
 - [Chapitre 205 — Le temps décalé](fr/02_hazran/205_misaligned_time.md)
 - [Chapitre 206 — Pas un abandon](fr/02_hazran/206_not_abandonment.md)
+- [Chapitre 207 — Une crainte différente](fr/02_hazran/207_different_dread.md)
 
 ### Spanish
 
@@ -1371,4 +1375,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 206 in Korean, Episode 206 in English, Episode 206 in Japanese, Episode 206 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 207 in Korean, Episode 207 in English, Episode 207 in Japanese, Episode 207 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
