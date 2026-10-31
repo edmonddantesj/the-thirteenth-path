@@ -215,3 +215,4 @@
 - [第二百五話　ずれた時間](02_hazran/205_misaligned_time.md)
 - [第二百六話　捨てたのではない](02_hazran/206_not_abandonment.md)
 - [第二百七話　異なる恐怖](02_hazran/207_different_dread.md)
+- [第二百八話　目的地ではなく徴](02_hazran/208_omen_not_destination.md)

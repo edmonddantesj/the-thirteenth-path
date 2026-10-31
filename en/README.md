@@ -215,3 +215,4 @@ Current public English release:
 - [Episode 205. Misaligned Time](02_hazran/205_misaligned_time.md)
 - [Episode 206. Not Abandonment](02_hazran/206_not_abandonment.md)
 - [Episode 207. Different Dread](02_hazran/207_different_dread.md)
+- [Episode 208. Omen, Not Destination](02_hazran/208_omen_not_destination.md)

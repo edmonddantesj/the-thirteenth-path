@@ -215,3 +215,4 @@ Chapitres publics actuels :
 - [Chapitre 205 — Le temps décalé](02_hazran/205_misaligned_time.md)
 - [Chapitre 206 — Pas un abandon](02_hazran/206_not_abandonment.md)
 - [Chapitre 207 — Une crainte différente](02_hazran/207_different_dread.md)
+- [Chapitre 208 — Un présage, pas une destination](02_hazran/208_omen_not_destination.md)
