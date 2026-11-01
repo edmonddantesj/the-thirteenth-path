@@ -305,6 +305,7 @@ Each language directory is organized by arc:
 - [206. 버림이 아닌](ko/02_hazran/206_not_abandonment.md)
 - [207. 다른 공포](ko/02_hazran/207_different_dread.md)
 - [208. 목적지가 아닌 징조](ko/02_hazran/208_omen_not_destination.md)
+- [209. 방향이 되다](ko/02_hazran/209_sign_becomes_direction.md)
 
 ### English
 
@@ -520,6 +521,7 @@ Each language directory is organized by arc:
 - [206. Not Abandonment](en/02_hazran/206_not_abandonment.md)
 - [207. Different Dread](en/02_hazran/207_different_dread.md)
 - [208. Omen, Not Destination](en/02_hazran/208_omen_not_destination.md)
+- [209. Sign Becomes Direction](en/02_hazran/209_sign_becomes_direction.md)
 
 ### Japanese
 
@@ -735,6 +737,7 @@ Each language directory is organized by arc:
 - [第二百六話　捨てたのではない](ja/02_hazran/206_not_abandonment.md)
 - [第二百七話　異なる恐怖](ja/02_hazran/207_different_dread.md)
 - [第二百八話　目的地ではなく徴](ja/02_hazran/208_omen_not_destination.md)
+- [第二百九話　徴が方向になる](ja/02_hazran/209_sign_becomes_direction.md)
 
 ### Chinese
 
@@ -1163,6 +1166,7 @@ Each language directory is organized by arc:
 - [Chapitre 206 — Pas un abandon](fr/02_hazran/206_not_abandonment.md)
 - [Chapitre 207 — Une crainte différente](fr/02_hazran/207_different_dread.md)
 - [Chapitre 208 — Un présage, pas une destination](fr/02_hazran/208_omen_not_destination.md)
+- [Chapitre 209 — Le signe devient direction](fr/02_hazran/209_sign_becomes_direction.md)
 
 ### Spanish
 
@@ -1379,4 +1383,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 208 in Korean, Episode 208 in English, Episode 208 in Japanese, Episode 208 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 209 in Korean, Episode 209 in English, Episode 209 in Japanese, Episode 209 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
