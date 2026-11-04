@@ -1,287 +1,212 @@
 # Chapitre 161 — Briser la structure
 
-Après l'échec du troisième sauvetage,
-longtemps, personne ne fut le premier à élever la voix dans la couche cachée.
+Après l'échec du troisième sauvetage, au fond de la couche cachée, longtemps, personne ne fut le premier à élever la voix.
 
-Tout le monde était épuisé,
-tout le monde pensait déjà à la suite,
-et tout le monde savait que cet échec n'était pas un simple échec.
+Kael détacha le poing du sol. Il y avait de la poussière dessus, mais il ne l'essuya pas ; la seconde main de récupération, la jambe tendue, se tenait adossée au mur.
 
-C'est pourquoi, lorsque Jiwoo ouvrit la bouche,
-on eut plutôt l'impression que cela avait éclaté trop tard.
+Le petit enfant dormait à côté du genou d'Aka, la main de Han Jiwoo serrée dans la sienne. Han Jiwoo ne retira pas sa main et resta longtemps assise à côté.
 
-« Quand même. »
+Puis, quand elle la retira, l'enfant remua. Aka glissa sa manche dans la main de l'enfant, et l'enfant serra la manche. Han Jiwoo se leva et, sans s'adosser au mur, se tint au milieu de la pièce.
 
-Sa voix n'était pas forte.
-Pourtant, personne dans la pièce ne put prendre ces mots à la légère.
+« Mais. »
 
-Jiwoo, sans s'adosser au mur,
-parla debout, tout simplement.
+Ce n'était pas une voix forte, pourtant la première main de récupération releva la tête, et l'œil optique de la vieille machine vint se poser sur elle.
 
 « Je comprends. »
-« Pourquoi on ne peut pas tous les extraire d'un coup,
-pourquoi jusqu'ici on n'a pu en ramener que quelques-uns à la fois,
-pourquoi la moindre erreur nous tue tous. »
 
-Ces mots ne commencèrent pas comme une attaque contre les mains de récupération.
-C'était plutôt si juste
-que cela faisait d'autant plus mal.
+C'était Han Jiwoo.
 
-Elle comprenait vraiment.
+« Pourquoi on ne peut pas les sortir d'un coup, pourquoi jusqu'ici on n'a pu en ramener que quelques-uns à la fois, pourquoi la moindre erreur nous fait tous mourir. »
 
-Serakion se refermait vite,
-la couche cachée disposait de peu de mains,
-les anciennes machines ne pouvaient pas tenir indéfiniment,
-et un seul faux mouvement pliait humains et machines ensemble.
+La première ne détourna pas les yeux, et la seconde regarda son genou.
 
-Tout cela, elle l'avait déjà vu de ses yeux,
-éprouvé dans sa chair.
+« Mais. »
 
-« Quand même. »
-dit-elle de nouveau.
-« Au fond de moi, je ne comprends pas. »
+Elle reprit.
 
-Cette phrase fendit la pièce en deux.
+« Avec le cœur, je ne comprends toujours pas. »
 
-« Pourquoi on n'a jamais pu vivre autrement. »
-« Pourquoi on les laisse continuer à les emmener comme ça,
-pourquoi il faut que les quelques-uns revenus vivants nous suffisent pour tenir jusqu'à la prochaine fois. »
-« Pourquoi ces enfants doivent toujours regarder d'abord du côté de ceux qui restent. »
+Luhai releva la tête à côté des enfants, et la main de Sern s'arrêta sur le panneau d'enregistrement.
 
-La dernière phrase sonna presque comme un reproche qu'elle s'adressait à elle-même.
+« Pourquoi on n'a jamais pu vivre autrement que comme ça. Pourquoi on les laisse continuer à les emmener, et pourquoi il faut tenir jusqu'à la fois suivante avec les quelques-uns revenus vivants. Pourquoi ces enfants doivent toujours regarder d'abord le côté qui reste. »
 
-Jiwoo n'était pas en train de blâmer les mains de récupération ou les anciennes machines.
-Elle se tenait plutôt du côté le plus terrible.
+Sur les derniers mots, sa voix baissa. Sans regarder vers les enfants, elle regarda le panneau mural, les quatre points flous et les cinq points nets, puis la vieille machine.
 
-Elle savait pourquoi les humains s'effondraient ainsi,
-elle savait pourquoi les anciennes machines ne pouvaient en ramener que quelques-uns à la fois,
-elle savait que ces machines aussi étaient des êtres abandonnés, luttant pour ne pas s'éteindre.
+« Pourquoi tout le monde a-t-il vécu si longtemps comme ça, uniquement à tenir à l'intérieur de cette structure ? »
 
-Les humains, elle les comprenait.
-Les machines, elle les comprenait.
+Personne ne répondit tout de suite.
 
-Mais comprendre les deux à la fois
-ne rendait pas cette réalité moins atroce.
-Au contraire, ne pouvoir facilement en vouloir à personne
-rendait le tout encore plus difficile à supporter.
+Pendant que la première ouvrait la bouche puis la refermait, la seconde ne quittait pas son genou des yeux. Le vieil homme de Hazran regarda la plaque qu'il avait dressée, et l'homme sans petit frère croisa les doigts.
 
-« Pourquoi tout le monde a-t-il tenu si longtemps,
-en ne faisant que survivre à l'intérieur de cette structure ? »
+La vieille machine se détacha du pilier et fit un pas en avant, mais elle ne vint pas jusque devant Han Jiwoo : elle s'arrêta devant le panneau mural, sous les quatre points flous.
 
-Après que ces mots eurent résonné,
-personne ne répondit aussitôt.
+« Il y a eu un long temps où, en dehors de tenir, il ne restait rien. »
 
-Non pas qu'il n'y eût pas de réponse,
-mais parce que ce n'était pas une réponse facile à formuler.
+La voix était basse, et ne s'accéléra pas.
 
-Un long moment plus tard,
-l'une des anciennes machines dit très bas :
+« Nous avons été rejetés par l'ordre de là-haut. Mis au rebut, coupés, repoussés du côté de ce dont on n'avait plus besoin. Il n'y avait pas que les humains. »
 
-« Il y a eu une longue époque
-où il ne restait rien d'autre que tenir. »
+Quand elle regarda sa propre jambe, qui faisait du bruit à chaque pas, Han Jiwoo regarda cette jambe elle aussi.
 
-Cette voix n'était pas défensive.
-Ce n'était pas non plus une excuse.
+« Nous, de notre côté, nous tentions de ne pas nous éteindre, et les humains, du leur, de ne pas être emmenés. Les deux ne pouvaient pas y arriver chaque fois à la même vitesse. »
 
-C'était simplement la voix d'un être qui avait contemplé le même fait pendant trop longtemps.
+Han Jiwoo se tut, et la vieille machine ne s'approcha pas davantage.
 
-« Nous avons été rejetés par l'ordre d'en haut. »
-« Mis au rebut,
-coupés,
-repoussés du côté de ceux dont on n'avait plus besoin. »
-« Les humains n'étaient pas les seuls dans ce cas. »
+Dans l'ombre du côté du mur, une autre vieille machine parla. Une machine qui ne s'était jamais avancée. La lumière de son œil optique était faible et clignotait sur un autre rythme que la lampe jaune.
 
-Jiwoo regarda cette machine.
+« Les humains nous faisaient pitié. Ils nous font encore pitié. C'est pour cela que nous l'avons fait. Mais nous aussi, nous avions notre vie. Nous aussi, chaque fois, nous devions calculer d'abord comment ne pas nous éteindre. »
 
-La machine poursuivit.
+Quand la machine eut fini de parler et baissa son œil optique, la lumière éclaira la poussière du sol. Devant ses pieds, la poussière s'était amassée. Des pieds qui n'avaient pas bougé depuis longtemps.
 
-« Nous, de notre côté, nous avons lutté pour ne pas nous éteindre,
-et les humains, de leur côté, pour ne pas être emmenés. »
-« Les deux n'ont pas toujours pu avancer à la même vitesse. »
+Han Jiwoo regarda ces pieds, regarda sa propre main, puis la serra.
 
-C'étaient des mots froids,
-mais d'une franchise brutale.
+La seconde parla depuis le mur.
 
-Les anciennes machines non plus n'avaient pas vécu en héros.
-Elles aussi étaient des rebuts abandonnés,
-des êtres qui avaient à peine prolongé leur existence avec les fonctions qui leur restaient avant de s'éteindre.
+« C'est pareil pour nous trois. »
 
-Et dans ce combat,
-elles avaient sauvé des humains,
-les avaient cachés,
-récupérés,
-avaient retenu des souvenirs.
+« Quoi donc ? »
 
-Mais cela ne signifiait pas qu'elles n'avaient pas eu leur propre vie, leur propre survie à assurer.
+« Moi aussi, je calcule d'abord la jambe. Avant de regarder un enfant, je regarde la jambe. Est-ce que je peux y aller. Si je ne peux pas, je ne regarde pas. »
 
-Tenir jusqu'à ce que la lumière s'éteigne.
-Rester jusqu'à ce que la mémoire se coupe entièrement.
-Maintenir ne fût-ce qu'une ligne de connexion en vie.
+Han Jiwoo la regarda, mais la seconde regardait son genou.
 
-C'était pour elles à la fois la vie et le but.
+« Et aujourd'hui ? »
 
-Une autre ancienne machine ajouta très bas :
+« Aujourd'hui, j'ai regardé. C'est pour cela que je n'ai pas pu sortir de la brèche. »
 
-« Les humains nous faisaient pitié. »
-« Ils nous font encore pitié. »
-« C'est pour cela que nous avons continué. »
-« Mais nous aussi, nous avions notre vie. »
-« Nous aussi, à chaque fois, nous devions d'abord calculer comment ne pas nous éteindre. »
+« Et si tu étais sortie ? »
 
-Ces phrases, plutôt que d'attiser la colère de Jiwoo,
-la firent s'enfoncer plus profondément encore.
+« Si j'étais sortie, aucun des deux ne serait revenu. Ni cet enfant, ni moi. C'est pour cela que je regarde d'abord la jambe. Pas parce que j'en ai envie. »
 
-Parce que ces mots aussi étaient justes.
+Han Jiwoo regarda cette jambe. La jambe tendue, la jambe à la goupille tordue. Pendant qu'elle n'ajoutait rien, la première posa une fois la main sur l'épaule de la seconde, puis la retira.
 
-Il n'y avait pas que de la malveillance ici.
-Il y avait des êtres tous abandonnés,
-chacun luttant pour que sa propre lumière ne s'éteigne pas.
+Han Jiwoo demanda, les dents serrées :
 
-Jiwoo comprit ce fait.
-Et c'est pourquoi elle souffrait davantage.
+« Alors on continue comme ça ? On en ramène quelques-uns vivants, on attend encore pour les quelques suivants, on en perd encore quelques-uns, et on tient encore jusqu'à la suite ? »
 
-Si seuls les humains avaient été à plaindre, la direction aurait au moins été simple.
-Si les machines avaient été simplement froides, on aurait pu tenir en les haïssant.
+Pendant que la première ne trouvait pas de réponse et que Kael regardait les lignes du sol, Ater se retourna à la sortie. La vieille machine se tenait devant le panneau mural, et l'œil optique de la machine du côté du mur éclairait le sol.
 
-Mais ici, les humains étaient à plaindre,
-et les machines aussi.
-Tous avaient été abandonnés,
-tous s'étaient un peu retenus les uns les autres.
+Sern ferma le panneau d'enregistrement.
 
-Voilà pourquoi cette tragédie était si profonde — non pas à cause de la faute de quelqu'un,
-mais à cause d'une structure qui ne leur avait jamais permis de vivre autrement.
+Pendant que le silence s'étirait, la lampe jaune clignota deux fois.
 
-Jiwoo, les dents serrées, demanda :
-
-« Alors on continue comme ça pour toujours ? »
-« On en ramène quelques-uns vivants,
-on attend encore pour les prochains,
-on en perd encore quelques-uns,
-et on tient jusqu'à la fois suivante ? »
-
-Cette fois, la première main de récupération ne put répondre.
-
-Kael non plus,
-Ater non plus,
-les anciennes machines non plus —
-face à ces mots, personne n'osa reprendre la parole.
-
-Car c'était la réalité d'alors,
-et en même temps, il était vrai que tous étaient déjà épuisés par cette réalité.
-
-C'est à cet instant précis
-que Luhai dit, sur un ton parfaitement ordinaire :
+Luhai parla depuis les enfants. L'enfant au tournevis dormait appuyé contre son genou ; sans bouger, il parla sans même baisser la voix.
 
 « Alors il suffit de briser cette structure, non ? »
 
-La pièce se fit silencieuse.
+Personne ne répondit. Seorin le regarda, Aka le regarda. La première aussi le regarda.
 
-Si simple
-que personne ne sembla comprendre sur le coup.
+Luhai, avec l'air de ne pas comprendre pourquoi tout le monde le regardait, répéta :
 
-Luhai, l'air de ne pas bien saisir pourquoi sa remarque paraissait étrange,
-adossé au mur, reprit :
+« Si on continue à en sortir quelques-uns de là-dedans, il en restera toujours. Alors il suffit de casser ce qui fait qu'il en reste, non ? »
 
-« Si on continue à en extraire quelques-uns de là-dedans,
-il en restera toujours. »
-« Alors il suffit de briser ce qui fait qu'il en reste, non ? »
+Il regarda l'enfant sur son genou ; comme l'enfant remuait, Luhai lui cala mieux l'épaule.
 
-Dans ces mots, l'essentiel précédait la logique.
+La seconde détacha son dos du mur, fit un pas, puis s'y adossa de nouveau.
 
-Jusqu'à présent, tous n'avaient compté que quatre choses.
-D'où extraire, combien ramener,
-comment ne pas mourir, comment gagner le prochain battement de temps.
-Ils n'étaient pas allés plus loin.
+Ater, faisant un pas de la sortie vers l'intérieur de la pièce, fut le premier à parler.
 
-Mais Luhai demandait simplement
-pourquoi ils continuaient à chercher la réponse à l'intérieur même de cette structure.
+« Face à l'ordre, ne faire que sortir des gens, c'est au fond une façon de tenir en acceptant cet ordre. »
 
-Si Serakion divisait les humains, les lisait, les élevait, les renvoyait,
-et ne leur permettait de tenir qu'en en extrayant quelques-uns à la fois,
-à quoi bon continuer à prendre cette structure pour acquise ?
+Il parlait très bas.
 
-Ater fut le premier à réagir.
+Han Jiwoo le regarda.
 
-Plus exactement,
-il ne put cacher que ces mots s'emboîtaient trop vite en lui.
+« Tu parles de ta maison ? »
 
-« Extraire des gens face à l'ordre,
-c'est en fin de compte une façon de tenir tout en acceptant cet ordre. »
-dit-il très bas.
+« Je parle de ma maison. »
 
-Kael leva lui aussi les yeux.
+C'était Ater.
 
-Son regard ne portait déjà plus sur les chemins, mais sur la structure.
+« Et d'ici aussi. »
+
+Des lignes du sol, Kael leva les yeux vers le plafond, vers le mur, vers la brèche.
 
 « Pour que ce soit possible, »
-dit-il bas,
-« il faut couper non pas les lignes de déplacement vers le haut,
-mais l'axe qui les maintient. »
 
-Jiwoo releva lentement la tête.
+Il parlait bas.
 
-Sa colère ne s'était pas encore apaisée,
-elle était toujours peinée,
-elle ne comprenait toujours pas avec le cœur.
+« il ne faut pas couper les lignes de déplacement vers le haut, mais l'axe qui les maintient. »
 
-Mais c'est précisément pour cela
-que les mots de Luhai s'enfoncèrent plus profondément.
+« Et l'axe, il est où ? »
 
-Jusqu'ici, ils avaient toujours été du côté de ceux qui sauvent.
-Mais peut-être
-que sauver seul ne suffirait plus.
+Seorin posa la question.
 
-Il faudrait peut-être ébranler la structure même qui les maintenait dans cet état
-pour que les mots « tous les sauver » deviennent enfin possibles.
+« Je ne sais pas. Je n'ai regardé que les chemins. Pas l'axe. »
 
-L'une des anciennes machines, après un très long silence, dit :
+« Alors il faut regarder. »
 
-« C'est… une chose que nous n'avons pas su faire depuis longtemps. »
+Kael hocha la tête.
 
-Ces mots ne contenaient pas seulement de la défaite.
-Il s'y mêlait une honte infime,
-et le tremblement de qui entrevoyait cette possibilité pour la première fois depuis longtemps.
+Han Jiwoo leva lentement la tête et regarda Luhai. Luhai, avec l'air de ne pas savoir jusqu'où ses mots étaient allés, regardait l'épaule de l'enfant.
+
+« Luhai. »
+
+« Quoi ? »
+
+« Tu as raison. »
+
+Luhai la regarda, ouvrit la bouche, puis la referma.
+
+L'œil optique de la vieille machine, longtemps silencieuse, alla de Han Jiwoo à Luhai, de Luhai à l'enfant appuyé contre son genou, à la machine du côté du mur, puis au panneau mural.
+
+« Cela… c'est une chose que nous n'avons pas su faire depuis longtemps. »
+
+C'était la vieille machine.
+
+La main de la vieille machine monta au-dessus des points flous du panneau mural, puis redescendit sans les toucher.
 
 « C'est peut-être pour cela, »
-poursuivit la machine très bas,
-« que depuis votre arrivée,
-nous nous surprenons à regarder de nouveau vers l'extérieur. »
 
-Cette phrase frappa différemment chaque personne présente dans la pièce.
+Elle poursuivit très bas.
 
-Pour les mains de récupération,
-cela signifiait que ce qu'ils avaient fait jusqu'ici n'était pas faux, mais peut-être pas suffisant.
+« que depuis votre arrivée, nous nous surprenons à regarder de nouveau dehors. »
 
-Pour Jiwoo,
-cela signifiait que sa colère n'avait peut-être pas été un simple gaspillage d'émotion,
-mais le signal qu'il fallait vraiment changer de direction.
+L'œil optique de la machine du côté du mur remonta du sol vers la brèche. La lumière était faible, mais elle atteignit le mur fermé.
 
-Pour Kael,
-c'était le point de départ d'une tactique visant non plus à sauver des gens, mais à abattre la structure elle-même.
+La première regarda cette lumière, et la seconde aussi. Ni l'une ni l'autre ne dit rien.
 
-Pour Ater,
-c'était la certitude que démanteler l'ordre était la question qu'il pouvait poser à la fois à son propre monde et à Serakion.
+Quand Han Jiwoo se rassit à côté du petit enfant de nouveau endormi, la main de l'enfant lâcha la manche d'Aka. Han Jiwoo prit cette main, et Aka baissa sa manche.
 
-Et pour Luhai,
-qui ne comprenait toujours pas bien pourquoi tout le monde se compliquait autant la vie,
-c'était la sensation que quelque chose, en tout cas, commençait à bouger dans la bonne direction.
+Kael s'accroupit devant les lignes du sol. Trois lignes, une encoche. Deux lignes, une courte encoche. Un point, une ligne. Puis il regarda la vieille machine.
 
-À la fin de ce jour,
-chaque être à l'intérieur de la couche cachée portait en soi une forme différente d'espoir.
+« C'est fini. »
 
-Il n'y avait pas encore de plan.
-Il n'y avait pas encore de chemin.
-Il manquait encore bien trop de choses.
+La vieille machine hocha la tête.
 
-Mais au moins,
-lorsqu'ils pensaient à la suite,
-la seule réponse qui leur venait à l'esprit n'était plus « combien de plus peut-on en extraire ? ».
+Kael effaça les lignes une à une du plat de la main ; la poussière se souleva, puis retomba. Le sol fut vide. Il regarda le sol vide sans rien y tracer.
 
-Peut-être pour la première fois,
-ils commençaient à déplacer leur cœur
-du côté où l'on sauve les gens
-vers celui où l'on met fin à la structure même
-qui ne leur avait jamais permis de vivre autrement.
+Seorin regarda son propre point resté sur ce sol vide : un point à moitié effacé. Elle l'effaça aussi du pied.
+
+« Redessine. Demain. »
+
+Sern rouvrit le panneau d'enregistrement et écrivit une ligne, mais ne la montra à personne.
+
+Sion regarda sa planchette à points. Le troisième point toujours vide, la longue encoche, et un point en dehors. Il serra la planchette contre sa poitrine et ne la posa pas.
+
+Le vieil homme de Hazran retourna la plaque qu'il avait dressée et regarda. Un trait. Puis il demanda à Sion :
+
+« Briser, ça veut dire quoi ? »
+
+Sion le regarda.
+
+« Je ne sais pas encore. Mais ce n'est pas la même chose que ramener des enfants. »
+
+« En ramener davantage ? »
+
+« Faire qu'on ne les emmène plus. »
+
+Le vieil homme redressa la plaque. La face vide tournée vers le mur, le trait tourné vers le mur.
+
+Luhai cala encore l'épaule de l'enfant, mais l'enfant ne se réveilla pas. Il regarda ses propres mains. Deux.
+
+« J'ai dit un truc de travers ? »
+
+Il posa la question à Aka.
+
+Aka secoua la tête.
+
+Même pendant que la lampe jaune clignotait, l'œil optique de la machine du côté du mur regardait encore la brèche. Sur un autre rythme que la lampe jaune, sans s'éteindre.
 
 ---
 

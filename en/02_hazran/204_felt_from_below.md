@@ -26,7 +26,7 @@ Aka did not answer right away; she closed her eyes and opened them.
 
 "Not all the way. But… the thing that was holding on broke. Something that kept things tied for a really long time."
 
-The first and the second lifted their heads at the same moment, and the wall-side machine lifted its own. The three of them looked at the same place, at the ceiling and what lay above it.
+The first, the second and the wall-side machine, the three of them, looked at the same place, at the ceiling and what lay above it.
 
 "You feel it too?"
 
@@ -202,7 +202,7 @@ Luhai hoisted a collapsed panel.
 
 "Don't just stand there gaping. If you made it out alive, put your hands to work first."
 
-It was rough, but no one took it as rough. More hands moved.
+More hands moved.
 
 People.
 Machines.

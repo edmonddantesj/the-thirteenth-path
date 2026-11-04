@@ -286,7 +286,7 @@ Luhai looked over at the board.
 
 "Three days."
 
-That was what Han Jiwoo had said to the second's leg, and Sion wrote it on the board.
+That was what Han Jiwoo had said earlier while looking at the second's leg, and Sion wrote it on the board.
 
 ---
 

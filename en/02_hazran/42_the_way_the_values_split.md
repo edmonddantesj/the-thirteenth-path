@@ -20,8 +20,6 @@ This time he pointed at Luhai's hand.
 
 "The talk, separately."
 
-What that meant, in the end, was that they would split the people too.
-
 Sion asked at once.
 
 "Who are you planning to set apart?"
@@ -36,8 +34,6 @@ Sion said, low.
 "That's your side talking,"
 Nasim answered.
 "In here, everything's still a price."
-
-The sentence was unpleasant, but it wasn't wrong. Not inside the order of this inner room, at least.
 
 Ater spoke quietly.
 
@@ -224,16 +220,14 @@ Harun said.
 "That's the part I believe least,"
 Sion muttered.
 
-"I told you trust is expensive,"
+"Trust is expensive to begin with,"
 Nasim said.
-
-The words were still galling, but strangely, they now sounded like the law of this whole place.
 
 Kael stepped into the passage.
 
 Each time his foot met a metal plate it gave a low, dull sound. One. Two. Three. One of the inner people touched the grooves with a fingertip and counted along. Not aloud. Only the finger moved.
 
-At nine, the counting hand stopped.
+At nine, the counting finger stopped.
 
 Kael pushed aside the tent at the passage's end and walked straight on, three more steps out. On the last step a breath of outside heat rushed in once, and as the tent dropped back down it cut his back from view.
 

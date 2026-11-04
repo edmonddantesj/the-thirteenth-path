@@ -2,13 +2,7 @@
 
 Era el mismo campo de batalla, pero la dirección en que se movían los cuerpos de la gente había cambiado.
 
-Hasta hacía un momento eran manos para frenar lo que se les venía encima. A partir de ahora se volvieron manos que calculaban qué prolongar y hasta dónde para sacar a quién desde lo más hondo del interior hacia fuera.
-
-La pelea para aguantar y la pelea para enviar parecen iguales, pero por dentro son del todo distintas. La primera consiste en aferrarse a una línea; la segunda, en abrir un camino renunciando a esa línea.
-
-Harún fue quien llevó esa diferencia al cuerpo antes que nadie.
-
-Volvió a mirar el pasillo de la primera fila que acababa de levantar y retiró hacia atrás a tres personas de Hazran.
+Harún volvió a mirar el pasillo de la primera fila que acababa de levantar y retiró hacia atrás a tres personas de Hazran.
 
 —Vacíen eso.
 Lo dijo en voz baja.
@@ -23,8 +17,6 @@ Harún lo cortó.
 —Dejen que se abra y, a cambio, arréenlos hacia aquí.
 
 Lo que señaló era un pasillo lateral que no llevaba directamente a la sección del casco. Estrecho, con dos recodos, con el armazón de los toldos de arriba y unas placas de metal bajas superpuestas: un camino donde al enemigo que entrara le costaría ganar velocidad.
-
-Hazran ya no frenaba al enemigo: había entrado en la fase de decidir por dónde dejarlo entrar.
 
 En el instante en que lo vio, a Sion se le enfrió el pecho de golpe.
 
@@ -50,8 +42,6 @@ Lo preguntó el de al lado.
 Harún respondió sin apartar la mirada.
 
 —Si disparan antes, buscan otro camino.
-
-Era la frase exacta. Lo que hacía falta ahora no era asustar al enemigo, sino engañarlo para que entrara por el camino que ellos querían.
 
 En ese momento, a lo lejos, volvió a sonar metal desgarrándose.
 
@@ -135,7 +125,7 @@ Al final lo dijo ella.
 
 —Aquí, eso es avisar.
 
-Seorin chasqueó la lengua. Pero no insistió más. Sabía que no había por dónde insistir.
+Seorin chasqueó la lengua. No insistió más. Sabía que no había por dónde insistir.
 
 Oyendo aquel ir y venir, Sion supo que el combate acababa de cambiar de naturaleza una vez más.
 
@@ -155,17 +145,15 @@ La mujer preguntó con voz temblorosa.
 
 —Si vamos hacia dentro, ¿vivimos?
 
-La pregunta era tan tardía y tan sincera que por un instante la respuesta se le atascó.
+Ante esa pregunta, por un instante la respuesta se le atascó.
 
 Seorin cortó en su lugar.
 
 —Si te quedas aquí, te mueres antes.
 
-Era una frase cruel. Pero en aquella situación no había otra más exacta.
-
 La mujer se mordió los labios y asintió.
 
-Después de empujar a los tres hacia dentro, al volver a salir, Sion miró otra vez el pasillo por el que acababa de pasar.
+Después de empujar a los dos hacia dentro, al volver a salir, Sion miró otra vez el pasillo por el que acababa de pasar.
 
 Hasta hacía un momento era el camino por el que sacaban a la gente. Ahora el final de ese camino estaba abierto y no había nadie.
 

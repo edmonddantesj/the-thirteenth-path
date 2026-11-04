@@ -4,7 +4,7 @@ As the short rest drew to an end, movement inside the old layer began to settle 
 
 The children were moved farther inside, and the wounded lay in a makeshift safe sector. The collapsed routes and the gaps in the structure were blocked again as best they could be, and at every patched spot one of the Hazran sat with their back against it.
 
-The three from the floor had been moved to the wall, and cloth covered them. No one asked who had covered them. When one splayed arm stuck out from under the cloth, one of the old machines pulled the cloth back over that arm.
+The five from the floor had been moved to the wall, and cloth covered them. No one asked who had covered them. When one splayed arm stuck out from under the cloth, one of the old machines pulled the cloth back over that arm.
 
 A child who had drawn the smiling mouth sat in front of the cloth. The child didn't lift it, only kept a hand on the cloth where the arm was. A Hazran woman tried to take the child away, but the child wouldn't go, so she sat down beside them.
 

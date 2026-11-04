@@ -28,8 +28,6 @@ Le visage blême, Luhai parla pourtant d'une voix étrangement ferme.
 Il continua.
 « Maintenant, c'est ceux qui montent qui gagnent. »
 
-On aurait dit les mots d'un enfant devenu adulte beaucoup trop tôt, et Sion eut un instant un pincement dans la poitrine.
-
 « Tu as appris ça où ? »
 C'était Sion qui demandait.
 
@@ -59,7 +57,7 @@ Ce n'était pas un grand tremblement. Les doigts de la main droite se replièren
 
 Sion connaissait ce geste.
 
-Le jour où ils étaient entrés pour la première fois à l'intérieur, quand Seorin avait pris un demi-pas de retard dans le couloir, elle avait fait exactement la même chose. Sion avait fait semblant de ne pas voir. Il pensait que c'était juste. À ce genre de moment, pour Seorin, faire semblant de ne pas voir valait mieux qu'un réconfort.
+Seorin avait déjà fait cela une fois. Sion avait alors fait semblant de ne pas voir. Il pensait que c'était juste. À ce genre de moment, pour Seorin, faire semblant de ne pas voir valait mieux qu'un réconfort.
 
 Aujourd'hui encore, c'étaient les mêmes doigts.
 
@@ -156,8 +154,6 @@ Il répondit pourtant.
 
 « Alors je tiens autant. »
 
-Ces simples mots étaient étrangement plus cruels encore. Personne n'avait le loisir d'en être ému, et ils sortaient comme une évidence.
-
 Sion fit deux pas, puis se retourna.
 
 « Vingt et quelques. »
@@ -172,7 +168,7 @@ Haroun l'écouta et ne répondit rien.
 
 Puis il regarda de nouveau devant lui.
 
-C'était la troisième fois aujourd'hui que Sion entendait ce silence. Une fois quand il avait demandé s'il y avait onze barricades, une fois quand il avait demandé s'ils pourraient faire monter tout le monde en onze fois, et maintenant.
+C'était la troisième fois aujourd'hui que Sion entendait ce silence. Une fois quand il avait demandé s'il y avait onze barricades, une fois quand il avait demandé combien de temps il pouvait tenir, et maintenant.
 
 Les trois étaient le même genre de silence.
 

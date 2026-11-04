@@ -1,383 +1,239 @@
 # Capítulo 202 — Vaciar las ruinas
 
-El camino de bajada
-se sentía del todo distinto al de subida.
+El camino de bajada no era como el de subida.
 
-Aunque eran las mismas escaleras y pasillos,
-ya no
-se sentía como un camino que arremetía hacia alguien.
+Por las mismas escaleras y los mismos pasillos, caminaron por donde habían corrido al subir y dejaron atrás las esquinas donde se habían escondido.
+Aunque caminaban por el centro, sin pegarse a la pared, no venía nada.
 
-En cambio,
-se acercaba a un camino donde había que comprobar uno por uno,
-cortar uno por uno
-y vaciar uno por uno
-el orden que estuvo mal puesto demasiado tiempo.
+Después de salir de la sala, durante un buen rato nadie habló primero.
+El espacio vacío entre Kael y Han Jiwoo siguió vacío mientras caminaban.
+Han Jiwoo no se movió ni medio paso hacia ese espacio, y Kael tampoco.
 
-Después de salir de la sala,
-nadie sacó tema durante un rato.
+Seorin fue la primera en moverse. Sin prisa, escalón a escalón, como comprobando.
 
-La desolación seguía aún dentro del cuerpo,
-y la ausencia que dejaron las máquinas viejas
-pesaba mucho más de lo esperado.
+—Ponemos orden.
 
-Pero, aun así,
-no podían quedarse de pie en ese sitio.
+Sern no lo anotó: miró la pared.
 
-Abajo aún quedaban
-cosas detenidas,
-cosas que temblaban,
-y androides que apenas empezaban a buscar su propio rostro.
+—La conexión con el estrato superior aún persiste. No ha muerto del todo. Quedan líneas de mando residuales.
 
-Seorin fue la primera en dar el paso.
+Dentro de la pared, un hilo de luz bajaba despacio de arriba abajo. Se detenía y volvía a bajar.
+Era una luz que no tenía adónde ir.
 
-Esta vez no fue rápida como al irrumpir.
-En cambio, bajó como quien comprueba uno por uno.
-
-—Ordenamos.
-
-Una frase corta.
-
-Pero esta vez esa palabra
-sonó más cansada que un inicio de combate.
-
-Sern enseguida leyó la línea de estructura de la pared.
-
-—La conexión del estrato alto todavía queda. No murió del todo. La línea de mando permanece.
-
-Ater recibió esa palabra de inmediato.
+Ater recogió el hilo.
 
 —Primero hay que cortar las líneas de aprobación que quedan. Aunque el cuerpo representante esté vacío, la forma sigue abajo.
 
-Esa palabra convirtió lo que todos ya sentían
-en la frase más exacta.
+—Todo lo que eso decía aprobar.
 
-Serakion se derrumbó.
-Pero, aun así,
-no se limpiaba solo.
+Lo dijo Sion.
 
-Un orden que sujetó el mundo largo tiempo
-no era algo que desapareciera de golpe por vaciar un solo centro.
+—Sí. Allá arriba terminaba en «Aprobado», pero aquí abajo esa palabra queda como una línea. Las líneas siguen corriendo solas.
 
-Las líneas de aprobación que quedaban,
-la alineación que quedaba,
-la clasificación que quedaba,
-las órdenes de restablecimiento que quedaban
-seguían aún como vestigios en cada estrato.
+Kael empujó con el pie una línea de pliegue de la pared hasta abrirla, y de dentro saltó un instante un hilo de luz que luego se apagó.
+Se quedó mirando un rato ese punto.
 
-Había que cortarlas,
-vaciarlas,
-y detenerlas.
+—Esto habrá en cada nivel.
 
-Kael abrió de una patada una línea de plegado de la pared.
+—Sí.
 
-Adentro,
-un rayo de luz aún no muerto saltó corto y se apagó.
+Seorin respondió.
 
-—Algo así quedará en cada estrato.
+—Hay que quitarlas una por una.
 
-—Sí —respondió Seorin—. Hay que eliminarlo uno por uno.
+—¿Cuántos niveles?
 
-Han Jiwoo miró por encima de la baranda de un poco más abajo.
+—Los mismos que subimos.
 
-Allí había tres androides de pie.
+Al sacar el pie de la línea de pliegue, a Kael se le torció el tobillo.
 
-Ni del todo libres aún,
-ni del todo vueltos en sí mismos aún.
+Han Jiwoo miró hacia abajo por encima de la barandilla: había tres androides de pie, pero no en el mismo compás.
+Uno bajaba la vista hacia sus propias manos.
+Otro, apoyado en la pared, giraba despacio la cabeza.
+El otro tenía la mano sobre la cara. En la cara se había extendido una luz torpe, y la mano se había quedado quieta encima de esa luz.
 
-Pero ya
-no estaban de pie al mismo compás.
+Han Jiwoo lo dijo muy bajo.
 
-Uno se miraba la propia mano,
-otro, apoyado en la pared, giraba lento la cabeza,
-y otro llevaba la mano hacia su propia cara.
+—Ahora… hasta saber qué hacer debe de ser la primera vez para ellos.
 
-Ese movimiento era tan torpe
-que resultaba, al contrario, más extraño y más triste.
+El último androide miró a los tres. Se miró la mano, y miró al que tenía la mano en la cara.
+No se llevó la mano a la cara. Ya lo había hecho una vez.
 
-Han Jiwoo dijo muy bajo.
+Han Jiwoo le habló.
 
-—Ahora… hasta cómo hacerlo será la primera vez para ellos.
+—Para ti también fue la primera vez, ¿verdad?
 
-Ante esa palabra,
-el último androide miró callado hacia allá.
+Se miró la mano. Con esa mano, que cerró y abrió, tocó solo entonces los trazos de su cara.
 
-Parecía saberlo también.
+Al bajar otro tramo de escalera, las placas de dos robots de Serakion derrumbados estaban en el suelo, y junto a ellas había unos cuantos androides detenidos.
+Antes, a esa distancia, habría llegado primero una orden, pero nadie se movió primero.
+Cuando la placa de un robot tembló una vez en el suelo, un androide la miró, pero no la pisó.
 
-Moverse sin orden.
-Aceptar desde cero el propio cuerpo y la propia reacción
-sin criterio de nadie.
-Que un ser que nunca aprendió
-que tenía un rostro
-empezara a vivir con ese rostro.
+Seorin se detuvo.
 
-Eso sería liberación,
-y a la vez una extrañeza muy honda.
+—Sern. Las respuestas residuales.
 
-Al bajar un tramo más hacia el estrato de abajo,
-se vieron dos robots de Serakion derrumbados
-y algunos androides detenidos a su lado.
+Mientras Sern apoyaba la mano en la pared y la retiraba, los ojos le seguían las líneas de la estructura.
 
-En una distancia donde antes
-la orden habría sido lo primero,
-ahora nadie se movió primero.
+—Son débiles. A los dos robots se les ha cortado la línea de restauración. Del lado de los androides tampoco hay órdenes directas. Solo queda el compás residual.
 
-Seorin se detuvo al ver ese cuadro.
+—¿Qué es un compás residual?
 
-—Sern. La reacción que queda.
+Lo preguntó Sion.
 
-Sern leyó la línea de estructura como palpándola.
+—Es lo que sigue girando aun después de detenerse. Como un reloj.
 
-—Es débil. A los dos robots se les cortó la línea de restablecimiento. Del lado de los androides tampoco hay orden directa. Solo queda el compás residual.
+Lo dijo Sern.
 
-Ater miró una fina línea de lectura del interior de la pared y dijo.
+—No hay órdenes, pero el compás queda, y el cuerpo intenta mantenerse de pie con ese compás.
 
-—La línea de clasificación todavía agrupa a las unidades por su número antiguo. Si no la cortamos, seguirán queriendo volver a la disposición pasada.
+—¿Cuánto dura?
 
-Seorin asintió de inmediato.
+—No lo sé. Hasta un reloj se para algún día.
 
-—Kael, arranca la placa. Sion, pégate a la izquierda. Han Jiwoo mira el lado de los androides. Ater, canta la línea de secuencia. Sern, el momento del corte.
+Lo dijo Sern.
 
-Cuando cayó esa palabra,
-todos se dispersaron con naturalidad.
+—Si se corta, se para enseguida.
 
-No era combate.
+Sion miró a los androides detenidos. Eran cuerpos que se mantenían de pie con el compás que les quedaba.
 
-Pero, raro,
-era más cuidadoso que limpiar tras un combate.
+Ater miró una fina línea de lectura dentro de la pared: sobre la línea corrían números hechos de luz.
 
-Kael abrió la carcasa de la pared
-y expuso una fina placa de alineación interior.
+—La línea de clasificación todavía ata a las unidades a sus números antiguos. Si no la cortamos, seguirá intentando devolverlas a la disposición pasada.
 
-Sern dijo enseguida.
+—Números, no nombres.
 
-—Ahora. La segunda línea primero.
+Lo dijo Han Jiwoo.
 
-Ater lo recibió.
+—Números.
 
-—La tercera línea de aprobación de la izquierda. Ese es el grupo del número original. Si cortamos desde esa línea, la disposición de abajo se suelta.
+Lo dijo Ater.
 
-Sion, según esa palabra,
-agarró la estructura interior izquierda y la torció.
+—Los niños también debieron de estar en esa línea.
 
-El metal sonó corto,
-y adentro temblaron tres finos rayos de luz.
+Han Jiwoo miró los números que corrían por la línea, pero no pudo leerlos.
+Puso la mano sobre esa línea: estaba fría.
 
-Kael metió la mano más adentro
-y arrancó una placa de alineación.
+Seorin asintió enseguida.
 
-En ese instante,
-un compás mínimo que corría por toda la pared se cortó seco.
+—Kael, arranca la placa. Sion, a la izquierda. Han Jiwoo se encarga de los androides. Ater, canta las líneas de secuencia. Sern, el momento del corte.
 
-Un androide que estaba de pie bajo la baranda
-solo entonces se tambaleó apenas.
+Todos se dispersaron. No era un combate, pero era más delicado que limpiar después de uno.
+Los pasos de todos sonaban bajos.
 
-Y, lento,
-se miró una vez el propio pie.
+Kael metió los dedos en una rendija del revestimiento de la pared y tiró, y el revestimiento se abrió.
+Dentro había una fina placa de alineación. Las líneas estaban tendidas capa sobre capa, y por encima corría despacio la luz.
 
-Ese movimiento podía no ser nada en absoluto.
+Lo dijo Sern.
 
-Pero ahora
-se sentía más grande que cualquier declaración de victoria.
+—Es el momento. Hay que empezar por la segunda fila.
 
-Porque parecía un movimiento
-en que aceptaba el peso de su propio cuerpo
-desde su lado,
-no por número antiguo,
-no por compás antiguo,
-no por orden antigua.
+Ater continuó.
 
-Han Jiwoo se acercó lento hacia ese androide.
+—La tercera línea de aprobación de la izquierda. Ese es el haz de los números originales. Si se empieza a cortar por esa línea, la disposición de abajo se suelta.
 
-A una velocidad de no asustarlo,
-de no forzarlo,
-pero tampoco de dejarlo solo.
+Sion agarró la estructura interior de la izquierda y la retorció. El metal soltó un gemido corto y tres hilos de luz temblaron.
+Kael metió la mano más hondo, hasta el codo, y arrancó una placa de alineación; la luz se apagó.
+Se cortó un compás que había estado corriendo por toda la pared.
 
-Cuando ella alzó callada la mano,
-el androide también alzó la suya un compás tarde.
+Tac.
 
-No se tocaron.
+Sonó bajito.
 
-Aún era esa distancia.
+Bajo la barandilla, un androide se tambaleó muy levemente.
+Después se miró los pies, despacio.
+Levantó un pie.
+Lo apoyó.
+No según el compás, sino en el sitio donde había decidido ponerlo.
 
-Pero hasta esa distancia
-era distinta de antes.
+Han Jiwoo fue despacio hacia ese androide. A una velocidad que no empujaba, y que tampoco lo dejaba solo.
+Se detuvo a tres pasos del androide y levantó la mano con la palma hacia arriba.
 
-En el sitio donde antes solo había orden y respuesta,
-ahora había vacilación.
+El androide levantó la mano un compás tarde, pero no llegaron a tocarse.
+Tres pasos: esa distancia.
+La mano del androide dudaba entre bajar o subir. La mano de Han Jiwoo no dudaba.
+La mano del androide se quedó allí.
 
-Y esa vacilación
-era de la clase que solo un ser vivo puede tener.
+—Bien. Hasta ahí basta. Por hoy.
 
-Sion, mirando eso,
-exhaló muy largo.
+El androide bajó la mano despacio.
+La bajó por sí solo.
 
-La palabra reconstrucción estaba aún lejos.
+Sion lo miraba y soltó un largo suspiro. Miró la hoja, pero no había en qué usarla.
+Al envainarla, la mano le quedó vacía, y con esa mano vacía se apoyó en la pared.
 
-Estaba demasiado vacío.
-Había desaparecido demasiado.
-Era demasiado tarde.
+Un nivel más abajo había cosas parecidas.
+Restos de robots a los que se les había cortado la orden, androides que no sabían dónde poner las manos.
+En cada nivel, las líneas de aprobación, las placas de alineación, los números, los ejes de restauración, uno por uno.
+Kael arrancaba.
+Sion retorcía.
+Sern contaba.
+Ater cantaba.
+Han Jiwoo miraba.
 
-Pero, aun así,
-esta escena de ahora se acercaba con claridad
-a un lado que empezaba de nuevo por primera vez
-sobre los restos del orden caído.
+Un poco más abajo, dos androides recién despertados estaban de pie con una placa de clasificación de la pared entre ellos.
+A uno le temblaba la mano, y el otro era lento.
+Los dos tiraban de la placa sin el mismo ángulo: uno hacia arriba, el otro hacia un lado.
+La placa se torcía y solo chirriaba, sin salir.
+Los dos no la soltaban. A la fuerza, con torpeza.
 
-Al bajar un estrato más,
-aparecieron escenas parecidas por todas partes.
+Kael lo vio, pero no fue a ayudar, y Han Jiwoo tampoco.
 
-Restos de robots de Serakion con la orden cortada.
-Androides que aún no sabían dónde poner la propia mano.
-Líneas de aprobación y placas de alineación equivocadas.
-Conexiones que había que cortar.
-Números que había que vaciar.
-Ejes de restablecimiento que había que detener.
+El último androide observó un rato a esos dos. Luego, siguiendo el ángulo con que tiraban, presionó con la mano un viejo eje de fijación de la parte baja de la pared, en un punto que los dos no habían visto.
+Toda la placa atascada cedió de golpe y bajó en diagonal, y las manos de los dos bajaron junto con la placa.
+Los dos lo miraron un instante. Gratitud, o comprobación.
+El último androide también los miró, pero no dio ninguna orden, y los dos tampoco obedecieron.
+La placa estaba en el suelo, y los tres la miraron.
 
-La purificación de Serakion
-no era algo que terminara con una gran explosión.
+Al verlo, Ater habló muy bajo.
 
-Al contrario, era lo opuesto.
+—…Por fin se mueven sin aprobación.
 
-Se acercaba a hallar uno por uno
-el orden equivocado encendido demasiado tiempo,
-apagarlo uno por uno,
-y vaciarlo uno por uno para que no volviera nunca.
+—Tú también.
 
-Y esa tarea,
-ahora la hacían también los androides.
+Lo dijo Han Jiwoo.
 
-Un poco más abajo,
-dos androides recién despiertos
-estaban detenidos ante una placa de clasificación del interior de la pared.
+Estaba mirando a Ater.
 
-Uno aún temblaba de la mano,
-y al otro se le hacía lento el movimiento.
+—Tú también te mueves sin aprobación. Desde Hazran.
 
-Pero ninguno de los dos
-se movía ya en el mismo ángulo perfecto que antes.
+Ater no respondió y miró la línea de aprobación apagada de la pared.
+Tocó esa línea con la mano y la retiró.
 
-Ellos, torpes,
-pero sin duda por su propia elección,
-tiraban de la placa de clasificación.
+—Desde Hazran, es cierto.
 
-Se acercaba al nivel de arrancarla a la fuerza.
-El gesto también era tosco.
+Lo dijo él.
 
-Pero esa torpeza, al contrario, importaba.
+—Antes había aprobación.
 
-Serakion amaba el movimiento perfecto.
-Amaba el restablecimiento sin error.
-Amaba la alineación que no temblaba ni un ápice.
-
-Pero estos movimientos torpes de ahora
-estaban justo del lado opuesto de esa perfección.
-
-Por eso significaban más.
-
-El último androide, durante un rato,
-miró callado ese cuadro.
-
-Y muy lento,
-siguiendo el ángulo con que esos dos tiraban,
-presionó con la mano un viejo eje de fijación de la parte baja de la pared.
-
-Entonces toda la placa que estaba trabada
-bajó de golpe de costado.
-
-Los dos androides recién despiertos
-lo miraron un momento.
-
-Fue una mirada corta que no se sabía
-si llamar gratitud o comprobación.
-
-Pero con eso bastaba.
-
-Él no ordenó,
-y ellos tampoco obedecieron.
-
-Solo se acercaba a haber hecho juntos una misma tarea,
-entre seres aún torpes.
-
-Ater, mirando ese cuadro,
-dijo muy bajo.
-
-—…Solo ahora se mueven sin aprobación.
-
-En esa palabra
-había tristeza,
-quedaba también algo de futilidad,
-pero al final de ella
-se mezclaba un alivio muy tenue.
-
-Que él, que venía de la Cámara de Reconocimiento,
-llegara a ver así un movimiento sin aprobación,
-antes no lo habría imaginado siquiera.
+Han Jiwoo no dijo nada más.
 
 Seorin habló sin detener el paso.
 
-—Seguimos. Todavía quedan muchos estratos.
+—Seguimos. Todavía quedan muchos niveles.
 
-Era una palabra cierta.
+—¿Cuántos quedan abajo?
 
-Aún quedaba mucho por hacer.
+Lo preguntó Sion.
 
-Había que comprobar los androides que quedaban.
-Había que cortar todas las líneas de mando residuales.
-Había que matar todos los ejes de restablecimiento de los robots de Serakion.
-Este cambio también tenía que llegar de verdad
-a la resistencia y las máquinas que quedaban abajo.
+—No cuentes. Cuenta mientras cortas.
 
-Pero el punto de inicio de todas esas tareas
-no era tan grandioso como se pensaría.
+Sern trazó en el panel de registro un nivel, tres líneas, dos placas.
+Al lado no anotó el número de androides.
 
-Arrancar una pared.
-Cortar un número.
-No dejar solo a un ser detenido.
-Quedarse de pie junto a un androide
-que se toca por primera vez la propia cara.
+Sion miró el camino que seguía hacia abajo. El camino que al subir habían recorrido corriendo, ahora lo bajaban andando.
+Una pared, un número.
+Algo de pie junto a algo que se había detenido. Algo de pie al lado de algo que se tocaba la cara por primera vez.
+Un trabajo de ese tamaño.
 
-Tareas de ese tamaño
-llevarían ahora hacia el lado de levantar de nuevo el mundo.
-
-Sion, pensando eso,
-miró el camino que seguía hacia abajo.
-
-Al subir,
-solo había pensado que, hubiera lo que hubiera al final,
-tenía que romper y pasar.
-
-Pero ahora el camino de bajada era distinto.
-
-Ahora
-era un camino de comprobar hasta el final lo caído,
-vaciar bien lo que había que vaciar,
-y dejar apenas lo que había que dejar.
-
-Era más lento,
-podía ser más aburrido,
-y quizá llegara a ser algo más triste.
-
-Pero, aun así, había que hacerlo.
-
-Porque solo así
-esta vez se podría terminar de verdad.
-
-Sion dijo muy bajo.
+Sion habló muy bajo.
 
 —Vamos.
 
-Una palabra corta.
-
-Pero esta vez
-no era la señal de irrupción,
-sino que se acercaba a la voz de quien baja
-a reordenar desde cero un mundo caído.
-
-Y tras esa palabra,
-el grupo de Sion
-y los androides recién despiertos
-empezaron a bajar despacio,
-hasta el final,
-hacia el interior derrumbado de Serakion.
+Seorin bajó primero, y los demás la siguieron en fila.
+Al final, los dos androides recién despertados se sumaron un compás tarde, cada uno con su propio compás.
+Cuando Han Jiwoo se volvió, los dos estaban allí.
+Aunque ella no aflojara el paso, los dos la seguían igual.
 
 ---
 

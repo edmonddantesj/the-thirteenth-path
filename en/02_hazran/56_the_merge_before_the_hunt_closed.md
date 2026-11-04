@@ -39,15 +39,13 @@ Hearing that, Han Jiwoo glanced to the side for the first time.
 
 "Not bad."
 
-It was a short remark. But to Sion that one word sounded strangely loud. On a board like this one, Han Jiwoo taking someone else's calculation on the spot meant, at the very least, that the line Sern was watching right now was one to trust.
-
 Sion closed his hand tighter around the ember.
 
 Sern's eyes, Kael's craft, Han Jiwoo's piloting—all of it had begun to move with this one ember as its reference. Not as a score sheet taken off the race board, but as a formation for getting the hand that held the real thing out alive.
 
 Behind them, the dark-red glider was recovering its line again.
 
-It was seasoned, all right. It had lost the flow twice already and still hadn't died outright. One of the glider's panels had been torn off and the rider behind had been thrown hard by the shoulder once, but the lead pilot held onto the line to the end. Only, it was no longer the one tailing them at its leisure as it had at the start. The teams around the ember had grown to two, and now it was the one that had to decide which to tear into first.
+It was seasoned, all right. It had lost the flow twice already and still hadn't died outright. One of the glider's panels had been torn off and the rider behind had been thrown hard by the shoulder once, but the lead pilot held onto the line to the end. Only, it was no longer the one tailing them at its leisure as it had at the start. The teams that might be holding the ember had grown to two, and now it was the one that had to decide which to tear into first.
 
 "They will bite Han Jiwoo's pair first,"
 Sern said, low.
@@ -207,11 +205,6 @@ Instead of answering, Sion hugged the ember in deeper.
 Behind them the dark-red glider closed in again,
 beside them Kael and Sern's glider took an angle to rejoin below,
 and above, the hands outside the arena were beginning to catch the scent of the breakaway line more and more.
-
-And Sion knew.
-
-What came next was not a simple merge.
-From now on, the two teams holding the real thing had to decide how to run together.
 
 Sion looked once at the empty line ahead.
 

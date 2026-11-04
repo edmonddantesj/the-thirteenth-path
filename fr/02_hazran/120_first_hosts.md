@@ -1,231 +1,233 @@
-# Chapitre 120 — Les premiers hôtes
+# Chapitre 120 — Le premier accueil
 
-Lorsque le vaisseau s'arrêta complètement,
-la première sensation n'était pas un soulagement.
+Quand le vaisseau s'immobilisa tout à fait, ce qui vint en premier fut le silence.
 
-C'était le silence.
+Ce n'était pas le silence de Hazran. Là-bas, c'était le silence qui reste après l'effondrement ; ici, c'était un silence où rien ne s'était effondré. La coque ne fit même pas le bruit qu'elle fait en refroidissant ; Han Jiwoo l'attendit, mais il ne vint jamais.
 
-Une espèce de calme totalement différente de celle d'Hazran.
+Elle garda la main sur la barre et regarda longtemps par le hublot.
 
-Là-bas, c'était le silence laissé après l'effondrement.
-Ici, c'était le silence laissé après que tout avait été excessivement organisé.
+L'intérieur de la structure annulaire était assez vaste pour accueillir dix vaisseaux, et ce vaisseau-ci y était seul. Il s'était arrêté au centre exact de cette largeur, et Han Jiwoo n'avait jamais réglé la barre ainsi. L'inclinaison de la coque, la longueur du sol argenté qu'on voyait en contrebas, tout semblait mesuré à la règle.
 
-Le genre de calme où même le bruit de la respiration
-serait trop dur pour cet espace.
+« Ce n'est pas moi qui l'ai arrêté. »
 
-Jiwoo gardait sa main sur le gouvernail,
-regarder dehors pendant un long moment.
+C'était Han Jiwoo.
 
-L’intérieur de la structure annulaire était beaucoup plus large que prévu.
-Mais avant l'arrivée du sentiment de largeur
-l'inconfort que même cette largeur semble calculée et effacée par quelqu'un.
+« Je sais. »
 
-L'endroit où ils s'étaient arrêtés.
-L'angle d'inclinaison de la coque.
-La longueur du sol argenté visible en dessous – le tout d’une précision troublante.
+Seorin lui répondit.
 
-Luhai marmonna doucement.
+Luhai marmonna à voix basse.
 
-« Même le stationnement n'est pas agréable ici. »
+« Même pour se garer, ici, c'est désagréable. »
 
-Cela aurait dû être drôle.
-Personne n’a ri.
+Personne ne rit ; Kael faillit rire, puis se retint, et le coin de ses lèvres monta avant de retomber.
 
-Parce que c'était vrai.
+Sern lisait les valeurs extérieures ; il parla brièvement.
 
-Ici, même en s'arrêtant
-ne semblait pas être le résultat de leur propre choix.
+« Nous sommes immobilisés. »
 
-Sern a lu les valeurs extérieures et a parlé brièvement.
+Ater demanda :
 
-« Enfermé. »
+« Sommes-nous attachés ? »
 
-demanda Ater.
+Sern lut encore un instant avant de répondre.
 
-« Physiquement lié ? »
+« Pas physiquement. Mais si nous tentons de partir, cela sera lu aussitôt. »
 
-Sern lut encore un moment, puis répondit.
+Han Jiwoo tira un peu sur la barre, mais la coque ne bougea pas, et pas davantage quand elle tira plus fort. Quand elle la lâcha, ses paumes étaient moites.
 
-« Pas physiquement. »
-« Mais essayez de partir et cela sera lu immédiatement. »
+« Ça ne bouge pas. »
 
-Ces mots ne ressemblaient même pas à une menace.
-Ils étaient plus proches de la délivrance sèche d'un fait trop évident dans ce monde.
+« Nous ne sommes pas attachés. »
 
-Aka, regardant par la fenêtre, dit très bas.
+Sern le répéta.
 
-« Ils nous ont laissé entrer. »
+« Il n'existe simplement aucune voie prête à nous laisser passer. »
+
+Han Jiwoo regarda Sern, mais Sern regardait le panneau d'enregistrement.
+
+Aka regardait au-dehors ; elle dit très bas :
+
+« On nous a fait entrer. »
 
 Sion la regarda.
 
-Aka continua sans tourner les yeux.
+Aka poursuivit sans détourner les yeux.
 
-« Ils n'ont pas encore dit un seul mot, »
-« mais on a déjà l'impression qu'ils nous ont placés à l'intérieur. »
+« Personne n'a encore rien dit, et c'est déjà comme si on nous avait rangés à l'intérieur. »
 
-Cette phrase rendit l’air plus froid à l’intérieur de la coque.
+Les gens de Hazran assis à l'entrée du couloir se levèrent ; Seorin leva la main pour leur faire signe de se rasseoir. Ils ne se rassirent pas, et Seorin baissa la main.
 
-Ensuite,
-au plus profond de la structure annulaire,
-de fins et longs faisceaux de lumière se sont rallumés une fois de plus en séquence.
+C'est alors qu'au fond de la structure annulaire, de longs filets de lumière s'allumèrent une fois encore, l'un après l'autre.
 
-Ce qui ressemblait à de simples signaux il y a quelques instants
-ressemblait désormais à un éclairage de scène, définissant l'ordre d'entrée de quelqu'un.
+Un par un.
+À intervalles égaux.
 
-Et entre ces lumières,
-des machines d'une forme jamais vue auparavant sortirent lentement.
+Le chemin qu'ils traçaient sur le sol argenté s'achevait juste sous l'écoutille de ce vaisseau.
 
-Ils ne ressemblaient pas à des plates-formes d'armes.
-Mais ils ne ressemblaient pas non plus à des machines civiles.
+Et entre ces lumières, des machines d'une forme encore jamais vue s'avancèrent lentement.
 
-Trop lisse.
-Trop complexe.
-Chaque mouvement retenu jusqu'à l'excès.
+Elles étaient six, en trois rangs de deux. Leurs pieds ne faisaient aucun bruit sur le sol, et on ne leur voyait aucune arme. Leur surface n'avait pas une jointure, et leurs bras ne se balançaient pas quand elles marchaient.
 
-Le plus étrange de tous,
-même s'ils ne montraient aucun armement,
-ils dégageaient un sentiment de rang plus distinct que n’importe quelle arme.
+Sern compta.
 
-Sion comprit dès qu'il les vit.
+« Elles sont six. Elles ne sont pas armées. Pour ce qui est visible. »
 
-Ce ne sont pas de simples gardes.
-Ils sont plus proches de la *formalité* de ce monde.
+« Pour ce qui est visible. »
 
-La machine à l’avant avait des proportions proches d’un châssis haut et élancé en termes humains.
-Mais avant que ne vienne le sentiment de ressembler à une forme de vie
-l'inconfort que ces proportions semblaient choisies pour mettre quelqu'un à l'aise.
+Ater le répéta.
 
-L’endroit où aurait dû se trouver un visage était excessivement lisse.
-Le grain de lumière qui le traversait n'était pas un regard…
-c'était plus proche d'un effet de surface bien conçu.
+La machine de tête était mince, et elle dépassait un homme d'une tête. Là où aurait dû se trouver un visage, tout était lisse. Un frémissement de lumière y coulait lentement, s'arrêtait, puis coulait de nouveau.
 
-Beau.
-Mais cette beauté n’était pas destinée à croiser le regard d’un être vivant.
+Luhai fixa ce visage lisse, puis détourna les yeux.
 
-Seorin a dit, très bas.
+« Elle a pas d'yeux, mais on dirait qu'elle regarde. »
 
-« Comme une lame qui a seulement appris à sourire. »
+Kael lui répondit.
 
-Cette comparaison était si précise
-personne ne pouvait dire autre chose tout de suite.
+« C'est sûrement qu'elle regarde. »
 
-L'appareil de tête inclina la tête vers le vaisseau, très courtoisement.
+Seorin dit très bas :
 
-Et une voix basse et douce,
-avec une prononciation raffinée à l'excès,
-résonnait dans la coque.
+« Comme une lame qui n'a appris qu'à sourire. »
 
-« À la coque externe qui a atteint Serakion, »
-dit la voix,
-« nous vous adressons un salut différé. »
+Han Jiwoo regarda Seorin. Seorin regardait le hublot ; Han Jiwoo y reporta les yeux à sa suite, et l'endroit où la machine de tête s'était arrêtée se trouvait exactement à dix pas sous l'écoutille.
+
+La machine de tête inclina la tête vers le vaisseau. Ni profondément ni à peine, mais elle mit longtemps à se pencher puis à se redresser.
+
+Puis une voix basse et lisse résonna jusque dans la coque. Le son n'était pas passé par le réseau de transmission du vaisseau : Sern regarda le panneau d'enregistrement, mais aucun indicateur de réception ne s'y affichait.
+
+« À la coque extérieure qui a atteint Serakion, »
+
+prononça la voix,
+
+« nous transmettons un salut différé. »
 
 Un court silence.
 
-Ce nom,
-ce n'est plus une faible annonce venant de loin,
-était maintenant clairement prononcé pour la première fois par la bouche d'un être appartenant à ce monde.
+Les lèvres d'Aka formèrent « Serakion », sans qu'aucun son n'en sorte.
 
-« Votre coque a atteint le seuil par une méthode imprévue. »
-« Néanmoins, l'entrée est autorisée pour le moment. »
+« Votre coque a atteint le seuil d'une manière non prévue. L'entrée est néanmoins autorisée pour le moment. »
 
 Le visage de Luhai se durcit.
 
-*Autorisé.*
+« Autorisée. »
 
-Ce seul mot seul
-donnait l'impression de presque tout dire sur le genre de monde dont il s'agissait.
+Han Jiwoo lâcha tout à fait la barre et posa les deux mains sur ses genoux. Ses doigts étaient crispés ; elle ouvrit les mains, qui se refermèrent d'elles-mêmes.
 
-Pas le bienvenu – autorisation.
-Pas de réunion – traitement.
+La machine de tête continua.
 
-Jiwoo sentit le bout de ses doigts se resserrer.
+« Jusqu'à ce que la vérification de stabilité de votre coque et des entités embarquées soit achevée, nous vous guiderons vers la zone de rétention désignée. »
 
-La machine principale a continué.
+Kael murmura très bas :
 
-« Jusqu'à ce que le contrôle de stabilité de votre coque et de vos entités embarquées soit terminé,
-nous vous guiderons vers une zone de confinement désignée. »
+« Rétention ? »
 
-Kael marmonna très bas.
+Les yeux d'Ater allèrent vers Sern, mais Sern regardait le panneau d'enregistrement.
 
-« Confinement ? »
+« Ils connaissent le nombre d'entités à bord. »
 
-Le regard d'Ater s'assombrit un instant, froid.
+Sern l'annonça.
 
-Ces mots étaient polis,
-ce qui les rendait encore plus mal à l'aise.
+« Le panneau d'enregistrement affiche seize. Il l'affiche depuis le début. »
 
-À l'intérieur de *nous vous guiderons*,
-il n'y avait aucune option du tout.
+Personne n'avait dit seize à qui que ce soit de cette planète. Quand Han Jiwoo se retourna vers les gens à l'entrée du couloir, ils se regardèrent les uns les autres, et un enfant déplia les doigts pour compter, puis renonça.
 
-Sern a lu brièvement les valeurs,
-puis il parla presque à voix basse.
+Sern lut brièvement les valeurs, puis dit, presque dans un murmure :
 
-« Cette phrase ne tient pas compte du refus. »
+« Cette phrase ne prévoit pas de signal de refus. »
 
-Sion regardait la machine de tête par la fenêtre
-et comprit un peu plus clairement pourquoi ce monde était si effrayant.
+« Envoies-en un. »
 
-L'hostilité serait plus facile à lire.
-Mais ce n'était pas ça.
+Seorin l'ordonna.
 
-Cet endroit fait preuve de courtoisie très poliment,
-avec suffisamment d'espace inclus pour rendre l'autre côté inconfortable.
+Sern tapota le panneau d'enregistrement et attendit ; dehors, la machine resta tête inclinée, sans la moindre réaction.
 
-Aka a dit, très bas.
+« Elle ne le reçoit pas. »
 
-« Ce n'est pas une considération. »
-« Ça fait semblant d'être achevé. »
+Sern le constata.
 
-Ces mots ne s'adressaient à personne,
-pourtant, étrangement, ils semblaient viser chaque machine devant eux avec précision.
+« Ce n'est pas un refus. Elle semble ignorer qu'un tel signal puisse exister. »
 
-La machine principale, au bout d'un moment,
-recula et fit un mouvement ressemblant à un geste de côté.
+Aka dit très bas :
 
-Simultanément,
-sur le sol argenté à l'extérieur du vaisseau,
-une très fine ligne de lumière s'étendit sur toute la longueur.
+« C'est pas de la prévenance. Ça fait semblant d'être achevé. »
 
-Un guide d'une beauté excessive.
-Quelque chose en elle inspirait une résistance instinctive,
-et pourtant, si l'on posait le pied dessus, on se laissait entraîner comme par un fil.
+Sion regarda le grain de lumière qui coulait sur le visage de la machine de tête, de l'autre côté du hublot. Il posa la main sur sa poche, et le coin de la plaque de métal toucha sa paume.
 
-« Serakion fournit, »
-la voix résonna à nouveau, doucement,
-« le niveau nécessaire de courtoisie envers les entités arrivées de l'extérieur. »
+Un moment plus tard, la machine de tête recula d'un pas et leva un bras sur le côté. Le bras mit autant de temps à monter qu'à redescendre.
 
-Luhai laissa échapper quelque chose qui ressemblait presque à un rire cette fois.
+Au même instant, une très fine ligne de lumière s'alluma tout du long sur le sol argenté, hors du vaisseau.
 
-« Courtoisie. »
+La ligne partait du dessous de l'écoutille et s'enfonçait dans l'obscurité au fond de la structure annulaire ; on n'en voyait pas le bout. Elle était assez large pour que deux personnes y marchent côte à côte, pas davantage.
 
-Seorin, regardant dehors, dit très bas.
+« Serakion, envers les entités arrivées de l'extérieur, »
 
-« Ce genre de mot est le plus effrayant. »
+reprit doucement la voix,
 
-Elle avait raison.
+« fournit le degré de courtoisie nécessaire. »
 
-Dès le premier instant de la rencontre,
-ce monde était étonnamment poli.
+Luhai laissa échapper un souffle, plus proche du rire que d'autre chose.
 
-Mais cette politesse n’avait pas pour but de mettre l’autre partie à l’aise.
-C'était plus proche d'une méthode
-de confirmer, très doucement et très précisément,
-que l'autre partie était déjà entrée dans son ordre.
+« De la courtoisie, qu'elle dit. »
 
-Sion inspira lentement.
+Seorin, les yeux au-dehors, dit très bas :
 
-Serakion.
-Même après avoir appris le nom,
-ce monde ne s'était pas rapproché.
+« C'est ce genre de mot qui fait le plus peur. »
 
-Le contraire.
-Au moment où le nom est attaché,
-la seule chose qui devenait plus claire était que cet ordre froid et complexe
-était un espace avec une vraie société et de vrais propriétaires.
+Elle toucha la poignée de l'épée à sa ceinture, la lâcha, et n'y revint plus.
 
-Et le premier visage de cette société
-était bien meilleur pour faire semblant d'être gentil
-que ce à quoi on s'attendait.
+Han Jiwoo sortit sa sacoche à outils de sous la barre et l'accrocha à sa taille. Elle en tira un tournevis, le garda un instant en main, puis le remit en place.
+
+« Il faut descendre ? »
+
+Kael posa la question.
+
+Personne ne répondit ; Sern, lui, se pencha sur le panneau d'enregistrement.
+
+« L'air à l'extérieur de la coque est respirable. La température a été réglée, elle aussi. »
+
+« Pour nous ? »
+
+Han Jiwoo posa la question.
+
+« Elle a été réglée pour des humains. »
+
+Sern répondit.
+
+« C'est exactement la température d'un corps humain. »
+
+Han Jiwoo se frotta le bras. Elle n'avait pas froid. C'est pour cela qu'elle se le frotta.
+
+Ater alla jusqu'à l'entrée du couloir et se plaça devant les gens de Hazran.
+
+« Descendez en dernier. »
+
+Il s'adressait à eux.
+
+« Nous passerons devant vous. »
+
+Le vieil homme hocha la tête et prit la main de l'enfant.
+
+Seorin se plaça devant l'écoutille et posa la main sur la poignée, mais ne la tourna pas ; elle regarda derrière elle. Pendant que Sion venait à ses côtés, Han Jiwoo resserra encore une fois sa sacoche à outils, et Luhai éteignit sa lampe. Dehors, il faisait clair.
+
+Seorin tourna la poignée.
+
+La porte fit du bruit en s'ouvrant. C'était le premier son rugueux de ce vaisseau qu'ils entendaient depuis leur arrivée, et Han Jiwoo redressa les épaules.
+
+Quand l'air du dehors entra, Sion comprit qu'il n'avait aucune odeur. L'air de Hazran portait toujours quelque chose ; ici, il n'y avait rien.
+
+La ligne de lumière attendait juste sous l'écoutille.
+
+Seorin descendit la première et posa le pied sur le sol argenté, sans un bruit. Elle leva le pied et le reposa : toujours rien.
+
+Sion se plaça derrière elle. Han Jiwoo derrière lui. Sern, Ater, Kael, Luhai. Quand Aka prit place tout au bout du groupe, les gens de Hazran s'alignèrent à sa suite.
+
+L'enfant, la main dans celle d'un adulte, se tint sur le seuil. En deçà du seuil, c'était le plancher de ce vaisseau ; au-delà, l'argent. L'enfant regarda longtemps vers le bas, descendit, puis se retourna pour regarder ce vaisseau. Vu du dehors, le vaisseau était petit, et toutes ses traces de soudure se voyaient.
+
+L'enfant se détourna, toujours la main dans celle de l'adulte. La ligne de lumière commençait sous ses pieds. Pour ne pas marcher dessus, l'enfant posa le pied à côté ; l'adulte tira l'enfant sur la ligne.
+
+Sur le visage de la machine de tête, un grain de lumière coula une fois.
 
 ---
 

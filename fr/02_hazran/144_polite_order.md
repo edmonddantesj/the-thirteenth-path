@@ -1,152 +1,261 @@
 # Chapitre 144 — L'ordre poli
 
-Le deuxième arrêt de l'équipe de reconnaissance fut la couche intermédiaire où se rejoignaient les zones de vie et les zones de transit.
+Le deuxième arrêt de l'équipe de reconnaissance fut une couche intermédiaire, là où les zones de vie touchaient les zones de transit.
 
-Serakion ne découpait pas ses zones de manière brutale. Au contraire — les raccords étaient trop lisses.
+Le passage étroit s'élargit, et leurs épaules quittèrent le mur. Han Jiwoo tourna l'épaule pour regarder le pan de son vêtement, éraflé par la paroi.
 
-C'est ce qui les rendait plus dangereux.
+La cloison était mince : la lumière la traversait, mais pas le son. C'était le mur dont Sern avait parlé, le mur qui mange les sons.
 
-Où finissait la vie, où commençait la gestion, où débutait le contrôle — au premier regard, on ne le distinguait pas.
+La cloison était percée d'une fente large d'un doigt. La première main de récupération y colla son œil optique, puis recula, et Han Jiwoo y mit l'œil à son tour.
 
-Parce que tout s'enchaînait avec un naturel excessif.
+On voyait un couloir propre et des chaises de repos bien alignées, avec, sur chaque chaise, une personne assise. Quelqu'un se leva, une machine passa, et la personne se rassit. La machine ne s'était pas arrêtée, et pourtant la personne s'était rassise.
 
-La vue à travers la fine cloison ressemblait, en surface, à quelque chose de presque paisible.
+Chez les humains qui se déplaçaient derrière les machines, il n'y avait ni éclat de voix ni main qui bouscule.
 
-Des couloirs propres. Des chaises de repos bien rangées. Des humains se déplaçant en silence derrière les machines. Pas de bruit fort, pas de contrainte visible.
+Han Jiwoo recula, et Ater mit l'œil à la fente.
 
-Mais dès qu'Ater aperçut ce paysage, son visage se figea.
+Le visage figé, il parla sans s'écarter de la fente.
 
-« Ce n'est pas de la gouvernance. C'est de la mise en scène, » dit-il à voix basse.
+« Ce n'est pas de la gouvernance, c'est de la mise en scène. »
 
-La première main de récupération lui jeta un coup d'œil.
+La première main le regarda, et Ater s'écarta de la fente.
 
-Ater poursuivit sans détourner le regard.
+« Une manière d'amener ceux qui regardent à croire d'eux-mêmes que tout est en ordre. »
 
-« Un procédé qui fait croire à celui qui regarde qu'il est lui-même en ordre. »
+« Qui regarde ? »
 
-Les mots étaient courts, mais Jiwoo comprit aussitôt.
+La première main posa la question.
 
-Serakion ne se contentait pas de dissimuler l'oppression. C'était un monde qui avait réussi à faire en sorte que l'oppression ne ressemble plus à de l'oppression.
+« Ceux qui sont dedans. »
 
-L'Empire, au moins, intimidait avec des empreintes de bottes, des portes fortifiées et des lames. Ici, c'était autre chose.
+Ater répondit.
 
-Des indications polies. Une architecture belle. Des voix basses. Des quartiers d'habitation rectilignes.
+« Ceux du dehors ne peuvent pas voir. »
 
-Tout mettait les gens à l'aise, de sorte qu'ils réalisaient beaucoup plus tard à quel point ils étaient encadrés.
+Kael garda longtemps l'œil collé à la fente ; ce n'étaient pas les chaises qu'il regardait, mais le mur, les joints du mur et les lignes du plafond. Même après avoir reculé, il déplia trois doigts sans rien dire.
 
-En voyant cela, Ater sembla éprouver une aversion plus glaciale encore que face à l'Empire.
+La seconde main de récupération colla brièvement son œil à la fente, puis recula.
 
-La violence ouverte, au moins, permet de reconnaître l'ennemi facilement. Mais un système aussi poli peut amener les gens à accepter leurs chaînes comme un mode de vie.
+« Au bout de ce couloir, à gauche. »
 
-Ils progressèrent le long d'un étroit couloir d'observation qui montait légèrement, retenant leur souffle.
+Elle chuchota.
 
-En dessous, plusieurs zones humaines se chevauchaient en couches. De manière surprenante, elles n'étaient pas divisées selon la pauvreté ou la densité.
+« À droite, c'est bloqué. Depuis la dernière fois. »
 
-Certaines zones étaient excessivement lumineuses. D'autres, excessivement silencieuses. Certaines comportaient beaucoup de travail manuel. D'autres présentaient en nombre des dispositifs et des décorations qui semblaient conçus pour encourager l'expression émotionnelle.
+« C'était quand, la dernière fois ? »
 
-Jiwoo observa longuement, puis dit à voix basse.
+Han Jiwoo posa la question.
 
-« Ce n'est pas découpé selon l'endroit où les gens vivent. C'est découpé selon la façon dont on les utilise. »
+« Avant cette jambe. »
 
-C'était juste.
+Une machine passa juste derrière la cloison, devant la fente, et balaya la fente de la lumière de son visage. Les cinq s'écartèrent du mur et retinrent leur souffle.
 
-Serakion ne rassemblait pas les humains en un même lieu. Des environnements de vie entièrement différents étaient créés selon la manière dont chaque catégorie serait traitée.
+La lumière passa sur la fente sans s'arrêter, et la machine s'éloigna. Kael expira, puis tapota le mur du bout des phalanges ; le mur était épais et ne rendit aucun son.
 
-Des humains qui se servaient beaucoup de leurs mains. Des humains dont les réponses émotionnelles étaient requises. Des humains depuis longtemps dociles. Des humains encore insuffisamment adaptés.
+Retenant leur souffle, ils remontèrent le couloir d'observation vers le haut. La jambe de la seconde main fit du bruit et la première s'arrêta ; la seconde s'arrêta aussi, et ce n'est qu'une fois le bruit éteint que la première se remit en marche.
 
-Aucune étiquette inscrite en toutes lettres, mais l'espace lui-même était déjà divisé ainsi.
+Sous le couloir, les zones humaines s'étageaient, couche après couche.
 
-Kael regarda et dit très bas.
+Certaines zones étaient claires, d'autres sombres. Dans certaines, des gens qui travaillaient de leurs mains répétaient le même geste. D'autres étaient chargées de décorations et baignées d'une lumière chaude, et les gens y étaient assis et souriaient. Ils souriaient tous selon le même angle.
 
-« Conçu pour qu'une zone qui explose ne fasse pas s'effondrer les autres. »
+Han Jiwoo regarda ces zones une à une, et c'est sur la zone des mains qu'elle s'attarda le plus longtemps.
 
-La deuxième main de récupération répondit brièvement.
+« Ils n'ont pas séparé selon l'endroit où on vit. Ils ont séparé selon la façon dont on sert. »
 
-« Exact. Pour que les évasions, l'anxiété, ne se propagent pas. »
+Elle le dit à voix basse.
 
-Ces mots glaçaient.
+« Là où ils travaillent des mains, ils fabriquent quoi ? »
 
-Serakion ne se limitait pas à rassembler et contrôler les humains. Le flux même des émotions que les humains pouvaient échanger entre eux était segmenté.
+« Je ne sais pas. Je n'y ai jamais mis les pieds. »
 
-Alors la peur, la colère, l'impulsion de fuir — tout devenait difficile à transmettre en groupe.
+La seconde main répondit.
 
-Ater resta longtemps sans rien dire.
+« De dehors, on ne voit pas ce qu'ils fabriquent. On ne voit que les mains. »
 
-Puis, regardant une section plus bas, il murmura.
+Les mains que regardait Han Jiwoo, une bonne dizaine, bougeaient sur le même temps. Quatorze. Des quatorze qu'elle avait comptées, une avait un demi-temps de retard. Une machine vint se poster à côté, la main se remit en mesure, et la machine s'en alla. Han Jiwoo referma la main.
 
-« L'Empire fait plier les gens par la peur. Ici, on les habitue jusqu'à ce qu'ils gardent leur place d'eux-mêmes. »
+Kael regarda l'espace entre les zones. Entre chacune, il y avait un mur, et chaque mur avait ses joints.
 
-Cela ressemblait à des mots qu'il se disait à lui-même, et c'est pour cela qu'ils sonnaient plus vrai.
+« C'est monté pour qu'une zone qui saute n'entraîne pas toutes les autres. »
 
-Ater regardait Serakion en cet instant, et en même temps, il regardait de nouveau l'Empire.
+La seconde main répondit brièvement.
 
-Les formes étaient différentes. Mais l'essence du pouvoir enfermant les humains dans une structure — en fin de compte, la distance n'était pas si grande.
+« Exact. Pour que ni la fuite ni l'angoisse ne se propagent. »
 
-Serakion le faisait avec plus de grâce. L'Empire, avec plus de brutalité.
+Kael compta les joints. Cinq. Il déplia cinq doigts, puis les replia.
 
-Si cette seule différence suffisait à se croire d'un autre monde, c'était peut-être de la lâcheté.
+« Et l'ordre de fermeture ? »
 
-C'est alors que, dans une zone légèrement plus profonde, on aperçut plusieurs enfants humains se déplaçant en file.
+« Je ne sais pas. Je ne les ai jamais vus qu'une fois fermés. »
 
-Ils ne semblaient pas traînés de force. C'est le contraire qui frappait — un calme excessif, une habitude si installée que les observateurs en avaient le souffle coupé.
+« Et une fois rouverts ? »
 
-Devant les enfants flottait une fine ligne de guidage lumineuse. Derrière, une machine suivait à intervalle régulier.
+« Ils ne se rouvrent pas. »
 
-Et quand un enfant au bout de la file baissa les yeux vers ses propres mains, sans y penser — l'expression de Jiwoo se raidit, très légèrement.
+Kael regarda de nouveau les cinq joints, et Ater vint à côté de lui les regarder aussi.
 
-Au bout des doigts de cet enfant, une très fine couche de protection avait été appliquée.
+« Lequel se ferme en premier ? »
 
-Jiwoo déglutit lentement.
+« Celui du milieu. »
 
-« Ils entretiennent aussi les mains. »
+Kael répondit.
 
-La première main de récupération dit brièvement.
+« Ceux des côtés ensuite. Quand le milieu se ferme, les gens s'entassent des deux côtés. »
 
-« Les candidats à la montée sont d'abord préparés. »
+« Donc le milieu d'abord. »
 
-Les mots étaient secs, et c'est ce qui les rendait plus terribles.
+« Donc. »
 
-Serakion regardait les mains humaines, en lisait la valeur, et en polissait même la surface pour que cette valeur fût mieux exploitée.
+Aux yeux d'Ater, le joint du milieu ressemblait aux quatre autres ; il se fia pourtant à ce que voyait Kael.
 
-Les humains ne restaient pas tels qu'ils étaient. Ils étaient gérés vers des formes de plus en plus adaptées.
+« Et le son non plus ne passe pas ? »
 
-Ater ne quitta pas la scène des yeux un seul instant.
+« Il ne passe pas. »
 
-Si Sion avait été là, il aurait probablement lu en premier si cette expression était de la colère ou de la désillusion.
+La seconde main répondit.
 
-Jiwoo put le deviner à sa place.
+« On pourrait hurler à côté qu'on ne le saurait pas. »
 
-Ater était en colère devant ces enfants, et en même temps, quelque part dans sa mémoire, il revoyait la manière dont l'Empire avait dressé les gens dès l'enfance.
+Le mur que regardait Kael semblait mince, mais quand il y posa la main, il le trouva épais.
 
-Cette émotion allait plus profond que la simple hostilité.
+« Cette fente, qui l'a faite ? »
 
-C'était le froid auquel on ne peut échapper — celui qui ne naît que lorsqu'on aperçoit, à l'extérieur, quelque chose qui ressemble à son propre monde.
+« Je ne sais pas. Elle était là avant nous. Large d'un doigt. »
 
-La première main de récupération reprit, très bas.
+Kael glissa son propre doigt dans la fente : il entra jusqu'à la deuxième phalange, et Kael le retira.
 
-« Plus loin à l'intérieur, on atteint la zone où l'on fait monter. »
+Ater resta longtemps silencieux. Il regardait un des secteurs d'en bas, la zone chargée de décorations où les gens souriaient ; il finit par parler à voix basse.
 
-Kael demanda aussitôt.
+« L'Empire fait plier les genoux par la peur. Ici, on habitue les gens jusqu'à ce qu'ils gardent leur place d'eux-mêmes. »
 
-« Effectifs de garde ? »
+Han Jiwoo le regarda.
 
-La deuxième main de récupération répondit.
+« Lequel vaut mieux ? »
 
-« Moins qu'il n'y paraît. Mais la fermeture est bien plus rapide. »
+Ater ne faisait que regarder la zone des sourires ; il ne répondit pas tout de suite.
 
-Ces mots résumaient une fois de plus toute la structure de Serakion.
+« Je ne sais pas. »
 
-La force affichée paraît faible. La structure de verrouillage est rapide.
+Il répondit.
 
-La gouvernance est toujours plus forte par le blocage que l'on perçoit trop tard que par la menace visible.
+« Je croyais le savoir. »
 
-Jiwoo regarda de nouveau la zone inférieure. Ater fixa le fond, mâchoire verrouillée. Kael dessinait déjà dans sa tête où se formeraient les lignes de retraite et les lignes de coupure.
+Han Jiwoo ne demanda rien de plus.
 
-Et à cet instant, la reconnaissance cessa d'être une simple reconnaissance.
+Dans une zone un peu plus profonde, quelques enfants humains se déplaçaient en file bien alignée.
 
-Ils regardaient désormais comment Serakion laissait les gens vivre.
+Ils étaient cinq ; devant eux, une ligne lumineuse de guidage, derrière eux, une machine. L'écart restait le même, et les pieds des enfants touchaient le sol au même instant.
 
-Et cette vie était l'endroit où la politique de ce monde se trouvait le plus profondément gravée.
+Ils n'avaient pas l'air d'être traînés. Aucun ne se retournait, aucun ne regardait sur le côté.
+
+Au bout de la file, un enfant baissait les yeux sur ses mains en marchant.
+
+Han Jiwoo colla son visage à la fente, compta les cinq et regarda ces mains. Il n'y avait qu'un enfant pour regarder ses mains ; les quatre autres regardaient devant.
+
+Au bout des doigts, on avait appliqué quelque chose de fin, si transparent qu'on ne le voyait que dans la lumière. De la pointe des ongles jusqu'à la deuxième phalange.
+
+Han Jiwoo ravala son souffle.
+
+« Ils vont jusqu'à entretenir les mains. »
+
+La première main parla brièvement.
+
+« Ceux qu'on va faire monter, on les façonne d'abord. »
+
+« Façonner quoi ? »
+
+« Pour qu'elles ne s'abîment pas. Pour qu'elles ne deviennent pas rêches. »
+
+« Pourquoi ? »
+
+« Pour qu'elles soient belles à voir quand on s'en servira, là-haut. »
+
+Han Jiwoo s'écarta de la fente et regarda le bout de ses propres doigts, couverts de corne et de cicatrices, imprégnés d'huile. Elle mit les mains dans ses poches, puis les en ressortit, sans les cacher.
+
+Comme la file des enfants tournait au coin, l'enfant du bout de la file manqua un pas dans le tournant. Un demi-temps. La machine, derrière, posa la main sur son épaule sans pousser, puis la retira quand le pas de l'enfant fut revenu. La file disparut.
+
+Han Jiwoo s'écarta de la fente, s'adossa au mur, ferma les yeux puis les rouvrit. Quand elle recolla l'œil à la fente, le coin était vide.
+
+« Combien ? »
+
+Elle posa la question.
+
+« Combien de quoi ? »
+
+« Par jour. Comme ça. »
+
+La seconde main répondit après un temps.
+
+« Je ne les ai jamais comptés. »
+
+« Compte-les. »
+
+« Et si je compte ? »
+
+« Tu as dit que si on compte, on finit par ne plus sortir. Compte quand même. »
+
+La seconde main ne répondit pas ; la première la regarda, et alors seulement la seconde hocha la tête.
+
+« Cinq. »
+
+La seconde main le dit longtemps après.
+
+« Cinq, tout à l'heure. »
+
+« Et avant ? »
+
+« Je n'ai pas compté. »
+
+Han Jiwoo entendit le nombre cinq ; elle déplia cinq doigts, puis les replia.
+
+Ater regarda cette main.
+
+« S'il y en a cinq par jour… »
+
+« Pas par jour. »
+
+C'était la première main.
+
+« Cinq à la fois. Combien de fois par jour, je ne sais pas. »
+
+Ater se tut ; pendant ce temps, Han Jiwoo déplia de nouveau les doigts, et cette fois elle ne les replia pas.
+
+Les enfants avaient disparu, mais Ater continuait de regarder le coin.
+
+Le visage qu'elle voyait avait la bouche crispée et les yeux posés sur le coin, mais Han Jiwoo ne demanda rien.
+
+Quand la seconde main remit sa jambe en place, il y eut un bruit ; la première se retourna, et la seconde secoua la tête pour dire que ça allait. Aux yeux de Han Jiwoo, cette jambe n'allait pas. Elle ne dit rien, et pensa à l'ouvrir au prochain arrêt.
+
+La première main parla très bas.
+
+« Plus loin à l'intérieur, on arrive à la zone où l'on fait monter. »
+
+Kael posa aussitôt la question.
+
+« Combien de gardes ? »
+
+La seconde main répondit.
+
+« Moins qu'on n'en voit. Mais ça se ferme beaucoup plus vite. »
+
+« Vite comment ? »
+
+« Plus vite que vous ne courez. »
+
+Kael hocha la tête, regarda ses propres jambes, des jambes faites pour courir, puis regarda de nouveau les joints. Cinq.
+
+Han Jiwoo regarda de nouveau les zones d'en bas. Dans la zone des mains, les mains bougeaient toujours sur le même temps.
+
+Ater, la mâchoire serrée, regardait plus loin, au-delà du coin.
+
+Kael regardait tour à tour les joints et les lignes du plafond, évaluant l'ordre de fermeture. Il replia ses doigts un à un.
+Cinq.
+Quatre.
+Trois.
+
+La première main se mit en marche et la seconde suivit ; la jambe traînante racla le sol. Tandis que Han Jiwoo se plaçait à côté de la seconde main et qu'Ater suivait, Kael fut le dernier à détacher les yeux de la fente.
+
+Le couloir se rétrécit encore. Vers le haut.
 
 ---
 

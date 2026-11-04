@@ -271,9 +271,9 @@ La fila ya estaba formada. De los veintiocho, veinte estaban cortados de tres en
 
 Sion miró a esos ocho.
 
-Todos eran las manos que antes habían cavado en el montón. Tenían el dorso de las manos despellejado, y a dos les faltaban uñas.
+Casi todos eran las manos que antes habían cavado en el montón. Tenían el dorso de las manos despellejado, y a dos les faltaban uñas. Pegados a esas manos había unos cuantos niños.
 
-Antes eran once, y ahora eran ocho. Tres se habían metido en el agujero y habían salido dos, y de esos dos, uno no podía tenerse en pie y estaba sentado a un lado.
+No estaban allí todos los once que antes habían cavado en el montón. Tres se habían metido en el agujero y habían salido dos, y de esos dos, uno no podía tenerse en pie y estaba sentado a un lado.
 
 Decir que nadie había decidido quiénes serían los ocho era falso. Ya estaba decidido. Esa gente no se había puesto en la fila ni una sola vez en todo el día.
 

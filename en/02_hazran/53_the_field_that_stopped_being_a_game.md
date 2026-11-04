@@ -85,8 +85,6 @@ Seorin spoke without taking her eyes off it.
 
 "In Hazran, the one who costs the most is the one who trusts the rules. Not the one who breaks them."
 
-The words never reached Sion's ears, but they stayed in the air well enough.
-
 Nasim had not stepped back once until then. If anything, the bigger the uproar grew, the faster he read the faces around him. He could not have failed to know the board was broken. But on his face just now, calculation showed before dismay. A face weighing how to cover this collapse with words, whose responsibility to pass it to, and what, at least, to protect.
 
 Harun, by contrast, was quieter.
@@ -149,8 +147,6 @@ Han Jiwoo knew without looking back.
 
 "Hold on."
 
-The words meant don't lose the ember, and they also meant get your body ready from here on.
-
 From the north, Kael and Sern were watching the same dark-red glider.
 
 Sern said, very low,
@@ -186,11 +182,6 @@ The skiff tore out along the outside of the cracked glass layer, nearly scraping
 Behind them the dark-red glider closed in,
 off to the side Kael and Sern's glider was watching for the angle to join them on a wider line,
 and up on the viewing stand, people who had realized the rules were broken were tangled together with people still counting their money first.
-
-And Sion knew that no one could call this a race anymore.
-
-The Ember Run was not over.
-But it would no longer roll the way Hazran had first promised.
 
 The board had now stopped being a game.
 

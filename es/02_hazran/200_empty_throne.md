@@ -1,361 +1,326 @@
 # Capítulo 200 — El trono vacío
 
-La última puerta
-se abrió más callada de lo esperado.
+La última puerta se abrió en silencio.
 
-No hubo ruido de rotura.
-No hubo gran resistencia.
-No hubo fuerza que se interpusiera con grandeza.
+Antes de que Sion le acercara la punta de la hoja, antes de que Seorin levantara la mano, la puerta se partió hacia dentro.
+Sin sonido y sin nada que la bloqueara, la puerta se quedó abierta, esperando.
 
-Al contrario, fue lo opuesto.
+Sion se plantó en el umbral con la hoja en alto, y la punta quedó en el aire.
+Bajó la hoja.
 
-Demasiado fácil,
-demasiado mansa,
-como si nada fuera,
-la puerta se partió hacia adentro.
+Seorin entró primero, dio un paso y se detuvo.
+Sern, Han Jiwoo, Kael, Ater y el último androide entraron tras ella y se detuvieron.
 
-En ese instante,
-Sion sintió algo raro.
+Nadie pudo hablar enseguida.
 
-Mientras subían hasta aquí
-rompieron demasiado,
-aguantaron demasiado,
-demasiado se derrumbó.
+Era más amplio que cualquiera de los estratos que habían atravesado, de techo alto y pilares rectos, y la luz fluía por allí en silencio.
+Sobre el suelo sin polvo, las líneas estructurales se abrían a intervalos iguales.
+En las paredes no había arañazos; en el suelo no había pisadas.
 
-Pero justo la última puerta
-se abría como si desde siempre
-fuera un sitio preparado para que alguien entrara.
+Ya no eran nueve.
+Las pisadas de los siete tendrían que haber quedado marcadas allí por primera vez. No se marcaron, porque no había polvo.
 
-Seorin comprobó primero el interior.
+Sern apoyó la mano en el suelo y la despegó, pero no quedó la forma de la mano.
 
-Ella dio un paso
-y pronto se detuvo.
+—No lee.
 
-Sern,
-Han Jiwoo,
-Kael,
-y el último androide
-se detuvieron tras ella.
+Lo dijo Sern.
 
-Nadie logró hablar enseguida.
+—Aquí no se lee nada.
 
-El interior era amplio.
+—¿Por qué?
 
-Más amplio que cualquier piso cruzado hasta entonces,
-más ordenado que cualquier salón,
-hecho para parecer más centro que cualquier centro.
+—Es un lugar donde no entra nada que leer.
 
-Techo alto.
-Columnas demasiado rectas.
-Luz que fluía callada.
-Suelo pulido sin una mota de polvo.
-Líneas de estructura abiertas a intervalos exactos.
+Sion se adentró unos pasos más, y sus pisadas resonaron nítidas hasta el techo y volvieron.
+Sus propios pasos, de vuelta hacia él.
+Se detuvo. La reverberación se detuvo.
 
-Se veía de un vistazo
-que era el sitio que Serakion había dejado
-para exhibir por última vez su orden más alto.
-
-Pero era raro.
-
-Estaba demasiado vacío.
-
-No había huella de combate.
-No había huella de vida.
-No había rastro de que alguien morara aquí largo tiempo.
-
-Parecía el centro,
-y a la vez parecía un sitio que nunca fue un centro de verdad.
-
-Sion caminó unos pasos más hacia adentro.
-
-El sonido de sus pasos resonó demasiado nítido.
-
-Y ese eco, al contrario,
-agrandaba el vacío del lugar.
-
-Han Jiwoo dijo bajo.
+Han Jiwoo habló en voz baja.
 
 —…¿Esto es el final?
 
-Aquella frase, más que pregunta,
-sonaba como el fragmento de una expectativa ya medio derrumbada.
+Seorin no respondió: miraba al frente, el lugar más alto.
 
-Seorin no respondió.
+Allí había una figura.
 
-Ella miraba el sitio más alto de enfrente.
+Estaba sentada sobre una estructura alta con forma de silla.
+La ropa, pulcra, no tenía arrugas, y las manos descansaban sobre las rodillas a la misma altura.
+Las yemas de los dedos eran transparentes, y se notaba cuando les daba la luz. El cuerpo entero.
+La cabeza estaba vuelta hacia ellos, exactamente hacia la puerta por la que habían entrado los siete.
 
-Allí
-estaba el presidente.
+Sion dio un paso a un lado, y la cabeza de la figura lo siguió con exactitud, sin pausa.
+Se detuvo. La cabeza también se detuvo.
 
-Más exactamente,
-estaba la figura que Serakion hizo llamar presidente.
+Al acercarse, se veía más.
+El pecho no se movía: no había respiración, y los ojos no parpadeaban.
+Las manos sobre las rodillas no cambiaron de sitio ni una sola vez.
+La estructura con forma de silla no tenía huellas de manos, los apoyabrazos no estaban gastados y el asiento no estaba hundido.
 
-Colocada pulcra sobre una estructura alta,
-la apariencia demasiado limpia,
-la mirada demasiado exacta,
-la postura sin el menor desorden.
+Ater se quedó de pie bajo la figura, mirándola largo rato hacia arriba, y luego habló hacia lo alto en la lengua que usaba en casa.
 
-Pero al acercarse a verla,
-se volvió más claro.
+—Solicito la aprobación.
 
-Eso no era alguien.
+La cabeza de la figura giró hacia él.
 
-Al menos,
-no parecía la voluntad central viva
-que hasta ahora provocó toda esta guerra
-y empujó hasta el final toda esta distorsión.
+—Aprobado.
 
-Por fuera era un representante.
-Pero por dentro estaba del todo vacío.
+No hubo pausa.
 
-Ater alzó primero la vista hacia la figura y habló.
+Los dedos de Sern no llegaron a doblarse.
 
-—Este no es el sujeto de aprobación. Solo queda el cuerpo representante.
+Ater volvió a hablar.
 
-Solo tras esa frase,
-Sern dijo muy bajo.
+—¿Qué es lo que ha aprobado?
+
+—Aprobado.
+
+—No he hecho ninguna solicitud.
+
+—Aprobado.
+
+Ater bajó la mano, pero no apartó los ojos de la figura.
+
+—Esto no es el sujeto de aprobación. Solo queda el cuerpo representante.
+
+Sern, sin levantar el panel de registro, habló muy bajo.
 
 —La reacción… es superficial.
 
-Hasta esa frase
-era demasiado cuidadosa.
+—¿Cuánto?
 
-Como si al decir más
-este vacío fuera a volverse real,
-y por eso nadie lograra terminar la oración con facilidad.
+Lo preguntó Seorin.
+
+—Lo mismo que el tono de guía.
+
+Lo dijo Sern.
+
+—El tono de guía de abajo. «La ruta ha sido reasignada.» Tiene la misma profundidad.
+
+—Entonces no es que eso hablara, sino…
+
+Lo dijo Han Jiwoo.
+
+—Habló el tono de guía.
+
+Lo dijo Sern.
+
+—Es un tono de guía con forma de persona.
+
+Han Jiwoo miró la boca de la figura. Esa boca se había movido.
+«Aprobado.»
+Solo la boca.
 
 Kael apretó los dientes.
 
 —No puede ser.
 
-Pero justo tras esa frase
-nadie logró refutarla.
+Nadie lo contradijo.
+Kael fue hasta delante de la figura, hasta el pie de la estructura, y alzó la vista hacia las manos sobre las rodillas.
+Levantó la mano y golpeó la estructura con la palma, y el golpe resonó.
+La figura no se movió; tenía la cabeza vuelta exactamente hacia él.
+La palma que Kael bajó estaba roja.
 
-Era cierto que no podía ser.
+—¿De qué sirve pegarle?
 
-Para llegar hasta aquí
-murieron personas.
-Se derrumbaron máquinas.
-Los androides perdieron el rostro.
-Un mundo se distorsionó largo tiempo.
+Lo dijo Seorin.
 
-Pero si lo que había al final
-no era una voluntad enorme,
-ni un dominador aplastante,
-ni un centro de maldad sangriento,
+—Se queda como si no le hubieran pegado.
 
-sino solo algo como un cuerpo representante
-demasiado cortés,
-demasiado exacto
-y demasiado tiempo vacío,
+Lo dijo Kael.
 
-eso, antes que ira,
-no podía sino dejar a la gente desolada.
+—Ni sabe que le pegaron.
 
-Han Jiwoo, sin poder decir nada un rato,
-habló casi como aliento.
+—No tiene con qué saberlo.
 
-—…¿Hacia esto vinimos hasta aquí?
+Lo dijo Seorin.
 
-Aquella pregunta
-no llegó exacta a nadie.
+Kael retrocedió un paso de la estructura, pero no fue capaz de darse la vuelta.
 
-La figura del presidente
-seguía en su sitio con expresión cortés.
+Han Jiwoo se quedó un rato sin poder decir nada, y luego habló como quien respira.
 
-Sin emoción.
-Sin conmoción.
-Sin vergüenza.
+—…¿Hemos venido hasta aquí buscando esto?
 
-Y eso mismo era más cruel.
+Mientras nadie respondía, la figura seguía en su sitio.
+Era una cara cortés. No era una cara sin emociones.
+Una cara sin sitio donde pudiera entrar una emoción.
 
-Si al menos alguien hubiera estado loco,
-si alguien hubiera sido codicioso,
-si alguien hubiera pisoteado todo por su mundo,
-al menos se lo podría odiar.
+Han Jiwoo miró esa cara con los mismos ojos con que había mirado las superficies lisas de los androides, y era distinta.
+En aquellas superficies había un sitio donde trazar una línea; en esta cara, no.
 
-Pero aquí
-no había ni el calor de un objeto a odiar.
+—Tiene cara.
 
-Serakion parecía haber dejado demasiado tiempo
-solo la forma de que debe haber un centro,
-y con ese sitio vacío
-haber querido ajustar el mundo entero a esa forma hueca.
+Lo dijo ella.
 
-Ater, al verlo,
-ante el hecho de que el origen de la aprobación y la disposición
-que persiguió hasta el final
-estaba al final así de vacío,
-sintió que algo en él se enfriaba hasta helarse.
+—¿Por qué no hay dónde dibujar?
 
-Vino a comprobar el orden equivocado,
-pero en la cima no había siquiera alguien que respondiera por el orden.
+Nadie supo responder.
+En la cara de la figura que miró Ater estaban los ojos, la boca, la nariz: todo.
 
-Los robots nobles
-estaban detenidos al borde de la sala.
+—Porque lo tiene todo.
 
-Parecían desconcertados.
-Pero ese desconcierto
-no era el pánico de un ser vivo,
-sino algo cercano al vacío de una herramienta
-que no sabe qué hacer
-aunque la forma en que se apoyaba
-empiece a derrumbarse.
+Lo dijo Ater.
 
-Nadie embistió.
-Nadie se vengó.
-Nadie logró organizar una última resistencia.
+—No hay dónde dejar un vacío.
 
-El orden se derrumbó,
-la herramienta tembló,
-y la legión ya empezó a recobrar su propio rostro.
+Fuera de la sala, al otro lado de la puerta, los robots nobles se habían detenido y no entraban.
+El dedo de una unidad, ese mismo dedo que antes había temblado, seguía temblando sin parar.
+Las demás unidades no se movían porque no había orden.
+Lo que debía dar las órdenes solo había dicho «Aprobado».
 
-Entonces a los robots nobles
-solo les quedó la forma alta.
+Ater miró el dedo tembloroso al otro lado de la puerta.
 
-Pero con la sola forma
-no se podía proteger nada.
+—¿Qué es lo que espera eso?
 
-Al ver ese cuadro,
-Sion sintió, raro, que la ira no le subía bien.
+Lo preguntó Sern.
 
-En cambio, el centro del pecho
-se le iba vaciando de a poco.
+—La siguiente solicitud.
 
-El hecho de que superaron tanto,
-y al final
-no había ni un enemigo que sujetar.
+Lo dijo Ater.
 
-El hecho de que pelearon tanto tiempo,
-y lo que creían el centro de la lucha
-estaba en realidad vacío desde hacía mucho.
+—Ya no hay quien solicite. Ellos eran los que solicitaban.
 
-Que eso pudiera dejar a alguien tan sin fuerzas,
-Sion lo supo por primera vez.
+—No vienen.
 
-El último androide
-caminó hasta lo más adelante.
+Lo dijo Sion.
 
-Y alzó en silencio la vista hacia esa figura.
+—No tienen por qué venir.
 
-Sobre su cara
-aún parecía quedar el rastro del rugido
-que hace nada había enviado a la legión.
+Lo dijo Seorin.
 
-Pero su silencio de ahora
-era de una clase del todo distinta a la de antes.
+—Eso no les dijo que vinieran.
 
-Si el de antes
-fue el silencio de justo antes del grito que devuelve la existencia,
-el de ahora
-era más bien un silencio que perdió las palabras
-ante el hecho de que, tras tanta pérdida,
-lo que al fin alcanzó era apenas esto.
+—¿Y nosotros, que entramos?
 
-No dijo nada un rato.
+Lo preguntó Sion.
 
-Luego, muy lento,
-alzó la mano
-y la detuvo solo tan cerca como para no tocar la cara del presidente.
+—Tampoco nos dijo que no entráramos. La puerta se abrió, ¿no? La abrió eso. O no la abrió nadie.
 
-Como comprobando.
-Como negando.
-Como si el lado que esperaba que quizá aún quedara alguien dentro
-no hubiera muerto del todo.
+Sion se volvió: la puerta seguía abierta.
 
-Pero no había nada.
+El último androide avanzó hasta lo más adelante, al pie de la figura, junto a Ater, y alzó la vista.
+Sobre su cara quedaba todavía, como una luz tenue, el rastro de lo que había lanzado antes.
+Tras un rato sin moverse, alzó despacio la mano hacia la cara de la figura. Sin llegar a tocar, dejando una falange de distancia.
+Se detuvo.
 
-Sin calor.
-Sin vacilación.
-Sin arrepentimiento.
-Sin voluntad.
+Han Jiwoo miró esa mano.
+Su propia mano había hecho eso. El primer día, junto a la cara de un androide, cuando se detuvo a una falange de distancia.
+La misma distancia.
 
-Solo
-estaba vacío.
+La figura no reaccionó a esa mano. La cabeza no giró hacia la mano.
+Porque no era una solicitud.
 
-Sion, mirando ese cuadro,
-al fin bajó la cabeza.
+La mano se quedó ahí.
 
-En ese instante,
-antes que el alivio de que esta larga guerra terminaba,
-lo cubrió un vacío difícil de explicar.
+Un compás.
+Dos.
+Tres.
 
-El hecho de que tanto dolor,
-tanto sacrificio,
-tanta distorsión,
-al final rodaran en torno a una sola cosa vacía.
+No había calor. Aun sabiéndolo, no retiró la mano.
 
-Eso cansaba más que la ira.
+Cuatro.
 
-Seorin al fin abrió la boca.
+Han Jiwoo se puso a su lado.
 
-Pero su voz también
-era distinta a la de siempre.
+—No hay nada.
 
-Ella era alguien que siempre hablaba corto,
-siempre exacto,
-siempre cortando funcional,
+Lo dijo ella.
 
-pero esta vez, por primera vez,
-llegó un compás tarde.
+La mano no se retiró.
+
+Cinco.
+
+Estiró la mano un poco más y se detuvo a media falange.
+La figura no reaccionó, pero la mano se quedó allí.
+
+Sion miró esa mano y luego bajó la cabeza. En el suelo no tenía sombra.
+La luz venía de todas partes, y no había sitio donde pudiera formarse una sombra.
+
+Seorin abrió la boca un compás más tarde que de costumbre.
 
 —…No hay nadie.
 
-Aquella breve frase
-vació aún más toda esta amplia sala.
+La sala le devolvió esas pocas palabras desde el techo.
 
-Sern no logró decir nada.
+No hay nadie.
+Nadie.
 
-Han Jiwoo se mordió el labio.
+Cada vez más débil.
 
-Kael se quedó de pie sin poder despegar la vista.
+Mientras Sern no lograba decir nada, Han Jiwoo se mordió el labio hasta hacerse sangre.
+Kael, de pie al pie de la estructura, no podía apartar los ojos.
+Ater miró las yemas transparentes de la figura y luego las suyas. Donde empuñaba la hoja tenía callos.
 
-El último androide
-seguía aún ante la figura.
+El último androide seguía con la mano alzada.
 
-Y en algún sitio atrás,
-el temblor mínimo de los androides
-que empezaban de a poco a recobrar su rostro
-subía como una ola tardía.
+Desde atrás, desde fuera de la puerta, desde abajo, subió un sonido como una ola tardía.
+Pies que se detienen, manos que se apoyan en la pared, el chirrido pequeño del metal contra el metal.
+El sonido de las cosas que se miraban las manos subía con un compás distinto cada uno.
 
-Lo vivo
-al fin volvía hacia sí mismo.
+Han Jiwoo oyó ese sonido y miró a la figura, pero la figura no lo oyó.
+Porque no era una solicitud.
 
-Pero en la cima de toda esa distorsión
-no había, de hecho, nadie.
+—Allá abajo todo está cambiando.
 
-Justo ese hecho
-fue lo que más hondo quedó aquel día.
+Lo dijo ella.
 
-Sion tomó aire despacio.
+—Aquí no cambia nada.
 
-Y muy bajo,
-casi como hablándose a sí mismo, murmuró.
+—No hay nada que cambiar.
 
-—Por esto…
+Lo dijo Seorin.
 
-No logró seguir hasta el final.
+Sern miró una vez más a la figura.
 
-Porque lo que seguiría era demasiado,
-y a la vez nada parecía encajar.
+—¿Se puede apagar?
 
-Nadie completó esa frase por él.
+—¿El qué?
 
-No se podía.
+—Eso.
 
-Porque esta desolación
-era de la clase que cada uno debe derrumbar por separado dentro de sí.
+Ater negó con la cabeza.
 
-La sala alta seguía perfecta.
+—No creo que tenga dónde apagarse. Si se corta la línea, solo dejará de hablar.
 
-Tan perfecta
-que ahora, al contrario, parecía miserable.
+—¿Entonces lo dejamos así?
 
-Y en mitad de ese vacío perfecto,
-el grupo de Sion
-al fin encaraba de frente, por primera vez,
-cuán vacío
-estaba el final de Serakion.
+—Lo dejamos así.
+
+Lo dijo Seorin.
+
+—Si no sube nadie, eso no es nada. Basta con decirles que no suban.
+
+—¿A quién?
+
+—A todos.
+
+Sion inspiró despacio y se habló a sí mismo, muy bajo.
+
+—Para esto…
+
+No pudo seguir. Se quedó con la boca abierta y luego la cerró.
+Nadie terminó la frase por él.
+
+La sala era perfecta. La luz no se desviaba, el suelo no temblaba.
+La figura, en su sitio, tenía la cabeza vuelta exactamente hacia Sion.
+Porque era el último que había hablado.
+
+Kael miró esa cabeza.
+
+—Te mira porque hablaste.
+
+—Lo sé.
+
+—¿Y si no hablas?
+
+Aunque Sion cerró la boca, la cabeza de la figura siguió vuelta hacia él.
+Hasta que llegara la siguiente palabra.
+
+El último androide bajó despacio la mano y la dejó sobre su peto.
+Delante de la figura, no se movió.
+La luz de su cara se hizo un poco más intensa, pero la cara de la figura siguió igual.
+Los dos estaban frente a frente.
+Solo uno miraba al otro.
 
 ---
 

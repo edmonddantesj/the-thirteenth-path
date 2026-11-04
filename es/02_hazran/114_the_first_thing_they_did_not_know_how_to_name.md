@@ -57,7 +57,7 @@ Sern ni siquiera lo nombraba. Solo señalaba la dirección con la mano.
 
 Ater decía «dicho punto». Así le salía, con el habla del Imperio.
 
-Seis personas llamaban a la misma cosa de seis maneras. Nadie usaba la misma palabra, y nadie dejaba de entender.
+Cinco personas señalaban la misma cosa de cinco maneras. Nadie usaba la misma palabra, y nadie dejaba de entender.
 
 A Sion eso, más bien, le dio miedo.
 

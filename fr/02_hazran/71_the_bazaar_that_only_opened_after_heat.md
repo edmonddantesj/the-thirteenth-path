@@ -18,7 +18,7 @@ Sion regarda cela et laissa échapper un tout petit souffle.
 
 Ce n'était pas une lumière nette et propre. Il y avait des reprises, un grain usé ; c'était une lumière que les choses ayant survécu à la journée avaient tout juste réussi à rassembler entre elles.
 
-Mais c'était justement pour cela qu'il la regardait plus longtemps.
+C'était justement pour cela qu'il la regardait plus longtemps.
 
 Luhai, comme s'il n'attendait que cette réaction, prit les devants :
 
@@ -33,8 +33,6 @@ Seorin répliqua, juste à côté :
 Luhai haussa les épaules.
 
 « Pas besoin d'être le patron pour aimer un endroit, non ? »
-
-Il l'avait lancé à la légère, mais, étrangement, ça ne sonnait pas creux.
 
 Sion rumina la phrase, puis finit par demander :
 
@@ -141,19 +139,17 @@ Luhai haussa les épaules.
 
 Seorin lui jeta un coup d'œil.
 
-« Tu causes fort, pour quelqu'un qui n'est là que depuis un jour. »
+« Tu causes fort, pour un gamin. »
 
 Cette fois, Luhai ne rit pas tout de suite. Il parla plutôt un peu plus calmement.
 
-« Il y a des choses qu'on voit mieux justement parce que ça ne fait qu'un jour. »
+« Il y a des choses qu'on voit mieux justement parce qu'on est un gamin. »
 Il continua :
 « Les gens du dehors voient tous cet endroit comme un trou sale, bruyant et dangereux. Mais même dans un endroit pareil, il y a des choses qu'on n'a pas jetées, qu'on a gardées jusqu'au bout, non ? »
 
 Il regarda, au bout de la ruelle, une tente où des éclats de verre à moitié brisés étaient suspendus comme des bougies.
 
 « Moi, j'aime ce genre d'endroit. »
-
-C'était bien plus sincère qu'on ne s'y attendait.
 
 En l'entendant, Sion crut comprendre un peu pourquoi Luhai était si fier de cet endroit.
 

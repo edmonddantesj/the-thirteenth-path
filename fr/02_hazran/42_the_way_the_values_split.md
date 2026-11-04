@@ -20,8 +20,6 @@ Cette fois, il montra la main de Luhai.
 
 « La discussion, à part. »
 
-Autrement dit, on allait aussi séparer les gens.
-
 Sion demanda aussitôt :
 
 « Tu comptes écarter qui ? »
@@ -36,8 +34,6 @@ Sion avait parlé bas.
 « Ça, c'est votre point de vue. »
 Nassim lui répondit, puis ajouta :
 « Ici, à l'intérieur, tout est encore un prix. »
-
-La phrase était déplaisante, mais pas fausse. Du moins pour l'instant, dans l'ordre de cet intérieur.
 
 Ater dit posément :
 
@@ -217,23 +213,21 @@ Seorin, qui regardait la scène, demanda :
 
 « Tu veux nous séparer, c'est ça ? »
 
-« Un moment. »
+« C'est juste un moment. »
 Haroun poursuivit :
-« Le temps de douze. »
+« Seulement le temps d'être à douze pas l'un de l'autre. »
 
 « C'est la phrase que je crois le moins. »
 Sion marmonnait.
 
-« On vous a dit que la confiance coûtait cher. »
+« La confiance, par nature, ça coûte cher. »
 C'était Nassim.
-
-Ces mots restaient agaçants, mais, étrangement, ils sonnaient désormais comme la loi de tout ce lieu.
 
 Kael entra dans le couloir.
 
 Chaque fois que son pied touchait une plaque de métal, un son bas et sourd résonnait. Un. Deux. Trois. Un des gens de l'intérieur comptait avec lui, en touchant les encoches du bout des doigts. Il ne comptait pas à voix haute. Seuls ses doigts bougeaient.
 
-À neuf, sa main s'arrêta.
+À neuf, les doigts qui comptaient s'arrêtèrent.
 
 Kael écarta la tente au bout du couloir et fit encore trois pas dehors. Au dernier pas, la chaleur du dehors entra d'un souffle, et la tente, en retombant, coupa son dos de la vue.
 

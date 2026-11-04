@@ -1,265 +1,226 @@
 # Capítulo 194 — El compás descuadrado
 
-Ante la tercera puerta,
-Seorin alzó una vez la mano.
+Ante la tercera puerta, Seorin levantó la mano.
 
-Los pasos del grupo de Sion se detuvieron a la vez.
+Los pasos de los nueve se detuvieron a la vez.
 
-El corredor era más estrecho y más largo que los dos tramos previos.
-Las paredes eran demasiado lisas,
-la luz demasiado constante,
-y la línea de guiado del suelo, más que un camino que pisara algo vivo,
-parecía una línea puesta para dejar pasar solo objetos clasificados sin error.
+El pasillo era más estrecho y más largo que los dos tramos anteriores. Las paredes eran lisas y la luz constante, y por el suelo corría una sola línea de guiado recta, más estrecha que un pie humano. Sion no puso el pie sobre esa línea: se quedó a un lado.
 
-Pero esta vez, antes que el espacio,
-había llegado primero la reacción.
+Todavía no había salido nada. Dentro de la pared, una luz que avanzaba hacia ellos se había detenido y esperaba.
 
-Aún no había salido nada,
-y ya el juicio de adentro parecía reunido de antemano hacia ellos.
+Seorin habló en voz baja.
 
-Seorin dijo bajo.
+—La misma jugada no va a funcionar.
 
-—El mismo truco no sirve.
+—¿Qué tiene de distinto?
 
-En el instante en que ponía al último androide como variable en el umbral,
-la alineación de Serakion, más bien, se cerraba aún más rápido.
+Lo preguntó Sion.
 
-Seorin siguió, mirando el flujo de luz que corría por la pared.
+—Si ese se deja ver primero, el otro lado lo ata a ese antes que a nadie. Hasta ahora volvía a contar por culpa de ese. Ahora empieza contando a ese primero.
 
-—Ahora ellos atan primero. Si volvemos a empujar de frente, entramos en ese cálculo.
+Al oírlo, el último androide miró la luz del interior de la pared: la luz ya lo había alcanzado. Retrocedió medio paso, y la luz también lo siguió.
 
-Sern soltó el aliento corto.
+Seorin siguió hablando mientras miraba la luz que se extendía por la superficie de la pared.
+
+—Ahora el otro lado ata primero. Si volvemos a empujar de frente, nos metemos dentro de ese cálculo.
+
+Sern soltó un breve suspiro.
 
 —Entonces hay que cambiar.
 
 —Hay que cambiar.
-Seorin lo dijo muy bajo.
-—Pero ahora hace falta desajustar una vez más ese hábito de adentro.
 
-Detrás,
-una máquina que había entrado con ellos alzó de pronto la cabeza.
+Lo dijo Seorin, muy bajo.
 
-Pasó un ruido
-muy bajo y corto.
+—Pero lo que hace falta ahora es descuadrar una vez más esa costumbre de ahí dentro.
 
-Era una señal tan débil que, mezclada con la vibración del suelo del corredor,
-casi se ocultaba en el sonido mínimo de la pared.
+—¿Qué costumbre?
 
-Pero las dos máquinas giraron a la vez la mirada hacia allí.
+—No lo sé. Por eso estamos aquí de pie.
 
-Han Jiwoo dijo bajo.
+Atrás, una de las máquinas viejas alzó de pronto la cabeza, y la otra también giró la cabeza hacia el mismo lado, hacia abajo.
+
+Pasó un ruido. Era un sonido bajo y corto, mezclado con la vibración del suelo del pasillo, y a oídos humanos sonaba como un eco de la pared, pero los ojos ópticos de las dos máquinas se quedaron fijos ahí.
+
+Han Jiwoo habló en voz baja.
 
 —¿Qué es?
 
-Respondió la máquina en vez de una persona.
+La máquina respondió.
 
-—Desde abajo. Envían.
+—Desde abajo. Lo envían.
 
-Una máquina retomó el ruido tal cual.
+—¿Quién?
 
-Era una banda vieja que el sistema de alineación de Serakion no leía bien.
-Un modo que solo enlazaban entre máquinas viejas.
+—La primera. La segunda también. Las tres juntas.
 
-La señal no era larga.
-Áspera como un cable a punto de cortarse,
-más juicio que explicación.
+Cuando una de las máquinas recibió el ruido, su ojo óptico parpadeó a un compás. Sern vio ese parpadeo, pero no pudo anotarlo: era un compás que no conocía.
 
-Androide, temblor de compás posible. Breve.
-Serie de robots de Serakion, detención imposible. Solo retraso, desvío, lectura errada de ruta.
-Base: descarte fallido.
+—¿Qué dicen?
 
-Tras oír aquella señal,
-Seorin cerró un instante los ojos y volvió a abrirlos.
+Lo preguntó Seorin.
 
-En su mente volvieron a la vez los fragmentos que la patrulla había traído antes.
+La máquina lo pasó a lengua humana, breve, entrecortado.
 
-Los robots dispuestos en los estratos exteriores de Serakion
-tenían el hábito fuerte de empujar hasta el final la línea que fijaban una vez.
-Por eso, hacerlos torcer de dirección los volvía, más bien, lentos de recuperar.
+—Androide: posible sacudir el compás. Poco rato. Serie de robots de Serakion: detención imposible. Solo retraso, desvío, lectura errada de la ruta. Según el descarte fallido.
 
-La serie dispuesta más adentro era distinta.
-Recalculaba al instante la línea perdida
-y tenía el hábito de rehacer la prioridad.
-Por eso, en vez del choque frontal,
-funcionaba mejor hacer que varias respuestas se agolparan a la vez.
+—¿Qué es un descarte fallido?
 
-Y la serie más alta
-se acercaba a leer y estrechar primero.
+—Lo del vertedero. El producto terminado puede ser más hondo. Así llegó.
 
-Seorin volvió a mirar el corredor de enfrente.
+Seorin cerró los ojos y los abrió.
 
-—Este es el segundo. La serie que recalcula al instante la línea perdida y la rellena.
+—Ater.
 
-Sion preguntó corto.
+—Sí.
+
+—Lo que dijo la primera en el reconocimiento. Los robots del estrato exterior.
+
+Ater respondió enseguida.
+
+—Dijo que empujan hasta el final la línea que han decidido una vez. Que, si se la tuerce, se recuperan despacio.
+
+—¿Y los de dentro?
+
+—Dijo que vuelven a contar enseguida la línea que se les escapa y dan la vuelta al orden. Que, más que de frente, funciona hacer que muchas respuestas se atasquen a la vez.
+
+—¿Y más arriba?
+
+—Que leen primero y estrechan primero.
+
+Seorin miró la luz que esperaba detenida dentro de la pared, el pasillo que tenía delante.
+
+—Esta es la segunda. La serie que recalcula enseguida la línea perdida y la rellena.
+
+Sion preguntó, breve.
 
 —¿Seguro?
 
-—Sí. Así que esta vez no hay que sacudir uno, sino enredar los dos juntos. Que el androide y el robot se estorben la restauración uno al otro.
+—Sí. Así que esta vez no hay que sacudir a uno, sino enredar a los dos juntos. Que el androide y el robot se estorben la recuperación el uno al otro.
 
-Kael soltó desde el último puesto una risa muy breve.
+Kael, desde el último puesto, soltó una risa breve, brevísima.
 
-—Estaba esperando esas palabras.
+—Estaba esperando que lo dijeras.
 
-Retrasar el cierre era tarea suya desde que se trazó este plan.
-Ya recorría la estructura lateral del corredor.
-No del lado de plantarse al frente a abrir camino,
-sino del lado de fijar dónde se separan el timing de derrumbe y el de cierre.
+Ya estaba recorriendo con la vista las ranuras del lateral del pasillo, las líneas de pliegue y el sitio por donde bajaría la placa de bloqueo. Retrasar lo que se cierra había sido tarea suya desde que se trazó el plan por primera vez, y cuando apoyó la punta del pie en una ranura lateral, la punta entró.
 
-Han Jiwoo reordenó de nuevo el flujo de señales cortas,
-y Sern contaba la velocidad de respuesta que giraba dentro de la pared.
-Sion, agachado, esperaba solo el instante en que se vaciara la línea central,
-y el último androide, no al frente sino medio paso atrás, estaba quieto.
+Han Jiwoo rehízo las señales con los dedos.
 
-Seorin dijo.
+Izquierda.
+Para.
+Atrás.
 
-—No intenten abrirla mal de frente. Háganla leer mal una vez la línea de guiado y en el siguiente compás sacudan al androide. No toquen a los dos por separado, enrédenles el cálculo entre sí.
+Mientras el último androide miraba esos dedos, Sern contaba la velocidad de respuesta del interior de la pared moviendo solo los labios. Sion se agachó, atento solo al instante en que la línea central quedara vacía. Cuando el último androide se colocó no al frente, sino medio paso por detrás, la luz del interior de la pared lo siguió y retrocedió medio paso.
 
-Apenas terminó esa palabra,
-las paredes de ambos lados del corredor se abrieron muy finas.
+Seorin habló.
 
-Lo primero que salió fueron dos androides.
+—No intenten forzar la apertura de frente. Hagan que lean mal una vez la línea de guiado, y en el compás siguiente sacudan al androide. No toquen a los dos por separado: hagan que se les enreden los cálculos entre sí.
 
-Quedaba el contorno humano,
-pero más pulcros y más vacíos que antes.
+Las paredes de ambos lados del pasillo se abrieron, finas.
 
-No había movimiento inútil.
-La mirada,
-el paso,
-el ángulo del brazo,
-parecían reordenados a seguir solo la respuesta ya corregida.
+Primero salieron dos androides.
 
-Y detrás,
-un compás tarde, se mostraron dos robots de Serakion.
+Tenían contorno humano, más pulcro que antes y más vacío. El ángulo de los brazos era el mismo, la longitud del paso era la misma, y las caras eran lisas, sin luz. Han Jiwoo miró esas caras y luego la tenue línea que quedaba en la cara del último androide.
+El mismo cuerpo, otra cara.
 
-Casi no había huella de querer parecerse a un humano.
-Una forma donde se veía primero la función de empujar, cerrar, cortar y bloquear.
-Las articulaciones estaban muy escondidas,
-y la superficie, en capas superpuestas, empujaba la luz torpe.
+Un compás más tarde salieron dos robots de Serakion.
 
-Seorin dijo corto.
+Placa de empuje, placa de cierre y hasta articulaciones escondidas por dentro: no había en ellos nada que intentara parecerse a una persona. La superficie de capas sobre capas repelía la luz, sorda. Tenían la misma forma que el descarte fallido salido de la capa oculta, pero estaban enteros, sin cortar.
 
-—Primer compás, la línea de guiado. El segundo, el androide. El último, la línea central que queda vacía.
+Seorin habló con brevedad.
 
-Las dos máquinas que habían entrado con ellos emitieron a la vez un ruido bajísimo.
+—El primer compás, la línea de guiado. El segundo, el androide. El último, la línea central vacía.
 
-La primera señal fluyó por el suelo del corredor.
-Débil como una vibración,
-corta solo lo justo para colarse en el instante en que la línea de guiado de Serakion reconfirmaba su criterio.
+Las dos máquinas viejas emitieron a la vez un ruido bajo, y la primera señal se convirtió en vibración y corrió por el suelo. Justo lo suficiente para colarse en el instante en que la línea de guiado volvía a comprobar su propia referencia.
 
-Lo primero que se sacudió fue el robot de Serakion.
+Lo primero que se sacudió fue el lado de los robots.
 
-La unidad izquierda, en vez de cerrar de una la línea que debía bloquear,
-releyó una vez más el criterio.
+El robot de la izquierda no cerró enseguida la línea que debía bloquear: leyó la referencia una vez más. No se detuvo ni se ralentizó, pero con esa única relectura la línea de bloqueo que iba a cortar el centro del pasillo se desplazó media casilla hacia un lado.
 
-No se detuvo.
-Ni siquiera se atrasó casi.
-
-Pero por ese único recálculo,
-la línea de bloqueo que iba a cortar el centro del corredor se corrió media casilla al costado.
+Media casilla.
 
 —Ahora.
 
-Con la palabra de Seorin,
-el segundo ruido se montó sobre el androide.
+Con la palabra de Seorin, el segundo ruido se posó sobre el lado de los androides.
 
-El paso del androide derecho se atrasó medio compás,
-y la unidad izquierda, queriendo rellenar ese hueco, torció un poco el eje de mirada hacia adentro.
+El paso del androide de la derecha se retrasó medio compás. Cuando el androide de la izquierda intentó llenar ese hueco, su cara se torció hacia dentro, y los movimientos de corrección de los dos se estorbaron entre sí. Los dos, que debían engranar en el mismo instante, se comprobaron primero el uno al otro.
 
-Las correcciones de los dos se estorbaron.
+Un compás.
 
-Dos respuestas que debían engranar en el mismo instante,
-esta vez se atrasaron un poco por confirmarse mutuamente.
+Sion se agachó y cruzó en diagonal sobre la línea central que había quedado vacía, sobre la línea de guiado.
 
-Sion se agachó al momento.
+Adentro.
 
-Por dentro de la línea central que había quedado vacía,
-se coló pisando en diagonal la línea de guiado del suelo y pasando por encima.
+Kael tocó desde fuera la placa de bloqueo auxiliar que bajaba. No la frenó: solo le torció el ángulo de cierre; la placa se detuvo inclinada, y la línea de dentro siguió vacía un poco más.
 
-Kael tocó primero una placa de bloqueo auxiliar que bajaba por fuera de eso.
-No la detuvo del todo,
-sino que torció una vez el ángulo de cierre
-para que la línea interior quedara vacía un poco más.
+Seorin se arrimó a ese lado y rozó con el lomo de la hoja el exterior del brazo del androide, y el brazo del androide se desplazó medio palmo. Sern, atrás, contaba la segunda relectura del robot.
 
-Seorin, pegándose a su lado, rozó la parte exterior del brazo del androide,
-y Sern leyó desde atrás el momento del segundo recálculo del robot de Serakion.
+—¡Viene una vez más!
 
-—¡Viene otra vez!
+El robot no dejó pasar el primer desvío: dio la vuelta al orden de inmediato y vino a tapar la línea perdida. El robot del lado contrario giró el cuerpo y, al fondo del pasillo, empezó a bajar de arriba abajo una cortina de bloqueo vertical.
+Era rápido.
 
-El robot de Serakion no dejó el primer desvío.
-Enseguida rehizo la prioridad
-y fue a rellenar la línea perdida.
-
-La unidad de enfrente torció el cuerpo
-y empezó a bajar una cortina de bloqueo vertical en el interior del corredor.
-
-Han Jiwoo, con los dientes apretados, dijo.
+Han Jiwoo apretó los dientes y habló.
 
 —Es rápido.
 
 —Por eso hace falta el segundo.
-Seorin respondió casi a la vez.
 
-Los ruidos de las dos máquinas de atrás se cruzaron y se solaparon.
+Seorin le respondió.
 
-Uno tocó la línea de referencia de la cortina,
-el otro, la prioridad de mirada del androide.
+Los ruidos de las dos máquinas de atrás se cruzaron y se solaparon. Uno iba a la línea de referencia de la cortina; el otro, a la mirada de los androides. La luz fina que corría por la superficie del robot saltó una vez de abajo arriba. Uno de los androides miró primero al último androide en lugar de a Sion, y su cara se volvió hacia allí.
 
-La luz fina que corría por la superficie del robot de Serakion saltó de abajo arriba una vez,
-y un androide leyó primero al último androide en vez de a Sion.
+La alineación no consiguió trabarse hacia un solo lado.
+Dos objetivos que bloquear, dos líneas que cerrar.
+La cortina no logró cortar el centro y bajó media casilla al costado.
+Las caras de los dos androides no consiguieron solaparse. Una miraba a Sion; la otra, al último androide.
 
-En ese instante,
-la alineación no logró cerrarse hacia un solo lado.
+Esa media casilla.
+Ese medio compás.
 
-El objeto a bloquear se partió en dos.
-La línea a cerrar también se volvió dos.
+Esta vez el último androide no se adelantó. Detrás de la brecha abierta por la sacudida, se movió hacia el interior de la línea central que Sion y Seorin habían vaciado: tarde, desde el flanco, en un ángulo menos atado. Delante, las dos respuestas ya se estaban cruzando, y Serakion no logró tomarlo como referencia.
 
-La cortina no cortó el centro exacto y bajó media casilla al costado,
-y los ejes de mirada de los dos androides tampoco se superpusieron del todo.
+Sern habló en voz baja.
 
-Esa media casilla,
-ese medio compás, era el hueco de este piso.
+—Ahora se puede cruzar.
 
-Esta vez el último androide no se adelantó.
+Sion fue el primero en meter el hombro por la brecha de la cortina, y el cuello de la ropa se le arañó en el borde; Seorin lo siguió. Han Jiwoo entró rodando por la línea exterior que Kael había dejado libre, y en cuanto el hombro tocó el suelo se levantó.
 
-Se movió tras el hueco de cálculo ya creado.
-Por dentro de la línea central que Sion y Seorin habían vaciado,
-tarde,
-por el costado,
-entró en el ángulo que Serakion había atado menos.
-
-Serakion no logró retomarlo enseguida como punto de referencia.
-Porque ya al frente dos respuestas se cruzaban.
-
-Sern dijo bajo.
-
-—Ahora se cruza.
-
-Sion metió primero el hombro por el hueco de la cortina.
-El cuello de la ropa se raspó en el borde.
-
-Seorin siguió justo detrás,
-y Han Jiwoo rodó adentro por la línea exterior que Kael había dejado libre.
-El último androide cruzó a la línea interior medio paso más tarde.
+Ater bajó desde arriba y los siguió. Sern entró con el panel de registro pegado al pecho, y detrás, las dos máquinas viejas. El último androide pasó a la línea interior medio paso tarde, y el eje del hombro se le enganchó una vez. Kael fue el último. Al sacar la punta del pie de la ranura, la placa bajó a su espalda.
 
 El metal sonó corto y fino.
 
-El compás ya se estaba reajustando.
-Los dos androides redujeron el desvío más rápido que al principio,
-y los dos robots de Serakion también volvieron a cerrar la línea perdida.
+El compás volvía a ajustarse. Mientras los dos androides reducían el desvío más deprisa que al principio, los dos robots volvieron a cerrar la línea perdida.
 
-Pero el grupo de Sion ya había cruzado al interior de la tercera puerta.
-
-Sion, con una rodilla apoyada en el suelo interior, miró atrás.
-
-La cortina, que había bajado media casilla desviada,
-solo entonces encontró su sitio y llegó hasta el suelo.
-
-Al otro lado, los dos androides
-seguían de pie, mirando el lugar por donde acababa de escabullirse el último androide.
-
-Esta vez las miradas de los dos se superponían con exactitud.
+Sion apoyó una rodilla en el suelo del interior y miró atrás. La cortina, que había bajado media casilla desviada, encontró por fin su sitio y llegó hasta el suelo. Al otro lado, los dos androides estaban de pie, mirando el punto por donde se había escapado el último androide. Las caras de los dos estaban solapadas con exactitud.
 
 Un compás tarde.
+
+Han Jiwoo miró, al otro lado de la cortina, a esos dos sin rostro que miraban al mismo sitio. Luego revisó el nudo del hombro del último androide: seguía en su sitio.
+
+—Pasamos la segunda serie.
+
+Lo dijo Seorin.
+
+—Lo siguiente está más arriba.
+
+—Es lo que lee primero y estrecha primero.
+
+Lo dijo Ater.
+
+Sern escribió una línea en el panel de registro, trazó al lado una raya corta y anotó: media casilla.
+
+—La señal de abajo era correcta.
+
+Lo dijo Sern.
+
+—La referencia del descarte fallido era correcta. El producto terminado también era igual hasta ahí.
+
+—Hasta ahí.
+
+—Sí. Hasta ahí.
+
+Una de las máquinas viejas emitió un ruido corto hacia abajo, pero no volvió nada. La máquina no esperó y miró al frente.
 
 ---
 

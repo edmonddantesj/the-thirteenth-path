@@ -1,276 +1,272 @@
 # Capítulo 162 — El plan de Seorin
 
-Aun después de que se dijera que repetir el rescate no salvaría al final a todos,
-y que entonces había que sacudir la estructura misma,
-no apareció un camino enseguida.
+Al día siguiente, Seorin arrastró una placa hasta el centro de la sala.
 
-Era lo natural.
+Era una vieja placa de metal que había estado apoyada en un rincón, con una de las esquinas doblada. La tendió en el suelo y barrió el polvo con la palma, una vez, dos. La placa, ya al descubierto, tenía arañazos viejos, y encima quedaba sitio para dibujar.
 
-Derribar.
-Cortar.
-Romper.
+Seorin tomó un trozo de piedra de bordes afilados y lo apoyó en la placa; al raspar, salió una línea blanca.
 
-Decirlo es fácil.
-Pero, frente a un orden tan superpuesto como el de Serakion,
-para que esas palabras se volvieran un plan real,
-había que ordenar de nuevo, primero,
-quién sabía qué,
-qué se ignoraba,
-y por dónde había que empezar a tocar.
+—Bien.
 
-Y la primera en hacerlo
-fue Seorin, que volvía a ocupar un sitio largo tiempo vacío.
+Lo dijo en voz baja.
 
-Arrastró al centro de la sala una vieja tabla,
-y sobre ella empezó a poner, uno a uno,
-los flujos de movimiento que conocían las manos de recuperación,
-la estructura de cierre que había leído Kael,
-el sector ceremonial de arriba que había visto Ater,
-los huecos del sistema de aprobación que había señalado Sern,
-y la información de las líneas de mantenimiento que sostenían las máquinas viejas de dentro.
+—Ahora dejemos un momento de lloriquear y ordenemos primero qué hay que romper.
 
-—Bien —dijo Seorin en voz baja—. Dejemos un momento de lloriquear
-y ordenemos primero qué hay que romper.
+Han Jiwoo la miró, abrió la boca y la cerró; luego, sin soltar la mano del niño pequeño, se acercó a la placa y se sentó.
 
-Esas palabras sonaron frías,
-pero, por extraño que parezca, más bien estabilizaron la sala.
+Kael vino; Ater se volvió desde la salida, pero no se acercó y miró desde allí. Cuando Sern trajo el panel de registro y lo dejó junto a la placa, la primera mano de recogida también vino.
 
-No era que a nadie le faltara ahora la emoción.
-Han Jiwoo seguía sin calmar la ira,
-Kael masticaba el fracaso como cálculo,
-Ater, cuanto más hondo pensaba, más se le endurecía el gesto,
-y las máquinas viejas sabían que las líneas que ellas habían sostenido tanto tiempo podían ser ahora el blanco.
+La segunda mano de recogida vino desde la pared arrastrando la pierna estirada una vez a cada paso, pero se quedó de pie junto a la placa y no se sentó. La máquina vieja dio un paso fuera del pilar y se detuvo: desde allí se veía la placa.
 
-Pero justo por eso,
-alguien tenía que ordenar todo esto en frases.
+Luhai estaba junto a los niños, y Aka también. Sion se quedó de pie entre la gente de Hazran y la placa, sin sentarse en ningún lado.
 
-Seorin era la persona más útil en esos momentos.
+Seorin golpeó la placa tres veces con la piedra.
 
-—De momento, lo confirmado son tres cosas.
-Seorin dobló los dedos.
-—Una:
-sacar a unas pocas personas no termina esta estructura.
-—Dos:
-Serakion, en cuanto lo perforan, aprende enseguida y lo sutura.
-—Tres:
-por eso, de aquí en más no se trata solo de sacar gente,
-sino de tocar el eje que hace rodar así a la gente.
+—Por ahora, lo que hemos confirmado son tres cosas.
 
-Kael asintió muy brevemente.
-Ater también lo aceptó sin más.
+Dobló un dedo.
 
-Seorin pasó enseguida a lo siguiente.
+—Una: sacando a unas cuantas personas, esta estructura no se acaba.
+
+Una línea en la placa.
+
+—Dos: en cuanto se le abre una brecha, Serakion aprende enseguida y la sutura.
+
+Dos líneas.
+
+—Tres: por eso, de ahora en adelante no basta con sacar gente; hay que tocar el eje que hace que a la gente la muevan así.
+
+Tres líneas. No soltó la piedra.
+
+Mientras Kael asentía muy brevemente, Ater no dijo nada desde la salida y la primera miró las tres líneas de la placa.
 
 —Entonces el problema es este.
-Seorin golpeó la tabla.
-—Qué hay que cortar en Serakion
-para que arriba se tambalee y abajo se abra.
 
-Esta vez fue Kael quien abrió primero la boca.
+Seorin dio unos golpes sobre la placa.
 
-—Con el camino solo no basta —dijo bajo—. Hay ya demasiados caminos,
-y también aprende el modo de bloquear.
-—Cortar una línea de movimiento es retraso,
-no derrumbe.
+—¿Qué hay que cortar en Serakion para que arriba se tambalee y abajo se abra?
 
-Seorin ordenó al instante.
+Kael fue el primero en hablar. Se acuclilló delante de la placa, tomó la piedra de Seorin y trazó varias líneas largas debajo de las tres. Eran lo que habían borrado el día anterior: caminos.
 
-—Entonces el camino es resultado,
-y lo que apuntamos es el eje.
+—Con los caminos solos no basta.
 
-Sern continuó esas palabras.
+Lo dijo en voz baja.
 
-—El sistema de aprobación es igual.
-—Con solo sacudir los flujos terminales o las máquinas de guía,
-el estrato alto lo cubre pronto con otra forma.
-—El problema es quién aprueba qué,
-y cómo se conectan esa aprobación y la disposición en una estructura de registro.
+—Caminos ya hay demasiados, y además aprende cómo se los bloquea. Cortar una línea de movimiento es un retraso, no un derrumbe.
 
-Seorin entrecerró los ojos.
+Trazó una raya de través sobre una de las líneas largas y la cortó. Al lado había otra línea larga, y al lado de esa, otra.
 
-—O sea, que tú
-tienes que ver más la estructura administrativa con que de verdad funciona arriba.
+—Aunque lo cortes, se va por un lado.
 
-Sern respondió corto.
+—Entonces el camino es el resultado, y lo que apuntamos es el eje.
 
-—Sí.
-—El orden visible
-y el orden que de verdad sostiene los permisos y la disposición pueden ser distintos.
+Lo dijo Seorin.
 
-Esas palabras no eran simple información administrativa.
+Debajo de las líneas largas, Kael raspó la placa con la piedra y marcó un punto hondo.
 
-Por elegante que se viera Serakion,
-para mantener de verdad esa elegancia
-alguien tenía que aprobar,
-alguien tenía que disponer,
-alguien tenía que registrar,
-y alguien tenía que volver a cubrirlo.
+—Esto.
 
-Conocer esa estructura práctica
-era lo que permitía sacudir también la política.
+—¿Y dónde es eso?
 
-Ater puso encima de eso su propia mirada.
+—No lo sé. Sé que está. Porque todos los caminos se cierran en el mismo sitio.
 
-—Arriba rueda también por el decoro —dijo bajo—. Más que quién decide,
-importa quién debe parecer que decide.
-—Si ese decoro se rompe una vez,
-también la línea real de autoridad puede tambalearse.
+Sern tomó esas palabras y empujó el panel de registro hasta el lado de la placa. En el panel de registro, la señal flotaba como una línea que subía y bajaba.
 
-Seorin habló como riendo un poco.
+—Con el sistema de aprobación pasa lo mismo. Si solo se sacuden los recorridos terminales o las máquinas de guía, el estrato superior enseguida lo cubre con otra forma. El problema es quién aprueba qué, y mediante qué estructura de registro se conectan esa aprobación y la asignación.
 
-—Eso lo tomas tú.
-—Quién rueda por presumir,
-y dónde tocar para que arriba empiecen a vigilarse entre sí.
+Seorin habló con los ojos entrecerrados.
 
-Ater no puso siquiera un gesto de desagrado.
-Solo asintió brevemente.
+—O sea que tú tienes que mirar más a fondo la estructura administrativa con la que de verdad funciona lo de arriba.
 
-Leer una estructura política parecida a la de su propio mundo
-no era para él algo grato,
-pero era también, precisamente, lo único que solo él podía hacer.
+Sern respondió con brevedad.
 
-Seorin golpeó otra parte de la tabla.
+—Sí. El orden que se ve por fuera y el orden que de verdad sostiene los permisos y las asignaciones pueden ser distintos.
 
-—Kael, no el camino, el eje.
-—No qué bloquear para que el movimiento se retrase,
-sino qué cortar para que el cierre mismo se enrede.
+—¿Cómo lo miras?
 
-Esta vez Kael respondió más largo.
+Lo preguntó Han Jiwoo.
 
-—Hay un punto donde se entrelazan
-la línea de ascenso,
-la línea de sutura auxiliar
-y la línea de vida.
-—Si se toca ahí, no se desajusta un solo camino,
-sino todo el modo en que arriba maneja a los de abajo, por un instante.
+—Sigo la señal hacia atrás.
 
-Luhai parpadeó.
+Lo dijo Sern.
 
-—¿Entonces no se pueden mover?
+—Dónde aparece primero la señal cuando sube un niño. Si del lado del niño o de arriba.
 
-Kael negó con la cabeza.
+—¿Y dónde aparece?
 
-—No. Por eso es difícil.
-—No se detiene del todo.
-Pero, al reajustarse unos a otros,
-el compás con que leen a la gente puede retrasarse.
+—Arriba. Antes de que el niño se mueva.
 
-Seorin ordenó esas palabras al instante, como si las anotara.
+Mientras Han Jiwoo cerraba la boca, Sern señaló con el dedo una de las líneas del panel de registro, la que subía.
 
-—Listo. Más que la parada total,
-apuntamos a retrasar el compás de lectura.
+Ater habló desde la salida, sin acercarse.
 
-Esa frase sonó como el núcleo que enlazaba los rescates de hasta ahora con la estrategia de después.
+—Arriba, las cosas también ruedan por el decoro.
 
-Serakion lee a la gente,
-la clasifica,
-la ajusta,
-la sube,
-la devuelve.
+Seorin miró hacia allí.
 
-Entonces derribar esa estructura
-también era muy probable que empezara, al final,
-por el lado de romper el compás de esa lectura y ese ajuste.
+—Más que quién decide, importa quién debe parecer que decide. Si ese decoro se rompe una vez, también la línea real de autoridad puede tambalearse.
 
-Han Jiwoo, aun tras oír todo aquello, todavía no relajaba del todo el gesto.
+Seorin habló como si soltara una risita.
 
-Pero esta vez no quedaba en ella solo la ira.
+—Eso lo llevas tú. Quién rueda a fuerza de darse aires, y dónde hay que tocar para que los de arriba empiecen a mirarse de reojo unos a otros.
 
-—¿Y la gente? —preguntó en voz baja—. Los que quedan dentro,
-¿dónde se paran cuando sacudimos esta estructura?
+Sin cambiar el gesto, Ater asintió brevemente desde la salida.
 
-Esa pregunta era importante.
+—¿Eso lo vio en su casa?
 
-Sacudir la estructura por salvar a la gente
-y acabar aplastándola aún más adentro no tiene ningún sentido.
+Lo preguntó la primera.
 
-Una máquina vieja respondió.
+—Eso lo hice en mi casa.
 
-—Por eso hace falta nuestra mano.
-—Las líneas internas de mantenimiento,
-las líneas de señal,
-las líneas de conexión oculta, las conocemos nosotras.
-—Aunque no podamos romperlo del todo,
-podemos sostenerlo para que no se derrumbe hacia donde aplaste a la gente.
+Lo dijo Ater.
 
-Aquel fue, por primera vez,
-el momento en que las máquinas viejas de dentro entraban no como meros seres que aguantan,
-sino como uno de los ejes de la estrategia propiamente dicha.
+Seorin dio unos golpes en otra parte de la placa, junto al punto que había marcado Kael.
 
-Seorin no dejó pasar esas palabras.
+—Kael, tú no el camino: el eje. No qué bloquear para que el movimiento se retrase, sino qué cortar para que el cierre mismo se enrede.
 
-—Bien. Entonces queda ordenado —dijo—. Ater: el decoro de arriba y el eje político.
-Sern: el eje de aprobación y registro.
-Kael: el eje de cierre y movimiento.
-Las máquinas viejas de dentro: la línea de mantenimiento y el amortiguamiento del derrumbe.
+Esta vez Kael respondió más largo, y con la piedra trazó en la placa tres líneas que se juntaban en un mismo punto.
 
-Se detuvo un momento.
-Y miró a Han Jiwoo.
+—Hay un punto donde se entrelazan la línea de ascenso, la línea de sutura auxiliar y la línea por donde se vive. Si se toca ahí, lo que puede desajustarse un momento no es un solo camino, sino todo el modo en que arriba maneja a los de abajo.
+
+Puso la piedra de pie en el punto donde se juntaban las tres.
+
+—Aquí.
+
+—¿Lo viste?
+
+Lo preguntó Seorin.
+
+—Tres veces. Cada vez que entraba, pasaba por ahí. Dos líneas del techo se separan ahí. Las líneas del suelo del nivel de arriba también se doblan ahí. La marca de huellas termina ahí.
+
+La segunda, de pie, miró ese punto.
+
+—Ahí hay mucha gente.
+
+—Lo sé.
+
+Luhai preguntó desde el lado de los niños.
+
+—¿Entonces se queda todo sin moverse?
+
+Kael negó con la cabeza al responder.
+
+—No. Por eso es difícil. No se para del todo. Pero, mientras todo se reajusta con todo, el compás con que lee a la gente puede retrasarse.
+
+—¿Cuánto?
+
+—No lo sé. Nunca se ha retrasado ni una vez.
+
+Seorin tomó esas palabras al vuelo y, con la piedra, trazó en la placa una línea corta, como si lo anotara.
+
+—Listo. No apuntamos a la parada total, sino a retrasar el compás de lectura.
+
+Han Jiwoo miró esa línea, pero la cara no se le aflojó. Cuando apretó la mano con que sujetaba la del niño pequeño, el niño miró esa mano, y solo entonces Han Jiwoo aflojó.
+
+—¿Y la gente?
+
+Lo preguntó en voz baja.
+
+—La gente que se ha quedado ahí dentro, cuando sacudamos esta estructura, ¿dónde va a quedar?
+
+Cuando Seorin detuvo la piedra, Kael miró esa piedra. El punto donde se juntaban las tres líneas: el sitio donde la segunda había dicho que había mucha gente.
+
+La máquina vieja avanzó un paso más, hasta donde se veía la placa.
+
+—Por eso hacen falta nuestras manos. Las líneas de mantenimiento de dentro, las líneas de señal, las líneas de conexión ocultas: esas las conocemos. Aunque no podamos romperlo del todo, sí podemos hacer que aguante para que no se derrumbe del lado donde la gente quedaría aplastada.
+
+Señaló, por debajo de las tres líneas de la placa, el suelo de fuera de la placa.
+
+—Aquí debajo están nuestras líneas. Si lo de arriba se enreda, lo sostenemos.
+
+—¿Y si se apagan sosteniéndolo?
+
+Lo preguntó Han Jiwoo.
+
+La máquina vieja no respondió enseguida.
+
+—También eso lo calculamos. Esta vez no empieza por nuestro lado.
+
+El ojo óptico de la máquina del lado de la pared se alzó y una luz débil iluminó la placa. Seorin vio esa luz y aun así no dijo nada.
+
+—Bien. Entonces queda ordenado.
+
+Mientras lo decía, Seorin dividió la placa en cuatro con la piedra. Cuatro líneas.
+
+—Ater, el decoro y el eje político de arriba; Sern, el eje de la aprobación y el registro; Kael, el eje del cierre y el movimiento; las máquinas viejas de dentro, las líneas de mantenimiento y amortiguar el derrumbe.
+
+Puso una piedra en cada casilla. Cuatro. Al ver que le sobraba una piedra se detuvo un momento, y miró a Han Jiwoo.
 
 —Tú, la gente.
 
 Han Jiwoo alzó los ojos.
 
-Seorin habló de forma muy simple.
+Seorin puso la quinta piedra fuera de las casillas, en el centro de la placa.
 
-—Hasta dónde pueden moverse los humanos que quedan dentro,
-dónde se derrumban,
-y dónde aún sostienen su propio compás,
-eso lo ves tú mejor que nadie.
+—Hasta dónde pueden moverse los humanos que se han quedado dentro, dónde se derrumban y dónde todavía se aferran a su propio compás: eso lo ves tú mejor que nadie.
 
-Esas palabras no eran consuelo ni delegación.
-Eran una disposición exacta.
+Han Jiwoo miró un rato la piedra del centro y luego, sin soltar la mano del niño, asintió despacio.
 
-Han Jiwoo asintió muy despacio.
+—¿Y los niños?
 
-Ahora su papel ya no era solo la mano que saca a unos cuantos más,
-sino la persona que ve dónde puede revivir el tiempo humano al sacudir esta estructura.
+Lo preguntó ella.
 
-Sion, tras oír aquello, abrió la boca en voz baja.
+—Los niños también son gente. Míralos también.
 
-—Entonces yo sostengo los dos lados.
+Sion vino desde donde estaba la gente de Hazran hasta la placa, y se quedó de pie a su lado sin sentarse.
+
+—Entonces yo sujeto los dos lados.
 
 Seorin lo miró.
 
-Sion habló corto.
+—Entre la gente que se queda dentro y los que tienen que volver a correr fuera. No se puede cortar ninguno de los dos, ¿no?
 
-—Entre los que quedan dentro
-y los que deben volver a correr afuera.
-No pueden cortarse los dos.
+Seorin miró a Sion y a la placa, alternando, sin tomar ninguna piedra, pero no quedaba piedra. Sin piedra, con el dedo, trazó una línea que rodeaba todo el borde de la placa.
 
-Aquellas palabras salieron como si fueran poca cosa,
-pero algunos en la sala sabían lo importante que era esa frase.
+—Ahí.
 
-Por buena que sea la estrategia,
-si la gente se derrumba, no hay un después.
-Y ahora Sion
-aceptaba con toda naturalidad como cosa propia ese papel de sostener la conexión para que no se derrumbara.
+Sion miró esa línea que rodeaba la placa y asintió.
 
-Seorin recorrió por última vez la tabla entera con la mirada, como barriéndola.
+La segunda preguntó de pie.
 
-—Bien —dijo—. Por primera vez tiene sentido.
-—No armamos un plan para sacar a unas pocas personas más,
-sino para enredar la estructura con que Serakion lee, hace rodar y devuelve a la gente.
+—¿Y nosotras dos?
 
-Luhai, al oír aquello, murmuró bajito.
+—La recogida. Eso, sigan haciéndolo. Si se corta, los niños no van a saber.
 
-—O sea, que de verdad lo rompemos.
+Mientras la segunda se miraba la pierna, la primera respondió.
 
-Seorin sonrió un poco.
+—Lo haremos.
 
-—Sí. Ahora sí, por fin en serio.
+Por último, Seorin miró la placa entera. Las tres líneas, las líneas largas y el punto, el sitio donde se juntaban tres líneas, las cuatro casillas y las cinco piedras, y la línea del contorno.
 
-Al final de aquel día,
-nadie de los reunidos en la sala podía aún calcular las probabilidades.
-Aún había mucho que no sabían,
-aún había mucho orden de arriba sin descubrir,
-y aún no se veía hasta el final cuál era el centro.
+—Bien. Por primera vez tiene sentido. No estamos armando un plan para sacar a unas cuantas personas más, sino planeando cómo enredar la estructura con que Serakion lee, mueve y devuelve a la gente.
 
-Pero al menos una cosa había quedado clara.
+Luhai murmuró bajito desde el lado de los niños.
 
-De aquí en más, ellos no eran ya solo los que se limitan a sobrevivir dentro de Serakion,
-sino que empezaban a armar una estrategia de verdad,
-hacia el lado de romper el modo mismo que hacía que Serakion solo pudiera rodar así.
+—O sea que de verdad vamos a romperlo.
+
+Seorin soltó una risita.
+
+—Sí. Por fin, como se debe.
+
+Dejó la piedra junto a la placa y no volvió a tomarla.
+
+El anciano de Hazran echó un vistazo a la placa donde estaban las cinco piedras y luego miró su propia placa. Dieciséis trazos.
+
+—¿Y nuestros trazos dónde van?
+
+Seorin lo miró y respondió.
+
+—En esa placa. Déjelos ahí. Nosotros trabajamos con esta.
+
+El anciano se apretó su placa contra el pecho y dio un paso atrás.
+
+Ater miró la placa de lejos desde la salida. Una de las cuatro piedras era la de su casilla. Solo después de mirar esa casilla largo rato se dio la vuelta y miró la salida.
+
+Sern, que había tomado el panel de registro, buscaba en la línea de la señal, del lado que subía, el punto donde empezaba esa línea.
+
+Cuando parpadeó la lámpara amarilla, las cinco piedras de la placa echaron sombra en cinco direcciones. La sombra de la piedra del centro era la más larga.
+
+Han Jiwoo miró esa sombra.
 
 ---
 

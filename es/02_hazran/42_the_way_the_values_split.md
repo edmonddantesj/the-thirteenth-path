@@ -20,8 +20,6 @@ Esta vez señaló la mano de Luhai.
 
 —La conversación, aparte.
 
-Eso quería decir, al final, que también iban a separar a las personas.
-
 Sion preguntó enseguida.
 
 —¿A quién piensas apartar?
@@ -36,8 +34,6 @@ Sion lo dijo en voz baja.
 —Eso lo dices tú.
 Así respondió Nasim.
 —Aquí dentro, todavía todo es precio.
-
-La frase era desagradable, pero no era falsa. Al menos, dentro del orden de este interior.
 
 Ater habló con calma.
 
@@ -217,23 +213,21 @@ Seorin lo vio y preguntó.
 
 —O sea, que nos van a separar.
 
-—Un momento.
+—Es solo un rato.
 Eso dijo Harún.
-—Solo durante doce.
+—Solo mientras estén a doce pasos.
 
 —Eso es lo que menos me creo.
 Sion lo masculló.
 
-—Ya te dije que la confianza es cara.
+—La confianza siempre ha sido cara.
 Lo dijo Nasim.
-
-Las palabras seguían siendo odiosas, pero, por extraño que fuera, ahora sonaban como la ley de todo este lugar.
 
 Kael entró en el pasillo.
 
 Cada vez que el pie tocaba la placa de metal sonaba un golpe bajo y sordo. Uno. Dos. Tres. Una persona de dentro contaba con él, tocando las muescas con la punta del dedo. No contaba en voz alta. Solo movía el dedo.
 
-En el nueve detuvo la mano.
+En el nueve, el dedo que contaba se detuvo.
 
 Kael apartó la lona del final del pasillo y dio tres pasos más hacia afuera. En el último paso entró de golpe el calor de afuera, y la lona, al volver a caer, le cortó la espalda.
 

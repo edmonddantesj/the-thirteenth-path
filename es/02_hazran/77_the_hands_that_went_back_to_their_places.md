@@ -20,7 +20,7 @@ Dicho eso, Seorin se fue a su puesto. Sion no vio adónde. Esa mujer no dejaba v
 
 Sion corrió.
 
-En lo que duró la mañana, el mercado había tomado otra forma por completo.
+De la noche a la mañana, el mercado había tomado otra forma por completo.
 
 Los puestos no habían desaparecido; había cambiado el ángulo. Hasta ayer estaban sesgados para que se vieran bien las mercancías, y ahora estaban de pie de forma que tapaban una vez a quien pasaba. Las cuerdas de las tiendas también estaban atadas de nuevo. No en el ángulo bueno para vender, sino en el bueno para tapar y dejar pasar.
 
@@ -95,7 +95,11 @@ Harún respondió sin detener las manos.
 
 Sion se guardó esas palabras en la cabeza.
 
-Ese hombre estaba decidiendo por dónde salir antes que qué detener. Todavía le quedaba la cara de quien había recibido un castigo ayer, pero encima de esa cara se había puesto otra. Era la cara de quien sabía mejor que nadie que en ese sitio no había nadie más que pudiera ocupar su lugar.
+Era lo mismo que había dicho Han Jiwoo sobre el barco unos días antes. Que lo que parece más urgente no es lo primero que hay que hacer.
+
+A Sion le pareció raro que quien arregla barcos y quien defiende una ciudad dijeran lo mismo. Luego se corrigió: no era raro. Los dos eran manos que habían visto derrumbarse cosas durante mucho tiempo.
+
+Harún estaba decidiendo por dónde salir antes que qué detener. Todavía le quedaba la cara de quien había recibido un castigo ayer, pero encima de esa cara se había puesto otra. Era la cara de quien sabía mejor que nadie que en ese sitio no había nadie más que pudiera ocupar su lugar.
 
 Mientras mandaba a la gente, Harún les tocaba el hombro uno por uno.
 
@@ -112,8 +116,6 @@ Una estaba separando trozos de metal en tres montones, y la otra cogía uno de e
 —¿Por qué dejarlo?
 
 —Pesa poco. No aguanta mucho, pero para reforzar lo que ahora tiembla, sirve más.
-
-Las palabras eran cortas. Cortas, pero dentro iban juntas la reparación y la defensa.
 
 Sion vio que eso había cambiado respecto de unos días atrás. Hasta ayer, el material para arreglar el barco y el material para defender la ciudad iban por separado. Hoy salían del mismo montón.
 

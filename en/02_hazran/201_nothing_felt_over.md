@@ -14,7 +14,7 @@ What should have collapsed had not collapsed, and there was nothing to charge at
 Sion was looking at the figure straight ahead, neat and exact.
 Its head was still turned toward him. Because he was the last one who had spoken.
 He turned his head away, but the figure's head did not follow. It was not a request.
-When he looked at the figure again, its head was turned toward him; it had never turned away.
+When he looked at the figure again, its head was facing him; it had not moved.
 He closed his eyes and opened them.
 Nothing had changed.
 
@@ -222,7 +222,7 @@ For the first time in this hall, Sern wrote one line on the record panel.
 Lines.
 
 Sion looked back at the figure once more instead of answering.
-Its head came around toward him, exactly.
+Its head was facing him, exactly.
 
 "It's over, but…"
 

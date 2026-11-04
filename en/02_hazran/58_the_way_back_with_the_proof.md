@@ -207,10 +207,6 @@ Han Jiwoo gave a short laugh.
 she said.
 "Then let's go back in."
 
-Sion liked that, almost strangely.
-
-Because it sounded like something said not by someone running away, but by someone going back alive with the real thing in hand.
-
 And at that very moment, the two craft began to turn completely around.
 
 Not onto the line fleeing out of Hazran, but onto the line carrying the real thing back to the center of the board.

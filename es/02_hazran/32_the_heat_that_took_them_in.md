@@ -10,7 +10,7 @@ El casco se hundió más hondo bajo la sombra de los restos. El espacio entre la
 Ella lo murmuró con los dientes apretados.
 —Morirse ahora sería una injusticia, ¿no?
 
-A quién se lo decía no estaba claro. Al barco, al motor o a sí misma. Pero, por extraño que fuera, las tres cosas sonaban ciertas.
+A quién se lo decía no estaba claro. Al barco, al motor o a sí misma.
 
 Sern habló mientras recorría el panel con la vista.
 
@@ -56,8 +56,6 @@ Seorin preguntó.
 Han Jiwoo no respondió enseguida. En lugar de eso, dio un golpe más al mando y solo entonces habló en voz baja.
 
 —Sin romper algo no se baja.
-
-Esa sola frase bastó.
 
 Esta vez nadie preguntó «¿puede aguantar?». No era un estado que fuera a cambiar por preguntarlo. No quedaba más que estrellarlo con vida, como fuera.
 
@@ -231,7 +229,7 @@ Ater se irguió apoyándose en la rodilla y habló.
 
 Kael, antes que responder, comprobó el fragmento. Seguía contra su pecho. Solo entonces soltó un aliento muy breve.
 
-Sion también soltó el asidero y se incorporó despacio. No metió la mano por dentro de la chaqueta. Estaba donde sabía que estaba, sin necesidad de tocarlo.
+Sion también soltó el asidero y se incorporó despacio. No metió la mano por dentro de la chaqueta. El papel estaba donde sabía que estaba, sin necesidad de tocarlo.
 
 **Hazran**
 **Aka**
@@ -267,10 +265,6 @@ Más allá de las naves muertas medio enterradas, la arena, el calor y el brillo
 Elia solo había dejado un nombre y una palabra.
 Han Jiwoo había dicho que hacía falta eterita.
 Y en algún lugar de este desierto estaba Aka.
-
-Haber sobrevivido no era el final.
-
-Lo de verdad empezaba ahora.
 
 ---
 

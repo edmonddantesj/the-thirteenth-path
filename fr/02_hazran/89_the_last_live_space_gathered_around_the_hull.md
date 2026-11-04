@@ -153,7 +153,7 @@ Sion avait posé la question.
 
 « Sept, ça passe. À partir de huit, non. »
 
-« Tout à l'heure, tu as dit trois fois sept. »
+« Tout à l'heure, tu as dit de couper à sept. »
 
 « C'est pour ça que j'ai dit sept. »
 Han Jiwoo poursuivit :

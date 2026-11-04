@@ -116,7 +116,7 @@ Jiwoo releva la tête et regarda longtemps les deux lumières, puis serra et des
 
 Ater avait d'abord regardé les réactions plutôt que les lumières elles-mêmes.
 
-Mais à un moment, lui aussi ne put plus détourner les yeux.
+À un moment, lui aussi ne put plus détourner les yeux.
 
 Dans un lieu qui avait séparé les humains et les machines jusqu'au bout par l'alignement et l'approbation, la classification et la récupération, tout cela dans le mauvais ordre, le fait que ce qui demeurait à la fin soit ce genre de tremblement n'était pas léger du tout.
 
@@ -160,8 +160,6 @@ Aka ferma les yeux et les rouvrit.
 
 « Je ne vois pas bien. Mais… cette personne est enfermée. »
 
-L'air dans le vaisseau se déplaça, très légèrement.
-
 Aka continua, sentant ses propres mots comme si elle les suivait du doigt.
 
 « Elle ne peut pas bouger. Froid. Et… la respiration ne s'est pas arrêtée, mais on dirait qu'elle continue d'être permise. »
@@ -184,7 +182,7 @@ Ater dit très bas :
 
 Personne ne prononça de nom aussitôt.
 
-Mais étrangement, Sion pensait à un nom.
+Étrangement, Sion pensait à un nom.
 
 Elia.
 
@@ -194,7 +192,7 @@ La personne qui lisait les séquences coupées avant les surfaces. Qui lisait le
 
 Que ce soit vraiment Elia, on ne pouvait pas encore le savoir.
 
-Mais étrangement, aucun autre nom ne venait aussi facilement.
+Et pourtant, aucun autre nom ne venait aussi facilement.
 
 La première à parler fut Aka.
 

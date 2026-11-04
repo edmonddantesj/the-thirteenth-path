@@ -34,8 +34,6 @@ Aka habló con la mano apoyada en la pared exterior.
 
 —Basta con que llegue lo justo para enviarnos.
 
-Esas palabras eran crueles, pero exactas.
-
 Este barco no necesitaba revivir del todo. Ahora bastaba con que aguantara lo justo para llevar un poco más afuera a la gente que había que enviar.
 
 Con Hazran pasaba lo mismo. No se trataba de que viviera la ciudad entera, sino de aguantar un poco más, lo justo para enviar con vida a otros.
@@ -73,13 +71,11 @@ No era una pregunta; se parecía más a una burla lanzada contra sí misma.
 
 Nadie pudo responder enseguida.
 
-Esa frase pinchó con exactitud el aire de dentro del casco.
-
 Luhai, apoyado en la pared, habló.
 
 —Aun así, Zahir nos dijo que nos fuéramos.
 
-Eso también se parecía más a convencerse a sí mismo. Los ojos se le seguían yendo hacia fuera.
+Los ojos se le seguían yendo hacia fuera.
 
 Este chico era de Hazran. Ver desde dentro cómo se cierra tu propia ciudad desgarra a la gente de otra manera.
 
@@ -88,7 +84,7 @@ Lo dijo Luhai en voz baja.
 
 Con esas palabras, Sion se derrumbó una vez más.
 
-Lo que se cerraba ahora no era solo el pasillo. Eran los callejones, las casas, el olor al que volver. Para Sion, Hazran era un sitio al que había llegado por primera vez hacía tres días, pero para este chico era donde había nacido.
+Lo que se cerraba ahora no era solo el pasillo. Eran los callejones, las casas, el olor al que volver. Para Sion, Hazran era un sitio al que había llegado por primera vez hacía poco, pero para este chico era donde había nacido.
 
 —¿Qué olor?
 Lo preguntó Sion.
@@ -155,19 +151,19 @@ Sion soltó el brazo.
 
 Después de soltarlo, no fue a ninguna parte. No había adónde ir.
 
-El interior del casco seguía siendo estrecho. Los dieciséis estaban pegados a las paredes y nadie hablaba. Los ruidos de fuera no llegaban hasta aquí. Era una sola capa de metal delgado, y esa sola capa se tragaba todo el sonido.
+El interior del casco seguía siendo estrecho. Los dieciséis estaban pegados a las paredes y nadie hablaba. Los ruidos de fuera aquí solo se oían lejanos. Era una sola capa de metal delgado, y esa sola capa se tragaba casi todo el sonido.
 
 Eso era lo que a Sion le parecía más extraño. En todo el día lo había sabido todo por el sonido. Si el barco estaba vacío o lleno, cuántos pasos se habían acercado aquellos, si alguien golpeaba desde abajo: todo era sonido.
 
 Ahora solo tenía los ojos.
 
-En cambio, empezó a contar.
+En cambio, contó.
 
-Venía contando desde antes. Desde que Seorin le dijo que subiera contando, contaba sin cortar. Mientras los números rodaban dentro de la cabeza, las manos no le temblaban.
+Aunque ya no podía trazar marcas en la tablilla, en la cabeza seguía contando. Desde que Seorin le dijo que subiera contando. Mientras los números rodaban dentro de la cabeza, las manos no le temblaban.
 
 Ahora era lo único que podía hacer.
 
-Fue entonces cuando Aka habló por primera vez, en voz baja.
+Fue entonces cuando Aka habló en voz baja.
 
 —Sigan mirando.
 
@@ -176,12 +172,6 @@ Todos miraron hacia ella.
 Aka seguía mirando afuera.
 
 —Hay que mirar hasta el final.
-
-Fueron pocas palabras.
-
-Sion creyó entender qué querían decir.
-
-Querían decir que no viviera fingiendo no saber. Que no se fuera como quien huye, y que viera con sus propios ojos, hasta el final, cómo se cerraba Hazran y quién se quedaba a cargar con qué.
 
 Sion estaba mirando.
 
@@ -195,7 +185,7 @@ Aka miró hacia Sion. Era la primera vez hoy.
 
 —¿Estás contando?
 
-—Estás contando, ¿no?
+—Estoy contando, ¿no lo ves? —respondió Sion.
 
 —…Sí.
 

@@ -16,7 +16,7 @@ And in between those short silences, Seorin slowed her step, just for a moment.
 
 To anyone else it might have looked like she was only resetting her footing. But Sion knew at once. Seorin hadn't stopped; she had caught her breath once so that she wouldn't stop. The fingers of her right hand curled and opened for the briefest moment, and the line of her jaw tightened, barely, then eased again.
 
-It was the kind of tiredness two sentences were enough for.
+It was the kind of tiredness that brushed past and was gone.
 
 The breath of someone who wished nobody had seen, and had already decided she would not break anyway.
 
@@ -120,8 +120,6 @@ For the first time, Nahira properly looked at Seorin.
 "On the surface,"
 she answered.
 
-It was a short answer, but Sion felt that one phrase stay with him strangely long. It was a voice that admitted far too easily that the inside was quieter than the outside, and that this did not mean it was peaceful.
-
 Nasim added lightly.
 
 "Etherite, one name, and one kid who reads ledgers,"
@@ -146,8 +144,6 @@ Nahira stepped aside.
 "Come in,"
 she said.
 "But once you're in, things won't roll along in the order you ask them anymore."
-
-To Sion, that sounded almost like a warning.
 
 They weren't going in to ask questions. They were going in to be sorted into the order inside.
 

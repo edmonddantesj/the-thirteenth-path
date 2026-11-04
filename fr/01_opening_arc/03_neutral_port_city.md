@@ -71,7 +71,7 @@ Sous le niveau d'amarrage extérieur, les lignes de guidage retracées à la mai
 Des deux qui marchaient devant, celui qui boitait regarda une fois en arrière.
 Sion baissa aussitôt la tête et se mêla à un groupe d'ouvriers du fret qui passait. Un instant plus tard et, à cette distance, il aurait été repéré.
 
-De l'autre côté, Seorin claqua la langue.
+Ils se rejoignirent au bout du niveau d'amarrage. À peine arrivée, Seorin claqua la langue.
 
 « Ceux-là aussi, ils ont déjà pisté des gens. »
 
@@ -79,7 +79,6 @@ De l'autre côté, Seorin claqua la langue.
 
 « Un port vraiment sain. »
 
-Ils se rejoignirent au bout du niveau d'amarrage.
 Les deux devant descendaient vers la passerelle de correspondance du niveau inférieur. Au bout de ce chemin se pressaient un quartier de logements provisoires, des bars miteux et des entrepôts qui faisaient aussi mont-de-piété. Un quartier où les gens disparaissaient avant les registres.
 
 Regardant dans cette direction, Sion dit à voix basse :

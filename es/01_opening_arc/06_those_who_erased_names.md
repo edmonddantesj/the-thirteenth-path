@@ -14,7 +14,7 @@ Seorin fue la primera en recuperar la voz.
 
 —De locos.
 
-Esa sola palabra era tan exacta que Sion, al contrario, no pudo levantar la cabeza.
+Sion no pudo levantar la cabeza.
 
 Al otro lado, Sern tampoco decía nada.
 Había mirado a Ater antes que a la placa.
@@ -105,7 +105,7 @@ Era el Archivista.
 —…recuperación… el orden… no… hay que mirar primero el orden…
 
 La voz se cortó y volvió.
-Casi todo lo de en medio estaba roto, pero precisamente por eso resultaba más desgarrador.
+Casi todo lo de en medio estaba roto.
 
 —…aunque el nombre… quede… si muere el orden… cambia el veredicto…
 
@@ -177,9 +177,9 @@ Sern contestó sin cerrar la pantalla.
 
 —No solo del Imperio.
 
-Esa breve frase bastó para cambiar por completo el aire del pasillo.
+Los ojos de Sion ya habían ido antes a la pantalla de la muñeca de Sern. Para leer letra pequeña en un pasillo oscuro, le bastaba con su vista nocturna.
 
-—¿Qué acabas de decir? —preguntó Sion—. ¿Texto Negro qué?
+—¿Qué te acaba de salir ahí? —preguntó Sion—. ¿Texto Negro qué?
 
 Sern cerró la pantalla.
 
@@ -292,7 +292,7 @@ Sion ya se estaba volviendo hacia la grieta.
 
 —¿Es momento de preguntar eso?
 
-—No. Por eso lo pregunto ahora. Más tarde no me respondería.
+—No. Por eso lo pregunto ahora. Me parece que más tarde no me respondería.
 
 Sion no respondió.
 
@@ -330,7 +330,7 @@ Sion miró un instante esa espalda. El «se requiere justificación» seguía vi
 
 El óxido del borde de la grieta estaba raspado hacia dentro. Era una raspadura nueva.
 
-—El que echó el cierre también salió por aquí.
+—El que echó el cierre también salió por aquí —le dijo Sion a la espalda de Seorin.
 
 Sion la siguió, Sern marcó a su lado la dirección por donde la grieta estaba de verdad abierta, y Ater, el último, miró una vez atrás. El lugar del Archivista muerto, el terminal apagado, la puerta entreabierta de la sala de conservación. No podía quedarse mucho tiempo mirando un lugar al que ya se había llegado tarde.
 

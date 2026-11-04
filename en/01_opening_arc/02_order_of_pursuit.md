@@ -113,10 +113,10 @@ Ater looked back at him.
 
 "Because there is nothing."
 
-Sern's answer was short, and so it was more precise.
+Sern's answer was short.
 
 "The paperwork shook that badly, and there is no trace of an official movement approval.
-The approval wait is in the seven-hour range, and within that window the scene closes three times. Anyone who knows that does not wait."
+Their approval wait always runs in the seven-hour range, and within that window the scene closes three times. Anyone who knows that does not wait."
 
 Ater's gaze sank for a moment.
 It was a look in which displeasure and interest overlapped, very thinly.

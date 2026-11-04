@@ -20,7 +20,7 @@ Kael spoke first, low.
 
 "We're closing."
 
-It wasn't a feeling; it was a distance report. The gap between the two craft had grown very short. Close in a little more and they might move a person across; close in too much and they might get caught together and go down.
+The gap between the two craft had grown very short. Close in a little more and they might move a person across; close in too much and they might get caught together and go down.
 
 Sern spoke at once.
 
@@ -52,7 +52,6 @@ Sern added, low, ahead of anyone else.
 
 "Moving it will shake it."
 
-That was exact.
 The real ember was not showy, but it was alive. Changing hands now would not be simply passing an object over; it could mean shaking its response one more time. Changing their judgment needlessly here could make them kill the real thing with their own hands, like the teams that had been fooled by the fakes.
 
 Han Jiwoo settled it shortly.
@@ -105,8 +104,6 @@ Kael's answer was very even.
 
 "That's what running together is, anyway."
 
-To Sion, how fast that exchange reached its conclusion felt stranger than anything. And then again, it wasn't strange at all. Right now all four of them were moving with heads that leaned closer to survival than to explanation.
-
 Up in the stands, the change was read too.
 
 Luhai saw the two craft below close in for a moment, then adjust the gap again, and he frowned at once.
@@ -125,7 +122,6 @@ Ater looked at her at once.
 Seorin answered.
 "But the hand with the real thing is going to keep slipping toward where it can't be seen."
 
-She was right.
 If the hand holding the real thing stayed clearly in sight, all of Hazran would come at it.
 So what mattered from now on was not speed, but **blurring, even for a moment, who was holding the real thing**.
 

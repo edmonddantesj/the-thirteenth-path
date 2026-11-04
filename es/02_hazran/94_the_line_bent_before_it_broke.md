@@ -216,9 +216,9 @@ Harún salió de entre los restos.
 
 Volvió a empuñar el arma con la mano derecha y no usó la izquierda.
 
-Al principio Sion no se dio cuenta. Se dio cuenta cuando Harún fue hacia la tablilla a trazar una marca. Harún, hasta ahora, las trazaba con la izquierda.
+Al principio Sion no se dio cuenta. Se dio cuenta cuando Harún fue hacia la tablilla a trazar una marca en lugar de Nasim.
 
-Esta vez la trazó con la derecha. Con el arma sujeta bajo el costado.
+La trazó con la derecha. Con el arma sujeta bajo el costado. La izquierda ni siquiera subió a la tablilla.
 
 —Harún.
 

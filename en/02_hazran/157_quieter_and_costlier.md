@@ -24,7 +24,7 @@ Seeing that, Ater spoke—not a question this time but a very low confirmation.
 
 "This column. Has the order changed?"
 
-The first machine responded. It had no choice but to respond. The adult's shoulder, the child who had gone out, the confirmation from outside, a fellow machine's half step: four. Which first. The light in the machine's face stopped. One beat.
+The machine with its hand on the adult's shoulder responded. It had no choice but to respond. The adult's shoulder, the child who had gone out, the confirmation from outside, a fellow machine's half step: four. Which first. The light in the machine's face stopped. One beat.
 
 Kael spoke from the corner.
 
@@ -42,7 +42,7 @@ The problem came next.
 
 From inside the column, a third child was looking this way.
 
-Not the child Han Jiwoo had read, nor the one Ater had marked, but a small child between two adults at the end of the column. That child turned their head and watched the two going out until they were gone. Seeing those eyes, the second's step lagged a beat, and Han Jiwoo struck the second's arm. The second walked on.
+Not the child Han Jiwoo had read, nor the one Ater had marked, but a small child at the end of the column, wedged between two adults and left behind. That child turned their head and watched the two going out until they were gone. Seeing those eyes, the second's step lagged a beat, and Han Jiwoo struck the second's arm. The second walked on.
 
 Han Jiwoo looked at that child. The habit of checking the side first, the eyes that never missed who was slipping out, the way of turning the body and then swallowing it back. The child turned half a step this way, then set their feet back on the footprint shapes. Swallowed it.
 
@@ -127,7 +127,7 @@ The gap closed. Under the yellow lamp of the hidden level, Sion stood holding th
 
 They stayed quiet without collapsing right away; only a few beats later did they know they had come back alive.
 
-Only then did the second sink down, knee first, and Han Jiwoo, still holding the children's hands, looked at that knee. The joint had split open, a width no screwdriver would fix. She said nothing. Neither did the second.
+Only then did the second sink down, knee first, and Han Jiwoo, still holding the child's hand, looked at that knee. The joint had split open, a width no screwdriver would fix. She said nothing. Neither did the second.
 
 Han Jiwoo turned and looked at the closed wall.
 
@@ -149,7 +149,7 @@ Han Jiwoo didn't answer.
 
 Ater stopped there. He did not go on.
 
-Sion looked at the board and marked two of the three dots as arrived. He left the third dot empty along with the empty square beside it, so now there were two empty squares. Seorin looked at the board, then at the dot she had made on the floor, but she didn't rub it out with her foot.
+Sion looked at the board and marked two of the three dots he had set down this time as arrived. He left the third dot empty along with the empty square beside it, so now there were two empty squares. Seorin looked at the board, then at the dot she had made on the floor, but she didn't rub it out with her foot.
 
 "Two."
 
@@ -181,11 +181,11 @@ The old machine lowered itself. It took a long time, and at the end its optical 
 
 "It needs small hands."
 
-Han Jiwoo looked at her own hands. Both were hands holding a child's hand. The old machine nodded.
+Han Jiwoo looked at her own hands. It was a hand holding a child's hand. The old machine nodded.
 
 "Later."
 
-Still holding the children's hands, Han Jiwoo put her back to the wall, closed her eyes and opened them. The third child's eyes. She didn't close them again.
+Still holding the child's hand, Han Jiwoo put her back to the wall, closed her eyes and opened them. The third child's eyes. She didn't close them again.
 
 ---
 

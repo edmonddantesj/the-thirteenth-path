@@ -46,22 +46,12 @@ Up close, though, it was the only place where the grain was not yet completely b
 she said.
 "The first place that has to hold isn't the place that'll move the most. It's the place that'll stay standing the longest."
 
-Sion felt he had heard that somewhere.
-
-A few days ago, when Harun split people into three lines, he had reinforced the way out first. When Sion asked why he did that first, Harun said that if you left it for later, you would end up doing it where things were already blocked.
-
-It was the same thing. The place that looks most urgent is not the place to do first.
-
-Sion found it strange that someone who fixed ships and someone who guarded a city said the same thing. Then he changed his mind: it was not strange. Both were hands that had watched things collapse for a long time.
-
 Having heard that, Sion looked at Aka.
 
 Aka was watching Han Jiwoo more than the hull.
 Then she spoke, very low.
 
 "Now you really know how to look."
-
-It sounded like praise, and like a confirmation too.
 
 Sion steadied his breath once, for no reason.
 
@@ -196,8 +186,6 @@ Forgetting was work too. It let go in order, starting with the parts it did not 
 But it could not erase all of it.
 
 Sion did not know whether that was a comfort. If it had all been erased, they would not have come this far, and if they had not come, there would be none of this trouble now.
-
-That line struck Sion strangely hard in the chest.
 
 That the path was not completely dead, that a cold spot remained, the feeling that the ember remembered something: it was all one thing.
 

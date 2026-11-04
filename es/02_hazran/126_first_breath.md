@@ -1,34 +1,14 @@
-# Capítulo 126 — Un lugar donde se puede respirar
+# Capítulo 126 — El primer aliento
 
-En el instante en que salieron del extremo del corredor,
-lo primero que llegó no fue la luz, sino el olor.
+En el instante en que salieron por el extremo del pasaje, lo primero que les llegó no fue la luz, sino el olor.
 
-El olor a metal viejo.
-El olor a aceite reseco pegado en las marcas.
-Un olor que, por no estar demasiado pulido,
-no lograba esconder que la máquina había aguantado mucho tiempo.
+Olor a metal viejo, olor a marcas de aceite reseco, olor a cosas que nadie había pulido.
 
-En cuanto Han Jiwoo respiró ese olor,
-sintió que, por primera vez desde que había entrado en Serakion, la tensión de sus hombros cedía apenas un poco.
+Han Jiwoo aspiró ese olor una vez, largamente, y se le bajaron los hombros. Era la primera vez desde que habían entrado en Serakion, y ella, aun sabiendo que se le habían bajado los hombros, no volvió a subirlos.
 
-Era algo extraño.
+Era más viejo, más áspero y más oscuro que todo lo que habían atravesado hasta entonces. Bajo aquel techo de poca altura, una de las lámparas amarillas parpadeaba; era la primera lámpara que parpadeaba que veían en Serakion.
 
-Estaba claro que era un lugar más viejo,
-más áspero,
-más oscuro
-que todo lo que habían atravesado hasta entonces.
-
-Y, sin embargo, justo por eso,
-por primera vez parecía un sitio donde un aliento humano podía sostenerse.
-
-Sion también notó esa diferencia de inmediato.
-
-Si la Serakion de allá arriba era un aire frío y ordenado,
-aquí el aire no estaba ordenado, pero al menos conservaba una «huella de lo que sobrevivió».
-
-No era perfecto.
-Y por eso, más bien,
-se acercaba al lado que mentía un poco menos.
+La lámpara que Sion miraba parpadeaba a intervalos desiguales, pero él no se puso a contar esos intervalos.
 
 Aka habló muy bajo.
 
@@ -38,181 +18,223 @@ Luhai respondió enseguida.
 
 —Por eso está mejor.
 
-A esas palabras,
-algunos de los refugiados venidos de Hazran reaccionaron con una rapidez extraña.
+La gente que venía de Hazran fue la primera en moverse ante esas palabras. Alguien se apoyó en la pared para recobrar el aliento; alguien se sentó en el suelo. En el suelo plateado nadie se había sentado, pero aquí se sentaron.
 
-Alguno se apoyó en la pared y recobró el aliento;
-alguno, tras mirar alrededor,
-puso por primera vez una cara un poco menos asustada.
+Cuando el anciano apoyó la espalda en la pared y cerró los ojos, el niño se sentó a su lado. Todavía tenía el destornillador en la mano.
 
-No era amplio,
-pero, de un modo raro, allí había más aire que en las zonas de Serakion que habían visto arriba.
+No era amplio. Las paredes eran viejas, y por todas partes había restos de grandes dispositivos incrustados, detenidos. Armazones redondos que nadie sabía para qué habían servido, tuberías medio arrancadas, pilares oxidados que iban del suelo al techo.
 
-Las paredes eran viejas,
-por todas partes había restos de grandes dispositivos detenidos, incrustados,
-y mucho de aquello parecía, según el criterio de ahora, un desperdicio ineficiente de espacio.
+Detrás de un pilar había sitio para que se escondiera una persona, y Luhai se fijó en ese sitio. En la parte alta de Serakion no había dónde esconderse.
 
-Pero a la gente de Hazran,
-incluso esos vacíos que parecían inútiles les resultaban, de un modo raro, acogedores.
+—Esto está bien.
 
-Porque no parecía un mundo que quisiera ordenar a las personas y meterlas con pulcritud,
-sino un espacio donde había quedado la huella de algo que se rompió una vez y, después, aguantó cada cual por su lado.
+Luhai golpeó el pilar con los nudillos y sonó un ruido sordo. Era el sonido de algo macizo por dentro.
 
-Han Jiwoo se acercó a la pared
-y rozó muy levemente, con la yema de los dedos, una tubería gastada como derretida.
+—¿Qué tiene de bueno?
 
-Allí quedaba, muy tenue,
-un calor viejo que no se sentía en las máquinas lisas de fuera de Serakion.
+Lo preguntó Kael.
 
-Sin darse cuenta, cerró la mano despacio una vez.
+—Hay dónde esconderse, ¿no?
 
-Esta vez Luhai no lo dejó pasar.
+Kael miró el pilar y también lo golpeó; sonó igual.
 
-Se acercó un poco a su lado y preguntó en voz baja.
+Ater no golpeó el pilar; en cambio, midió con los pies el ancho entre el pilar y la pared. Dos pies. Una persona. Después pasó al pilar siguiente.
 
-—Oye, ¿qué te pasa con esa mano desde hace rato?
+Han Jiwoo se acercó a la pared y tocó con la yema de los dedos una tubería gastada, como derretida. Estaba levísimamente tibia; cuando apoyó la palma, la tibieza era justo del tamaño de su palma.
 
-Han Jiwoo no respondió enseguida.
+Ella cerró la mano despacio, una vez.
 
-Por un momento, con la mano apoyada en la pared,
-recordó su nave y el esquife del desierto que había dejado en Hazran.
+Luhai lo vio, se le acercó por un costado y le preguntó en voz baja.
 
-El casco golpeado por la tormenta de arena,
-el panel del timón roto,
-el metal remendado a la fuerza,
-las cosas que no habrían aguantado de no ser por sus manos.
+—¿Qué te pasa con esa mano desde hace rato?
 
-Y dijo muy bajo.
+Han Jiwoo, con la mano en la tubería, no respondió enseguida.
 
-—Era para que aguantara.
+Su propia nave, la que había dejado en Hazran: el esquife del desierto. El casco castigado por las tormentas de arena, el panel del timón roto, el metal remendado a la fuerza. Cada vez que ponía la mano sobre una de esas cosas, había algo que ella hacía.
 
-Luhai se quedó un momento sin palabras.
+—Les decía que aguantaran.
+
+Lo dijo muy bajo.
+
+Luhai se quedó un momento callado.
 
 Han Jiwoo retiró la mano y añadió.
 
-—Nunca creí que escuchara,
-pero, si no, no podía tocarlo.
+—Nunca creí que escucharan, pero si no, yo no habría podido tocarlas.
 
-Aquello, más que una explicación,
-se acercaba a haber pasado por fin a palabras la verdad de una vieja costumbre.
+Luhai la miró una vez, miró la tubería y después se miró la mano.
 
-Luhai la miró una vez
-y, sin alcanzar siquiera a sonreír, murmuró.
+—Será por eso que lo que tocaban tus manos aguantaba tanto.
 
-—Entonces será que lo que tocaron tus manos aguantó mucho.
+Han Jiwoo no respondió enseguida. Tras esas palabras se tomó un instante muy breve y miró a Luhai.
 
-Han Jiwoo no respondió enseguida.
-Pero, tras esas palabras,
-demoró un instante muy breve y miró a Luhai.
+—Oye, ¿y tú por qué me tuteas?
 
-—Oye, ¿y por qué me hablas con tanta confianza?
-
-Luhai parpadeó una vez, con cara de tonto.
+Luhai parpadeó una vez.
 
 —…¿Señora?
 
-Han Jiwoo lo miró con una cara de fastidio.
+Han Jiwoo lo miró con cara de no poder creérselo.
 
 —…Llámame hermana.
 
-Tras un breve silencio,
-Luhai se inclinó enseguida ligeramente y respondió.
+Tras un breve silencio, Luhai inclinó un poco el torso enseguida y respondió.
 
-—¡A la orden, hermana!
+—¡A la orden, jefa!
 
-Han Jiwoo terminó tragándose una risa floja,
-y solo entonces se le aflojó en los labios un asomo muy tenue.
+Han Jiwoo se tragó una risa incrédula, pero la comisura de los labios se le aflojó muy levemente. Kael lo vio y volvió la cara, y los hombros le temblaron una vez; Seorin hizo como que no había visto nada.
 
-Aka, que lo observaba en silencio,
-echó a andar muy despacio hacia el lado donde los viejos dispositivos estaban detenidos.
+El niño de Hazran levantó la cabeza al oír aquel sonido y vio que los adultos se reían. Era la primera vez que lo veía desde que había llegado a Serakion. Como el niño no se reía y solo miraba, el anciano que tenía al lado abrió los ojos y lo miró.
 
-Desde que había entrado allí,
-se detenía con más frecuencia que en las zonas de Serakion de arriba.
+—Puedes reírte.
 
-Sion se acercó y preguntó en voz baja.
+Lo dijo el hombre.
+
+El niño no se rio. El hombre tampoco. Los dos miraron hacia donde reían los adultos.
+
+Aka lo estuvo mirando en silencio y luego echó a andar muy despacio hacia donde se habían quedado detenidos los viejos dispositivos.
+
+Desde que había entrado allí, se detenía a menudo. En la zona plateada no se había detenido ni una vez; aquí se detenía cada cinco pasos.
+
+Sion se le acercó y le preguntó en voz baja.
 
 —¿Qué ves?
 
-Aka respondió mirando un dispositivo detenido.
+Aka respondió mirando uno de los dispositivos detenidos.
 
 —Algo viejo.
 
-Sion no alcanzó siquiera a sonreír.
+Por un momento, Sion ni siquiera pudo sonreír.
 
 Aka siguió hablando.
 
-—Pero no solo viejo.
-—Está hecho de otra manera que lo de arriba.
+—Pero no es solo viejo. Está hecho de otra manera que lo de allá arriba.
 
-Aquellas palabras eran cortas,
-pero bastaban para cambiar el sentido de todo el espacio.
+En la juntura del dispositivo que señalaba había un perno con la cabeza gastada. Allá arriba no había pernos; ni siquiera había junturas.
 
-Quizá este no fuera simplemente un nivel inferior abandonado.
-Era más probable que fuera un lugar donde quedaba un estrato de la época en que Serakion, antes de quedar completa como ahora,
-era mucho más torpe y mucho menos ordenada.
+—Lo apretaron a mano.
 
-En ese momento,
-la máquina que había abierto el camino se quitó por primera vez del todo el rostro guía propio de Serakion.
+La yema de sus dedos tocó la cabeza gastada del perno.
 
-Parte de la superficie se abrió como desatándose,
-y bajo aquella superficie demasiado lisa quedó al descubierto un cuerpo mucho más viejo y tosco.
+Mientras Sion miraba aquel perno, Sern se acercó, miró y lo anotó en el panel de registro.
 
-No era hermoso como las máquinas de las zonas altas de Serakion.
-Pero, más bien por eso,
-por primera vez daba la sensación de que «alguien sobrevivió y llegó hasta aquí».
+—¿Todo lo de aquí abajo es así?
 
-Seorin dijo en voz baja.
+Lo preguntó Sern, dirigiéndose a la máquina que les había abierto el camino.
 
-—Ahora sí pareces capaz de hablar como una persona.
+—Este nivel, sí.
 
-La máquina miró un momento hacia allí.
-Después dijo, muy escueta.
+La máquina respondió.
 
-—¿Eso es un elogio para ustedes?
+—Más abajo, no lo sé.
 
-Luhai respondió casi por reflejo.
+—¿Hay algo más abajo?
+
+Como la máquina no respondió, Sern anotó ese silencio tal cual.
+
+En ese momento, la máquina que antes les había abierto el camino se detuvo.
+
+La máquina se llevó ambas manos a los lados de su placa facial; en la superficie lisa apareció una línea, y la superficie se abrió siguiendo esa línea. Sonó como una bisagra vieja.
+
+El cuerpo que quedó al descubierto bajo la superficie era viejo y tosco. De sus dos ojos ópticos, uno era más pequeño que el otro: no eran del mismo modelo. En el blindaje, bajo el cuello, tenía una marca de soldadura, de la misma clase que las que había en el casco de Han Jiwoo.
+
+La máquina dejó en el suelo la superficie que se había quitado, y una cara lisa, con la luz apagada, quedó en el suelo mirando hacia arriba.
+
+El niño de Hazran miró aquella cara. Se escondió detrás de las piernas de un adulto y luego volvió a salir a mirarla.
+
+Seorin habló en voz baja.
+
+—Ahora sí tienes cara de que se puede hablar contigo.
+
+Mientras la máquina miraba un momento hacia allí, el ojo óptico pequeño y el grande se movieron cada uno por su lado y se detuvieron en el mismo punto.
+
+—¿Para las personas eso es un elogio?
+
+Luhai le contestó casi por reflejo.
 
 —Por ahora, sí.
 
-En aquel breve intercambio,
-incluso dentro de la tensión, se aflojó por primera vez un aliento muy tenue.
+Han Jiwoo miraba la marca de soldadura bajo el cuello de aquella máquina. La máquina notó la mirada y, aun así, no se cubrió la marca.
 
-Pero no llegaba a ser tranquilidad.
+—Es antigua.
 
-Sern seguía leyendo las señales del lado de la entrada,
-Ater observaba la estructura y los reparos,
-y Kael comprobaba hasta el final si los refugiados habían entrado de verdad todos hasta el fondo.
+Lo dijo la máquina.
 
-El sitio al que habían huido dejaba respirar,
-pero todos sabían que aún no era un espacio
-que pudiera llamarse seguro.
+—Lo sé. Lo soldaron bien.
 
-Aquella máquina recorrió una vez los alrededores con la mirada
-y dijo, baja y seca.
+Los ojos ópticos de la máquina se posaron en Han Jiwoo.
 
-—Se puede aguantar un rato.
-—No mucho.
+Un compás.
 
-Esas palabras, precisamente,
-sonaron como la frase que describía con más exactitud todo aquel lugar.
+—¿A qué se refiere?
 
-El primer lugar dentro de Serakion donde se podía respirar.
-Pero un lugar donde no se podía tomar aliento para siempre.
+Lo preguntó la máquina.
+
+—A tu cuello.
+
+Han Jiwoo se señaló la parte baja de su propio cuello.
+
+—La mano que lo soldó sabía lo que hacía. Para que no se soltara.
+
+La máquina se llevó la mano bajo el cuello, tocó la marca una vez y bajó la mano.
+
+—Fue hace mucho.
+
+—Aun así, lo sé.
+
+Han Jiwoo levantó la mano y le mostró la cicatriz de los nudillos.
+
+—Esto también fue hace mucho.
+
+La máquina miró aquella mano y volvió a tocarse bajo el cuello. Se tocó y bajó la mano.
+
+Los ojos ópticos de la máquina se apartaron.
+
+Sern leía las señales del lado de la entrada, y Ater, buscando dónde esconderse y dónde cerrar el paso, miraba detrás de los pilares y entre las tuberías. Kael contaba a la gente de Hazran uno por uno. Ocho. Otra vez ocho. No dejaba de contar.
+
+La máquina recorrió los alrededores con la mirada y luego habló, baja y seca.
+
+—Se puede aguantar un rato. No mucho.
+
+—¿Cuánto?
+
+Lo preguntó Seorin.
+
+—Hasta que arriba decidan buscarnos.
+
+—¿Y cuándo lo deciden?
+
+—No lo sé. Siempre deciden ellos.
+
+Seorin asintió, apartó la mano de la empuñadura y apoyó la espalda en la pared. La pared estaba fría, pero no despegó la espalda.
 
 Sion miró despacio a su alrededor.
 
-Las viejas tuberías,
-los dispositivos detenidos,
-el metal menos pulido,
-las paredes en las que parecía que la gente podía apoyar el cuerpo.
+Las tuberías viejas, los dispositivos detenidos, los pernos gastados, las lámparas amarillas, la pared donde la gente apoyaba la espalda. Una cara lisa en el suelo.
 
-Y todo lo que aquel mundo completo de allá arriba había desechado al pasar.
+Sacó del bolsillo la placa de metal con los dos trazos. Bajo la luz amarilla se veía distinta que bajo la plateada, y las muescas se distinguían mejor. Volvió a guardarse la placa en el bolsillo.
 
-Solo entonces le pareció comprenderlo.
+Seorin lo estaba mirando.
 
-El espacio que dentro de Serakion dejaba vivir a una persona por primera vez
-no estaba cerca de lo que Serakion más presume,
-sino de lo que Serakion ya cree haber olvidado.
+—¿Siguen siendo dos trazos?
+
+—Sí.
+
+—¿Y el tercero?
+
+—Todavía no.
+
+Seorin no preguntó más y cerró los ojos con la espalda contra la pared. No los abrió. Era la primera vez que cerraba los ojos desde que había llegado a Serakion.
+
+El anciano, apoyado en la pared, abrió los ojos y miró la lámpara que parpadeaba en el techo.
+
+—Habría que cambiar esa.
+
+Lo dijo él.
+
+Nadie respondió; Han Jiwoo levantó la vista hacia aquella lámpara. No había con qué cambiarla. Aun así, la miró.
+
+La lámpara parpadeó una vez más, pero no se apagó. El niño que la miraba cerraba y abría los ojos cada vez que parpadeaba. Cuando la lámpara se encendía, al niño también se le abrían los ojos.
 
 ---
 

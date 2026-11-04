@@ -20,7 +20,7 @@ Sur ce, Seorin rejoignit son propre poste. Sion ne vit pas où. Elle ne montrait
 
 Sion se mit à courir.
 
-En une matinée, le marché avait pris une tout autre forme.
+En une nuit, le marché avait pris une tout autre forme.
 
 Les étals n'avaient pas disparu ; leur angle avait changé. Jusqu'à hier, ils étaient inclinés pour bien montrer la marchandise ; maintenant, ils étaient dressés de façon à masquer une fois quiconque passait devant. Les cordes des tentes avaient été renouées, elles aussi. Pas à l'angle qui sert à vendre, mais à celui qui sert à bloquer et à dévier.
 
@@ -95,7 +95,11 @@ Haroun répondit sans arrêter ses mains.
 
 Sion se mit ces mots en tête.
 
-Cet homme fixait d'abord par où se retirer, avant même ce qu'il faudrait bloquer. Le visage de celui qu'on avait puni la veille était encore là, mais autre chose s'était posé par-dessus. Le visage de quelqu'un qui savait mieux que personne qu'à cet endroit, en ce moment, nul autre que lui ne pouvait tenir.
+C'était la même chose que ce que Han Jiwoo avait dit du vaisseau, quelques jours plus tôt : l'endroit qui paraît le plus urgent n'est pas celui par où il faut commencer.
+
+Sion trouva étrange que celui qui répare un vaisseau et celui qui défend une ville disent la même chose. Puis il se ravisa : ce n'était pas étrange. C'étaient deux mains qui avaient longtemps regardé les choses s'effondrer.
+
+Haroun fixait d'abord par où se retirer, avant même ce qu'il faudrait bloquer. Le visage de celui qu'on avait puni la veille était encore là, mais autre chose s'était posé par-dessus. Le visage de quelqu'un qui savait mieux que personne qu'à cet endroit, en ce moment, nul autre que lui ne pouvait tenir.
 
 En envoyant les gens, Haroun leur touchait l'épaule, un par un.
 
@@ -112,8 +116,6 @@ L'une répartissait des morceaux de métal en trois tas ; l'autre y piochait et 
 « Pourquoi le garder ? »
 
 « C'est léger. Ça ne tiendra pas bien, mais pour renforcer ce qui tremble en ce moment, c'est mieux. »
-
-Les paroles étaient brèves. Brèves, mais la réparation et la défense y tenaient ensemble.
 
 Sion vit que cela avait changé depuis quelques jours. Jusqu'à hier, les matériaux pour réparer le vaisseau et ceux pour protéger la ville étaient séparés. Aujourd'hui, ils sortaient du même tas.
 

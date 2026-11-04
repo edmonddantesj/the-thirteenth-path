@@ -28,8 +28,6 @@ Even with his face gone white, Luhai spoke in a voice that was strangely firm.
 he said.
 "Right now, the ones going up are the ones winning."
 
-The words sounded like a kid who had grown up too fast, and for a moment Sion's chest ached.
-
 "Where'd you learn that?"
 Sion asked.
 
@@ -59,7 +57,7 @@ Not a big tremble. The fingers of her right hand curled and straightened, just f
 
 Sion knew that movement.
 
-The day they first walked inside, when Seorin fell half a step behind in the passage, she had done exactly the same. That time Sion had pretended not to see. He'd thought that was right. For Seorin in a moment like that, pretending not to see suited her better than comfort.
+Seorin had done this once before. That time Sion had pretended not to see. He'd thought that was right. For Seorin in a moment like that, pretending not to see suited her better than comfort.
 
 It was the same finger now.
 
@@ -156,8 +154,6 @@ He answered anyway.
 
 "Then I stand that long."
 
-That one line was strangely crueler. No one had room to be moved by it, and it came out like the most obvious thing in the world.
-
 Sion went two steps, then turned back.
 
 "Twenty-something."
@@ -172,7 +168,7 @@ Harun heard that and gave no answer.
 
 Then he looked ahead again.
 
-That was the third time today Sion had heard that silence. Once when he asked whether there were eleven barriers, once when he asked whether they could load all eleven runs, and now.
+That was the third time today Sion had heard that silence. Once when he asked whether there were eleven barriers, once when he asked how long they could stand, and now.
 
 All three were the same kind of silence.
 

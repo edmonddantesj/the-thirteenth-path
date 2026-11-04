@@ -18,7 +18,7 @@ Seorin didn't stop her hands.
 
 "He did."
 
-Sion started to argue and let it go. She was right. On this line, right now, that was the only place left to cut time.
+Sion started to argue and let it go. On this line, right now, that was the only place left to cut time.
 
 "What happens if we drop the two steps?"
 

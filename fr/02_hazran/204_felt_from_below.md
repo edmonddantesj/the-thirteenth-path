@@ -26,7 +26,7 @@ Aka ne répondit pas tout de suite ; elle ferma les yeux, puis les rouvrit.
 
 « Pas complètement. Mais… ce qui tenait s'est coupé. Un truc qui attachait depuis vraiment longtemps. »
 
-La première et la seconde levèrent la tête en même temps, et la machine du côté du mur aussi. Toutes trois regardaient le même endroit : le plafond, et ce qu'il y avait au-dessus.
+La première, la seconde et la machine du côté du mur, toutes trois regardaient le même endroit : le plafond, et ce qu'il y avait au-dessus.
 
 « Vous aussi, vous le sentez ? »
 
@@ -202,7 +202,7 @@ Luhai souleva une plaque effondrée.
 
 « Restez pas plantés là. Tant qu'à avoir survécu, servez-vous d'abord de vos mains. »
 
-C'était rude, mais personne ne le prit pour de la rudesse. Davantage de mains se mirent en mouvement.
+Davantage de mains se mirent en mouvement.
 
 Des gens.
 Des machines.

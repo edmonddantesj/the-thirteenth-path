@@ -43,7 +43,7 @@ Y sabía que hablar poco no era indiferencia, sino la cortesía de quien no preg
 
 Ater, en cambio, todavía tenía la cara de quien no se ha acostumbrado a esa distinción.
 
-Estaba sentado con la espalda contra la pared de la cabina, pero parecía alguien que no le había confiado del todo a esa nave ninguna parte de su cuerpo. Un espacio estrecho y gastado, la iluminación mínima, un traslado que funcionaba con caras e intuición, no con documentos. No era, desde luego, el sitio donde solían sentarse el heredero de la casa Valkar y un hombre de la Cámara de Reconocimiento del Imperio.
+Estaba sentado con la espalda contra la pared de la cabina, pero parecía alguien que no le había confiado del todo a esa nave ninguna parte de su cuerpo. Un espacio estrecho y gastado, la iluminación mínima, un traslado que funcionaba con caras e intuición, no con documentos. No era, desde luego, el sitio donde solía sentarse el heredero de la casa Valkar, hombre de la Cámara de Reconocimiento del Imperio.
 
 Seorin lo vio, pero no se molestó en decirlo.
 En vez de eso, giró la mirada hacia Sion.
@@ -140,8 +140,6 @@ Pasa con la gente, y pasa con los registros.
 Seorin añadió en voz baja.
 
 —Donde está Elia es justo eso.
-
-Tras esas pocas palabras, el aire de la cabina cambió un poco.
 
 Ater bajó la mirada un instante.
 

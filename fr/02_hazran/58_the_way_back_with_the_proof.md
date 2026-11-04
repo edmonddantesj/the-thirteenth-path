@@ -207,10 +207,6 @@ Han Jiwoo eut un bref sourire.
 Elle l'avait dit simplement.
 « Alors on y retourne. »
 
-Sion trouva ces mots étrangement à son goût.
-
-Parce qu'ils sonnaient non comme ceux de quelqu'un qui fuit, mais comme ceux de quelqu'un qui revient vivant, le vrai en main.
-
 Et à cet instant précis, les deux appareils se mirent à changer complètement de direction.
 
 Non plus la ligne qui fuyait hors de Hazran, mais celle qui revenait au centre de la partie, le vrai en main.

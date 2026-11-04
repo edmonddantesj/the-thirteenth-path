@@ -42,13 +42,13 @@ El comandante no preguntó más.
 
 El oficial de registro puso en ese punto, en lugar de un número, una sola anotación. Desconocido. Una vez que entra esa palabra, la casilla no se vuelve a abrir. Aunque más adelante alguien desplegara este registro, ahí no encontraría un número de personas, sino «desconocido».
 
-Dentro de Hazran había alguien que sabía ese número. Lo había contado cada día, trazándolo en la tablilla.
+Dentro de Hazran había alguien que sabía ese número. Lo había contado trazándolo en la tablilla.
 
 Esa tablilla seguía ahora en pie en medio de la ciudad derrumbada, y en este registro se escribía «desconocido».
 
 Lo mismo se había anotado en dos sitios, y solo quedaba uno.
 
-Las palabras eran muy pulidas. Por eso mismo resultaban más crueles.
+Las palabras del informe eran muy pulidas.
 
 Nadie en la sala del comandante corrigió esa frase.
 
@@ -86,8 +86,6 @@ No era siquiera una clasificación oficial; era una señal cuyo sentido conocía
 El comandante habló en voz baja.
 
 —Atraparla ahora es la peor opción.
-
-El aire de la sala del comandante se endureció de un modo apenas perceptible.
 
 El oficial que había defendido la persecución inmediata levantó la cabeza.
 
@@ -170,7 +168,7 @@ Aquella ciudad no había sido, desde el principio, más que uno de los espacios 
 
 Así que ahora lo importante no era que esa ciudad hubiera desaparecido, sino hasta dónde esa desaparición había sacudido los cálculos del Imperio.
 
-Una mujer cuyo cabello gris parecía haberse vuelto blanco escuchaba en silencio, con solo la punta de los dedos apoyada sobre el informe.
+Una mujer de cabello gris y rostro joven escuchaba en silencio, con solo la punta de los dedos apoyada sobre el informe.
 
 Kanus Han.
 
@@ -219,8 +217,6 @@ Kanus alzó la mirada.
 Lo dijo ella.
 —Puede que no se le haya escapado, sino que lo haya dejado ahí.
 
-Esas palabras cambiaron enseguida el aire de la sala.
-
 La Alianza lo entendió en ese mismo momento.
 
 El Imperio no estaba persiguiendo a los supervivientes. Estaba mirando el siguiente umbral al que llegarían.
@@ -232,8 +228,6 @@ Kanus cerró el informe.
 —Lo que vamos a mirar no son los supervivientes.
 Lo dijo ella.
 —Lo que importa es qué abren después.
-
-Lo dijo muy en voz baja, y por eso mismo sonó más tajante.
 
 El grupo de Sion ya no eran simples fugitivos.
 Desde que salieron de Hazran,
@@ -267,15 +261,13 @@ Hazran era ya una ciudad terminada. Pero ese final era, para la Alianza, el comi
 
 ---
 
-El Imperio eligió el rastreo en el lenguaje del orden, y la Alianza eligió la espera en el lenguaje de lo práctico. Por fuera parecían distintos, pero los dos miraban en la misma dirección: no a los que sobrevivieron en Hazran, sino a lo que iban a abrir después.
+El Imperio eligió el rastreo en el lenguaje del orden, y la Alianza eligió la espera en el lenguaje de lo práctico. Por fuera parecían distintos, pero los dos miraban en la misma dirección.
 
 Y lo que borraron también fue lo mismo.
 
 Uno escribió «desconocido» y el otro lo llamó número terminado. En ningún registro quedó cuántas personas murieron en Hazran.
 
 Quien sabía ese número iba sentado ahora dentro del barco que los dos perseguían.
-
-Hazran se cerró. Ahora los ojos del mundo se volvían hacia fuera de ese cierre.
 
 ---
 

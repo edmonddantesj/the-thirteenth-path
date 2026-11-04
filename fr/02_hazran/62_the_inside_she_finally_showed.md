@@ -30,7 +30,7 @@ Zahir répondit sans même la regarder.
 
 « Aussi loin que je vous montrerai. »
 
-Le visage de Seorin disait que la réponse ne lui plaisait pas, mais elle ne posa pas d'autre question. Elle savait déjà qu'ici, au cœur de Hazran, l'important n'était pas d'arracher d'abord davantage de mots, mais de voir jusqu'où on leur montrerait réellement.
+Le visage de Seorin disait que la réponse ne lui plaisait pas, mais elle ne posa pas d'autre question.
 
 Le couloir intérieur était plus silencieux encore que les secteurs traversés avant la course.
 
@@ -106,6 +106,8 @@ Han Jiwoo, cette fois, répondit sans détacher les yeux.
 
 « Une main qui prend ça pour de la ferraille ne survit pas jusqu'ici. »
 
+« C'est un corps tiré de l'épave où l'on a trouvé cette enfant. » Zahir l'avait dit sans regarder du côté d'Aka.
+
 Bref silence.
 
 Nassim eut alors un sourire très léger.
@@ -124,8 +126,6 @@ Mais étrangement, ici, à l'intérieur, ces quelques pas semblaient peser plus 
 Puis elle parla bas.
 
 « Celle-ci ne fait pas encore semblant d'être une porte. »
-
-Ces mots arrivèrent à Sion, étrangement, comme un soulagement.
 
 Ce n'était pas une porte complète.
 Mais au moins, ce n'était pas un mensonge.
@@ -215,8 +215,6 @@ C'était Sion qui posait la question.
 Zahir répondit très bas.
 
 « La résolution d'entrer plus loin à l'intérieur. »
-
-À ce seul mot, il devint clair que même cet espace intérieur n'était encore qu'un seuil.
 
 ---
 

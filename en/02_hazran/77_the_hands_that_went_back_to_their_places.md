@@ -20,7 +20,7 @@ Then Seorin went to her own place. Sion did not see where. This person did not l
 
 Sion ran.
 
-In the space of a morning the market had become a different shape entirely.
+Overnight the market had become a different shape entirely.
 
 The stalls had not disappeared; their angles had changed. Until yesterday they had been slanted so the goods showed well, but now they stood so that anyone passing would be screened from view once. The tent lines had been retied as well. Not at an angle good for trade, but at an angle good for blocking and letting through.
 
@@ -95,7 +95,11 @@ Harun answered without stopping his hands.
 
 Sion put that in his head.
 
-This man was deciding what to get out through before what to block. The face that had taken its punishment yesterday was still there, but something else had been laid over it. The face of a man who knew better than anyone that there was no one but him to stand in this place right now.
+It was the same thing Han Jiwoo had said about the ship a few days ago. That the place that looked most urgent was not the place to start first.
+
+Sion found it strange that the person fixing a ship and the person defending a city would say the same thing. Then he corrected himself: it wasn't strange. Both were hands that had watched things collapse for a long time.
+
+Harun was deciding what to get out through before what to block. The face that had taken its punishment yesterday was still there, but something else had been laid over it. The face of a man who knew better than anyone that there was no one but him to stand in this place right now.
 
 As Harun sent people off, he touched each one on the shoulder once.
 
@@ -112,8 +116,6 @@ One was splitting metal pieces into three heaps, and the other was picking from 
 "Reason to keep it."
 
 "It's light. It won't hold up well, but it's better for patching where things are shaking right now."
-
-The words were short. Short, but repair and defense were both packed into them.
 
 Sion knew that had changed from a few days ago. Until yesterday the material for fixing the ship and the material for defending the city had been separate. Today they came out of the same heap.
 

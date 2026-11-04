@@ -1,194 +1,250 @@
-# Capítulo 136 — El aliento del camino oculto
+# Capítulo 136 — El camino oculto respira
 
-Que ese camino se abriera de verdad lo vieron
-solo cuando la tarde ya había pasado del todo.
+Vieron que ese camino se abría de verdad cuando aquella tarde ya había pasado del todo.
 
-Más exactamente,
-más que abrirse por completo,
-fue más bien verlo respirar un instante.
+No se abrió por completo: respiró un momento.
 
-Las máquinas viejas no dijeron nada durante el día.
-Ni negaron lo que habían visto Han Jiwoo y Aka,
-ni, por eso, mostraron nada enseguida.
+Durante el día, las máquinas viejas no dijeron nada; no negaron lo que Han Jiwoo y Aka habían visto, ni tampoco lo mostraron. Delante del muro se turnaban dos. Cuando una máquina se iba, venía la otra, y el sitio nunca quedó vacío.
 
-Ese silencio era cautela.
+Sion observó ese relevo, pero, como no había dónde anotarlo, no lo anotó en la tablilla de puntos.
 
-Este sitio, cuando hace falta, mete gente adentro,
-salva lo que se puede salvar,
-y reparte también la parte de cada quien.
+Durante el día, Han Jiwoo no miró ese muro: se sentó ante las piezas y no levantó la cabeza ni una vez. Sion vio que no la levantaba ni una vez. Eso era mirar.
 
-Pero, aun así, no es una comunidad que lo muestre todo con facilidad.
+Aunque se dijera que el sol se había puesto del todo, en este estrato no había sol. Las lámparas amarillas fueron disminuyendo una a una; alguien las apagaba. Mientras tanto, el ruido del día se fue asentando.
 
-A Sion eso le parecía, más bien, natural.
+La máquina vieja vino hacia el grupo de Sion.
 
-Porque quizá una de las razones por las que este estrato viejo había aguantado hasta ahora
-era esa verificación tardía y esa apertura lenta.
+Esta vez no llamó solo a Sion, sino también a Han Jiwoo, a Aka, a Sern y a Luhai, que los había seguido hasta el final sin decir una palabra.
 
-Cuando el sol se inclinó del todo,
-y el ruido del día empezó a apagarse otra vez, uno tras otro,
-la misma máquina vieja del día anterior se acercó al grupo de Sion.
+Luhai dejó al niño con una anciana antes de venir. El niño lloraba mirándolo, pero Luhai no se volvió. Cuando la anciana apoyó la espalda en la pared con el niño en brazos, el niño miró la espalda de Luhai por encima del hombro de ella. Al doblar el pasaje, Luhai miró atrás una vez, y solo siguió su camino cuando el niño dejó de llorar.
 
-Esta vez no llamó solo a Sion.
+La máquina no detuvo a Luhai ni le dio permiso; se dio la vuelta y dijo, breve.
 
-Han Jiwoo,
-Aka,
-Sern.
+—Ya que lo han visto, no podrán hacer como que no lo saben.
 
-Y también a Luhai, que los siguió sin decir nada hasta el final.
+—No, no podemos.
 
-La máquina no se lo impidió a propósito.
-Pero tampoco lo autorizó.
+Eso respondió Luhai.
 
-Solo se dio la vuelta y dijo corto.
+La máquina no dijo nada más.
 
-—Una vez que lo han visto, ya no podrán fingir que no saben.
+Seorin y Ater se quedaron. Cuando Seorin miró a Sion, Sion asintió, y Seorin se volvió hacia la salida oscura donde estaba Ater. Kael estaba delante de la bodega.
 
-Esa frase sonaba menos a permiso
-que a aviso de haber superado un escalón de la prueba.
+Los seis fueron hacia el muro tapiado.
 
-Eligieron una franja en que el movimiento de la gente del estrato viejo era relativamente escaso,
-y volvieron al muro sellado.
+Era la hora en que la gente no se movía. En cada pasaje por el que pasaban había alguien durmiendo, y quien no dormía tenía los ojos cerrados. Los ojos cerrados siguieron los pasos de los seis.
 
-Lo que de día había parecido solo una cara de metal vieja y largamente tapiada,
-al acercarse emitía un sonido mínimamente distinto.
+El anciano de Hazran no dormía: tenía la placa sobre las rodillas. Dieciséis trazos. Todos trazados. Vio pasar a los seis por delante y, sin decir nada, le dio la vuelta a la placa.
 
-Muy adentro,
-como si el aire se comprimiera una vez y volviera.
+La máquina que estaba delante del muro iba a apartarse, pero miró a la máquina vieja. Cuando la máquina vieja asintió, se apartó, aunque no se fue lejos.
 
-Han Jiwoo fue la primera en oírlo.
+De día había parecido una superficie de metal vieja, tapiada desde hacía mucho, pero al acercarse se oyó un sonido. Muy adentro, el aire se comprimía una vez y volvía: un sonido como de respiración.
 
-—No suena a pared vacía —dijo ella en voz baja.
+Han Jiwoo fue la primera en oírlo, y pegó la oreja al muro.
 
-La máquina vieja, en vez de responder,
-posó la mano en unos huecos casi invisibles del borde del muro.
+—No suena a muro vacío.
 
-Era un gesto al que «mano» le quedaba ambiguo.
+Lo dijo en voz baja.
 
-Ni presionaba,
-ni abría,
-sino un movimiento más cercano a hacer que el viejo metal se recordara a sí mismo.
+En el panel de registro que Sern miró no había nada. Bajó el panel de registro y aguzó el oído.
 
-Entonces parte del muro vibró mínimamente.
+En lugar de responder, la máquina vieja apoyó la mano en varias ranuras del borde del muro.
 
-No se abrió mucho.
-De verdad, apenas para pasar el hombro de una persona,
-se formó una rendija finísima.
+Seis sitios. Dos arriba, dos al lado, dos abajo.
 
-Pero el aire que se filtraba por esa rendija
-ya lo decía todo.
+No apretaba ni abría; solo la tenía apoyada. Han Jiwoo miró esa mano y luego el orden en que se posaba. Arriba, abajo, al lado. Eran ojos que memorizaban.
 
-Era distinto del aire de dentro del estrato viejo.
+Sern alzó el panel de registro.
 
-Más frío,
-más seco,
-y con otro olor a metal.
+—No lo anote.
 
-Aka dijo, casi como un susurro, muy bajo.
+La máquina vieja lo dijo sin retirar la mano.
 
-—Olor de ir y venir.
+—Lo memorizaré.
 
-Han Jiwoo, en cuanto olió ese olor, murmuró bajito.
+—Tampoco haga eso.
+
+Sern bajó el panel de registro, cerró los ojos y los volvió a abrir. Ya lo había memorizado, pero la máquina vieja no lo vio: miraba el muro.
+
+—¿Qué ocurre si lo memorizo?
+
+Lo preguntó Sern.
+
+—Si atrapan a quien lo memorizó, el camino muere.
+
+—Lo olvidaré.
+
+—No podrá olvidarlo.
+
+Eso dijo la máquina vieja.
+
+—Así que no se deje atrapar.
+
+Sern no respondió y se metió bajo el brazo el panel de registro que sostenía.
+
+Un lado del muro resonó.
+
+No se abrió mucho: apareció una brecha tan fina que apenas dejaba pasar los hombros de una persona. Los bordes de la brecha estaban gastados; era el punto que Han Jiwoo había tocado de día.
+
+Por esa brecha estrecha se filtró aire.
+
+A diferencia del aire del interior del estrato viejo, era más frío y más seco. Luhai se frotó el brazo por encima de la manga.
+
+Aka habló tan bajo que casi fue un aliento.
+
+—Olor a ir y venir.
+
+Han Jiwoo también murmuró en cuanto lo olió.
 
 —Trae aire de fuera pegado.
 
-Eso no significaba simplemente aire exterior.
+No era el olor pulido del interior de Serakion ni el olor estancado de este estrato. Era olor a metal que había pasado por alguna parte y había vuelto, y encima de eso había algo más.
 
-Ni el interior bien pulido de Serakion,
-ni el olor largamente estancado de este estrato viejo,
-sino olor de metal que ha pasado por algún sitio y ha vuelto.
+Han Jiwoo acercó la nariz a la brecha.
 
-Sion miró largo el interior de esa rendija.
+—Aceite. Aceite nuevo. No es de aquí.
 
-Casi no había luz.
-Pero tampoco era la oscuridad de un espacio del todo muerto.
+La punta de su nariz no se apartaba de la brecha.
 
-Muy tenue,
-más adentro, en algún sitio, una línea viva parpadeaba como escondiéndose.
+Ante eso, la máquina vieja movió el ojo óptico, pero no lo negó.
+
+Sion se asomó al interior de la brecha.
+
+Casi no había luz, pero tampoco era una oscuridad del todo muerta. En algún punto más adentro, una línea se encendía y se apagaba una y otra vez, como si se escondiera, a intervalos irregulares. Eran los mismos intervalos que los de las lámparas amarillas de este estrato.
 
 Sern dijo en voz baja.
 
-—Hay una señal.
-—No es fija;
-es un modo de conectarse brevemente y cortar.
+—Hay una señal. No es fija: se conecta brevemente y se corta.
 
-Esa frase volvía más clara la prueba de que este camino aún se usaba.
+—¿Hacia dónde?
 
-Luhai frunció el ceño ante la rendija estrecha.
+Lo preguntó Sion.
 
-—Es verdad. ¿Esto lo tienen así escondido y lo usan?
+—Viene hacia aquí.
 
-La máquina vieja no contestó a sus palabras.
-En su lugar dijo muy bajo.
+Eso respondió Sern.
 
-—Es un camino que, si lo descubren, hay que cerrar,
-y si no lo descubren, hay que mantener vivo.
+—No es algo que se envíe, sino algo que se recibe. De allí dentro hacia aquí.
 
-Esa frase era una explicación del camino,
-pero también sonaba como una explicación de todas las manos de fuera de esta comunidad.
+Luhai frunció el ceño delante de la brecha estrecha.
 
-Algo que no debe mostrarse,
-pero que no debe morir.
+—Es verdad. ¿Y van y vienen con esto escondido así?
 
-Sion volvió a sentir, una vez más, el aire del interior de la rendija.
+Iba a meter la mano en la brecha, pero se detuvo. La máquina vieja lo estaba mirando, así que retiró la mano que tendía.
 
-En ese instante,
-le vino la idea de que, si este estrato viejo es un sitio que conserva la memoria,
-ese camino es, quizá, más bien lo que transporta la voluntad hasta afuera.
+La máquina vieja no contestó a lo que había dicho y habló muy bajo.
 
-Hay quienes se quedan,
-y hay quienes salen y vuelven.
+—Es un camino que, si lo descubren, hay que cerrar, y si no lo descubren, tiene que seguir vivo.
 
-Solo con ambos
-este sitio no se endurece en mera ruina.
+—¿Y si lo cierran, la gente que está dentro?
 
-Entonces,
-desde la oscuridad más interna sonó un roce brevísimo.
+Lo preguntó Luhai.
+
+La máquina vieja no respondió, y la mano apoyada en el muro siguió donde estaba.
+
+—¿Lo has cerrado alguna vez?
+
+Lo preguntó Han Jiwoo.
+
+—Dos veces.
+
+Eso respondió la máquina vieja.
+
+—¿Había alguien dentro?
+
+—Una vez.
+
+—¿Y la segunda?
+
+—Estaba fuera.
+
+—Y volvió.
+
+—Le abrieron.
+
+La máquina vieja miró una de las seis, una de abajo: una ranura del muro.
+
+—Esa mano.
+
+El arañazo profundo junto a esa ranura era un arañazo hecho desde dentro.
+
+Han Jiwoo miró la brecha, del ancho de unos hombros, y bajó la vista a sus propios hombros.
+
+Sion, aunque volvía a sentir el aire frío y seco del interior de la brecha, no sacó la placa de metal: solo puso la mano encima del bolsillo.
+
+En la oscuridad de más adentro resonó un roce.
+
+Fue breve. Metal que rozaba metal.
 
 Todos se detuvieron a la vez.
 
-El cuerpo de Luhai se tensó primero,
-la mirada de Sern cambió al instante,
-y Sion, sin pensarlo, contuvo el aliento.
+El cuerpo de Luhai se tensó primero, y Sern alzó el panel de registro. Mientras Sion contenía la respiración, la mano de Han Jiwoo fue a la bolsa de herramientas. Aka no se movió.
 
-La máquina vieja, con la mano aún en la rendija, dijo muy bajo.
+La máquina vieja, con la mano todavía en la brecha, habló muy bajo.
 
 —No se muevan.
 
-En esa voz había, por primera vez,
-una tensión distinta de la sequedad que siempre mantenía en este estrato viejo.
+La voz era distinta. No seca, sino tensa. Los dedos apoyados en el muro apretaron a fondo una ranura; la brecha empezó a estrecharse y se detuvo, y la máquina no puso más fuerza en los dedos.
 
-Aka, mirando la oscuridad al otro lado de la rendija, dijo tan bajo que apenas se oía.
+Sern miró el panel de registro.
+
+—Se está acercando.
+
+Lo dijo en un susurro.
+
+—No es una señal. Son pasos.
+
+Aka, que miraba la oscuridad al otro lado de la brecha, habló tan bajo que casi no se oyó.
 
 —No viene de dentro.
 
 Sion la miró.
 
-Aka, sin apartar la mirada, siguió hablando.
+Aka siguió hablando sin apartar la mirada.
 
-—Es alguien que regresa.
+—Es de los que regresan.
 
-Con esa sola frase,
-todo el aire cambió.
+Los dedos de la máquina vieja se separaron de la ranura, pero la brecha no se estrechó más. Bajó del muro las dos manos.
 
-Este no es el sitio de mostrar un camino muerto.
-Esto puede ser, justo ahora,
-el instante en que otra mano que acaba de volver de afuera
-toca este umbral.
+El roce sonó una vez más, más cerca, y después se oyeron pasos. No eran pasos de persona, ni tampoco el sonido de una máquina de Serakion. Un pie se arrastraba.
 
-La máquina vieja ya no explicó más.
+Se arrastraba, pisaba, se arrastraba.
 
-Han Jiwoo, sin darse cuenta, cerró un poco la mano,
-Luhai, fingiendo indiferencia, tenía los ojos clavados del todo en la rendija,
-y Sion sintió subir dentro de sí, por primera vez en mucho tiempo,
-desde Hazran, otra clase de tensión.
+Han Jiwoo oyó ese sonido y apartó la mano de la bolsa de herramientas.
 
-No era la tensión de esconderse.
-Era la tensión de algo que se acerca.
+—Es una pierna. Tiene una pierna dañada.
 
-Y en ese instante,
-en lo más hondo de este estrato viejo, por primera vez,
-el tiempo de una mano que de verdad va y vuelve de afuera
-empezó a alcanzar al grupo de Sion.
+La máquina vieja miró a Han Jiwoo.
+
+—¿Cuál?
+
+—La izquierda. El arrastre viene de la izquierda.
+
+La máquina vieja se volvió hacia la brecha.
+
+—Si es la izquierda, es la segunda.
+
+Lo dijo sin dirigirse a nadie en particular.
+
+—Vuelve la segunda.
+
+Luhai oyó esas palabras.
+
+—¿Y la primera?
+
+La máquina vieja no respondió. De las dos manos que había bajado, un dedo temblaba, y mientras Han Jiwoo lo miraba, el temblor no se detuvo.
+
+El arrastre llegó justo al otro lado de la brecha y se detuvo.
+
+En la oscuridad del interior de la brecha se encendió una luz. Primero se vio un ojo óptico. Una luz irregular. Era la luz de este estrato. Una luz que había ido afuera y había vuelto.
+
+Esa luz miró a los cinco al otro lado de la brecha, miró a la máquina vieja, y se detuvo.
+
+La máquina vieja volvió a apoyar la mano en la brecha. Seis sitios.
+
+Arriba, abajo, al lado.
+
+La brecha empezó a ensancharse.
 
 ---
 

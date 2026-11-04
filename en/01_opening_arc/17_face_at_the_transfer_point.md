@@ -26,7 +26,6 @@ Seorin made a face.
 
 "Out here, that much is good news."
 
-It sounded like a joke, but it was not entirely one.
 An outer access point was, true to the name, less a living port than a place where routes that had failed to die were forced to keep connecting. The power not being completely out already counted as half a success.
 
 When the door opened, cold air pushed into the narrow cabin.
@@ -212,7 +211,6 @@ Seorin moved first.
 
 "Good. Then let's get on."
 
-Ater felt that those few words, oddly, sounded firmer than any order given so far.
 Seorin was always like this. Whenever the mood dragged or a gap opened for judgment to split, she cut off exactly the length that was needed and pushed it forward.
 
 Just before boarding, Sion brushed past Han Jiwoo and said quietly,
@@ -226,7 +224,6 @@ Then she added, very quietly,
 "So stay alive and pay up."
 
 Sion did not answer that.
-Still, that one short line caught somewhere in his chest, oddly heavier than the hull.
 
 Han Jiwoo counted heads in front of the ramp.
 

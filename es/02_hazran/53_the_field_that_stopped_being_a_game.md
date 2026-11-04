@@ -85,8 +85,6 @@ Seorin habló sin apartar la mirada.
 
 —En Hazran, lo que más caro sale es el que cree en las reglas. No el que las rompe.
 
-Esas palabras no llegaron a los oídos de Sion, pero quedaron de sobra en el aire.
-
 Nasim no había retrocedido ni un paso hasta entonces. Al contrario, cuanto más crecía el alboroto, más deprisa leía las caras de alrededor. Era imposible que no supiera que la partida se había roto. Pero en ese momento, en su expresión asomaba antes el cálculo que el desconcierto. La cara de quien mide cómo tapar ese derrumbe con palabras, a quién pasarle la responsabilidad y qué proteger a toda costa.
 
 Harún, en cambio, estaba más callado.
@@ -149,8 +147,6 @@ Han Jiwoo lo supo sin mirar atrás.
 
 —Agárrate.
 
-Aquello quería decir que no soltara la brasa, y también que, a partir de ahora, preparara el cuerpo.
-
 Desde el norte, Kael y Sern también miraban el mismo planeador rojo oscuro.
 
 Sern habló muy bajo.
@@ -186,11 +182,6 @@ El esquife salió disparado por fuera de la capa de vidrio agrietada, casi rasp�
 Detrás se les pegaba el planeador rojo oscuro;
 a un costado, el planeador de Kael y Sern buscaba el ángulo para unirse por una línea más ancha;
 y en lo alto de la tribuna se mezclaban los que se habían dado cuenta de que las reglas estaban rotas y los que todavía contaban primero su dinero.
-
-Y Sion supo que ya nadie podía llamar a aquello una carrera.
-
-La carrera de la brasa no había terminado.
-Pero ya no iba a rodar como Hazran había prometido al principio.
 
 La partida, ahora, había dejado de ser un juego.
 

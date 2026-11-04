@@ -111,8 +111,6 @@ Zahir spoke low, almost for the first time in a human voice.
 
 "Thank you, for all this time."
 
-When those words fell, the air around them gave way, very faintly.
-
 Luhai bowed his head first. Nasim didn't even swear; he only pressed his lips together. Harun, from a distance, closed his eyes and opened them. Seorin turned her face a little, and Han Jiwoo gripped the railing harder.
 
 Nahira never said a word.
@@ -139,8 +137,6 @@ he said.
 
 Sion took that head-on.
 
-It was right. That was why it hurt.
-
 Seorin asked, late and low.
 
 "You mean that?"
@@ -148,8 +144,6 @@ Seorin asked, late and low.
 Zahir answered at once.
 
 "Hazran closes Hazran."
-
-That one line ended it.
 
 Zahir raised his hand.
 
@@ -201,7 +195,7 @@ Han Jiwoo shouted from inside the hull.
 
 "How many?"
 
-"Sixteen."
+"Sixteen," Sion shouted.
 
 "Sixteen won't weigh down the left."
 
@@ -225,7 +219,7 @@ Only then did one of the eight raise his head.
 
 "We…"
 
-"Hands that dug that whole pile aren't hands that stay here."
+"Hands that dug that pile all the way through aren't hands that stay here."
 
 The man couldn't say anything. Two of them lifted the one who had been sitting off to the side onto his feet.
 
@@ -235,7 +229,7 @@ Sion was counting the eight as they went up, and his hand stopped.
 
 Eight, plus the eight of the party, made sixteen.
 
-Then the ones staying here were four.
+There were still four who weren't among those sixteen.
 
 Sion turned his head.
 

@@ -1,229 +1,232 @@
 # Chapitre 169 — La manière de se tenir près
 
-Après ce jour,
-le secteur où se trouvaient les androïdes ne resta plus entièrement vide.
+Après ce jour-là, le devant du secteur des androïdes ne resta plus jamais vide.
 
-Tout le monde ne s'en approchait pas encore.
-Les gens de Hazran continuaient à le contourner,
-et les enfants devenaient plus silencieux à proximité.
+Le matin, une vieille machine ; à midi, Han Jiwoo ; l'après-midi, Sion ; la nuit, une main du dehors. Personne n'en avait décidé ainsi, et pourtant, quand l'un se levait, un autre était déjà là.
 
-Mais une chose avait changé depuis les jours précédents.
+Les gens de Hazran longeaient toujours les murs, et les enfants, tout près, se firent plus silencieux. L'enfant au tournevis ne regardait plus de derrière un adulte, mais de derrière un pilier. Aka se tint à côté de l'enfant, sans l'empêcher de regarder.
 
-Désormais, quelqu'un restait toujours
-un peu plus longtemps près de là.
+Ce jour-là, Han Jiwoo s'assit à l'intérieur de l'entrée du secteur. Pas à dix pas mais à cinq, deux pas en retrait de l'endroit où s'était tenue la vieille machine et de celui où s'était tenue la machine du côté du mur. Quand le petit enfant entra à sa suite, Han Jiwoo, au lieu de renvoyer l'enfant, lui fit place à côté d'elle.
 
-Une ancienne machine,
-Han Jiwoo,
-Sion,
-ou bien une main extérieure.
+Sans parler, sans toucher, elle resta simplement assise à regarder la file. La tête du bout de la file, une demi-phalange plus bas, le milieu, le fond. Et ceux qui n'avaient jamais bougé une seule fois.
 
-Les buts différaient,
-et personne n'avait de certitude.
-Mais le secteur ne restait plus complètement désert.
+Debout à l'entrée du secteur, Luhai resta longtemps sans entrer, puis demanda :
 
-Sion sentit que c'était un changement petit,
-mais clair.
+« Regarder comme ça, ça change quoi ? »
 
-Avoir peur et pourtant ne pas laisser entièrement vide la place à côté.
-C'était un choix plus difficile qu'il n'y paraissait.
+Han Jiwoo resta un moment sans répondre.
 
-Ce jour-là, Han Jiwoo resta longtemps assise près des androïdes.
+« Je n'en sais rien. »
 
-Elle ne leur parlait pas exprès,
-et ne les touchait pas non plus.
+Elle parlait très bas.
 
-Elle demeurait simplement longtemps dans le même espace.
+« Mais les choses que je réparais tous les jours, au début, je les regardais comme ça, elles aussi. »
 
-Luhai, debout un peu plus loin, finit par demander :
+Luhai fronça les sourcils et demanda :
 
-« Qu'est-ce que ça change de les regarder comme ça ? »
+« Tu veux dire que tu vas les regarder comme on répare une machine ? »
 
-Han Jiwoo ne répondit pas pendant un moment.
+Han Jiwoo secoua la tête et répondit :
 
-Puis elle dit très bas :
+« Non. Avant de réparer, je veux d'abord voir où c'est encore vivant. »
 
-« Moi non plus, je ne sais pas. »
-« Mais les choses que je réparais tout le temps,
-au début, je les regardais aussi comme ça. »
+« C'est quoi, vivant ? Pour une machine. »
 
-Luhai fronça les sourcils.
+« Là où ça tourne. Même une machine arrêtée a toujours un endroit qui tourne. Tu le trouves d'abord. Tu ouvres à partir de là. »
 
-« Tu veux dire que tu vas les regarder comme des machines à réparer ? »
+« Et si rien ne tourne ? »
 
-Han Jiwoo secoua la tête.
+« Il n'y a pas de machine où rien ne tourne. C'est juste qu'on ne le voit pas. »
 
-« Non. »
-« Avant de réparer,
-je regarde d'abord ce qui est encore vivant. »
+Luhai baissa les yeux sur ses mains, puis regarda de nouveau les androïdes. Il ne voyait aucun endroit qui tournait. Il fit un pas à l'intérieur de l'entrée, s'arrêta, et resta là.
 
-Ces mots restèrent longtemps aux oreilles de Sion.
+C'est alors qu'un androïde bougea.
 
-Vivant.
+Pas la tête, mais le bout des doigts de celui du milieu. Un long doigt se détacha du flanc d'une demi-phalange, puis s'y recolla.
 
-Il ne savait pas encore s'il était permis d'employer ce mot ici.
-Mais Han Jiwoo, au moins,
-ne regardait déjà plus ce qui se trouvait là comme une simple panne ou une simple fonction.
+Détaché.
+Recollé.
 
-À cet instant, un androïde
-ne bougea pas la tête cette fois,
-mais très légèrement le bout d'un doigt.
+On aurait dit un tremblement, mais ce n'en était pas un. Les intervalles étaient égaux ; Han Jiwoo les compta.
 
-Cela ressemblait presque à un tremblement.
-Mais pour un simple tremblement, il y avait un rythme.
+Trois.
+Trois.
+Trois.
 
-Han Jiwoo ne se raidit pas.
-Elle ne cacha pas non plus sa surprise.
-Elle inspira seulement très lentement.
+Sans se raidir, elle inspira lentement. Le petit enfant regarda ce doigt, puis remua le sien à son tour.
 
 « Tu as vu ? »
-demanda Luhai à voix basse.
+
+Luhai posa la question à voix basse.
 
 « Oui. »
 
-« On va encore appeler ça un réflexe ? »
+« Cette fois encore, on dit que c'est un réflexe ? »
 
-Han Jiwoo ne répondit pas tout de suite.
+Han Jiwoo ne répondit pas tout de suite. Elle regarda la main du dehors près de l'entrée : la main du dehors, elle aussi, regardait ce doigt. L'œil optique de la vieille machine du pilier y était posé, lui aussi. Quand elle regarda de nouveau l'androïde, le doigt s'était arrêté.
 
-Elle regarda plutôt la main extérieure au loin,
-puis les anciennes machines,
-et enfin de nouveau les androïdes.
+« Je ne sais pas. Mais je n'ai plus envie de dire réflexe en premier, à chaque fois. »
 
-« Je ne sais pas. »
-dit-elle.
-« Mais je n'ai plus envie de commencer par appeler ça un réflexe. »
+Luhai ne demanda rien de plus, fit encore un pas à l'intérieur et se plaça derrière Han Jiwoo.
 
-C'était un petit changement,
-mais Sion sentit que ces mots franchissaient une ligne beaucoup plus grande qu'il n'y paraissait.
+Contre le mur opposé du secteur, avec Sern, Ater regardait la distance entre les machines et la file. La vieille machine du pilier, la veille contre le pilier, s'en était écartée de trois pas ce jour-là. La machine du côté du mur, la veille contre le mur, était ce jour-là près de l'entrée. Les deux autres, qui passaient d'ordinaire devant l'entrée, ne passaient plus ce jour-là : elles restaient debout.
 
-Désormais, il ne s'agissait plus seulement de ne pas les pousser vers le néant ;
-leurs pensées commençaient peu à peu à pencher
-vers la possibilité qu'il y ait quelque chose.
+« Les vieilles machines se sont rapprochées. »
 
-Ater observait ce jour-là encore
-la distance entre les anciennes machines et les androïdes.
-
-Mais cette fois, il parla plus tôt que la veille.
-
-« Les anciennes machines se sont rapprochées. »
+Ater parla plus tôt que la veille.
 
 Sern demanda brièvement :
 
-« Leur vigilance a baissé ? »
+« Leur vigilance a-t-elle baissé ? »
 
 Ater secoua très légèrement la tête.
 
-« Non. »
-« Ce n'est pas la vigilance qui a baissé.
-C'est autre chose qui est devenu plus fort. »
+« Non. Ce n'est pas la vigilance ; c'est autre chose qui a grandi. »
 
 « Quoi ? »
-demanda Luhai.
 
-Ater resta longtemps silencieux.
+Luhai posa la question depuis l'intérieur du secteur.
 
-Puis il dit bas :
+Ater resta un moment silencieux, puis regarda la machine du côté du mur, près de l'entrée. Son œil optique s'était posé sur la file et n'en redescendait pas.
 
-« Le besoin de vérifier. »
+« Le désir de vérifier quelque chose. »
 
-Ces mots rendirent tout le monde étrangement silencieux.
+Il parlait bas.
 
-La peur éloigne les gens.
-Mais certaines peurs
-finissent au contraire par forcer à regarder de nouveau.
+« Vérifier quoi ? »
 
-Sion eut l'impression que les anciennes machines se tenaient précisément dans cette seconde peur.
+« Je ne sais pas. Elles non plus ne le savent sans doute pas. »
 
-Avant de savoir si ces androïdes étaient des ennemis ou non,
-elles semblaient vouloir vérifier
-s'ils étaient vraiment des êtres entièrement coupés d'elles.
+Ater poursuivit.
 
-Un bref grincement de métal retentit alors du côté du passage extérieur.
+« Ce n'est pas le visage de qui vérifie ce qu'il sait. C'est le visage de qui vérifie ce qu'il ne sait pas. »
 
-La deuxième main de récupération entra et dit à voix basse :
+Sern n'écrivit rien sur le panneau d'enregistrement ; il regardait seulement.
 
-« La ligne de rotation du haut a changé. »
-« Les files humaines sont aussi en cours de réorganisation. »
+La machine du côté du mur fit un pas depuis le côté de l'entrée et s'arrêta derrière Han Jiwoo, à côté de Luhai, sans lever la main. Han Jiwoo ne se retourna pas, mais Luhai, si. L'œil optique passa sur lui et alla jusqu'à la file ; Luhai s'écarta d'un demi-pas.
 
-Seorin demanda aussitôt :
+« On peut se tenir plus près ? »
 
-« C'est plus rapide ? »
+Sion posa la question depuis l'extérieur de l'entrée.
 
-« Oui. »
-répondit la deuxième main de récupération.
-« Cette fois, ils cherchent moins à le cacher. »
+La machine du côté du mur ne répondit pas, fit encore un pas et s'arrêta à côté de Han Jiwoo. Han Jiwoo leva la tête, mais l'œil optique ne la regardait pas : il regardait la file. Quand elle regarda de nouveau la file, toutes deux regardaient le même endroit.
 
-Tous s'y attendaient,
-mais l'entendre réellement rendit la chose bien plus lourde.
+Sion était hors de l'entrée, du côté des gens de Hazran. L'homme sans petit frère, debout à côté de lui, ne faisait que regarder l'entrée, sans entrer. La femme au visage fatigué, qui passait avec un tissu, s'arrêta, regarda une fois l'entrée, puis repartit.
 
-Serakion semblait désormais
-cacher les changements intérieurs
-tout en se préparant à ne plus les cacher si nécessaire.
+La femme venue avec deux enfants s'était avancée à trois pas du mur, un de plus que la veille. L'enfant de derrière vit l'enfant derrière le pilier et voulut y aller aussi, mais la femme tint l'enfant sans lâcher prise, et l'enfant regarda de là.
 
-Autrement dit, l'autre côté avançait de plus en plus
-comme s'il croyait ne jamais se tromper.
+C'est alors que, du côté de la ligne grise, un bref crissement de métal se fit entendre, une fois à chaque pas. C'était la seconde main de récupération, sur le chemin qui descendait d'en haut, et Kael la suivait. La seconde entra sur sa jambe tendue, en s'appuyant au mur ; bien que son corps n'eût pas de souffle, ses épaules montaient et descendaient.
 
-Eux, à l'inverse,
-ne parvenaient à décider de la suite qu'en reconnaissant enfin qu'ils pouvaient se tromper.
+« La ligne de relève d'en haut a changé. »
 
-C'était une différence lente,
-frustrante,
-dangereuse.
+Elle parlait bas.
 
-Mais, étrangement, Sion sentit que c'était justement pour cela
-que leur côté ne s'était pas encore entièrement effondré.
+« Les files de gens sont en train d'être réorganisées, elles aussi. »
+
+Depuis la plaque, Seorin demanda aussitôt :
+
+« C'est devenu plus rapide ? »
+
+« Oui. Cette fois, ils cherchent moins à le cacher. »
+
+« Ça veut dire quoi ? »
+
+« On entend des murs se fermer. Avant, on ne les entendait pas. Maintenant, on les entend. Ils les ferment pour qu'on les entende. »
+
+Kael, l'épaule contre le montant de l'entrée, reprit son souffle.
+
+« Il y a plus de monde dans la zone de chevauchement. »
+
+Il poursuivit.
+
+« Les empreintes sont sur deux files. Avant, il n'y en avait qu'une. »
+
+« Les gens font le mur. »
+
+Han Jiwoo parla depuis l'intérieur du secteur, sans se retourner.
+
+« Les gens font le mur. »
+
+Kael reprit.
+
+« Un mur ne bouge pas. »
+
+C'était la seconde.
+
+« Les gens bougent. C'est pour ça qu'on dresse un mur avec des gens. S'ils bougent, ils se bloquent entre eux. »
+
+La première main regarda la jambe tendue de la seconde, mais ne dit rien.
 
 Seorin ferma un instant les yeux, puis les rouvrit.
 
-« Bien. »
-dit-elle à voix basse.
-« Alors décidons aussi. »
+« Décidons, nous aussi. »
 
-Tous la regardèrent.
+Elle parlait bas.
 
-« Nous ne décidons pas encore si nous bougerons avec les androïdes. »
-« Mais nous décidons la disposition de ceux qui les observent. »
+Tous la regardèrent ; Han Jiwoo, dans le secteur, tourna seulement la tête.
 
-Luhai plissa les yeux.
+« Si on emmène les androïdes ou pas, on ne le décide pas encore. Mais la disposition de ceux qui les regardent, on la décide. »
 
-« Et ça veut dire quoi ? »
+Luhai plissa les yeux et demanda :
 
-« Que nous commençons par fixer les places où se tenir pour ne pas nous effondrer. »
-dit Seorin.
-« Han Jiwoo continue à regarder.
-Les anciennes machines observent les réactions proches.
-Sern observe les répétitions.
-Ater observe les distances et les alignements. »
+« C'est quoi encore, ça ? »
 
-Elle s'arrêta un instant.
-Puis regarda Sion.
+« On commence par décider où se tenir pour ne pas s'effondrer. »
+
+Tout en parlant, Seorin marqua avec la pierre des points, un par un, autour de la case vide.
+
+« Han Jiwoo continue de regarder. »
+
+Un point.
+
+« Les vieilles machines regardent les réactions de près. »
+
+Un point.
+
+« Sern regarde si ça se répète. »
+
+Un point.
+
+« Ater regarde les distances et la disposition. »
+
+Un point. Elle s'arrêta un instant et, la pierre à la main, regarda Sion, hors de l'entrée, à côté des gens de Hazran.
 
 « Toi, tu regardes les gens. »
 
-Sion releva calmement la tête.
+Sion leva la tête.
 
-« Les gens de Hazran,
-les gens de l'intérieur,
-et ceux qui s'effondreront peut-être avant tout en les regardant. »
-dit Seorin à voix basse.
-« À partir de maintenant, tu regardes aussi ça. »
+Puis il hocha la tête sans un mot et regarda l'homme sans petit frère, à côté de lui. Pendant que l'homme regardait l'entrée, Sion resta debout à côté de lui.
 
-Sion hocha la tête sans un mot.
+Seorin marqua encore un point hors de la case, du côté de l'entrée.
 
-Ce n'était pas encore une opération.
-Cela ressemblait plutôt à une disposition destinée à empêcher l'opération de se briser.
+« Et moi ? »
 
-Mais peut-être était-ce précisément ce dont ils avaient besoin.
+Luhai posa la question.
 
-Briser Serakion serait sans doute l'explosion finale.
-Mais décider d'abord qui, à quelle place, ne devrait rien lâcher jusqu'au bout
-était peut-être déjà le début du combat.
+« Toi, là où tu es. Derrière Han Jiwoo. Ne quitte pas cette place. »
 
-Et au centre de ce début,
-les androïdes se tenaient toujours en silence.
+Luhai regarda ses pieds, posés dans le secteur, derrière Han Jiwoo, à côté de la machine du côté du mur ; il ne les bougea pas.
 
-Mais ce silence,
-désormais,
-ne ressemblait plus seulement au vide de la veille.
+Quand la seconde, appuyée au mur, retourna vers la brèche, la première se plaça à côté d'elle, et les deux mains du dehors se postèrent près de l'entrée, les mains baissées.
+
+Les androïdes se tenaient en file. Le doigt de celui du milieu bougea de nouveau.
+
+Trois.
+Trois.
+Trois.
+
+Le petit enfant l'imita avec son propre doigt.
+
+Trois.
+Trois.
+
+Han Jiwoo vit la main de l'enfant qui suivait le mouvement, et ne l'arrêta pas.
+
+Quand l'enfant derrière le pilier s'en écarta d'un demi-pas, Aka lui posa la main sur l'épaule. Sans pousser ni tirer : elle la posa, simplement. L'enfant se tenait là, à dix pas de l'entrée. Ce n'était plus guetter. C'était regarder.
+
+La lampe jaune clignota, mais l'intérieur du secteur ne clignota pas. Un doigt bougeait une fois tous les trois. L'œil optique de la machine du côté du mur y était posé, et les yeux de Han Jiwoo y étaient.
+
+Le doigt de l'enfant bougea en mesure.
 
 ---
 

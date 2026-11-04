@@ -1,228 +1,234 @@
 # Chapitre 154 — Trois revinrent
 
-Même après avoir ramené les trois enfants au coeur de la couche cachée,
-personne ne put éprouver de soulagement immédiat.
+Même une fois revenus tout au fond de la couche cachée avec les trois enfants, personne ne s'assit tout de suite.
 
-Avoir réussi à revenir
-ne signifiait pas être sain et sauf.
+Les trois se tenaient sous la lampe jaune, et les cinq se placèrent autour. Les gens de Hazran regardaient depuis l'entrée du passage. Les enfants de Hazran regardaient entre les jambes des adultes.
 
-Ils n'étaient pas sortis de Serakion.
-Ils s'étaient plutôt repliés dans une faille plus profonde encore, à l'intérieur même de Serakion.
+Avant tous les autres, ce fut l'enfant de petite taille au demi-temps d'avance qui s'affaissa.
 
-Et surtout,
-il fallait d'abord vérifier dans quel état se trouvaient les trois qu'ils avaient ramenés.
+Les genoux plièrent sans que le souffle s'apaise, et l'enfant posa les mains au sol. Pas un sol argenté : un sol couvert de poussière. Les yeux sur cette poussière, sur ce qui collait aux paumes, l'enfant haletait.
 
-Le premier à s'effondrer
-fut le petit qui avait toujours un demi-temps d'avance.
+La première main de récupération s'abaissa, à trois pas devant.
 
-L'enfant qui, jusqu'à tout à l'heure, semblait prêt à bondir en premier,
-une fois complètement libéré de la ligne d'ordre,
-haletait au contraire comme s'il ne pouvait plus supporter sa propre vitesse.
+Sans reculer ni approcher, l'enfant avait les yeux qui vacillaient. Les mains ne tenaient pas en place ; elles serraient la poussière, puis la relâchaient.
 
-La première main de récupération s'abaissa vers lui.
+Han Jiwoo s'approcha lentement, sans lâcher la main du premier enfant, si bien que l'enfant vint avec elle.
 
-L'enfant ne recula pas comme pour fuir.
-Mais il ne vint pas non plus se laisser saisir.
+« Ça va. »
 
-Ses yeux ne cessaient de trembler,
-ses mains ne tenaient pas en place,
-et il semblait ne pas encore savoir où son propre corps devait s'arrêter.
+Elle parlait bas.
 
-Jiwoo s'approcha très lentement.
-
-« Tout va bien. »
-Elle avait parlé bas.
 « Tu n'as plus besoin de marcher vite. »
 
-Ces mots restèrent suspendus dans l'air plus longtemps qu'elle ne l'avait prévu.
+À ces mots, l'enfant leva les yeux vers elle. Puis un pied prêt à partir poussa le sol une fois et s'arrêta, et l'enfant regarda ce pied.
 
-Cet enfant, à l'intérieur de Serakion,
-avait dû toujours se caler sur un rythme ou un autre.
-Rapide
-ou lent,
-il avait dû finir par s'aligner quelque part.
+« Doucement. »
 
-Mais à cet instant, pour la première fois,
-il entendait qu'il n'avait plus à le faire.
+L'enfant ne savait pas ce que voulait dire doucement ; le pied poussa encore, puis s'arrêta. La troisième fois, le pied ne poussa pas, et le souffle s'allongea un peu.
 
-C'est précisément pour cela
-qu'il ne parvenait pas à se calmer.
+Le deuxième enfant restait debout.
 
-Le deuxième qui semblait étrange
-était l'enfant qui ne regardait pas vers le haut.
+Que quelqu'un s'approche, que la lampe jaune clignote, que les vieilles machines passent, l'enfant ne levait pas les yeux et ne regardait qu'en bas et sur le côté. Quand Han Jiwoo se plaça devant, l'enfant ne regarda pas son visage, mais les pieds de Han Jiwoo.
 
-Depuis son retour, cet enfant n'avait pas levé les yeux une seule fois.
+Ater, adossé au mur, observa longtemps la scène.
 
-Que quelqu'un s'approche,
-que la lumière change,
-que les androïdes inconnus de la couche cachée soient visibles.
+« Cela prendra du temps. »
 
-Il gardait obstinément le regard en bas ou sur le côté.
-
-Ater l'observa longuement,
-puis parut comprendre que son intuition n'avait été qu'à moitié juste.
-
-Cet enfant possédait bien le silence de ceux qui tiennent bon.
-Mais ce silence n'était pas simple volonté :
-il contenait aussi l'habitude d'un corps qui avait trop longtemps vécu en apprenant à ne pas regarder vers le haut.
-
-« Il faudra du temps. »
-Il avait parlé bas.
+Il parlait bas.
 
 La seconde main de récupération répondit brièvement.
 
 « C'est le cas pour tous. »
 
-Cette courte phrase trahissait combien de premiers sauvetages, de premiers échecs et de premières arrivées cette couche cachée avait déjà traversés.
+« Combien de temps ? »
 
-Le troisième enfant était le plus silencieux.
+« Cela dépend de l'enfant. Pour certains, cela ne finit pas. »
 
-L'enfant qui, du bout des doigts, n'avait pas encore lâché son propre arrêt,
-n'avait pas non plus lâché la main de Jiwoo depuis leur retour.
+Ater regarda l'enfant aux yeux baissés, puis regarda le sol à son tour, et releva la tête un temps plus tard.
 
-Plus exactement,
-il semblait avoir oublié comment lâcher complètement.
+Seorin s'accroupit devant l'enfant. Elle abaissa son visage sous la hauteur des yeux de l'enfant, près du sol, jusqu'à l'endroit que l'enfant regardait. Quand, d'en bas, les yeux de l'enfant rencontrèrent ceux de Seorin, l'enfant détourna le regard. Seorin ne se releva pas.
 
-Il ne s'agrippait pas.
-Il ne s'accrochait pas non plus.
-Il tenait simplement, tout petit et tout ferme,
-le bout d'un doigt de Jiwoo.
+« Prends ton temps. »
 
-Jiwoo n'essaya pas de se dégager.
+Seorin poursuivit :
 
-Elle s'était assise en pliant les genoux,
-et se contentait de sentir avec quelle force l'enfant tenait bon dans sa main.
+« Moi aussi, je regarde le sol. Avant de me battre. »
 
-Cette petite force
-lui faisait plus mal que tout le reste de ce premier sauvetage.
+L'enfant ne répondit pas, mais Seorin resta longtemps assise ainsi, dans la poussière.
 
-L'enfant avait suivi de son propre gré.
-Mais même après avoir suivi,
-il n'était pas encore tout à fait arrivé.
+Le premier enfant était celui qui faisait le moins de bruit.
 
-Un sauvetage ne s'achève pas quand on extrait un corps.
-Une fois le corps arrivé,
-il faut encore accepter que cette personne tremble toujours au rythme de Serakion.
+L'enfant tenait un doigt de Han Jiwoo et, même après le retour, ne le lâchait pas. Sans serrer fort, sans s'y suspendre : une prise petite et ferme.
 
-Les trois le montraient, chacun d'une manière très différente.
+Han Jiwoo n'essaya pas de se dégager. Elle s'assit en abaissant les genoux et sentit la force petite et constante que la main de l'enfant donnait à son doigt. De l'autre main, elle pressa sa sacoche à outils, où il en manquait deux. Puis elle porta cette main vers le dos de l'enfant, sans le toucher, et l'y laissa.
 
-Jiwoo serra les dents en silence.
+Luhai apporta trois bols d'eau et en posa un par terre devant chaque enfant. L'enfant rapide regarda le bol sans le prendre ; Luhai le poussa un peu plus près. Alors seulement l'enfant le prit à deux mains, mais en renversa la moitié en buvant. Luhai n'essuya pas ce qui avait coulé ; il s'assit à côté.
 
-Ater, adossé au mur, observait les trois enfants tour à tour.
-Kael retraçait déjà mentalement les réactions de fermeture du chemin de retour.
+L'enfant aux yeux baissés ne regardait que le bol, sans y toucher. Quand Luhai poussa le bol jusque devant ses pieds, l'enfant retira les pieds, puis prit le bol.
 
-Et ce fut la première main de récupération
-qui brisa le silence la première.
+La femme au visage fatigué arriva avec un linge et examina le cou des trois. Aucun des trois ne portait de marque, mais il en restait la trace. Elle porta la main à son propre cou, la retira, puis posa le linge et s'en alla.
 
-« C'est maintenant que le plus difficile commence. »
+La femme venue avec deux enfants ramassa ce linge et essuya le cou de l'enfant aux yeux baissés. L'enfant ne se déroba pas, ne bougea pas. La femme frotta deux fois la trace, qui ne s'effaça pas. Alors elle plia le linge et le mit dans la main de l'enfant, qui le serra.
 
-Personne ne put la contredire.
+Un enfant de Hazran sortit d'entre les jambes d'un adulte et vint se planter devant l'enfant rapide. La main tendue tenait un tournevis. L'enfant rapide regarda cette main sans prendre l'outil, mais l'enfant de Hazran garda longtemps la main tendue. Puis l'enfant rapide prit le tournevis et le fit tourner du poignet ; l'enfant de Hazran secoua la tête.
 
-La première extraction avait réussi, c'était vrai.
-Mais justement pour cela,
-il y avait de fortes chances que Serakion ne se meuve plus selon le même rythme qu'avant.
+« Avec le bras. »
 
-L'absence d'alarme majeure
-ne signifiait pas l'absence de tout changement.
+L'enfant rapide le fit tourner avec le bras. Luhai le vit, et Han Jiwoo aussi.
+
+L'enfant de Hazran reprit le tournevis et le rangea dans sa poche ; la main de l'enfant rapide resta vide. Quand ces doigts se serrèrent puis se rouvrirent, l'enfant de Hazran le ressortit et le tendit de nouveau.
+
+« Garde-le. »
+
+L'enfant rapide le prit. Cette fois, tout de suite.
+
+Ce fut la première main qui rompit le silence.
+
+« C'est maintenant que cela devient plus difficile. »
 
 Kael dit à voix basse :
 
-« Ils vont modifier l'ordre des replis. »
+« Ils vont changer l'ordre de repli. »
 
-La seconde main de récupération hocha la tête.
+Il fit rouler l'épaule qui avait soutenu le plafond ; elle craqua.
 
-« Ils mélangeront sans doute davantage les gens aussi. »
-« Mêmes lignes,
-mêmes intervalles,
-même vitesse : rien de tout cela ne sera peut-être conservé. »
+« Il se peut que le centre ne vienne pas en premier. La prochaine fois. »
 
-Cela signifiait
-que la première fissure ayant réussi,
-une deuxième tentative par la même méthode serait bien plus ardue.
+La seconde main hocha la tête.
 
-Serakion avait toujours été un monde qui apprenait.
+« Ils mélangeront sans doute davantage les gens, aussi. Peut-être qu'ils ne les mettront plus dans la même file, au même intervalle, à la même vitesse. »
 
 Ater dit à voix basse :
 
-« Un rythme perdu une fois,
-ils ne le laisseront plus filer de la même manière. »
+« Un rythme perdu une fois, ils ne le céderont plus jamais de la même manière, à ce que je vois. »
 
-C'était amer, mais exact.
+« Ils ne le céderont pas. »
 
-Et pourtant, pendant ce temps,
-Jiwoo tenait toujours la main de l'un des trois enfants.
+La première répondit.
 
-Elle murmura très bas :
+« Nous sommes sortis trois fois, et les trois fois ont été différentes. »
+
+Sern regarda le panneau d'enregistrement.
+
+« Le signal augmente de nouveau. »
+
+Il poursuivit :
+
+« Il avait diminué tout à l'heure. Il remonte maintenant. »
+
+« De combien ? »
+
+Seorin posa la question.
+
+« Il est plus fort qu'au début. »
+
+Seorin regarda vers la sortie obscure. Ater n'y était pas. Il se tenait à côté de Sern, et Seorin alla se placer près de lui.
+
+« Et la sortie ? »
+
+« Elle est restée vide. Un moment. »
+
+Ater répondit.
+
+« Ne la laisse pas vide, pas même un moment. »
+
+« Oui. »
+
+Ater partit vers la sortie obscure, et Seorin resta à côté de Sern, les yeux sur le panneau d'enregistrement.
+
+Un enfant tenait toujours le doigt de Han Jiwoo.
+
+Han Jiwoo dit très bas :
 
 « On l'a quand même fait. »
 
-Ce n'était pas une déclaration de victoire.
-C'était plutôt tourné vers le fait qu'il faudrait recommencer.
+Ce n'était adressé à personne en particulier.
 
-« Ce qu'on disait impossible,
-on l'a fait une fois. »
-Elle reprit.
+« Ce qu'on disait impossible, on l'a fait une fois. »
+
+Elle reprit :
+
 « Alors la prochaine fois n'est pas exclue. »
 
-La première main de récupération garda longtemps le silence.
+La première main garda longtemps le silence, puis répondit très bas.
 
-Puis répondit très bas :
+« Elle n'est pas exclue. En revanche, elle coûtera plus cher. »
 
-« Non, ce n'est pas exclu. »
-« En revanche,
-le prix sera plus élevé. »
+« Combien ? »
 
-Cette phrase avait la densité d'une vérité nue.
+« Je l'ignore. Toujours plus que la dernière fois. »
 
-La prochaine extraction se refermerait plus vite,
-se jouerait sur des différences plus infimes,
-et exigerait de tout accepter davantage.
+Han Jiwoo ne demanda rien de plus.
 
-Et surtout,
-du côté des enfants aussi, les choses changeraient.
+Kael regarda les trois traits qu'il avait tracés au sol en disant qu'il en fallait trois, et le quatrième, tracé en plus à côté. Il y posa la paume, mais ne les effaça pas.
 
-Certains auraient vu les trois qui venaient de s'échapper.
-D'autres n'auraient perçu que la confusion.
-Certains deviendraient plus anxieux.
-D'autres, au contraire, chercheraient plus vite le chemin vers l'extérieur.
+« Pas encore ? »
 
-La première fissure ne reste pas seulement au-dehors.
-Elle reste aussi au-dedans.
+Luhai posa la question.
 
-Cela pouvait être de l'espoir,
-ou un effondrement plus rapide.
+« Quand ce sera fini. Ce n'est pas encore fini. »
 
-C'est alors
-que le petit au demi-temps d'avance
-commença pour la première fois à respirer un peu moins fort.
+La vieille machine regarda cette main, puis se détacha du pilier et fit un pas en avant, dans un bruit. Elle se plaça devant les trois enfants et abaissa les genoux. Cela prit longtemps, mais ses yeux finirent par se trouver à la hauteur de ceux des trois enfants.
 
-L'enfant qui ne regardait pas vers le haut ne regardait toujours pas vers le haut,
-mais déplaça très brièvement son regard sur le côté.
+Son œil optique s'arrêta un temps sur chacun : l'enfant rapide, l'enfant aux yeux baissés, l'enfant qui tenait le doigt.
 
-Et l'enfant qui tenait la main de Jiwoo
-se rapprocha un tout petit peu plus, sans un mot.
+« Trois. »
 
-C'étaient de petits changements.
-Si petits
-qu'il était encore trop tôt pour appeler cela une guérison.
+Elle poursuivit :
 
-Mais au moins une chose était claire.
+« Je ne les compte pas encore. »
 
-Les trois ramenés n'avaient pas simplement prouvé que le sauvetage était possible.
+« Pourquoi ? »
 
-Ils montraient, avec une netteté bien plus cruelle,
-combien de temps restait encore emprisonné dans Serakion,
-et combien il faudrait encore tendre la main, longtemps et douloureusement,
-pour l'en extraire.
+Luhai posa la question.
 
-Cette nuit-là,
-un bref et fragile soulagement cohabita avec une tension plus grande encore au coeur de la couche cachée.
+« Parce que ceux qui sont revenus ne se comptent pas. Ils sont ici. »
 
-Les trois premiers étaient revenus.
+Elle se releva. Se relever aussi prit longtemps. Elle alla devant le panneau mural et regarda les quatre points flous, mais ne fit aucune marque.
 
-Et c'est justement pour cela
-que le nombre de ceux qui n'étaient pas encore revenus
-devint, au contraire, plus net que jamais.
+Le vieil homme de Hazran vint se placer à côté, sa plaque à la main. Seize traits. Il regarda le revers de la plaque, la face vierge, et n'y traça rien.
+
+L'enfant rapide, le tournevis serré dans la main, commença à respirer un peu moins vite. L'enfant aux yeux baissés déplaça très brièvement son regard de côté, vers la main de Han Jiwoo. L'enfant qui tenait le doigt se rapprocha un peu, sans un mot, et son épaule toucha le genou de Han Jiwoo. Han Jiwoo ne bougea pas.
+
+Sion regarda la planchette à points. Trois points marqués d'un signe d'arrivée, et une case vide. Il regarda longtemps cette case vide, mais n'y traça rien.
+
+Ater demanda à Sern :
+
+« De combien a-t-il augmenté ? »
+
+« Il a doublé. »
+
+« D'où ? »
+
+« Il vient d'en haut. Et… »
+
+Sern tourna le panneau d'enregistrement.
+
+« …d'en bas. »
+
+Ater regarda le panneau d'enregistrement. En bas : plus bas que la couche cachée. Il regarda le sol.
+
+« Qu'y a-t-il en dessous ? »
+
+« Je l'ignore. »
+
+Sern répondit.
+
+« Il n'y a que le signal. Avant, il n'y en avait pas. »
+
+Ater ne quitta pas le sol des yeux.
+
+La lampe jaune clignota ; l'enfant rapide leva les yeux vers la lampe qui clignotait, puis ferma et rouvrit les yeux en même temps qu'elle. Han Jiwoo s'en aperçut.
+
+« Tu n'as pas besoin de te régler dessus. »
+
+L'enfant ne comprit pas. La lampe clignota, et l'enfant cligna des yeux. Han Jiwoo couvrit un instant les yeux de l'enfant de sa main, puis la retira.
+La lampe clignota.
+L'enfant ne cligna pas.
+Une fois.
+Ensuite, l'enfant cligna.
+
+Han Jiwoo ne remit pas la main. Une fois suffisait. Pour aujourd'hui.
 
 ---
 

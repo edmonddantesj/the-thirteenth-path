@@ -1,184 +1,334 @@
 # Chapitre 150 — Le premier véritable affrontement
 
-Après avoir vu les enfants remis, l'équipe de reconnaissance ne resta pas plus longtemps sur place.
+Le chemin du retour fut plus silencieux que l'aller.
 
-Le chemin du retour fut bien plus silencieux que l'aller.
+Sur ce chemin où personne ne parlait, on n'entendait que la jambe de la seconde main de récupération, et Han Jiwoo marchait au rythme de ce bruit. Devant la brèche, Ater gratta trois fois la rainure, la brèche s'ouvrit, et à l'intérieur se tenait la vieille machine.
 
-Ce qu'il fallait comprendre, ils l'avaient suffisamment vu. Désormais, il s'agissait de décider quoi faire.
+De retour dans la couche cachée, ils trouvèrent la lampe jaune allumée sous l'éclairage bas. Sion, qui attendait debout, la planchette à points à la main, effaça la marque posée près des points des cinq qui étaient partis. Tandis que Luhai arrivait du côté des enfants et Sern de l'issue obscure, Seorin se détacha du mur.
 
-Le problème commença après.
+Ce fut la première main de récupération qui parla la première.
 
-Lorsqu'ils regagnèrent la couche cachée et s'immobilisèrent sous la lumière basse, le premier à parler fut la première main de récupération.
+« Ce n'est pas possible. »
 
-« Non. »
+Han Jiwoo la regarda. Elle avait le visage de quelqu'un qui s'y attendait.
 
-Jiwoo le regarda comme si elle n'avait attendu que cela.
+La première main de récupération parla d'une voix basse et ferme.
 
-La première main de récupération reprit, d'une voix plus basse et plus dure :
+« Si nous bougeons maintenant, nous n'extrairons personne : nous perdrons davantage. »
 
-« Si on agit maintenant, on n'extraira personne. On perdra davantage. »
+Han Jiwoo ne recula pas.
 
-Ce n'était pas une menace. Cela ressemblait à la conclusion de quelqu'un qui l'avait vérifié dans sa propre chair un nombre incalculable de fois.
+« Alors c'est pour ça que tu n'as fait que regarder ? »
 
-Jiwoo ne recula pas.
+Elle parlait bas.
 
-« Alors tu as juste continué à regarder ? » dit-elle à voix basse.
-« Pendant que tu comprenais la structure, tu laissais les enfants passer de l'autre côté ? »
+« Pendant tout ce temps où tu comprenais la structure, tu laissais les enfants continuer à passer ? »
 
-La seconde main de récupération intervint brièvement :
+La seconde main de récupération intervint brièvement. Elle était adossée au mur, la jambe tendue.
 
-« On ne se contentait pas de regarder. On ne pouvait pas bouger. »
+« Nous ne faisions pas que regarder. Nous n'avons pas pu bouger. »
 
-Cette courte phrase contenait plus d'épuisement que d'excuse.
+Elle désigna sa propre jambe, ouverte quatre fois.
 
-Ater les observa un instant, puis se garda de pousser par l'émotion. Il alla droit au noyau, avec la froideur la plus nette :
+« Voilà le résultat. »
 
-« Reprenons les raisons pour lesquelles vous ne pouviez pas bouger, » dit-il à voix basse.
-« Ce dont on a besoin maintenant, ce n'est pas de colère. Ce sont les conditions exactes de l'échec. »
+Han Jiwoo regarda cette jambe et se tut. Quand elle rouvrit la bouche, Seorin parla la première.
 
-Grâce à ces mots, l'air de la pièce tint bon — de justesse, sans se briser.
+« Pas de dispute. »
 
-Kael semblait avoir dessiné des structures dans sa tête tout au long du retour.
+À ces quelques mots, Han Jiwoo se tourna vers Seorin, mais Seorin les regardait l'une et l'autre.
 
-Il s'accroupit au ras du sol et commença à tracer des lignes sommaires dans la poussière.
+« Écoutons d'abord. »
 
-« Il existe un seul segment viable, » dit-il.
-« Juste avant le transfert. Avant qu'ils ne soient complètement entrés dans le rythme supérieur. »
+Ater regarda une fois l'espace entre elles, puis alla droit à l'essentiel, le plus froidement, d'une voix basse.
 
-La première main de récupération répondit aussitôt :
+« Reprenons pourquoi vous n'avez pas pu bouger. Ce qu'il nous faut maintenant, ce n'est pas de la colère, ce sont les conditions exactes de l'échec. »
+
+Sern ouvrit le panneau d'enregistrement, prêt à noter.
+
+Kael plia les genoux au sol et traça une ligne dans la poussière. C'était l'endroit où Seorin traçait avant les combats, là où des points étaient restés. Il traçait en évitant ces points, tout en parlant.
+
+« Il n'y a qu'un segment possible. Juste avant le transfert, avant qu'ils soient complètement entrés dans le rythme d'en haut. »
+
+Il traça une courte encoche sur la ligne.
+
+La première main de récupération répondit aussitôt.
 
 « C'est court. »
 
 Kael hocha la tête.
 
-« Je sais. C'est pour ça qu'il faut préparer l'étape d'avant. »
+« Je sais. C'est pour ça qu'il nous faut ce qui vient avant. »
 
-Il traça quelques lignes supplémentaires.
+Devant la courte encoche, il traça encore quelques lignes. La poussière lui collait aux doigts, mais il ne l'essuya pas.
 
-« Ce qu'on doit toucher, ce n'est pas la file des enfants elle-même. C'est le flux juste avant. Le ralentir ne serait-ce que d'un demi-temps, pour que l'alignement se brise avant de se verrouiller complètement. »
+« Ça, c'est la file. »
 
-La seconde main de récupération demanda :
+Une longue ligne.
 
-« Avec quoi. »
+« Ça, c'est le mur. »
 
-Cette fois, Jiwoo répondit immédiatement :
+L'encoche au bout de la ligne.
+
+« Ça, c'est nous. »
+
+Trois points à côté de la file. Pendant que Seorin regardait ces points, il poursuivit.
+
+« Ce qu'on doit toucher, ce n'est pas la file où sont les enfants. C'est le flux juste avant. Le retarder, ne serait-ce que d'un demi-temps, et le désaligner avant que l'alignement se verrouille complètement. »
+
+La seconde main de récupération posa une question.
+
+« Avec quoi ? »
+
+Han Jiwoo répondit aussitôt.
 
 « Les enfants. »
 
 Bref silence.
 
-Personne ne comprit les mots sur-le-champ.
+Luhai se retourna vers les enfants : de ce côté, les enfants de Hazran dormaient. Il regarda de nouveau Han Jiwoo.
 
-Jiwoo poursuivit, mâchoires serrées :
+Han Jiwoo poursuivit, les dents serrées.
 
-« Les enfants ne marchent pas déjà tous au même rythme. Il y en a des lents. Il y en a des rapides. Certains ont encore les mains crispées. Serakion lit tout ça et ajuste au fur et à mesure — mais on peut aussi l'utiliser en sens inverse. »
+« Les enfants ne bougent déjà pas tous au même rythme. Il y en a des lents, des rapides, et certains ont encore les mains raides. Serakion lit ça et s'y ajuste pour les emmener, mais on peut aussi s'en servir dans l'autre sens. »
 
-Ater dit très bas :
+Ater parla très bas.
 
-« Faire du décalage lui-même un passage ? »
+« Vous voulez faire du décalage lui-même un passage ? »
 
-Jiwoo acquiesça brièvement.
+Han Jiwoo hocha la tête.
 
-« Si la file ne contient que des enfants entièrement convertis, c'est impossible. Mais s'il reste des enfants qui n'ont pas encore basculé — cette différence d'un demi-temps peut désorganiser la file. »
+« Si la file ne contenait que des enfants entièrement acquis, ce serait impossible. Mais s'il y en a qui ne sont pas encore passés, cette différence d'un demi-temps peut désorganiser la file. »
 
-L'idée était dangereuse. Et c'est pour cela qu'elle avait le poids du réel.
+« Donc tu te sers des enfants. »
 
-Sauver les enfants reposerait peut-être sur le fait qu'ils n'étaient pas encore tous entrés dans le même rythme.
+C'était Seorin.
 
-La première main de récupération garda longuement le silence, puis parla :
+Han Jiwoo regarda Seorin.
 
-« Ça laisse trop de place au hasard. »
+« Je me sers de ce que les enfants font déjà. »
 
-Kael coupa net :
+« C'est pareil. »
 
-« Non. Faire en sorte que ce ne soit pas du hasard, c'est mon rôle. »
+« Je sais. Mais c'est là quand même. »
 
-Les mots étaient calmes — et c'est pour cela qu'ils étaient plus durs.
+Seorin n'ajouta rien.
 
-Kael traça d'autres lignes dans la poussière.
+Luhai revint du côté des enfants.
 
-« On secoue ici une fois. On récupère ici. Et ici, on ne se bat pas. C'est un point de fermeture propre — si on est repéré, la structure se replie avant qu'un humain ait le temps de courir. »
+« Eux non plus, ils sont pas au même rythme. »
 
-L'expression de la seconde main de récupération changea imperceptiblement.
+Il poursuivit.
 
-C'était proche d'un assentiment.
+« Même en dormant. Ils respirent tous différemment. »
 
-Kael poursuivit :
+Han Jiwoo regarda Luhai.
 
-« Il nous faut trois choses. Un — perturber la file. Deux — des mains pour extraire les enfants immédiatement. Trois — une position qui ralentisse la vitesse de fermeture. »
+« Oui. »
 
-Ater baissa les yeux sur les lignes et demanda à voix basse :
+« Alors ceux d'en haut aussi. »
 
-« Qui prend quoi. »
+« Pour l'instant. »
 
-La réponse était presque déjà décidée.
+Luhai retourna du côté des enfants et s'assit près d'eux ; ses lèvres bougeaient sans bruit.
 
-Jiwoo observerait les enfants. Lequel conservait encore son propre rythme. Lequel répondrait à une main tendue. Lequel était trop en retard. Lequel était trop en avance.
+La première main de récupération garda longtemps le silence.
 
-Kael tiendrait le cadencement de l'ouverture et de la fermeture. Où bloquer, où laisser vide, où pousser pour qu'une brèche s'ouvre au passage.
+« Cela laisse trop de place au hasard. »
 
-Ater lirait les habitudes de l'ordre supérieur. Quelles machines réagissaient et comment. Dans quels segments elles accuseraient un demi-temps de retard en tentant de sauver les apparences. Quel type de confusion paraîtrait le plus naturel.
+Kael trancha aussitôt.
 
-Pour la première fois, les trois regards commençaient à se superposer en une seule opération.
+« Non. Faire que ça ne dépende pas du hasard, c'est mon rôle. »
 
-Mais c'est alors que la première main de récupération reprit la parole :
+Il traça d'autres lignes.
 
-« Ça reste impossible. »
+« Ici, on secoue une fois, et ici, on récupère. Et ici, on ne se bat pas. »
 
-Le regard de Jiwoo s'aiguisa de nouveau.
+Il posa la paume sur le troisième endroit.
 
-La première main de récupération parla plus lentement cette fois :
+« Ici, ça se referme proprement : si on est repérés, la structure se replie plus vite qu'on ne court. »
 
-« Je vois la possibilité. Mais on doit aussi protéger l'intérieur. Si vous trois échouez, ça ne s'arrête pas là — ça se replie jusqu'ici. »
+L'expression de la seconde main de récupération changea très légèrement ; elle se détacha du mur et baissa les yeux sur les lignes.
 
-Il n'avait pas tort.
+Kael continua.
 
-Le Serakion que l'équipe de reconnaissance avait vu de l'extérieur était immense, mais la couche qui tenait de l'intérieur était entretenue par des mains bien moins nombreuses, usées depuis bien plus longtemps que prévu.
+« Il nous faut trois choses. Quelque chose qui désaligne la file. Des mains qui sortent les enfants tout de suite. Et enfin, un endroit qui ralentisse la fermeture. »
 
-Si une seule opération de sauvetage échouait, ce ne seraient pas seulement des enfants qui ne seraient pas extraits. C'est toute la ligne de connexion qui risquait de s'effondrer.
+Trois lignes, une encoche.
 
-Ater entendit cela et ne recula pas.
+Ater baissa les yeux sur les lignes, puis demanda à voix basse :
 
-« Alors il faut être plus précis, » dit-il à voix basse.
-« On ne peut pas être précis dans le sens de ne rien faire. »
+« Qui prend quoi ? »
 
-Cette phrase coupa la pièce en deux, silencieusement.
+Kael regarda Ater.
+
+« Toi, tu désalignes. »
+
+« Pourquoi moi ? »
+
+« Tu sais prendre la démarche de là-bas. »
+
+Ater, le coin des lèvres figé, ne le nia pas.
+
+Kael regarda Han Jiwoo.
+
+« Toi, tu les sors. »
+
+« Je sais. »
+
+« Moi, je ralentis. »
+
+Sern nota les trois sur le panneau d'enregistrement.
+
+Luhai posa une question.
+
+« Et moi ? »
+
+« Toi, tu restes dedans. Les mains qui reçoivent les trois enfants quand ils arrivent. »
+
+Luhai regarda ses mains. Deux.
+
+« Ça fait trois. »
+
+« Seorin en prend un. »
+
+Seorin hocha la tête.
+
+Sern nota sur le panneau d'enregistrement deux mains pour recevoir.
+
+La première main de récupération reprit.
+
+« Ce n'est toujours pas possible. »
+
+Le regard de Han Jiwoo s'aiguisa.
+
+La première main de récupération parla lentement.
+
+« Je vois la possibilité. Mais nous devons aussi protéger cet intérieur. Si vous trois échouez, cela ne s'arrête pas là : tout se replie jusqu'ici. »
+
+Sur le panneau mural qu'elle désigna, il y avait quatre points flous.
+
+« Ces quatre-là sont devenus flous de cette façon. »
+
+Personne ne pouvait s'empêcher de regarder ces points, et Han Jiwoo les regarda aussi. Près du pilier, la vieille machine les regardait, elle aussi, mais ne dit rien.
+
+Ater ne recula pas.
+
+« Raison de plus pour être plus précis. »
+
+Il parlait bas.
+
+« On ne peut pas devenir précis en choisissant de ne rien faire. »
+
+Sern ne leva la tête qu'après avoir tout noté.
+
+« Les signaux du côté de Serakion sont plus nombreux que tout à l'heure. »
+
+Il poursuivit.
+
+« Ils viennent d'en haut. Depuis que trois d'entre nous sont montés et redescendus. »
+
+« On est repérés ? »
+
+Seorin posa la question.
+
+« Je l'ignore. Ils ont augmenté. »
+
+La première main regarda Sern.
+
+« C'est cela, être repéré. »
+
+« Ce n'est pas encore le cas. »
+
+Sern répondit.
+
+« Si nous étions repérés, les signaux diminueraient. Pour l'instant, ils augmentent. Ils sont en train de chercher. »
+
+La première main n'ajouta rien et regarda vers la brèche, mais le mur était fermé.
+
+Le vieil homme de Hazran, sa plaque à la main, se détacha du mur.
+
+« Trois enfants. »
+
+Il poursuivit.
+
+« Si vous les ramenez, je les inscris où ? »
+
+La vieille machine le regarda.
+
+« Nulle part. Ils sont ici. »
+
+« Et si vous ne les ramenez pas ? »
+
+La vieille machine ne répondit pas ; l'homme retourna sa plaque, en regarda la face vierge, puis la retourna de nouveau.
 
 La seconde main de récupération expira lentement.
 
-« Combien ? » demanda-t-il.
+« Combien ? »
 
-Cette fois, personne ne put répondre facilement.
+Personne ne put répondre facilement.
 
-Tenter d'en extraire trop — et tous pouvaient mourir. En extraire trop peu — et il faudrait abandonner les autres.
+Luhai regarda du côté des enfants. Il compta les trois qui dormaient.
 
-La question ne portait pas sur un chiffre. Elle se rapprochait davantage de ceci : quel degré d'échec étaient-ils prêts à endurer.
+Han Jiwoo parla lentement.
 
-Jiwoo parla très lentement :
+« Peu, au début. D'abord ceux qui réagiront à coup sûr. »
 
-« Peu, au début. En commençant par ceux qui répondront à coup sûr. »
+Après l'avoir dit, elle se tut et regarda ses propres mains.
 
-Ces mots étaient plus froids que ce qu'elle était d'ordinaire — et c'est pour cela qu'ils faisaient plus mal.
+Luhai posa la question.
 
-Elle voulait tous les faire sortir. Mais le dire d'emblée aurait signifié qu'elle savait aussi que cela risquait de n'en sauver aucun.
+« Et eux, on fait quoi ? Si on sort. »
 
-Kael ajouta brièvement :
+« On ne sort pas. »
 
-« Il faut réussir pour qu'il y ait une prochaine fois. »
+Seorin répondit.
 
-C'était cruel, mais ce n'était pas faux.
+« Et moi ? »
 
-Le premier sauvetage ne consisterait pas à sauver tout le monde. Il se rapprocherait davantage de l'ouverture d'une première fissure — celle qui rendrait la suivante possible.
+Luhai regarda les trois qui dormaient.
 
-Et dès que tous l'eurent compris, cette opération cessa d'être une impulsion.
+Kael ajouta brièvement.
 
-Elle était partie de l'obstination de Jiwoo, mais désormais elle était entrée dans les calculs des trois.
+« Il faut réussir pour qu'il y ait une suite. »
 
-À la fin de cette nuit, ils n'avaient pas encore bougé.
+La vieille machine se détacha du pilier, fit un pas en avant et, debout devant les lignes, baissa les yeux sur elles.
 
-Mais pour la première fois, de toute évidence, ils avaient commencé à concevoir un véritable sauvetage.
+« Qui effacera ces lignes ? »
 
-La reconnaissance ne prit pas fin à cet instant. Mais elle avait commencé, pour la première fois, à se traduire dans le langage de l'action.
+Elle posa la question.
+
+Kael leva les yeux vers elle.
+
+« Moi, quand ce sera fini. »
+
+« Quand ce sera fini. »
+
+La vieille machine répéta ces mots.
+
+« Effacez-les quand ce sera fini. D'ici là, laissez-les. »
+
+Elle se retourna et regagna le pilier. Elle n'avait rien empêché. Elle n'avait rien permis non plus.
+
+La première main regarda son dos.
+
+« Vous ne l'empêchez pas ? »
+
+« Il m'est arrivé d'empêcher une main. Elle aussi est devenue un point flou. »
+
+La première main ne demanda rien de plus.
+
+Luhai regarda la vieille machine.
+
+« Même si vous l'aviez empêchée ? »
+
+« Même empêchée. C'est pourquoi, cette fois, je n'empêche rien. »
+
+Luhai regarda les quatre points flous du panneau mural, mais ne savait pas lequel c'était.
+
+Sion regarda la planchette, puis fit une marque à côté des points des cinq revenus. Dehors, encore.
+
+Pendant que la lampe jaune clignotait, Sern, sans compter, continuait d'écrire.
 
 ---
 

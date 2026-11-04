@@ -1,8 +1,8 @@
-# Episode 70. The First Day They Did Not Have to Run
+# Episode 70. A Body That Still Needs Saving
 
 Even after the first flame took at the auxiliary bonding joint, the work inside did not end there. It could not end.
 
-Outside, Harun's settlement had closed and the air over the scrap market had settled once; inside, they had used up nearly the whole night.
+Even while Harun's settlement closed outside and the air over the scrap market settled once, inside they could not set the work down.
 
 Even with the ember in his hand drawn back a little, Sion kept going back to the tremor that had run, briefly, through the inside of the hull.
 
@@ -78,8 +78,6 @@ Aka did not carefully take the receiving frame off again; she chose to fix it in
 "Leave this,"
 she said.
 "I'm going to see if it cools."
-
-Somehow those words sat heavy with Sion.
 
 Until now they had looked at whether it worked. Now they would look at whether it lasted.
 
@@ -167,8 +165,6 @@ Then, for the first time, she spoke like someone who would go no further today.
 
 "That's as far as we go."
 
-Short, but a definite declaration.
-
 Hearing it, Sion felt not so much that the work inside had stopped as that the outside was needed now.
 
 More material, better-matched metal, time. And the hands of the people who lived out there.
@@ -203,7 +199,7 @@ Sion hated that. He hated it, and he needed it.
 
 And the people here would not even hate it. Gathering what broke and selling it was how this place lived, and Sion had spent days learning that.
 
-Hearing that, Sion very nearly smiled.
+Remembering what Aka had said, that if it isn't broken nobody sells it, Sion very nearly smiled.
 
 In the end it was the outside again. But this time he did not have to look behind him.
 
@@ -228,8 +224,6 @@ Counting what was shrinking and counting what was to be filled were not the same
 The three of them came back outside.
 
 The air outside was rougher than inside, but it did not feel as hopeless as before. What they had to do had become clear.
-
-Hazran was no longer a place to leave. It had become a place to stay a little longer and gather what would save this ship.
 
 ---
 

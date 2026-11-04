@@ -16,7 +16,7 @@ Et entre ces brefs silences, Seorin ralentit le pas, à peine un instant.
 
 Aux yeux de n'importe qui, elle n'avait peut-être fait que reprendre appui. Mais Sion le sut tout de suite. Seorin ne s'était pas arrêtée : elle avait repris son souffle une fois, justement pour ne pas s'arrêter. Les doigts de sa main droite se replièrent et se déplièrent l'espace d'un instant, et la ligne de sa mâchoire se durcit imperceptiblement avant de se relâcher.
 
-C'était une fatigue de celles que deux phrases suffisent à dire.
+C'était une fatigue de celles qui ne font que passer.
 
 Le souffle de quelqu'un qui aurait voulu que personne ne voie, mais qui avait déjà décidé de ne pas s'effondrer.
 
@@ -120,8 +120,6 @@ Nahira regarda Seorin vraiment, pour la première fois.
 « En apparence. »
 Ce fut toute sa réponse.
 
-Une phrase courte, et pourtant Sion sentit qu'elle lui restait étrangement longtemps. C'était la voix de quelqu'un qui admettait bien trop facilement que l'intérieur était plus calme que le dehors, sans que cela veuille dire qu'on y était en paix.
-
 Nassim ajouta d'un ton léger :
 
 « De l'éthérite, un nom, un gamin qui lit les registres. »
@@ -146,8 +144,6 @@ Nahira s'écarta.
 « Entrez. »
 Elle reprit :
 « Mais une fois entrés, les choses ne tourneront plus dans l'ordre de vos questions. »
-
-Pour Sion, ces mots sonnaient presque comme un avertissement.
 
 Ils n'entraient pas pour poser des questions. Ils entraient pour être rangés dans l'ordre de l'intérieur.
 

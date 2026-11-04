@@ -38,7 +38,7 @@ Sern lo recogió de inmediato.
 Lo dijo en voz baja.
 —No funcionan porque no haya ley, sino que funcionan más tiempo porque no parecen ley.
 
-Al oír eso, Seorin sonrió apenas. Era un modo que no le gustaba, pero tenía razón.
+Al oír eso, Seorin sonrió apenas.
 
 Harún estaba de pie un poco apartado de Zahir.
 
@@ -139,8 +139,6 @@ Zahir siguió hablando muy bajo.
 
 —Por eso te castigo más.
 
-Con esa sola frase, el aire cambió.
-
 Luhai abrió mucho los ojos y Kael levantó apenas el mentón. Sern tenía cara de haber sabido que esa frase llegaría.
 
 Zahir habló.
@@ -215,9 +213,9 @@ Al fin habló, muy bajo.
 
 —Lo acepto.
 
-Era lo mismo que había dicho antes.
+Era lo mismo que había dicho antes de saber cuál era el castigo.
 
-Pero a Seorin le sonó distinto. Antes había dicho: si usted considera que la crucé, lo acepto. Ahora solo había dicho: lo acepto.
+Pero a Seorin le sonó distinto de lo que había dicho al principio. Al principio había dicho: si usted considera que la crucé, lo acepto. Ahora solo había dicho: lo acepto.
 
 Lo que se había caído entre una y otra era la condición.
 
@@ -236,14 +234,6 @@ Ater respondió.
 —Más que funcionar bien,
 Lo dijo en voz queda.
 —Lo que hace es funcionar a su manera.
-
-Seorin pensó que eso era más exacto.
-
-Esto no es el Imperio ni la Alianza. Y no por eso era un sitio que funcionara de cualquier manera.
-
-Hazran, a la manera de Hazran, estaba volviendo a levantar un orden que se había doblado una vez.
-
-Y solo entonces se le aclaró un poco la idea de que lo que Sion y los demás se llevarían de aquí tampoco sería solo metal o un barco.
 
 ---
 

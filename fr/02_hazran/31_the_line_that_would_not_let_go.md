@@ -81,8 +81,8 @@ Han Jiwoo répliqua sèchement :
 
 « Tu vois ça comment ? »
 
-« Le bruit des moteurs n'est pas le même. »
-Kael poursuivit.
+« La traînée des propulseurs n'est pas la même. »
+Kael dit : « Un vaisseau civil, ça peut pas hacher sa poussée aussi court. »
 « L'un fait peur. L'autre veut mordre jusqu'au bout. La main qui attrape, c'est un autre. »
 
 Sern demanda aussitôt :
@@ -97,7 +97,7 @@ Sa voix était basse.
 
 Personne ne demanda de précision.
 
-C'est ce qui parut étrange à Sion. Kael avait dit quel genre de types ils étaient rien qu'au bruit d'un moteur, et personne ne lui demandait sur quoi il se fondait.
+C'est ce qui parut étrange à Sion. Kael avait dit quel genre de types ils étaient rien qu'à une traînée de propulseurs, et personne ne lui demandait sur quoi il se fondait.
 
 Seorin en était déjà à la question suivante.
 
@@ -142,11 +142,11 @@ Kael murmura :
 
 Au même instant, Sion vit une autre lueur s'insinuer entre les cadres extérieurs, à droite.
 
-Alors il tendit l'oreille. Puisque Kael disait les avoir distingués au son.
+Puis il regarda les traînées des propulseurs, derrière. Puisque Kael disait les avoir distingués à ça.
 
-Il n'entendit rien. Le grondement à l'intérieur de la coque était trop fort.
+Aux yeux de Sion, les deux lignes de lumière se ressemblaient exactement.
 
-Mais il le vit. L'autre virait après eux. Chaque fois avec un demi-temps de retard, chaque fois sous le même angle.
+À la place, il vit autre chose. L'autre virait après eux. Chaque fois avec un demi-temps de retard, chaque fois sous le même angle.
 
 « Jiwoo. »
 Sion l'appela d'un mot.

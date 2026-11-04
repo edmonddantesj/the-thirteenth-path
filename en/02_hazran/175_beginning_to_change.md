@@ -119,7 +119,7 @@ Han Jiwoo, the child still in her arms, took a step forward. Seorin's arm shot o
 
 "No."
 
-It was a short word. Seorin's arm stayed across Han Jiwoo's chest and did not come down. Han Jiwoo did not push it, and without pushing it, her foot, about to take one more step, stopped. The child she was holding threw their arms around her neck.
+Seorin's arm stayed across Han Jiwoo's chest and did not come down. Han Jiwoo did not push it, and without pushing it, her foot, about to take one more step, stopped. The child she was holding threw their arms around her neck.
 
 "Jiwoo."
 
@@ -151,7 +151,7 @@ Sern wrote on the record panel. This time it was two lines.
 
 Seorin answered.
 
-"Count."
+"The third."
 
 A child spoke between sobs.
 

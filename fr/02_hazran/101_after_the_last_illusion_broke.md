@@ -76,7 +76,7 @@ Les trois ne bougèrent pas.
 
 Nassim s'arrêta net à ces mots.
 
-Sion aussi comprit alors. Ces trois-là faisaient partie du troisième paquet en partant de la fin. Il faudrait encore trois décollages avant que vienne leur tour. Trois, ce ne serait pas avant la fin de la journée.
+Sion aussi comprit alors. Ces trois-là étaient dans la toute dernière file. Il faudrait encore trois décollages avant que vienne leur tour. Trois, ce ne serait pas avant la fin de la journée.
 
 Luhai était venu à côté de lui.
 
@@ -128,8 +128,6 @@ Là-bas, il poussa dans le dos des gens apeurés. En poussant, il ne dit que tro
 La dernière resta longtemps dans l'esprit de Sion.
 
 Cela voulait dire : on sait tous que ça ne va pas, et il faut y aller quand même. Ce garçon avait dû le dire combien de fois, aujourd'hui.
-
-Sion comprit sans peine ce que cela voulait dire.
 
 Ceux qui creusaient étaient tous des gens qui ne monteraient pas aujourd'hui. Ceux qui monteraient restaient dans la file ; ceux qui ne monteraient pas étaient venus ici. Personne n'avait demandé de les répartir ainsi, et pourtant la séparation s'était faite d'elle-même.
 
@@ -311,7 +309,7 @@ Sion alla au tableau. Les marques des départs étaient toujours six. Le vaissea
 
 Cinq voyages.
 
-À côté, près de la courte rayure, il en grava une autre. La deuxième heure.
+Il y avait deux courtes rayures. La deuxième heure.
 
 Sion alla vers Aka.
 

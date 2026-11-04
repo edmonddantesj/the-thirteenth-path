@@ -16,8 +16,6 @@ Le marchand hurlait à s'en déchirer la gorge.
 Quelqu'un ricana sur le côté.
 « Tu l'avais étalé sans même savoir que c'était du vrai. »
 
-Cette seule phrase retourna l'air de la couche extérieure du marché plus brutalement encore.
-
 Rien qu'à cette brève prise de bec, Sion comprit que ce que le petit fuyard serrait dans sa main n'était pas un simple objet qui se monnaye. Du vrai, mêlé aux faux. Personne ne l'avait vérifié ouvertement, mais certains avaient déjà deviné, et c'est pour cela que le tumulte enflait.
 
 Et Kael bougea le premier.
@@ -34,8 +32,6 @@ C'était le réflexe de quelqu'un qui s'interpose avant que quelqu'un ne se fass
 Seorin fut brève.
 
 « Sion. »
-
-Ce seul mot suffit.
 
 Sion pivota aussitôt vers la ruelle, lui aussi. Ater le suivit. Tout en courant, Ater parcourait du regard les fragments de métal éparpillés au sol et les réactions dans la poussière. Si ce que l'enfant tenait était de la vraie éthérite, sa réaction pouvait au moins avoir une autre texture que celle d'une limaille morte.
 
@@ -141,8 +137,6 @@ Cette fois, ce fut Ater qui ouvrit la bouche.
 Il parlait à voix basse.
 « Ce fragment, du moins, ne fait pas partie du même lot que ce qui est étalé dehors. »
 
-Ces mots tombés, l'air alentour changea encore une fois.
-
 Personne ne dit le premier que c'était du vrai, mais tous commençaient à penser la même chose. À Hazran, c'était ce moment-là le plus dangereux. Quand la chose n'était encore à personne, et que tout le monde, en même temps, commençait à lui fixer un prix.
 
 Luhai sembla lire ce changement plus vite que quiconque. Même retenu par la main de Kael, ses yeux continuaient de jauger les passages latéraux, les charpentes au-dessus, les mains des gens. Il avait peur, c'était certain ; mais même dans la peur, c'était un enfant chez qui le calcul tournait d'abord.
@@ -163,8 +157,6 @@ La question venait de Sion.
 « Il faisait trop le mort au milieu des faux. »
 Luhai reprenait son souffle.
 « Dans ce cas, en général, c'est l'un ou l'autre. Soit c'est du vrai, soit quelqu'un l'a planqué exprès. »
-
-Cela sonnait comme de la vantardise, mais pas tout à fait comme des sornettes non plus.
 
 Même après cette réponse, Kael ne lâcha pas prise. Il desserra seulement un tout petit peu la main par rapport à tout à l'heure. Ce changement infime, seul Sion pouvait le voir, mais il était net. Kael, lui non plus, ne voyait pas en cet enfant un simple chapardeur.
 

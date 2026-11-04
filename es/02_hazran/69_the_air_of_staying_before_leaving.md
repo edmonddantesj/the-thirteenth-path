@@ -40,8 +40,6 @@ Sern habló muy bajo.
 
 —Porque, si se arruinan, ya no queda precio que hacer rodar.
 
-Aquellas palabras eran secas, pero por eso mismo sonaban más propias de Hazran.
-
 Seorin lanzó la mirada más allá de la baranda.
 
 El trabajo de adentro seguía sin dar señales de terminar.
@@ -87,8 +85,6 @@ Lo preguntó Luhai.
 Sern miró un momento hacia Harún y luego habló.
 
 —Significa que, a su manera, todavía cree tener razón.
-
-Seorin sintió que aquello le molestaba de un modo extraño y, aun así, no estaba equivocado.
 
 Harún cae mal. Pero no es plano. Por eso es un hombre todavía más agotador.
 
@@ -170,7 +166,7 @@ Seorin oyó algo raro en esas palabras.
 
 Había dicho «aquí».
 
-Este chico había nacido y crecido aquí. Se sabía los nombres de todos los callejones, leía las tablillas de precios y sabía qué escondía cada puesto. Que alguien así dijera que le daba pena el sitio donde vivía no tenía sentido.
+Este chico había crecido aquí. Se sabía los nombres de todos los callejones, leía las tablillas de precios y sabía qué escondía cada puesto. Que alguien así dijera que le daba pena el sitio donde vivía no tenía sentido.
 
 «Da pena» es lo que dice quien se va a ir.
 
@@ -226,8 +222,6 @@ Aquel hombre tenía la marca de alguien que, en algún lugar, había acabado rec
 
 No preguntó. Aquí no preguntar parecía ser la cortesía, y Seorin también había recibido esa cortesía unas cuantas veces.
 
-Aquellas palabras se quedaron extrañamente mucho tiempo.
-
 Seorin, sin decir nada, volvió a mirar bajo la baranda.
 
 La arena en reparación, las carpas que volvían a levantarse, el mercado que revivía despacio. Y la gente que todavía no salía de adentro.
@@ -243,8 +237,6 @@ El sol empezó a declinar.
 De algún sitio llegó el ruido de alguien soltando las cuerdas de una carpa. Sonó en un lugar y enseguida en otro. Era un ruido que hasta hacía un rato no se oía.
 
 Seorin no sabía qué ruido era. Había mirado este mercado todo el día, pero era la primera vez que oía ese ruido.
-
-En cambio, poco a poco iba asentándose un aire de que, antes de partir, se quedarían aquí una vez como es debido.
 
 ---
 

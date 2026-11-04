@@ -164,7 +164,7 @@ Nassim tourna les yeux vers elle.
 
 « Vous n'êtes pas de taille à tenir sur une coupelle. »
 
-Cela sonnait comme une plaisanterie, mais personne ne rit.
+Personne ne rit.
 
 Ater demanda calmement.
 

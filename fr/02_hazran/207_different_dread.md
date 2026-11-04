@@ -78,7 +78,7 @@ Il ferma brièvement les yeux et les rouvrit.
 
 Il ne se mit pas en colère. Ne frappa pas le bureau. N'éleva pas la voix.
 
-Mais justement pour cela, la pièce devint plus silencieuse.
+C'est justement pour cela que la pièce devint plus silencieuse.
 
 Il fit de nouveau défiler l'écran.
 
@@ -98,11 +98,9 @@ Quand ces mots s'achevèrent, son doigt s'arrêta de nouveau, très faiblement.
 
 Un instant vraiment bref.
 
-Mais cette brièveté suffit encore à refroidir la pièce.
-
 Ce n'était pas la trace que laisserait un intrus ordinaire.
 
-Une très petite marque. Mais vive justement parce qu'elle était petite.
+Une très petite marque. D'autant plus vive pour cela.
 
 Non la trace de quelqu'un qui avait percé par la force, mais celle de quelqu'un qui comprenait comment se tenaient les séquences intérieures et les avait brièvement tordues pour ouvrir.
 
@@ -110,7 +108,7 @@ Le greffier fit apparaître le fichier suivant et ajouta avec prudence :
 
 « Sur certaines lignes résiduelles, des traces ressemblant à une lecture de dérivation de classe bureau d'approbation ont aussi été identifiées. La confirmation est difficile. Cependant… »
 
-Il ne put finir.
+Le greffier ne put finir.
 
 Parce que le côté qui rapportait savait déjà à qui pensait la silhouette supérieure.
 
@@ -124,13 +122,11 @@ Le greffier, comme s'il s'y était préparé, fit aussitôt apparaître l'écran
 
 « Depuis son départ du front de Hazran, officiellement non confirmée. Toutefois, en recoupant avec les personnels accompagnateurs probables et les schémas de déplacement… »
 
-Il s'interrompit brièvement.
+Le greffier s'interrompit brièvement.
 
 La silhouette supérieure autorisa la suite par le regard seul.
 
 « La possibilité d'une association avec le groupe de Sion Lapis est difficile à exclure. »
-
-L'air de la pièce s'amincit encore un peu.
 
 Personne ne prit un air surpris.
 
@@ -176,13 +172,13 @@ Il n'avait pas demandé d'abord si son fils était en sécurité.
 
 À la place, il calculait jusqu'où sceller cet incident où son fils se trouvait mêlé, et d'où commencer la filature.
 
-Mais justement pour cela, la pièce s'enfonça dans un froid plus profond.
+C'est justement pour cela que la pièce s'enfonça dans un froid plus profond.
 
 Le fait qu'une personne qui voyait tout le plateau avant le sang soit assise à ce siège semblait être un genre d'avertissement pour les greffiers aussi.
 
 Kairon ne dit rien de plus.
 
-Mais ce seul dernier ordre suffit à tous pour comprendre : les affaires personnelles et l'ordre impérial étaient maintenant montés sur la même ligne.
+Ce seul dernier ordre suffit à tous pour comprendre : les affaires personnelles et l'ordre impérial étaient maintenant montés sur la même ligne.
 
 Même après la fin du rapport, les greffiers ne purent pas bouger aussitôt.
 
@@ -190,7 +186,7 @@ Jusqu'à ce que Kairon ferme l'écran en premier, personne n'osa prendre une ins
 
 Ce ne fut qu'après l'assombrissement de l'écran que le nom Serakion disparut de la lumière.
 
-Mais disparaître ne le rendait pas inexistant.
+Disparaître ne le rendait pas inexistant pour autant.
 
 Au contraire, ce n'était que le commencement.
 
@@ -210,13 +206,13 @@ Il ne parvenait pas à se taire, même pendant l'ouverture des dossiers.
 
 « Bien. Une planète entière repliée vers l'intérieur, et tout le monde a gardé un visage impassible jusqu'au bout. »
 
-Mais étrangement, chaque fois qu'il fermait la bouche, le reste de la salle se mettait à choisir seulement les mots dont il avait vraiment besoin.
+Étrangement, chaque fois qu'il fermait la bouche, le reste de la salle se mettait à choisir seulement les mots dont il avait vraiment besoin.
 
 Kanus Han ne prit pas la peine d'arrêter ce bavardage.
 
 Elle posa seulement le bout des doigts sur le rapport et, pendant un moment, ne posa pas de question, ne rangea rien, attendant simplement que l'information prenne d'abord sa place.
 
-Ses cheveux gris, presque blancs, n'accompagnaient pas le visage de quelqu'un que trop d'informations aurait troublé.
+Avec ses cheveux gris qui passaient pour blancs et son visage jeune, elle n'avait pas, comme les autres, l'air troublé de quelqu'un submergé d'informations.
 
 C'était plutôt l'inverse.
 
@@ -274,8 +270,6 @@ Alors la silhouette qui troublait l'air de la salle depuis le début murmura, le
 
 « Non. Pas si éloignée. »
 
-Après cette courte phrase, l'air de la salle devint étrangement plus calme.
-
 Kanus ne réagit pas à la remarque.
 
 À la place, elle montra du doigt une ligne dans les données.
@@ -296,11 +290,7 @@ Kanus Han retira enfin sa main de l'écran et dit très bas :
 
 « Le groupe de Sion était là. »
 
-Les mots n'étaient pas forts comme une déclaration définitive.
-
-Mais c'est pourquoi ils pesaient davantage.
-
-Parce que ce que cette seule phrase signifiait n'était pas une simple confirmation de survie.
+Ce que cette seule phrase signifiait n'était pas une simple confirmation de survie.
 
 Que Serakion avait réellement existé. Que sa structure d'approvisionnement androïde était maintenant ébranlée. Et que le groupe de Sion était devenu non plus de simples fugitifs ou forces résiduelles, mais le centre d'une nouvelle onde que l'Empire et l'Alliance devraient suivre en même temps.
 
@@ -323,8 +313,6 @@ Cela sonnait comme une chute pour n'importe qui, et pourtant, étrangement, pers
 Kanus Han, dont l'expression ne changea pas même alors, expira très doucement.
 
 « L'extérieur va commencer à bouger lui aussi. »
-
-Ce n'était ni seulement une attente ni seulement une peur.
 
 C'était plus proche de la voix de quelqu'un qui savait ceci : quand une chose cachée trop longtemps entre enfin dans le regard du monde, personne ne peut plus bouger comme avant.
 

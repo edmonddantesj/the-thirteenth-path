@@ -176,7 +176,7 @@ Sion stopped for a moment.
 
 Luhai was sitting against the opposite wall, hugging his knees.
 
-He hadn't said a word for a while. The one on this ship who had lived longest in Hazran was the quietest.
+He hadn't said a word for a while. Of all the party, the one who had lived longest in Hazran was the quietest.
 
 Passing the water canisters around, Sion set one in front of Luhai too.
 
@@ -218,8 +218,6 @@ Sion went over beside her.
 Aka answered after a long while.
 
 "The ones who saw that have to go."
-
-Sion felt the words strike precisely at the inside of his chest.
 
 They hadn't boarded this ship because they were lucky. Zahir had taken them to the threshold and pushed them in, Nasim had shoved them from behind, Nahira had let go. The last thing those people had done was send this side out.
 

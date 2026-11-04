@@ -1,116 +1,112 @@
-# Chapitre 152 — Ce qu'on laisse derrière
+# Chapitre 152 — Ceux qu'on laisse derrière
 
-Une fois la décision prise de tenter un premier sauvetage,
-ce qui prit le plus de temps ne fut pas de relire le chemin.
+Ce qui prit le plus de temps ne fut pas de relire le chemin.
 
 Ce fut de choisir qui extraire en premier.
 
-Ce n'était pas simplement une question de repérer l'enfant le plus réceptif.
-Il fallait penser à tout en même temps :
-qui, une fois extrait, provoquerait la prochaine fissure ;
-qui, au contraire, ferait s'effondrer la file entière ;
-qui, même en restant à l'intérieur, pouvait encore s'accrocher aux traces du dehors.
+La nuit suivante, après que Han Jiwoo eut rouvert une fois encore la jambe de la seconde main de récupération, les cinq repassèrent la brèche et montèrent. Pendant que la vieille machine posait la main sur la rainure, Sion fit une marque sur la planchette à points. Dehors, deuxième fois.
 
-Alors l'équipe de reconnaissance observa de nouveau la ligne de déplacement supérieure.
+Devant la zone d'attente, là où se trouvaient le marquage d'empreintes et la ligne de relève, les cinq se collèrent à la fente. Cette fois, ce n'était pas pour comprendre ce monde, mais pour en choisir trois. Choisir voulait dire laisser les autres, mais personne ne le dit à voix haute.
 
-Cette fois, non pour comprendre le monde,
-mais pour choisir les enfants qui seraient les premiers à être sauvés.
+Près de la fente, la seconde main rajusta sa jambe. C'était l'articulation que Han Jiwoo avait ouverte : elle traînait moins et faisait moins de bruit. En entendant ce bruit, la première main de récupération hocha la tête pour la première fois.
 
-Ce qui signifiait aussi
-que d'autres enfants devraient, cette fois, être laissés derrière.
+Han Jiwoo avait le visage de celle qui détestait le plus cette tâche, mais ce fut aussi elle qui commença à observer avec le plus de sang-froid.
 
-Jiwoo était celle dont le visage trahissait le plus de répugnance face à cette idée.
+Regardant les mains des enfants, elle vérifiait si leur corps bougeait avant le geste des machines, si leur tête réagissait au son, s'ils gardaient tant soit peu leur propre rythme dans la file. Elle accordait un temps à chaque enfant, comme le faisaient les machines ; elle le savait, mais elle ne s'arrêta pas.
 
-Pourtant, étrangement,
-ce fut aussi elle qui commença à observer avec le plus de sang-froid.
-
-Elle regardait comment les enfants posaient leurs mains,
-si leur corps bougeait avant le geste des androïdes,
-si leur tête réagissait aux bruits extérieurs,
-si, même dans la file, ils conservaient encore un tant soit peu leur propre rythme.
-
-Au bout d'un long moment,
-elle dit très bas :
+Au bout d'un long moment, elle dit très bas :
 
 « Le premier, c'est cet enfant-là. »
 
 Kael et Ater suivirent son regard.
 
-Ni au début de la file,
-ni tout à la fin.
-Un petit humain qui se tenait quelque part au milieu.
+Ni en tête de file ni tout au fond, mais à peu près au milieu, se tenait un petit être humain. Sage d'apparence, mais pas ses mains.
 
-En apparence, il semblait parmi les plus dociles.
-Mais ses mains, non.
+Une machine fit signe de s'arrêter, et la file s'arrêta. Le bout des doigts de cet enfant bougea encore très légèrement après l'arrêt, avant de s'immobiliser. C'étaient des mains qui s'arrêtaient d'elles-mêmes.
 
-Chaque fois que les androïdes imposaient un rythme d'arrêt,
-le bout de ses doigts résistait encore, infimement, un instant de plus.
+« Cet enfant suivra ? »
 
-Ce n'était pas de la rigidité.
-C'étaient des mains encore proches de décider elles-mêmes de leur propre immobilité.
+Kael posa la question à voix basse.
 
-« Il suivra ? »
-demanda Kael à voix basse.
+Han Jiwoo ne répondit pas tout de suite.
 
-Jiwoo ne répondit pas tout de suite.
+« Ce n'est pas tant que l'enfant viendra si on lui prend la main, »
 
-« Plutôt que de dire qu'il viendra si on lui prend la main, »
-dit-elle très lentement,
-« il n'a pas encore complètement renoncé à être saisi. »
+Elle parlait très lentement.
 
-Ces mots n'étaient pas de l'espoir.
-C'était la plus petite possibilité que l'on pouvait encore espérer à l'intérieur de Serakion.
+« c'est que l'enfant n'a pas encore tout à fait renoncé à ce qu'on lui tienne la main. »
 
-Le deuxième enfant, ce fut Ater qui le choisit en premier.
+« Ça suffit ? »
 
-C'était un peu inattendu.
+« Ici et maintenant, c'est tout ce qu'on peut espérer. »
 
-Celui qu'il avait choisi ne semblait ni le plus apeuré,
-ni le plus clairement résistant.
+Pendant que Kael regardait le bout de ces doigts, ils bougèrent encore une fois à l'arrêt suivant. Il hocha la tête, et la seconde main regarda à son tour l'enfant.
 
-Au contraire, il était si excessivement silencieux
-qu'au premier regard, on aurait pu croire qu'il était déjà profondément conditionné.
+« Les mains seules ne suffisent pas pour savoir. Et les pieds ? »
 
-Jiwoo regarda Ater.
+Les pieds que regarda Han Jiwoo étaient posés exactement sur l'empreinte ; puis le talon se souleva très légèrement et retomba.
 
-Sans détourner les yeux, il dit :
+« Il s'est soulevé. »
+
+« Je l'ai vu. Alors c'est bon. »
+
+Pour le deuxième enfant, ce fut Ater qui choisit le premier.
+
+Han Jiwoo le regarda, comme surprise.
+
+L'enfant qu'il avait choisi ne semblait ni avoir peur ni résister : c'était du silence. Un silence tel qu'au premier regard, on aurait cru voir un enfant dont le passage était déjà achevé.
+
+Sans détourner les yeux, Ater dit :
 
 « Cet enfant-là ne regarde pas vers le haut. »
 
 Bref silence.
 
-Ce que ces mots signifiaient,
-Kael fut le premier à le comprendre.
-
-Les humains qui cherchaient à monter dans les niveaux supérieurs de Serakion
-suivaient d'ordinaire la ligne centrale indiquée par les androïdes,
-ou bien le rythme de celui qui les précédait.
-
-Mais cet enfant-là continuait, de manière infime,
-à regarder sur le côté ou vers le bas.
-
-Cela signifiait qu'il n'aspirait pas au sommet,
-qu'il n'avait pas entièrement confié son regard à ce rythme-là.
+Kael fut le premier à comprendre. Les enfants de la file regardaient la ligne centrale vers laquelle les machines les guidaient, le dos de l'enfant de devant, devant eux ; seul cet enfant regardait autrement, sur le côté et vers le bas. Même quand la ligne lumineuse de guidage s'allumait, ses yeux ne montèrent pas une seule fois.
 
 Ater ajouta à voix basse :
 
-« Ce n'est pas de la soumission.
-C'est peut-être le silence de quelqu'un qui tient bon. »
+« Ce n'est pas de la soumission, c'est peut-être le silence de quelqu'un qui tient bon. »
 
-Ces mots sonnaient comme s'ils venaient de sa propre expérience.
+« Comment tu le sais ? »
 
-Au sein de l'Empire aussi,
-il existait des gens qui semblaient entièrement brisés alors qu'en réalité ils n'avaient fait que fermer leur intérieur pour tenir.
-Ater connaissait ce genre de visage.
+Han Jiwoo posa la question.
+
+Ater répondit après un temps :
+
+« Je l'ai déjà vu. »
+
+« Où ça ? »
+
+« Chez moi. »
+
+Han Jiwoo ne demanda rien de plus et regarda l'enfant. L'enfant aux yeux baissés regardait le marquage d'empreintes au sol : ses pieds étaient-ils bien dedans.
+
+« Et si on prend la main de cet enfant ? »
+
+« Je ne sais pas. »
+
+Ater répondit.
+
+« Si c'est un enfant qui se laisse prendre la main ou non. »
+
+« Et tu choisis cet enfant quand même ? »
+
+Han Jiwoo posa la question.
+
+« Je choisis cet enfant. »
+
+Ater répondit.
+
+« Un enfant qui ne regarde pas vers le haut est un enfant qui ne s'accorde pas. Ceux qui ne s'accordent pas descendent. Par la voie large. »
+
+Han Jiwoo regarda de nouveau l'enfant : en bas et sur le côté, rien d'autre ; pas une fois vers le haut.
 
 Le troisième fut choisi par la seconde main de récupération.
 
-Cette fois, l'enfant était plus petit.
-Et bien plus dangereux en apparence.
+Une taille plus petite encore, un air plus dangereux.
 
-Il avait un demi-temps d'avance sur les autres.
-Ses pieds partaient avant le geste des androïdes,
-et quand il aurait dû s'arrêter, il cherchait déjà à voir la suite avant d'être complètement immobile.
+Cet enfant avait un demi-temps d'avance sur les autres. Ses pieds partaient avant le geste des machines, et quand il fallait s'arrêter, ses yeux allaient vers la suite avant l'arrêt complet. Une machine se plaça à un demi-pas, plus près, puis recula quand l'enfant s'arrêta. Alors les pieds de l'enfant repartirent les premiers.
 
 Kael dit aussitôt :
 
@@ -118,77 +114,83 @@ Kael dit aussitôt :
 
 La seconde main de récupération hocha la tête.
 
-« C'est vrai. »
-« Mais ce genre d'enfant,
-une fois qu'on lui prend la main, c'est justement celui qui file le plus vite. »
+« C'est vrai. Mais ce genre d'enfant, une fois qu'on lui a pris la main, file plus vite que tous les autres. »
 
-C'était juste, aussi.
+« Et fait aussi s'effondrer la file plus vite que tous les autres. »
 
-Un enfant lent pouvait se figer.
-Un enfant trop habitué pouvait ne jamais se retourner.
-Mais un enfant dont le corps partait encore en premier,
-si le rythme était bon, pouvait être le premier à s'échapper par la brèche.
+C'était Kael.
 
-Le problème, c'est qu'à l'inverse,
-il pouvait aussi être celui qui ferait s'effondrer la file entière le plus vite.
+« Alors à la fin. »
 
-Alors, même après avoir choisi les trois,
-personne ne put dire que le choix était arrêté.
+La seconde main répondit.
 
-Car cette sélection, c'était à la fois choisir une chance de sauver quelqu'un
-et écrire la phrase qui disait : ceux-là, cette fois, on ne les ramène pas.
+« Après la sortie des deux premiers. »
 
-C'est alors que le regard de Jiwoo
-s'attarda longuement sur un enfant tout au bout de la file.
+Sous le regard de Kael, les pieds de l'enfant partirent encore les premiers ; Kael replia un doigt.
 
-Il était visiblement petit,
-et son rythme de marche n'avait rien de stable.
+La première main regarda la machine à côté de l'enfant.
 
-Ses mains,
-ses pieds,
-son regard.
+« Cette machine-là ne s'écarte pas. »
 
-Tout vacillait encore.
+« Elle s'écarte. »
 
-Jiwoo l'observa longtemps,
-puis retira lentement les yeux.
+La seconde main poursuivit.
 
-Ater s'en aperçut,
-mais ne dit rien.
+« Quand l'enfant s'arrête, elle recule. Tu l'as vu. »
 
-Kael ne posa pas de question non plus.
+« Elle revient. »
 
-Ce silence-là faisait plus mal.
+« Avant qu'elle revienne. »
 
-Sans un mot,
-tous les trois savaient déjà.
+La seconde main replia un doigt puis le rouvrit, du geste de Kael, et la première n'ajouta rien.
 
-Certains enfants sont trop en retard,
-certains sont trop jeunes,
-et certains, si l'on tentait de les extraire dans ce rythme-ci,
-risquaient de faire perdre les trois autres.
+Même après avoir choisi les trois, personne ne dit que c'était décidé.
 
-Ce n'est pas que cet enfant comptait moins.
+La première main demanda :
 
-C'est précisément pour cela
-que c'était plus cruel.
+« Ces trois-là ? »
 
-Jiwoo dit très bas :
+Personne ne répondit.
 
-« On commence par trois. »
-« Ces trois-là. »
+Le regard de Han Jiwoo s'arrêta sur un enfant tout au bout de la file.
 
-Kael recalcula une dernière fois l'itinéraire.
+Un enfant à la taille plus petite que celle des trois. Les mains, les pieds, le regard : tout le rythme de sa marche vacillait. Une machine se plaça à un demi-pas à côté et l'enfant s'arrêta, mais la machine ne recula pas : elle resta à un demi-pas.
 
-Le point de départ de la diversion,
-l'endroit où extraire les enfants,
-le point où ralentir le repli de la structure,
-l'angle où le chemin du retour se séparerait une fois de plus.
+Han Jiwoo l'observa longtemps, puis détourna lentement le regard. Après l'avoir détourné, elle ferma les yeux, puis les rouvrit.
 
-Puis il dit, très brièvement :
+Ater le vit, mais ne dit rien. Kael ne demanda rien non plus, la seconde main non plus.
 
-« Juste avant le franchissement de la prochaine ligne de relève. »
-« C'est le meilleur moment. »
+La première main regarda l'enfant. C'était l'enfant à côté duquel la machine, à un demi-pas, ne reculait pas.
+
+« Et cet enfant-là ? »
+
+« Non. »
+
+Han Jiwoo répondit.
+
+« Pourquoi ? »
+
+« La machine ne s'écarte pas. »
+
+« Et si on la fait s'écarter ? »
+
+« Qui ? »
+
+La première main ne répondit pas, et Han Jiwoo regarda cette machine. À un demi-pas, sa main était à la hauteur de l'épaule de l'enfant ; une main qui ne se posait pas.
+
+« Et donc ? »
+
+« Et donc c'est non. Si on attrape cet enfant, la machine vient avec. »
+
+Han Jiwoo dit très bas :
+
+« La première fois, trois. On y va avec ces trois-là. »
+
+Pendant que les pieds du troisième enfant partaient encore les premiers, le deuxième regardait vers le bas, et le bout des doigts du premier bougea encore une fois. L'enfant du bout de la file s'arrêta en même temps que la machine, à un demi-pas.
+
+Kael calcula le parcours une dernière fois. Le point de départ de la diversion, l'endroit où extraire les enfants, le point où ralentir le repli de la structure, l'angle où le chemin du retour se séparerait une fois de plus. Il déplia quatre doigts et dit très brièvement :
+
+« Juste avant que passe la prochaine ligne de relève. C'est le meilleur moment. »
 
 La première main de récupération demanda :
 
@@ -196,46 +198,83 @@ La première main de récupération demanda :
 
 Kael répondit :
 
-« Non. »
-« Mais parmi tout ce qui est possible maintenant, c'est le moins faux. »
+« Non. Mais de tout ce qui est possible maintenant, c'est ce qui est le moins faux. »
 
-Étrangement,
-ces mots semblaient les plus justes pour cette opération.
+La première main ne hocha pas la tête et regarda la ligne de relève au-delà de la fente.
 
-Pour arracher quelqu'un à Serakion,
-il n'y aurait jamais de certitude parfaite.
+« Quand ? »
 
-Il n'y avait qu'à s'accrocher à l'instant le moins faux,
-au chemin le moins faux,
-au rythme le moins tardif.
+« La prochaine file. »
 
-Ater regarda les enfants une dernière fois.
+« Et celle-ci ? »
 
-Celui qu'il avait choisi ne levait toujours pas les yeux vers le haut.
-Le bout des doigts de l'enfant choisi par Jiwoo maintenait encore, infimement, son propre arrêt.
-L'enfant choisi par la seconde main de récupération foulait encore le monde avec un demi-temps d'avance.
+« Celle-ci, impossible. Ces enfants-là, on les a déjà tous vus. Pendant qu'on était là. »
 
-Tous les trois se tenaient encore sur un temps qui n'avait pas entièrement basculé.
+Han Jiwoo s'écarta de la fente et s'adossa au mur, puis respira une fois et colla de nouveau l'œil à la fente.
 
-C'est précisément pour cela
-que, cette fois, cela pouvait réussir.
+« Pour le troisième aussi, le poignet ? »
 
-Et en même temps,
-c'est précisément pour cela que, si l'on échouait, on ne reverrait peut-être plus jamais ces mêmes enfants au même endroit.
+La seconde main posa la question.
 
-Ce jour-là, à la fin,
-l'équipe de reconnaissance et les mains de récupération fixèrent enfin la première fenêtre de sauvetage.
+« Le troisième, dans les bras. »
 
-Très courte,
-se refermant au moindre retard,
-devenant suspecte à la moindre avance.
+Han Jiwoo poursuivit.
 
-Cette brèche semblait exister sur le chemin,
-mais en vérité, c'est dans le cœur des gens qu'elle s'était ouverte en premier.
+« Le poignet, ça court en tirant. Dans les bras, ça ne peut pas courir. »
 
-Ce n'est qu'après avoir décidé qui ramener d'abord,
-et qui laisser derrière cette fois,
-qu'ils achevèrent enfin, pour la première fois, de se préparer à tendre réellement la main contre Serakion.
+« Qui porte l'enfant ? »
+
+« Moi. »
+
+Ater regarda tour à tour l'enfant aux yeux baissés, l'enfant au bout des doigts, l'enfant dont les pieds partaient les premiers. Tous trois se tenaient encore dans un temps qui n'avait pas basculé. Il vit aussi l'enfant du bout de la file, et ce demi-pas, et détourna les yeux.
+
+La ligne lumineuse de guidage s'alluma, la file s'immobilisa et le mur s'ouvrit. Les trois de tête passèrent, puis un quatrième. Le mur se referma.
+
+Han Jiwoo ne compta pas.
+Elle compta.
+Quatre.
+
+« Cette file aussi, quatre. »
+
+C'était la seconde main.
+
+« Quatre, ça en laisse un. »
+
+C'était Kael.
+
+« Je sais. »
+
+Han Jiwoo répondit.
+
+Tandis que les cinq quittaient la fente pour redescendre, Han Jiwoo régla son pas sur le bruit de la jambe de la seconde main.
+
+Devant la brèche, Ater gratta trois fois la rainure, et la brèche s'ouvrit. La vieille machine était là, et Sion tenait la planchette.
+
+« C'est choisi ? »
+
+Sion posa la question.
+
+« Trois. »
+
+Han Jiwoo répondit.
+
+Sion traça sur la planchette les points des trois qui n'étaient pas encore venus, et laissa à côté une case vide. Han Jiwoo regarda cette case vide.
+
+« Pourquoi tu la laisses vide ? »
+
+« Je sais pas. »
+
+Luhai jeta un coup d'œil par-dessus la planchette.
+
+« C'est la place du quatrième ? »
+
+« Non. Le quatrième, je l'ai pas tracé. C'est juste une case vide. »
+
+Luhai regarda la case vide à côté des trois points. Quand il la toucha du doigt, Sion retira la planchette.
+
+Han Jiwoo s'adossa au mur et ferma les yeux. Un demi-pas. L'enfant dont la machine ne reculait pas.
+
+Elle ne rouvrit pas les yeux.
 
 ---
 

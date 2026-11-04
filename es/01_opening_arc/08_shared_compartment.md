@@ -6,7 +6,7 @@ El aliento, una vez desatado, no se calmaba con facilidad.
 A sus espaldas todavía se oían, mezclados, el choque lejano del metal y el ruido de alguien que cerraba un paso, y las luces de vigilancia de la parte alta del puerto se iban apagando una tras otra. Haber salido vivos no era el final; se parecía más a la sensación de haber caído, todavía vivos, en algo más hondo.
 
 Sion se detuvo un momento a la sombra de la pasarela.
-Fingía recobrar el aliento, pero en realidad quería volver a comprobar hasta dónde lo seguían los otros tres. El hombre de la Cámara de Reconocimiento con su abrigo negro, y su ayudante. Los dos seguían pareciendo demasiado enteros, y eso lo irritaba todavía más.
+Fingía recobrar el aliento, pero en realidad quería volver a comprobar hasta dónde lo seguían los otros dos. El hombre de la Cámara de Reconocimiento con su abrigo negro, y su ayudante. Los dos seguían pareciendo demasiado enteros, y eso lo irritaba todavía más.
 
 Seorin tenía la cara de haber leído lo mismo.
 
@@ -166,7 +166,7 @@ Seorin aprovechó el hueco sin dejarlo pasar y se metió.
 
 —Seguro que iba por los dos.
 
-Seorin soltó una risita baja. Los dos eran insoportables, pero cada uno a su manera.
+Luego soltó una risita baja. Los dos eran insoportables, pero cada uno a su manera.
 
 Sern, incluso en medio de aquel breve toma y daca, seguía leyendo la puerta de la cabina, la vibración del casco y las señales de aproximación de fuera.
 Y luego habló.
@@ -185,7 +185,6 @@ Quien primero puso en palabras aquel hecho incómodo fue, inesperadamente, Ater.
 —Hace un momento… sin ustedes no habríamos salido.
 
 Sion no respondió enseguida.
-Aquellas palabras eran extrañamente honestas, y por eso mismo le molestaban más.
 
 Unos compases después, también él habló, a regañadientes.
 
@@ -199,7 +198,7 @@ Sern contestó con cara indiferente.
 
 —Tanto como reconciliación, no lo es.
 
-—Ya. Eso también lo veo yo.
+—Ya. Eso también lo veo yo —replicó Seorin.
 
 Un silencio corto.
 
@@ -250,7 +249,6 @@ Solo entonces habló Sion.
 
 —Elia Vern.
 
-Cuando salió ese nombre, el aire de la cabina volvió a cambiar, levemente, una vez más.
 Sern oía ese nombre por primera vez, pero solo por la reacción de los tres que lo pronunciaban leyó que no era un simple nombre de persona.
 
 —¿Es alguien de fiar?
@@ -258,8 +256,6 @@ Sern oía ese nombre por primera vez, pero solo por la reacción de los tres que
 A la pregunta de Ater, Sion negó con la cabeza al instante.
 
 —No.
-
-La respuesta fue tan rápida que, por eso mismo, era más exacta.
 
 —Entonces, ¿por qué vamos?
 

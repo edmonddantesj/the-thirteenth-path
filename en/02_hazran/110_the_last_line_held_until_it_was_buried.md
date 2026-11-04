@@ -44,7 +44,7 @@ Sion looked up.
 
 Above the collapsed wall there was something that had not collapsed yet. Metal plates half blown apart from use as barricades, cut-away pieces of hull, the wreckage of gun emplacements. The things Hazran had made by cutting itself apart were piled up there.
 
-What had held all of it up until now were three things underneath.
+What had held all of it up until now were three props underneath.
 
 "And if those are taken out?"
 
@@ -101,7 +101,7 @@ The front rank stopped, and the next rank climbed up on top of it. Then more cli
 
 They weren't trampling over it. They were covering it.
 
-Sion knew it wasn't a charge. It was a movement come to confirm a place already finished. Each one was precise, all of them moved at the same speed, and none of them hurried.
+Each one was precise, all of them moved at the same speed, and none of them hurried.
 
 The four began to disappear beneath it.
 
@@ -135,7 +135,7 @@ The four didn't fall back. If they fell back, those things wouldn't gather.
 
 And Zahir raised his hand.
 
-He made no sound. He had never once raised his voice. He was a man whose placement was his word.
+He didn't shout. He had never once raised his voice. He was a man whose placement was his word.
 
 The hand came down.
 
@@ -193,7 +193,7 @@ A long while passed.
 
 Sion let out a single breath at that.
 
-Not hearing it from here didn't mean there was no sound down there. It meant the ship was off the ground, the walls were two layers thick, and the floor didn't touch.
+Not hearing it from here didn't mean there was no sound down there. It meant the ship was off the ground, the walls were in the way, and the floor didn't touch.
 
 So from now on there was no way to know.
 
@@ -235,10 +235,6 @@ He couldn't have said whether it was meant for someone else or for himself.
 Beside him, Seorin spoke, almost in a breath.
 
 "We'll come back."
-
-They were short words.
-
-Inside them were both what had to be repaid and the ground that had to be taken back.
 
 Luhai never managed to take his eyes off the outside, and he spoke very softly.
 

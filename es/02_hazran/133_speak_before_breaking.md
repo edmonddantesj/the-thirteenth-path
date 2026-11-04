@@ -1,229 +1,254 @@
-# Capítulo 133 — Hablar antes de quebrarse
+# Capítulo 133 — Hablar antes de derrumbarse
 
-Cuando cayó la noche,
-este estrato viejo se quedó más callado que de día.
+Al caer la noche, este estrato viejo se volvió más silencioso que de día.
 
-Pero esa calma no era el sosiego de quien descansa.
+A lo lejos resonaba débil el ruido del metal al enfriarse, y más cerca se escapaban, finos, los gemidos contenidos durante el día. Alguien fingía dormir, pero no respiraba parejo. Alguien dormía de verdad, con la boca abierta.
 
-Cuanto más bajaba el ruido,
-mejor se oían en la noche los signos de quien aguantaba.
+Sion, de pie junto al corredor intermedio, cotejaba la disposición marcada en la vieja tablilla de puntos con las caras de la gente.
 
-A lo lejos resonaba muy bajo el sonido del metal al enfriarse,
-y del lado cercano se filtraban, más finos, los gemidos contenidos durante el día,
-y alguien fingía dormir,
-y alguien, de veras agotado, había caído rendido.
+Un punto, una persona. Un punto, una persona.
 
-Sion, de pie junto al corredor intermedio,
-cotejaba despacio la disposición anotada en el viejo tablero con los rostros de la gente.
+Se detuvo en el tercer punto: la persona no estaba en su sitio, se había cambiado al de al lado. Con la uña, trazó el punto en su nuevo sitio sobre la tablilla.
 
-Aún no sentía ese papel tan suyo como una costumbre.
+De día todos aguantan, y si alguien los mira aguantan más. La noche era la hora en que ese aguante se aflojaba primero.
 
-Pero el sentido acumulado desde Hazran
-sabía moverse primero, aunque no le resultara familiar.
+Después de dar la primera vuelta, Sion se detuvo delante de una persona.
 
-Quién fingía estar bien.
-Quién, sentado ahora en su sitio,
-se derrumbaría en cuanto pasara un poco más.
-A quién no se debía dejar solo.
+Era un hombre joven venido de Hazran. El que de día se había sumado a cargar provisiones y se había movido sin decir nada, el que había dicho que sabía un poco de ordenar cableado.
 
-Esas cosas.
-
-De día todos aguantan.
-Y si alguien los mira, aguantan más.
-
-La noche era el momento en que ese aguante se aflojaba primero.
-
-Sion, tras dar la primera ronda,
-se detuvo enseguida ante una persona.
-
-Era un joven que había venido de Hazran.
-
-De día se había quedado en el lado de cargar provisiones,
-y se había movido en silencio, sin mucha palabra.
-
-Pero ahora, con la espalda contra el muro,
-tenía el cuerpo demasiado rígido, aunque mantuviera los ojos cerrados.
-
-No era una postura de dormir.
-
-Era la postura de quien aguanta y se ha detenido un momento.
+Ahora tenía la espalda contra la pared y los ojos cerrados, pero el cuerpo rígido y los hombros subidos. No eran los hombros de alguien que duerme. Sobre las rodillas, las dos manos entrelazadas se le habían puesto blancas.
 
 Sion lo llamó en voz baja.
 
-—¿Estás bien?
+—¿Está bien?
 
-El joven no respondió.
+El hombre no respondió, pero los hombros le temblaron muy levemente.
 
-Pero el hombro le tembló de un modo mínimo.
+Sion no se acercó más y se quedó a tres pasos. Era la distancia que ayer la máquina había guardado con el niño.
 
-Sion, al verlo, no se acercó más.
-En vez de eso, manteniendo la misma distancia, volvió a hablar.
+—Si no está bien, tiene que decirlo ahora.
 
-—Si no estás bien, tienes que decirlo ahora.
+El hombre se quedó callado un largo rato y luego habló, casi como si masticara las palabras y se las tragara.
 
-Después de que cayeran esas palabras,
-el joven se quedó callado un buen rato.
-
-Luego habló como masticando las palabras.
-
-—Lo de que mi hermano no está aquí,
-lo supe hace un rato, al contar los números.
+—Que mi hermano menor no está aquí no lo supe hasta hace un rato, cuando contaron.
 
 Sion no dijo nada.
 
-El joven, con los ojos cerrados, añadió.
+El hombre añadió, con los ojos cerrados.
 
-—De día creía que seguía a mi lado.
-Como no paraban de darme trabajo,
-yo solo seguía haciéndolo.
+—Es que de día creía que seguía a mi lado. Como no paraban de mandarme cosas, yo también seguía haciéndolas.
 
-Aquellas palabras no eran un reproche.
-Pero por eso dolían más.
+Las manos entrelazadas se soltaron y una de ellas tanteó el suelo del sitio de al lado. En ese sitio vacío, la mano se detuvo.
 
-Cuando uno se está moviendo,
-puede engañarse un rato.
-Diciéndose que aún no se ha acabado.
-Que aún no ha perdido de verdad.
+Sion miró esa mano y se quedó un rato de pie junto al hombre; luego habló muy bajo.
 
-Pero la noche
-era también el momento en que esa mentira se rompía primero.
+—Parece que hoy no se le puede dejar solo.
 
-Sion permaneció un rato de pie junto a aquel joven,
-y dijo muy bajo.
+El hombre abrió los ojos y miró a Sion; luego, sin decir nada, retiró la mano con la que tanteaba el sitio de al lado.
 
-—Hoy no se te puede dejar solo.
+Sion trajo agua y la dejó junto al hombre, en el sitio donde habría estado su hermano menor, y el hombre miró el agua.
 
-Aquellas palabras no eran un consuelo.
-Pero lo que hacía falta ahora, antes que el consuelo,
-era no dejarlo solo.
+Sion se apartó de allí y fue hacia dos humanos que estaban cerca. Entre ellos estaba la mujer del rostro cansado.
 
-Poco después,
-Sion dejó agua en el sitio de al lado de aquel joven
-e hizo una señal a dos humanos cercanos.
+—Ese hombre. Esta noche no hay que dejarlo solo.
 
-Hay que hablar primero.
+La mujer miró hacia allí, asintió y le dio un toque a la persona que tenía al lado. Esa persona se levantó, fue junto al hombre y se sentó sin decir nada. El hombre no la miró, pero tampoco le dijo que se levantara.
 
-Las palabras que había dicho la máquina vieja
-eran una frase mucho más práctica de lo que parecía.
+La mujer miró a Sion.
 
-Al ver quién está a punto de derrumbarse,
-después hay que avisar siempre a alguien.
+—Lo dijiste.
 
-Si lo notas a solas y pasas de largo,
-eso no es haber cumplido el papel.
+—Sí.
+
+—Eso es.
+
+La mujer volvió a doblar la tela que tenía entre manos.
 
 El primero pasó así.
 
 El segundo fue más rápido.
 
-Del lado de los niños,
-una mujer que había venido de Hazran doblaba y desdoblaba sin parar la misma tela.
+Del lado de los niños, la mujer que vino con dos niños doblaba y desdoblaba la misma tela. Una vez, dos. A la tercera le temblaron las manos, y a la cuarta las manos no se abrieron y se quedaron rígidas apretando la tela.
 
-Al principio parecía una simple manía.
-Pero Sion, a la tercera, vio que esa mano temblaba.
+Cuando el niño que tenía en el regazo miró esas manos, el de al lado también las miró.
 
-Y a la cuarta vez que la dobló,
-aquella mujer ya no pudo abrir su propia mano.
+Sion fue hacia allí enseguida.
 
-Sion fue de inmediato hacia ese lado.
+—Ahora tiene que descansar.
 
-—Ahora tienes que descansar.
-
-La mujer negó al instante con la cabeza.
+La mujer negó con la cabeza al instante.
 
 —Tengo que dormir a los niños.
 
-—Ahora la que se apaga primero eres tú.
+—Ahora mismo, la que se va a desplomar primero es usted.
 
-Ante esas palabras,
-la mujer miró a Sion por primera vez.
+Solo entonces la mujer miró a Sion con cara de sorpresa. La mano que apretaba la tela todavía no se abría.
 
-Era una cara de sorpresa.
+Cuando Sion miró esa mano, la mujer también bajó la vista a la suya e intentó abrirla, pero la mano no se abrió.
 
-La cara de quien no esperaba que alguien le dijera eso directamente.
+—¿Lo ve?
 
-Sion, en el instante en que vio esa expresión,
-creyó entender por qué hacía falta su parte en este estrato viejo.
+La mujer cerró la boca.
 
-Aquí son todos gente que ha aguantado mucho.
-Y por eso, justamente,
-son los últimos en admitir el momento en que ellos mismos se derrumban.
+Sion se volvió y vio que la mujer del rostro cansado ya estaba mirando. Al ver que Sion asentía, ella se levantó, vino a sentarse junto a los niños y se pasó al niño del regazo de la otra al suyo. El niño no quería ir, pero cuando su madre le empujó la espalda, fue.
 
-Alguien tiene que verlo antes y decirlo.
+Solo entonces la mujer que vino con dos niños se dejó caer junto a la pared. La tela se le cayó de las manos, y las manos se abrieron. Se miró las manos y, sin llorar, cerró los ojos.
 
-Poco después,
-otro humano se sentó junto a los niños en lugar de aquella mujer,
-y la mujer se desplomó contra el muro casi cayéndose.
+Sion soltó el aire despacio e hizo una marca en la tablilla con la uña. Dos personas.
 
-Solo en ese instante
-se le cayó la tela de la mano.
+Han Jiwoo seguía sentada delante de las piezas bajo una sola lámpara, pero las manos se le habían vuelto lentas y tomó dos veces la misma pieza.
 
-Sion, al verlo, exhaló muy despacio.
+Sion le dejó agua al lado.
 
-Cuanto más se ahondaba la medianoche,
-empezaban a verse también las otras grietas dentro de este estrato viejo.
+—Jiwoo.
 
-No eran solo las personas.
-Las máquinas igual.
+—No me duermo.
 
-Una máquina vieja, aunque era evidente que en pleno desplazamiento una articulación se le había desencajado fuerte,
-recolocaba el eje sin decir nada y seguía.
+—Lo sé.
 
-Otra máquina, mientras ordenaba señales,
-se detuvo como si por un instante se le oscureciera la vista
-y reanudó el trabajo como si no hubiera pasado nada.
+Han Jiwoo levantó la cabeza y miró la tablilla que Sion llevaba bajo el brazo.
 
-Sion, al ver aquellas imágenes, sintió una fatiga extraña.
+—¿Yo también estoy ahí?
 
-Aquí no es solo la gente la que aguanta.
-Es un sitio donde las máquinas también aguantan ocultando su avería hasta el final.
+—Sí.
 
-Y eso
-volvía más peligrosa a toda esta comunidad.
+—¿Me marcaste?
 
-Entonces, por detrás,
-se acercó callada la mujer humana que de día le había hablado por primera vez.
+Como Sion no respondía, Han Jiwoo dejó la pieza.
 
-Ella siguió el final de la mirada de Sion,
-miró una vez a las dos máquinas viejas y dijo bajo.
+—¿Y tú?
+
+—Yo también estoy.
+
+—¿Quién te marca?
+
+Sion no supo responder.
+
+Han Jiwoo bebió el agua y, sin volver a tomar la pieza, apoyó la espalda en la pared.
+
+—Diez minutos.
+
+Lo dijo y cerró los ojos.
+
+Sion no contó los diez minutos; simplemente se quedó allí de pie.
+
+A medida que la noche se hacía más honda, empezaron a verse también otras grietas.
+
+No solo en la gente.
+
+A una máquina vieja, al moverse, se le descolocó mucho una articulación. Al sonar, la máquina se detuvo y, sin decir nada, se apretó la rodilla con la mano para volver a alinear el eje, y solo entonces se movió. Al paso siguiente volvió a sonar, pero la máquina no se detuvo.
+
+A otra máquina, mientras ordenaba señales, se le apagó el ojo óptico.
+
+Un compás.
+
+Se encendió. La máquina siguió trabajando como si nada hubiera pasado. Incluso mientras Sern, sentado a su lado, lo veía y lo anotaba en el panel de registro, la máquina no miró lo que Sern escribía.
+
+Cuando Sion fue hacia Han Jiwoo, ya habían pasado diez minutos y ella tenía los ojos abiertos.
+
+—La rodilla de esa máquina.
+
+Lo dijo Sion.
+
+Mientras Han Jiwoo miraba hacia allí, la máquina caminó y sonó. Han Jiwoo se levantó y fue hasta la máquina.
+
+—¿Puedo mirar esto?
+
+La máquina se detuvo, pero no respondió.
+
+Han Jiwoo se puso en cuclillas delante de la máquina y, sin tocarla, se limitó a mirar la articulación de la rodilla: el eje se había salido media falange.
+
+—Mañana. Ahora no puedo. Mañana por la mañana.
+
+La máquina no respondió y volvió a caminar; sonó, y Han Jiwoo contó los ruidos.
+
+Sion miró las dos máquinas y luego la tablilla. En el sitio de las máquinas no había puntos; los puntos estaban solo en el sitio de las personas.
+
+Por detrás se acercó en silencio la mujer del rostro cansado. Venía de pasarle el niño a otra persona.
+
+Siguió la dirección de la mirada de Sion y vio a las dos máquinas viejas.
 
 —¿Lo viste?
 
-Sion asintió con la cabeza.
+Sion asintió.
 
-La mujer, con cara amarga, añadió.
+La mujer añadió en voz baja.
 
-—Aquí eso también es igual.
-No son solo las personas las que fingen estar bien hasta el final.
+—Aquí esas también son iguales. No es solo la gente la que finge estar bien hasta el final.
 
-Aquellas palabras, de un modo extraño,
-dejaron a Sion un poco helado.
+—¿Y ellas lo dicen?
 
-De día, este estrato viejo se sentía como un sitio que mentía menos que la Serakion de arriba.
-Pero al caer la noche,
-también dentro de él se veía otra clase de mentira.
+—No. Por eso nos enteramos más tarde.
 
-No fingir ser completo,
-sino fingir que todavía se puede aguantar.
+Sion volvió a mirar la tablilla: en el sitio de las máquinas no había puntos. Con la uña trazó un punto en el sitio de la máquina de la articulación descolocada, y otro en el de la máquina a la que se le había apagado el ojo óptico.
 
-Esa mentira era más buena,
-y más lastimosa,
-y por eso se descubre más tarde.
+La mujer lo vio.
 
-Sion dejó una marca más sobre el viejo tablero.
+—Esa es tu tablilla. Puedes marcar.
 
-Dos personas,
-una máquina.
-Y una zona que precisa vigilancia provisional.
+Dejó solo esas palabras y volvió a lo suyo.
 
-La marca era pequeña,
-pero desde ese instante esta noche dejó de ser un simple turno de guardia.
+Sion contó las marcas de la tablilla. Dos personas, dos máquinas. Y un punto en su propio sitio. Junto a él no había nadie. Miró ese punto un rato y plegó la tablilla.
 
-Esta era una noche que decía primero
-por dónde vuelve a empezar a agrietarse este estrato viejo.
+Al fondo del corredor, en el sitio que el relevo había dejado vacío, estaba Kael. Cuando Sion miró hacia allí, Kael estaba de pie sin apoyarse en la pared; llevaba tres horas así.
 
-Y Sion, por primera vez,
-estaba del lado de quien tiene que decirlo.
+Sion volvió a desplegar la tablilla, buscó en ella el sitio de Kael y había un punto. Puso la uña a su lado y no trazó enseguida; trazó después de un largo rato.
+
+Volvió a ponerse la tablilla bajo el brazo y caminó hacia Kael.
+
+Kael oyó que Sion venía, pero no se dio la vuelta.
+
+—Kael.
+
+—Todavía puedo.
+
+—Tracé un punto en tu sitio.
+
+Solo entonces Kael se volvió.
+
+—¿Qué punto?
+
+—A punto de derrumbarse.
+
+Kael miró a Sion y luego la tablilla.
+
+—…No me voy a derrumbar.
+
+—Lo sé.
+
+Lo dijo Sion.
+
+—Aun así, lo tracé.
+
+Kael no dijo nada y siguió de pie sin apoyarse en la pared. Sion se puso a su lado. Los dos estaban de pie juntos. El fondo del corredor estaba oscuro, y no venía nada.
+
+Sern se acercó con el panel de registro bajo el brazo.
+
+—Me quedo yo de guardia.
+
+—Todavía puedo.
+
+Lo dijo Kael.
+
+—Lo sé.
+
+Eso respondió Sern.
+
+—Aun así, me quedo de guardia.
+
+Kael miró a Sion y a Sern, alternando, y se quedó de pie un largo rato; luego fue hacia la pared y se sentó con la espalda apoyada. Nada más sentarse, se le cerraron los ojos.
+
+Cuando Sion desplegó la tablilla e hizo una marca junto al punto de Kael, Sern miró la tablilla.
+
+—¿Eso también lo anota?
+
+—Sí.
+
+—¿Y qué anota?
+
+—Que se sentó.
+
+Mientras Sern asentía y miraba el fondo del corredor, Sion plegó la tablilla.
 
 ---
 

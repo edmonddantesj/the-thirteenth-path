@@ -44,7 +44,7 @@ Sion leva les yeux.
 
 En haut du mur effondré, il restait quelque chose qui ne s'était pas encore effondré. Des plaques de métal à moitié éventrées après avoir servi de barricade, des morceaux de coque découpés, des restes de sacs de sable. Ce que Hazran avait fabriqué en se taillant elle-même était posé là-haut.
 
-Ce qui soutenait tout cela jusqu'ici, c'étaient trois pièces, en dessous.
+Ce qui soutenait tout cela jusqu'ici, c'étaient trois étais, en dessous.
 
 « Et si on les retire ? »
 
@@ -101,7 +101,7 @@ Le premier rang s'arrêtait et le rang suivant montait par-dessus. Ce qui était
 
 Ce n'était pas piétiner pour passer. C'était recouvrir.
 
-Sion comprit que ce n'était pas une charge. C'était un mouvement venu vérifier un endroit déjà fini. Chacune était précise, toutes allaient à la même vitesse, et aucune ne se pressait.
+Chacune était précise, toutes allaient à la même vitesse, et aucune ne se pressait.
 
 Les quatre commencèrent à disparaître là-dessous.
 
@@ -135,7 +135,7 @@ Les quatre ne reculèrent pas. S'ils reculaient, ces choses ne se regrouperaient
 
 Et Zahir leva la main.
 
-Il n'éleva pas la voix. C'était un homme qui ne l'avait jamais élevée. Un homme pour qui la disposition était la parole.
+Il ne cria pas. C'était un homme qui n'avait jamais élevé la voix. Un homme pour qui la disposition était la parole.
 
 La main s'abaissa.
 
@@ -193,7 +193,7 @@ Un long moment passa.
 
 À cette réponse, Sion expulsa un souffle.
 
-Ne pas entendre d'ici ne voulait pas dire qu'il n'y avait pas de bruit là-bas. Le vaisseau flottait, la paroi était double, et le sol ne touchait pas : voilà pourquoi on n'entendait pas.
+Ne pas entendre d'ici ne voulait pas dire qu'il n'y avait pas de bruit là-bas. Le vaisseau flottait, la paroi faisait écran, et le sol ne touchait pas : voilà pourquoi on n'entendait pas.
 
 Désormais, il n'y avait donc plus aucun moyen de savoir.
 
@@ -235,10 +235,6 @@ On ne savait pas s'il l'avait dit à quelqu'un ou à lui-même.
 À côté de lui, Seorin parla, presque dans un souffle.
 
 « On reviendra. »
-
-Des mots brefs.
-
-Dedans, il y avait à la fois ce qu'il faudrait rendre et la terre qu'il faudrait reprendre.
 
 Sans parvenir à détacher les yeux du dehors, Luhai parla tout bas.
 

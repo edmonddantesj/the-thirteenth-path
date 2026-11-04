@@ -24,11 +24,11 @@ Ater's face went stiff, but the voice that came next held no feeling.
 
 "Their walk. You know it. You saw it."
 
-Ater shut his mouth and looked down at his own feet, then turned his toes inward, at the angle he had seen up above. He took one step on that foot, and it made no sound.
+Ater shut his mouth and looked down at his own feet, then turned his toes inward, at the angle of their walk as he had seen it on the level above. He took one step on that foot, and it made no sound.
 
 "Again."
 
-This time Ater changed the rhythm first. He didn't hurry, and he wasn't slow either. He overlapped half a step into the space the second was passing through and then stepped aside, and the move came neither late nor early. Just once. A misstep that was over before someone watching from the side could finish saying "Huh."
+This time Ater changed the rhythm first. He didn't hurry, and he wasn't slow either. He overlapped half a step into the space the second was passing through and then stepped aside. Just once. A misstep that was over before someone watching from the side could finish saying "Huh."
 
 The first recovery hand watched it and spoke very low.
 
@@ -58,7 +58,7 @@ No one answered, and Sern did not write it down.
 
 Han Jiwoo's part was harder.
 
-Who would follow if someone took their hand, who would react with their body even without understanding the words. Who would freeze in fear, who would run too fast and put themselves in danger. With no children here, none of that could be practiced now. There were the Hazran children, but she did not use those children.
+Who would follow if someone took their hand, who would react with their body even without understanding the words. Who would freeze in fear, who would run too fast and put themselves in danger. With no children here to save, none of that could be practiced now. There were the Hazran children, but she did not use those children.
 
 She leaned against the wall and closed her eyes, then opened them.
 
@@ -68,7 +68,7 @@ She kept her voice low.
 
 "But that's the way that hurts most."
 
-While no one answered, Luhai looked toward the sleeping children.
+While no one answered, Luhai looked toward the sleeping Hazran children.
 
 The first recovery hand spoke slowly.
 
@@ -78,7 +78,7 @@ Kael took it up briefly.
 
 "Right."
 
-It wasn't that Han Jiwoo didn't know; her face said as much. She pressed on her tool pouch, the one that was two short.
+It wasn't that Han Jiwoo didn't know; her face said as much. She pressed on her tool pouch.
 
 Ater spoke up, as if to cut that silence.
 
@@ -136,6 +136,8 @@ Without anyone telling him to, Luhai played the child. He let himself be pulled 
 
 "What if they stiffen like this?"
 
+Kael answered.
+
 "Push anyway. A stiff kid goes if you push."
 
 Luhai was pushed three steps along, then stopped and turned around.
@@ -190,7 +192,7 @@ Kael asked.
 
 Sern answered.
 
-"Every one that went over was when the third child came in."
+"The one time it went over was when the third child came in."
 
 Kael looked at Luhai, who was playing the third child, the fast one. All three times, Luhai had shot out first, just as he'd been told.
 
@@ -243,7 +245,7 @@ Han Jiwoo said nothing. She closed her hand and opened it, then closed it.
 
 Ater leaned his back against the wall and closed his eyes, and with them still closed he moved one foot once in their walk, then stopped.
 
-Kael looked at the four lines in the dust again, and as the old machine had said, he didn't wipe them away with his palm.
+Kael looked at the four lines in the dust again, but he didn't wipe them away with his palm.
 
 On the board Sion looked at, the children's place lay beside the five dots. In the empty space he drew dots for the three who hadn't come yet. He looked at the dots he had drawn, but he didn't draw a fourth.
 
@@ -288,8 +290,6 @@ Han Jiwoo asked.
 "If they increase more, the night after."
 
 The first said.
-
-No one said no.
 
 While the yellow lamp flickered, Luhai went and sat down beside the children. He had two hands. He laid them on his knees.
 

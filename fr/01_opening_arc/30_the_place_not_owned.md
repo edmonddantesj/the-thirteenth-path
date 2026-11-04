@@ -56,8 +56,6 @@ Sion répondit à son tour.
 
 « Raison de plus pour ne pas y aller. »
 
-Ce n'était pas un reproche, plutôt une mise au point.
-
 Au bout de cet échange, Kael intervint pour la première fois.
 
 « Elia. »
@@ -158,7 +156,7 @@ Seorin regarda Sion un instant.
 
 « Elle connaissait ton habitude. »
 
-C'était bref, mais suffisant. Ce réflexe de porter d'abord la main à sa poche dès qu'il était dans l'embarras. Si elle l'y avait glissé en prévoyant jusqu'à un moment comme celui-ci, le peu d'explications lui ressemblait justement.
+Ce réflexe de porter d'abord la main à sa poche dès qu'il était dans l'embarras. Si elle l'y avait glissé en prévoyant jusqu'à un moment comme celui-ci, le peu d'explications lui ressemblait justement.
 
 Han Jiwoo regarda encore une fois le papier et dit :
 
@@ -271,7 +269,7 @@ Sion remit le papier plié dans sa poche intérieure. Puis il appuya une fois de
 
 C'était mince.
 
-Au quai, quand il y avait glissé le fragment pour la première fois, c'était pareil. Alors, il n'y avait qu'une chose mince ; maintenant, à cette chose mince s'ajoutait une feuille de papier.
+Au quai, quand il y avait glissé le fragment pour la première fois, c'était pareil. Alors, il n'y avait qu'une chose mince dans la poche de récupération ; maintenant, dans la poche intérieure, à cette chose mince s'ajoutait une feuille de papier.
 
 C'était tout ce qui s'était ajouté.
 

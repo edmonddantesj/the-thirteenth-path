@@ -1,22 +1,12 @@
 # Chapitre 88 — Les premiers qui furent envoyés dehors
 
-Parler d'un combat pour faire partir les gens, et commencer réellement à faire sortir quelqu'un en premier, ce n'est pas du tout la même chose.
-
-La différence se voit d'abord dans les yeux des gens.
-
 Après qu'on eut annoncé qu'on ferait d'abord sortir ceux de l'intérieur, un très bref frisson parcourut l'intérieur de Hazran. Un frisson où montaient en même temps sur les visages la faible lueur de pouvoir vivre et le sombre calcul de savoir, alors, qui resterait.
-
-En le voyant, Sion se dit que c'était maintenant que le plus dur commençait vraiment.
-
-Empêcher l'ennemi d'entrer, c'est une peur parmi d'autres. Mais dès qu'on commence à fixer l'ordre entre ceux qui vivront et ceux qui resteront, la peur devient soudain bien plus humaine, et bien plus cruelle.
 
 Nassim commença à trier les gens et à les mettre en file.
 
 « Les enfants d'abord. Les blessés, ceux qui ont les mains lentes, ceux qui ne peuvent pas travailler à l'intérieur. »
 
-Sa voix était déjà éraillée, mais elle sonnait étrangement plus ferme.
-
-Lui aussi le savait. Ce n'était pas une affaire d'organisation : c'était faire un ordre, même s'il fallait pour cela déchirer le cœur des gens.
+Sa voix était déjà éraillée.
 
 En l'aidant, Sion remarqua une chose.
 
@@ -49,7 +39,7 @@ Mettre les gens en file devant la rampe, ce n'était pas les sauver. C'était se
 Nassim continua :
 « Et puis les gens ne bougent que s'ils voient une file. »
 
-C'était vrai. Depuis que la file existait, l'air de l'intérieur avait nettement changé. Tout à l'heure, tout le monde était collé aux murs ; maintenant, tout le monde regardait vers cette file.
+Depuis que la file existait, l'air de l'intérieur avait nettement changé. Tout à l'heure, tout le monde était collé aux murs ; maintenant, tout le monde regardait vers cette file.
 
 Rien que de la regarder, les gens revivaient un peu.
 
@@ -259,7 +249,7 @@ Il ajouta :
 
 Sion avait envie de le corriger. Trente et une personnes venaient de traverser trente pas sans toit. Ce n'était pas rien.
 
-Mais Nassim avait raison.
+Pourtant, Nassim avait raison.
 
 Tant que le vaisseau n'aurait pas décollé, tous ceux qui étaient ici étaient encore dans Hazran.
 

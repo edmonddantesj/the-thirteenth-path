@@ -17,11 +17,11 @@ De l'autre côté, Kael et Sern prirent place sur un engin de glisse plus épais
 
 Les équipes locales, autour, étaient bien plus à leur aise.
 
-Une équipe avait attaché au flanc de son esquif quelques plaques de métal de plus, comme des amulettes ; une autre, avant même le départ, poussait de l'épaule l'engin voisin pour taper sur les nerfs de ses occupants. Une équipe qui avait du renom, peut-être les champions de l'an dernier, prit place sur la première ligne avec un engin de glisse rouge sombre entretenu sans rien de superflu, tandis que les deux équipes des téméraires de passage faisaient déjà beaucoup trop de bruit. Sion savait d'instinct que ce genre-là était d'ordinaire le premier à se briser.
+Une équipe avait attaché au flanc de son esquif quelques plaques de métal de plus, comme des amulettes ; une autre, avant même le départ, poussait de l'épaule l'engin voisin pour taper sur les nerfs de ses occupants. Une équipe qui avait du renom, peut-être les champions de l'an dernier, prit place sur la première ligne avec un engin de glisse rouge sombre entretenu sans rien de superflu, tandis que les deux équipes des téméraires de passage faisaient déjà beaucoup trop de bruit.
 
 Entre les tentes rouges et les gradins provisoires, porteurs d'eau et parieurs, démonteurs et tireurs, tous penchaient vers l'avant. Certains serraient leur mise, d'autres criaient déjà des noms, d'autres encore comptaient d'abord combien d'équipes se retourneraient cette nuit.
 
-Haroun se tenait à côté de la ligne de départ, et Nassim un peu en retrait, parcourant les visages comme s'il lisait en même temps le mouvement des cotes. Aka ne sortit pas de l'ombre, à l'intérieur, mais Sion sentait, même de loin, que son regard fixait d'abord la ligne de départ et la première route qui s'en éloignait.
+Haroun se tenait à côté de la ligne de départ, et Nassim un peu en retrait, parcourant les visages comme s'il lisait en même temps le mouvement des cotes.
 
 Au sommet du haut pilier, la charge incandescente éclata.
 
@@ -87,11 +87,11 @@ Il le marmonnait.
 
 Seorin, au lieu de répondre, fixait d'un œil dur l'extrémité de la piste.
 
-« Plus il en casse au départ, plus la suite devient précise. »
+« Plus il y en a qui cassent au départ, plus la suite devient précise. »
 Ater avait parlé bas.
 « Ils veulent sans doute ne garder que les mains capables d'aller jusqu'à la couche thermique. »
 
-En l'entendant, Luhai se tut. C'était juste, et c'était bien ce qui l'agaçait.
+En l'entendant, Luhai se tut.
 
 En entrant dans la partie médiane de la piste, les écarts entre les équipes survivantes commencèrent à se creuser, très peu à peu.
 
@@ -105,6 +105,8 @@ Sion le vit aussi.
 
 Moins un engin trop bon qu'une machine achevée à force d'être réparée et réutilisée par quelqu'un qui avait longtemps tenu dans ce milieu. Rapide, bas, une réaction sans hésitation.
 
+Une main apparut un instant dans le poste de pilotage. Une main sans gant. Des cicatrices blanches se superposaient à chaque phalange des doigts serrés sur la barre de direction. Cette main ne trembla pas une seule fois.
+
 « Tu peux le coller ? »
 C'était Sion qui demandait.
 
@@ -116,13 +118,11 @@ Han Jiwoo ne répondit pas tout de suite.
 Elle développa :
 « Celui-ci, il faut d'abord l'accorder à la ligne qui tient. »
 
-Sion aima cette réponse. Ne pas se briser à poursuivre la tête de force, mais chercher d'abord la ligne où cet engin pouvait vivre. C'était bien Han Jiwoo, en ce moment.
+Sion hocha la tête. Han Jiwoo ne le vit pas.
 
 En abordant la dernière partie de la piste, la direction du vent changea légèrement.
 
-La colonne de sable levée devant eux ne bouchait pas la vue d'un coup, mais elle faisait onduler plus sournoisement la ligne des engins survivants. En apparence, une vaste plaine ; en réalité, une sorte de crible, le dernier à trier les gens avant l'entrée du tronçon suivant.
-
-Sion le remarqua aussitôt.
+La colonne de sable levée devant eux ne bouchait pas la vue d'un coup, mais elle faisait onduler plus sournoisement la ligne des engins survivants.
 
 À gauche, le sable était mince ; à droite, la collision de l'instant d'avant avait mis à nu la plaque durcie du dessous. À l'œil, la droite semblait plus solide, mais sur ce genre de tronçon, l'engin rebondit l'instant d'après.
 
@@ -138,9 +138,7 @@ Han Jiwoo s'en dégagea par l'extérieur et dit, très bref :
 
 « C'était ça. »
 
-Ce seul mot, étrangement, entra plus fort en Sion.
-
-Car cela voulait dire que, sur cette piste, ses yeux n'étaient pas une simple aide, mais qu'ils sauvaient vraiment l'engin.
+Sion relâcha une fois la main qui serrait la poignée du marchepied, puis la serra de nouveau.
 
 Sur la ligne nord, Kael et Sern remontaient eux aussi, peu à peu.
 
@@ -155,13 +153,9 @@ Sern l'avait dit brièvement.
 
 Au lieu de répondre, Kael baissa encore le nez de l'engin.
 
-Plus la fin de la piste approchait, plus les équipes survivantes cessaient de se repousser pour lire d'abord la ligne d'entrée du tronçon suivant. Tous savaient que la vraie course n'était pas finie, et que ce n'était là que le premier crible.
+Plus la fin de la piste approchait, plus les équipes survivantes cessaient de se repousser pour lire d'abord la ligne d'entrée du tronçon suivant.
 
 Au loin, Sion vit la première ossature de la zone des débris d'épaves se dresser dans l'obscurité.
-
-Si la piste rouge avait trié les gens par la vitesse, la suite les trierait par la lecture du chemin.
-
-Et à partir de là, son rôle allait grandir.
 
 Han Jiwoo dit à voix basse :
 
@@ -177,7 +171,7 @@ Derrière, le métal continuait de se briser et les jurons d'éclater,
 devant, l'ombre des débris d'épaves ouvrait la gueule,
 et dans la cour centrale, les cris et les mises vivaient et bougeaient encore.
 
-La course de la braise ne faisait que commencer.
+Han Jiwoo poussa la barre de direction jusqu'au bout.
 
 ---
 

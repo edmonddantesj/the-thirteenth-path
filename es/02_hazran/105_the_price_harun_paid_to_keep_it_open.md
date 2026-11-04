@@ -72,7 +72,7 @@ Harún asintió una vez.
 
 Al oír esa respuesta, a Sion se le hizo un nudo en la garganta.
 
-Aquel hombre acababa de pasar seis horas bajo las piedras, y lo primero que preguntó al salir fue cuántas veces quedaban; y al oír la respuesta, lo primero que hizo fue calcular.
+Aquel hombre acababa de pasar cuatro o cinco horas bajo las piedras, y lo primero que preguntó al salir fue cuántas veces quedaban; y al oír la respuesta, lo primero que hizo fue calcular.
 
 —¿Con qué golpeaba?
 
@@ -102,7 +102,7 @@ Sion miró esa mano un buen rato.
 
 Era la tercera vez en el día que Sion oía eso.
 
-Aquel hombre había cumplido él solo, seis horas bajo las piedras, la regla que él mismo había hecho. O sea, que ni siquiera sabía si alguien venía. No lo sabía, y aun así siguió golpeando.
+Aquel hombre había cumplido él solo, cuatro o cinco horas bajo las piedras, la regla que él mismo había hecho. O sea, que ni siquiera sabía si alguien venía. No lo sabía, y aun así siguió golpeando.
 
 —Beba agua.
 
@@ -261,7 +261,7 @@ Sion corrió.
 
 Esta vez llegó.
 
-Agarró a Harún del hombro y lo sacó a rastras; pesaba menos de lo que pensaba. Era alguien que había pasado seis horas bajo las piedras sin agua.
+Agarró a Harún del hombro y lo sacó a rastras; pesaba menos de lo que pensaba. Era alguien que había pasado cuatro o cinco horas bajo las piedras sin agua.
 
 —Suéltame.
 
@@ -293,9 +293,9 @@ Harún estaba mirando hacia allí.
 
 —Que lo vi.
 
-Esas dos palabras fueron lo más pesado que Sion oyó en todo el día.
+Esas tres palabras fueron lo más pesado que Sion oyó en todo el día.
 
-Aquel hombre acababa de ver cómo las manos que durante seis horas lo habían desenterrado tapaban el agujero en su lugar. Y lo único que dijo fue que lo había visto.
+Aquel hombre acababa de ver cómo las manos que durante cuatro o cinco horas lo habían desenterrado tapaban el agujero en su lugar. Y lo único que dijo fue que lo había visto.
 
 El agujero volvió a estrecharse. El ancho de una persona se redujo a la mitad.
 
@@ -333,7 +333,7 @@ Esas palabras le dieron a Sion de lleno en el pecho.
 
 Era verdad. La puerta de aquel barco seguía abierta. Porque aquel hombre acababa de pagar el precio con su propio cuerpo y había vuelto a abrir a la fuerza lo que estaba a punto de cerrarse.
 
-—Entonces, en estos veinte minutos, embarca a una tanda.
+—Entonces, en estos veinte minutos, embarca a una tanda —añadió Harún.
 
 Sion corrió hacia la tablilla.
 

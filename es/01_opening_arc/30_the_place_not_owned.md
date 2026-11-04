@@ -56,8 +56,6 @@ Sion también respondió.
 
 —Por eso mismo, no.
 
-Esa frase no era un reproche, sino algo más cercano a poner orden.
-
 Kael intervino por primera vez al final de esa conversación.
 
 —Elia.
@@ -158,7 +156,7 @@ Seorin miró un momento a Sion.
 
 —Conocía tus costumbres.
 
-La frase era corta, pero bastaba. La costumbre de llevarse la mano al bolsillo cuando se veía en aprietos. Si lo había metido ahí calculando incluso un momento como este, que explicara tan poco era, al contrario, muy propio de ella.
+La costumbre de llevarse la mano al bolsillo cuando se veía en aprietos. Si lo había metido ahí calculando incluso un momento como este, que explicara tan poco era, al contrario, muy propio de ella.
 
 Han Jiwoo miró el papel una vez más.
 
@@ -271,7 +269,7 @@ Sion volvió a guardar el papel doblado en el bolsillo interior. Después de gua
 
 Era fino.
 
-También lo había sido la primera vez que guardó el fragmento en el muelle. Entonces era una sola cosa fina; ahora, a esa cosa fina se le sumaba una hoja de papel.
+También lo había sido la primera vez que guardó el fragmento en el muelle. Entonces era una sola cosa fina en el bolsillo de recuperación; ahora, a esa cosa fina del bolsillo interior se le sumaba una hoja de papel.
 
 Eso era todo lo que había aumentado.
 

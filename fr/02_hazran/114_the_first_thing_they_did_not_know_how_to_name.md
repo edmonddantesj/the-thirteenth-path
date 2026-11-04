@@ -57,7 +57,7 @@ Sern, lui, ne la nommait pas du tout. Il se contentait d'en indiquer la directio
 
 Ater disait « le point ». C'était sa façon de parler impériale qui sortait ainsi.
 
-Six personnes appelaient la même chose de six façons. Personne n'employait le même mot, et pourtant personne ne manquait de comprendre.
+Cinq personnes désignaient la même chose de cinq façons. Personne n'employait le même mot, et pourtant personne ne manquait de comprendre.
 
 C'est justement ce qui fit peur à Sion.
 

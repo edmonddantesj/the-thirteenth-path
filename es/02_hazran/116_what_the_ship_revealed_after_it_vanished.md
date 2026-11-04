@@ -28,7 +28,7 @@ La pregunta vino de Kael.
 
 Han Jiwoo no pudo responder.
 
-Sion sabía qué era ese silencio. Era lo que Han Jiwoo había dicho ayer, que volvía tal cual. Si no tiene nombre, no se le puede pasar al siguiente. Ahora Han Jiwoo no conseguía pasar lo que acababa de vivir ni siquiera con sus propias manos.
+Sion sabía qué era ese silencio. Era lo que Han Jiwoo había dicho hacía un rato, que volvía tal cual. Si no tiene nombre, no se le puede pasar al siguiente. Ahora Han Jiwoo no conseguía pasar lo que acababa de vivir ni siquiera con sus propias manos.
 
 Sion, con la mano en la baranda, recobraba el aliento.
 
@@ -76,8 +76,6 @@ Lo preguntó Ater.
 —No.
 Lo dijo Sern.
 —Si los hubiéramos despistado, quedaría rastro.
-
-Eso era todavía más ominoso.
 
 Si los hubieran despistado, se entendería. Si los hubieran engañado, también tendría sentido. Que no tuviera explicación quería decir que esta nave se había movido fuera de la persecución y la evasión.
 
@@ -129,7 +127,7 @@ Era la frase mínima en la que los que estaban allí podían ponerse de acuerdo,
 
 Al oírlo, Sion miró hacia el suelo.
 
-Había ocho personas de Hazran pegadas a la pared. Se habían inclinado con la nave, y después del silencio no habían dicho nada.
+Había ocho personas de Hazran sentadas, recostadas contra la pared. Se habían inclinado con la nave, y después del silencio no habían dicho nada.
 
 Una de ellas se levantó despacio y caminó hasta el suelo vacío frente a aquel panel.
 
@@ -149,7 +147,7 @@ Esta gente sabía de esta nave más que ellos. Pero ahora no tenían intención 
 
 Sion fue hacia Aka.
 
-—Ayer dijiste que, si le ponías nombre, con eso se acababa.
+—Antes dijiste que, si le ponías nombre, con eso se acababa.
 
 Aka no apartó los ojos de aquel punto.
 
@@ -169,7 +167,7 @@ Aka no había dicho qué era aquello. Solo había dicho lo que había hecho. El 
 
 O sea, eran palabras que todavía no cerraban nada.
 
-Solo entonces se dio cuenta Sion de que era la misma manera en que Han Jiwoo, ayer, había dejado tal cual la línea vacía de su lista. Dejarlo en blanco, anotar que todavía no, decir solo lo que hizo. Las tres eran maneras de no darlo por terminado.
+Solo entonces se dio cuenta Sion de que era la misma manera en que Han Jiwoo, hacía un rato, había dejado tal cual la línea vacía de su lista. Dejarlo en blanco, anotar que todavía no, decir solo lo que hizo. Las tres eran maneras de no darlo por terminado.
 
 Un revestimiento exterior sin gracia, marcas de remiendos, un armazón roto.
 
@@ -179,7 +177,7 @@ Debajo había un orden más antiguo que todavía nadie conocía, y hacía un mom
 
 ---
 
-En la nave de rastreo del Imperio, durante un rato, solo se cruzaron las mismas frases.
+Entre la sala del comandante de la nave insignia imperial y la nave de rastreo, durante un rato, solo se cruzaron las mismas frases.
 
 —Reconfirmen la última trayectoria.
 
@@ -215,7 +213,7 @@ Lo dijo el comandante.
 
 El oficial de registro corrigió la entrada.
 
-Era el mismo registro en el que, días atrás, esa misma mano había escrito «desconocido» en lugar del número de personas. Esta vez la misma palabra entró también del lado de la nave.
+Era el mismo registro en el que, el día anterior, esa misma mano había escrito «desconocido» en lugar del número de personas. Esta vez la misma palabra entró también del lado de la nave.
 
 A la misma hora, del lado de la red de vigilancia de la Alianza, la cosa era parecida.
 
@@ -239,7 +237,7 @@ No era un informe de error. Se parecía más a un aviso de evaluación corregida
 
 —De ahora en adelante, no clasifiquen por la forma que se ve.
 
-Después, Kanus volvió a tomar la hoja que días atrás había apartado a un lado.
+Después, Kanus volvió a tomar la hoja que el día anterior había apartado a un lado.
 
 Era la hoja con los muertos y los desaparecidos. La misma a la que había llamado números terminados.
 
@@ -280,6 +278,14 @@ Los dieciséis seguían todos ahí dentro. Afuera no se veía nada, detrás hab�
 Pero había una cosa distinta de antes.
 
 Hasta ahora, esta nave era algo que solo avanzaba si la empujaban las personas. Ya no.
+
+Entonces Sion lo vio.
+
+En lo hondo del casco, en una rendija de la pared que nadie había tocado, flotaba una pequeña luz. Del tamaño de una uña.
+
+Era una luz como de tierra caliente. Como el suelo de Hazran a mediodía.
+
+La luz no estaba quieta. Se inclinaba, muy poco, hacia delante. Hacia donde estaba el planeta de las máquinas.
 
 Hazran se había cerrado.
 

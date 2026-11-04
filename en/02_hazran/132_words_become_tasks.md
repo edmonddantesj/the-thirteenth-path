@@ -10,7 +10,7 @@ The old machine did not pour out orders; standing by the pillar, it said only a 
 
 "Those who can move, water and cloth first. Those who work with their hands, to the parts sorting. Beside the children we put those who did not break overnight."
 
-Three lines. People moved. While the old woman went to the cloth box and the one who had come alone picked up a water can, the woman who came with two children stayed where she was. She was one who had not broken overnight.
+People moved. While the old woman went to the cloth box and the one who had come alone picked up a water can, the woman who came with two children stayed where she was. She was one who had not broken overnight.
 
 Han Jiwoo was called to where the repairs and emergency reinforcing had piled up.
 
@@ -222,7 +222,7 @@ It said.
 
 As it turned and went, its knee sounded with every step.
 
-Sion unfolded the board and looked at his own dot again, then counted the dots beside it one by one.
+Sion unfolded the board and looked at his own dot again, then counted, one by one, the dots of the people who had come in with him.
 
 Fifteen. Sixteen, counting himself.
 

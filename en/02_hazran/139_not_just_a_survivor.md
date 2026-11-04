@@ -210,7 +210,7 @@ The old machine waited a beat before it answered.
 
 "We do not write them. They are here."
 
-The man looked toward the inner room where the injured person lay, then folded the plate away and tucked it inside his coat.
+The man looked toward the inner room where the injured person lay, then tucked the plate inside his coat.
 
 Aka spoke very low.
 

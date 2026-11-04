@@ -18,7 +18,7 @@ Seorin no detuvo las manos.
 
 —Lo dijo.
 
-Sion iba a rebatirlo y lo dejó. Tenía razón. En esta fila, ahora, no había otro sitio donde recortar tiempo.
+Sion iba a rebatirlo y lo dejó. En esta fila, ahora, no había otro sitio donde recortar tiempo.
 
 —¿Y qué pasa si quitamos los dos pasos?
 

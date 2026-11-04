@@ -28,7 +28,7 @@ Sion understood what that meant.
 
 Until now, it had been enough for Ater to say where to hit. Now, even after hearing it, they couldn't be late. Knowing and doing it in time had split apart.
 
-Sion had seen that split once already this morning. When the line passing water bags in front of the storehouse had stopped, everyone had known they had to stop, but their hands were a beat late and one bag rolled away.
+Sion had seen that split once before, yesterday. When the line passing water bags in front of the storehouse had stopped, everyone had known they had to stop, but their hands were a beat late and one bag rolled away.
 
 That time it was a water bag.
 
@@ -203,8 +203,6 @@ Ater had said that once you used something, it worked less the second time. That
 Nasim spat out a low curse as he dragged the wounded person back.
 
 "This isn't a market deal, it's real madness."
-
-The words came late. Coming late, they sounded more sincere.
 
 Sion looked at the corridor.
 

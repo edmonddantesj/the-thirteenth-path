@@ -14,7 +14,7 @@ Seorin fut la première à retrouver sa voix.
 
 « Dingue. »
 
-Ce seul mot était si juste que Sion, au contraire, ne put pas relever la tête.
+Sion ne put pas relever la tête.
 
 En face, Sern ne disait rien non plus.
 Il avait regardé Ater avant la tablette.
@@ -105,7 +105,7 @@ L'Archiviste.
 « …restauration… l'ordre… non… il faut d'abord regarder l'ordre… »
 
 La voix se coupa, puis reprit.
-Presque tout le milieu était détruit, et c'est justement ce qui la rendait plus déchirante.
+Presque tout le milieu était détruit.
 
 « …même si le nom… reste… si l'ordre meurt… le verdict change… »
 
@@ -177,9 +177,9 @@ Sern répondit sans fermer l'écran :
 
 « Ce n'est pas seulement l'Empire. »
 
-Cette seule phrase courte changea complètement l'air du couloir.
+Les yeux de Sion, eux, étaient déjà allés plus tôt à l'écran au poignet de Sern. Pour lire de petits caractères dans un couloir sombre, sa vue de nuit suffisait.
 
-« Qu'est-ce que t'as dit, là ? demanda Sion. Le Texte Noir, quoi ? »
+« Qu'est-ce qui vient de s'afficher, là ? demanda Sion. Le Texte Noir, quoi ? »
 
 Sern ferma l'écran.
 
@@ -292,7 +292,7 @@ Sion se tournait déjà vers la fissure.
 
 « C'est le moment de demander ça ? »
 
-« Non. C'est pour cela que je le demande maintenant. Plus tard, vous ne répondrez pas. »
+« Non. C'est pour cela que je le demande maintenant. Plus tard, je crains que vous ne répondiez pas. »
 
 Sion ne répondit pas.
 
@@ -330,7 +330,7 @@ Sion regarda son dos un instant. Justification demandée restait en vigueur, et 
 
 Au bord de la fissure, la rouille avait été raclée vers l'intérieur. Une éraflure récente.
 
-« Celui qui a verrouillé est sorti par là aussi. »
+« Celui qui a verrouillé est sorti par là aussi », lança Sion dans le dos de Seorin.
 
 Sion la suivit, Sern, sur le côté, prit la direction de la fissure réellement ouverte, et Ater, tout au bout, se retourna une fois. La place de l'Archiviste mort, le terminal éteint, la porte entrouverte de la salle de conservation. On ne pouvait pas regarder longtemps un endroit où il était déjà trop tard.
 

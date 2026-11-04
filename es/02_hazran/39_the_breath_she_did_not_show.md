@@ -16,7 +16,7 @@ Y entre aquellos breves silencios, Seorin aflojó el paso apenas un instante.
 
 A ojos de cualquiera, podía no haber sido más que volver a asentar el pie. Pero Sion lo supo enseguida. Seorin no se había detenido: había tomado aire una vez para no detenerse. Los dedos de la mano derecha se le doblaron y se le estiraron apenas un instante, y la línea de la mandíbula se le endureció levemente antes de aflojarse otra vez.
 
-Era la clase de cansancio para la que bastaban dos frases.
+Era la clase de cansancio que pasa rozando y se acaba enseguida.
 
 El aliento de alguien que habría preferido que nadie lo viera, pero que ya había resuelto no derrumbarse de todos modos.
 
@@ -68,7 +68,7 @@ Kael le dio enseguida un golpecito con el codo en el costado al chico.
 
 —Silencio.
 
-Pero esta vez ni siquiera Nasim pudo contener la risa en la cara. Eso no quería decir que fuera a aflojar más. Al contrario, era alguien acostumbrado a dispersar un poco la tensión de ese modo para luego apretar todavía más.
+Esta vez ni siquiera Nasim pudo contener la risa en la cara. Eso no quería decir que fuera a aflojar más. Al contrario, era alguien acostumbrado a dispersar un poco la tensión de ese modo para luego apretar todavía más.
 
 Harún envió hacia el interior una señal muy breve.
 
@@ -120,8 +120,6 @@ Nahira miró por primera vez a Seorin de verdad.
 —En apariencia.
 Esa fue su respuesta.
 
-Era una frase corta, pero Sion sintió que esas pocas palabras se le quedaban extrañamente mucho tiempo. Era una voz que admitía con demasiada facilidad que este interior era más silencioso que el exterior, pero que eso no quería decir que fuera pacífico.
-
 Nasim añadió a la ligera.
 
 —Eterita, un nombre y un chico que lee libros de cuentas.
@@ -146,8 +144,6 @@ Nahira se hizo a un lado.
 —Entren.
 Eso dijo Nahira.
 —Pero, una vez dentro, las cosas ya no van a rodar en el orden en que ustedes pregunten.
-
-A Sion esas palabras le sonaron casi a advertencia.
 
 No entraban a hacer preguntas, sino a ser clasificados dentro del orden interior.
 

@@ -20,7 +20,7 @@ Un ruido bajo cruzó una vez el canal cerrado de corto alcance.
 
 Cada vez que se superponían las capas de metal entre la pared exterior de la estructura y el casco, el canal local que Han Jiwoo había ajustado se llenaba de cortes minúsculos como ese. No era una comunicación que llegara lejos. Lo justo, como ahora, para unir brevemente a quien se quedaba en el barco y a quien iba a salir: ese era su límite.
 
-Entró la voz de Han Jiwoo.
+La voz de Han Jiwoo entró por el canal desde el asiento de pilotaje.
 
 —Si acerco más el casco, roza.
 
@@ -120,8 +120,6 @@ Seorin habló.
 —Por eso, si te acercas de cualquier manera, mueres.
 Esta vez no fue Han Jiwoo, sino Sion, quien respondió.
 
-Cuando cayeron esas palabras, el aire dentro del casco volvió a cambiar.
-
 Han Jiwoo apartó una mano de los mandos y habló.
 
 —Entonces lo hacemos así. Yo sujeto el ángulo del barco y Sion lee primero el rastro. Sern, calcula el orden de la estructura. Ater, averigua qué lógica de aproximación tenía eso en origen. Seorin, si salta una señal anómala, cortas en el acto.
@@ -158,7 +156,7 @@ Ater no respondió.
 
 Sern tampoco preguntó más. Era la tercera vez en el día que se quedaba sin respuesta, y las tres apuntaban en la misma dirección.
 
-En el instante en que cayeron esas palabras, Sion vio en la parte baja de la estructura un arañazo muy tenue, parecido a un símbolo. Podía ser una marca del linaje de los Myo, o algo anterior. Estaba demasiado gastado para estar seguro, pero al menos una cosa era clara.
+En medio de ese silencio, Sion vio en la parte baja de la estructura un arañazo muy tenue, parecido a un símbolo. Podía ser una marca del linaje de los Myo, o algo anterior. Estaba demasiado gastado para estar seguro, pero al menos una cosa era clara.
 
 Esto no era un camino abandonado.
 Era un camino que habían dejado fingiendo abandono.
@@ -173,7 +171,7 @@ Sion se volvió.
 
 —¿Por qué los sueltas?
 
-—Esto no se hace con la mano.
+—Esto no se hace con los mandos.
 
 Han Jiwoo sacó hacia arriba dos viejas empuñaduras de la pared junto al asiento de pilotaje. No pertenecían al sistema de mando oficial: eran ejes manuales que empujaban directamente el circuito hidráulico. No eran un objeto original en su sitio original, sino algo que alguien había instalado después.
 

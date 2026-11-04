@@ -237,7 +237,7 @@ The man at the center spoke one last time.
 
 The sound of prices being called rose from the stands again. Louder than before. Luhai's name came through in it twice. Once with laughter, once without.
 
-Luhai didn't look up at the sound. Instead he rubbed his palm on his trousers, twice. It was the hand that had gone for the stand.
+Luhai didn't look up at the sound. Instead he rubbed his palm on his trousers, twice. It was the hand that had stopped in front of the stand earlier.
 
 "Wonder what comes out next."
 

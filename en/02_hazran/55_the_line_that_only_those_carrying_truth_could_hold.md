@@ -67,8 +67,6 @@ Sern's answer was very short.
 
 "Whoever carries the real thing out is the rule."
 
-It was coldly exact.
-
 Up in the stands, the voices asking who had picked up the real thing were now growing louder than the ones calling out race names. Luhai was pressed to the end of the railing, sweeping almost the whole breakaway line with his eyes, and Seorin was already reading not hands but the flow of people. Who was using the collapse of the race to come down, and who was still up above, watching and waiting.
 
 "Two coming down,"
@@ -184,8 +182,6 @@ Letting go would make it easier.
 Sion thought it once and erased it. Erasing it took no time at all.
 
 Something was coming down from above.
-
-At first he thought it was wreckage. Wreckage doesn't hold an angle like that.
 
 It was Kael's glider. Sern was riding behind him.
 

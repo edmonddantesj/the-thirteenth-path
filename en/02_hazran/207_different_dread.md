@@ -78,7 +78,7 @@ He closed his eyes briefly and opened them.
 
 He did not rage. Did not strike the desk. Did not raise his voice.
 
-But precisely because of that, the room grew quieter.
+Precisely because of that, the room grew quieter.
 
 He scrolled the screen again.
 
@@ -98,11 +98,9 @@ When those words ended, his fingertip paused again—very faintly.
 
 A truly brief moment.
 
-But that briefness alone cooled the room once more.
-
 This was not the trace an ordinary intruder would leave.
 
-A very small mark. But vivid precisely because of its smallness.
+A very small mark, and all the more vivid for its smallness.
 
 Not someone who had broken through by force, but the trace of someone who understood how the inner sequences stood—and had briefly twisted them open.
 
@@ -110,7 +108,7 @@ The clerk brought up the next file and added carefully.
 
 "In some residual lines, traces resembling approval-bureau-class bypass reading were also identified. Confirmation is difficult. However…"
 
-He could not finish.
+The clerk could not finish.
 
 Because the reporting side already knew who the figure above was thinking of.
 
@@ -124,13 +122,11 @@ The clerk, as though prepared, immediately brought up the next screen.
 
 "Since departure from the Hazran front, officially unconfirmed. However, when cross-referenced with likely accompanying personnel and movement patterns…"
 
-He paused there briefly.
+The clerk paused there briefly.
 
 The upper figure permitted continuation with his gaze alone.
 
 "The possibility of association with Sion Lapis's group is difficult to exclude."
-
-The air in the room thinned a little more.
 
 No one wore a surprised face.
 
@@ -176,13 +172,13 @@ He had not asked about his son's safety first.
 
 Instead, he was calculating how far to seal this incident his son was entangled in, and from where to begin tracking.
 
-But precisely because of that, the room sank colder.
+Precisely because of that, the room sank colder.
 
 The fact that a person who saw the entire board before blood was sitting in that seat felt like a kind of warning to the clerks as well.
 
 Kairon said nothing more.
 
-But that single final order was enough for everyone to understand: personal matters and imperial order had now risen onto the same line.
+That single final order was enough for everyone in the room to understand: personal matters and imperial order had now risen onto the same line.
 
 Even after the report ended, the clerks could not move right away.
 
@@ -190,7 +186,7 @@ Until Kairon closed the screen first, no one dared to draw a loud breath.
 
 Only after the screen went dark did the name Serakion vanish from the light.
 
-But vanishing did not make it something that never happened.
+Vanishing did not make it something that never happened.
 
 If anything, this was just the beginning.
 
@@ -210,13 +206,13 @@ He could not stay quiet even while the records were being opened.
 
 "Nice. Folded an entire planet in and kept a straight face the whole time."
 
-But strangely, every time he closed his mouth, the rest of the room began choosing only the words they truly needed.
+Strangely, every time he closed his mouth, the rest of the room began choosing only the words they truly needed.
 
 Kanus Han did not bother to stop the chatter.
 
 She rested only her fingertips on the report and for a while neither asked questions nor organized—simply waiting for the information to settle into place first.
 
-Her gray hair, looking as though it had gone white, did not wear the face of someone confused because there was too much information.
+Her hair was a gray that looked almost white, though her face was young, and unlike the others, hers was not the face of someone confused because there was too much information.
 
 The opposite, in fact.
 
@@ -274,8 +270,6 @@ Then the figure who had been disrupting the room's air all along murmured, chin 
 
 "No. Not that far."
 
-After that short line, the room's air went strangely quieter.
-
 Kanus showed no reaction to the remark.
 
 Instead she pointed at one line in the data with her fingertip.
@@ -296,11 +290,7 @@ Kanus Han finally withdrew her hand from the screen and said it very low.
 
 "Sion's group was there."
 
-The words were not loud like a definitive declaration.
-
-But that was why they were heavier.
-
-Because what that single sentence meant was not simple survival confirmation.
+What that single sentence meant was not a simple confirmation of survival.
 
 That Serakion had actually existed. That its android supply structure was now shaken. And that Sion's group had now become not mere fugitives or remnant forces, but the center of a new ripple that both the Empire and the Alliance would have to track simultaneously.
 
@@ -324,9 +314,7 @@ Kanus Han, expression unchanged even at that, exhaled very quietly.
 
 "The outside will start moving now too."
 
-That was neither expectation nor fear alone.
-
-It was closer to the voice of someone who knew: when something hidden for too long finally enters the world's sight, no one can move the same way as before.
+It sounded like the voice of someone who knew: when something hidden for too long finally enters the world's sight, no one can move the same way as before.
 
 Far beyond the gray zone, Serakion the planet was probably not yet fully recovered.
 

@@ -24,8 +24,6 @@ La réponse de Han Jiwoo fut brève.
 
 « S'ils nous perdent, c'est fini pour eux aussi. »
 
-Sion pensa qu'elle avait raison.
-
 L'équipe qui avait d'abord saisi la fausse braise, si elle laissait aussi filer la vraie ici, glisserait à la fois dans la course et dans la partie. Elle ne pouvait donc que mordre davantage.
 
 Sern était arrivé à la même conclusion.
@@ -63,7 +61,6 @@ Elle l'avait dit à voix basse.
 
 Ater, à ces mots, inclina très légèrement la tête.
 
-C'était le bon jugement.
 Rentrer dans la partie de Zahir était dangereux. Mais au moins, cela avait un nom. Il restait encore un peu de règles, et la main qui revenait avec le résultat y gagnait une légitimité. Dehors, au contraire, on ne serait plus qu'une main qui fuyait avec le vrai, sans aucune légitimité. Alors les mains extérieures au terrain, l'intervention du côté de Haroun, le pavé du marché, tout se jetterait dans la même direction.
 
 Nassim, les yeux en bas, effaça presque son sourire pour la première fois.
@@ -211,14 +208,6 @@ Han Jiwoo continua.
 Sion savait ce qu'elle voulait dire.
 
 Si ces bruits existaient, c'est que là-dedans, c'était encore vivant. Des gens annonçaient des prix, battaient le fer, s'appelaient les uns les autres. Dehors, il n'y avait rien de tel.
-
-Et Sion le sut.
-
-Ce qui venait ensuite n'était plus un simple retour.
-Avec le vrai en main,
-après avoir tenu même face aux ruses,
-en mains revenues vivantes après avoir brisé la partie,
-le moment approchait où ils se tiendraient de nouveau devant Zahir.
 
 ---
 

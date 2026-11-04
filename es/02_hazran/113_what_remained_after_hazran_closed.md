@@ -26,7 +26,7 @@ Sion se detuvo y volvió a pasar. La segunda vez fue igual.
 
 Han Jiwoo ya estaba allí.
 
-Tenía la palma pegada a un panel de la parte baja derecha. Era un panel que hasta ayer había tocado más de diez veces. Porque cada vez que el barco despegaba, esa mano estaba ahí.
+Tenía la palma pegada a un panel de la parte baja derecha. Era un panel que solo hoy había tocado más de diez veces. Porque cada vez que el barco despegaba, esa mano estaba ahí.
 
 —¿Qué pasa?
 
@@ -213,7 +213,7 @@ Lo dijo ella.
 
 Al oírlo, Sion contuvo el aliento un momento.
 
-Han Jiwoo no había dicho que no pudiera arreglarlo. Había dicho que le parecía que no había que arreglarlo. Era la primera vez que le oía decir algo así de un barco.
+Sion nunca le había oído a Han Jiwoo decir algo así de un barco.
 
 —¿Entonces lo dejamos así?
 
@@ -245,11 +245,9 @@ Le parecía que en este barco tenía que haber al menos una persona que supiera 
 
 Sion la trazó y se quedó mirándola un buen rato.
 
-Esto todavía no era un camino. Tampoco era un significado, ni una explicación.
+Esto todavía no era un camino.
 
 Pero tampoco era algo que simplemente hubiera pasado de largo.
-
-La nave, mientras se sacudía cargando a los que habían sobrevivido, se estaba convirtiendo a la vez en un lugar donde lo que había quedado atrás empezaba a adherirse en silencio.
 
 ---
 

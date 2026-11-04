@@ -139,7 +139,7 @@ one was still fast, but it was unclear whether it could take one more hit.
 
 Han Jiwoo's skiff was not intact either. The right hover plate answered even later than before, and under the hull came a steady, thin grinding of metal. Still, nothing vital had gone yet. As if she knew exactly what state it was in, Han Jiwoo neither pushed it harder nor spared it for nothing.
 
-"Two stages in, and it's dying more,"
+"Two stages in, and the hover plate's dying more,"
 she said.
 
 Sion looked down at the right hover plate. It lifted half a beat later than before.
@@ -181,8 +181,6 @@ It was not over yet. That team was seasoned too, and twisted its craft at once t
 Han Jiwoo drove into the line below and spoke very briefly.
 
 "Good."
-
-Sion felt that one word land hotter this time.
 
 The end of the wreckage zone was getting close.
 

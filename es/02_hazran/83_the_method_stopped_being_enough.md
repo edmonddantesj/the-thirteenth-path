@@ -28,7 +28,7 @@ Sion entendió qué querían decir esas palabras.
 
 Hasta hacía un momento bastaba con que Ater dijera dónde golpear. Ahora, aun oyéndolo, no se podía llegar tarde. Saber y hacerlo a tiempo se habían separado.
 
-Sion ya había visto esa separación una vez, esa misma mañana. Cuando se detuvo la fila que pasaba los odres frente al almacén, todos sabían que había que parar, pero las manos llegaron un tiempo tarde y uno se fue rodando.
+Sion ya había visto esa separación una vez, el día anterior. Cuando se detuvo la fila que pasaba los odres frente al almacén, todos sabían que había que parar, pero las manos llegaron un tiempo tarde y uno se fue rodando.
 
 Aquella vez fue un odre.
 
@@ -78,7 +78,7 @@ El grito fue de Ater.
 
 Al oírlo, a Sion se le cerró la garganta.
 
-Antes Ater solo había dicho el nombre. «Sern.» Con eso bastaba. Hoy había gritado, y eso quería decir que era tan tarde que hacía falta gritar.
+Antes Ater solo había dicho el nombre. «Sern.» Con eso bastaba. Esta vez había gritado, y eso quería decir que era tan tarde que hacía falta gritar.
 
 Sern sacó el cuerpo.
 
@@ -203,8 +203,6 @@ Ater había dicho que lo que se usa una vez funciona menos la segunda. Había ll
 Nasim, mientras arrastraba hacia sí al herido, soltó una maldición en voz baja.
 
 —Esto no es ningún negocio, es una locura de verdad.
-
-Fueron palabras que salieron tarde. Por salir tarde sonaron más sinceras.
 
 Sion miró el pasillo.
 

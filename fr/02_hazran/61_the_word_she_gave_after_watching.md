@@ -152,7 +152,7 @@ Han Jiwoo enchaîna, comme en passant.
 
 « Ici, de toute façon, ça ne commence qu'une fois que c'est fini. »
 
-Sion pensa qu'elle avait raison. Hazran avait toujours été ainsi. Dès qu'on croyait avoir obtenu quelque chose, c'est à partir de là que le vrai prix venait s'y attacher.
+Hazran avait toujours été ainsi. Dès qu'on croyait avoir obtenu quelque chose, c'est à partir de là que le vrai prix venait s'y attacher.
 
 Zahir parla lentement.
 
@@ -202,7 +202,7 @@ Dès lors, cela ressemblait moins à une destination qu'à un droit de passer à
 
 Sion regarda de nouveau le creux de sa main.
 
-Pendant des jours, il l'avait tenue en la prenant pour une clef. Il avait cru qu'en la saisissant, quelque chose s'ouvrirait, et c'est pourquoi, de peur qu'on la lui prenne, il n'avait pas pu ouvrir la main.
+Pendant toute la course, il l'avait tenue en la prenant pour une clef. Il avait cru qu'en la saisissant, quelque chose s'ouvrirait, et c'est pourquoi, de peur qu'on la lui prenne, il n'avait pas pu ouvrir la main.
 
 Ce n'était pas une clef, c'était un billet.
 
@@ -251,8 +251,6 @@ Il reprit :
 Puis il ajouta brièvement :
 
 « La récompense se réglera à l'intérieur. »
-
-À ce seul mot, l'air de la cour centrale changea de nouveau.
 
 Sion comprit ce que cela voulait dire, et à double sens.
 

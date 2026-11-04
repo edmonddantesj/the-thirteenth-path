@@ -60,7 +60,7 @@ Sion baissa la main.
 
 Au lieu de répondre, Sern porta la main à son flanc.
 
-Un tissu y était enroulé. Il l'avait posé sur l'entaille reçue quelques jours plus tôt, et maintenant cet endroit-là aussi était de nouveau trempé.
+Un tissu y était enroulé. Il l'avait posé sur l'entaille reçue le matin même, et maintenant cet endroit-là aussi était de nouveau trempé.
 
 « Ne fais pas ça. »
 

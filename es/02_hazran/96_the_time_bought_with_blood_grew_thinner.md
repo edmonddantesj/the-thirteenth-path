@@ -285,7 +285,7 @@ Solo entonces Harún miró a Sion.
 
 —Eso no lo cuentes.
 
-Sion ya había oído esas palabras. El primer día, aquel hombre había dicho exactamente lo mismo. Que, si contaba, acabaría sabiendo también cuándo era la última vez.
+Sion ya había oído esas palabras. Antes, aquel hombre había dicho exactamente lo mismo. Que, si contaba, acabaría sabiendo también cuándo era la última vez.
 
 Entonces había creído que hablaba del número de viajes del barco.
 

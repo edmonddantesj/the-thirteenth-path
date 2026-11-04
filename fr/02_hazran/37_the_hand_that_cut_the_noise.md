@@ -110,7 +110,7 @@ Kael parlait calmement.
 
 À ces mots, pour la première fois, Haroun jeta encore un regard autour de lui.
 
-Les gens postés hors de la ruelle, les oreilles qui faisaient semblant de ne rien voir mais entendaient tout, le marchand qui criait au vrai un instant plus tôt, les yeux de la couche extérieure qui se souviendraient de qui avait mal touché. Haroun pouvait bien faire peu de cas des gens de la couche extérieure, mais son visage disait qu'il savait qu'un tumulte aussi répandu ne se tranchait pas sans laisser de trace.
+Les gens postés hors de la ruelle, les oreilles qui faisaient semblant de ne rien voir mais entendaient tout, le marchand qui criait un instant plus tôt que c'était à lui, les yeux de la couche extérieure qui se souviendraient de qui avait mal touché. Haroun pouvait bien faire peu de cas des gens de la couche extérieure, mais son visage disait qu'il savait qu'un tumulte aussi répandu ne se tranchait pas sans laisser de trace.
 
 Nassim intervint avec douceur.
 
@@ -186,8 +186,6 @@ Seorin dit très bas :
 « C'est bien pour ça qu'il est déjà trop tard. »
 Il s'en tint là.
 
-Sion sentit cette phrase entrer en lui plus précisément que la sensation qui l'avait effleuré tout à l'heure au bout de la ruelle. Trop tard, ce n'était pas parce que le temps avait passé. Cela voulait plutôt dire qu'ils avaient touché à trop de choses à la fois. L'éthérite, Aka, Luhai, et ce tumulte en plein milieu de la couche extérieure du marché. Désormais, cela ne pouvait plus se réduire à une affaire entre quatre étrangers et un petit chapardeur.
-
 Nassim conclut avec une grande douceur.
 
 « Bien. Alors au lieu de marchander encore dehors, allons voir les prix à l'intérieur. »
@@ -226,8 +224,6 @@ Seorin bougea avant Sion.
 Elle parlait bas.
 « De toute façon, tout ce qu'on demandera de plus ici filera dehors. »
 
-Sion sentit qu'elle avait raison.
-
 Un vrai fragment d'éthérite,
 un nom : Aka,
 une main à la langue vive : Luhai.
@@ -246,7 +242,7 @@ Et quelque part dans cet intérieur, il y aurait aussi Aka.
 
 Sion repassa la journée dans sa tête.
 
-Dans cette ville, pas une seule personne n'avait prononcé ce nom à voix haute.
+Dans cette ville, seuls deux enfants avaient prononcé ce nom à voix haute.
 
 Dans la couche extérieure, on avait bâillonné un gamin. Haroun le connaissait et n'avait dit que « ce nom-là » ; Nassim ne l'avait même pas sorti.
 
@@ -257,10 +253,6 @@ Un nom qu'on ne connaît pas, il suffit de le demander. Un nom que tout le monde
 Sion compta combien de fois il avait prononcé ce nom dans la couche extérieure.
 
 Deux fois.
-
-Ce n'était pas un nom dont on en finissait en le trouvant.
-
-C'était un nom qui vous dévorait tout cru si vous le trouviez mal.
 
 ---
 

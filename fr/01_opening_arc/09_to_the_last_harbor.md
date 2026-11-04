@@ -141,8 +141,6 @@ Seorin ajouta à mi-voix :
 
 « L'endroit où est Elia, c'est exactement ça. »
 
-Après ces mots, l'air de la cabine changea un peu.
-
 Ater baissa les yeux, un très bref instant.
 
 « Est-ce un endroit sûr ? »

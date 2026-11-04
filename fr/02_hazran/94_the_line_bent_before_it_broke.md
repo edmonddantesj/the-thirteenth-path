@@ -216,9 +216,9 @@ Haroun sortit d'entre les débris.
 
 Il raffermit sa prise sur son arme de la main droite, et ne se servit pas de la gauche.
 
-Sion ne le remarqua pas d'abord. Il ne le remarqua que lorsque Haroun alla jusqu'au tableau pour tracer un trait. Jusque-là, Haroun traçait de la main gauche.
+Sion ne le remarqua pas d'abord. Il ne le remarqua que lorsque Haroun alla jusqu'au tableau pour tracer un trait à la place de Nassim.
 
-Cette fois, il traça de la main droite. L'arme coincée sous le bras.
+Il traça de la main droite. L'arme coincée sous le bras. Sa main gauche ne monta même pas jusqu'au tableau.
 
 « Haroun. »
 

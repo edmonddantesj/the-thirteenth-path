@@ -38,7 +38,7 @@ Seorin le contestó con pocas palabras.
 Lo dijo Nasim.
 —Y la mano que separa lo verdadero.
 
-A Sion le incomodaba todavía más que eso saliera con tanta facilidad. Este hombre no es que no ocultara el nombre: medía su precio según quién sacaba el nombre escondido, y dónde.
+Este hombre no es que no ocultara el nombre: medía su precio según quién sacaba el nombre escondido, y dónde.
 
 Harún oyó la conversación y no se metió. En cambio, se quedó de pie junto a la entrada, guardando a la vez el exterior y el interior. Como alguien que no crea las peleas, sino que decide hasta dónde puede extenderse una pelea hacia dentro.
 
@@ -142,8 +142,6 @@ Pero al instante siguiente, cuando su mirada volvió a ir y venir muy brevemente
 
 —Los dos no pueden estar aquí.
 
-El aire del interior se quedó muy quieto.
-
 La risa de Nasim también se detuvo, Harún no se movió más, y Nahira, al contrario, borró todavía más la expresión.
 
 Sion sintió que esas pocas palabras le entraban más hondo de lo que esperaba.
@@ -204,9 +202,7 @@ Nahira no retrocedió.
 Lo dijo en voz baja.
 —Si la arrastras a la fuerza, cierra la boca.
 
-A Sion esas palabras le sonaron a las de alguien que conocía demasiado bien a Aka.
-
-Alguien que la había vigilado mucho tiempo aquí dentro. Alguien que sabía cuándo hablaba Aka y cuándo cerraba la boca.
+Nahira era alguien que la había vigilado mucho tiempo aquí dentro. Alguien que sabía cuándo hablaba Aka y cuándo cerraba la boca.
 
 Aka seguía mirando no al grupo de Sion, sino las cosas que habían traído.
 

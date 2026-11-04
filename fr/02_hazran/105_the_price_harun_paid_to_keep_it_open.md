@@ -72,7 +72,7 @@ Haroun hocha la tête une fois.
 
 À cette réponse, Sion eut la gorge serrée.
 
-Cet homme venait de passer six heures sous les pierres ; la première chose qu'il avait demandée en sortant, c'était le nombre de fois restantes, et une fois la réponse entendue, il s'était d'abord mis à calculer.
+Cet homme venait de passer quatre ou cinq heures sous les pierres ; la première chose qu'il avait demandée en sortant, c'était le nombre de fois restantes, et une fois la réponse entendue, il s'était d'abord mis à calculer.
 
 « Avec quoi vous frappiez ? »
 
@@ -102,7 +102,7 @@ Sion regarda longtemps cette main.
 
 Pour la troisième fois aujourd'hui, Sion entendait ces mots.
 
-Cet homme avait respecté seul, six heures durant sous les pierres, la règle qu'il avait lui-même établie. Cela voulait dire qu'il ne savait même pas si quelqu'un venait. Il ne le savait pas, et il avait continué de frapper.
+Cet homme avait respecté seul, quatre ou cinq heures durant sous les pierres, la règle qu'il avait lui-même établie. Cela voulait dire qu'il ne savait même pas si quelqu'un venait. Il ne le savait pas, et il avait continué de frapper.
 
 « Buvez un peu d'eau. »
 
@@ -261,7 +261,7 @@ Sion courut.
 
 Cette fois, il l'atteignit.
 
-Il saisit Haroun par l'épaule et le tira dehors ; il était plus léger que prévu. Un homme resté six heures sous les pierres sans eau.
+Il saisit Haroun par l'épaule et le tira dehors ; il était plus léger que prévu. Un homme resté quatre ou cinq heures sous les pierres sans eau.
 
 « Lâche. »
 
@@ -295,7 +295,7 @@ Haroun regardait de ce côté.
 
 Ces mots furent les plus lourds que Sion eût entendus de la journée.
 
-Cet homme venait de voir boucher le trou à sa place les mains qui, six heures durant, avaient creusé pour le sortir. Et il avait seulement dit qu'il avait vu.
+Cet homme venait de voir boucher le trou à sa place les mains qui, quatre ou cinq heures durant, avaient creusé pour le sortir. Et il avait seulement dit qu'il avait vu.
 
 Le trou se rétrécit de nouveau. La largeur d'une personne fut réduite de moitié.
 
@@ -333,7 +333,7 @@ Ces mots frappèrent Sion en pleine poitrine.
 
 C'était vrai. La porte de ce vaisseau était encore ouverte. Parce que cet homme venait d'en payer le prix de son propre corps, et de forcer à nouveau l'ouverture de ce qui allait se fermer.
 
-« Alors fais partir un chargement dans les vingt minutes. »
+« Alors fais partir un chargement dans les vingt minutes », ajouta Haroun.
 
 Sion courut vers le tableau.
 

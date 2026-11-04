@@ -1,214 +1,278 @@
 # Chapitre 168 — Cesser de mentir
 
-Après le rapport sur l'ouverture d'une nouvelle ligne de circulation,
-l'air de l'ancienne couche redevint silencieux,
-mais ce silence différait de celui des jours précédents.
+Cette nuit-là, Seorin ne garda pas les gens longtemps rassemblés.
 
-Désormais, tous savaient
-qu'ils ne pouvaient pas se contenter de rester immobiles.
+Autour de la plaque se réunirent Sion, Han Jiwoo, Sern, Ater et Luhai ; les deux vieilles machines vinrent aussi, celle du pilier et celle du côté du mur, avec les deux mains du dehors et la première main de récupération. Du côté de la brèche, appuyée contre le mur, la seconde main voyait elle aussi la plaque depuis sa place. Kael s'assit à côté de la plaque, et Aka resta près des enfants.
 
-Mais ils ne pouvaient pas non plus emmener aussitôt les androïdes dehors.
+Les enfants dormaient ; seul le petit enfant était éveillé, la main de Han Jiwoo serrée dans la sienne.
 
-Le problème restait le même.
+Les gens de Hazran se tenaient un peu à l'écart, et l'homme sans petit frère s'était placé tout devant eux.
 
-Il ne s'agissait pas encore de savoir s'ils pouvaient leur faire confiance.
-D'abord,
-il fallait savoir s'ils étaient capables de ne pas affirmer qu'ils étaient vides.
-
-Seorin ne garda pas longtemps tout le monde rassemblé.
-
-Comme la veille, elle ne retint que les visages nécessaires.
-Sion,
-Han Jiwoo,
-Sern,
-Ater,
-Luhai,
-ainsi que deux anciennes machines et les mains extérieures.
-
-Cette fois, personne ne parla le premier.
-
-Ce fut Seorin qui brisa le silence.
+Personne ne prenait la parole le premier ; la lampe jaune clignota deux fois, et Seorin ramassa une pierre.
 
 « Mettons de l'ordre. »
-dit-elle à voix basse.
-« Il y a encore beaucoup de choses que nous ignorons. »
-« Mais au moins,
-nous avons dépassé le stade où nous pouvons faire semblant de ne pas avoir vu. »
 
-Ces mots tenaient moins d'une conclusion
-que d'une ligne tracée, impossible à fuir.
+Elle parlait bas.
 
-Sern poursuivit calmement :
+« Il y a encore beaucoup de choses qu'on ne sait pas. Mais au moins, on a dépassé le stade où on fait semblant de ne pas avoir vu ce qu'on a vu. »
 
-« Les variations se sont répétées. »
-« Dans les mêmes conditions,
-des réponses différentes sont déjà apparues plusieurs fois. »
+Dans la case vide de la plaque qu'elle regardait, la pierre dressée tenait debout.
+
+Sur le panneau d'enregistrement que Sern avait posé au milieu de la plaque, le tableau comptait davantage de lignes.
+
+« Les écarts se sont répétés. Dans les mêmes conditions, des réactions qui ne sont pas les mêmes sont déjà apparues plusieurs fois. »
+
+« Combien ? »
+
+Seorin posa la question.
+
+« Il y a eu onze passages. Ils ont bougé sept fois. »
+
+Sern répondit.
+
+« Les positions qui ont bougé sont au nombre de trois. Le fond, le milieu, le bout de la file. Les autres n'ont pas bougé une seule fois. »
 
 Luhai demanda aussitôt :
 
-« Donc ils ont une volonté ? »
+« Alors ils ont une volonté ? »
 
-Sern ne secoua pas immédiatement la tête.
+Sern ne fit ni non ni oui de la tête.
 
-« Nous ne pouvons pas l'affirmer non plus. »
-« Mais affirmer qu'ils n'en ont pas
-est désormais plus dangereux. »
+« Nous ne pouvons pas non plus l'affirmer. Mais affirmer qu'il n'y en a pas est désormais plus dangereux. »
 
-C'était froid, très fidèle à Sern.
-Et c'est précisément pour cela que cela ébranla davantage.
+« Pourquoi plus dangereux ? »
 
-En l'entendant, Han Jiwoo comprit tardivement
-que la réponse qu'elle voulait n'était pas une conclusion exacte,
-mais l'attitude de ceux qui refusent de trancher à la légère.
+« Parce que nous nous sommes trompés sept fois. »
 
-Ater, les bras croisés près du mur, dit à voix basse :
+Sern répondit.
 
-« Les anciennes machines réagissent les premières. »
-« Avant les humains.
-Avant les mains extérieures. »
+« Nous avons regardé en disant qu'il n'y avait rien, et ils ont bougé sept fois. Combien de fois nous nous serions trompés en regardant avec l'idée inverse, nous ne le savons pas encore. »
 
-Seorin le regarda.
+Luhai se tut ; Han Jiwoo regarda Sern, mais Sern regardait le tableau.
 
-Ater poursuivit, les yeux tournés vers les androïdes :
+La main du dehors qui se tenait devant regarda le tableau, elle aussi.
 
-« Ce n'est pas seulement l'arrêt de quelqu'un qui voit un ennemi. »
-« C'est plus proche de quelqu'un qui voit quelque chose d'étranger,
-mais pas entièrement étranger. »
+« Nous aussi, nous avons compté. »
 
-Une ancienne machine ne contredit pas ces mots.
-Ce silence lui-même
-sonna peut-être comme l'accord le plus fort.
+Elle poursuivit.
 
-En regardant cela,
-Sion pensa que la première chose importante ici n'était peut-être pas la confiance,
-mais l'honnêteté.
+« Dehors. Il n'y a jamais eu de mouvement sans ordre. »
 
-Il était trop tôt pour dire qu'ils pouvaient faire confiance.
-Trop tôt aussi pour couper court en disant qu'ils ne le pouvaient pas.
+« Ici, il y en a eu. »
 
-Mais au moins,
-ils devaient commencer par dire que ce qu'ils avaient vu avait bien été vu.
+Sern répondit.
 
-Un homme venu de Hazran demanda alors d'une voix basse et mal à l'aise :
+« Les conditions sont différentes. Dehors, ces machines-là n'étaient pas présentes. »
 
-« Alors au final, qu'est-ce que vous proposez ? »
-« Admettons qu'ils ne soient peut-être pas vides.
-Pour nous, ce n'est pas encore plus terrifiant ? »
+Sern regarda les deux vieilles machines ; la main du dehors les regarda aussi, mais ne dit rien.
 
-Ces mots n'étaient pas cruels.
-Ils étaient au contraire trop naturels, et c'est pourquoi ils faisaient plus mal.
+Les bras croisés, du côté du mur, Ater prit la parole :
 
-S'il s'agit d'armes sans volonté, on peut encore imaginer le contrôle.
-Mais s'il peut y avoir une volonté,
-la peur peut au contraire grandir.
+« Les vieilles machines réagissent les premières. Avant les gens. Avant les mains du dehors. »
 
-Han Jiwoo le regarda, puis dit lentement :
+Seorin le regarda, mais Ater regardait vers le secteur des androïdes. D'ici, l'intérieur de l'entrée était sombre.
 
-« Oui. »
-« Ça peut être plus terrifiant. »
-« Mais ce n'est pas parce que ça fait peur
-qu'on a le droit de les pousser du côté de ce qui n'existe pas. »
+« Ce n'est pas seulement l'arrêt de qui voit un ennemi. C'est plus proche de qui voit une chose étrangère, mais pas tout à fait étrangère. »
+
+« Ça se voit à quoi ? »
+
+Han Jiwoo posa la question.
+
+« À la durée de l'arrêt. »
+
+Ater répondit.
+
+« Devant un ennemi, les gens s'arrêtent brièvement. Elles, elles s'arrêtent longuement. Puis elles se retournent, et regardent encore. »
+
+La vieille machine du pilier ne dit rien, et la machine du côté du mur non plus. Les deux yeux optiques venus se poser sur Ater ne se baissèrent pas, et ne le contredirent pas non plus.
+
+Seorin les regarda toutes les deux et demanda :
+
+« C'est juste ? »
+
+La vieille machine du pilier parla longtemps après.
+
+« Je ne sais pas. Il y a bien eu un arrêt. »
+
+« Pourquoi cet arrêt ? »
+
+« J'ai dit que la main s'était levée la première. Au-delà, je ne sais pas. Pour moi aussi, c'est la première fois. »
+
+Comme Seorin ne demandait rien de plus, l'homme sans petit frère, devant les gens de Hazran, parla bas, le visage mal à l'aise.
+
+« Alors, au bout du compte, on fait quoi ? Admettons que ce truc-là ne soit peut-être pas vide. Pour nous, ce n'est pas encore plus effrayant ? »
+
+Personne ne répondit tout de suite ; derrière lui, la femme venue avec deux enfants rajusta l'enfant qu'elle portait, et la femme au visage fatigué replia le tissu qu'elle avait déjà plié.
+
+Han Jiwoo regarda l'homme et dit lentement :
+
+« Oui. Ça peut faire plus peur. Mais ce n'est pas parce que ça fait peur qu'on doit le pousser du côté du vide. »
 
 Un bref silence.
 
-Elle regarda vers les androïdes et poursuivit plus bas :
+Elle regarda vers l'entrée sombre du secteur et poursuivit plus bas :
 
-« On a déjà vu jusqu'où cette manière de faire peut aller. »
+« On a déjà vu jusqu'où va cette manière de faire. »
 
-Personne ne put la contredire.
+« Où ça ? »
 
-Serakion avait fait exactement cela :
-déclarer qu'il n'y avait rien,
-puis classer,
-puis élever,
-puis ne jamais rendre.
+L'homme posa la question.
 
-Seorin reprit ses mots.
+« Là-haut. On dit qu'il n'y a rien, on compte, après avoir compté on fait monter, et après avoir fait monter on ne redescend personne. Ton frère aussi est parti comme ça. »
 
-« Bien. Alors nous décidons au moins ceci. »
+Les doigts croisés de l'homme se dénouèrent, mais il ne dit rien et ne les recroisa pas.
+
+Seorin reprit après elle.
+
+« Jusque-là, on le fixe. »
 
 Tous la regardèrent.
 
-« Nous ne les calculons pas immédiatement comme une force. »
-« Mais nous ne les calculons pas non plus d'abord comme vides. »
+« On ne les compte pas tout de suite comme une force. Mais on ne les compte pas non plus d'abord comme vides. »
 
-Luhai fronça les sourcils.
+Luhai fronça les sourcils et demanda :
 
-« Quelle différence ça fait ? »
+« C'est quoi, la différence ? »
 
-« Une différence énorme. »
-coupa Seorin.
-« Le premier chemin cherche d'abord un mode d'emploi.
-Le second garde d'abord une ligne. »
+« Une énorme différence. »
 
-Ces mots étaient simples,
-mais ils rendirent la pièce étrangement plus silencieuse.
+Seorin trancha.
 
-Désormais, tous le savaient.
+« Le premier commence par chercher le mode d'emploi, le second commence par tenir la ligne. »
 
-Ce qu'il fallait décider n'était pas encore leur usage,
-mais jusqu'où eux-mêmes refuseraient d'aller.
+Avec la pierre, elle traça une petite ligne horizontale dans la case vide, devant la pierre dressée.
 
-Une main extérieure dit alors très bas :
+« Cette ligne. On ne va pas au-delà. Tant qu'on n'a pas décidé comment les appeler. »
+
+Près des enfants, Aka regarda cette ligne.
+
+« Si on décide du nom, on y va ? »
+
+« Si on décide du nom, on retrace la ligne. On ne l'efface pas. »
+
+Luhai aussi regarda la courte ligne et dit :
+
+« À quoi ça sert, une ligne ? »
+
+« Serakion aussi a commencé par tracer des lignes. Au sol. En forme d'empreintes. Nous, on les trace dans l'autre sens. »
+
+La main du dehors qui se tenait devant parla très bas.
 
 « L'autre côté n'attend pas. »
 
-Seorin hocha la tête.
+Seorin hocha la tête et répondit :
 
 « Je sais. »
 
-« Si les lignes de circulation passent à deux couches,
-la vitesse de récupération changera ensuite. »
+« Si les lignes de circulation passent à deux couches, la vitesse de récupération changera ensuite, elle aussi. »
 
-Sern prit ces mots.
+« Elle a déjà changé. »
+
+La seconde parla depuis la brèche.
+
+« Sans pause, on ne peut pas les sortir. Kael l'a dit. »
+
+Kael hocha la tête en regardant les deux lignes parallèles tracées sur la plaque.
+
+Sern reprit ces mots.
 
 « Nous devons bouger avant cela. »
 
 « Oui. »
-dit Seorin.
-« Mais ce avec quoi nous bougerons,
-nous devons le décider sans nous tromper d'abord. »
 
-À cet instant,
-une ancienne machine de l'intérieur passa de nouveau devant les androïdes.
+Seorin répondit.
 
-Cette fois, elle était plus proche qu'avant.
+« Mais avec quoi on bouge, ça, on doit le décider d'abord, sans se tromper. »
 
-Le regard de deux androïdes
-suivit presque en même temps,
-mais pas exactement au même rythme.
+« Et en cas d'erreur ? »
 
-Sern inspira très bas.
-Ater aussi quitta le mur pour la première fois.
+La main du dehors posa la question.
 
-Luhai ne parvint plus à dire quoi que ce soit.
+« Si on se trompe, on devient ceux d'en haut. »
 
-Sion sentit que ce petit décalage,
-étrangement,
-ressemblait à une immense porte qui s'ouvrait à peine.
+Seorin répondit.
 
-Personne ne pouvait encore nommer ce qui se trouvait devant cette porte.
-Mais il devenait difficile de faire comme si c'était un mur fermé.
+Han Jiwoo reprit ces mots.
 
-Han Jiwoo murmura presque pour elle-même :
+« Ceux d'en haut se diront qu'ils ne se sont pas trompés. »
 
-« Ils regardaient donc depuis le début. »
+« C'est pour ça qu'ils sont en haut. »
 
-Qui regardait qui,
-jusqu'où,
-et avec quel mouvement intérieur,
-personne ne pouvait encore le savoir.
+C'était Seorin.
 
-Mais après ces mots,
-l'air de la pièce était clairement différent des jours précédents.
+À cet instant, la vieille machine du côté du mur se détacha du cercle autour de la plaque. C'était la première fois que cette machine allait d'elle-même vers le secteur.
 
-Ils n'en étaient pas venus à faire confiance aux androïdes.
+Ses pas étaient lents, et la poussière accumulée devant ses pieds se souleva. Arrivée à l'entrée du secteur, la machine ne s'arrêta pas et entra. Jusqu'au milieu, trois pas plus près que l'endroit où s'était tenue la vieille machine du pilier.
 
-En revanche,
-ils ne pouvaient plus recouvrir d'un mensonge ce qu'ils avaient vu.
+Tous retinrent leur souffle.
 
-Et c'est précisément à partir de là
-que la manière de briser Serakion sembla commencer, elle aussi, à changer peu à peu.
+La machine du côté du mur ne leva pas la main comme la vieille machine du pilier ; elle resta seulement debout. La faible lumière de son œil optique parcourut lentement la file, du bout jusqu'au fond.
+
+Les plaques faciales de deux androïdes suivirent. Le milieu et le fond, presque en même temps. Pas à l'identique.
+
+Le milieu d'abord.
+Le fond, un demi-temps après.
+
+Même après le passage de la lumière, les plaques faciales restaient tournées de ce côté.
+
+Un temps.
+Deux.
+
+Elles revinrent.
+
+Sern ravala son souffle, Ater décolla son dos du mur, et Luhai ne put rien dire.
+
+La machine du côté du mur fit demi-tour et ressortit lentement, puis regagna sa place, du côté du mur, et se tint sur le sol sans poussière. Son œil optique restait tourné vers le secteur.
+
+Sion regarda la machine, puis le secteur, et pressa dans sa poche sa propre plaque de métal.
+
+Han Jiwoo parla presque pour elle-même.
+
+« Ils regardaient depuis le début, alors. »
+
+« Qui ? »
+
+Luhai posa la question.
+
+Han Jiwoo ne répondit pas et continuait de regarder le secteur. Le petit enfant, sa main dans la sienne, regardait au même endroit.
+
+Sern ajouta une ligne au tableau. Douze passages, huit mouvements.
+
+« Les conditions n'étaient pas les mêmes. »
+
+Il poursuivit.
+
+« Cette fois, c'était plus près. Je le note à part. »
+
+« Plus c'est près, plus ils bougent ? »
+
+Luhai posa la question.
+
+« Avec deux fois, nous ne pouvons pas le savoir. »
+
+Sern répondit.
+
+« Il faut voir une troisième fois. »
+
+À ces mots, l'œil optique de la machine du côté du mur vint se poser sur Sern, puis s'en retourna.
+
+Seorin regarda la case vide de la plaque, la pierre dressée et la ligne devant elle, puis posa sa pierre.
+
+« C'est tout pour ce soir. Demain, on fixe les places. Qui se tient où, et regarde quoi. »
+
+« Et les androïdes ? »
+
+Luhai posa la question.
+
+« Les androïdes restent là-bas. Ce qu'on décide, c'est où nous, on se place. »
+
+Les deux mains du dehors se regardèrent, mais ne dirent rien. Celle de devant alla jusqu'à l'entrée du secteur et, sans entrer, se posta à côté de l'entrée, les mains baissées.
+
+Pendant que les gens de Hazran se dispersaient, l'homme sans petit frère resta debout jusqu'au bout, les doigts décroisés. Il regarda une fois l'entrée sombre du secteur, puis se détourna.
+
+Pendant que la lampe jaune clignotait, l'œil optique de la machine du côté du mur clignotait sur un autre rythme. Personne n'était passé, et pourtant, dans le secteur, une plaque faciale trembla.
+
+Seule Han Jiwoo le vit. Elle ne dit rien.
 
 ---
 

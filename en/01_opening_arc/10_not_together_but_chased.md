@@ -33,8 +33,6 @@ She put the snack bag down on the desk and added,
 
 "So you didn't come together. You got chased here together."
 
-At that, the uncomfortable air that had followed them from the cabin split thin once more.
-
 Seorin nearly laughed first.
 
 "You read that the second we walk in."

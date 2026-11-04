@@ -63,8 +63,6 @@ Han Jiwoo dit à voix basse :
 
 « Bien. »
 
-Ce n'était pas de la cruauté ; c'était la confirmation que Sion avait vu juste.
-
 À ce seul mot, Sion devint au contraire plus silencieux encore.
 
 Dans ce secteur, son œil n'était plus un simple auxiliaire pour lire la route : c'était lui qui départageait ceux qui se laissaient tromper et ceux qui ne se laissaient pas tromper.
@@ -220,8 +218,6 @@ Au lieu de répondre, Han Jiwoo abaissa encore l'esquif.
 L'engin rouge sombre plongea vers l'intérieur presque au même instant, et au nord, l'engin de glisse de Kael et Sern approchait, avec un demi-temps de retard, mais sur une ligne plus stable.
 
 Les trois équipes survivantes étaient enfin sur le point de se heurter devant presque la même braise candidate.
-
-Et Sion le savait.
 
 À partir d'ici, les seules règles de cette course ne suffiraient peut-être plus à tout régler.
 

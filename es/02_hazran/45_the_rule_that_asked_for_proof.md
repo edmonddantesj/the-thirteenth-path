@@ -31,8 +31,6 @@ Zahir siguió hablando.
 Eso dijo.
 —Si tu mano va a sostener lo verdadero, tiene que aguantarlo hasta el final y salir con ello.
 
-En el instante en que cayó esa frase, Sion sintió con más claridad que lo que aquel hombre iba a plantear no era un simple trato. Aquí, ya fuera un objeto o el nombre de una persona, todo acababa arrastrado a la misma cuestión: «quién puede cargar con lo verdadero».
-
 Ater preguntó con calma.
 
 —¿Es un examen?
@@ -93,7 +91,7 @@ Seorin preguntó enseguida.
 
 —¿De qué manera?
 
-Zahir miró una vez hacia Nahira y Aka, una vez hacia Luhai y la eterita, y por último una vez más hacia Sion y Kael. Como alguien que, con esas tres breves miradas, volvía a confirmar que los precios puestos en esta partida estaban divididos en tres.
+Zahir miró una vez hacia Nahira y Aka, una vez hacia Luhai y la eterita, y por último una vez más hacia Sion y Kael.
 
 —A la manera de Hazran.
 Eso dijo.
@@ -109,8 +107,6 @@ Ater preguntó con mucha cautela.
 
 —¿Aka también entra en esa partida?
 
-Ante esa pregunta, el aire de la sala se detuvo de forma casi imperceptible.
-
 La mirada de Harún fue la primera en hundirse, fría, y la expresión de Nahira, al contrario, se borró todavía más. Aka seguía callada, pero en ese instante Sion vio que su mirada vacilaba, muy débilmente, por primera vez. Más que miedo, era la vacilación incómoda de quien ya conocía esa posibilidad.
 
 Zahir no respondió enseguida.
@@ -118,8 +114,6 @@ Zahir no respondió enseguida.
 En cambio, habló muy despacio.
 
 —Lo de Aka lo decido yo.
-
-Esa sola frase bastaba.
 
 Aka no le llevó la contraria. En cambio, mantenía la cabeza tal como la había alzado antes, al preguntarle a Zahir dónde era la partida. Ni la bajó ni la alzó más.
 
@@ -148,8 +142,6 @@ Aun así, Zahir no subió la voz.
 —Puede que no.
 Eso dijo.
 —Por eso miramos la partida.
-
-Aquello sonó más a certeza que a amenaza. Dijera quien dijera lo que fuera, aquel hombre pensaba comprobar el final sobre la partida.
 
 Luhai chasqueó la lengua por lo bajo en medio de aquella conversación.
 

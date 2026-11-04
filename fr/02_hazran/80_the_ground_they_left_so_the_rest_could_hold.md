@@ -44,7 +44,7 @@ L'unité qui avait perdu son angle s'écarta d'elle-même sur le côté.
 
 Là, Sion cessa de respirer.
 
-Hier, ce n'était pas comme ça. Hier, celle qui perdait son angle se laissait entraîner, et l'arrière lui passait dessus. Aujourd'hui, l'avant s'était écarté le premier. L'arrière était entré tout droit à la place libérée, sans y mettre un seul pas de plus.
+Tout à l'heure, ce n'était pas comme ça. Tout à l'heure, celle qui perdait son angle se laissait entraîner, et l'arrière lui passait dessus. Cette fois, l'avant s'était écarté le premier. L'arrière était entré tout droit à la place libérée, sans y mettre un seul pas de plus.
 
 Sern lâcha un mot à voix basse et descendit.
 
@@ -56,9 +56,9 @@ Ater, lui, ne descendit pas.
 
 En entendant ces deux mots, Sion regarda non pas dehors, mais de ce côté-ci.
 
-« Et hier, alors ? »
+« Et tout à l'heure, alors ? »
 
-« Hier ? »
+« Tout à l'heure ? »
 
 « Quand on a dit que les deux de droite étaient sur le même axe. »
 
@@ -82,9 +82,9 @@ Ater s'interrompit un instant.
 
 Ces mots ne sonnèrent pas comme une consolation aux oreilles de Sion.
 
-Ce qu'on avait lu hier portait moins aujourd'hui. Demain, cela ne porterait plus. Chaque fois que l'autre camp faisait l'épreuve de Hazran, la ville perdait une des choses dont elle pouvait se servir.
+Ce qu'on avait lu tout à l'heure portait moins maintenant. La prochaine fois, cela ne porterait plus. Chaque fois que l'autre camp faisait l'épreuve de Hazran, la ville perdait une des choses dont elle pouvait se servir.
 
-Sion ressortit le calcul qu'il avait fait la veille.
+Sion ressortit le calcul qu'il avait fait tout à l'heure.
 
 Une lecture en faisait tomber trois, et l'autre camp les remplaçait en deux ou trois pas. Il avait pensé que si l'on gagnait sans cesse deux ou trois pas, cela finirait au moins par s'accumuler.
 
@@ -120,7 +120,7 @@ Sa voix n'était pas la même que d'habitude.
 
 Sion savait combien ces mots étaient étranges.
 
-L'homme qui lisait le mieux les prix dans cette ville disait de lâcher les prix. Hier matin encore, cet homme avait deviné ce qui arrivait rien qu'en voyant les cordons thermiques monter à quatre l'unité.
+L'homme qui lisait le mieux les prix dans cette ville disait de lâcher les prix. Avant-hier matin encore, cet homme avait deviné ce qui arrivait rien qu'en voyant les cordons thermiques monter à quatre l'unité.
 
 Pourtant, c'était justement parce que ces mots étaient étranges qu'ils étaient justes.
 
@@ -174,13 +174,13 @@ Quelqu'un, en passant, jeta une toile par-dessus. Le geste fut rapide. Plus on c
 
 Sion reconnut une toile isolante. Elle venait de cet entrepôt qu'on venait d'abandonner.
 
-C'est alors que Sion se souvint de la veille.
+C'est alors que Sion se souvint de ce qui s'était passé tout à l'heure.
 
-Hier, Luhai avait compté sur ses doigts, à l'entrée. Quatorze au départ, treize revenus. Sion n'avait pas vu ce un-là. Il ne l'avait connu que comme un chiffre.
+Tout à l'heure, Luhai avait compté sur ses doigts, à l'entrée. Quatorze au départ, treize revenus. Sion n'avait pas vu ce un-là. Il ne l'avait connu que comme un chiffre.
 
-Aujourd'hui, il avait vu.
+Cette fois, il avait vu.
 
-Celui d'hier avait dû finir ainsi lui aussi. Ainsi, là où Sion ne regardait pas, et il n'était pas revenu, pendant tout le temps où Luhai avait attendu sans baisser les doigts.
+Celui de tout à l'heure avait dû finir ainsi lui aussi. Ainsi, là où Sion ne regardait pas, et il n'était pas revenu, pendant tout le temps où Luhai avait attendu sans baisser les doigts.
 
 Luhai comptait encore, en ce moment même.
 

@@ -182,7 +182,7 @@ Sion attendit la suite.
 
 Zahir ne dit rien. C'était le visage de quelqu'un qui attendait que Sion parle.
 
-Sur place, Sion sentit quelque chose accrocher. Pas une chose entendue aujourd'hui, mais quelques jours plus tôt.
+Sur place, Sion sentit quelque chose accrocher. Une chose entendue tout à l'heure.
 
 Il se rappela quelqu'un, sous la rampe, qui déplaçait une plaque de métal d'un demi-empan.
 

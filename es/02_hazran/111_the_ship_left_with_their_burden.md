@@ -176,7 +176,7 @@ Sion se detuvo un momento.
 
 Luhai estaba sentado contra la pared de enfrente, abrazándose las rodillas.
 
-Llevaba un buen rato sin decir una sola palabra. Dentro de este barco, el que más tiempo había vivido en Hazran era el que menos hablaba.
+Llevaba un buen rato sin decir una sola palabra. De todo el grupo, el que más tiempo había vivido en Hazran era el que menos hablaba.
 
 Mientras repartía las cantimploras, Sion le dejó una también delante a Luhai.
 
@@ -218,8 +218,6 @@ Sion fue a su lado.
 Aka respondió al cabo de un largo rato.
 
 —El que vio eso tiene que ir.
-
-Sion sintió que esas palabras le daban de lleno en lo más hondo del pecho.
 
 No habían subido a este barco por suerte. Zahir los había llevado hasta el umbral y los había metido dentro, Nasim les había empujado la espalda, Nahira les había soltado la mano. Lo último que había hecho aquella gente era sacar afuera a los de este lado.
 

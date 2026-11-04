@@ -165,7 +165,7 @@ La plaque tenait toujours à sa place. Sion n'avait pas vu quand il l'avait lâc
 
 Sion ne sut pas quoi dire.
 
-Il était entré à Hazran avec cet homme. Ils s'étaient tenus ensemble dans la partie, étaient montés ensemble sur un engin de glisse, et Sion avait vu la plaque supérieure de son engin s'arracher. Mais à présent, tout cela ne servait à rien. Ce qu'il fallait, c'était une main pour tenir le côté gauche, et le seul ici qui pouvait lâcher prise, c'était lui.
+Il était entré à Hazran avec cet homme. Ils s'étaient tenus ensemble dans la partie, étaient montés ensemble sur un engin de glisse, et Sion avait vu le dessous de son engin encaisser les coups. Mais à présent, tout cela ne servait à rien. Ce qu'il fallait, c'était une main pour tenir le côté gauche, et le seul ici qui pouvait lâcher prise, c'était lui.
 
 « Ils sont combien, là-bas ? »
 

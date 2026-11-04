@@ -62,7 +62,7 @@ Pero Sion vio algo en ese movimiento.
 
 Era lento.
 
-No mucho. Medio tiempo, más o menos. Pero hasta entonces Sern nunca había ido medio tiempo tarde. Hacía unos días que le habían cortado el costado, y en todo ese tiempo no se le había notado ni una vez. Ahora se le notaba.
+No mucho. Medio tiempo, más o menos. Pero hasta entonces Sern nunca había ido medio tiempo tarde. Le habían cortado el costado esa mañana, y desde entonces no se le había notado ni una vez. Ahora se le notaba.
 
 Ater también lo vio.
 

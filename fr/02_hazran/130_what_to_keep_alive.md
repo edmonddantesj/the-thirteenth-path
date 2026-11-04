@@ -1,233 +1,228 @@
-# Chapitre 130 — Ce qu’il fallait garder en vie
+# Chapitre 130 — Que garder en vie
 
-Même après que tous les disparus aient été comptés,
-l'espace ne s'est pas éclairci tout de suite.
+Même après avoir compté tout ce qu'on avait perdu, l'espace ne s'allégea pas.
 
-Le contraire.
+Ce qui restait restait. Les huit, et les gens arrivés dans cette couche avant eux. Sern compta : rien qu'à vue, onze personnes et neuf machines.
 
-Seulement maintenant
-la question de savoir qui a survécu demeure-t-elle.
+L'eau chaude passa d'abord du côté des enfants et des vieillards, et les moins blessés se rangèrent sans un mot auprès des blessés graves. Quand le matériel réparable fut rassemblé d'un côté, Han Jiwoo se tenait là où on l'avait rassemblé. Personne ne lui avait dit de s'y mettre, mais elle s'y tenait.
 
-Et ceux qui ont survécu
-se retrouvent avant la question suivante.
+Au milieu de tout cela, ce qu'on ne pouvait pas jeter se rassemblait à part.
 
-Ici, à l'intérieur,
-qu'est-ce qu'on garde en vie en premier ?
+Une vieille machine interrogeait la machine qui avait ouvert le chemin. Où c'était bloqué, dans quel passage l'alignement des machines d'en haut s'était défait, quels secteurs étaient encore vivants. Chaque fois que la machine qui avait ouvert le chemin répondait, la vieille machine faisait une marque sur une plaque de métal : pas des lettres, des lignes et des points.
 
-La vie de chacun.
-Leur esprit.
-Mémoire.
-Compétence.
-Un chemin.
+Sern posa cette plaque à côté de son panneau d'enregistrement : une des lignes était la même.
 
-Dans un monde qui s'effondre,
-on ne peut pas tout contenir.
+« Cette ligne est la même que sur notre panneau d'enregistrement. »
 
-C'est pourquoi l'air dans cette vieille couche
-semblait toujours porter le parfum du prochain choix à côté de tout le reste.
+Sern le dit à la vieille machine.
 
-Sion commença à le comprendre,
-en regardant les machines et les humains passer auprès des blessés.
+« C'est le chemin par lequel nous sommes entrés. »
 
-Personne n'a paniqué.
-Mais personne n’avait de place non plus.
+« Ce chemin-là vit encore. »
 
-Tout le monde bougeait déjà avec l'aisance de ceux qui savent
-quoi retenir en premier et quoi repousser.
+La vieille machine répondit.
 
-L'eau chaude était d'abord destinée aux enfants et aux personnes âgées.
-Les moins blessés rejoignirent sans un mot les blessés graves.
-Le matériel réparable a été immédiatement mis de côté.
+« Jusqu'à ce que l'autre côté le ferme. »
 
-Et à travers tout cela,
-les informations qui ne pouvaient pas être écartées s'accumulaient très silencieusement, à part.
+« Quand le fermeront-ils ? »
 
-Où le passage était bloqué.
-Dans quel couloir la légion androïde s'était retournée.
-Quelle zone était encore vivante.
-Qui était resté jusqu'au tout dernier.
+« Si nous le savions, nous ne compterions pas. »
 
-Jiwoo le regarda et marmonna doucement.
+À côté de cette ligne, sur son panneau d'enregistrement, Sern marqua le même point que sur la plaque de la vieille machine.
 
-« Ce n'est pas un endroit où l'on pleure ensemble. »
+En voyant cela, Han Jiwoo murmura :
 
-Une femme humaine à proximité répondit.
+« Ici, ce n'est pas un endroit où on pleure tous ensemble. »
 
-« Nous sommes en deuil. »
+La femme au visage fatigué, qui se trouvait tout près, répondit :
 
-Sa voix était sèche,
-mais étrangement plus précise.
+« On a du chagrin. »
 
-continua la femme, le visage fatigué.
+Elle enroulait un linge propre autour de la jambe d'un blessé, et ses mains ne s'arrêtaient pas.
 
-« Mais si vous donnez la priorité au chagrin, »
-« d'autres mourront la prochaine fois. »
+« Mais si on met le chagrin en premier, la fois d'après, il en meurt davantage. »
 
-Jiwoo a entendu cela et n'a rien pu dire.
+Han Jiwoo ne trouva rien à dire et regarda les mains de la femme. Pour enrouler le linge et faire les nœuds, elles n'eurent pas un seul geste perdu. Des mains qui en avaient enroulé longtemps.
 
-Elle se souvenait des mains qu'elle avait tenues jusqu'à la fin à Hazran
-et les choses qui ne pouvaient pas traverser.
+« Moi aussi, je vais le faire. »
 
-C'était le visage de quelqu'un qui sait déjà
-que même le moment du deuil arrive toujours tard.
+La femme leva les yeux et poussa une liasse de linges vers Han Jiwoo.
 
-Aka se tenait un peu plus loin,
-scrutant longuement un vieux schéma structurel sur le mur intérieur.
+« Là-bas. »
 
-Des rainures métalliques courent comme des lignes.
-Marquages effacés.
-Traces ajoutées ultérieurement.
+Han Jiwoo y alla : c'était un homme de Hazran blessé à l'épaule. Elle s'agenouilla et commença à enrouler le linge. Ses mains étaient faites aux outils ; enrouler un linge, c'était la première fois. Le premier nœud était lâche, alors elle le défit et le refit.
 
-Quand Sion s'approcha,
-Aka a demandé bas.
+Kael vint s'asseoir à côté d'elle.
 
-« Là-haut, ils ont tout effacé et reconstruit à nouveau. »
+« Moi aussi. »
+
+Han Jiwoo lui détacha une bande, mais les mains de Kael étaient grandes et le linge lui glissait sans cesse entre les doigts.
+
+« Appuie avec le pouce. Comme quand tu tiens un tournevis. »
+
+Han Jiwoo appuya de son propre pouce sur le bout du linge pour lui montrer.
+
+Quand Kael appuya du pouce, le linge ne glissa plus. Kael commença à l'enrouler autour du bras du blessé : c'était lent, mais rien ne se défaisait.
+
+« C'est bon, comme ça ? »
+
+Kael posa la question.
+
+Han Jiwoo tira sur le nœud pour l'éprouver.
+
+« C'est bon. »
+
+« Ce n'est pas trop serré ? »
+
+« Tant que le sang passe. »
+
+Han Jiwoo pressa fort le bout d'un doigt du blessé, et la couleur revint.
+
+« Ça passe. »
+
+Kael regardait son nœud et tirait dessus une fois de plus quand le blessé leva les yeux vers lui.
+
+« Merci. »
+
+Kael secoua la tête, regarda le nœud encore une fois, et pressa à son tour le bout d'un doigt de l'homme. La couleur revint.
+
+Un peu à l'écart, Aka regardait depuis longtemps un vieux plan de la structure fixé à la paroi du fond.
+
+Des rainures de métal reliées comme des lignes, des marques effacées, des traces ajoutées par-dessus, et d'autres encore ajoutées sur les ajouts : trois couches.
+
+Quand Sion s'approcha, Aka demanda à voix basse :
+
+« Là-haut, ils ont tout effacé et tout refait à neuf, non ? »
 
 Sion la regarda.
 
-Aka parla sans quitter le schéma des yeux.
+Aka parla sans quitter le plan des yeux.
 
-« Mais ici, ils n'ont pas effacé. Ils ont ajouté par dessus. »
+« Mais ici, ils n'ont pas effacé. Ils ont ajouté par-dessus. »
 
-Cette différence comptait aussi.
+Elle posa le doigt sur la couche du dessous. Les marques étaient effacées ; on ne pouvait pas les lire. La deuxième couche, au-dessus, était faite de lignes lisibles, et la troisième, de points.
 
-Le Serakion ci-dessus efface les traces d’échec et fait semblant d’être terminé.
-Mais ici,
-en plus des échecs qui ne s'effaceront pas,
-ils superposent les choix suivants et continuent de tenir.
+« Personne ne sait ce qu'il y avait tout en bas, et pourtant ils ne l'ont pas effacé. »
 
-Ensuite,
-la vieille machine s'approcha de nouveau du groupe de Sion.
+Devant ces trois couches, Sion pensa à la plaque de métal dans sa poche. Deux traits y étaient tracés. En dessous, il n'y avait rien.
 
-Cette fois avec deux autres machines et deux humains à ses côtés.
+À ce moment, la vieille machine revint près du groupe de Sion.
 
-Moins un centre de pouvoir,
-plus comme une combinaison où différents souvenirs et rôles s'étaient brièvement rassemblés en un seul endroit.
+Cette fois, deux autres machines et deux humains l'accompagnaient. Parmi eux, la femme au visage fatigué, qui avait essuyé sur son pantalon ses mains occupées aux linges avant de venir. L'autre était le jeune qui avait crié tout à l'heure. Les yeux gonflés, mais debout.
 
-La vieille machine parlait.
+La vieille machine prit la parole.
 
-« Les habitants de Hazran resteront pour le moment dans cette couche intérieure. »
-« Nous distinguerons ceux qui ont besoin de récupération, ceux qui sont capables de se déplacer et ceux qui ont des compétences techniques. »
+« Les gens venus de Hazran resteront pour le moment dans cette couche intérieure. Nous allons distinguer ceux qui ont besoin de se rétablir, ceux qui peuvent se déplacer, et ceux qui ont un savoir-faire. »
 
-Le visage de Luhai se durcit immédiatement.
+Le visage de Luhai se ferma.
 
-« Encore un classement ? »
+« Encore un tri ? »
 
-Cette réaction est venue si vite
-qu'un humain à proximité laissa échapper un très bref soupir.
-Moins de rire,
-plus un genre de réponse *évidemment, c'est la première chose qu'il allait dire*.
+La réaction avait été rapide.
 
-La vieille machine regarda Luhai et parla.
+L'humain qui, tout près, laissa échapper un bref souffle, c'était le jeune. Un souffle proche du rire ; son visage disait qu'au début, il avait dit la même chose.
 
-« Il ne s'agit pas de mesurer l'utilité. »
-« Il s'agit de ralentir la vitesse de l'effondrement. »
+La vieille machine regarda Luhai et dit :
 
-Luhai ne répondit pas tout de suite.
+« Il ne s'agit pas de trier selon l'utilité. Il s'agit de ralentir la vitesse à laquelle tout s'effondre. »
 
-Il pouvait dire que les mots n'étaient pas un mensonge,
-mais son visage ne s'était toujours pas libéré du langage de classification
-qu'il entendait depuis son entrée à Serakion.
+Luhai ne répondit pas tout de suite ; il regarda le vieil homme de Hazran adossé au mur. L'homme avait posé sur ses genoux la plaque où onze traits étaient tracés.
 
-Sion ressentait la même chose.
+« Alors lui, il va où ? »
 
-La distinction peut devenir violence à tout moment.
-Mais sans distinction,
-un espace comme celui-ci pourrait ne pas tenir du tout.
+Luhai posa la question.
 
-Cette limite était trop étroite dans cette ancienne couche.
+La vieille machine regarda l'homme.
 
-demanda Sern à voix basse.
+« Il ne va nulle part. Il reste ici. Quelqu'un qui finit de tracer sa plaque, on ne le déplace pas. »
 
-« Où placez-vous ceux qui ont des compétences techniques ? »
+Luhai se tut.
 
-La vieille machine jeta un très bref coup d’œil vers Jiwoo.
+Sern demanda à voix basse :
 
-« Ils aident à maintenir en vie ce qui peut l'être en premier. »
+« Où placez-vous ceux qui ont un savoir-faire ? »
 
-À cette réponse,
-l’expression de Jiwoo se resserra légèrement.
+La vieille machine jeta un très bref regard vers Han Jiwoo. Han Jiwoo enroulait le linge, et le deuxième nœud était ferme.
 
-La femme humaine qui l'avait vu ajouta la première.
+« Ils aident d'abord à sauver ce qui peut l'être. »
 
-« Ici, on ne voit pas les gens uniquement pour leurs compétences. »
-« Mais si tu as du talent, »
-« te laisser faire comme si tu n'en avais pas, c'est ça le plus cruel. »
+Les mains de Han Jiwoo s'arrêtèrent, serrant le linge.
 
-C'était moins réconfortant et plus proche de l'explication.
-C’est pourquoi Jiwoo resta silencieuse plus longtemps.
+La femme au visage fatigué ajouta, avant tout le monde :
 
-En ce moment, cet endroit
-ne ressemblait pas à un endroit qui exploite le talent de quelqu'un.
-Mais ce n’était pas non plus un endroit qui ne demande aucune responsabilité.
+« Ici, on ne voit pas les gens seulement comme un savoir-faire. Mais quand quelqu'un en a un, le laisser faire comme s'il n'en avait pas, c'est plus cruel. »
 
-Ceux qui ont survécu
-doivent assumer leur part, proportionnelle à leur survie.
+Han Jiwoo regarda la femme, puis ses mains, qui enroulaient le linge.
 
-Cela ressemblait à la règle de cette couche.
+« C'est pour ça que tu enroules, toi aussi ? »
 
-Un peu plus tard,
-un petit enfant plus profond à l’intérieur s’est réveillé d’une somnolence et a fondu en larmes.
+Han Jiwoo posa la question.
 
-Le regard de tout le monde se tourna dans cette direction pendant un instant.
-Mais personne n’a montré d’agacement.
+« Je ne sais faire que ça. Alors je le fais. »
 
-Au lieu de cela, une vieille machine a essuyé grossièrement la graisse sur sa main avec un chiffon,
-et s'approcha d'un mouvement très maladroit.
+Han Jiwoo remit ses mains en mouvement. Le troisième nœud.
 
-Maladroit.
-Lent.
-Pas beau.
+Un peu plus tard, au fond, un petit enfant se réveilla d'un somme et éclata en sanglots.
 
-Mais ces mains
-avaient l'air moins effrayantes que toutes les mains qu'ils avaient vues plus tôt dans le Serakion d'en haut.
+Les regards se tournèrent de ce côté, mais personne ne montra d'agacement.
 
-Aka a dit, très bas.
+Une autre machine essuya grossièrement avec un chiffon l'huile de sa main, puis alla vers l'enfant avec cette main où il restait de l'huile. À chaque pas lent, ses genoux faisaient du bruit. La machine s'arrêta devant l'enfant et ouvrit la main. Le dos de la main vers le haut, comme l'avait fait une autre machine tout à l'heure.
 
-« Ici, ils ne prétendent pas être bons dans ce domaine. »
+L'enfant ne cessa pas de pleurer, et la machine ne retira pas sa main ouverte. Quand la mère tourna un peu l'enfant vers la machine, l'enfant regarda le dos de la main. Les pleurs faiblirent sans s'arrêter, et pourtant la machine ne bougea pas.
 
-En entendant cela, Sion sentit que
-toute l’ancienne couche tenait en fait avec la même attitude.
+Aka dit très bas :
 
-Ne prétendez pas être complet.
-Ne prétendez pas être tout-puissant.
-Ne prétendez pas être éternel.
+« Ici, on ne fait pas semblant d'être doué. »
 
-Au lieu de cela,
-décider un par un—
-que peut-on sauver maintenant,
-que peut-on transmettre maintenant,
-ce qu'il ne faut pas abandonner maintenant.
+Sion regarda le dos de la main de la machine. Il y voyait des éraflures, de l'huile, des articulations usées. Puis il regarda sa propre main, celle qui portait une cicatrice, et la baissa.
 
-Et probablement,
-c'est pourquoi elle ne s'est pas encore effondrée.
+Pour finir, la vieille machine se tourna vers le groupe de Sion et dit :
 
-La vieille machine a parlé une dernière fois au groupe de Sion.
+« Nous vous interrogerons plus en détail demain. Pour aujourd'hui, réfléchissez d'abord à ce que chacun de vous a apporté jusqu'ici sans le perdre. »
 
-« Je demanderai plus en détail demain. »
-« Pour aujourd'hui, d'abord, »
-« pensez à ce que chacun de vous a apporté ici sans le perdre. »
+Seorin demanda :
 
-Ce n’était pas une simple instruction de préparation.
+« Et tu en fais quoi ? »
 
-Cela ressemblait à un avertissement
-que dans ce monde à l'avenir,
-ce qu'on n'avait pas encore lâché
-compterait autant que ce qu'on avait perdu.
+« C'est cela que nous gardons en vie d'abord. Ce qui est perdu, nous ne pouvons pas le ramener. »
 
-Sion a entendu ces mots
-et réfléchit à ce qu'il avait apporté de Hazran.
+L'œil optique irrégulier clignota une fois.
 
-Responsabilité.
-Dette.
-Des noms disparus.
-Et un chemin pas encore terminé.
+Seorin hocha la tête, serra une fois la poignée de son épée, puis la lâcha.
 
-Ce jour-là, l'ancienne couche de Serakion
-ne leur avait pas seulement donné un endroit pour reprendre leur souffle.
+« Il en est déjà venu d'en haut jusqu'ici ? »
 
-Elle avait commencé à leur demander
-ce qu'ils garderaient en vie.
+Elle posa la question.
+
+« Trois fois. »
+
+La vieille machine répondit.
+
+« Et les trois fois, ça a donné quoi ? »
+
+« C'est pour cela que nous sommes descendus jusqu'ici. »
+
+Du côté de l'issue sombre que regardait Seorin, Ater se tenait debout. Elle y alla et se plaça à côté d'Ater ; côte à côte, tous deux regardèrent la même obscurité.
+
+« Trois fois. »
+
+C'était Ater.
+
+« J'ai entendu. »
+
+« Quand viendra la quatrième ? »
+
+« Je ne sais pas. L'autre côté décide. »
+
+Ater hocha la tête sans quitter l'obscurité des yeux, et Seorin ne la quitta pas non plus. Derrière eux, la lampe jaune clignota, mais aucun des deux ne se retourna.
+
+Sion sortit la plaque de métal et la regarda sous la lampe jaune. Deux traits. C'était ce qu'il avait apporté. Sans ranger la plaque, il la garda en main et s'adossa au mur.
+
+Han Jiwoo acheva le troisième nœud et tira une fois dessus : il ne se défit pas. Elle tapota une fois l'épaule de l'homme. Comme le faisait la femme au visage fatigué.
+
+Le vieil homme de Hazran retourna la plaque posée sur ses genoux, et le revers vide apparut. L'homme regarda longtemps cette face vide, puis la retourna de nouveau. Onze traits.
+
+La lampe jaune clignota une fois. Elle ne s'éteignit pas.
 
 ---
 

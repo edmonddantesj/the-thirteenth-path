@@ -4,7 +4,7 @@ The sector where the androids stood was still quiet, but it wasn't the same quie
 
 Now some of the people passing in front of it went by unable to turn their heads away. Their steps quickened, but their eyes stayed inside the sector, and only after they had passed the entrance did their heads turn forward again.
 
-The children were like that. At first the children had been the ones who hid farthest away, but over a few days the places they hid crept a little closer. First it was behind the corner of the passage, then behind a pillar, and today, the sector's entrance.
+The children were like that. At first the children had been the ones who hid farthest away, but over a few days the places they hid crept a little closer. First it was behind the corner of the passage, then behind a pillar, and today, mostly the sector's entrance.
 
 That day too, two children hovered at a distance by the sector's entrance. One stood almost hidden behind Han Jiwoo, and the other had come out half a step ahead of that one.
 
@@ -58,17 +58,17 @@ One of the old machines was watching the scene quietly from the wall. When one o
 
 "None today. We have decided to watch."
 
-The child who had come further forward, after hesitating a long while, brushed the dry dust off their hands onto their trousers. They brushed once more, and only then, very slowly, began to walk. Not all the way up to one of the androids, but to a spot a little short of it.
+The child who had come further forward, after hesitating a long while, brushed the dry dust off their hands onto their trousers. They brushed once more, and only then, very slowly, began to walk. Not all the way up to one of the androids, but to where an outstretched arm could reach it.
 
 Ten steps took three breaths.
 
 Everyone watched the movement, but no one interrupted. Luhai's foot went half a step forward and came back when Aka caught his arm.
 
-"If it falls."
+"If it falls over."
 
 His voice was very low.
 
-"It won't fall. It's been standing. For days."
+"It won't fall over. It's been standing. For days."
 
 The child's hand still had soil dust on it from feeling along a crack in the wall a moment before. Even after the brushing, it stayed between the fingers.
 
@@ -92,7 +92,7 @@ The android didn't move. It made no sound.
 
 A few seconds later, somewhere beneath the smooth surface, a very faint light passed once.
 
-Han Jiwoo was the first to stop breathing. Sern raised his eyes, and Ater pushed off the wall.
+Han Jiwoo was the first to draw a sharp breath. Sern raised his eyes, and Ater pushed off the wall.
 
 The light seemed about to fade, then rose again in very thin lines on the spot the child had just drawn.
 
@@ -191,7 +191,7 @@ She looked at the child first, then at the android that now had a face. After lo
 
 "We can't look at them the way we did before."
 
-No one argued. Luhai started to say something and stopped, and Ater didn't go back to the wall.
+Luhai started to say something and stopped, and Ater didn't go back to the wall.
 
 The child asked again, very carefully.
 

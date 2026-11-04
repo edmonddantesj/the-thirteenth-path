@@ -186,8 +186,6 @@ Luhai said it without taking his eyes off the board.
 
 "Because if only that line goes down, something's slipping out of there."
 
-The air in the workshop stopped for a moment.
-
 This time it wasn't only Sion who felt it. Ater, Kael, Seorin, Nasim, Harun. All of them felt that the word *ledger* had not landed like a petty thief's excuse.
 
 Nasim smiled, very slowly.
@@ -222,7 +220,7 @@ Seorin asked, low.
 
 "So."
 
-This time Nasim didn't answer ahead of Harun. Instead he glanced to the side, very briefly. That glance meant it was already settled who made the final call.
+This time Nasim didn't answer ahead of Harun. Instead he glanced to the side, very briefly.
 
 Harun spoke.
 
@@ -266,8 +264,6 @@ Elia had written the two side by side. Writing them side by side meant writing t
 On the same line, one place and one person, side by side.
 
 He didn't know yet why they weighed the same. Still, today he had pinned down where the not-knowing was.
-
-That the road to finding this name would, in the end, have to pass through the very middle of the place where values were weighed.
 
 ---
 

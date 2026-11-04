@@ -285,7 +285,7 @@ Ce n'est qu'alors que Haroun regarda Sion.
 
 « Ça, ne le compte pas. »
 
-Sion avait déjà entendu ces mots. Le premier jour, cet homme avait dit exactement la même chose. Que si l'on comptait, on saurait aussi quand viendrait la dernière fois.
+Sion avait déjà entendu ces mots. Tout à l'heure, cet homme avait dit exactement la même chose. Que si l'on comptait, on saurait aussi quand viendrait la dernière fois.
 
 Il avait cru alors qu'il parlait du nombre de décollages.
 

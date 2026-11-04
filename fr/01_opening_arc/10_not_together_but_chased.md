@@ -33,8 +33,6 @@ Elle posa le sachet de biscuits sur le bureau et ajouta :
 
 « Vous n'êtes pas venus ensemble. C'est ensemble qu'on vous a chassés jusqu'ici. »
 
-À ces mots, la gêne qui les suivait depuis la cabine se fendit encore une fois, finement.
-
 Seorin faillit être la première à rire.
 
 « Tu lis ça dès qu'on entre. »

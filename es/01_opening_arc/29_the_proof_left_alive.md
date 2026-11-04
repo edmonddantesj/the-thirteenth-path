@@ -51,8 +51,6 @@ Seorin no le respondió a eso. En cambio, volvió la mirada hacia Sion.
 
 —Explica.
 
-Con esa sola palabra, el aire del casco volvió a ordenarse.
-
 Sion apoyó la espalda en la pared, recobró el aliento y habló.
 
 —No era una posición.
@@ -147,8 +145,6 @@ Ater levantó los ojos.
 Kael se detuvo un momento ante esa mirada.
 
 —No es la primera vez.
-
-Con esa sola frase, el aire del casco cambió de forma casi imperceptible.
 
 Seorin no movió ni una ceja, pero Sion sintió que, dentro de ese breve silencio, ella ya estaba reordenando sus prioridades. Han Jiwoo frunció el entrecejo sin disimulo, y Sern, al contrario, se quedó aún más callado. La mirada de Ater no estaba prendida del fragmento que Kael tenía en las manos, sino de la frase que acababa de salir: «no es la primera vez».
 

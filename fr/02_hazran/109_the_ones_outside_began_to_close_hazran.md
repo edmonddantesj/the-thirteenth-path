@@ -34,8 +34,6 @@ La main posée sur la paroi extérieure, Aka parla.
 
 « Il suffit qu'il tienne assez pour envoyer. »
 
-Ces mots étaient cruels, mais exacts.
-
 Ce vaisseau n'avait pas besoin de revivre entièrement. Pour l'instant, il suffisait qu'il tienne assez pour emporter un peu plus loin dehors ceux qu'il fallait envoyer.
 
 Il en allait de même pour Hazran. Il ne s'agissait pas que la ville entière vive, mais qu'elle tienne encore assez pour envoyer des vivants.
@@ -73,13 +71,11 @@ Ce n'était pas une question, plutôt une moquerie qu'elle se lançait à elle-m
 
 Personne ne put répondre tout de suite.
 
-Cette phrase perça exactement l'air de la coque.
-
 Adossé à la paroi, Luhai parla.
 
 « N'empêche, Zahir a dit de partir. »
 
-Ces mots-là aussi ressemblaient à quelqu'un qui se persuade lui-même. Ses yeux restaient tournés vers le dehors.
+Ses yeux restaient tournés vers le dehors.
 
 Ce garçon était de Hazran. Voir sa propre ville se fermer depuis l'intérieur déchire les gens d'une autre manière.
 
@@ -88,7 +84,7 @@ Luhai parla bas.
 
 À ces mots, Sion s'effondra une fois de plus.
 
-Ce qui se fermait maintenant, ce n'était pas seulement le couloir. C'étaient les ruelles, les maisons, une odeur vers laquelle revenir. Pour Sion, Hazran était un endroit où il était arrivé pour la première fois trois jours plus tôt, mais pour ce garçon, c'était là qu'il était né.
+Ce qui se fermait maintenant, ce n'était pas seulement le couloir. C'étaient les ruelles, les maisons, une odeur vers laquelle revenir. Pour Sion, Hazran était un endroit où il était arrivé pour la première fois peu de temps auparavant, mais pour ce garçon, c'était là qu'il était né.
 
 « Quelle odeur ? »
 Sion posa la question.
@@ -155,19 +151,19 @@ Sion dégagea son bras.
 
 Après l'avoir dégagé, il n'alla nulle part. Il n'y avait nulle part où aller.
 
-L'intérieur de la coque était toujours étroit. Les seize étaient collés aux parois, et personne ne parlait. Les bruits du dehors n'arrivaient pas jusqu'ici. Une seule épaisseur de métal mince, et cette épaisseur avalait tous les sons.
+L'intérieur de la coque était toujours étroit. Les seize étaient collés aux parois, et personne ne parlait. Les bruits du dehors ne parvenaient ici que de loin. Une seule épaisseur de métal mince, et cette épaisseur avalait presque tous les sons.
 
 C'était ce qui paraissait le plus étrange à Sion. Toute la journée, il avait su les choses par les sons. Si le vaisseau était vide ou plein, de combien de pas l'autre côté avait avancé, qui frappait par en dessous : tout passait par le son.
 
 À présent, il n'y avait plus que les yeux.
 
-À la place, il se mit à compter.
+À la place, il compta.
 
-Il comptait depuis tout à l'heure. Depuis que Seorin lui avait dit de monter en comptant, il comptait sans s'arrêter. Tant que les nombres roulaient dans sa tête, ses mains ne tremblaient pas.
+Il ne traçait plus rien sur le tableau, mais dans sa tête il n'avait pas cessé de compter. Depuis que Seorin lui avait dit de monter en comptant. Tant que les nombres roulaient dans sa tête, ses mains ne tremblaient pas.
 
 À présent, il n'avait rien d'autre à faire.
 
-C'est alors qu'Aka parla bas pour la première fois.
+C'est alors qu'Aka parla bas.
 
 « Regardez. »
 
@@ -176,12 +172,6 @@ Tous regardèrent de son côté.
 Aka regardait toujours dehors.
 
 « Il faut regarder jusqu'au bout. »
-
-Ce furent des mots brefs.
-
-Sion crut comprendre ce qu'ils voulaient dire.
-
-Ne pas vivre en faisant semblant de ne pas savoir. Ne pas partir comme on s'enfuit, et voir de ses propres yeux, jusqu'au bout, comment Hazran se fermait, qui restait et ce que chacun portait.
 
 Sion regardait.
 
@@ -195,7 +185,7 @@ Aka regarda du côté de Sion. C'était la première fois aujourd'hui.
 
 « Tu comptes ? »
 
-« Tu comptes, je le vois bien. »
+« Je compte, tu vois bien », répondit Sion.
 
 « …Oui. »
 

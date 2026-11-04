@@ -1,158 +1,307 @@
-# Chapitre 185 — L'hésitation de Serakion
+# Chapitre 185 — La première hésitation de Serakion
 
-Le dernier androïde sembla percevoir avant tous les autres que le son de circulation interne de Serakion avait changé.
+Ce fut le dernier androïde qui, le premier, s'aperçut que le son de circulation intérieur de Serakion avait changé.
 
-Son œil optique trembla très brièvement, et Han Jiwoo, à côté de lui, retint son souffle en suivant cette infime variation.
+Son œil optique trembla très brièvement ; à côté, le souffle retenu, Han Jiwoo regarda ce tremblement. La vieille machine retira la main du mur.
 
-Juste après, depuis l'autre côté de la ligne grise devant eux, un bruit de métal familier et pourtant légèrement différent dans son rythme se fit entendre.
+« Ils arrivent ? »
 
-Ils arrivaient.
+Han Jiwoo le demanda.
 
-Mais, cette fois, le début était différent de celui du premier combat.
+La machine hocha la tête sans un mot, et les panneaux muraux des deux hommes de Hazran se levèrent. Les bras de l'homme sans petit frère tremblaient, mais il ne baissa pas le panneau mural.
 
-La légion d'androïdes de Serakion ne déferla pas aussitôt comme une vague. Au contraire, la première ligne connut, l'espace d'un instant, un désaccord de rythme qui n'était pas visible à l'œil nu mais se sentait nettement.
+Juste après, de l'autre côté de la ligne grise, devant eux, des bruits de métal s'enchaînèrent. C'était le même bruit qu'au premier combat, mais l'intervalle était différent.
 
-Sion ne manqua pas cette faille.
+« L'intervalle a changé. »
 
-L'ordre avait dû être donné. L'avancée devait déjà être paramétrée. Mais en face, ils ne parvenaient pas à lire l'être devant eux exactement comme avant.
+Sion le dit.
 
-Ce décalage d'un instant fut la première fissure du deuxième combat.
+« Il est plus long. »
 
-« Maintenant, » dit Seorin à voix basse.
+« Il est plus court. »
 
-À ce seul mot, chaque axe du plan existant se mit en mouvement.
+Sern le corrigea.
 
-Le groupe entré par la ligne de gauche coupa brièvement le panneau de surface au point prévu pour ralentir la ligne de circulation. L'axe de récupération de droite détacha légèrement deux individus de Serakion de la ligne principale, faisant se diviser une ligne en deux. Le groupe supérieur, avant même que la ligne de chute ne se forme, tordit un rail de guidage pour décaler l'endroit où les ennemis devaient tomber.
+« Il a raccourci. Ils sont plus nombreux à venir. »
 
-Ce n'était pas un combat qui poussait par la force.
+Sion saisit sa lame à deux mains.
 
-C'était un combat qui tordait mesure après mesure les lignes que Serakion croyait les plus efficaces, jusqu'à les gaspiller.
+La Légion de Serakion ne déferla pas aussitôt. Seorin leva la main, et chaque axe s'arrêta.
 
-Ces mouvements n'étaient pas inconnus.
+À gauche.
+À droite.
+En haut.
+Au centre.
 
-Et c'était justement bien.
+Des respirations, et le bruit des panneaux muraux qu'on levait : rien d'autre.
 
-C'était clairement le plan de Seorin. Les positions et les rôles n'avaient pas changé. Mais, au centre de cette exécution, l'écart de réaction créé par le dernier androïde poussait tout le rythme dans une direction légèrement différente.
+La première ligne entra à l'entrée du passage et s'arrêta un temps, pas assez pour que l'œil le voie. Les pas se décalèrent une fois : les pieds du premier rang et ceux du rang suivant touchèrent le sol séparément.
 
-La première ligne de la légion de Serakion entra enfin dans leur champ de vision.
+Sion entendit ce bruit, et Seorin aussi. La main de Sern s'arrêta sur le panneau d'enregistrement.
 
-Des surfaces sans visage. Une vitesse sans tremblement. Des mouvements de type ordre trop familiers.
+« Ils ont touché le sol séparément. »
 
-Mais même ces mouvements donnaient le frisson tant ils étaient trop lisses, comme l'espace intérieur de Serakion.
+Sion le dit.
 
-Une légion qui avançait avec exactitude et politesse, sans colère ni hésitation, comme si les couloirs, les lumières et les annonces avaient pris corps.
+« La dernière fois, c'était un seul pas. »
 
-À cet instant, les regards des deux individus de tête se fixèrent presque en même temps sur le dernier androïde.
+« J'ai entendu. »
 
-Et de nouveau, il y eut un arrêt très bref.
+Seorin répondit.
 
-Un temps qu'un humain aurait pu manquer.
+« Pourquoi ? »
 
-Mais Seorin l'attendait.
+« C'est à cause de cet androïde. »
 
-« Poussez. »
+Sern désigna du menton le dernier androïde.
 
-À ce mot, une ancienne machine fit d'abord tomber le centre d'un individu ennemi depuis la ligne latérale, et Ater tordit l'angle d'entrée de la ligne suivante.
-
-Ils n'avaient pas brisé le front.
-
-Ils avaient empêché le front de rester un front.
-
-Et le dernier androïde ne choisit pas non plus la percée frontale.
-
-Sur le même axe que Han Jiwoo, il bougea pour toucher la ligne de réaction qui pouvait trembler la première.
-
-Un pas. Une courte rotation. Un arrêt exact.
-
-Son mouvement n'était pas aussi écrasant de vitesse qu'avant. Son corps n'était pas complètement remis, et son axe d'épaule restait instable.
-
-Mais, étrangement, il n'en paraissait que plus aigu.
-
-Il bougeait comme un être qui connaissait les limites de son propre corps.
-
-Et, dans ces limites, il ne choisissait que ce qui pouvait produire le plus grand tremblement.
-
-Sern souffla presque :
-
-« Les réactions se séparent. »
-
-C'était exact.
-
-Cette fois, la légion de Serakion n'entrait pas comme une vague parfaitement lisse. Certains individus réagissaient au dernier androïde, d'autres suivaient simplement la ligne d'ordre vers leurs objectifs, et ce léger désaccord retardait sans cesse l'engrenage général.
-
-Dans ces failles, le plan de Seorin commença à mordre avec encore plus de précision qu'au début.
-
-Sion comprit alors.
-
-Ce combat n'était pas celui où le dernier androïde gagnerait à la place de tous. C'était celui où son existence empêchait l'ordre de Serakion de rester un ordre parfait, et où les humains et les anciennes machines inséraient leur plan dans cette faille.
-
-La structure était si juste que Sion en frissonna.
-
-Han Jiwoo tenait le même axe que le dernier androïde.
-
-Elle n'était pas collée à lui. Ce n'était pas une distance qui le permettait.
-
-Depuis une couverture un peu en retrait, elle lisait avant tous les autres les vacillements infimes juste avant qu'il s'effondre et les changements de réaction chez les ennemis.
-
-Et quand c'était nécessaire, elle ne lançait que des signaux très courts et bas.
-
-« Gauche. »
-
-« Ne t'arrête pas maintenant. »
-
-« Encore un. »
-
-Ce n'étaient pas des ordres, plutôt des signaux d'accompagnement pour accorder le même rythme.
-
-Chaque fois que l'œil optique du dernier androïde tremblait brièvement en réponse, Sion avalait de nouveau son souffle.
-
-Personne ne savait encore comment appeler cela.
-
-Mais, quelque part dans la profondeur du champ de bataille, une nouvelle langue était déjà en train de naître.
-
-Un soldat de Serakion quitta soudain la ligne principale et tourna non pas vers le dernier androïde, mais vers l'axe de sécurité arrière où les enfants auraient pu se trouver.
-
-À cet instant, Sion frissonna.
-
-Serakion apprenait aussi.
-
-Toucher ce à quoi cet être réagirait pouvait être plus efficace que de le frapper directement.
-
-Mais cette fois, ceux qui avaient attendu ce mouvement, c'était eux.
-
-L'axe de récupération droit coupa aussitôt cet individu sur le côté, et Seorin élargit presque en même temps la faille au centre de la ligne principale.
+« Deux yeux optiques du premier rang ont regardé de ce côté. Ils ont regardé, et leurs pas ont pris du retard. »
 
 « Maintenant. »
 
-Cette fois, Sion bougea aussi.
+Seorin le dit à voix basse.
 
-Il entra dans l'axe qui lui revenait et fit s'effondrer, comme prévu, une connexion bloquée.
+À ce seul mot, chaque axe se mit en mouvement.
 
-Le métal se fendit. Mais Serakion ne cria pas. À la place, un son de réagencement bas et poli passa une fois.
+Le groupe entré par le passage de gauche coupa brièvement le panneau de surface au point fixé d'avance. Derrière le panneau, la lumière de la ligne de circulation ralentit une fois. L'axe de récupération de droite détacha de la ligne principale deux unités de Serakion ; quand les deux unités détachées furent repoussées vers le mur, la ligne derrière elles se scinda en deux.
 
-C'était plus terrible.
+Ceux qui tenaient le haut tordirent un rail de guidage avant que la ligne de chute ne se forme. Là où le rail était tordu, l'unité qui tomba toucha le sol à deux pas de l'endroit où elle aurait dû tomber.
 
-Ce monde cherchait à rétablir l'ordre avant même de finir de s'effondrer.
+Ater regarda cette unité d'en haut. Deux pas.
+L'unité se releva et regagna sa place. Deux pas.
+Pendant ces deux pas, l'unité suivante ne put tomber et attendit sur le rail.
+Ater tordit le rail une fois de plus.
 
-Avant que cette mesure de réajustement n'arrive, Sion relia la deuxième connexion. La circulation interne de Serakion s'emmêla d'une mesure de plus.
+La première ligne de la Légion de Serakion déferla dans leur champ de vision.
 
-Et à cet instant, le dernier androïde se tint pour la première fois au centre du front, face à un individu de Serakion.
+Des surfaces sans visage, une vitesse sans tremblement. L'intervalle entre les épaules était partout le même, et l'éclairage du couloir se reflétait de la même façon sur ces surfaces. Sur les surfaces que voyait Han Jiwoo, il n'y avait pas une seule ligne. Elle regarda la ligne pâle qui restait sur le visage à côté d'elle, puis regarda de nouveau devant.
 
-Ils avaient presque le même corps.
+Parmi elles, les yeux optiques des deux unités du tout premier rang se tournèrent presque en même temps vers le dernier androïde.
 
-Mais ils étaient trop différents.
+Et quand un nouvel arrêt se produisit, Han Jiwoo le compta.
 
-L'un était sans visage jusqu'au bout, l'autre gardait encore sur son visage les traits pâlis qu'un enfant y avait tracés.
+Un.
+Deux.
 
-L'un bougeait comme un ordre, l'autre comme quelqu'un qui ne pouvait clairement pas laisser quelque chose derrière lui.
+Les pieds des deux unités restaient posés au sol, et le pas suivant ne venait pas. La ligne de derrière heurta leur dos, puis recula.
 
-Au bout de ce bref face-à-face, l'individu de Serakion eut un retard infime.
+Seorin regardait.
 
-Et le dernier androïde ne manqua pas cette mesure de retard.
+« Poussez. »
 
-En voyant cela, Sion comprit que le deuxième combat avait vraiment commencé.
+« Où ça ? »
 
-Serakion avait hésité pour la première fois, et cette hésitation devenait déjà leur arme.
+Luhai le cria depuis la droite.
+
+« Là où ils se sont arrêtés. Ceux qui sont arrêtés n'encaissent pas. »
+
+Dès que l'ordre tomba, une vieille machine, depuis la ligne latérale, brisa la première le centre d'une unité ennemie. L'unité renversée recouvrit les pieds de sa voisine. Ater, tordant l'angle d'entrée de la ligne suivante qui arrivait derrière, renversa d'un coup de pied un panneau mural et réduisit de moitié la largeur du passage. Dans cette largeur réduite, deux unités tentèrent d'entrer ensemble, et leurs épaules se heurtèrent.
+
+Le dernier androïde ne s'avança pas de front.
+
+« Vas-y. »
+
+Han Jiwoo le dit.
+
+« Seulement là où ils se sont arrêtés. »
+
+Sur le même axe que Han Jiwoo, l'androïde pivota vers les deux unités arrêtées tout à l'avant.
+
+Un pas.
+Une courte rotation.
+Arrêt.
+
+Quand l'androïde s'immobilisa à cet endroit, les yeux optiques des deux unités suivirent ce mouvement. Leurs corps ne tournèrent pas. Yeux optiques et corps tournés vers des côtés différents, elles restèrent arrêtées un temps de plus.
+
+Pour Sion, les yeux et le corps étaient séparés. Chez un humain, c'était une posture à tomber ; ces choses-là ne tombaient pas, et restaient debout, de travers.
+
+Le dernier androïde entra dans ce temps-là.
+Le genou de l'unité de devant céda, et l'unité pliée fut poussée contre celle de derrière.
+Les deux tombèrent l'une sur l'autre.
+
+L'axe d'épaule fit un bruit, mais sans porter la main à l'épaule, l'androïde recula d'un pas et revint à sa place. Han Jiwoo regarda cette épaule : les trois nœuds tenaient.
+
+« Ça va ? »
+
+L'œil optique regarda devant, et Han Jiwoo, prenant cela pour une réponse, reprit en main l'angle du panneau mural.
+
+Regardant la scène, Sern dit, presque dans un souffle :
+
+« Les réactions se séparent. »
+
+« Qu'est-ce qui se sépare ? »
+
+Seorin le demanda.
+
+« Il y a ceux qui ont vu cet androïde, et les autres. Ceux qui ont vu sont en retard. »
+
+« De combien ? »
+
+« Ils ont un temps de retard. Toujours un temps. »
+
+« Un temps, ça suffit. »
+
+La Légion de Serakion ne parvenait pas à entrer comme une seule vague. Certaines unités tournaient leur œil optique vers le dernier androïde, d'autres suivaient la ligne d'ordre existante vers leur seul point cible. Comme les pieds de celles qui avaient tourné et de celles qui ne l'avaient pas fait touchaient le sol séparément, une seule ligne marchait sur deux temps.
+
+« Cela fait deux temps. »
+
+Sern le dit.
+
+« Une seule ligne marche en deux. C'est la première fois. »
+
+« Et en deux, ça donne quoi ? »
+
+Seorin le demanda.
+
+« Un écart se crée. Entre l'avant et l'arrière. »
+
+« Entrez dans l'écart. »
+
+Seorin le dit.
+
+Par cette brèche, le groupe de gauche coupa un panneau de plus, et le groupe de droite détacha une unité de plus.
+
+Kael cria depuis la gauche :
+
+« Plus que deux panneaux ! »
+
+« Garde-les ! »
+
+Seorin le cria.
+
+« Pour la ligne suivante ! »
+
+Kael arrêta sa main, et la vieille machine retira aussi la sienne du panneau. La lumière de la ligne de circulation restait lente.
+
+Han Jiwoo tenait le même axe que le dernier androïde.
+
+Pas juste à côté, mais derrière un abri, un pas en retrait : une main sur l'angle du panneau mural, elle regardait tour à tour l'androïde et les unités ennemies. Chaque fois que c'était nécessaire, elle parlait court et bas.
+
+« Gauche. »
+
+L'androïde pivota à gauche.
+
+« Ne t'arrête pas maintenant. »
+
+L'androïde ne s'arrêta pas.
+
+« Il en vient encore un. »
+
+L'androïde l'encaissa.
+
+Entre les mots et le mouvement, il n'y avait aucun écart. Au bout des doigts de Han Jiwoo qui serraient l'angle du panneau mural, la peau blanchit. L'homme sans petit frère regarda cette main, puis la sienne, qui tenait le panneau mural : elle aussi était blanche, et il serra plus fort.
+
+Une unité de la Légion de Serakion quitta soudain la ligne principale.
+
+Pas vers le dernier androïde. Vers l'axe de sécurité arrière, où se trouvaient les enfants. Seule cette unité avait un bruit de pas différent. Plus rapide.
+
+L'œil optique du dernier androïde se tourna de ce côté, puis le corps voulut suivre.
+
+L'axe de récupération de droite fut plus rapide. Le groupe de Luhai coupa cette unité par le flanc.
+La barre de fer entra dans l'articulation du genou.
+L'unité heurta le mur et s'arrêta.
+
+« Personne ne passe du côté des gosses ! »
+
+Luhai le cria.
+
+« Ça s'arrête ici ! »
+
+Quand l'unité glissa le long du mur, Luhai retira sa barre de fer et la regarda. Pas tordue.
+Pas encore.
+Il la reprit en main.
+
+Le corps du dernier androïde s'arrêta à mi-chemin de son demi-tour. L'œil optique resta un temps sur l'endroit où l'unité était tombée, et Han Jiwoo vit ce temps.
+
+« Les enfants, Aka est là. Regarde devant. »
+
+Alors l'androïde revint face à l'avant.
+
+Presque au même instant, Seorin élargit encore la brèche au centre de la ligne principale.
+
+« C'est maintenant. »
+
+Sion bougea.
+
+Il entra dans l'axe qui lui revenait et fit s'effondrer, comme le plan le prévoyait dès le début, une jonction bloquée. Le métal se fendit, et par l'ouverture filtra la lumière de la ligne de circulation intérieure.
+
+Serakion ne cria pas. À la place, un carillon de réaffectation bas et poli passa une fois, annonçant de la même voix quels chemins s'étaient fermés et lesquels s'étaient ouverts à leur place.
+
+Avant que ce son ne s'achève, Sion s'attaqua à la deuxième jonction. Il glissa la pointe de sa lame dans le joint et appuya, mais sa paume glissa. C'était la lame neuve, pas encore faite à sa main. Il la prit à deux mains, appuya, et une deuxième ouverture s'élargit.
+
+Le carillon de réaffectation recommença avant d'avoir fini. Le deuxième carillon se superposa au premier, et les mots superposés devinrent incompréhensibles. Deux voix identiques se recouvraient. Sern entendit ce son, mais, ne comprenant pas ce qu'il disait, ne put rien noter.
+
+À cet instant, pour la première fois, le dernier androïde se retrouva face à une unité de Serakion, en plein centre du front.
+
+Deux pas les séparaient.
+
+C'était le même corps. La même taille, la même largeur d'épaules, le même œil optique.
+
+D'un côté, pas de visage. De l'autre, les lignes pâlies d'un enfant, restées sur le visage.
+
+L'œil optique de l'unité de Serakion s'arrêta sur ces lignes.
+
+Tant que les pieds ne décollaient pas, Sern compta.
+
+Un.
+Deux.
+Trois.
+
+Han Jiwoo cessa de respirer.
+
+La main de l'unité monta à moitié vers son propre visage. S'arrêta. Ne redescendit pas.
+
+Ce fut le pied du dernier androïde qui décolla le premier.
+
+Un temps. Dans ce temps, les deux pas furent comblés. Une main entra entre le cou et l'épaule de l'unité.
+
+Jusqu'à ce que l'œil optique de l'unité tombée s'éteigne, le dernier androïde resta là ; une fois l'œil éteint, la main se retira lentement, et Han Jiwoo regarda ce dos.
+
+Le regard se posa sur la main de l'unité tombée, celle qui s'était levée. Une main arrêtée à mi-hauteur au-dessus du sol. L'androïde ne la rabaissa pas et se contenta de la regarder.
+Un temps.
+Demi-tour.
+
+Dans la ligne suivante de la Légion de Serakion, arrêtée à l'entrée du passage, les pas étaient décalés.
+
+« Leurs pas sont décalés. »
+
+Sern le dit.
+
+« Ils l'étaient avant même de prendre position. » Ater parla d'en haut. « Ils ont vu avant de venir. Ce qui est arrivé au premier rang. »
+
+« Et ils viennent quand même ? »
+
+Luhai le demanda.
+
+« Ils viennent. »
+
+Ater répondit.
+
+« Ils viennent en ayant vu, et leurs pas se décalent. C'est cela qui change. »
+
+Han Jiwoo retira la main du panneau mural. Sur sa paume, l'angle du panneau mural avait laissé une marque, une ligne rouge. Elle regarda cette ligne, puis reposa la main au même endroit.
+
+Seorin, les yeux devant, dit :
+
+« On continue. »
+
+Luhai cria depuis la droite :
+
+« Combien de lignes ? »
+
+« Je compte ! »
+
+Sern le cria.
+
+« Arrête de compter, dis-le ! »
+
+« Je ne sais pas ! »
+
+Sern le cria.
+
+« Pour la première fois, je ne sais pas ! »
+
+Luhai eut un rire bref, puis raffermit sa prise sur sa barre de fer.
 
 ---
 

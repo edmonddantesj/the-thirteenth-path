@@ -73,8 +73,6 @@ Luhai snapped back at once.
 
 "Then does it mean you're smart?"
 
-The air in the alley stopped, very briefly.
-
 The merchant's face went ashen, and a few of the onlookers looked away outright. Even in Hazran's outer layer, a mouth like that could carry a high price. The kind of mouth that was fun if it survived and broke on the spot if it caught on the wrong person.
 
 And yet Nasim did not put his smile away.
@@ -157,8 +155,6 @@ Nasim tilted his head very slightly.
 he answered.
 "What else would I look at?"
 
-He wasn't wrong, and that made it more unpleasant.
-
 At the end of that short exchange, Sion turned his thoughts back to the name Aka. Aka was very likely being moved around here the same way. As a price, not a name; as something under management, not a rumor. The sense that Etherite and Aka might sit under the same line was getting thicker and thicker.
 
 Luhai was still held in Kael's grip, but his mouth did not stop.
@@ -205,8 +201,7 @@ People stepped back one more pace, the merchant bowed his head outright, and the
 
 Nasim murmured, very low.
 
-"Now the hand that really counts is coming,"
-he said.
+"Now the hand that really counts is coming."
 
 Sion didn't ask what he meant.
 

@@ -4,15 +4,11 @@ Seorin spoke first.
 
 "Why is it so quiet?"
 
-The air inside the hull stopped for a beat.
-
 Only on hearing that did Sion realize he hadn't been counting it. He had counted the water and counted the people and failed to count the time, but no one had counted what might have latched on behind them.
 
 "Once we got out this far, they should've bitten already,"
 Seorin said.
 "They're not biting. Not nearly enough."
-
-Sion knew at once that she was right.
 
 Until the whole inside of Hazran collapsed, the other side had never once pulled back. Every time a ship lifted they went for the passage, and they didn't stop even when the last line was buried.
 
@@ -39,7 +35,7 @@ Sion thought the distinction was very much Kael. Even in the Hazran market this 
 
 Sern raised his head from the panel.
 
-"Even a side that could not keep up would have latched on long ago,"
+"If they could have followed us, they would have latched on long ago,"
 he said.
 "The quiet is stranger."
 
@@ -134,7 +130,7 @@ There was no telling whether it had grown or had always been like this. With not
 
 Sion scratched a short line at that spot with his fingernail.
 
-It was an arm's length from the line he had scratched beside the panel yesterday.
+It was an arm's length from the mark he had scratched beside the panel yesterday.
 
 "Why the line?"
 Luhai asked.
@@ -260,7 +256,7 @@ Han Jiwoo went half a span farther before she took her hand away.
 
 She said nothing. Sion didn't ask.
 
-Sion brought his fingernail out again and scratched a second line at that place. Half a span from the first.
+Sion brought his fingernail out again and scratched a second line at that place. Half a span from the first one he had scratched today.
 
 Now there was something to measure.
 

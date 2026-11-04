@@ -108,7 +108,7 @@ Luhai muttered, still looking as if he could hardly believe it.
 
 "So really… each one's taking it in differently."
 
-No one answered that. No one said he was wrong, either.
+No one answered that.
 
 A woman from Hazran had been standing behind the children, and, watching the scene with slightly wet eyes, she spoke very softly.
 
@@ -116,7 +116,7 @@ A woman from Hazran had been standing behind the children, and, watching the sce
 
 The children didn't hear it, and the adults didn't ask. The woman pressed the corner of her eye once with her hand. She was the woman who came with two children.
 
-Her two children were up ahead. One was drawing eyes, and the other, beside them, was dabbing soil onto their fingers. She didn't go to them. She stood there, two steps from the wall.
+Her two children were up ahead. One was drawing eyes, and the other, beside them, was dabbing soil onto their fingers. She didn't go to them. She stood there, three steps from the wall.
 
 That was when it happened.
 
@@ -146,7 +146,7 @@ Someone spoke first, low.
 
 The moment the words fell, Han Jiwoo's face stiffened, very faintly.
 
-He was the man who had been rescued and brought in a few days ago. He'd been injured, said little, a man who always kept close to the wall. Even at meals he was last in line, and after he got his food he went back to the same spot.
+He was the man who had been keeping close to the wall for the past few days. He'd been injured, said little, and his hands were always caked with soil. Even at meals he was last in line, and after he got his food he went back to the same spot.
 
 One by one, people turned to look at the empty cloth. The shape of where he had sat was still pressed into it.
 
@@ -156,7 +156,7 @@ At that moment, the android that had just been given a smiling mouth turned its 
 
 It moved not toward the children, but toward the darkness past the gray route, where no sound could be heard yet.
 
-Then two other androids moved their eyes in nearly the same direction. The third was half a beat behind.
+Then two other androids moved their eyes in nearly the same direction. One of those two was half a beat behind.
 
 One step at a time, very slowly, they began to move themselves, not in front of the children, but between the children and that darkness. When one stopped, the one beside it matched the spacing. The three became a line.
 

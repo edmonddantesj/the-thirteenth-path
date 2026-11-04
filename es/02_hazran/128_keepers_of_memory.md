@@ -1,200 +1,194 @@
-# Capítulo 128 — Los que guardan la memoria
+# Capítulo 128 — Los que llevan la memoria
 
-Después de que apareció la máquina más vieja,
-el aire de alrededor se aquietó de forma notoria.
+Después de que apareció la máquina vieja, todo alrededor quedó en silencio.
 
-Nadie había ordenado silencio.
-Pero quienes llevaban mucho tiempo en este espacio
-parecían acostumbrados a no añadir ruido antes de que aquella máquina abriera la boca.
+Nadie había ordenado silencio. Los seres que llevaban mucho tiempo en aquel espacio no añadían ningún sonido antes de que aquella máquina hablara. Desde dentro solo llegaba el ruido del agua al hervir.
 
-Sion lo entendió enseguida al verlo.
+La máquina vieja contempló un rato a los recién llegados y luego desplazó la mirada despacio.
 
-Eso no era simplemente una máquina vieja.
-Dentro de esta comunidad,
-estaba más cerca de ser quien sostenía el tiempo mismo en su lugar.
+Los heridos, los ancianos, los niños, los que se empeñaban en seguir de pie hasta el final.
 
-La máquina más vieja contempló un rato a los recién llegados
-y luego movió la mirada despacio.
+Uno de los que se empeñaban en seguir de pie era el anciano de Hazran. Mientras estaba de pie, con la espalda despegada de la pared, le temblaban las rodillas; aun así, no se sentó.
 
-Los heridos,
-los ancianos,
-los niños,
-y los que intentaban seguir en pie hasta el final.
+La máquina vieja volvió a hablar.
 
-En esa mirada no estaba el ser leído que se veía en la Serakion de arriba.
-Pero tampoco era una mirada vacía.
+—No tenemos piezas médicas de sobra. Aun así, damos prioridad a los cuidados que hacen falta ahora.
 
-Más bien, de tanto haber visto demasiados casos,
-estaba más cerca de una mirada que no pone nombre con facilidad.
+Con esas palabras, algunas de las otras máquinas que estaban dentro se pusieron en movimiento de inmediato.
 
-Aquella máquina volvió a hablar.
+En silencio, sin que ninguna máquina alzara la voz, una abrió una caja de la que salieron telas, y otra llevó cuencos de agua. Una tercera máquina se arrodilló delante del hombre herido, y le sonó la rodilla.
 
-—Las piezas médicas no abundan.
-—Aun así, el tratamiento que ahora hace falta tiene prioridad.
+Los heridos, con los heridos, hacia el lado de la pared; los niños y los ancianos, hacia el fondo, donde hacía calor; los que podían caminar, a cargar cajas.
 
-Junto con esas palabras,
-varias de las otras máquinas del interior se movieron al instante.
+Luhai lo vio y miró a Seorin, y al ver que Seorin negaba con la cabeza, cerró la boca.
 
-Eran asombrosamente silenciosas,
-y aunque ninguna alzó la voz,
-el espacio empezó a reorganizarse muy rápido.
+Al anciano de Hazran le hicieron un gesto para que fuera hacia el fondo, pero no fue; se quedó pegado a la pared. La máquina no volvió a hacerle el gesto; en cambio, le dejó un cuenco de agua delante de los pies y se fue, y el hombre, al cabo de un buen rato, lo recogió.
 
-Pero era distinto de la disposición de la Serakion de arriba.
+Parecía el mismo reparto, pero había algo distinto. Allá arriba, las máquinas se plantaban delante de las personas y señalaban el camino; aquí, las máquinas venían hacia las personas con las cajas en las manos. Si las personas no se movían, se movían las máquinas.
 
-Aquí no era una clasificación para separar a la gente,
-sino una reorganización de urgencia para que nadie muriera ni se rompiera ya.
+Las manos de las máquinas que se movían, tal como las veía Han Jiwoo, eran toscas. Una tenía cuatro dedos; a otra la muñeca se le doblaba al revés. Como las piezas no encajaban, los ángulos eran distintos. Al tomar una tela, aquella mano la dejó escapar dos veces y a la tercera la agarró. Después, cuando la puso sobre la pierna del hombre herido, no se le escapó.
 
-Los heridos con los heridos,
-los niños y los ancianos a un espacio más cálido y más adentro,
-los que aún podían caminar al lado que ayudaba a cargar provisiones y a sostener.
+Un niño, asustado al ver las telas de curar, se escondió detrás de la ropa de un adulto.
 
-Las funciones se repartían.
-Pero no se separaba el valor.
+Una de las máquinas del fondo detuvo las manos y, muy despacio, bajó la rodilla hasta la altura de los ojos del niño; mientras lo hacía, le sonó la rodilla.
 
-Sion sintió justo esa diferencia.
+La máquina no dijo palabras para calmarlo; extendió la mano delante del niño, con el dorso hacia arriba.
 
-Aunque pareciera la misma clasificación,
-la Serakion de arriba intentaba fijar a la gente según su propio orden,
-y aquí miraban primero quién iba a apagarse antes
-y se aferraban a los más urgentes.
+El dorso de metal arañado, las articulaciones gastadas, las conexiones con el color del todo desgastado por el uso. A uno de los dedos le faltaba la punta.
 
-Han Jiwoo pareció notarlo también,
-y observó largo rato las manos de las máquinas que se movían.
+El niño miró aquella mano y dejó de llorar. Su mano se soltó de la ropa del adulto y se acercó al dorso de la máquina, pero no lo tocó. Como la máquina no movía la mano, el niño tocó con un dedo un arañazo del dorso, y mientras tanto la máquina siguió quieta.
 
-Las máquinas de arriba estaban bellamente entrenadas hasta la punta de los dedos.
-Pero este lado era distinto.
+—¿Te duele?
 
-Eran toscas,
-priorizaban la costumbre antes que la eficiencia,
-y a algunas, como las piezas no encajaban, el ángulo de los dedos también variaba un poco.
+Lo preguntó el niño.
 
-Pero, extrañamente,
-por eso parecían más cuidadosas al tocar a una persona.
+La máquina no respondió; dio la vuelta a la mano y dejó la palma hacia arriba. En la palma también había arañazos, y el niño los tocó también.
 
-Cuando un niño se asustó al ver una tela de curación,
-una de las máquinas viejas detuvo la mano y bajó muy despacio a la altura de la rodilla.
+El adulto sujetó al niño por el hombro. No tiró de él. Solo lo sujetaba.
 
-No dijo palabras de consuelo.
-En cambio, dejó que el niño le mirara primero la mano.
+Aka, que miraba la escena, murmuró en voz baja.
 
-El dorso metálico marcado.
-La articulación gastada.
-La conexión descolorida de tanto uso.
+—Aquí no lo esconden.
 
-Al verlo, el niño dejó de llorar.
-
-Aka observó la escena y murmuró por lo bajo.
-
-—Este lado no esconde.
-
-No se podía saber si la máquina vieja había oído esas palabras.
-Pero poco después,
-la máquina que había abierto el camino al principio habló muy bajo.
+No se podía saber si la máquina vieja había oído aquello. Poco después, la máquina que les había abierto el camino al principio habló muy bajo.
 
 —Si se esconde, se asustan más.
 
-Luhai lo oyó y soltó una risa baja por la nariz.
+Luhai, al oírlo, soltó un leve resoplido burlón.
 
-—Qué raro —dijo—. Que dé menos miedo por estar menos entero.
+—Qué raro. Que dé menos miedo justo porque está menos entero.
 
-Esta vez respondió Han Jiwoo.
+Esta vez fue Han Jiwoo quien respondió.
 
-—Porque no finge estar entero.
+—Es que no finge estar entero.
 
-Tras esa frase,
-hubo un instante de silencio.
+Luhai miró a Han Jiwoo, pero Han Jiwoo miraba la mano de la máquina. El niño seguía tocándole el dorso.
 
-Y en ese breve silencio,
-Sion sintió que se le aclaraba una sensación más que separaba el arriba y el abajo de Serakion.
+Mientras corría un breve silencio, el ruido del agua al hervir se hizo más fuerte. Desde dentro, el sonido de alguien dejando un cuenco.
 
-El de arriba es un mundo que finge ser completo.
-Este es un mundo que no esconde que está roto.
+La mujer del rostro cansado salió con cuencos de agua y los puso primero delante de los niños de Hazran, luego delante de los ancianos, luego delante de los heridos. Delante del grupo de Sion no puso ninguno, pero Seorin, aunque lo vio, no dijo nada.
 
-Esa diferencia,
-ahora mismo, mantenía viva a la gente.
+La mujer miró a Seorin.
 
-Poco después,
-la máquina más vieja volvió la mirada hacia el grupo de Sion.
+—Ustedes pueden caminar.
 
-—Este no es un lugar para aguantar mucho.
-—Está más cerca de un lugar que permanece para pasar la memoria
-y hacer que el próximo fracaso sea menos grande.
+—Lo sé.
 
-Sion repitió esas palabras para sí.
+Seorin respondió.
 
-Pasar la memoria.
+La mujer asintió y volvió a entrar.
+
+Poco después, la máquina vieja volvió a dirigir la mirada hacia el grupo de Sion.
+
+—Aquí no es un lugar para aguantar mucho tiempo. Se parece más a un lugar que queda para pasar la memoria y hacer que el próximo fracaso sea menos grande.
+
+Sion repitió esas palabras sin decirlas en voz alta.
 
 Aka reaccionó primero.
 
 —¿A quién?
 
-El ojo óptico de la máquina más vieja tembló de forma mínima.
+El ojo óptico de la máquina vieja tembló de forma mínima, y su luz irregular se volvió irregular una vez más.
 
-—A quien todavía no se ha averiado.
+—A quienes todavía no se han averiado.
 
-Esa respuesta era extrañamente fría.
-Pero dentro de ella había, a la vez, la resignación y la voluntad que solo puede tener quien ha resistido mucho.
+Aka miró las tres marcas de soldadura bajo el cuello de la máquina vieja.
 
-Han Jiwoo, sin darse cuenta, miró esa máquina más tiempo.
-
-Eso no era ahora un arma viva ni una máquina de gestión.
-Más bien,
-estaba más cerca de algo que había resistido más allá de su función
-para recordar los nombres, los fracasos y las rutas que no dejan de desaparecer.
+Han Jiwoo miró largo rato a aquella máquina. Las piezas de otro modelo en las articulaciones, el ojo óptico irregular, las tres marcas. Puso la mano sobre su bolsa de herramientas y la retiró.
 
 Sern preguntó en voz baja.
 
-—¿Ustedes operan este lugar?
+—¿Son ustedes quienes operan este lugar?
 
-La máquina más vieja negó enseguida con la cabeza.
+La máquina vieja negó con la cabeza enseguida, pero la cabeza tardó en girar.
 
-—No operamos.
-—Mantenemos.
+—No operamos. Mantenemos.
 
-Un breve silencio.
+Sern anotó las dos palabras una junto a otra en el panel de registro, y Ater, mirando el panel de registro, miró el espacio entre ambas palabras.
 
-La diferencia entre esas dos palabras
-sonaba como todo lo que era esta comunidad.
+—¿Cuál es la diferencia?
 
-Operar significa orden.
-Mantener significa retrasar el colapso.
+Lo preguntó Ater, dirigiéndose a la máquina vieja.
 
-Y este lugar,
-sin duda, era lo segundo.
+—Operar aumenta.
 
-Del interior, dos humanos salieron cargando una caja de provisiones,
-y otras dos máquinas, sin una palabra, se repartieron ese peso.
+La máquina vieja respondió.
 
-El movimiento era natural.
-Pero, más que una cooperación habituada,
-parecía un acuerdo logrado a duras penas tras largas incomodidades.
+—Mantener disminuye menos.
 
-Al verlo, Sion sintió por primera vez
-que este no era simplemente un sitio donde se reunían los que se esconden.
+Ater asintió una vez ante esas palabras.
 
-Este no era un lugar solo para combatir.
-Este era una estructura que, dentro de un mundo que sigue derrumbándose,
-va pasando muy despacio la memoria, el propósito y el registro de los fracasos.
+Cuando dos humanos salieron del fondo cargando una caja de provisiones, otras dos máquinas, sin decir nada, se repartieron el peso. Los humanos en un extremo, las máquinas en el otro. La caja se inclinó. El lado de las máquinas quedaba más bajo. Las máquinas alzaron los brazos. La caja quedó horizontal. Los cuatro caminaron así.
 
-Una estructura en la que las personas
-y las máquinas,
-sin confiar del todo unas en otras,
-sostienen aun así algo que al final no debe romperse.
+Kael lo miró y fue a levantar una caja, y una máquina agarró el otro lado. Kael miró a la máquina. La máquina miró a Kael. Los dos la levantaron. La caja se inclinó; el lado de Kael quedaba más alto, así que Kael bajó los brazos.
 
-La máquina más vieja, por último, miró al grupo de Sion y dijo.
+Luhai lo vio y fue también, pero no quedaba ninguna caja que levantar. Se quedó un momento con las manos vacías y volvió.
 
-—Las preguntas son para después.
-—Ahora primero hay que contar lo que se ha perdido.
+—Ya las levantaron todas.
 
-Esas palabras eran serenas hasta resultar crueles.
-Pero nadie pudo rebatirlas.
+Lo dijo él.
 
-Tras entrar en Serakion,
-por primera vez llegaron a saberlo.
+Nadie se rio, pero la comisura de los labios de Han Jiwoo se movió un poco.
 
-En el centro de esta capa vieja
-no hay quienes gritan que cambiarán el mundo,
-sino que permanecen, antes que nadie, quienes no quieren olvidar cuánto se ha roto el mundo.
+Seorin se acercó a Sern.
+
+—De las dos salidas, ¿cuál lleva arriba?
+
+—No lo sé.
+
+—Pregúntalo.
+
+Cuando Sern se lo preguntó a la máquina que les había abierto el camino, la máquina señaló el lado oscuro.
+
+—Esa lleva arriba. La iluminada va más hacia el interior.
+
+Seorin miró el lado oscuro.
+
+—¿La tienes bloqueada?
+
+—No la bloqueamos. La vigilamos.
+
+Mientras Seorin no preguntaba más, Ater fue a plantarse en la boca de aquel lado oscuro. Nadie le había dicho que lo hiciera.
+
+La máquina vieja, por último, miró al grupo de Sion y habló.
+
+—Preguntar viene después. Ahora, primero, hay que contar cuántos se han perdido.
+
+El anciano de Hazran, al oír aquello, se arrodilló y se sentó. Las piernas con que había estado de pie ya no aguantaban más. Sentado, extendió los dedos. Era la mano que antes había dejado de contar a medias.
+
+La máquina vieja, haciendo sonar la rodilla a cada paso, fue hasta delante de aquel hombre, se detuvo y bajó la rodilla, hasta quedar a la altura de los ojos del hombre.
+
+El hombre levantó la cabeza y miró el ojo óptico irregular de la máquina vieja.
+
+—¿Hay que decir primero el nombre?
+
+Lo preguntó el hombre.
+
+—No. Primero, el número. Los nombres quedan después.
+
+El hombre se miró los dedos.
+Cinco.
+La otra mano.
+Diez.
+Los dobló y los extendió.
+
+Sion, mirando aquellos dedos, pensó en la placa de metal que llevaba en el bolsillo. Dos trazos. No la sacó.
+
+Lo que la mujer del rostro cansado traía en la mano al salir del fondo era una placa de metal delgada, llena de muescas. En horizontal, en vertical, en diagonal. Dejó la placa junto a la máquina vieja. Justo delante del hombre.
+
+—Traza aquí. Si lo dices de palabra, se olvida.
+
+Su uña golpeó una de las muescas de la placa.
+
+Cuando el hombre miró la placa, vio que las muescas eran cientos. Sacó del bolsillo el destornillador. Era el que le había dado Han Jiwoo. Luego apoyó la punta del destornillador sobre la placa.
+
+Han Jiwoo, mirándolo, cerró la mano.
+
+El hombre hizo el primer trazo. Se oyó la punta del destornillador rayando el metal. Ese sonido, tal como lo oyó Han Jiwoo, era el mismo que hacía Sion al rayar su placa en Hazran.
+
+El hombre hizo el segundo trazo.
+
+La máquina vieja siguió con la rodilla bajada, sin moverse. No se levantó; se quedó allí mientras los trazos aumentaban.
 
 ---
 

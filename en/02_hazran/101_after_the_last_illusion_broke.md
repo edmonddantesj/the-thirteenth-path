@@ -76,7 +76,7 @@ The three didn't move.
 
 At that, Nasim stopped.
 
-Only then did Sion understand too. These three were in the third clump from the back. The ship had to lift three more times before their turn. Three times meant it wouldn't come today.
+Only then did Sion understand too. These three were at the very back of the line. The ship had to lift three more times before their turn. Three times meant it wouldn't come today.
 
 Luhai had come up beside him.
 
@@ -309,7 +309,7 @@ Sion went to the board. The ship marks were still six. It hadn't lifted yet.
 
 Five runs.
 
-Beside them, next to the short mark, he scratched one more. It was the second hour.
+There were two short marks now. It was the second hour.
 
 Sion went over to Aka.
 

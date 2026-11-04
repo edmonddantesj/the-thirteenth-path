@@ -16,7 +16,7 @@ Ater asked without turning his eyes.
 
 "How many."
 
-"There should be four, but they count five. One more hand has joined in, one that took the goods midway."
+"There should be four hands in the commotion, but they count five. One more hand has joined in, one that took the goods midway."
 
 "A third party."
 
@@ -69,7 +69,6 @@ Ater looked down at the terminal screen for a moment, then closed it.
 
 "That is not good."
 
-Sern did not bother to unpack what that short sentence held.
 The moment a person came before a record was always dangerous. People were erased later than records, and moved far less predictably.
 
 The two of them crossed the upper connecting bridge and entered a narrow passage between the port administration block and the private storage quarter.
@@ -195,9 +194,7 @@ Sion laid his own fingertips over them. They didn't fit. Narrower than his hand.
 
 Sion stood, brushing the rust dust off his fingertips.
 
-"And they closed it again. Someone running scared doesn't shut the door behind him."
-
-"This is it."
+"And they closed it again. Someone running scared doesn't shut the door behind him. This is it."
 
 "You sure?"
 

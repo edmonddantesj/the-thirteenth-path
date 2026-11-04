@@ -44,7 +44,7 @@ Sion miró hacia arriba.
 
 Encima de la pared derrumbada quedaba algo que aún no se había derrumbado. Placas de metal que habían servido de barricada y estaban medio reventadas, trozos de casco cortados y traídos hasta allí, restos de parapetos. Lo que Hazran había hecho cortándose a sí misma estaba amontonado ahí arriba.
 
-Lo que lo había sostenido hasta ahora eran tres cosas de abajo.
+Lo que lo había sostenido hasta ahora eran tres vigas de apoyo, abajo.
 
 —¿Y si las quitan?
 
@@ -101,7 +101,7 @@ La fila delantera se paraba y la siguiente se le subía encima. Y lo que se hab�
 
 No la pisaban para pasar por encima. La cubrían.
 
-Sion supo que aquello no era una carga. Era un movimiento que venía a comprobar un lugar ya terminado. Cada uno era exacto, todos iban a la misma velocidad y ninguno se apresuraba.
+Cada uno era exacto, todos iban a la misma velocidad y ninguno se apresuraba.
 
 Los cuatro empezaron a desaparecer debajo.
 
@@ -135,7 +135,7 @@ Los cuatro no retrocedieron. Si retrocedían, aquellos no se juntaban.
 
 Y Zahir levantó la mano.
 
-No alzó la voz. Era alguien que no la había alzado nunca. Alguien para quien la disposición era la palabra.
+No gritó. Era alguien que nunca había alzado la voz. Alguien para quien la disposición era la palabra.
 
 La mano bajó.
 
@@ -193,7 +193,7 @@ Pasó un buen rato.
 
 Ante esa respuesta, Sion soltó el aire una vez.
 
-Que desde aquí no se oyera no quería decir que allí no hubiera ruido. No se oía porque el barco estaba en el aire, las paredes eran de dos capas y el suelo no tocaba tierra.
+Que desde aquí no se oyera no quería decir que allí no hubiera ruido. No se oía porque el barco estaba en el aire, las paredes lo tapaban y el suelo no tocaba tierra.
 
 Así que, desde ahora, no había forma de saberlo.
 
@@ -235,10 +235,6 @@ Ni él sabía si se lo decía a alguien o a sí mismo.
 Seorin, a su lado, habló casi como un aliento.
 
 —Volveremos.
-
-Fueron pocas palabras.
-
-Dentro estaban a la vez lo que había que pagar y la tierra que había que recuperar.
 
 Luhai, sin poder apartar los ojos de afuera hasta el final, habló muy bajito.
 

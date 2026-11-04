@@ -34,8 +34,6 @@ Aka spoke with her hand still on the outer wall.
 
 "Just long enough to send us off."
 
-It was cruel, and it was exact.
-
 This ship didn't need to come fully back to life. For now it only had to hold long enough to carry the people who had to be sent a little farther out.
 
 Hazran was the same. It wasn't the whole city that would live; it only had to hold a little longer, long enough to send people off alive.
@@ -73,13 +71,11 @@ It was less a question than a sneer thrown at herself.
 
 No one could answer right away.
 
-The sentence stabbed the air inside the hull, exactly.
-
 Luhai spoke, leaning against the wall.
 
 "Still, Zahir told us to go."
 
-That was closer to talking himself into it, too. His eyes kept going outside.
+His eyes kept going outside.
 
 This kid was a Hazran person. Watching your own city close from the inside tears a person apart in a different way.
 
@@ -88,7 +84,7 @@ Luhai said, low.
 
 At that Sion broke down once more.
 
-It wasn't just the corridor closing now. It was alleys and houses, the smell of somewhere to go back to. To Sion, Hazran was a place he had first come to three days ago, but to this kid it was where he had been born.
+It wasn't just the corridor closing now. It was alleys and houses, the smell of somewhere to go back to. To Sion, Hazran was a place he had first come to not long ago, but to this kid it was where he had been born.
 
 "What smell?"
 Sion asked.
@@ -155,19 +151,19 @@ Sion pulled his arm free.
 
 Having pulled it free, he went nowhere. There was nowhere to go.
 
-The inside of the hull was still cramped. Sixteen were pressed to the walls, and no one spoke. The sounds outside didn't reach in here. It was one thin layer of metal, but that one layer swallowed every sound.
+The inside of the hull was still cramped. Sixteen were pressed to the walls, and no one spoke. The sounds outside only reached in here as something far away. It was one thin layer of metal, but that one layer swallowed almost every sound.
 
 That was the strangest thing to Sion. All day today he had known things by sound. Whether the ship was empty or full, how many steps the other side had come, who was striking from below. All of it had been sound.
 
 Now there were only his eyes.
 
-So instead, he began to count.
+So instead, he counted.
 
-He had been counting for a while already. Ever since Seorin told him to count while he came up, he hadn't stopped. As long as the numbers rolled around inside his head, his hands didn't shake.
+He had stopped marking the board, but he had kept counting in his head. Ever since Seorin told him to count while he came up. As long as the numbers rolled around inside his head, his hands didn't shake.
 
 Now that was the only thing he could do.
 
-That was when Aka spoke for the first time, low.
+That was when Aka spoke, low.
 
 "Keep watching."
 
@@ -176,12 +172,6 @@ Everyone looked her way.
 Aka was still looking outside.
 
 "We have to watch to the end."
-
-It was a short thing to say.
-
-Sion thought he knew what she meant.
-
-It meant don't live pretending not to know. It meant don't leave as if running away, and see with your own eyes, to the end, how Hazran closed and who stayed behind to bear what.
 
 Sion was watching.
 
@@ -195,7 +185,7 @@ Aka was looking at Sion. For the first time today.
 
 "Are you counting?"
 
-"You are, aren't you."
+"I am, aren't I," Sion answered.
 
 "…Yeah."
 

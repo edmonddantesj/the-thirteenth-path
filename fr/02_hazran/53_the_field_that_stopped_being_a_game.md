@@ -85,8 +85,6 @@ Seorin parla sans détacher le regard :
 
 « À Hazran, ce qui coûte le plus cher, c'est celui qui croit aux règles. Pas celui qui les brise. »
 
-Ces mots n'atteignirent pas les oreilles de Sion, mais ils restèrent assez longtemps dans l'air.
-
 Nassim n'avait pas reculé d'un pas jusque-là. Au contraire, plus le désordre grandissait, plus vite il lisait les visages alentour. Il ne pouvait pas ignorer que la partie venait de se briser. Pourtant, sur son visage, le calcul passait avant le désarroi. Le visage de quelqu'un qui jaugeait comment couvrir cet effondrement par des mots, à qui en renvoyer la faute, et ce qu'il fallait au moins sauver.
 
 Haroun, lui, était plus silencieux encore.
@@ -149,8 +147,6 @@ Han Jiwoo le savait sans se retourner.
 
 « Tiens bon. »
 
-Cela voulait dire ne pas lâcher la braise, et aussi, à partir de maintenant, préparer son corps.
-
 Au nord, Kael et Sern regardaient eux aussi le même engin rouge sombre.
 
 Sern dit très bas :
@@ -186,11 +182,6 @@ L'esquif jaillit le long du bord extérieur de la couche de verre fendue, presqu
 Derrière, l'engin rouge sombre leur collait aux talons ;
 sur le côté, l'engin de Kael et Sern guettait l'angle pour les rejoindre sur une ligne plus large ;
 et dans les tribunes, ceux qui avaient compris que les règles étaient brisées se mêlaient à ceux qui comptaient encore leur argent.
-
-Et Sion comprit que plus personne, désormais, ne pouvait appeler cela une course.
-
-La course de la braise n'était pas finie.
-Mais elle ne tournerait plus de la manière que Hazran avait promise au départ.
 
 La partie, désormais, avait cessé d'être un jeu.
 

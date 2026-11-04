@@ -1,143 +1,224 @@
 # Chapitre 137 — L'odeur du dehors
 
-La première chose qui apparut ne fut pas un visage.
+La première chose qu'ils virent ne fut pas un visage.
 
-De l'obscurité au-delà de la brèche, ce qui se déversa d'abord, ce furent le son et l'odeur.
+Ce qui sortit d'abord de l'obscurité, au-delà de la brèche, ce furent un son et une odeur.
 
-Non pas le lent bourdonnement métallique de l'intérieur de l'ancienne couche — plus court, plus pressant, plus usé.
+Ce n'était pas le lent son métallique de l'intérieur de l'ancienne couche. Parmi des sons plus courts, plus pressés, plus usés, se mêlait le bruit d'une jambe qui traînait.
 
-Et non pas l'odeur de métal depuis longtemps stagnante — l'odeur d'une machine imprégnée à la fois d'air extérieur, de chaleur, de poussière et de combustion.
+L'odeur venait ensuite. Pas l'odeur d'un métal longtemps stagnant : celle de l'air du dehors, de la chaleur, de la poussière et de quelque chose de brûlé. En sentant cette odeur, Han Jiwoo retira la main de sa sacoche à outils.
 
-Aka avait eu raison.
+Aka dit à voix basse :
 
-C'était l'odeur d'un aller-retour.
+« Ça sent l'aller-retour. »
 
-L'obscurité à l'intérieur de la brèche frémit d'abord, puis, accompagné d'un très faible bruit de frottement, quelqu'un se contorsionna pour se faufiler hors de l'étroite ouverture.
+La brèche s'ouvrit sur une largeur d'épaules.
 
-Au moment où Sion aperçut cette silhouette, il comprit aussitôt.
+L'obscurité de la brèche remua, et il y eut un bruit de friction. Quelqu'un se contorsionnait de côté pour se glisser hors de l'étroite brèche, et pendant ce temps, son épaule racla le bord avec un bruit. L'endroit s'usa encore.
 
-Cet être appartenait au même camp que les vieilles machines qu'il avait vues ici — et pourtant, il se mouvait à une vitesse radicalement différente.
+Sion regarda la silhouette qui venait de sortir.
 
-Sa surface portait les marques de multiples remplacements. Une plaque d'épaule avait été renforcée avec des pièces qui ne correspondaient pas aux spécifications d'origine. Un bras portait des éraflures et des brûlures assez flagrantes pour ne jamais être tolérées dans les niveaux supérieurs de Serakion.
+Sa surface portait les traces de multiples remplacements, et l'une des plaques blindées de l'épaule avait été rapiécée avec une pièce qui n'était pas aux normes. Un bras portait des éraflures et des brûlures profondes, qui n'étaient pas cachées. Ses deux yeux optiques étaient allumés. Sur leur lumière inégale, la lumière de cette couche, s'était déposée de la poussière.
 
-Mais curieusement, tous ces dégâts ne rendaient pas cet être plus délabré — ils le rendaient plus tranchant.
+Sitôt sortie de la brèche, la machine ne regarda pas le groupe de Sion : elle examina l'état de l'entrée et les bords de la brèche, puis regarda derrière elle. Ce n'est qu'après avoir regardé jusqu'aux six endroits où la vieille machine posait les mains qu'elle regarda les gens.
 
-Si les machines de l'ancienne couche étaient des êtres qui avaient tenu, celui-ci ressemblait à un être qui s'était usé à force d'entrer et de sortir.
+Sion regarda l'ordre dans lequel la machine regardait.
 
-La machine, sitôt hors de la brèche, ne balaya pas d'abord le groupe de Sion du regard, mais la structure environnante et l'état de l'entrée.
+L'œil optique passa sur le groupe de Sion, un temps par personne.
 
-Dans ces yeux, la vérification passait avant le soulagement.
+Sern.
+Aka.
+Luhai.
+Han Jiwoo.
+Sion.
 
-Avait-il survécu. Quelque chose avait-il été repéré. Le seuil tenait-il encore — c'était ce qu'ils lisaient en premier.
+Il s'attarda un temps de plus sur Sion, puis revint à la vieille machine.
 
-Puis, un battement en retard, il posa le regard sur les humains qui se tenaient là.
+La mâchoire de Luhai se crispa.
 
-À cet instant, Sion vit le regard de la machine changer de manière presque imperceptible.
+Ce fut la machine qui parla la première.
 
-Ni joie. Ni simple méfiance. Pendant une fraction de seconde, les yeux d'un être qui calculait : *pourquoi des humains sont-ils venus jusque-là.*
+« Ça fait beaucoup de nouveaux visages. »
 
-Luhai sembla le lire aussitôt — sa mâchoire se contracta très légèrement.
+La voix était jeune et rêche. Un son aux arêtes usées.
 
-Mais contre toute attente, ce fut la machine qui prit la parole en premier.
-
-« Beaucoup de nouveaux visages. »
-
-La voix était plus jeune que prévu. Mais rêche.
-
-Non pas la voix érodée par l'usure comme celles des machines de l'ancienne couche — plutôt une voix dont les arêtes avaient été moulues par le passage répété à travers le bruit et les chocs de l'extérieur.
-
-La vieille machine à côté dit très bas :
+La vieille machine dit très bas :
 
 « Ils viennent de Hazran. »
 
 Un court silence.
 
-La machine parcourut une nouvelle fois le groupe de Sion du regard. Cette section au chemin bloqué n'était pas entièrement déserte — un peu plus loin, quelques ombres humaines s'agitaient.
+La machine parcourut encore une fois le groupe de Sion du regard, puis regarda vers le couloir. Au loin, quelques ombres humaines bougeaient : des gens tirés de leur sommeil.
 
-Puis elle dit, très brièvement :
+« Tu en as amené, du monde. »
 
-« Vous en avez amené beaucoup. »
+Luhai ouvrit la bouche. Seorin n'était pas là, et Luhai la referma.
 
-Des mots qui auraient pu paraître froids. Mais Sion perçut, étrangement, le calcul, la fatigue et quelque chose proche du soulagement, tout à la fois.
+La machine se retourna vers la brèche et y plongea profondément le bras.
 
-Plus d'humains vivants signifie plus de problèmes. Mais en même temps, cela signifie que le nombre de rescapés est élevé.
+De l'intérieur de la brèche, une seconde ombre suivit.
 
-On aurait dit les mots d'un être qui affronte cette contradiction à chaque fois, dans son propre corps.
+Elle était plus lourde que la première, et une jambe traînait. C'était le bruit de tout à l'heure. Sur son dos s'enchevêtraient du matériel plié et des sangles de récupération. La seconde machine franchissait la brèche à mesure que la première la tirait ; quand sa jambe s'accrocha au bord, la première souleva cette jambe et la fit passer.
 
-De l'intérieur de la brèche, une seconde ombre suivit bientôt. Celle-ci paraissait bien plus lourde que la première.
+Derrière, une personne fut tirée dehors.
 
-Une jambe traînait avec une légère claudication. Le dos était encombré de matériel plié et de sangles de récupération enchevêtrées.
+La personne était attachée par des sangles sur le dos de la seconde machine. La tête ballottait au-dessus de l'épaule de la machine, et les bras pendaient.
 
-Et derrière, un humain en fut extrait, presque porté à bout de bras.
+Han Jiwoo bougea la première, et Luhai presque en même temps. Quand Sion fit un pas vers la brèche, Sern lui saisit le bras.
 
-À cet instant, l'air entier se figea brièvement.
+L'humain qu'on avait porté jusque-là avait les yeux mi-clos, mais ne regardait nulle part. Les vêtements déchirés étaient ceux des étages supérieurs de Serakion ; là où il y avait eu des ornements de métal, il ne restait que des trous. Le cou ne portait pas d'insigne ; à l'endroit où l'insigne avait été suspendu, il ne restait qu'une marque.
 
-Jiwoo bougea la première. Luhai réagit presque simultanément. Et Sion comprit enfin que ces êtres ne revenaient pas d'une simple reconnaissance ou patrouille.
+Han Jiwoo voulut recevoir l'humain.
 
-Ils n'étaient pas sortis pour faire quelque chose. Ils étaient sortis pour ramener quelqu'un.
+La première machine dit très brièvement :
 
-L'humain transporté semblait à peine conscient. Ses vêtements étaient déchirés et souillés d'une manière radicalement différente de l'ordre soigné du Serakion supérieur — moins la trace d'une évasion que celle d'une extraction de justesse.
+« Attention à l'épaule. Aux côtes gauches aussi. »
 
-Au moment où Jiwoo s'avança pour recevoir l'humain, la première machine dit très brièvement :
+Les mains de Han Jiwoo s'arrêtèrent et changèrent de prise. L'aisselle droite et la taille. Quand la seconde machine défit les sangles et que Han Jiwoo prit le corps, tout le poids de la personne lui arriva d'un coup, et Luhai soutint les jambes. Pendant qu'ils l'allongeaient lentement tous les deux, Sern ôta son manteau et l'étendit sur le sol avant que la tête ne le touche.
 
-« Attention à l'épaule. »
-« Les côtes gauches aussi. »
+La première machine regarda cela, puis, sans un mot, commença à détacher les sangles et le matériel du dos de la seconde machine. Une sangle, une plaque pliée, un bidon vide : elle les posa sur le sol l'un après l'autre, avec des mains qui savaient où chaque chose devait aller. Elle retourna le bidon vide et le secoua, mais rien n'en sortit.
 
-Ces mots vinrent si vite, si précis, que Jiwoo obéit par réflexe.
+Aka regarda longuement cette première machine.
 
-Cette seule scène brève suffit à donner à Sion une idée de la manière dont ces machines traitaient les humains.
+« De ce côté-là, on s'use pas pareil. »
 
-Pas de tendresse. Mais de la familiarité.
+La machine regarda Aka et émit un bruit très bref, comme un rire. Le son d'un circuit qui tremble. Le même son qu'avait fait la machine qui leur avait ouvert le chemin.
 
-Non pas des machines qui imaginent les humains de loin — mais des mains qui ont réellement porté, traîné, extrait, perdu et rattrapé.
+« Nous nous abîmons plus vite que ceux de l'intérieur. »
 
-C'est pourquoi elles semblaient plus directement en contact avec les humains que même celles de l'intérieur de l'ancienne couche.
+La vieille machine, à côté, n'eut aucune réaction et retira ses mains des rainures du mur. La brèche se resserra, mais elle en laissa une largeur d'épaules.
 
-Aka observa longuement la première machine, puis dit à voix basse :
+Des pas approchaient. C'était Seorin, et Ater derrière elle. Ni l'un ni l'autre ne couraient, mais ils marchaient vite. Seorin regarda la brèche, l'humain au sol, puis la machine sortie la première.
 
-« Celui-là ne s'use pas de la même manière. »
+« C'est qui ? »
 
-La machine regarda Aka. Puis elle émit un bref son qui ressemblait presque à un rire.
+La vieille machine répondit.
 
-« Plus vite que ceux de l'intérieur. »
+« Une main de récupération. »
 
-À ces mots, la vieille machine à côté ne montra aucune réaction. Mais Sion perçut ce silence comme une tension familière.
+« De récupération ? »
 
-Les mains qui restent et tiennent. Les mains qui sortent et reviennent.
+« Elle récupère des gens. »
 
-Elles appartenaient à la même communauté, mais leur usure différait. Et sans doute la manière dont elles se comprenaient différait-elle aussi, un peu.
+Seorin regarda de nouveau l'humain au sol.
 
-Luhai, toujours sur ses gardes, demanda :
+« On l'a récupérée, cette personne ? »
 
-« Tu fais ça tout le temps ? »
+« Oui. »
 
-La première machine jeta un bref coup d'œil à Luhai, puis répondit :
+Pendant que Seorin écartait lentement la main posée sur la poignée de son épée, Ater alla vers la brèche et, sans y toucher, en examina les bords usés.
 
-« Si je reviens vivant, c'est que j'y suis allé. Sinon, c'est que non. »
+Luhai demanda, l'air sur ses gardes :
 
-Ce n'était ni une plaisanterie ni de la bravade. Simplement la réalité de ce côté-ci.
+« Tu vas là-bas tous les jours ? »
 
-Dans cette seule réplique, Sion sentit un poids d'une tout autre nature que celui qu'il avait ressenti à l'intérieur de cette ancienne couche.
+La première machine regarda brièvement Luhai.
 
-Ici, c'était l'endroit où l'on comptait ce qui avait été perdu. Et là-bas, c'était le côté qui repartait en sachant ce qui serait perdu.
+« Si je reviens en vie, c'est que j'ai fait l'aller-retour. Sinon, c'est que je ne l'ai pas fait. »
 
-Deux mondes, devant la même brèche, respirant le même air pour la première fois.
+Luhai voulut dire quelque chose, puis renonça.
 
-Puis la première machine, après avoir de nouveau vérifié l'état de l'humain transporté, regarda encore une fois le groupe de Sion.
+La seconde machine s'assit sur le sol. Ce n'était pas s'asseoir, plutôt s'effondrer. Quand elle allongea devant elle la jambe qui traînait, on vit l'intérieur d'une articulation à moitié ouverte ; Han Jiwoo le vit sans quitter la personne blessée des yeux.
 
-Cette fois avec un peu moins de calcul, et à la place un mélange très ténu de fatigue et de curiosité.
+« Cette jambe. »
 
-« C'était si calme à l'intérieur, » dit-il à voix basse. « J'ai cru qu'ils étaient tous morts, encore une fois. »
+Han Jiwoo le dit.
 
-Des mots durs. Mais curieusement, personne ne put se mettre en colère tout de suite.
+« Cette personne d'abord. »
 
-Parce que cette machine venait tout juste de porter un humain vivant sur son dos.
+La seconde machine répondit.
 
-Et à cet instant, Sion comprit.
+C'était la première fois qu'elle parlait. Une voix plus basse que celle de la première, et plus usée.
 
-Ce que cette ancienne couche avait montré jusqu'à présent, c'étaient les mains qui tiennent pour que rien ne s'effondre.
+Han Jiwoo n'en dit pas plus et déchira à la main les vêtements de la personne blessée.
 
-Mais désormais, au-delà du seuil, les mains qui saisissent ce qui est sur le point de s'effondrer et le traînent de force à l'intérieur commençaient à se montrer pour la première fois.
+La vieille machine vint se placer à côté de la seconde machine et la regarda de haut, sans plier les genoux.
+
+« Les mains de récupération. Revenues toutes les deux. »
+
+« Nous sommes trois. »
+
+La première machine désigna du menton l'humain au sol.
+
+La vieille machine hocha lentement la tête.
+
+Sion regarda ces trois-là. La vieille machine, la première, la seconde. La même sorte de lumière, sur laquelle s'était déposée plus ou moins de poussière.
+
+La première machine vérifia de nouveau l'état de la personne blessée, puis approcha sa main de celle de Han Jiwoo sans la toucher et désigna le côté des côtes. Han Jiwoo regarda à cet endroit.
+
+Puis la machine regarda encore une fois le groupe de Sion. Cette fois, l'œil optique était lent.
+
+« C'était si calme à l'intérieur, »
+
+dit-elle à voix basse,
+
+« que j'ai cru qu'ils étaient encore tous morts. »
+
+Le visage de Luhai se figea ; sa bouche s'ouvrit puis se referma. Il regarda l'humain allongé au sol. Le souffle était là, mais faible. Luhai ne dit rien.
+
+Sern regarda son manteau étendu au sol. Le sang commençait à le traverser, mais il ne retira pas le vêtement.
+
+Aka demanda à la première machine :
+
+« Combien de fois ? »
+
+« Quoi donc ? »
+
+« Les allers-retours. »
+
+La machine regarda Aka. Un temps.
+
+« Je ne compte pas. »
+
+« Pourquoi ? »
+
+« Parce que si je comptais, je ne sortirais plus. »
+
+Aka ne demanda plus rien.
+
+Sern nota ces mots sur le panneau d'enregistrement. Après les avoir notés, il regarda ce qu'il avait écrit, mais ne l'effaça pas.
+
+« Moi, je compte. »
+
+C'était Sern.
+
+« C'est pour cela que vous ne sortez pas. »
+
+La première machine lui répondit.
+
+Sern ne la contredit pas ; il referma le panneau d'enregistrement et le cala sous son bras. La première machine regarda ce geste.
+
+« Il faut aussi des gens qui comptent. »
+
+Elle ajouta :
+
+« À l'intérieur. »
+
+Sern entendit ces mots et ne les nota pas ; il appuya une fois sur le panneau d'enregistrement sous son bras. C'était la main de quelqu'un qui compte.
+
+La vieille machine se tourna vers la brèche et posa les mains sur les six rainures ; la brèche se referma et redevint un mur. Il ne resta que l'endroit usé. L'endroit que Han Jiwoo avait touché, maintenant usé une fois de plus.
+
+La main toujours posée sur la poitrine de la personne blessée, Han Jiwoo regarda cet endroit, puis sa propre main. Une main qui s'use. Elle détourna les yeux.
+
+L'humain au sol respira. Une fois, puis, tardivement, encore une fois. La main de Han Jiwoo était sur cette poitrine.
+
+« Du feu. De l'eau. Du tissu. Maintenant. »
+
+Sous sa paume, la poitrine se souleva encore, en retard.
+
+À l'intérieur, on entendit des gens bouger, et Luhai courut de ce côté.
+
+La femme au visage fatigué arriva la première. Un bol d'eau à la main, elle s'arrêta devant l'humain au sol et, sans poser le bol, regarda le cou de cette personne. La marque à l'endroit où l'insigne avait été suspendu. Elle porta la main à son propre cou, la retira, et seulement alors posa le bol d'eau.
+
+« C'était à qui ? »
+
+Elle s'adressait à la première machine.
+
+« Plus tard. »
+
+L'œil optique ne quittait pas la personne blessée.
+
+La femme sortit de son vêtement un tissu plié et s'agenouilla à côté de Han Jiwoo.
 
 ---
 

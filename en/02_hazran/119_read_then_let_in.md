@@ -2,7 +2,7 @@
 
 The closer they came, that world grew no more beautiful. It grew more exact.
 
-From far off, the silver lines and the cold structures had shown first, but as the distance shrank, the gaps between layer and layer, the angle of the reflected light, the curvature of the linked structures, even the width of the empty spaces came into view. All of it was the same; not one place was different.
+As the distance shrank, the gaps between layer and layer, the angle of the reflected light, the curvature of the linked structures, even the width of the empty spaces came into view. All of it was the same; not one place was different.
 
 Sion counted the intervals in front of the viewport and stopped once he reached five, and all five were the same.
 
@@ -76,7 +76,7 @@ Aka answered only after a long while.
 
 "Sorting."
 
-While Kael shaped the word with his lips without making a sound, Luhai stepped back from the viewport.
+While Kael shaped the word with his lips without making a sound, Luhai took another step back from the viewport.
 
 That world had not yet fired, or warned, or blocked them. The silver structures only changed their angles little by little, and they made no sound as they shifted. Beyond the viewport there was no way to hear it anyway, but Han Jiwoo listened all the same.
 

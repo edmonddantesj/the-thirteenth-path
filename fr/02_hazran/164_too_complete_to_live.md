@@ -1,251 +1,274 @@
 # Chapitre 164 — Trop complet pour vivre
 
-Après que la stratégie destinée à ébranler la structure eut commencé à prendre forme,
-il leur fallut ensuite regarder plus profondément la couche supérieure.
+Le lendemain du jour où la plaque fut établie, ils remontèrent à cinq : Kael, Ater, Han Jiwoo, la première main de récupération, et jusqu'à Aka.
 
-Pour savoir quoi couper,
-il fallait aussi voir plus précisément
-ce qui soutenait quoi.
+La seconde main de récupération se tint, sa jambe tendue, juste à l'intérieur de la brèche. Quand Sion nota sur la planchette à points : dehors, cinquième fois, les points d'Aka augmentèrent d'un.
 
-Et celle qui trouva cela étrange en premier,
-ce fut Aka.
+Dans le passage étroit, Aka passait sans avoir à tourner les épaules, mais Kael dut les tourner deux fois. Ils montèrent, et montèrent encore, jusqu'à l'endroit où ils s'étaient arrêtés la fois précédente, là où les murs commençaient à refléter.
 
-Aka ne lisait pas les chemins comme les autres,
-n'interprétait pas les structures d'approbation,
-et ne mettait pas en phrases les faces politiques.
+La première leva la main, et les cinq s'arrêtèrent.
 
-À la place, elle voit d'abord.
-Ce qui est étrange sans pouvoir encore être expliqué,
-ce qui se répète sans ressembler à la répétition du vivant,
-ce qui est si bien ordonné qu'on y sent mal le souffle de quelqu'un.
+« Jusqu'ici. »
 
-Le jour où ils recommencèrent à observer la couche supérieure de Serakion,
-ce qu'Aka saisit le premier
-fut une gêne de cette espèce.
+C'était la première.
 
-Plus on montait,
-plus les machines de Serakion étaient ordonnées.
-Leurs mouvements étaient plus souples,
-la distance entre elles plus exacte,
-les sons plus bas et plus stables.
+« Au-dessus, tous les murs reflètent. »
 
-Mais dès le début,
-en voyant cela,
-le visage d'Aka se durcit étrangement.
+Aka avait collé l'œil à la fente et regardait longuement. Han Jiwoo et Ater attendirent, mais Aka ne recula pas.
 
-« Elles sont trop pareilles. »
-dit-elle très bas.
+On voyait les trajets protocolaires du haut, où allaient et venaient les machines. Leurs pas étaient les mêmes, et l'écart qu'elles laissaient en se croisant aussi. L'angle sous lequel elles baissaient la tête était le même, et le temps qu'il leur fallait pour la baisser et la relever aussi.
 
-Jiwoo la regarda.
+Aka compta avec son propre souffle. Quatre, pendant qu'une machine restait arrêtée. La machine suivante, quatre aussi. La suivante encore, quatre.
 
-Sans détacher les yeux des trajets protocolaires supérieurs,
-Aka poursuivit :
+« C'est trop pareil. »
 
-« Je comprends que ce soit ordonné,
-mais ce n'est pas seulement ordonné. »
-« On ne dirait pas des êtres vivants qui se sont ressemblé à force de vivre longtemps accordés.
-On dirait qu'elles ont été découpées dès le départ selon la même forme. »
+Elle parlait très bas.
 
-Ces mots ne furent pas immédiatement compréhensibles pour tous.
-Mais, étrangement, ils restèrent.
+Han Jiwoo regarda Aka, mais Aka ne détacha pas l'œil de la fente.
 
-L'ordre supérieur de Serakion était sans aucun doute splendide.
-Mais il y avait là une étrangeté que le seul mot de splendeur ne suffisait pas à expliquer.
+« Je vois bien que c'est ordonné, mais là, c'est plus de l'ordre. On dirait pas des vivants qui ont fini par se ressembler à force de vivre longtemps au même pas ; on dirait qu'on les a découpés dès le départ dans la même forme. »
 
-Il y a une différence entre des êtres distincts devenus semblables sous un long règne
-et des formes rangées dès l'origine dans le même moule.
+« Les enfants, c'est différent ? »
 
-Aka lisait cette différence par sensation avant les autres.
+Han Jiwoo posa la question.
 
-En l'entendant, Ater observa de nouveau les secteurs protocolaires supérieurs.
+« Les enfants, ils respirent différemment. Ceux d'en bas. Ceux d'en haut aussi. Leurs poitrines bougent toutes différemment. Là, les poitrines bougent pas. Bon, c'est des machines. Mais même la durée des arrêts est la même. Quatre. Quatre. Quatre. »
 
-En effet, dans les machines du haut,
-ce qu'on percevait avant un désir ou une personnalité individuelle,
-c'était plutôt le degré d'achèvement de leur rôle.
+Han Jiwoo colla l'œil à la fente et compta.
 
-Qui ouvre la bouche en premier,
-qui reçoit une réponse,
-qui transmet une décision,
-qui réorganise les alentours selon cette décision.
+Quatre.
+Quatre.
+Quatre.
 
-Tout était excessivement lisse.
+Quand elle recula, Ater y colla l'œil.
 
-Dans un monde où la politique est vivante,
-on finit toujours par voir un peu de désir qui dépasse,
-un calcul qui arrive un peu tard,
-une concurrence légèrement maladroite.
+Quand deux machines se rencontraient, l'une s'arrêtait et l'autre baissait la tête. Celle qui avait baissé la tête passait la première, celle qui s'était arrêtée passait après. Les deux suivantes firent de même, et avant même qu'on voie laquelle baisserait la tête, l'une l'avait déjà baissée. Pas une machine n'hésitait, pas une ne cherchait à passer la première.
 
-Mais ici, ces frictions étaient trop rares.
+« Plutôt qu'une noblesse où chacun guette l'autre, on dirait un seul protocole exécuté par plusieurs corps qui se le partagent. »
 
-Ater dit à voix basse :
+Ater parlait bas.
 
-« Plutôt qu'une noblesse où chacun surveille l'autre,
-on dirait qu'un seul protocole est exécuté par plusieurs corps. »
+« Chez toi, ce n'était pas comme ça ? »
 
-À ces mots, Aka hocha lentement la tête.
+Han Jiwoo posa la question.
 
-C'était précisément cette sensation.
+« Chez moi, on cherchait à passer le premier. »
 
-Les machines du haut étaient bien plusieurs entités,
-et pourtant, étrangement,
-elles donnaient souvent moins l'impression de sujets politiques individuels liés entre eux
-que de parties chargées chacune d'une forme supérieure unique.
+Ater répondit.
 
-Ce n'était pas le paysage normal d'une couche de pouvoir.
-C'était plus proche d'un paysage où l'on reproduit une forme déjà fixée.
+« En faisant semblant de baisser la tête. Ici, il n'y a pas de semblant. »
 
-Ce ne fut qu'après avoir entendu cela
-que Sern exposa avec prudence la gêne qu'il avait ressentie du côté des registres.
+Aka hocha lentement la tête.
 
-« On retrouve quelque chose de semblable dans les enregistrements d'approbation du haut. »
-Dit-il à voix basse.
+Sur le trajet que regardait Kael, une machine qui allait d'un endroit à un autre n'y allait pas tout droit : elle passait par le milieu et faisait un détour, et la machine suivante passait par le même milieu et faisait le même détour. Kael mesura ces longueurs avec ses propres pieds. Tout droit, six ; par le détour, onze.
+
+« Elles prennent pas le chemin le plus court. »
+
+C'était Kael.
+
+« Elles prennent celui qui passe le plus au milieu. »
+
+« Pourquoi ? »
+
+« Je sais pas. Elles font toutes ça. »
+
+Le milieu que regardait Kael était vide. Un endroit où personne ne se tenait, que toutes ne faisaient que traverser.
+
+Ater regarda cet endroit et parla.
+
+« Chez moi aussi, il y avait un endroit comme celui-là. »
+
+« Qui s'y tenait ? »
+
+« Personne. Pas même mon père. »
+
+Ater répondit.
+
+« Ce n'est pas un endroit où l'on se tient, c'est un endroit où l'on baisse la tête en passant. »
+
+Sur le sol de cet endroit vide que regarda Han Jiwoo, il n'y avait aucune trace.
+
+La première leva la main. Pendant qu'une lumière passait, les cinq restèrent plaqués contre le mur, puis la lumière s'en alla.
+
+Quand Aka colla de nouveau l'œil à la fente et regarda au-delà du mur qui reflétait, plus haut encore, il y avait au loin une lumière. Elle ne bougeait pas, ne vacillait pas, et ne clignotait pas comme la lampe jaune.
+
+Chaque fois que les machines passaient par le milieu, leur tête se tournait d'une demi-phalange vers cette lumière, puis revenait. Toutes.
+
+Aka ne compta pas son souffle et regarda longtemps cette lumière.
+
+« Ça… »
+
+Elle commença, puis s'arrêta.
+
+Han Jiwoo vit que les épaules d'Aka étaient raides.
+
+« Ça… c'est tellement complet qu'on dirait pas que c'est vivant. »
+
+Personne ne répondit ; Ater colla l'œil à cet endroit et regarda la lumière, puis, même après avoir reculé, ne dit rien.
+
+Quand Han Jiwoo colla l'œil à son tour, la lumière était loin. Une machine, en passant par le milieu, tourna la tête d'une demi-phalange vers la lumière. Han Jiwoo regarda cette tête, puis la lumière. La lumière ne faisait rien, et elle recula.
+
+« C'est quoi, ça ? »
+
+« Je ne sais pas. »
+
+La première répondit.
+
+« Aucune de nos mains n'est jamais allée là-bas. »
+
+La première leva la main en parlant.
+
+« Nous redescendons. »
+
+Quand les cinq s'écartèrent de la fente, Aka y colla l'œil une dernière fois, mais la lumière était toujours là, et elle recula.
+
+Sur la plaque de la couche cachée, les cinq pierres étaient toujours en place ; à côté de Seorin, assise devant la plaque, Sern tenait le panneau d'enregistrement.
+
+Aka s'assit devant la plaque et, sans prendre de pierre, marqua du doigt un point tout en haut de la plaque, en dehors des quatre cases.
+
+« La lumière. »
+
+C'était Aka.
+
+« Elle bouge pas. Elles tournent toutes la tête par là. »
+
+Seorin baissa les yeux sur ce point et posa une question.
+
+« Le centre ? »
+
+« Je sais pas. C'est une lumière. »
+
+Ce ne fut qu'après avoir longuement regardé le panneau d'enregistrement que Sern parla.
+
+« Dans les enregistrements d'approbation de la couche supérieure aussi, il y a un point semblable. »
 
 Seorin réagit aussitôt.
 
-« Quoi donc ? »
+« C'est quoi, ce point semblable ? »
 
-Sern répondit très lentement :
+Sern posa à côté de la plaque le panneau d'enregistrement, où flottaient les lignes qui descendaient d'en haut, et répondit très lentement.
 
-« Le sujet qui décide n'est pas net,
-mais la forme de la décision l'est à l'excès. »
-« Plus que la trace de celui qui a parlé,
-c'est la forme de ce qui est descendu qui reste d'abord. »
+« Le sujet qui décide n'est pas net, mais la forme de la décision l'est à l'excès. Plus que la trace de celui qui a parlé, c'est la forme de ce qui est descendu qui reste d'abord. »
 
-Ces mots étaient froids,
-et c'est pourquoi ils sonnèrent d'autant plus justes.
+« Par exemple ? »
 
-Dans un système politique normal,
-une décision porte généralement la trace d'un sujet.
-Qui l'a poussée,
-qui l'a retardée,
-qui l'a recouverte.
+« Un enfant monte. »
 
-Mais les registres supérieurs lus par Sern
-ne gardaient, de façon étrange, que la forme de la décision avec netteté.
+Sern posa le doigt sur une ligne.
 
-Comme si, avant même de garder qui avait exercé le pouvoir,
-ils gardaient le visage sous lequel la décision était descendue.
+« Le signal part d'abord d'en haut. On voit d'où il part. Qui l'a lancé, cela n'y figure pas. Il n'y a que l'endroit d'où il a été lancé, pas celui qui l'a lancé. »
 
-Seorin dit à voix basse :
+« L'enregistrement a été effacé ? »
 
-« Alors le haut tient peut-être plus longtemps
-à la forme par laquelle la décision descend
-qu'à ceux qui décident réellement. »
+« Il n'y a aucune trace d'effacement. »
 
-Sern ne conclut pas aussitôt.
+Sern répondit.
 
-« Il est encore difficile de l'affirmer jusque-là. »
-« Mais au moins,
-cela ne ressemble pas à une structure où la friction entre individus politiques apparaît en premier. »
+« Cela n'a jamais été inscrit. »
 
-Sa réponse était prudente.
-Et, justement pour cela, elle pesait davantage.
+Aka regarda cette ligne.
 
-Aka regarda de nouveau vers le haut.
+« C'est pas que ça a pas été inscrit, c'est qu'il y a personne pour l'inscrire, non ? »
 
-Au bout de son regard,
-même de loin,
-une forme lumineuse d'une stabilité excessive restait suspendue.
+Sern regarda Aka.
 
-Elle ne parlait pas directement,
-ne donnait pas directement d'ordres,
-se tenait toujours trop loin,
-et pourtant elle semblait étrangement fichée au centre de tous les protocoles.
+« C'est possible. »
 
-Aka la regarda longtemps, puis dit très bas :
+Il poursuivit.
 
-« Ça… c'est trop complet pour avoir l'air vivant. »
+« Pour l'instant, je noterai seulement que la place de celui qui inscrit est vide. »
 
-À l'instant où ces mots tombèrent,
-l'air de la pièce se figea très légèrement.
+Seorin parla à voix basse.
 
-Cette phrase n'était pas une réponse.
-Elle ne devait pas en être une non plus.
+« Alors là-haut, plus qu'à ceux qui décident, ils tiennent plus longtemps qu'on croyait à la forme sous laquelle la décision descend ? »
 
-À ce stade, ce dont ils avaient besoin n'était pas une explication,
-mais quelque chose qui rendait plus nette la sensation d'étrangeté.
+Sern ne trancha pas tout de suite.
 
-Et pourtant,
-les mots d'Aka modifièrent d'un coup la perception de tous ceux qui observaient le haut.
+« Il est encore difficile d'aller jusque-là. Mais au moins, cela ne ressemble pas à une structure où la friction entre individus politiques apparaît en premier. »
 
-Désormais, en regardant vers le haut,
-ils ne voyaient plus seulement un ordre noble et bien réglé.
+Ater parla depuis la sortie.
 
-Ils voyaient un protocole centralisé,
-trop élaboré,
-trop lisse,
-trop formellement complet,
-où la vie individuelle se laissait à peine sentir.
+« Il n'y avait pas de friction. »
 
-Après avoir entendu cela,
-Kael se remit à regarder non plus les chemins,
-mais la répétition des trajets supérieurs.
+Seorin le regarda.
 
-En réalité, les lignes protocolaires du haut
-ressemblaient moins à des trajets d'efficacité pratique
-qu'à des itinéraires de reproduction rituelle.
+« Qui passe le premier, tout était fixé d'avance. Pas une seule machine ne se disputait. Chez moi, c'était ce qu'il y avait de plus fréquent. »
 
-Non pas le chemin le plus court,
-mais celui qui montre le mieux le centre.
-Non pas l'affectation la plus rapide,
-mais celle qui rend la hiérarchie la plus visible.
+« Pourquoi il n'y en a pas, ici ? »
 
-D'un point de vue tactique, cela pouvait être inefficace,
-mais si cette inefficacité continuait à être maintenue,
-cela signifiait aussi que cette structure ne fonctionnait pas seulement par utilité.
+« Je ne sais pas. »
 
-Autrement dit,
-la couche supérieure de Serakion maintenait probablement,
-indépendamment du pouvoir réel,
-la reproduction de ce que le pouvoir devait avoir l'air d'être.
+Ater répondit.
 
-Si l'on coupait cette reproduction,
-la face dont parlait Ater vacillerait,
-l'approbation centrée sur la forme dont parlait Sern se fissurerait,
-et la vitesse de lecture et de colmatage dont parlait Kael pourrait s'effondrer un instant.
+« Soit il n'y a rien à se disputer. Soit il n'y a personne pour se disputer. »
 
-En écoutant tout cela,
-Jiwoo revint malgré elle aux gens.
+Avec la pierre, Kael traça sur la plaque une ligne qui traversait les quatre cases en passant par le milieu.
 
-Si le haut fonctionnait vraiment si près d'une forme,
-alors les humains situés en dessous seraient d'autant moins lus comme des personnes individuelles.
+« Les chemins passent tous par ici. »
 
-Mains,
-réactions,
-docilité,
-possibilités d'affectation.
+C'était Kael.
 
-S'ils n'étaient lus qu'ainsi,
-c'était peut-être parce que le haut lui-même était déjà une structure qui vénérait la forme avant la vie.
+« Au lieu du chemin court. Par celui qui passe au milieu. »
 
-Seorin réorganisa la plaque et dit très bas :
+« Pourquoi ? »
 
-« Bien. On a donc quelque chose de plus. »
-« Nous ne regardons pas seulement les chemins et les approbations ;
-nous devons aussi comprendre pourquoi le haut répète à ce point une même forme. »
+« Pour être vues. Au milieu, on les voit d'en haut. Le chemin court, on le voit pas. »
 
-Cela signifiait que l'entreprise visant la couche supérieure de Serakion
-n'entrait plus seulement dans une phase d'infiltration ou de perturbation structurelle,
-mais dans une phase d'anatomie de la politique centrale et du protocole lui-même.
+Seorin regarda cette ligne, puis le point qu'Aka avait marqué en haut : la ligne était tournée vers le point.
 
-Et à son point de départ,
-il y avait le regard d'Aka,
-qui avait senti avant tout le monde :
-« c'est trop complet pour avoir l'air vivant ».
+Han Jiwoo regarda sa pierre, au milieu de la plaque.
 
-À la fin de ce jour,
-ils ne connaissaient toujours pas l'identité du centre.
+« Alors les enfants. Si là-haut c'est fait comme ça, les enfants, ils sont pas lus comme des gens. Ils sont lus comme des mains. »
 
-Mais au moins une chose était claire.
+« Des mains, des réactions, des places. »
 
-L'ordre le plus élevé de Serakion
-était plus étrange qu'il ne le paraissait,
-et cette étrangeté ressemblait moins à la simple arrogance du pouvoir
-qu'à une forme excessivement achevée.
+C'était Sern.
 
-Et c'était peut-être précisément cela
-qui deviendrait la fissure la plus dangereuse du haut,
-celle qu'ils devraient absolument creuser.
+« Il n'y a pas de noms de personnes dans les enregistrements. Seulement des numéros de place. »
+
+Han Jiwoo, la bouche close, regarda la pierre, sans y toucher.
+
+Seorin regarda de nouveau les quatre cases de la plaque, la ligne du milieu et le point du haut, puis, avec la pierre, entoura ce point d'un cercle.
+
+« Ça en fait une de plus. On ne regarde pas seulement les chemins et les approbations, il faut aussi voir pourquoi là-haut ils répètent à ce point la même forme. »
+
+« Qui regarde ? »
+
+Luhai posa la question, près des enfants.
+
+Seorin regarda Aka.
+
+« Celle qui l'a vu. »
+
+Aka regarda le point qu'elle avait marqué sur la plaque et hocha la tête.
+
+L'œil optique de la vieille machine, qui regardait ce point depuis le pilier, s'y attarda longuement. L'œil optique de la machine du côté du mur monta lui aussi vers le même point, mais ni l'une ni l'autre ne dit rien.
+
+La première les regarda toutes les deux.
+
+« Avez-vous déjà été là-haut ? »
+
+Elle posa la question à la vieille machine.
+
+« Non. »
+
+La vieille machine répondit.
+
+« Mais j'en viens. »
+
+Sion regarda la vieille machine et posa une question.
+
+« Vous venez d'où ? »
+
+La vieille machine regardait le point sur la plaque.
+
+« D'en haut. Avant la mise au rebut. »
+
+Sion n'en demanda pas plus et appuya sur sa plaque de métal.
+
+Quand la lampe jaune clignota, les ombres des pierres sur la plaque vacillèrent. Le point du haut n'avait pas d'ombre.
+
+Aka ne quitta pas ce point des yeux.
 
 ---
 

@@ -86,8 +86,6 @@ The first to break the silence was the first recovery hand.
 
 "From here it gets harder."
 
-No one could argue.
-
 Kael spoke low.
 
 "It'll change the folding order."
@@ -124,7 +122,7 @@ Seorin asked.
 
 "More than at the start."
 
-Seorin looked toward the dark exit. Ater, who should have been there, was beside Sern, and Seorin walked over and stood there.
+Seorin looked toward the dark exit. Ater was not there; he was beside Sern, and Seorin walked over to stand with them.
 
 "The exit?"
 
@@ -162,7 +160,7 @@ After a long silence, the first recovery hand answered very low.
 
 Han Jiwoo didn't ask anything more.
 
-Kael looked at the three lines and the one notch on the floor, the ones he had drawn when he said they needed three. He laid his palm on them but didn't wipe them out.
+Kael looked at the three lines on the floor, drawn when he said they needed three, and at the fourth line he had drawn beside them. He laid his palm on them but didn't wipe them out.
 
 "Not yet?"
 

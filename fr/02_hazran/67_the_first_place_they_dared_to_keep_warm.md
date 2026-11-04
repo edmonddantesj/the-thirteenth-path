@@ -46,22 +46,12 @@ De près, pourtant, c'était le seul endroit où le grain n'était pas encore co
 Elle poursuivit :
 « Ce qui doit tenir en premier, ce n'est pas ce qui bougera le plus, c'est ce qui tiendra le plus longtemps sans s'effondrer. »
 
-Sion eut l'impression d'avoir déjà entendu ces mots quelque part.
-
-Quelques jours plus tôt, en répartissant les gens en trois files, Haroun avait commencé par renforcer les voies de sortie. Quand on lui avait demandé pourquoi commencer par là, il avait répondu que, plus tard, on devrait le faire depuis un endroit déjà bouché.
-
-C'était la même idée. L'endroit qui paraît le plus urgent n'est pas celui par lequel il faut commencer.
-
-Sion trouva étrange que celle qui réparait les vaisseaux et celui qui gardait la ville disent la même chose. Puis il se ravisa : ce n'était pas étrange. C'étaient deux paires de mains qui avaient longtemps regardé des choses s'effondrer.
-
 Après avoir entendu cela, Sion regarda Aka.
 
 Aka regardait Han Jiwoo plutôt que la coque.
 Puis elle dit, très bas :
 
 « Maintenant, tu sais vraiment voir. »
-
-Ces mots sonnaient autant comme un compliment que comme une constatation.
 
 Sion reprit son souffle sans raison particulière.
 
@@ -196,8 +186,6 @@ Oublier aussi était un travail. On lâchait d'abord ce qui ne servait plus, l'u
 Mais il n'avait pas pu tout effacer.
 
 Sion ne savait pas si c'était une consolation. Si tout avait été effacé, ils ne seraient pas venus jusqu'ici, et s'ils n'étaient pas venus, toute cette peine n'existerait pas.
-
-Cette phrase frappa la poitrine de Sion avec une force étrange.
 
 Que le chemin ne soit pas entièrement mort, qu'il reste un endroit refroidi, que la braise semble se souvenir de quelque chose : tout cela ne faisait qu'un.
 

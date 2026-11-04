@@ -163,7 +163,7 @@ Seorin said briefly.
 
 Sion asked.
 
-"When they're close, they read each other first. Far apart, each reads on its own. Close, they read the one beside them, then read."
+"When they're close, they read each other first. Far apart, each reads on its own. Close, they read the one beside them first."
 
 The two machines' first static skimmed the floor.
 
@@ -225,7 +225,7 @@ Han Jiwoo was last. When she pulled her shoulder free, the light line came down 
 A little later and it would have been cut. Han Jiwoo looked down at her shoulder; the cloth had been pressed into a mark. She smoothed the mark with her hand.
 It did not smooth out.
 
-One of the old machines braced a hand on the wall and started to send static once more, then stopped; nothing came.
+One of the old machines braced a hand on the wall and tried to send static once more, but nothing came.
 
 "How many times."
 

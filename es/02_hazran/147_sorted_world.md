@@ -1,141 +1,136 @@
 # Capítulo 147 — Un mundo dividido
 
-Cuanto más se adentraba el grupo de reconocimiento,
-más dejaba de parecer una abstracción la jerarquía de Serakion.
+Al subir un nivel más, cambiaron los cuerpos de las máquinas que se movían.
 
-Ahora la diferencia no se veía solo en los caminos y los sectores,
-sino en el cuerpo mismo
-de las máquinas que se movían.
+Las máquinas que iban y venían por los pasajes de abajo llevaban las articulaciones a la vista, y las piezas de recambio eran de otro color. Tenían manos grandes, hechas para agarrar cosas, y Han Jiwoo conocía esas manos. Eran de la misma clase que las manos de las máquinas del nivel de abajo; solo cambiaban las partes gastadas.
 
-En las máquinas que iban por abajo
-se veían primero la función y la eficiencia.
+Cuanto más arriba, más cambiaba todo.
 
-Articulaciones expuestas,
-piezas con huellas de recambio,
-cuerpos hechos para moverse rápido,
-manos donde se leían enseguida la utilidad y el trabajo.
+Las articulaciones estaban tapadas por una cubierta sin junturas. Las manos se volvían más pequeñas y los dedos más largos, y al caminar no hacían ruido. Han Jiwoo escuchaba el sonido de la pierna de la segunda mano de recogida, y no se solapaba con el de las máquinas de arriba. Arriba no había sonido.
 
-Pero cuanto más arriba,
-más ocultaban las máquinas sus huellas de uso.
+Han Jiwoo miró un buen rato y luego habló muy bajo.
 
-La superficie estaba más ordenada,
-el movimiento era más suave,
-la voz más baja y uniforme,
-y en las yemas se sentía antes la holgura de la elección que la función.
+—Cuanto más arriba, también cambia la manera de tocar.
 
-Han Jiwoo miró largo esa diferencia y dijo muy bajo.
+Ater preguntó con brevedad.
 
-—Cuanto más arriba,
-también cambia el modo de tocar.
+—¿En qué sentido?
 
-Ater preguntó corto.
+Mientras Han Jiwoo seguía con los ojos a dos máquinas que pasaban por un pasaje de arriba, una le entregó algo a la otra. Sin usar la palma: con la punta de los dedos.
 
-—¿Cómo?
+—Abajo son manos que agarran enseguida lo que hace falta; arriba, manos que no tienen por qué tocar nada con las suyas.
 
-Han Jiwoo siguió con los ojos a dos máquinas que cruzaban un corredor de arriba y dijo.
+—Si no lo tocan, ¿quién lo toca?
 
-—Abajo, manos que agarran enseguida lo necesario;
-arriba, manos que no necesitan tocar directamente.
+—Los de abajo.
 
-Esas palabras eran exactas.
+Mientras Ater miraba aquellas puntas de los dedos, la máquina que lo había recibido se lo pasó a otra, también con la punta de los dedos.
 
-El estrato alto de Serakion no era simplemente más fuerte,
-sino que parecía tener una posición desde la que no hacía falta poner la mano.
+—Entonces, ¿qué hacen esas manos?
 
-Abajo, producción y mantenimiento repetidos,
-ajuste y transporte,
-control y disposición masiva.
+—Eligen.
 
-Arriba, selección,
-afinación,
-contemplación,
-la decisión de la disposición.
+Lo dijo Han Jiwoo.
 
-Aunque no estuviera escrito,
-la distancia misma del cuerpo, de la vía y de la mano ya decía la jerarquía.
+—Agarrar ya lo hacen los de abajo.
 
-Ater miró la escena y entrecerró los ojos.
+Ater entrecerró los ojos.
 
-—Se dividen no por insignias,
-sino por hábitos.
+—No se dividen por insignias, sino por hábitos.
 
-Esas palabras eran agudas.
+—¿Tú llevabas insignias?
 
-En el Imperio se ven antes los emblemas, los uniformes y los cargos.
-Pero Serakion es distinto.
+—Las llevaba. A la vista.
 
-Aquí, cuanto más alto el estrato,
-en vez de mostrarse a sí mismo
-prueba su rango por el número de cosas que no necesita hacer.
+—Aquí no se ven.
 
-No carga él mismo.
-No transporta él mismo.
-No repara él mismo.
-No sujeta él mismo.
+—Se ven. En las manos.
 
-Esa distancia se vuelve autoridad.
+Lo dijo Ater.
 
-En el momento en que Ater veía aquello,
-pareció sentir con más nitidez sobre qué estructura de discriminación tan acabada se alzaba este mundo.
+—Solo que yo no las había visto.
 
-Una discriminación descarada deja todavía un margen para rebelarse.
-Pero cuando está fundida hasta este punto en hábitos y estructura,
-hasta quien la vive acaba aceptándola como orden.
+—¿Cuándo las viste?
 
-Al otro lado de una rendija de observación que llevaba un poco más arriba
-se veía un sector humano mucho más refinado que el anterior.
+—Ahora.
 
-La gente estaba más limpia,
-las telas parecían más suaves,
-la luz era más cálida,
-y las voces de las máquinas sonaban más corteses que antes.
+Mientras lo escuchaba, Han Jiwoo le miró las manos a Ater. Manos que habían empuñado la espada, manos de noble; pero las cicatrices que le quedaban en la punta de los dedos eran cicatrices de manos que tocan, y ella apartó la vista.
 
-Pero quizá justo por eso,
-Han Jiwoo endureció más la cara.
+—¿Y tus manos, de qué lado son?
 
-—Esto no es gestión, es exhibición —dijo ella bajo.
+Lo preguntó Han Jiwoo.
 
-En efecto, así era.
+Ater se miró las manos.
 
-Los humanos de este sector parecían menos agotados que los de abajo,
-menos dañados,
-mucho más estables.
+—Eran de arriba.
 
-Pero esa estabilidad no era una estabilidad que viniera de la libertad.
+Lo dijo él.
 
-Una estabilidad gestionada hasta incluir qué y cómo debían mostrar.
+—Hasta Hazran.
 
-Serakion, cuanto más subía a la gente, no la trataba mejor,
-sino que estaba más cerca de tratarla de forma más vistosa.
+Han Jiwoo no preguntó más y abrió las manos. El aceite metido en las líneas de la palma no se le quitaba aunque se las frotara contra el pantalón.
 
-La primera mano de recuperación dijo muy bajo.
+—¿Y las suyas, de qué lado son?
 
-—Esta no es una zona donde los dejan aguantar mucho.
-Es una zona donde los tienen para que se vean bien.
+Lo preguntó Ater.
 
-Esas palabras revelaban con demasiada exactitud la esencia del sector humano bajo el estrato alto de Serakion.
+—De abajo.
 
-Humanos de buenas manos,
-humanos de buena respuesta emocional,
-humanos bien sometidos,
-o humanos que combinaban con la estructura de arriba.
+Lo dijo Han Jiwoo.
 
-Era muy probable que Serakion,
-en vez de apreciar a esos humanos en sí mismos,
-los tratara como elementos que elevaban la calidad del orden.
+—Siempre.
 
-Kael había estado todo el rato mirando las líneas de entrada y los ejes de corte.
+Más allá de una rendija de observación que seguía un poco más arriba, se veía un sector humano más refinado que los anteriores.
 
-Y solo al llegar a este sector de arriba
-se quedó largo, más callado que antes.
+La gente estaba limpia, las telas parecían suaves, y bajo la luz cálida las voces de las máquinas sonaban bajas. Han Jiwoo oía aquellas voces que atravesaban la pared. En la zona de abajo no atravesaban; aquí, la pared dejaba pasar el sonido. Era un sonido que se permitía oír.
+
+Han Jiwoo endureció la cara y habló bajo.
+
+—Esto no es gestión, es exhibición.
+
+Las personas sentadas parecían menos agotadas, menos dañadas. Una se rio y otra se rio detrás de ella. Antes de que se riera la tercera, una máquina pasó por delante. La tercera persona se quedó sin reír y, cuando la máquina hubo pasado, se rio.
+
+La primera mano de recogida habló muy bajo.
+
+—Esta no es una zona donde los dejan aguantar mucho. Es una zona donde los tienen para que se vean bien.
+
+—¿Para que los vea quién?
+
+Lo preguntó Han Jiwoo.
+
+—Los de arriba.
+
+—¿Los de arriba bajan hasta aquí?
+
+—No bajan. Solo miran.
+
+El techo que señaló la primera era liso, sin nada.
+
+—¿Desde dónde?
+
+—No lo sé. Solo sé que se ve.
+
+Han Jiwoo alzó la vista hacia el techo liso y, al ver allí su propia cara reflejada, borrosa, se apartó de la rendija.
+
+Ater pegó el ojo en ese mismo sitio y vio su propia cara reflejada en el techo. No bajó la cabeza y se quedó así un buen rato.
+
+—Nos dice que miremos.
+
+Lo dijo él.
+
+—¿Quién?
+
+—El techo.
+
+Han Jiwoo no preguntó, y Ater se apartó de la rendija.
+
+Kael miraba las líneas de entrada y los ejes de corte. Al llegar a este sector de arriba se había detenido mucho rato. Miraba la pared, el techo, el suelo, otra vez la pared, y todo ese tiempo tuvo la boca cerrada.
 
 Han Jiwoo preguntó primero.
 
-—¿Por qué?
+—¿Qué pasa?
 
-Kael no respondió enseguida.
-
-Luego dijo muy bajo.
+Kael no respondió enseguida, y habló muy bajo.
 
 —Aquí no hay una línea de defensa aparte.
 
@@ -143,70 +138,161 @@ Un breve silencio.
 
 Ater lo miró.
 
-Kael siguió hablando mientras señalaba por turnos, con la mirada, el reflejo de los muros, el pliegue del techo y la línea del suelo.
+—¿Eso es bueno?
 
-—La línea de vida es, tal cual, la línea de defensa.
-El propio sitio donde está la gente,
-al cerrarse, sirve de barrera.
+—No.
 
-Esas palabras enfriaron a los que escuchaban.
+Kael no señaló; solo con la mirada recorrió, uno tras otro, el reflejo de las paredes, el pliegue del techo y la posición de las líneas del suelo.
 
-Este sector de arriba no estaba bellamente ordenado para proteger.
-En caso de necesidad, toda esta bella estructura de vida
-podía volverse al instante un dispositivo de bloqueo y separación.
+—La línea por donde se vive es, tal cual, la línea de defensa. El sitio mismo donde hay gente está hecho para usarse como barrera cuando se cierra.
 
-Y entonces el humano que estaba aquí
-podía ser encerrado de nuevo, en cualquier momento, junto con su propio espacio de vida.
+—¿Cómo?
 
-Si Aka estuviera, seguro
-habría leído en esta estructura otra clase de mentira.
+Lo preguntó Han Jiwoo.
 
-En su lugar, Han Jiwoo miró las manos que usaba la gente,
-Ater miró la distancia con que las máquinas trataban esas manos,
-y Kael miró la estructura que cerraba todo aquello.
+Kael miró las líneas del suelo en los sitios donde estaba sentada la gente. La línea de cada sitio llegaba hasta la pared. Abrió la palma de la mano y con el dedo trazó en ella un cuadrado.
 
-Cuanto más se solapaban esas tres miradas,
-más se leía Serakion como una sola frase nítida.
+—Esto es el sitio de una persona.
 
-Este no era simplemente un mundo con un arriba y un abajo.
+Junto al cuadrado trazó otro.
 
-Era un mundo que, cuanto más arriba, era más suave,
-más refinado,
-más bello,
-y por eso mismo más perfectamente separado.
+—Esto, el de al lado.
 
-En ese momento, por una vía de arriba no lejana,
-se vio pasar a tres máquinas mucho más refinadas que las del sector anterior.
+Entre los dos cuadrados trazó una línea.
 
-En la superficie casi no tenían daños,
-no mostraban prisa,
-y hasta la mirada con que recorrían el entorno era tan lisa
-que parecían de esa clase de seres capaces de hacer no notar que vigilaban.
+—Esta línea se vuelve pared.
 
-La segunda mano de recuperación murmuró muy bajo.
+Han Jiwoo miró aquella palma.
 
-—Esos de arriba
-siempre creen que el tiempo está de su lado.
+—La persona, ahí dentro.
 
-Ante esas palabras, la mirada de Ater se enfrió más.
+—Ahí dentro.
 
-Los que creen tener el tiempo de su lado.
-Los que rara vez se ensucian las manos.
-Los que leen a la gente no como vida, sino como disposición y calidad.
+Kael cerró la mano y el cuadrado desapareció.
 
-Era muy probable que el estrato alto de Serakion
-fuera justo esa clase de seres.
+—Esa línea no se queda en el suelo. Sube hasta la pared. Cuando se cierra, el sitio donde está sentada la gente se vuelve una casilla.
 
-Y aquel día el grupo de reconocimiento
-por fin lo supo.
+Han Jiwoo siguió la línea con los ojos: del suelo a la pared, pared arriba, hasta el techo. Ella no la veía, pero creía en lo que veía Kael.
 
-El estrato de Serakion, cuanto más arriba, no tenía más poder,
-sino que era el lado que tenía una posición desde la que tocaba menos,
-estaba más lejos,
-y podía clasificar con más perfección.
+—Pero hay gente dentro.
 
-Esa distancia misma
-era una de las violencias más refinadas de este mundo.
+—Se cierra porque hay gente dentro. La persona es el tabique.
+
+La mano que había cerrado todavía no se abría.
+
+Ater, que llevaba un buen rato mirando aquella línea, apoyó la mano en la pared del lado donde estaban ellos, y no había junturas.
+
+—¿Aquí también?
+
+—Aquí también.
+
+Kael respondió.
+
+—Donde estamos nosotros también es una casilla. Si se cierra.
+
+Mientras Ater retiraba la mano, la segunda se miró la pierna, la que tendría que correr cuando se cerrara, y Han Jiwoo también miró esa pierna. Todavía no era momento de que se parara.
+
+No lejos de allí, por el recorrido de arriba, pasaron tres máquinas.
+
+Las máquinas sin daños no se apresuraban ni miraban alrededor, pero su andar, sin mirar, lo veía todo. Los pies de las tres tocaban el suelo al mismo tiempo, pero no hacían ruido.
+
+La segunda mano de recogida murmuró muy bajo.
+
+—Esos de arriba siempre creen que el tiempo está de su lado.
+
+—¿Y no lo está?
+
+Lo preguntó Han Jiwoo.
+
+La segunda tardó un compás en responder.
+
+—Hasta ahora ha estado de su lado.
+
+—¿Y ahora?
+
+La segunda se miró la pierna.
+
+—Ahora también. Pero nosotros estamos aquí, de pie.
+
+Han Jiwoo se apartó medio paso de la rendija y apoyó la espalda en la pared; luego volvió a pegar el ojo.
+
+Con la mirada quieta y pesada, Ater siguió mirando hacia allí hasta que las tres máquinas doblaron la esquina, y también después.
+
+—¿Son esas las que eligen?
+
+Se lo preguntó a la primera.
+
+—Las que están por encima de esas.
+
+La primera respondió.
+
+—Esas llevan lo que ya se ha elegido.
+
+Una de las máquinas de arriba pasó sin ruido justo por debajo del pasaje de observación, y los cinco se pegaron a la pared. La máquina no se detuvo, ni miró hacia arriba.
+
+Al pasar, un dedo largo golpeó una vez la pared de una casilla de abajo, y la persona sentada dentro enderezó la espalda al compás de aquel golpe.
+
+La segunda, que había tenido la pierna levantada del suelo, no la bajó hasta que la máquina dobló la esquina. La articulación resonó, pero no volvió nada.
+
+Han Jiwoo volvió a mirar las líneas de los sitios donde estaba sentada la gente. Una persona que había sacado el pie fuera de la línea lo metió dentro cuando pasó la máquina. La máquina no hizo nada; solo pasó.
+
+—No los tocan.
+
+Lo dijo Han Jiwoo.
+
+—No les hace falta tocarlos.
+
+Kael respondió.
+
+—Cuando pasan, se meten dentro.
+
+Han Jiwoo se miró los pies. En el suelo del pasaje de observación no había líneas, así que dejó los pies donde estaban.
+
+Kael fue doblando los dedos mientras contaba las casillas. Una, dos, tres; ahí lo dejó.
+
+—Son demasiadas.
+
+Lo dijo él.
+
+—¿Las casillas?
+
+—Las casillas.
+
+Ater, moviendo solo los labios, contó a la gente sentada y se detuvo en veinte.
+
+—Pasan de veinte.
+
+—Las casillas son más.
+
+Lo dijo Kael.
+
+—Las casillas vacías también se cierran.
+
+—¿Y las vacías, para qué?
+
+—Para llenarlas.
+
+Ater miró los sitios vacíos donde solo había líneas. Tres. Dejó de contar.
+
+Cuando la segunda volvió a acomodar la pierna, Han Jiwoo se puso en cuclillas y sacó el destornillador por cuarta vez.
+
+—¿Vas a aguantar?
+
+—Aguantaré. Hasta que bajemos, por lo menos.
+
+El ojo óptico bajó hacia la articulación.
+
+—¿Y cuando bajemos?
+
+—Cuando bajemos, la abres tú.
+
+Han Jiwoo, que estaba cerrando la articulación, se detuvo, volvió a abrirla y le dio media vuelta más.
+
+Después cerró la articulación.
+
+La primera levantó la mano y los cinco se pusieron en marcha.
+
+Hacia arriba.
 
 ---
 

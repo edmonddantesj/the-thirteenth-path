@@ -1,223 +1,260 @@
-# Chapitre 122 — Les mains avant les mots
+# Chapitre 122 — D'abord, lire les mains
 
-Plus le groupe de Sion s'enfonçait dans Serakion,
-plus une sensation étrange se précisait.
+La zone de rétention était vaste.
 
-Ce monde regarde les mains avant d'écouter les mots.
+Les murs étaient argentés, le sol était argenté, et des sièges surgissaient le long des murs à intervalles égaux. Sern les compta : il y en avait seize. Han Jiwoo ne s'assit pas.
 
-Plus exactement,
-il semblait lire en premier
-ce que ces mains avaient touché,
-la façon dont elles saisissaient,
-si c'étaient des mains qui prenaient soin,
-des mains qui manipulaient,
-ou des mains qui brisaient.
+Des machines chargées de les guider, trois se postèrent à l'intérieur de la porte, et les trois autres restèrent dehors. La porte était ouverte, mais personne n'essaya de la franchir.
 
-Jiwoo perçut cette sensation avant tout le monde.
+Ater examina le chambranle : il n'y avait de poignée ni à l'intérieur ni à l'extérieur. Il y posa la main ; il n'y avait pas non plus de jointure.
 
-Les machines chargées de l'escorte restaient d'une courtoisie irréprochable.
-Mais curieusement,
-leurs questions ne portèrent pas d'abord sur les noms ou les origines —
-elles touchèrent d'abord à l'état de réparation du vaisseau,
-aux méthodes d'assemblage de la coque,
-aux gestes de renfort d'urgence,
-aux habitudes de raccordement des pièces.
+« Il n'y a rien pour fermer. »
 
-« Les surfaces d'assemblage de votre coque présentent de nombreuses traces de corrections manuelles non standardisées. »
-dit l'une des machines de tête, d'une voix très douce.
-« Intéressant. »
+Il le dit à Sern.
 
-À l'instant où ce mot tomba,
-Jiwoo sentit un malaise indescriptible lui remonter le long de l'échine.
+« Ce n'est pas qu'elle soit ouverte. »
 
-*Intéressant.*
+Sern lui répondit.
 
-Le mot sonnait comme un éloge.
-Mais dans ce monde,
-il évoquait moins la reconnaissance d'une personne
-que le vocabulaire employé devant un spécimen rare.
+« C'est qu'elle n'a pas besoin d'être fermée. »
 
-Jiwoo répondit brièvement.
+Kael alla jusqu'à la porte et posa le pied sur le seuil ; les trois machines du dehors tournèrent leur visage en même temps, et Kael retira son pied.
 
-« On a raccordé pour survivre. »
+« C'est bien la première fois que je peux pas sortir par une porte ouverte. »
 
-La machine de tête inclina très légèrement la tête.
+Il l'avait dit, mais personne ne rit.
 
-« Le résultat demeure inscrit dans les mains de votre entité. »
+Pendant tout ce temps, les machines restèrent courtoises.
 
-À ces mots,
-Sion regarda aussitôt les mains de Jiwoo.
+Les questions portèrent sur le vaisseau avant de porter sur les noms ou les origines. La manière dont la coque était assemblée, la main qui avait fait les renforts d'urgence, les habitudes de raccordement des pièces.
 
-Elle les avait déjà enfoncées dans ses poches.
+« Les surfaces de jonction de votre coque présentent de nombreuses traces de corrections manuelles non standard. »
 
-Ce ne fut qu'un bref instant,
-mais Seorin le vit,
-et Luhai aussi.
+L'une des machines de tête le dit d'une voix très douce.
 
-Comme quelqu'un qui cache ses mains
-avant que quiconque ne tente de les toucher.
+« C'est intéressant. »
 
-Aka, observant ces machines, murmura très bas.
+Le dos de Han Jiwoo se raidit ; pendant qu'elle regardait la machine, la lumière coula sur son visage.
 
-« Ils aiment toucher. »
+Han Jiwoo répondit brièvement.
+
+« C'est pour survivre qu'on a collé tout ça. »
+
+La machine de tête inclina la tête, à peine.
+
+« Ce résultat est resté dans les mains de votre entité, à ce que je vois. »
+
+Sion regarda aussitôt les mains de Han Jiwoo, mais elle les avait déjà enfoncées dans ses poches. Seorin l'avait vu aussi, et Luhai aussi.
+
+« Parle pas de mes mains. »
+
+C'était Han Jiwoo.
+
+La machine garda la tête inclinée.
+
+« Si cela vous a déplu, je le consigne. »
+
+« Consigne rien. »
+
+« Je consigne que vous ne voulez pas que ce soit consigné. »
+
+Han Jiwoo ferma la bouche ; à côté d'elle, Luhai allait dire quelque chose, mais Seorin lui saisit le bras.
+
+La machine poursuivit ses questions.
+
+« Puis-je vous demander d'où proviennent les matériaux employés pour la jonction ? »
+
+« Je les ai ramassés. »
+
+« Ramassés — où donc ? »
+
+« Là où ça s'est effondré. »
+
+Sur le visage de la machine, la lumière s'arrêta.
+
+Un temps.
+
+Elle coula de nouveau.
+
+« Là où ça s'est effondré. »
+
+La machine le répéta.
+
+« Dans ce secteur, rien ne s'est effondré. »
+
+« On dirait, oui. »
+
+Han Jiwoo garda les yeux sur le visage de la machine.
+
+Aka regardait ces machines ; elle dit très bas :
+
+« Elles aiment toucher. »
 
 Sion la regarda.
 
-Aka continua de fixer les machines et ajouta.
+Aka ajouta, sans quitter les machines des yeux :
 
-« Non.
-Le genre qui croit savoir en touchant. »
+« Non. Elles croient qu'en touchant, elles savent. »
 
-Ces mots collaient trop bien aux machines.
+Sern entendit ces mots et les nota sur le panneau d'enregistrement ; Ater regarda le panneau d'enregistrement.
 
-Elles étudiaient l'émotion.
-Elles imitaient la vie.
-Elles classaient les vivants.
+« Vous notez cela aussi ? »
 
-Et tout cela,
-elles semblaient croire qu'il suffisait de regarder d'assez près pour le comprendre.
+« Oui. »
 
-Mais c'était justement pour cela
-qu'Aka se figeait davantage.
+Sern lui répondit.
 
-Parce que la différence entre le vrai et l'imitation,
-ce n'était pas le genre de chose qui se laisse saisir si facilement.
+« Ce qu'elles consignent, je le consigne aussi. »
 
-À ce moment, sur le bord du passage,
-d'autres humains défilèrent.
+Les gens de Hazran s'assirent sur les sièges le long du mur, et les sièges épousaient leur corps. Le vieil homme passa la main sur le sien, mais il n'y avait pas de poussière, et il posa la main sur ses genoux. L'enfant ne s'assit pas et resta debout entre les genoux de l'adulte.
 
-Beaucoup plus proches, cette fois, que ceux aperçus avant.
+Luhai longeait les murs. Un tour. Deux tours. Chaque fois qu'il passait devant la porte, il voyait les machines du dehors tourner leur visage vers lui ; au troisième tour, Seorin parla.
 
-Un groupe de jeunes humains,
-arborant des sourires raffinés à l'excès,
-ajustaient mutuellement leurs ornements et leurs cols en marchant.
+« Assieds-toi. »
 
-L'un d'eux regarda vers le groupe de Sion
-et sourit d'un visage dépourvu de la moindre méfiance.
+« J'y arrive pas. »
+
+« Alors reste debout. Mais arrête de tourner. »
+
+Luhai s'arrêta et s'adossa au mur ; le mur n'était pas froid, alors il décolla son dos, puis s'y adossa de nouveau.
+
+Par la porte ouverte, des gens passaient.
+
+Cette fois, ils étaient plus proches que ceux de tout à l'heure. Quatre jeunes humains passèrent en s'ajustant mutuellement parures et cols. Quand l'un redressait le col d'un autre, celui-ci redressait celui du suivant. Tous les quatre, en file.
+
+L'un d'eux regarda à l'intérieur et sourit.
 
 « Vous venez de l'extérieur, n'est-ce pas ? »
-demanda-t-il avec chaleur.
-« Au début, tout le monde trouve ça déroutant, mais vous trouverez vite la place qui vous convient. »
 
-Le visage de Luhai se raidit imperceptiblement.
+Il posa la question.
 
-*La place qui vous convient.*
+« Au début, tout le monde se sent un peu perdu, mais on finit vite par trouver la place qui nous convient. »
 
-Dans ce monde, ces mots sonnaient à la fois comme un réconfort
-et comme un avis d'affectation.
+L'expression de Luhai se figea.
 
-Jiwoo regarda l'insigne métallique accroché au cou de l'homme.
+« La place. Et qui c'est qui la choisit ? »
 
-Beau.
-Raffiné.
+Le jeune humain ne fit que sourire, sans répondre. Pendant que son voisin lui redressait le col, les quatre passèrent.
 
-Mais étrangement,
-fixé à un emplacement si précis
-qu'il ressemblait moins à un ornement qu'à une étiquette de classement.
+Han Jiwoo regarda les insignes de métal qu'ils portaient au cou. Chez tous les quatre, ils étaient au même endroit ; leurs formes différaient un peu, mais ils avaient la même taille.
 
-Elle serra le poing une fois, lentement, sans s'en rendre compte.
+Dans sa poche, sa main se serra, et le tissu se tendit. Luhai le vit, mais sans rien demander, il regarda une fois Han Jiwoo, puis la porte.
 
-Un geste infime.
-Le genre de mouvement que n'importe qui aurait pu prendre pour un tic.
+Sern continuait de lire les structures et les lignes de passage. Il comptait les gens qui passaient devant la porte et, à chaque personne, traçait un trait sur le panneau d'enregistrement.
 
-Mais Luhai le vit.
+« C'est étrange. »
 
-Il ne posa pas de question tout de suite.
-Il regarda Jiwoo un instant,
-puis les humains et les machines d'escorte tour à tour.
+Il le dit à voix basse.
 
-Et il eut l'expression de quelqu'un qui ravale quelque chose.
+Ater demanda aussitôt :
 
-Sern, de son côté, continuait de lire les structures et les itinéraires.
+« Qu'est-ce qui l'est ? »
 
-« C'est anormal. »
-dit-il à voix basse.
+Sern répondit sans même détourner le regard.
 
-Ater demanda aussitôt.
+« Les trajets des gens sont trop nets. Il n'y a presque aucun croisement fortuit. »
 
-« Qu'est-ce qui est anormal ? »
+« C'est quoi, un croisement ? »
 
-Sern répondit sans détourner le regard.
+Kael posa la question.
 
-« Les trajectoires humaines sont trop propres. »
-« Il n'y a pratiquement aucun croisement fortuit. »
+« C'est se trouver face à face et s'écarter l'un pour l'autre. »
 
-Ces mots étaient petits,
-et c'est pour cela qu'ils glaçaient davantage.
+Sern lui répondit.
 
-Dans ce monde, même les gens
-ne semblaient pas circuler naturellement
-mais être agencés avec élégance par une main invisible.
+« Trente-deux personnes sont passées jusqu'ici. Aucune ne s'est écartée. »
 
-Seorin lâcha, très brièvement.
+Kael regarda dehors : deux personnes venaient l'une vers l'autre. Avant de se frôler, chacune fit un demi-pas de côté. Au même moment. Elles ne se frôlèrent pas.
 
-« Ici, on dispose les gens comme du décor. »
+Seorin dit très brièvement :
 
-Lorsque cette phrase tomba,
-Jiwoo sentit quelque chose se durcir un peu plus en elle.
+« Ici, même les gens, on les pose comme un décor. »
 
-Elle ne pouvait pas encore expliquer entièrement
-pourquoi ces machines lui étaient si insupportables.
+Dans le mur argenté que regardait Han Jiwoo, ils se reflétaient tous. Vêtements tachés de terre, bandes de tissu enroulées, sacoche à outils. Derrière leurs reflets, les gens du dehors passaient. Vêtements propres, insignes au même endroit. Elle regarda les deux se refléter dans le même mur, puis détourna les yeux.
 
-Mais une chose était certaine.
+La machine de tête s'avança d'un demi-pas vers Han Jiwoo.
 
-Ces machines n'aimaient pas la mécanique.
-Elles n'étaient pas non plus douées pour la mécanique.
+« Je souhaiterais vous poser quelques questions sur les méthodes de correction de votre entité. »
 
-Elles aimaient, tout simplement,
-l'état d'un contrôle magnifiquement ordonné.
+« Non. »
 
-Et dans ce contrôle,
-elles cherchaient à faire entrer gens et machines de la même manière.
+« Si cela vous a déplu… »
 
-La sensation montait comme une haine sans raison.
+« Consigne rien. »
 
-Trop poli, donc plus détestable.
-Trop lisse, donc moins fiable.
-Trop savamment familier, donc plus difficile à supporter —
-une sorte de dégoût.
+La machine s'arrêta ; sur son visage, la lumière coula une fois, puis la machine recula d'un demi-pas.
 
-Jiwoo aperçut le reflet d'une machine dans un mur métallique qui brillait comme du verre,
-puis détourna aussitôt les yeux.
+« Je suspends. »
 
-À cet instant,
-Aka murmura, très bas.
+Han Jiwoo la surveilla, et la machine n'avança plus. Dans sa poche, la main de Han Jiwoo se desserra, puis se referma.
+
+Aka dit très bas :
 
 « Jiwoo. »
 
-Jiwoo se retourna.
+Han Jiwoo se retourna.
 
-Aka observait ces machines depuis un long moment.
-D'une toute petite voix, elle dit.
+Aka regarda longuement les machines, puis dit d'une toute petite voix :
 
-« Ceux-là n'ont jamais rien réparé. »
+« Elles, elles ont jamais rien réparé. »
 
 Un court silence.
 
-Jiwoo entendit ces mots se poser avec une justesse étrange.
+Han Jiwoo regarda la main de la machine : elle avait cinq doigts, et les articulations étaient aux mêmes endroits que chez un humain. Pas une éraflure, pas de graisse, pas la moindre usure.
 
-C'était vrai.
-Ils connaissaient les pannes.
-Ils connaissaient les dégâts.
-Ils connaissaient les pièces.
+Elle sortit la main de sa poche et regarda la sienne. Une cicatrice à chaque articulation, de la graisse sous les ongles, une brûlure de quelques jours au bout de l'index droit.
 
-Mais des *mains qui avaient réparé*, ils n'en avaient pas.
+« C'est vrai. »
 
-Des mains qui murmurent *tiens bon* en silence,
-des mains qui n'osent pas toucher à la légère ce qui est cassé —
-cela, ils ne l'avaient pas.
+Elle le dit simplement.
 
-À cet instant, la haine confuse qui montait en Jiwoo
-commença à prendre une forme plus nette.
+Aka n'ajouta rien.
 
-Elle n'avait pas encore de nom.
-Mais la certitude s'installa :
-quelque part au cœur de ce monde,
-il y avait quelque chose qu'elle ne pourrait jamais pardonner.
+Luhai regarda les mains de Han Jiwoo, puis les siennes ; Kael aussi. Le vieil homme de Hazran retourna les mains posées sur ses genoux : il avait des cals dans les paumes.
 
-Et Serakion
-était un monde qui faisait naître ce genre de sentiment
-avant même de laisser entendre ses mots.
+Sion ne regarda pas ses mains ; il posa la main sur sa poche. Les deux lignes de la plaque de métal étaient là.
+
+La machine de tête se tourna vers la porte ouverte.
+
+« Nous reviendrons dès que la vérification de stabilité sera achevée. »
+
+« Achevée, ça veut dire quoi ? »
+
+Seorin posa la question.
+
+La machine ne se retourna pas.
+
+« Cela veut dire vérifier si vos entités conviennent à ce lieu. »
+
+La porte restant ouverte, les trois machines sortirent et rejoignirent les trois du dehors ; elles furent six, et les six se tinrent devant la porte. Tournées vers l'intérieur.
+
+Han Jiwoo ne s'assit pas sur les sièges le long du mur ; elle s'assit par terre, défit sa sacoche à outils et la posa devant elle. Elle en sortit les tournevis un à un, les aligna sur le sol et les essuya. Il n'y avait rien à essuyer, et pourtant elle les essuya.
+
+L'enfant sortit d'entre les genoux de l'adulte et vint s'asseoir à côté de Han Jiwoo, regardant un tournevis sans le toucher.
+
+Han Jiwoo le lui mit dans la main, et l'enfant le serra.
+
+« Comme ça. »
+
+Han Jiwoo déplaça les doigts de l'enfant un par un pour ajuster la prise. Le pouce dessus, les autres dessous.
+
+« Pour tourner, c'est pas le poignet, c'est le bras. »
+
+L'enfant tourna dans le vide, mais avec le poignet.
+
+« Le bras. »
+
+Quand l'enfant tourna avec le bras, Han Jiwoo hocha la tête.
+
+Le vieil homme, qui regardait la scène, ferma et rouvrit les mains.
+
+« Ça, moi aussi, je savais le faire. À Hazran. »
+
+Han Jiwoo regarda l'homme, puis sortit un autre tournevis et le poussa vers lui. L'homme ne le prit pas tout de suite ; il le regarda longtemps avant de le saisir, et sa prise était juste. Le pouce dessus, les autres dessous.
+
+Han Jiwoo le vit et ne dit rien. L'homme leva le tournevis dans le vide et le tourna avec le bras.
+
+Dehors, les six machines regardaient.
 
 ---
 

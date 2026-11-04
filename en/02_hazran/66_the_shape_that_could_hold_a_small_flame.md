@@ -33,8 +33,6 @@ Then gave one very short nod.
 she said.
 "If you want it alive fast, you kill it first."
 
-Sion felt how frighteningly exact that was.
-
 He wanted to put the ember into the hull right now. He wanted to press it to the cold spot in front of him, too. He wanted to know at once whether it really connected.
 
 But that kind of wanting was exactly what killed first.
@@ -197,8 +195,6 @@ Then she touched one corner of the receiving frame with a fingertip and added:
 
 "That's why I need your hands."
 
-He had expected it from the start, and still it sounded strangely heavier.
-
 Sion sensed it was not said to Han Jiwoo alone.
 Han Jiwoo's hands made a structure hold; his own hands carried the ember along without letting it die.
 
@@ -225,7 +221,7 @@ Han Jiwoo gave a short laugh too.
 she said.
 "When something big fails you see it right away, but a small one, you might not know until you've killed it."
 
-Sion could not say a word; it was too exact.
+Sion could not say a word.
 
 The ember in his own hand was like that too.
 A thing that, handled carelessly, might go quietly cold at any moment.

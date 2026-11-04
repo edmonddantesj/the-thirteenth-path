@@ -13,8 +13,7 @@ Seorin was the first to move. Not fast, one step at a time, as if checking.
 
 "We clean it up."
 
-The short words sounded more tired than the start of a battle.
-Sern didn't write them down. He looked at the wall.
+Sern didn't write it down. He looked at the wall.
 
 "Upper-level links are still active. They are not fully dead. Command lines persist."
 
@@ -46,7 +45,7 @@ Seorin answered.
 
 "As many as we came up."
 
-As Kael pulled his foot out of the fold seam, his ankle twisted.
+As Kael was pulling his foot out of the fold seam, his ankle twisted.
 
 Han Jiwoo looked down over the railing and saw three androids standing below, not on the same beat.
 One was looking down at its own hands.
@@ -60,9 +59,11 @@ Han Jiwoo spoke very low.
 The last android looked at the three. He looked at his own hand, and at the one with its hand on its face.
 He didn't put a hand to his own face. He had done that once already.
 
+Han Jiwoo said.
+
 "It was a first for you too, wasn't it?"
 
-He looked down at his own hand. He closed it, opened it, and with that hand touched the lines on his face.
+He looked down at his own hand. He closed it, opened it, and with that hand, only then, touched the lines on his face.
 
 Another section down the stairs, the plates of two fallen Serakion robots lay on the floor, and a few androids stood stopped beside them.
 At that distance, before, a command would have come first, but no one moved first.
@@ -229,7 +230,7 @@ He spoke very low.
 
 "Let's go."
 
-It was short. Seorin went down first, and the rest followed in a column.
+Seorin went down first, and the rest followed in a column.
 At the very end, the two newly woken androids fell in, a beat behind, each to a different beat.
 When Han Jiwoo looked back, the two were there.
 Even without her slowing down, the two kept following.

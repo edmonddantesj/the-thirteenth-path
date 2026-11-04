@@ -33,8 +33,6 @@ Y asintió muy brevemente.
 Lo dijo ella.
 —Si quieres salvarlo rápido, lo matas antes que nada.
 
-Sion sintió que aquellas palabras eran de una exactitud aterradora.
-
 Ahora mismo quería meter enseguida en el casco la brasa de su mano. Quería juntarla también con el punto enfriado que tenía delante. Quería comprobar ya mismo si de verdad se enlazaban.
 
 Pero era justo ese deseo el que mataba primero.
@@ -197,8 +195,6 @@ Y, tocando con la yema del dedo una esquina del molde receptor, añadió algo.
 
 —Por eso hace falta tu mano.
 
-Aunque lo había previsto desde el principio, esas palabras sonaron, de un modo extraño, más pesadas.
-
 Sion sintió que no se lo decía solo a Han Jiwoo.
 La mano de Han Jiwoo era la que hacía aguantar la estructura; la suya era la que llevaba la brasa sin matarla.
 
@@ -225,7 +221,7 @@ Han Jiwoo también sonrió, breve.
 Lo dijo ella.
 —Lo grande, si sale mal, se ve enseguida; lo pequeño, puede que no lo notes hasta que lo has matado.
 
-Sion no pudo decir nada, de tan exactas que eran esas palabras.
+Sion no pudo decir nada.
 
 La brasa que ahora tenía en la mano era igual.
 Algo que, tratado sin cuidado, podía enfriarse en silencio en cualquier momento.

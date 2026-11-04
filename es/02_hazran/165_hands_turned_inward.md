@@ -1,305 +1,235 @@
 # Capítulo 165 — Las manos vueltas hacia dentro
 
-El nivel superior de Serakion estaba siempre
-más cerca de tratar antes cómo se ve el hecho de que haya surgido un problema
-que el problema mismo de que haya surgido.
+Aquel día el aire de la capa oculta estaba seco.
 
-Por eso el cambio se revelaba siempre tarde.
-No,
-se ordenaba para que se revelara tarde.
+La gente de Hazran se detenía a menudo mientras doblaba telas o servía agua. No había sonado nada y aun así se detenían, y luego seguían.
 
-Unas naves de transporte que normalmente habrían salido afuera por la zona gris
-quedaban ese día, sin recibir la marca de salida,
-amarradas tal cual en la línea de amarre intermedia.
+Sion, que los estaba mirando, también se detuvo. A lo lejos, por el lado de la línea gris, había un sonido.
 
-Por fuera parecía un simple retraso.
-Problema de alineación de piezas,
-reajuste del orden de zarpe,
-inspección interna en suspenso.
+Pasos.
 
-Las palabras escritas en la superficie eran siempre serenas.
+No eran pies humanos, ni tampoco los pies de las máquinas viejas. En las máquinas viejas cada paso sonaba distinto; estos sonaban igual.
 
-Pero lo que en realidad se detuvo no fueron solo las naves de transporte.
+Un paso.
+Un paso.
+Un paso.
 
-Los androides que iban a cargarse dentro de ellas
-estaban siendo trasladados en silencio a un sector distinto del de siempre.
+El intervalo era el mismo. Eran varios, pero los varios se oían como un solo paso.
 
-Las manos que debían salir afuera
-esta vez se plegaban de vuelta hacia la línea de espera interior.
+Dos de la gente de Hazran retrocedieron primero hasta la pared, y la mujer que vino con dos niños se puso a los dos detrás de sí. La mujer del rostro cansado dejó caer la tela y no la recogió, y el hombre sin hermano menor se puso de pie.
 
-Alguien lo habría tomado por una pérdida.
-Era un recurso ya comprometido en las líneas de trato de fuera,
-un flujo que circulaba pasando por muchas manos con su identidad oculta.
+Por el final de la línea gris, aparecieron.
 
-Pero Serakion ahora
-contó antes el control que la pérdida.
+Delante venían dos máquinas de cuerpo distinto al de las máquinas viejas. Tenían dos ojos ópticos y las articulaciones a la vista, y llevaban encima el polvo gris de fuera. La primera mano de recogida miró a esas dos.
 
-Habían desaparecido niños,
-la clasificación que no se detenía quedó vacía varias veces,
-y de verdad se abrió alguna vez una grieta que no debía bajar.
+—Manos de fuera.
 
-Ese hecho Serakion aún no lo llamaba alboroto.
-En vez de eso,
-en silencio empezó a aumentar la fuerza interior.
+Lo dijo la primera.
 
----
+—¿Manos de fuera?
 
-El aire del lado del estrato viejo estaba ese día más seco.
+Lo preguntó Han Jiwoo.
 
-Nadie hablaba en voz alta,
-pero, de forma extraña, el movimiento de la gente se cortaba más a menudo que el día anterior.
+—Las manos que salen por el camino gris. Nosotras somos de recogida, y ellas, de fuera.
 
-Sion supo la razón
-solo al oír volver a las manos que habían salido afuera.
+Detrás de las dos manos de fuera venían los otros.
 
-Al principio sintió que los pasos eran raros.
+Androides.
 
-Ni irregulares como pies humanos,
-ni pesados y arrastrados como las máquinas viejas.
+Formaban una sola fila, y Luhai empezó a contarlos y lo dejó. No estaban gastados, pero tampoco eran lisos como las máquinas de guía de arriba. Se les veían las articulaciones, la cubierta era delgada y las manos, largas. En sus caras lisas no había sitio para los ojos, ni sitio para la boca, ni luz. Estaban de pie al mismo intervalo, a la misma altura.
 
-Demasiado regulares.
-Demasiado acompasados.
+La cara de Han Jiwoo se endureció, y Luhai no sonrió. Aka miró largo rato hacia allí sin apartar los ojos.
 
-Quienes reaccionaron antes que Sion fueron unos cuantos de la gente venida de Hazran.
-Dos de ellos retrocedieron casi por instinto.
-Alguien tragó aire,
-alguien escondió primero al niño tras de sí.
+La máquina vieja, que había empezado a despegar el cuerpo del pilar y lo había dejado a medias, salió un paso y se detuvo, sin hacer ruido. El ojo óptico de la máquina del lado de la pared subió hacia los androides, y su luz débil recorrió una vez aquellas caras lisas. La luz se quedó detenida y no bajó.
 
-Y enseguida,
-por el final de las vías grises, aquello se mostró.
+Sion miró ese ojo óptico detenido.
 
-Eran androides.
+Una de las manos de fuera se puso delante y habló en voz baja.
 
-Ni viejos,
-ni lisos como las máquinas de guía del nivel superior de Serakion.
+—Serakion ha empezado a cambiar la disposición de dentro. Varias filas de individuos que estaba subiendo se pararon enteras. Ahora ese lado también vuelve sus androides hacia dentro.
 
-Cuerpos hechos mucho más prácticos.
-Articulaciones dispuestas para moverse mucho más rápido.
-Rostros diseñados para borrar mucho más fácil la emoción.
+—¿Cómo lo sabes?
 
-No eran muchos.
-Pero tampoco pocos.
+Lo preguntó Seorin.
 
-El problema no era el número.
-
-Era el hecho de que quienes los habían traído dentro
-eran las manos que entraban y salían de fuera de Serakion.
-
-La cara de Han Jiwoo se endureció primero.
-Luhai tampoco rió.
-Aka miró largo y callada hacia ese lado.
-
-Algunas máquinas viejas detuvieron del todo la mano.
-Esa reacción fue tan breve
-que quien no lo sabe podría no haberla visto.
-Pero Sion no la perdió.
-
-Aquello no era una simple cautela.
-
-Era una reacción cercana a la memoria.
-
-Una mano de fuera se puso delante y dijo bajo.
-
-—Serakion empezó a cambiar su disposición interior.
-—Varias filas de individuos que subía quedaron paradas de golpe.
-—Ahora ese lado también vuelve a los androides hacia dentro.
+—Hay tres naves de transporte amarradas en la línea de amarre. No les salió la marca de salida. Lo que iban a cargar no se cargó. Se fue a otro sector. Hacia dentro.
 
 Un silencio breve.
 
-Él se volvió hacia atrás
-y miró una vez a los androides que había traído.
+La mano de fuera se volvió y miró una vez lo que había traído.
 
-—Por eso nosotros también los trajimos.
+—Por eso también los trajimos nosotras.
 
-Aun después de que cayeran esas palabras,
-nadie respondió enseguida.
+Nadie respondió enseguida. Del lado de la brecha, la segunda mano de recogida, de pie con la pierna estirada apoyada contra la pared, miró a los androides.
 
 Seorin preguntó primero.
 
 —Explícate.
 
-La mano de fuera siguió hablando con cara cansada.
+Los ojos ópticos de la mano de fuera fueron hacia Seorin.
 
-—Nuestra fuerza tiene un límite.
-—Dentro o fuera,
-si ese lado empieza a mover más androides,
-solo con gente no se aguanta.
+—Nuestra fuerza tiene un límite. Dentro o fuera, si ese lado empieza a mover más androides, solo con gente no se aguanta.
 
-Él, como una lógica ya demasiado habituada,
-siguió sin detenerse lo más mínimo.
+Las palabras no se detuvieron.
 
-—A androides hacen falta androides.
-—Eso no es algo que convencer,
-sino algo a lo que se le reescribe la línea de mando.
-—Porque no tiene voluntad.
+—Contra androides hacen falta androides. Eso no es algo a lo que haya que convencer: basta con reescribirle la línea de mando. No es que tenga voluntad.
 
-En ese instante,
-Han Jiwoo cortó sus palabras.
+Han Jiwoo cortó esas palabras.
 
-—Eso —dijo ella bajo— lo dices demasiado fácil.
+—Eso…
 
-El aire de la sala se endureció apenas.
+Lo dijo en voz baja.
 
-La mano de fuera devolvió el golpe enseguida.
+—…lo dices demasiado a la ligera.
 
-—No es algo que diga fácil.
-—Lo digo porque, si no, morimos.
+Los ojos ópticos de la mano de fuera giraron hacia ella.
 
-—Para no morir —dijo Han Jiwoo mirándolo de frente— das por sentado que no la tiene.
+—No lo digo a la ligera. Lo digo porque, si no, morimos.
 
-Él frunció el entrecejo.
+—Para no morir…
 
-—Eso ni siquiera es una persona—
+Lo dijo Han Jiwoo, mirándola de frente.
 
-Han Jiwoo lo cortó otra vez.
+—…das por hecho que no la tiene.
 
-—Quien dice que no hay voluntad
-es el primero que borra la voluntad.
+—Eso ni siquiera es una persona, y…
 
-Esta vez nadie se metió fácil.
+Han Jiwoo volvió a cortarla.
 
-Esa frase no apuntaba solo a los androides.
-Apuntaba a la vez a todos los que estaban dentro.
+—El que dice que no hay voluntad es el primero en borrar la voluntad.
 
-Luhai soltó un aliento casi de maldición.
+Mientras nadie conseguía meterse, la mano de la máquina vieja se separó medio palmo del pilar y volvió a pegarse.
+
+Luhai soltó un aliento que sonó a maldición.
 
 —Pero si no los usamos, nos arrollan.
 
-Esas palabras no eran cobardes.
-Al contrario, eran tan honestas que dolían más.
+Han Jiwoo miró a Luhai, pero Luhai miraba a los androides con las manos apretadas. Las dos.
 
-La mano de fuera también asintió con la cabeza despacio.
+La mano de fuera asintió levemente.
 
-—Sí.
-—Lo sabemos.
-No los trajimos con gusto.
-—Pero, para que nuestra vida no se acabe,
-hay que devolverles lo suyo a ellos.
+—Así es. Lo sabemos. No los trajimos por gusto. Pero, para que nuestra vida no se acabe, hay que devolverle a ese lado lo que es suyo.
 
-Seorin, aun oyendo esas palabras, no tomó partido enseguida.
-Solo miró una vez el intervalo entre los androides y la mano de fuera
-y preguntó bajo.
+Seorin no tomó partido; miró la distancia entre los androides y la mano de fuera. Tres pasos. La mano de fuera estaba de espaldas a los androides, a una distancia en la que podía permitirse darles la espalda.
 
-—¿El control?
+—¿Y el control?
 
-—Con interferencia de ondas tenemos sujeta la línea base.
-—No son de los que piensan hondo.
-—Si la orden es exacta, se mueven.
+—Con interferencia tenemos sujeta la línea base. No son de los que piensan hondo. Si la orden es precisa, se mueven.
 
-En esa última frase,
-una máquina vieja movió el ojo óptico de forma muy mínima.
+El ojo óptico de la máquina vieja se movió muy poco. De la mano de fuera a los androides, y después al suelo.
 
-Fue muy pequeño.
-Pero ese pequeño movimiento
-parecía un rechazo salido antes que las palabras.
+Sern habló en voz baja.
 
-Sern dijo bajo.
-
-—Eso de que no piensan hondo,
-¿quién lo decidió?
+—El juicio de que no piensan hondo, ¿quién lo tomó?
 
 La mano de fuera respondió.
 
-—Quien lo vio en el terreno.
+—Quien los vio en el terreno.
 
-—En el terreno —siguió Sern, frío—, se suele confundir moverse rápido con no tener voluntad.
+—En el terreno…
 
-Ater no recogió esas palabras,
-pero su mirada ya estaba puesta en otro lado.
+Sern siguió, frío.
 
-Estaba mirando la disposición de los androides.
-La distancia a que estaban,
-el intervalo en que se detenían,
-quién movía antes la mirada,
-quién mantenía el frente hasta el final.
+—…se suele confundir el moverse rápido con no tener voluntad.
 
-Y dijo muy bajo.
+—¿Y qué viste?
+
+Lo preguntó la mano de fuera.
+
+—Lo vimos en Hazran.
+
+Lo dijo Sern.
+
+—Aunque cayera la primera fila, la siguiente venía con el mismo ángulo. A eso lo llamamos vacío. Todavía no sé si nos equivocamos o si acertamos.
+
+Ater no recogió esas palabras; miraba a los androides. La distancia a la que estaban era la misma, y también el intervalo en que se detenían. Solo uno, al final de la fila, tenía la cabeza media falange más abajo que los demás, y seguía así desde que Han Jiwoo había cortado las palabras.
 
 —No es una disposición del todo vacía.
 
-Nadie pudo preguntar enseguida qué quería decir eso.
+Lo dijo en voz muy baja.
 
-En ese instante Sion recibió una sensación extraña:
-que esos androides, aun pareciendo que solo estaban parados,
-callaban poco a poco cada uno de un modo algo distinto.
+—¿Qué no lo es?
 
-No podía afirmar que hubiera diferencia.
-Pero tampoco podía decir que no la hubiera.
+Lo preguntó Seorin.
 
-Esa ambigüedad,
-al contrario, daba más miedo.
+—El del final. Tiene la cabeza distinta.
 
-—¿Esto está bien?
+Todos miraron el final, esa media falange. Algunos la veían y otros no. Luhai no la veía, así que entornó los ojos y volvió a mirar. Aka la veía, pero no asintió.
 
-Esta vez no fue Sion,
-sino una mujer de mediana edad venida de Hazran quien abrió primero la boca.
+Sion miró el del final, luego el de al lado, y luego el siguiente. Eran iguales; solo el del final se distinguía en media falange. Apretó la placa de metal que llevaba en el bolsillo.
 
-Ella, con el niño pegado tras de sí,
-miraba a los androides y hablaba.
+—¿De verdad esto está bien?
 
-—Por culpa de esas cosas huimos.
-—¿Y ahora hay que quedarse de pie junto a ellas?
+La mujer que vino con dos niños lo dijo con los dos pegados a la espalda, mirando a los androides.
 
-A esas palabras nadie pudo decirle fácil que se equivocaba.
+—Por cosas como esas huimos. ¿Y ahora tenemos que quedarnos aquí de pie al lado de eso?
 
-Han Jiwoo, en vez de responder,
-caminó un poco hacia adelante.
+Uno de los niños, detrás, miró a los androides entre los pliegues de la ropa de la mujer. La mujer le empujó la cabeza hacia atrás, pero el niño volvió a asomarse.
 
-No llegó hasta delante de los androides.
-Pero tampoco huyó.
+Nadie pudo decirle que se equivocaba. Los labios del hombre sin hermano menor, que miraba de pie a los androides, se movieron. Era una boca que contaba, y se detuvo a mitad de la cuenta.
 
-—Todavía no lo sé —dijo ella bajo—. Si eso de verdad está vacío,
-o si somos nosotros los que queremos creer que está vacío.
+En lugar de responder, Han Jiwoo dio tres pasos al frente; no llegó hasta los androides, sino hasta el lado de la mano de fuera, y allí se quedó. No huyó.
+
+—Yo todavía no lo sé.
+
+Lo dijo en voz baja.
+
+—Si eso de verdad está vacío, o si somos nosotros los que queremos creer que lo está.
 
 Un silencio breve.
 
-Ella tomó aliento una vez
-y siguió más bajo.
+Miró el del final, la cabeza media falange más abajo, y acompasó el aliento una vez.
 
-—Pero una cosa sí la sé.
-—Si lo que decía Serakion
-empezamos a repetirlo nosotros por otra razón,
-el final puede no ser tan distinto como creemos.
+—Pero una cosa sí sé. Si empezamos a repetir lo que decía Serakion, aunque sea por otras razones, puede que el final no sea tan distinto como creemos.
 
-Esas palabras no eran una conclusión.
-No eran palabras que cierran,
-ni palabras que permiten.
+La mano de fuera no respondió; mantenía los ojos ópticos puestos en Han Jiwoo.
 
-Seorin estuvo un rato sin decir nada.
+Seorin, que llevaba un rato sin hablar, miró a los androides, miró a la gente de Hazran pegada a la pared, miró la mano separada medio palmo del pilar, la máquina vieja, y solo entonces miró a la mano de fuera.
 
-Luego abrió la boca con una voz muy realista.
+—Ahora mismo no los echo. Pero tampoco los incorporo como fuerza. Movimiento, reacción, cumplimiento de órdenes, posibilidad de deserción: todo se vuelve a mirar.
 
-—Ahora mismo no los echo.
-—Pero tampoco los incorporo como fuerza.
-—Movimiento, reacción, cumplimiento de órdenes, posibilidad de deserción: todo se vuelve a mirar.
-
-Una mano de fuera endureció la cara.
+Una de las manos de fuera endureció la cara. Era la otra, la que había estado detrás.
 
 —No hay tiempo para eso.
 
-Seorin no pestañeó ni una vez.
+Seorin ni parpadeó.
 
-—Aunque no lo haya, se hace.
-—Si a partir de ahora cruzamos mal la línea,
-no vamos a ir a romper Serakion,
-sino que vamos a ensamblar otro Serakion.
+—Aunque no lo haya, se hace. Si desde ahora cruzamos mal la línea, no iremos a romper Serakion: acabaremos ensamblando otro Serakion.
 
-Tras esas palabras,
-la sala quedó en un silencio muy hondo.
+La sala quedó en silencio; las dos manos de fuera se miraron, pero no dijeron nada.
 
-Nadie estuvo del todo de acuerdo,
-y nadie pudo del todo rebatir.
+La mano de fuera que estaba delante se giró hacia los androides y alzó una mano, y los androides se movieron.
 
-Y a la misma hora,
-en el nivel superior de Serakion también, en un silencio parecido,
-los androides se reubicaban hacia dentro.
+Un paso.
+Un paso.
 
-Distintos pretextos,
-distintos miedos,
-distinto lenguaje.
+Entraron en fila hasta el fondo, a un sector vacío, y se quedaron de pie. El último fue el del final, con la cabeza media falange más abajo.
 
-Pero, cada vez más,
-ambos lados empezaban a tener en la mano el mismo recurso.
+Detrás de los adultos, los niños de Hazran miraron aquella fila, y el niño del destornillador apretó fuerte el destornillador.
+
+Seorin se sentó ante la placa, tomó una piedra y, fuera de las cuatro casillas, en el borde de la placa, trazó una casilla más. Era una casilla vacía, sin piedra.
+
+—¿Qué es eso?
+
+Lo preguntó Luhai.
+
+—Todavía no lo sé. Por eso la dejo vacía.
+
+Cuando la máquina vieja despegó del todo la mano del pilar, sonó un paso hacia el sector. Luego se detuvo y no siguió.
+
+El ojo óptico de esa máquina estaba puesto en la fila. También el de la máquina del lado de la pared, y ninguno de los dos bajó.
+
+Sion y Han Jiwoo miraron esas dos luces.
+
+—¿Qué les pasa?
+
+Lo preguntó Luhai en voz baja.
+
+Nadie respondió.
+
+La lámpara amarilla parpadeó, pero la fila dentro del sector no parpadeó. La cabeza del final seguía media falange más abajo.
+
+Han Jiwoo no apartó los ojos de allí.
 
 ---
 

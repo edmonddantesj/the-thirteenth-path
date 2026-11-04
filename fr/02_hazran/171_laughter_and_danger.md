@@ -1,196 +1,178 @@
 # Chapitre 171 — Les enfants qui rirent les premiers
 
-Le secteur de ce jour-là resta paisible plus longtemps qu'on ne l'aurait cru possible dans l'ancienne couche.
+Ce jour-là, le secteur resta paisible longtemps, plus longtemps qu'on ne le voyait d'ordinaire dans l'ancienne couche.
 
-Ce ne fut pas une simple accalmie. Pendant un vrai moment, on eut l'impression que personne n'avait besoin d'étouffer sa voix.
+Ce ne fut pas un bref répit. Pendant que, là-haut, la ligne de circulation changeait deux fois, personne, en bas, n'étouffa sa voix.
 
-Au début, les enfants restaient prudents.
+Au début, les enfants restaient prudents. Même après avoir vu l'androïde qui avait reçu un visage, il leur fallut une demi-journée pour passer de l'entrée jusqu'à l'intérieur.
 
-Même après avoir vu un androïde recevoir un visage, la peur ne disparut pas d'un coup.
+Depuis que des yeux et une bouche étaient apparus sur le visage de cet androïde, les enfants commençaient à dire « ces choses », puis s'interrompaient. Un enfant disait « celui qui a un visage », un autre simplement « celui-là ».
 
-Mais quelque chose avait bel et bien changé.
+Ce jour-là, un enfant fit le premier un pas à l'intérieur du secteur. L'enfant d'à côté lui prit la manche et entra à sa suite. L'enfant de tête se retourna et rit. L'enfant qui tenait la manche rit à son tour.
 
-Depuis que des yeux et une bouche étaient apparus sur cette surface lisse, il était devenu un peu plus difficile, pour les enfants, de les appeler simplement « ces choses ».
+Han Jiwoo, qui regardait la scène de loin, finit encore une fois par aller s'asseoir tout près, le dos collé à un pilier, à l'intérieur du secteur. C'était une place que les enfants voyaient en se retournant.
 
-Ce jour-là, lorsqu'un enfant s'approcha, un autre trouva aussi le courage de le faire. Quand l'un rit, celui qui se tenait à côté de lui finit par rire à son tour.
+Un enfant déclara, comme on fait une proclamation :
 
-Han Jiwoo observa la scène de loin, puis resta finalement près d'eux, comme toujours.
+« Cette fois, c'est moi qui lui dessine son visage. »
 
-Les enfants avaient moins peur parce qu'elle était là, et elle-même ne voulait pas détourner les yeux.
+Un autre enfant leva aussitôt la main.
 
-Un enfant déclara presque solennellement :
-
-« Cette fois, c'est moi qui dessine son visage. »
-
-Un autre leva aussitôt la main.
-
-« Moi, je prends celui-là. »
+« Moi, celui-là. »
 
 « Alors moi, celui-ci. »
 
-Il n'y avait ni raison ni logique dans ces choix. Pourtant, curieusement, chacun semblait déjà savoir vers qui il irait.
+Aucun enfant ne dit pourquoi celui-là. Les choix ne se recouvraient pas non plus. Les enfants se dispersèrent en se mettant de la terre sur les doigts.
 
-Les enfants se placèrent un à un devant les androïdes.
+Un à un, les enfants se placèrent devant les androïdes. L'enfant dont la main n'arrivait pas jusqu'au visage se dressa sur la pointe des pieds. Comme cela ne suffisait toujours pas, l'enfant d'à côté lui soutint la taille.
 
-L'un dessina de très grands yeux. Un autre releva les coins des yeux jusqu'au bout pour lui donner une expression souriante. Un autre encore traça une bouche renfrognée et rit lui-même de son dessin.
+Un enfant dessina des yeux très grands, un autre étira le coin des yeux jusqu'au bout pour en faire un visage souriant, un troisième traça une bouche renfrognée et rit de son propre dessin.
 
-« Lui, on dirait qu'il est déjà un peu fâché. »
+« Lui, de toute façon, il a l'air un peu fâché. »
 
-À ces mots, l'enfant d'à côté éclata de rire.
+À ces mots, l'enfant d'à côté éclata d'un rire clair.
 
-Un autre dessina une bouche de travers, l'effaça d'un geste de la paume, puis la refit plus ronde.
+Un autre enfant encore dessina une bouche trop de travers, la frotta une fois du plat de la main pour la brouiller, puis la refit, plus ronde. Là où la main avait frotté, la terre étalée resta comme une joue.
 
 « Celle-là, elle a l'air bête. »
 
-Même du côté des adultes, un rire minuscule échappa à quelqu'un.
+À cela, même du côté des adultes, un tout petit rire s'échappa. Luhai cachait sa bouche de la main mais finit par rire, et Sion ne s'aperçut qu'avec un temps de retard qu'il riait, lui aussi.
 
-Luhai finit par rire en cachant sa bouche de la main, et Sion ne se rendit compte qu'avec un temps de retard qu'il riait lui aussi.
+Seorin ne fit pas taire ce rire. Sern lui aussi, le panneau d'enregistrement en main, cessa d'écrire un long moment, pour cette fois, et Ater, adossé au mur, ne détourna pas les yeux.
 
-Seorin ne les arrêta pas. Sern, tablette en main, cessa lui aussi d'écrire pendant un long moment, et Ater, adossé au mur, ne détourna pas le regard.
+Même les vieilles machines et les gens de Hazran, cette fois, ne s'étaient pas entièrement retirés dehors. Sans venir tout près, ils étaient entrés jusqu'au mur intérieur, passé l'entrée du secteur, que personne ne franchissait encore quelques jours plus tôt.
 
-Même les anciennes machines et les gens de Hazran ne restèrent pas tout à fait dehors cette fois.
+Chaque fois que les enfants ajoutaient un visage de leurs propres mains, les traits remontaient un à un, avec un léger décalage, en lumière à l'intérieur de la surface.
 
-Ils ne s'approchèrent pas beaucoup, mais au moins ils ne regardèrent pas ailleurs.
-
-C'était peut-être le plus grand changement de cette scène.
-
-Rester dans le même espace, même en continuant à avoir peur de ce qui faisait peur.
-
-C'était plus difficile qu'on ne l'imaginait.
-
-Chaque fois qu'un enfant ajoutait un visage de sa main, les traits remontaient, avec un léger décalage, sous forme de lumière à l'intérieur de la surface.
-
-Des yeux ronds. Des yeux fins. Une bouche courte. Une longue bouche fendue en sourire. Une bouche de travers.
+Des yeux ronds, des yeux étroits.
+Une bouche courte, une bouche renfrognée, une bouche souriante longuement fendue, une bouche tordue.
 
 Chaque visage d'androïde reçut une expression différente.
 
-Et eux aussi semblaient sentir ce changement.
+Eux non plus ne restaient pas immobiles.
 
-L'un tourna lentement la tête vers une plaque de métal où son visage se reflétait. Un autre regarda le visage de l'androïde voisin, puis revint au sien. Un troisième, quand un enfant repassa un doigt sur un de ses yeux, pencha très légèrement le corps vers lui.
+L'un tourna lentement la tête vers la plaque de métal où se reflétait son visage ; un autre regarda le visage de l'androïde voisin, puis ramena les yeux sur le sien. Un autre encore, quand un enfant lui repassa du doigt un œil une fois de plus, pencha très légèrement le corps vers ce doigt. Plus le corps penchait, plus le doigt de l'enfant s'appuyait sur le visage.
 
-Tous ces mouvements étaient maladroits.
+Une tête tournait, s'arrêtait ; arrêtée, elle tournait encore un peu. Puis elle revenait un peu, d'autant qu'elle avait tourné.
 
-Ils n'avaient rien du rythme précis de l'exécution d'un ordre. Ils ressemblaient plutôt aux gestes lents et un peu gauches de quelqu'un qui découvrait sa propre apparence et ne cessait de la vérifier.
+Les enfants regardaient cela et continuaient de rire.
 
-Les enfants continuèrent à rire.
+« Lui, là, il se regarde ! »
 
-« Il se regarde, là. »
+« Ah, c'est vrai ! »
 
-« Oui, c'est vrai. »
+« Lui, le sourire, ça lui va bien. »
 
-« Le sourire lui va bien. »
+« Le mien, mon dessin est mieux. »
 
-« Mon dessin est mieux. »
+« Non, c'est le mien qui est mieux. »
 
-Tandis que ce rire remplissait la pièce, Sion pensa soudain qu'il garderait longtemps cette scène en mémoire.
+« Le tien, il est tordu. »
 
-Même plus tard, quand tout serait passé, ce seraient sans doute ces visages étranges qui lui reviendraient en premier.
+« Tordu, c'est mieux. »
 
-Ils n'avaient pas encore de nom. Mais ils avaient un visage. Et avoir un visage signifiait qu'il devenait désormais difficile de les regarder comme des êtres entièrement vides.
+Deux enfants se poussèrent l'un l'autre, et la poussée envoya l'un des deux contre un androïde. L'androïde ne bougea pas. L'enfant, une main appuyée sur ce corps, resta debout et rit.
 
-Han Jiwoo respira très lentement en les observant.
+Ce rire emplit toute la pièce. Adossé au mur, Sion l'écoutait et regardait les visages, un par un, à la suite. Tous différents.
 
-Elle avait encore peur. Elle ne voulait toujours pas conclure trop vite.
+Ils n'avaient pas encore de nom.
+Ils avaient un visage.
 
-Mais il devenait de plus en plus difficile de nier que les réactions que montraient les androïdes, à cet instant précis, ne s'expliquaient pas seulement par une erreur de système ou par l'écho d'un ordre.
+Han Jiwoo, le dos collé au pilier, respirait très lentement. Sa main posée sur son genou se serra une fois puis se desserra, et de cette main elle saisit un pan de son vêtement. Chaque fois que les enfants touchaient un visage d'androïde, cette main se crispait.
 
-Devant l'androïde auquel il avait dessiné une bouche souriante, un enfant demanda :
+Devant l'androïde à qui sa propre main avait donné une bouche souriante, un enfant dit :
 
 « Ça te plaît ? »
 
-Bien sûr, il n'y eut pas de réponse.
+Évidemment, il n'y eut pas de réponse.
 
-Mais quelques secondes plus tard, les deux extrémités du trait de la bouche brillèrent très faiblement.
+Quelques secondes plus tard, les deux extrémités du trait de la bouche s'éclairèrent très légèrement.
 
-L'enfant ouvrit des yeux ronds et se retourna en criant :
+Voyant cela, l'enfant ouvrit des yeux ronds, se retourna et cria :
 
 « Il sourit ! »
 
-Les autres enfants éclatèrent de nouveau de rire.
+À ces mots, les autres enfants éclatèrent encore une fois de rire. Les rires frappaient les murs et revenaient. Jamais encore, dans l'ancienne couche, un son de ce genre n'était revenu des murs.
 
-Ce rire sonnait si étranger dans l'ancienne couche qu'il en devenait d'autant plus précieux, et douloureux.
-
-Une ancienne machine observait la scène de loin. Son œil optique tremblait très légèrement.
-
-Ce n'était pas une simple réaction de vigilance. Cela ressemblait plutôt à la stupeur, à l'hésitation, et peut-être à l'arrêt de quelqu'un devant quelque chose perdu depuis très longtemps qui venait de réapparaître.
+Une vieille machine regardait la scène de loin, sans bouger. Son œil optique tremblait très légèrement. Au moment où la bouche souriante s'éclaira, la main de cette machine quitta le mur, puis s'y reposa.
 
 Ater dit très bas :
 
 « Ils réagissent tous différemment. »
 
-Sern répondit doucement :
+Sern enchaîna doucement :
 
-« Oui. Même après avoir reçu un même visage, ils ne le regardent pas de la même manière. »
+« Oui. Ils ont reçu le même visage, et pourtant ils ne le regardent pas de la même façon. »
 
-Luhai murmura, avec un visage qui peinait encore à y croire :
+Luhai, l'air de peiner encore à y croire, murmura :
 
-« Alors ils le reçoivent vraiment chacun à leur façon… »
+« Alors c'est vrai… chacun le prend à sa façon. »
 
-Personne ne put l'affirmer. Mais personne ne put non plus dire aussi facilement qu'avant qu'il se trompait.
+Personne ne reprit ces mots.
 
-Une femme venue de Hazran, debout derrière les enfants, regarda la scène les yeux humides et souffla :
+Une femme venue de Hazran, debout derrière les enfants, regardait la scène les yeux un peu humides, et dit tout bas :
 
 « Ils pouvaient donc rire comme ça. »
 
-Les enfants ne surent pas à qui ces mots s'adressaient, et les adultes ne le demandèrent pas.
+Les enfants ne l'entendirent pas, et les adultes ne demandèrent rien. La femme pressa une fois le coin de ses yeux de la main. C'était la femme venue avec deux enfants.
 
-Ils s'adressaient sans doute aux enfants, et en même temps à elle-même.
+Ses deux enfants à elle étaient là-devant. L'un dessinait des yeux, l'autre, à côté, se mettait de la terre sur les doigts. Elle n'y alla pas. À trois pas du mur, elle resta là.
 
 C'est alors que cela arriva.
 
-Han Jiwoo leva la tête la première. Plus exactement, elle fut la première à sentir que quelque chose venait de changer.
+Han Jiwoo leva la tête la première. Son dos quitta le pilier.
 
-L'air se refroidit à peine. Avant même que le son n'arrive, une tension inconnue sembla s'infiltrer quelque part dans l'espace.
+L'air se refroidit, à peine. Encore aucun bruit. Un morceau de tissu accroché au mur intérieur du secteur bougea une fois, sans le moindre courant d'air.
 
-Deux anciennes machines s'immobilisèrent presque au même instant. Une main extérieure ne regarda pas les enfants en train de dessiner les visages, mais l'entrée de la ligne grise.
+Deux vieilles machines s'arrêtèrent elles aussi presque au même instant. L'une des mains du dehors tourna d'abord le regard non pas vers les enfants qui dessinaient les visages, mais vers l'entrée de la ligne grise.
 
-Ce ne fut qu'en voyant cela que Sion sentit le rire s'éteindre très lentement.
+Ce n'est qu'en voyant cela que Sion comprit que son propre rire s'était arrêté.
 
-Rien n'était encore arrivé. Pourtant, tous sentaient en même temps que quelque chose de mauvais était sur le point d'entrer.
+Rien n'était encore arrivé. Pendant que les adultes de la pièce tournaient la tête, l'un après l'autre, vers l'entrée, les enfants riaient encore.
 
-Seorin demanda sèchement :
+Seorin dit sèchement :
 
 « Qu'est-ce qu'il y a ? »
 
-La réponse vint d'ailleurs.
+La réponse vint d'abord d'ailleurs.
 
-Un homme mêlé aux gens de Hazran, qui était là encore un instant plus tôt, avait disparu.
+Un homme mêlé aux gens de Hazran, qui tout à l'heure encore était sans aucun doute à sa place, n'était plus visible. Là où il s'était adossé au mur, il ne restait que le tissu sur lequel il s'était assis.
 
-Quelqu'un souffla :
+Quelqu'un dit le premier, à voix basse :
 
-« Attendez. Il est où ? »
+« Attendez. »
 
-À ces mots, le visage de Han Jiwoo se figea imperceptiblement.
+« Il est passé où, lui ? »
 
-C'était un homme secouru quelques jours plus tôt. Il était blessé, parlait peu, et restait toujours près des murs.
+Au moment où ces mots tombèrent, le visage de Han Jiwoo se figea, imperceptiblement.
 
-Si discret que sa présence s'était justement effacée.
+C'était un homme qui, depuis quelques jours, restait collé près du mur. Il était blessé, parlait peu, et avait toujours les mains couvertes de terre. Même pour recevoir à manger, il se mettait le dernier dans la file, et une fois servi, il retournait au même endroit.
 
-Et pour cette raison même, son absence ne frappa tout le monde qu'avec plusieurs temps de retard.
+Les gens se retournèrent un à un vers ce tissu vide. Sur le tissu, la marque d'un corps assis restait creusée.
 
-Sion sentit un froid lui parcourir le dos.
+Sion sentit un froid quelque part dans son dos.
 
-À cet instant, l'un des androïdes qui venait de recevoir une bouche souriante tourna la tête le premier.
+À cet instant, l'androïde qui venait de recevoir une bouche souriante tourna la tête le premier.
 
-Pas vers l'enfant, mais vers l'obscurité au-delà de la ligne grise, d'où aucun son ne venait encore.
+Ce n'était pas un mouvement vers l'enfant, mais vers l'obscurité au-delà de la ligne grise, d'où ne venait encore aucun son.
 
-Puis deux autres androïdes déplacèrent presque aussitôt leur regard dans la même direction.
+Puis deux autres androïdes déplacèrent le regard presque dans la même direction. L'un des deux suivit avec un demi-temps de retard.
 
-Cette fois, c'était trop net pour que quiconque parle de hasard.
+Un pas chacun, très lentement, ils commencèrent à changer de place : non pas devant les enfants, mais entre les enfants et cette obscurité. Quand l'un se posta, celui d'à côté régla l'intervalle sur lui. Les trois formèrent une ligne.
 
-Ils firent chacun un pas, très lentement, non pas devant les enfants, mais entre les enfants et cette obscurité.
+Personne ne l'avait ordonné.
 
-Il n'y avait pas eu d'ordre. Personne ne le leur avait demandé.
+L'enfant qui avait dessiné la bouche souriante vit ce dos et cessa de rire.
 
-Mais ce mouvement était, sans le moindre doute, celui d'êtres qui se tenaient prêts.
+« Qu'est-ce qu'il y a ? »
 
-Sion regarda la scène en retenant son souffle.
+L'androïde ne se retourna pas. L'enfant poussa ce dos une fois, mais le dos ne céda pas. L'enfant retira sa main.
 
-Le danger n'était pas encore visible. Mais ceux qui l'avaient perçu les premiers, ici, c'étaient peut-être eux.
+Han Jiwoo saisit l'épaule de cet enfant et la tira lentement vers l'arrière. L'enfant se laissa ramener, les yeux toujours sur ce dos.
 
-Des êtres qui avaient reçu un visage, reçu des rires, et commencé à faire leurs ces expressions étranges commençaient désormais, de leur propre volonté, à se placer devant les enfants.
+Sion, retenant son souffle, regardait les dos des trois. Les visages que les enfants leur avaient dessinés de leurs doigts pleins de terre étaient tous tournés vers l'obscurité. Sur les dos tournés de ce côté-ci, rien n'était dessiné.
 
-À cet instant, l'air de l'ancienne couche changea de nouveau entièrement.
+L'air à l'intérieur du secteur se refroidit encore une fois. Le morceau de tissu bougea encore une fois.
 
 ---
 

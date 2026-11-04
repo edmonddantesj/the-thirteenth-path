@@ -24,8 +24,6 @@ Han Jiwoo's answer was short.
 
 "If they lose us, they're probably finished too."
 
-Sion thought she was right.
-
 If the team that had grabbed the fake ember first lost the real thing too, here, that team would slip both in the race and on the board. So it had no choice but to bite harder.
 
 Sern had reached the same conclusion.
@@ -63,7 +61,6 @@ she said, low.
 
 Ater gave the slightest nod at that.
 
-It was the right call.
 Going back inside Zahir's board was dangerous. But at least it had a name. A little of the rules still remained, and they would have the standing of hands that came back with the result. Outside, they would be hands running off with the real thing and no standing at all. Then the hands outside the arena, Harun's side stepping in, the market floor—all of it would rush in from the same direction.
 
 Watching below, Nasim nearly wiped the smile off his face for the first time.
@@ -211,14 +208,6 @@ Han Jiwoo said it.
 Sion knew what she meant.
 
 That sound meant it was still alive in there. People calling prices, hammering iron, calling to each other. Outside there was none of that.
-
-And Sion knew.
-
-What came next was not just a return.
-Holding the real thing,
-having held out even through the trick,
-as hands that broke the board and still came back alive,
-they were about to stand before Zahir again.
 
 ---
 

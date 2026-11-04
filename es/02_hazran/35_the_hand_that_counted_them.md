@@ -16,8 +16,6 @@ El comerciante lo gritó con la voz rota.
 Alguien, al lado, lo soltó con sorna.
 —Si lo tenías tirado ahí sin saber siquiera que era de verdad.
 
-Esa sola frase revolvió con más brusquedad el aire de la capa exterior del mercado.
-
 A Sion le bastó esa breve riña para saber que lo que el cuerpo pequeño llevaba en la mano al huir no era un simple objeto que valiera dinero. Una pieza verdadera mezclada entre las falsas. Nadie lo había comprobado abiertamente, pero varios ya se habían dado cuenta, y por eso el alboroto iba a más.
 
 Y Kael se movió el primero.
@@ -34,8 +32,6 @@ Era la de quien mete el cuerpo en medio antes de que alguien acabe hecho pedazos
 Seorin habló, breve.
 
 —Sion.
-
-Esa sola palabra bastó.
 
 Sion también se volvió de inmediato hacia el callejón. El que lo siguió fue Ater. Aun corriendo, Ater fue barriendo con la mirada los fragmentos de metal esparcidos por el suelo y la reacción entre el polvo. Si lo que el niño llevaba en la mano era eterita de verdad, su reacción podía diferir, al menos, de la de la limalla muerta.
 
@@ -141,8 +137,6 @@ Esta vez fue Ater quien abrió la boca.
 Lo dijo en voz baja.
 —Ese fragmento, al menos, no es del mismo lote que lo que está extendido afuera.
 
-En cuanto cayeron esas palabras, el aire de alrededor cambió una vez más.
-
 Nadie dijo el primero que era de verdad, pero era un aire en el que todos empezaban a pensar lo mismo. En Hazran, ese era el momento más peligroso. Cuando algo todavía no es de nadie y, a la vez, todos empiezan a ponerle precio.
 
 Luhai pareció leer ese cambio más rápido que nadie. Aun sujeto por la mano de Kael, sus ojos seguían midiendo el paso de al lado, el armazón de arriba, las manos de la gente. Tenía miedo, sí, pero era un niño en quien, aun en pleno miedo, el cálculo echaba a andar primero.
@@ -163,8 +157,6 @@ Sion lo dijo.
 —Entre las falsas se hacía demasiado el muerto.
 Luhai lo dijo mientras recobraba el aliento.
 —Cuando pasa eso, casi siempre es una de dos. O es de verdad, o alguien lo escondió a propósito.
-
-Sonaba a fanfarronada, pero tampoco sonaba del todo a disparate.
 
 Kael, después de oír esa respuesta, siguió sin soltarle la mano. Solo aflojó un poco la fuerza respecto a antes. Ese cambio mínimo apenas se le notaba a quien no fuera Sion, pero era claro. Quería decir que Kael tampoco veía a ese niño como un simple ratero.
 

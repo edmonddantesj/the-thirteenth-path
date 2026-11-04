@@ -77,7 +77,7 @@ Sern counted.
 
 Ater repeated it.
 
-The machine standing at the head had proportions close to a long, thin build, if it had been a person, and it stood a head taller than a person. Where a face should have been, it was smooth. A grain of light flowed slowly across it, stopped, and flowed again.
+The machine standing at the head was thin, and it stood a head taller than a person. Where a face should have been, it was smooth. A ripple of light flowed slowly across it, stopped, and flowed again.
 
 Luhai looked at that face, then looked away.
 
@@ -113,8 +113,6 @@ Luhai's face hardened.
 
 "Permitted."
 
-That one word was all he said aloud.
-
 Han Jiwoo took her hands completely off the helm and set both hands on her knees. There was strength in her fingertips, so she opened her hands, but they closed again on their own.
 
 The lead machine went on.
@@ -133,7 +131,7 @@ Sern said.
 
 "Sixteen is showing on the record panel. It has been from the start."
 
-No one had said sixteen. When Han Jiwoo looked back at the people at the mouth of the passage, they looked at one another, and a child spread out a hand of fingers, started counting, then stopped.
+No one on this planet had said sixteen. When Han Jiwoo looked back at the people at the mouth of the passage, they looked at one another, and a child spread out a hand of fingers, started counting, then stopped.
 
 Sern read the values briefly, then said, almost in a whisper,
 
@@ -155,7 +153,7 @@ Aka said, very low,
 
 "It isn't being considerate. It's pretending to be finished."
 
-Sion watched the grain of light flowing across the lead machine's face outside the viewport. When he laid his hand over his pocket, the corner of the metal plate pressed against his palm.
+Sion watched the ripple of light flowing across the lead machine's face outside the viewport. When he laid his hand over his pocket, the corner of the metal plate pressed against his palm.
 
 A moment later the lead machine stepped back one pace and raised an arm to one side. The time its arm took to rise was the same as the time it took to come down.
 
@@ -229,7 +227,7 @@ A child holding an adult's hand stood on the threshold. Inside the threshold was
 
 The child took the adult's hand and turned away. The line of light began right underfoot. When the child stepped to the side so as not to tread on the line, the adult pulled the child back onto it.
 
-A grain of light flowed once across the lead machine's face.
+A ripple of light flowed once across the lead machine's face.
 
 ---
 

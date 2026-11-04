@@ -1,235 +1,223 @@
 # Chapitre 127 — Sauvetage, pas confiance
 
-Quand le plus bref espace pour reprendre son souffle apparut,
-certaines choses sont devenues plus claires.
+Il y eut, très brièvement, de quoi reprendre son souffle.
 
-Cet endroit est différent du Serakion ci-dessus.
+Pendant que les réfugiés de Hazran reprenaient haleine, adossés aux murs, au sol, dans les interstices entre les vieux appareils, d'autres êtres apparurent un à un depuis les couloirs intérieurs.
 
-Mais *différent* ne signifiait pas immédiatement en sécurité,
-ou signifie immédiatement digne de confiance.
+C'étaient des machines.
 
-Tandis que les évacués de Hazran s'appuyaient contre les murs, les sols,
-et les écarts entre les vieux appareils, retenant à peine leur souffle,
-d'autres êtres émergèrent un à un des couloirs intérieurs.
+Les traces de réparation restaient bien visibles, et les pièces remplacées n'avaient pas été assorties : leur couleur différait. Une machine avait le bras gauche plus court que le droit ; une autre avait une jambe d'un autre modèle, et quand elle marchait, c'était ce côté-là qui touchait le sol en premier.
 
-Machines.
+Le regard que ces machines portaient sur les humains n'avait rien de chaleureux. Elles s'arrêtaient et regardaient, c'est tout ; elles ne s'approchaient pas.
 
-Mais contrairement aux machines qui avaient d'abord accueilli le groupe de Sion à Serakion.
+Un enfant de Hazran eut peur et se cacha en arrière ; une vieille machine qui se trouvait tout près marqua un arrêt. Sans s'approcher, sans chercher à apaiser, elle recula d'un pas depuis l'endroit où elle se tenait à distance. L'enfant regarda la machine depuis derrière les jambes d'un adulte. La machine ne recula pas davantage, et n'avança pas non plus.
 
-Ces machines n’avaient aucune impression d’être délibérément polies et belles.
-Des traces de réparation étaient visibles.
-Les pièces remplacées n'étaient pas cachées.
-Leurs mouvements semblaient moins silencieux que ceux résultant d’une longue endurance.
+Sion regarda cette distance. Trois pas. Une distance que la machine avait choisie.
 
-Peut-être à cause de ça,
-la première impression mentait moins.
+L'enfant sortit d'un pas de derrière les jambes de l'adulte. La machine ne bougea pas.
+L'enfant avança encore d'un pas. La machine recula d'un demi-pas.
+L'enfant s'arrêta. Il y avait de nouveau trois pas entre eux.
 
-Le problème était ce qui allait suivre.
+L'enfant se retourna, et l'adulte hocha la tête. L'enfant n'alla pas plus loin, s'accroupit sur place et regarda la machine. La machine aussi, debout à sa place, regarda l'enfant.
 
-Parce que la façon dont ces machines regardaient les humains
-il ne faisait pas chaud non plus.
+Peu après, la machine qui leur avait ouvert le chemin la première dit à voix basse :
 
-Lorsqu'un enfant de Hazran s'est caché derrière quelqu'un par peur,
-une vieille machine à proximité hésita.
+« Nous allons plus loin à l'intérieur. Ici, il est difficile de tenir longtemps. »
 
-Il ne s'est pas approché.
-Cela n'a pas apaisé.
+Luhai demanda aussitôt :
 
-Il se tenait simplement à distance,
-comme un être qui savait déjà que se rapprocher effrayerait davantage l'enfant.
+« T'es de quel côté, au juste ? »
 
-Sion regardait la scène et ressentait une émotion particulière.
+La machine répondit sans marquer le moindre temps.
 
-C'était une considération, oui.
-Mais pas de bienveillance.
+« Je suis du côté de ceux qui veulent éviter que tout se divise dans l'immédiat. »
 
-Ce côté-là ne traite pas non plus les humains confortablement.
-Cela ne les classe tout simplement pas comme le fait là-haut.
+Luhai ouvrit la bouche puis la referma ; pendant ce temps, Seorin, qui avait entendu, regarda la machine, mais la machine s'était déjà détournée.
 
-Cette différence était significative,
-mais jamais légère.
+Aka, en entendant ces mots, releva très légèrement la tête.
 
-Un instant plus tard,
-la machine qui avait ouvert le chemin la première parlait à voix basse.
+« C'est pour ça que tout n'est pas encore fichu. »
 
-« Aller plus loin à l'intérieur. »
-« Cette place est difficile à conserver longtemps. »
+La machine regardait Aka, mais ne répondit pas tout de suite. Le petit œil optique clignota une fois, puis la machine se détourna.
 
-demanda immédiatement Luhai.
+Plus loin à l'intérieur, on voyait des cloisons raboutées à la hâte, de vieux tissus, des provisions rassemblées dans l'urgence. Des caisses étaient empilées le long du mur, et sur chacune il n'y avait pas de lettres, mais des encoches grattées. Une, deux, trois.
 
-« De quel côté es-tu? »
+Sion regarda ces marques et appuya sur sa poche. Pendant ce temps, Sern recopia les marques des caisses sur le panneau d'enregistrement.
 
-La machine répondit comme si elle s'était attendue à la question :
-sans une seule pause.
+« Tu notes quoi ? »
 
-« Le côté qui essaie d'empêcher les choses de se diviser. »
+Luhai posa la question.
 
-Ces mots étaient étrangement directs.
+« C'est une façon de compter. »
 
-Sion regarda brièvement cette machine.
+Sern répondit.
 
-On lui a demandé de quel côté—
-il n'a pas dit *de votre côté*.
-Il n'a pas dit *nous vous sauverons*.
+« Ces gens tracent des traits, eux aussi. »
 
-Au lieu de cela, il a parlé du côté qui essaie d’empêcher les choses de se diviser.
+Luhai regarda les marques sur la caisse. Trois. Sur la caisse d'à côté, quatre. Il essaya de plier ses doigts pour compter, mais s'arrêta en chemin.
 
-Cela ressemblait moins à une déclaration
-et plus comme un principe.
+« Ils comptaient quoi ? »
 
-Aka a entendu ces mots
-et releva très légèrement la tête.
+« Je ne sais pas. »
 
-« C'est pourquoi tu n'es pas encore tombé. »
+Sern répondit encore.
 
-La machine regarda Aka.
-Mais cette fois, il ne répondit pas tout de suite.
+« Ce n'est pas le moment de le demander. »
 
-Ce court silence
-cela ressemblait plus à une affirmation.
+Là où les humains avaient séjourné, des tissus étaient étendus ; là où les machines avaient séjourné, il y avait des outils et des pièces démontées. Entre les deux passait une allée de la largeur d'une personne, et rien n'était posé en travers de cette allée.
 
-Plus ils s'enfonçaient,
-les traces de personnes et de machines survivant ensemble apparaissaient de plus en plus clairement.
+Han Jiwoo regarda cette allée, puis les outils. Deux avaient la même forme que ceux dont on se servait à Hazran, et l'un d'eux avait un manche enveloppé de tissu, à la mesure d'une main humaine. Un outil de machine, avec un manche enveloppé pour une main humaine. Elle ne le prit pas, mais le regarda longtemps.
 
-Cloisons de fortune réunies.
-Vieux tissu.
-Des provisions rassemblées à la hâte.
-Et les marques de vies qui existaient dans un seul espace
-mais jamais complètement mélangé.
+Luhai, à côté d'elle, demanda :
 
-Là où les humains étaient restés, des traces de chaleur corporelle subsistaient.
-Là où les machines étaient restées, restaient les outils de réparation et les pièces démontées.
+« Qui s'en sert ? »
 
-Rapprochés les uns des autres,
-mais toujours clairement à part.
+« Je ne sais pas. Les deux, on dirait. »
 
-Une femme humaine assise près d’un mur
-durcit son expression dès qu'elle aperçut le groupe de Sion.
+Han Jiwoo ne quittait pas des yeux le manche enveloppé de tissu.
 
-Précisément…
-elle se durcit en voyant les machines bouger avec eux.
+Une femme humaine, assise près d'un mur, se figea dès qu'elle vit le groupe de Sion ; c'était à la vue des machines derrière eux que son visage s'était durci.
 
-La femme était trempée d’épuisement.
-Des creux profonds sous ses yeux.
-Un visage qui n'avait visiblement pas bien dormi depuis longtemps.
+C'était un visage fatigué, aux cernes profonds, et elle avait les cheveux noués dans un tissu. Sur ses genoux reposait une pièce à moitié démontée, et sa main ne la quittait pas.
 
-Mais son regard était étrangement perçant.
+« Nouveaux ? »
 
-« Des nouveaux arrivants ? »
-Elle a demandé.
+Elle posa la question.
 
 Sion hocha la tête.
 
-La femme regarda Jiwoo, Luhai,
-et les évacués de Hazran derrière,
-puis parla à voix basse.
+La femme parcourut du regard Han Jiwoo, Luhai, et jusqu'aux réfugiés de Hazran derrière eux. Ce n'est qu'après avoir tout compté, avec des yeux qui comptent, qu'elle dit à voix basse :
 
-« Si vous êtes en vie, c'est là que réside la confusion. »
+« Quand on est encore en vie, c'est le moment où on s'embrouille. »
 
-Ce n’était pas le bienvenu.
-Ce n'était pas du confort.
+Luhai répliqua aussitôt :
 
-Juste le fait le plus aride que quelqu'un qui a survécu trop longtemps
-pourrait offrir à quelqu'un qui vient d'arriver.
+« S'embrouiller ? »
 
-Luhai a répondu immédiatement.
+La femme retourna la pièce posée sur ses genoux.
 
-« Déroutant ? »
-
-La femme ne pouvait même pas sourire.
-
-« Qui essaie de t'utiliser. »
-« Qui essaie de te sauver.
-Et quand ces deux-là se retourneront. »
+« Qui veut se servir de toi, qui veut te sauver, et quand les deux s'inversent. »
 
 Silence.
 
-Avec cette seule ligne,
-l'air dans cet espace devint un peu plus lourd.
+Le vieil homme de Hazran, en entendant ces mots, appuya sur sa poche : le tournevis était là.
 
-Jiwoo regarda les machines à côté d’elle sans le vouloir.
-Ce moment,
-dit la machine qui avait ouvert le chemin en premier, très bas.
+Han Jiwoo regarda les machines à côté. Elles ne regardaient pas la femme ; elles regardaient du côté de l'entrée.
 
-« Cette affirmation n'est pas fausse. »
+À cet instant, la machine qui leur avait ouvert le chemin la première dit très bas :
 
-Le visage de Luhai s'est immédiatement aigri.
+« Ces mots ne sont pas faux. »
 
-« Wow, pas rassurant du tout. »
+Luhai fronça les sourcils.
 
-Cette fois, Seorin parla en premier.
+« Ouah, ça rassure pas du tout. »
 
-« Ce n'était pas censé être rassurant. »
+Cette fois, ce fut Seorin qui parla la première.
 
-La machine ne disait rien.
-Mais ce silence n’était pas un déni.
+« C'était pas pour rassurer, j'imagine. »
 
-Sion crut avoir enfin compris.
+La machine ne répondit pas ; seul son petit œil optique alla une fois vers Seorin et revint.
 
-Cet endroit n’est pas un monde enveloppé de beauté comme le Serakion ci-dessus.
-Mais ce n’est pas non plus un monde dans lequel ils se font facilement confiance.
+La femme posa la pièce et se leva ; ses genoux craquèrent. Elle alla vers les gens de Hazran et s'accroupit devant un homme qui avait un tissu enroulé autour de la jambe. Elle défit le tissu pour regarder, puis le renroula.
 
-Un monde longtemps trahi.
-Longtemps exploité.
-Longtemps cassé et à peine recousu.
+« Fais bouillir de l'eau. »
 
-Alors là, aide
-et la méfiance
-coexister.
+Elle l'avait lancé derrière elle, à personne en particulier, et à l'intérieur on entendit quelqu'un bouger.
 
-Puis depuis le couloir intérieur,
-une machine beaucoup plus ancienne est sortie à un rythme très lent.
+Kael s'assit à côté de l'homme, et la femme regarda Kael.
 
-Il paraissait plus vieux que celui qui avait ouvert le chemin.
-Certains joints étaient à peine connectés avec des pièces ne correspondant plus aux spécifications.
-Un œil optique avait une lumière inégale.
+« C'est toi qui les as amenés ? »
 
-Mais bizarrement,
-lorsque cet être apparut, le grain de l'air ambiant changea très légèrement.
+« Nous sommes venus ensemble. »
 
-Personne n'a donné d'ordre,
-mais plusieurs machines à proximité tournèrent légèrement leur corps.
+La femme hocha la tête, finit d'enrouler le tissu puis tapota deux fois le genou de l'homme, qui hocha la tête. En se relevant, elle dit à Kael :
 
-Les humains remarquèrent également le mouvement.
-Et cette réaction était moins de respect
-et plus proche d’une patience complexe envers quelque chose de vieux.
+« Quand l'eau arrive, le premier bol. »
 
-Aka, à l'instant où elle vit cet être,
-dit, presque dans un souffle.
+« Oui. »
 
-« Celui-là est vieux. »
+« Pas toi. Lui. »
 
-Cette fois, Jiwoo a également regardé la machine pendant un long moment au lieu de répondre.
+Kael regarda l'homme.
 
-Au-delà du vieux—
-ça donnait le sentiment de quelque chose qui tenait le coup
-depuis avant même que cet espace ait pris sa forme.
+« Oui. »
 
-La vieille machine resta silencieuse pendant un moment,
-regardant tour à tour les Hazrans nouvellement arrivés et le groupe de Sion.
+La femme était déjà devant la personne suivante.
 
-Il n’y avait aucune odeur de classification dans ce regard.
-Mais pas de bienvenue non plus.
+Ater dit à voix basse à Sern :
 
-Au lieu de cela,
-il y avait de la mémoire.
+« Combien y a-t-il de sorties ? »
 
-Le genre de souvenir que seul un être qui a trop vu pendant trop longtemps peut conserver.
-Celui qui ne se réjouit pas facilement ni n’espère facilement.
+« J'en vois trois. »
 
-Et seulement après un long moment,
-s’échappa une voix basse et usée.
+Sern répondit.
+
+« Il y a celle par laquelle nous sommes entrés, et deux vers l'intérieur. »
+
+« Lesquelles sont bloquées ? »
+
+« Je ne sais pas. Il faudrait y aller pour le savoir. »
+
+Ater regarda les deux sorties intérieures. L'une était éclairée, l'autre sombre ; il regarda plus longtemps la sombre.
+
+« Je vais aller voir. »
+
+« Pas encore. »
+
+C'était Seorin.
+
+« D'abord on écoute ce qu'ils ont à dire, ceux-là. »
+
+Ater hocha la tête, sans quitter des yeux le côté sombre.
+
+C'est alors que, du couloir intérieur, une machine bien plus vieille sortit à pas très lents.
+
+Elle paraissait plus ancienne encore que la machine qui leur avait ouvert le chemin. Certaines de ses articulations étaient reliées par des pièces d'un autre modèle, et l'un de ses yeux optiques avait une lumière inégale. À chaque pas, son genou faisait un bruit.
+
+Un pas,
+un bruit,
+un pas,
+un bruit.
+
+Quand cet être apparut, quelques machines alentour pivotèrent très légèrement. Personne ne l'avait ordonné, mais elles se tournèrent, là où elles se tenaient, vers la vieille machine.
+
+Les humains virent aussi ce mouvement. La femme au visage fatigué arrêta la main qui enroulait le tissu, puis, un instant après, la remit en mouvement.
+
+Aka, dès qu'elle vit cet être, dit presque aussi bas qu'un souffle :
+
+« Ça, c'est vieux. »
+
+Han Jiwoo, elle aussi, regarda longuement la machine au lieu de répondre. Sous le cou, il y avait trois traces de soudure ; la machine qui leur avait ouvert le chemin n'en avait qu'une. Ces trois-là étaient superposées. Soudée une fois, puis ressoudée par-dessus, et ressoudée encore.
+
+La vieille machine, un long moment sans rien dire, regarda tour à tour les gens de Hazran nouvellement arrivés et le groupe de Sion.
+
+L'œil optique à la lumière inégale s'attardait sur une personne puis passait à la suivante, et le temps qu'il s'attardait variait selon les personnes. Long devant l'homme blessé, long aussi devant l'enfant. Court devant Seorin, puis de nouveau long devant Han Jiwoo. Sur les mains de Han Jiwoo.
+
+Han Jiwoo ne cacha pas ses mains.
+
+Quand l'œil optique de la vieille machine se posa sur Sion, Sion regarda aussi cette lumière. Une lumière inégale, qui ressemblait à la lampe jaune clignotante.
+
+Ce n'est qu'au bout d'un long moment qu'une voix basse et usée s'en échappa.
 
 « Cette fois… combien avez-vous perdu avant de venir ? »
 
-Cette seule question,
-avant tout accueil,
-a montré la vraie nature de cet endroit.
+Personne ne répondit tout de suite.
 
-Ce n'était pas un endroit pour les survivants.
-C'était un endroit où ceux qui continuent de perdre
-et ce n'est toujours pas fini
-s'étaient rassemblés.
+Le vieil homme de Hazran détacha son dos du mur, ouvrit la bouche puis la referma, et se mit à déplier les doigts pour compter un par un. Au milieu du compte, il baissa la main.
+
+La femme au visage fatigué finit d'enrouler le tissu, se leva et alla se placer à côté de la vieille machine. Elle resta là sans rien dire.
+
+La vieille machine se contentait d'attendre, sans presser personne ; seul son œil optique clignotait inégalement.
+
+Luhai inspira. Expira.
+
+« Il faut compter ? »
+
+Il posa la question.
+
+« Oui. Maintenant. »
+
+Luhai regarda la vieille femme, et la vieille femme hocha la tête. Luhai inspira encore une fois.
 
 ---
 

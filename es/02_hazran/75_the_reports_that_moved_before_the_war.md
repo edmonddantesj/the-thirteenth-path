@@ -115,7 +115,7 @@ Esos mismos días antes, la nave de informes de la Alianza era mucho más ruidos
 
 Las puertas sonaban fuerte al abrirse, enseguida se notaba quién culpaba a quién, y los informes siempre entraban junto con la irritación de alguien.
 
-Lo mismo pasaba con los que habían perdido al grupo de Sion en Hazran.
+Lo mismo pasaba con los que habían perdido al grupo de Sion a las puertas de Hazran.
 
 —Se escaparon.
 
@@ -181,8 +181,6 @@ El que informaba bajó aún más la voz.
 
 —Y existe la posibilidad de que se suelte también parte de la legión de androides.
 
-Esta vez el aire de la sala se detuvo con otro sentido.
-
 La Alianza odia al Imperio. Pero, al margen de ese odio, sabe muy bien lo que significa la legión de androides del Imperio.
 
 Manos que, en vez de derramar sangre ellas mismas, hacen que otros la derramen.
@@ -246,7 +244,7 @@ Y luego añadió.
 
 ---
 
-Cuando cayó esa orden, a Hazran todavía no le había llegado nada.
+Desde que cayó esa orden habían pasado unos días, y hasta esta noche a Hazran todavía no le había llegado nada.
 
 El mercado de chatarra tenía las lámparas encendidas, la gente reía bajo la luz del atardecer, y el grupo de Sion se aferraba al breve respiro que por fin habían conseguido después de días.
 

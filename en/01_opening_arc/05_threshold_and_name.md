@@ -139,7 +139,6 @@ This time Sion raised his head and looked straight at him.
 "Someone was inside.
 Not long ago, either."
 
-The air at the upper railing stopped for a moment.
 Sern reacted before Ater did.
 
 "What makes you judge that?"
@@ -201,7 +200,6 @@ Ater looked between the two of them for a moment, then said, very low,
 
 "Right now, what is inside comes before words."
 
-That one sentence put the air a little more in order.
 It was a line that put authority forward, but at least it was the line of someone with no intention of dragging out a pointless squabble.
 
 Sion looked at the door for a moment, at Ater, then at the door again.

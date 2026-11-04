@@ -1,200 +1,314 @@
 # Capítulo 182 — El mismo plan, un nuevo corazón
 
-Mientras el corto descanso llegaba a su fin,
-el movimiento dentro del estrato viejo empezó a ordenarse otra vez en una tensión callada.
+Mientras el breve descanso tocaba a su fin, el movimiento dentro del estrato viejo empezó a ordenarse otra vez.
 
-Los niños fueron llevados más adentro,
-los heridos quedaron tendidos en un sector seguro provisional,
-y las líneas de movimiento rotas y los huecos de las estructuras se taparon de nuevo apenas.
+Llevaron a los niños más adentro, y los heridos estaban tendidos en un sector seguro improvisado. Los corredores derrumbados y los huecos de la estructura se volvieron a tapar como se pudo, y en cada sitio tapado se sentó una persona de Hazran con la espalda contra él.
 
-Y en mitad de todo eso,
-Seorin volvió a reunir a la gente.
+A los cinco del suelo los habían llevado hacia la pared y los habían cubierto con una tela. Nadie preguntó quién los había cubierto. Como por debajo de la tela asomaba un brazo abierto, una máquina vieja volvió a tirar de la tela por encima de ese brazo.
 
-Esta vez no todos podían estar de pie como justo antes de la batalla.
-Alguien estaba apoyado en la pared,
-alguien se limpiaba la sangre,
-alguien aún no recobraba el aliento.
+El niño que había dibujado la boca sonriente estaba sentado delante de la tela. Sin levantarla, con la mano apoyada sobre la tela en el sitio donde estaba el brazo. Una mujer de Hazran intentó llevárselo, pero como el niño no quiso ir, la mujer se sentó a su lado.
 
-Pero, aun así,
-este sitio no estaba deshecho.
+En medio de todo eso, Seorin volvió a reunir a la gente.
 
-Al contrario, tras haber visto tanto,
-estaban más cerca del lado que ya no puede decir palabras vanas.
+No todos pudieron estar de pie como justo antes del combate. Alguien estaba apoyado en la pared, alguien se limpiaba la sangre, y alguien aún no había recuperado el aliento. Luhai estaba sentado con una tela enrollada en la espinilla izquierda, y Sern tenía el panel de registro abierto sobre las rodillas. Ater estaba de pie, sin apoyarse en la pared.
 
-Seorin miró a la gente un buen rato sin decir nada.
+Seorin recorrió un buen rato a la gente con la mirada, uno por uno, sin decir nada. Cuando terminó, bajó los ojos al suelo: donde estaban las líneas que había borrado con la palma quedaba un punto.
 
-Sion, viendo ese silencio, pudo entenderlo.
-Que ella ahora no estaba haciendo un plan nuevo,
-sino que volvía a tomar en la mano el esqueleto del plan viejo
-y elegía qué cambiar y qué dejar.
+—¿Cuántos?
 
-Al fin Seorin abrió la boca.
+Se lo preguntó a Sern.
 
-—El marco grande no cambia.
+—Hay catorce personas que pueden caminar. Tres máquinas. Y ese androide.
 
-Ante esa sola frase,
-el aire de la sala, al contrario, se aclaró un poco más.
+Lo dijo Sern.
 
-—La división de estratos se mantiene. También el orden de entrada. Tampoco cambia el eje que lleva cada uno.
+—A los niños no los he contado.
 
-Eso no era simple terquedad.
+—No los cuentes.
 
-El plan ya trazado tenía sus razones.
-La posición y el rol de cada uno
-estaban levantados sobre la información y el entendimiento de rutas reunidos hasta ahora.
+Lo dijo Seorin.
 
-Volcarlo todo estaba, al contrario, más cerca del caos que Serakion quiere.
+—El marco general no cambia.
 
-Pero Seorin siguió enseguida con lo que venía.
+Un hombre de Hazran que estaba apoyado en la pared despegó la espalda, y Luhai también levantó la cabeza.
 
-—Pero la ejecución cambia.
+—Se mantiene la división por estratos. Se mantiene el orden de entrada. Tampoco cambiamos el eje que tiene cada uno.
 
-Solo entonces las miradas de todos
-fueron una vez, con naturalidad, hacia el lado donde estaba el último androide.
+—Pero somos menos.
 
-Aún no se había recuperado del todo.
-Estaba apoyado con el cuerpo en un sitio cercano a la pared,
-y el eje del hombro que Han Jiwoo acababa de fijar de forma provisional seguía pareciendo inestable.
+Lo dijo Luhai.
 
-Pero ya no se podía dejar esa existencia fuera de esta historia.
+—Los ejes no se reducen. Si quitas un eje, los de allá vienen a ocupar ese sitio. Movemos a la gente.
 
-Seorin no ocultó ese hecho.
+—¿Quién va adónde?
 
-—Del otro lado siguen los androides de órdenes. Y ahora de este lado hay un androide que no se mueve por órdenes.
+—Lo digo ahora.
 
-Esas palabras parecían una explicación,
-pero en realidad estaban más cerca de una declaración.
+Sern señaló con el dedo las líneas viejas del panel de registro. Eran tres líneas, de arriba abajo, y no las había borrado.
 
-De aquí en adelante la lucha no podía ser igual.
-Porque la condición misma del campo de batalla había cambiado.
+Seorin continuó enseguida.
 
-Ater fue el primero en preguntar bajo.
+—Lo que cambia es la ejecución.
 
-—¿Lo va a poner al frente directamente?
+Solo entonces todas las miradas se deslizaron una vez hacia donde estaba el último androide.
 
-Ante esa pregunta todos reaccionaron un poco sensibles.
-Han Jiwoo alzó la cabeza,
-y Sion también contuvo un momento el aliento.
+El androide estaba recostado cerca de la pared. En el eje del hombro que Han Jiwoo acababa de fijar provisionalmente se veían tres marcas de nudos. El único ojo óptico encendido miraba a Seorin, y Seorin le sostuvo la mirada a ese ojo óptico.
 
-Pero Seorin no se alteró.
+—¿Me oyes?
 
-—No. No voy a dejar que lo haga todo en lugar de los demás.
+El ojo óptico no tembló.
 
-Fueron palabras cortas,
-pero algunos de los que estaban ahí solo entonces respiraron un poco.
+—Lo tomaré como un sí.
+
+Seorin habló sosteniendo esa mirada.
+
+—Allá siguen teniendo androides que se mueven por órdenes. Y ahora, aquí, tenemos un androide que no se mueve por órdenes.
+
+Una mujer de Hazran le tapó los oídos a un niño con las manos y luego las retiró, pero el niño ya estaba escuchando.
+
+—Si no se mueve por órdenes, ¿con qué se mueve?
+
+Lo preguntó el hombre sin hermano menor.
+
+Seorin no respondió enseguida y miró a Han Jiwoo.
+
+—No lo sé.
+
+Lo dijo Han Jiwoo.
+
+—Lo vi moverse. Con qué se mueve, no lo sé.
+
+El hombre no preguntó más.
+
+Ater fue el primero en preguntar, en voz baja.
+
+—¿Piensa ponerlo al frente directamente?
+
+Han Jiwoo levantó la cabeza, y a Sion se le cortó la respiración. Luhai, sentado, se inclinó hacia delante y la tela enrollada se tensó.
+
+Seorin miró a Ater.
+
+—No. No voy a dejar que ese lo haga todo en nuestro lugar.
+
+Mientras los hombros de Han Jiwoo bajaban, Luhai volvió a apoyar la espalda en la pared. Ater asintió una vez.
+
+—¿Y qué pasa si lo ponemos al frente?
+
+Lo preguntó Sion.
+
+—Los de allá se fijan primero en ese.
+
+Lo dijo Seorin.
+
+—Si solo miran a ese, a nosotros no nos ven. Eso parece bueno, ¿no? No. Si ese se rompe, los siguientes somos nosotros.
+
+Cuando Sion miró al androide, los tres nudos le saltaron a la vista.
 
 Seorin siguió hablando.
 
-—La formación de equipos se mantiene. Quién lleva cada estrato sigue igual. En cambio, a ese lo metemos como una variable.
+—Mantenemos la composición de los grupos. Quién se encarga de qué estrato sigue igual. A cambio, eso lo metemos como variable.
 
-Una variable.
+Variable.
 
-Esa palabra podía sonar fría,
-pero, por extraño que parezca, nadie la tomó a mal.
+Al oír esa palabra, Han Jiwoo miró a Seorin, Seorin también miró a Han Jiwoo, y ninguna de las dos apartó la vista.
 
-No sonaba a cosificación,
-sino a un modo de sujetar un cambio demasiado grande con una palabra pequeña.
+Han Jiwoo fue la primera en asentir un poco, y luego se miró la rodilla. En el sitio donde se le había clavado la esquirla tenía enrollada una tela.
 
-Sern lo resumió como quien retoma esas palabras.
+Sern lo resumió como si recogiera esas palabras.
 
-—Es decir, se mantiene la estructura y solo se corrige la mano de la ejecución.
+—Es decir, se mantiene la estructura existente y solo se corrige la forma de ejecutar.
 
-—Sí —respondió Seorin—. La velocidad de reacción también cambiará, y el movimiento de los androides del otro lado también.
+—Exacto.
 
-Sion, oyendo esas palabras,
-recordó cuando este plan nació por primera vez.
+Seorin respondió.
 
-Entonces, sin duda,
-la estrategia se había levantado con ira, necesidad de rescate y cálculo mezclados.
+—La velocidad de reacción también va a cambiar, y los movimientos de los androides de allá también.
 
-Pero ahora era distinto.
+—¿Cómo van a cambiar?
 
-Ahora, sobre ese cálculo,
-se había subido una existencia que ya había recibido una vez un rostro,
-había protegido una vez,
-había sobrevivido una vez.
+Lo preguntó Sion.
 
-Por eso, aun siendo el mismo plan,
-no podía sino volverse una lucha del todo distinta.
+—Cuando ven a ese, se paran.
+
+Lo dijo Seorin.
+
+—Lo viste antes. Dos unidades se quedaron delante de ese sin poder despegar los pies. Eso es lo que vamos a usar.
+
+—¿Por qué se paran?
+
+—No lo sé. Solo sé que se paran.
+
+Sern pasó a una cara nueva del panel de registro. Copió tal cual las tres líneas viejas y dejó al lado una casilla vacía.
+
+Luhai preguntó sin levantarse.
+
+—¿El hombro de ese aguanta con eso?
+
+Han Jiwoo respondió sin mirar el hombro del androide.
+
+—Haré que aguante.
+
+Luhai se apretó una vez más la tela de la espinilla.
+
+—¿Y las piezas?
+
+Lo preguntó Sern.
+
+—No hay.
+
+Lo dijo Han Jiwoo.
+
+—Tela y alambre. Lo até con eso. Tres vueltas.
+
+—¿Resistirá?
+
+—Una vez.
+
+Lo dijo Han Jiwoo.
+
+—Dos, no lo sé.
+
+Sern anotó esas palabras. Una vez.
+
+Sion miró el punto del suelo. En las líneas que Seorin había trazado el día en que se armó este plan por primera vez no estaba ese punto. Las líneas se habían borrado y el punto seguía ahí.
 
 Han Jiwoo preguntó muy bajo.
 
-—Entonces… ¿dónde lo dejamos?
+—Entonces… ¿dónde lo ponemos?
 
-Esa pregunta era una pregunta estratégica y, a la vez,
-una pregunta de una clase por completo distinta.
+Después de preguntar, tampoco miró hacia el androide: se miró las manos. Donde había empuñado las herramientas tenía grasa. Intentó limpiarse la grasa en el pantalón, pero no se iba.
 
-Junto a quién había que dejarlo.
-Con quién había que moverlo.
-Y dónde ponerlo
-para no usarlo del modo menos humano
-y aun así poder proteger lo más posible.
+—¿Por qué te sigues limpiando?
+
+Lo preguntó Luhai.
+
+—Porque no se va.
+
+Luhai, que estaba mirando su propia mano manchada de sangre, también se la limpió. No se fue.
 
 Seorin miró un momento al último androide.
 
-—Solo cambiamos un eje —dijo bajo—. Pónganlo en el eje más inestable. No para romper de frente, sino para sacudir el flujo.
+—Solo cambiamos un eje.
 
-Ater, al oír esas palabras, asintió despacio.
+Lo dijo en voz baja.
 
-Era una buena elección.
+—Ponlo en el eje más inestable. No para abrir paso directamente, sino para sacudir el flujo.
 
-Si el último androide se volvía la carta comodín que lo hace todo,
-morían el plan viejo y morían los roles de los demás.
+Ater, al oír eso, asintió despacio y apoyó la espalda en la pared. Sern escribió una letra en la casilla vacía del panel de registro, junto al punto.
 
-Al revés, si lo ponían como una variable que cambia la probabilidad de éxito de un eje concreto,
-el esqueleto viejo vivía y, aun así, todo el campo de batalla cambiaba.
+Una de las máquinas viejas murmuró muy bajo.
 
-Justo en eso estaba lo importante.
+—Sacudir la orden.
 
-Una máquina vieja murmuró muy bajo.
+Seorin volvió la cabeza hacia esa máquina.
 
-—Sacudir las órdenes.
+—Eso. No vamos a ganar con ese. Vamos a ganar por la brecha que se abre porque ese está.
 
-Seorin no negó esas palabras.
+—¿Y si la brecha no se abre?
 
-—Sí. No vamos a ganar con él. Vamos a ganar por el hueco que se abre al existir él.
+Lo preguntó Ater.
 
-Ante esas palabras,
-Sion sintió que algo se le calentaba callado en alguna parte del cuerpo.
+—Entonces, según el plan original.
 
-Estaba bien.
-Esto no era tirar el plan viejo.
-Al contrario, era un modo de hacerlo más vivo.
+Lo dijo Seorin.
 
-Y en ese instante,
-desde un sitio algo apartado, un niño miró al lado del último androide y dijo muy bajito.
+—Es un plan que armamos cuando ese no estaba. Sirve sin ese. Si está, mejor.
+
+Ater asintió y miró el panel de registro de Sern: las tres líneas viejas seguían ahí.
+
+La máquina vieja bajó la cabeza una vez y la levantó, y la otra máquina que tenía al lado hizo el mismo gesto un compás más tarde. Era la máquina que había puesto la tela.
+
+—¿Ustedes también van?
+
+Lo preguntó Luhai.
+
+—Vamos.
+
+Lo dijo la máquina.
+
+—Dos.
+
+—¿Y las que se quedan?
+
+—También hay algunas que se quedan.
+
+Luhai no las contó.
+
+Se dio una palmada en la rodilla con la palma de la mano; sonó poco. Nadie miró hacia allí, y Luhai tampoco miró a nadie.
+
+Sion se sentó a su lado sin decir nada. Cuando Luhai estiró la pierna, la tela se tensó.
+
+—¿Caminas?
+
+Lo preguntó Sion.
+
+—Camino.
+
+—¿Corres?
+
+—Tendré que correr.
+
+Un poco más lejos, un niño habló muy bajito, mirando hacia el último androide.
 
 —¿Tiene que venir con nosotros?
 
-La sala calló un momento.
+La sala se quedó en silencio.
 
-Esta vez nadie pudo fingir no haber oído.
+Han Jiwoo cerró los ojos, respiró una vez con ellos cerrados y luego los abrió. El ojo óptico del último androide tembló muy levemente hacia el niño.
 
-Mientras Han Jiwoo cerraba y abría los ojos,
-el ojo óptico del último androide se agitó muy levemente.
+Mientras Seorin miraba al niño, la mujer de Hazran sentada a su lado le rodeó los hombros. El niño no apartó esa mano, ni tampoco dejó de mirar al androide.
 
-Aún no había salido la palabra de la decisión.
-Pero todos ya lo sabían.
+Seorin no respondió a esa pregunta. Respondió Han Jiwoo.
 
-Dejarlo aquí no era protección.
-Serakion, sin duda, volvería a buscarlo.
-Y ese peligro caería de nuevo, pronto, junto a los niños.
+—Sí.
 
-Porque quieren estar juntos,
-tienen que llevárselo con ellos.
+El niño miró al androide.
 
-Esa inevitabilidad
-ya había entrado hasta el centro de la reunión de planificación.
+Seorin tocó una vez el punto del suelo con la punta del pie.
 
-Seorin, al final, no desarrolló esas palabras largo tiempo.
-En cambio, dijo muy corto.
+—Esta vez golpeamos primero. En cuanto terminemos de prepararnos, entramos.
 
-—Esta vez golpeamos primero. En cuanto esté listo, entramos.
+Mientras la gente se levantaba, Luhai se apoyó en la pared para ponerse de pie y se tambaleó una vez; Sern le sujetó el brazo, y Luhai no se sacudió esa mano. Ater ya iba hacia el corredor. Los hombres de Hazran también despegaron la espalda de los huecos tapados y se levantaron.
 
-Esas palabras fueron el fin del descanso.
+Han Jiwoo, sin levantarse, miró al último androide, y el androide también la miró a ella.
 
-Y, a la vez,
-fueron también el comienzo de montar un campo de batalla del todo distinto sobre el mismo plan.
+—¿Puedes ir?
+
+Lo preguntó ella.
+
+El androide no respondió. Apoyó la mano en la pared, pero no se levantó; solo la apoyó.
+
+—Ahora no.
+
+Lo dijo Han Jiwoo.
+
+—Cuando vayamos.
+
+Cuando el androide retiró la mano, ella se levantó primero y le puso la mano un instante en el hombro que le quedaba. Solo después de que bajo esa mano llegara una vibración, ella retiró la mano.
+
+El niño miró esa mano, y luego se miró la suya.
+
+Seorin se dio la vuelta sin borrar el punto del suelo. Sern bajó una vez la vista a ese punto y cerró el panel de registro.
+
+Aka se puso junto a ese punto, al lado de los niños.
+
+—Abajo me encargo yo.
+
+Lo dijo ella.
+
+Seorin se volvió.
+
+—Tengo a la primera y a la segunda. Y a la máquina del lado de la pared.
+
+Lo dijo Aka.
+
+—¿Y personas?
+
+Lo preguntó Seorin.
+
+—Yo.
+
+Seorin asintió una vez.
 
 ---
 

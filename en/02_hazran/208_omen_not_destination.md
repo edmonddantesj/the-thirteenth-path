@@ -116,7 +116,7 @@ Jiwoo raised her head and watched the two lights for a long time, then wordlessl
 
 Ater had first been watching the reactions more than the lights themselves.
 
-But at some point, he too could not look away.
+At some point, he too could not look away.
 
 In a place that had divided people and machines to the end through alignment and approval, classification and recovery, all in the wrong order—the fact that what remained at the very end was this kind of trembling was not light at all.
 
@@ -160,8 +160,6 @@ Aka closed her eyes and opened them.
 
 "I cannot see well. But… they are trapped."
 
-The air inside the ship shifted, just slightly.
-
 Aka continued, feeling her own words as though tracing them.
 
 "Cannot move. Cold. And… the breathing has not stopped, but it feels like it keeps being permitted."
@@ -184,7 +182,7 @@ Ater said it very low.
 
 No one said a name right away.
 
-But strangely, Sion was thinking of one.
+Strangely, Sion was thinking of one.
 
 Elia.
 
@@ -194,7 +192,7 @@ The moment Sion thought of that name, he felt his breath catch for no clear reas
 
 Whether it was truly Elia could not yet be known.
 
-But strangely, no other name came as easily.
+Even so, no other name came as easily.
 
 The first to speak was Aka.
 

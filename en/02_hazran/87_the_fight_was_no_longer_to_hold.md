@@ -2,13 +2,7 @@
 
 It was the same battlefield, but the direction people's bodies moved in had changed.
 
-Until a moment ago they had been hands for stopping what pushed in. From now on they became hands that calculated what to link up, and how far, to pull whom out of the deep inside to the outside.
-
-A fight to hold and a fight to send looked alike, but inside they were nothing alike. The first was holding on to a line; the second was making a way by giving lines up.
-
-Harun carried that difference into his body faster than anyone.
-
-He looked again at the first line's passage he had just raised, then pulled three of Hazran's people back.
+Harun looked again at the first line's passage he had just raised, then pulled three of Hazran's people back.
 
 "Leave that empty,"
 he said, low.
@@ -23,8 +17,6 @@ Harun cut in.
 "Let it open. Herd them in here instead."
 
 What he pointed to was a side passage that did not lead straight into the hull sections. Narrow, bending twice, with tent frames overhead and low metal plates overlapping, so that an enemy coming in would find it hard to pick up speed.
-
-Hazran had now entered the stage where it was not stopping the enemy but deciding where the enemy would come in.
 
 The moment Sion saw that, his chest went cold once.
 
@@ -50,8 +42,6 @@ the man beside him asked.
 Harun answered without turning his eyes.
 
 "Shoot first and they find another way."
-
-It was exactly right. What they needed now was not to frighten the enemy, but to fool it into coming in by the way they wanted.
 
 Then, far off, the sound of tearing metal rang out again.
 
@@ -135,7 +125,7 @@ she said at last.
 
 "Here, that's telling."
 
-Seorin clicked her tongue. But she did not push past that. She knew there was nowhere to push.
+Seorin clicked her tongue. She did not push past that. She knew there was nowhere to push.
 
 Listening to that back-and-forth, Sion knew this battle had just changed its nature once more.
 
@@ -155,17 +145,15 @@ The woman asked in a shaking voice.
 
 "If we go inside, do we live?"
 
-The question was so late and so honest that, for an instant, his answer stuck.
+At that question, for an instant, his answer stuck.
 
 Seorin cut in for him.
 
 "Stay here and you die faster."
 
-It was a cruel thing to say. But in this situation there was nothing more accurate.
-
 The woman bit her lip and nodded.
 
-On the way back out after pushing the three of them inside, Sion looked again at the passage he had just come through.
+On the way back out after pushing the two of them inside, Sion looked again at the passage he had just come through.
 
 Until a moment ago it had been a way to get people out. Now the end of it stood open, and no one stood in it.
 

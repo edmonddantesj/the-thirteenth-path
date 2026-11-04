@@ -1,73 +1,84 @@
 # Capítulo 125 — La voz robada
 
-Cuando el pasaje izquierdo se abrió,
-el grupo de Sion no tuvo siquiera tiempo de decidir si era una trampa o una ayuda.
+Cuando el pasaje izquierdo se abrió, no hubo tiempo para decidir.
 
-La gente que había venido de Hazran ya se estaba partiendo en dos,
-los heridos quedaban empujados a un lado,
-y los niños, asustados, estaban a punto de romper a llorar.
-
-Lo que hacía falta ahora no era certeza, sino una dirección.
+La gente que venía de Hazran estaba medio partida, los heridos a un lado y los niños al otro, y entre ellos se había abierto un espacio del ancho de dos máquinas. Un niño estaba a punto de llorar: tenía la boca abierta, pero todavía no le salía ningún sonido.
 
 Ater fue el primero en girar el cuerpo.
 
-—Primero los heridos —dijo en voz baja.
+—Primero los heridos.
 
-Kael se movió de inmediato,
-Luhai se pegó a la anciana que no quería soltar al niño,
-y Seorin volvió a juntar, corta y áspera, a la gente que se dispersaba.
+Lo dijo en voz baja.
 
-Sion miró un instante de nuevo aquella máquina.
+Kael se movió de inmediato y tomó por el otro brazo al hombre que cojeaba; así, entre Ater y él, caminaron llevando a un hombre sujeto por los dos lados.
 
-Por fuera seguía siendo la máquina guía de Serakion.
-Pero la voz que había entrado dentro no lo era.
+Luhai se puso junto a la anciana que no quería soltar al niño. Los dedos de la anciana estaban enroscados en la muñeca del niño, así que Luhai, sin apartarle la mano, empujó a la anciana y al niño a la vez.
 
-No era pulida,
-no fingía estar terminada,
-y, sobre todo, era una voz que quería sacar a la gente antes de gastar tiempo en explicaciones.
+Seorin volvió a juntar, corta y áspera, a la gente que estaba a punto de dispersarse.
 
-—Dense prisa —volvió a decir aquella máquina, en voz baja—. Cuando entre la siguiente alineación, esto se cierra.
+—Pegados. Agárrense de la ropa del de delante.
 
-Sern leyó casi al mismo tiempo las señales de alrededor.
+Cuando la gente se agarró de la ropa de quien tenía delante, los dieciséis formaron una sola fila.
 
-—Es verdad —dijo escueto—. Ahora mismo solo esta línea está vacía.
+Sion volvió a mirar un instante a aquella máquina.
 
-Han Jiwoo, todavía sin acabar de creerlo, sostenía el hombro de una refugiada mientras preguntaba.
+Por fuera, en altura, en proporciones y en la cara lisa, seguía siendo una máquina guía de Serakion, pero en su cara solo la luz saltaba. Las otras cinco seguían en la postura de quien iba a moverse y se detuvo, con un pie levantado.
+
+—Rápido.
+
+Aquella máquina volvió a hablar en voz baja.
+
+—Cuando entre la siguiente alineación, se cierra.
+
+Casi al mismo tiempo, Sern miró el panel de registro.
+
+—Es verdad.
+
+Lo dijo, breve.
+
+—Ahora mismo solo esta línea está vacía.
+
+—¿Cuánto tiempo?
+
+Fue Seorin quien preguntó.
+
+—No lo sé. Solo veo que está vacía.
+
+Han Jiwoo, que caminaba con el niño en brazos y la madre del niño pegada a su lado, miró a aquella máquina.
 
 —¿Quién eres?
 
-La máquina giró la cabeza apenas un poco.
+La máquina giró la cabeza de forma apenas perceptible.
 
-—Ahora eso no importa.
-Tras esas palabras
-se mezcló un ruido muy breve.
+—Eso ahora no importa.
+
+Detrás de esas palabras se coló un ruido muy breve.
+
 —Lo primero es salir de aquí con vida.
 
-Esa sola frase
-sonó, al contrario, aún más extraña.
+Lo que detuvo los pies de Han Jiwoo fue aquel modo de hablar. Hasta hacía un momento, las máquinas no hablaban así. Se acomodó al niño en los brazos y siguió andando.
 
-Para las máquinas de aquel mundo era demasiado áspera,
-demasiado apremiada,
-demasiado viva.
+Sion miró una vez más la cara de aquella máquina. Después de ver saltar la luz, entró en el camino izquierdo.
 
-Sion lo tuvo claro entonces.
+Dentro, el pasaje estaba más oscuro que fuera.
 
-Eso, al menos,
-tenía un tono distinto del lado que los había recibido al principio.
+Las paredes eran plateadas pero brillaban menos, y en el suelo había una capa fina de polvo. Luhai lo empujó con el pie, y se movió.
 
-El interior del pasaje estaba más oscuro que el exterior.
-Pero, por extraño que pareciera,
-el brillo recto y pulido propio de Serakion era allí incluso menor.
+—Es polvo. Aquí hay polvo.
 
-No es que faltara luz:
-era un pasaje que parecía abierto evitando a propósito las superficies bien acabadas.
+La punta del pie volvió a empujar el polvo.
 
-Han Jiwoo, al pasar rozando la pared,
-vio una marca diminuta.
+Nadie respondió, y Sern levantó los ojos del panel de registro y miró el suelo.
 
-Era de verdad una marca insignificante.
-Pero ese rasguño trivial,
-dentro de aquel mundo perfecto, se sentía al contrario más extraño.
+—Arriba no había.
+
+Eso dijo.
+
+—Lo que limpia no llega hasta aquí.
+
+Kael, que pasaba sosteniendo al hombre que cojeaba, miró ese polvo. Quedaban pisadas, y cuando se volvió a mirar, seguían ahí.
+
+Han Jiwoo, al pasar rozando la pared, vio un rasguño diminuto, del largo de una uña. Sin aflojar el paso, pasó la yema de los dedos por el rasguño, y se le enganchó en la yema.
 
 Aka lo vio y dijo muy bajo.
 
@@ -75,137 +86,176 @@ Aka lo vio y dijo muy bajo.
 
 Sion la miró.
 
-Aka siguió mirando al frente y añadió.
+Aka añadió, sin dejar de mirar al frente.
 
-—No lo que está a la vista,
-sino lo que quedó atrás.
+—No lo que está a la vista, sino lo que quedó atrás.
 
-Eso también era exacto.
+La esquina donde doblaba el pasaje no era recta. Era la primera esquina no recta que veían en este mundo, y Seorin la tocó con la mano y la retiró.
 
-Este pasaje no parecía un camino abierto de manera oficial,
-sino un camino hecho enlazando las grietas a las que Serakion había prestado menos atención,
-o los lugares que ya no mantenía hermosos.
+Luhai, empujando a la anciana, se tragó una maldición en voz baja.
 
-Luhai, sosteniendo a un refugiado que respiraba con dificultad, se tragó una maldición en voz baja.
+—Ayudar, ayuda, pero me tiene nervioso de una manera asquerosa.
 
-—Nos ayudan, sí,
-pero qué mala sensación, esto me inquieta.
+Seorin contestó enseguida.
 
-Seorin respondió de inmediato.
+—Ya de entrada es asqueroso que, en Serakion, lo más fiable sea una máquina con la cara de Serakion puesta.
 
-—Que lo más fiable de Serakion
-sea una máquina con la cara de Serakion puesta encima, ya eso es de lo peor.
+La máquina que abría el camino delante no respondió nada, ni cambió el paso.
 
-A esas palabras,
-la máquina que les había abierto el camino no respondió nada.
-Pero un momento después,
-sin volverse siquiera, dijo en voz baja.
+Un momento después, sin volverse siquiera, dijo en voz baja.
 
 —Es una reacción normal.
 
-Luhai soltó un resoplido de incredulidad.
+Luhai dejó escapar el aire.
 
-—Y todavía con esas, en este momento.
+—En medio de todo esto, y todavía sale con algo así.
 
-—Estoy acostumbrado —dijo aquella máquina.
+—Me resulta familiar.
+
+Lo dijo aquella máquina.
 
 Un silencio breve.
 
-Aquella frase, por extraño que pareciera,
-decía al contrario mucho más.
+Luhai miró a la anciana y la anciana también lo miró, pero ninguno de los dos dijo nada más.
 
-Esta máquina no estaba salvando humanos por primera vez.
-Esta desconfianza,
-esta reacción,
-eran cosas que con toda probabilidad ya había vivido varias veces.
+El niño de Hazran levantó la cabeza en brazos de Han Jiwoo y miró a la máquina de delante.
 
-Sern, que seguía leyendo las señales de alrededor, dijo muy bajo.
+—¿Ese señor es el mismo señor de antes?
 
-—El rastreo vuelve a engancharse.
+Han Jiwoo bajó la vista hacia el niño.
 
-—¿Cuánto aguanta? —preguntó Ater.
+—No lo sé.
 
-—No aguantará mucho —respondió Sern, escueto—. Con la misma cara no se les engaña mucho tiempo.
+—Pero la cara es la misma.
 
-En cuanto cayeron esas palabras,
-la máquina que había abierto el camino emitió por primera vez un ruido parecido a una risa muy corta.
+—La cara es la misma.
 
-Más que una risa,
-se acercaba al sonido de algún circuito desgastado que tiembla un instante.
+Eso dijo Han Jiwoo. Aunque ella no dijo nada más, el niño siguió mirando la espalda de la máquina.
 
-—Tampoco pensaba engañar mucho tiempo —dijo.
+Sern, que seguía mirando el panel de registro, dijo muy bajo.
 
-Han Jiwoo, en el momento en que terminaron esas palabras,
-volvió a mirar aquella máquina.
+—El rastreo vuelve a alcanzarnos.
 
-Por fuera seguía siendo lisa, al estilo de Serakion.
-Pero por dentro no.
+—¿Cuánto puede aguantar?
 
-Lo decía el tono,
-lo decía la prioridad apremiada,
-y, sobre todo, lo decía aquella primera orden de llevarse antes a los heridos.
+Fue Ater quien preguntó.
 
-Eso no era una máquina del lado que clasifica a la gente,
-sino del lado que, ante todo, no quiere dejar caer a nadie.
+—No durará mucho.
 
-Esa diferencia era enorme.
+Sern respondió, breve.
 
-Cuanto más se acercaba el final del pasaje,
-la luz fría y recta propia de Serakion disminuía poco a poco.
-En su lugar entraba, muy tenue, un olor a metal viejo
-y el calor de una máquina antigua, algo que fuera de este mundo rara vez se podía oler.
+—No puede engañar mucho tiempo con la misma cara.
 
-Han Jiwoo, sin darse cuenta, aflojó el paso un instante muy breve.
+Al caer esas palabras, la máquina que les había abierto el camino soltó por primera vez un ruido muy breve. Algo parecido a una risa: el sonido de algún punto del circuito temblando.
 
-Sion lo notó de inmediato.
+—Desde el principio no pensaba engañar mucho tiempo. Esta cara la desecho dos esquinas más allá.
+
+—¿Y qué pasa cuando la deseches?
+
+Fue Seorin quien preguntó.
+
+—Este cuerpo vuelve a su sitio. Yo no.
+
+Seorin no preguntó más y solo miró al frente.
+
+En cuanto terminaron esas palabras, Han Jiwoo volvió a mirar la espalda de aquella máquina. Por fuera era lisa, pero su paso era distinto del de las máquinas que los habían guiado antes: pisaba un poco más fuerte con un pie. Las máquinas de Serakion no caminaban así, de modo que se quedó mirando ese pie.
+
+Cuanto más se acercaban al final del pasaje, más se apagaba el brillo plateado, y el color de las paredes pasó a gris. Se veían las junturas, y en las junturas había óxido.
+
+Han Jiwoo aflojó el paso un instante muy breve y aspiró. Olor a metal viejo, el olor de una máquina sin limpiar.
+
+Sion la miró de inmediato.
 
 —¿Qué pasa?
 
-Han Jiwoo no respondió enseguida.
-
-Aspiró el aire como para captar una vez más aquel olor tenue.
-
-Olor a metal que se había roto y aun así había aguantado.
-Olor a máquina que, por no estar demasiado bien pulida, al contrario mentía menos.
-
-Y dijo muy bajo.
+Han Jiwoo no contestó enseguida y aspiró una vez más, y mientras tanto el niño alzó la vista hacia ella.
 
 —Por primera vez…
-Se detuvo y volvió a continuar.
-—Desde que llegué aquí, esto se parece a algo que está vivo.
 
-Aka, al oír esas palabras,
-cerró los ojos un instante muy breve.
+Se detuvo y luego siguió.
 
-Y dijo casi en un susurro.
+—Desde que llegamos, esto parece el lado de algo vivo.
+
+Al oírlo, Aka cerró los ojos un instante muy breve y los volvió a abrir.
 
 —Sí.
+
+Lo dijo casi en un susurro.
+
 —Este lado imita menos.
 
-Esa frase era corta,
-pero sonó como un criterio que partía en dos a toda Serakion.
+Luhai rascó con el dedo el óxido de la pared. Aunque vio el óxido pegado en el dedo, no se lo limpió.
 
-La máquina que abría el camino al frente ya no dio ninguna explicación.
+La máquina que abría el camino delante ya no dio ninguna explicación más.
 
-No exigió que confiaran en él,
-no pidió que le agradecieran,
-no reveló primero su identidad.
+El suelo se inclinó, cuesta abajo. Era la primera pendiente que pisaban dentro de Serakion. El hombre que cojeaba resbaló, Kael y Ater lo sostuvieron por ambos lados, y los tres bajaron juntos la pendiente.
 
-Simplemente,
-manteniendo en un solo bloque a la gente que estaba a punto de partirse,
-los llevaba con prisa por entre las grietas de este mundo terminado.
+—Los niños, al centro.
 
-Sion, mirando aquella espalda, pensó.
+Eso dijo Seorin.
 
-La primera máquina distinta que encontraban dentro de Serakion
-apareció del modo menos propio de Serakion.
+La fila cambió. Delante, Ater y Kael; en el centro, los niños y la anciana, y a su lado, Luhai. Detrás, Seorin. Han Jiwoo siguió junto a la madre del niño.
 
-Con una voz robada,
-con el rostro de otro,
-sacando a la gente antes que explicar.
+Sion, que era el que miraba atrás, caminaba al final. Por el camino recorrido no venía nadie; sobre el polvo solo estaban las pisadas de los dieciséis.
 
-Y solo por ese extraño modo de aparecer
-quedaba claro que dentro de este mundo había todavía otra capa sin revelar.
+Sern comprobó el panel de registro.
+
+—La señal se aleja.
+
+—¿El rastreo?
+
+Fue Ater quien preguntó.
+
+—Es toda la señal del lado de Serakion. Se adelgaza a medida que bajamos.
+
+—Así que abajo.
+
+Seorin lo repitió para sí.
+
+La máquina habló desde delante.
+
+—Abajo. Es lo que los de arriba olvidaron.
+
+La máquina no explicó más.
+
+Han Jiwoo le devolvió el niño a su madre, y la madre lo tomó. Han Jiwoo se quedó mirando su mano vacía, luego empuñó el destornillador y siguió andando con él empuñado.
+
+Al terminar la pendiente, el color de las paredes se volvió más oscuro y el óxido aumentó. El techo bajó tanto que Ater tuvo que agachar la cabeza. El hombre herido se escurrió del hombro de Ater y quedó sentado en el suelo, y Ater lo volvió a levantar.
+
+—Un poco más.
+
+Lo dijo la máquina.
+
+—Esta cara me la quito allí. Aquí ya no sirve de nada.
+
+Luhai miró aquella espalda que avanzaba delante.
+
+—¿Y qué sale cuando te la quitas?
+
+—Algo viejo.
+
+La anciana tiró de la manga de Luhai.
+
+—¿Eso es una persona?
+
+—No. Pero se parece más a una persona que las cosas de allá arriba.
+
+Los dedos de Luhai seguían manchados de óxido.
+
+La anciana no preguntó más.
+
+Al final del pasaje, la luz cambió. No era plateada. Era la luz amarilla y oscura de una lámpara vieja. Se parecía a la luz que veían en Hazran.
+
+La anciana vio esa luz y apuró el paso; Luhai lo apuró con ella, y los niños, en el centro, iban arrastrados, agarrados de las mangas de los adultos.
+
+Sion, desde el final, volvió a mirar atrás una vez más. La luz plateada no bajaba hasta allí, así que lo alto de la pendiente estaba oscuro. Volvió a girarse hacia delante.
+
+Delante, la máquina se detuvo. La luz de su cara saltó.
+Una vez.
+Dos veces.
+Luego dio un paso fuera del pasaje.
+
+Los dieciséis salieron tras ella.
 
 ---
 

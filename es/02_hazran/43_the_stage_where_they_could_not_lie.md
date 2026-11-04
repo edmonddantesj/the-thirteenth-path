@@ -164,7 +164,7 @@ Nasim la miró.
 
 —Porque no son de un tamaño que quepa en el plato.
 
-Aquello sonó a broma, pero nadie se rio.
+Nadie se rio.
 
 Ater preguntó en voz baja.
 

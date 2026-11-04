@@ -1,22 +1,12 @@
 # Capítulo 88 — Las primeras personas enviadas afuera
 
-Una cosa es llamarla, solo de palabra, una pelea para enviar a la gente, y otra muy distinta es empezar de verdad a sacar primero a alguien.
-
-Esa diferencia aparece antes que en ningún otro sitio en la mirada de la gente.
-
 Después de que se dijera que primero sacarían a los de dentro, por el interior de Hazran corrió una sacudida muy breve. Una sacudida en la que la tenue luz de poder vivir y el oscuro cálculo de quién se quedaría entonces subían juntos a las caras en un mismo instante.
-
-Al verlo, Sion pensó que a partir de ahora iba a ser de verdad más difícil.
-
-Frenar al enemigo que entra es un tipo de miedo. Pero cuando se empieza a fijar el turno entre los que vivirán y los que se quedarán, el miedo de pronto se vuelve mucho más humano y más cruel.
 
 Nasim empezó a separar a la gente y a ponerla en fila.
 
 —Los niños primero. Los heridos, los de manos lentas, los que no pueden trabajar dentro.
 
-Tenía la voz ya ronca, pero, por extraño que fuera, sonaba más firme.
-
-Él también lo sabía. Que aquello no era poner las cosas en su sitio, sino un trabajo en el que había que fijar un turno aunque se le desgarrara el corazón a la gente.
+Tenía la voz ya ronca.
 
 Mientras lo ayudaba, Sion se dio cuenta de una cosa.
 
@@ -49,7 +39,7 @@ Poner a la gente delante de la rampa no era salvarla. Era prepararse para salvar
 Eso dijo Nasim.
 —Y la gente solo se mueve si ve la fila.
 
-Era cierto. Desde que se formó la fila, el aire de dentro había cambiado claramente. Hasta hacía un momento todos estaban pegados a las paredes; ahora todos miraban hacia esa fila.
+Desde que se formó la fila, el aire de dentro había cambiado claramente. Hasta hacía un momento todos estaban pegados a las paredes; ahora todos miraban hacia esa fila.
 
 Solo con mirarla, la gente revive un poco.
 

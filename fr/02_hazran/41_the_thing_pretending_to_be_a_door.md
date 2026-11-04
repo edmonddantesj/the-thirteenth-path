@@ -52,7 +52,7 @@ Seorin demanda très bas :
 
 « Alors qu'est-ce qu'on a poursuivi, nous ? »
 
-Cette fois, Aka regarda un peu plus longtemps le fragment, du côté de Sion.
+Cette fois, Aka regarda un peu plus longtemps le fragment glissé à l'intérieur de la veste de Sion.
 
 « L'endroit coupé. »
 Elle répondit à Seorin.
@@ -110,7 +110,7 @@ Luhai referma la main d'un coup.
 Aka avait répondu tout de suite.
 « C'est ça, le problème. »
 
-Alors seulement, Sion comprit. Deux choses vraies, ensemble, ne se rendaient pas plus nettes l'une l'autre : elles vibraient si fort qu'on ne voyait plus rien. Aka n'avait pas les yeux plus clairs en ce moment ; elle était aveuglée.
+Aka n'avait pas les yeux plus clairs en ce moment ; elle était aveuglée.
 
 « Loin. »
 Elle ajouta :
@@ -138,7 +138,7 @@ Nahira coupa ces mots, sans bruit.
 
 « À Hazran, c'est comme ça qu'on vit longtemps. »
 
-Luhai ne trouva rien à répondre. Cette fois, ce n'était pas seulement qu'il restait sans voix : c'était le visage de quelqu'un qui savait que ces mots n'avaient rien de faux.
+Luhai ne trouva rien à répondre.
 
 Sion regarda de nouveau Aka.
 
@@ -150,7 +150,7 @@ Nahira dit très bas :
 
 Un bref silence.
 
-Sion ne sut pas, un instant, si ces mots parlaient du fragment d'éthérite, d'Aka, ou du fait de tirer une vérité plus profonde de ce qui se passait ici. Mais que les trois soient justes à la fois, c'était bien plus Hazran.
+Sion ne sut pas, un instant, si ces mots parlaient du fragment d'éthérite, d'Aka, ou du fait de tirer une vérité plus profonde de ce qui se passait ici. Que les trois puissent être justes à la fois, c'était bien plus Hazran.
 
 Seorin demanda :
 

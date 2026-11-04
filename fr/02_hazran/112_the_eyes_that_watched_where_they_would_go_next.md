@@ -42,13 +42,13 @@ Le commandant ne demanda rien de plus.
 
 À la place d'un chiffre, l'officier des registres inscrivit une mention dans cette rubrique. Inconnu. Une fois ce mot entré, la case ne se rouvrait plus. Plus tard, quiconque ouvrirait ce registre y trouverait, non pas un nombre de personnes, mais : inconnu.
 
-À l'intérieur de Hazran, quelqu'un connaissait ce nombre. Il l'avait compté chaque jour, en le traçant sur un tableau.
+À l'intérieur de Hazran, quelqu'un connaissait ce nombre. Il l'avait compté en le traçant sur un tableau.
 
 Ce tableau se dressait à présent au milieu de la ville effondrée, et dans ce registre-ci, on écrivait : inconnu.
 
 La même chose avait été notée à deux endroits, et un seul resterait.
 
-Les mots étaient parfaitement lisses. C'est justement ce qui les rendait plus cruels.
+Les mots du rapport étaient parfaitement lisses.
 
 Dans la salle du commandant, personne ne reformula ces phrases.
 
@@ -86,8 +86,6 @@ Pas même une classification officielle : une marque dont très peu connaissaien
 Il parla bas.
 
 « Les prendre maintenant serait la pire des solutions. »
-
-L'air de la salle du commandant se figea, très imperceptiblement.
 
 L'officier qui avait réclamé la poursuite immédiate leva la tête.
 
@@ -170,7 +168,7 @@ Cette ville n'avait jamais été qu'un de ces espaces extérieurs où l'Alliance
 
 Ce qui comptait à présent, ce n'était donc pas que la ville eût disparu, mais jusqu'où cette disparition avait ébranlé les calculs de l'Empire.
 
-Une femme dont les cheveux gris semblaient avoir blanchi écoutait en silence, le bout des doigts seulement posé sur le rapport.
+Une femme aux cheveux gris et au visage jeune écoutait en silence, le bout des doigts seulement posé sur le rapport.
 
 Kanus Han.
 
@@ -219,8 +217,6 @@ Kanus leva les yeux.
 Elle parla.
 « Ce n'est peut-être pas qu'il l'a laissé échapper, mais qu'il l'a laissé en réserve. »
 
-Ces mots changèrent aussitôt l'air de la salle.
-
 L'Alliance le comprit sur-le-champ.
 
 L'Empire ne pourchassait pas les survivants. Il regardait le prochain seuil qu'ils atteindraient.
@@ -232,8 +228,6 @@ Kanus referma le rapport.
 « Ce qu'on doit regarder, ce ne sont pas les survivants. »
 Elle parla.
 « Ce qui compte, c'est où ils ouvriront ensuite. »
-
-Ces mots étaient très calmes, et c'est justement pour cela qu'ils sonnaient plus définitifs.
 
 Le groupe de Sion n'était plus une simple bande de fugitifs.
 Depuis sa sortie de Hazran,
@@ -267,15 +261,13 @@ Hazran était déjà une ville finie. Mais cette fin était, pour l'Alliance, le
 
 ---
 
-L'Empire avait choisi la filature dans le langage de l'ordre, l'Alliance l'attente dans le langage du pragmatisme. En surface, ils semblaient différents, mais ils regardaient dans la même direction — non pas les survivants de Hazran eux-mêmes, mais ce qu'ils ouvriraient ensuite.
+L'Empire avait choisi la filature dans le langage de l'ordre, l'Alliance l'attente dans le langage du pragmatisme. En surface, ils semblaient différents, mais ils regardaient dans la même direction.
 
 Et ce qu'ils avaient effacé était le même aussi.
 
 L'un avait écrit : inconnu ; l'autre avait parlé de chiffres clos. Dans aucun des deux registres ne restait le nombre de ceux qui étaient morts à Hazran.
 
 Celui qui connaissait ce nombre était assis, en ce moment, dans le vaisseau que tous deux poursuivaient.
-
-Hazran s'était fermée. Désormais, les yeux du monde se tournaient au-delà de cette fermeture.
 
 ---
 

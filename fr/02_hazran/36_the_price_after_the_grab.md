@@ -73,8 +73,6 @@ Luhai riposta aussitôt :
 
 « Alors ça veut dire que toi, t'es malin ? »
 
-L'air de la ruelle s'arrêta un très bref instant.
-
 Le marchand devint livide, et quelques badauds détournèrent carrément les yeux. Même dans la couche extérieure de Hazran, une langue pareille pouvait se voir attacher un prix élevé. Le genre de langue qui amuse si elle survit, et qui se brise net si elle tombe sur la mauvaise personne.
 
 Nassim, pourtant, ne quitta pas son sourire.
@@ -157,8 +155,6 @@ Nassim inclina très légèrement la tête.
 Sa réponse vint sans se presser :
 « À part les prix, on regarderait quoi ? »
 
-Ce n'était pas faux, et c'est justement pour cela que c'était plus déplaisant.
-
 Au terme de ce bref échange, Sion repensa au nom d'Aka. Il y avait de fortes chances qu'Aka circule ici de la même manière. Comme un prix plutôt qu'un nom, comme un objet sous contrôle plutôt qu'une rumeur. L'impression que l'éthérite et Aka se trouvaient sous la même ligne ne cessait de s'épaissir.
 
 Luhai était toujours retenu par la main de Kael, mais sa bouche, elle, ne s'arrêtait pas.
@@ -184,7 +180,7 @@ La main de Kael se resserra de nouveau, juste un peu.
 « Tu sais quelque chose ? »
 Quand Sion posa la question, Luhai ne répondit pas tout de suite. Cette fois, il calcula pour de bon. Jusqu'où parler pour être moins vendu, jusqu'où se taire pour survivre plus longtemps. Le silence propre aux enfants à l'esprit vif.
 
-Mais Nassim posa ses mots sur ce silence avant lui.
+Nassim posa ses mots sur ce silence avant lui.
 
 « Ne restez pas accrochés trop longtemps à ce nom, dehors. »
 Sa voix était douce.
@@ -206,7 +202,6 @@ Les gens reculèrent encore d'un pas, le marchand baissa carrément la tête, et
 Nassim murmura très bas :
 
 « Voilà que la vraie main qui compte arrive. »
-Il n'ajouta rien.
 
 Sion ne demanda pas ce que cela voulait dire.
 

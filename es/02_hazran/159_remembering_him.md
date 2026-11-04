@@ -1,206 +1,320 @@
 # Capítulo 159 — Lo que la memoria reconoce
 
-Mientras preparaban el tercer rescate,
-el aire del estrato oculto se tensaba cada vez más.
+Mientras preparaban el tercer rescate, al fondo de la capa oculta nadie alzó la voz.
 
-Ahora todos lo sabían.
-Si volvían a entrar la próxima vez,
-esta vez entrarían hacia ese niño.
+Mientras la segunda mano de recogida caminaba apoyándose en la pared, la pierna estirada se arrastraba una vez a cada paso y hacía ruido. Fue hasta el final de la pared y volvió, y otra vez fue hasta el final de la pared.
 
-El problema era
-que la sensación de que ese niño no era simplemente el *niño que esta vez no pudieron traer*
-se volvía cada vez más nítida.
+—Basta.
 
-Han Jiwoo, al principio, no supo explicar ese hecho.
+Lo dijo Han Jiwoo.
 
-Solo pensó que, raramente, se le quedaba en los ojos.
-La costumbre de mirar primero al lado hasta el final,
-los ojos que no se pierden quién se escapa,
-el modo de girar el cuerpo y luego volver a tragárselo.
+—Tengo que reducir el ruido.
 
-Pero al pasar un poco de tiempo,
-esa familiaridad pasó de sensación a algo más cercano a la memoria.
+—No se reduce. Es el pasador.
 
-Entre los niños que vio en Hazran también había de ese tipo.
+La segunda mano fue una vez más hasta el final de la pared, pero el ruido del arrastre siguió igual. No se sentó: se quedó de pie con la espalda contra la pared.
 
-El que, aun con miedo, mira hasta el final primero a otro,
-el que, justo antes de huir, confirma la velocidad del de al lado antes que su propio pie,
-el que, antes de llorar, tantea por dónde retroceder.
+La primera mano de recogida se puso delante de Han Jiwoo y le tendió una mano; Han Jiwoo le agarró la muñeca y tiró. La primera mano vino arrastrada. Demasiado fácil.
 
-Eso no era tanto un hábito que hubiera creado Serakion,
-sino más bien la clase de costumbre que se forma en los niños que sobrevivieron mucho tiempo en un sitio que se derrumba.
+—Un niño no viene así. Resiste.
 
-Han Jiwoo, apoyada en la pared, sentada, dijo muy bajo.
+Los dedos que sujetaban la muñeca apretaron.
+
+La primera mano resistió, y cuando Han Jiwoo volvió a tirar, la muñeca se le resbaló de la mano. Cambió el agarre a más arriba de la muñeca, donde estaba el hueso, volvió a tirar y ya no resbaló.
+
+—Aquí. Los niños tienen la muñeca delgada. Agarra el hueso.
+
+La primera mano se miró la muñeca y tocó ese punto con la otra mano.
+
+—Es la primera vez que soy la mano que saca.
+
+—Lo sé.
+
+—Siempre me ponía detrás. No usaba las manos.
+
+—Pues ahora úsalas.
+
+La primera mano volvió a tenderla, y cuando Han Jiwoo la agarró y tiró, vino arrastrada. Menos fácil.
+
+Kael estaba sentado delante de las líneas del suelo, y esta vez había nuevas: dos líneas y una muesca corta. Marcó un punto junto a la muesca y, junto a ese punto, trazó otra línea, más corta.
+
+—¿Qué es esto?
+
+Lo preguntó Luhai.
+
+—Ese niño.
+
+Lo dijo Kael.
+
+—Esto es el adulto que está al lado de ese niño. La mano temblorosa.
+
+—¿No decías que a los adultos no los traemos?
+
+—No los traemos. Pero si ese adulto se retrasa, el niño sale.
+
+Cuando la punta de su dedo tocó la línea junto al punto, Luhai miró la línea y el punto.
+
+Delante de la pared, Ater daba una vez el paso de allá, se detenía y volvía a darlo. Los pies de Luhai, que pasaban por delante, no se detuvieron.
+
+—Ya no se detiene.
+
+Lo dijo Ater.
+
+—Porque lo vi.
+
+Luhai respondió.
+
+—Después de verlo tres veces, ya no me paro.
+
+Ater detuvo los pies y se los miró.
+
+—¿Con tres veces basta?
+
+—A mí, sí.
+
+Lo dijo Luhai.
+
+—Los niños, no sé.
+
+Han Jiwoo fue hacia los tres niños de Hazran. Aka estaba a su lado, y el niño del destornillador no le soltaba la manga. Han Jiwoo se puso en cuclillas delante de ese niño.
+
+—Te voy a preguntar una cosa.
+
+El niño la miró.
+
+—Debajo de la rampa. ¿Qué viste?
+
+El niño no respondió enseguida, y la mano que apretaba el destornillador, el que le había devuelto el niño rápido, se tensó. Aka le puso una mano en la espalda.
+
+—Atrás.
+
+Lo dijo el niño.
+
+—¿Qué había atrás?
+
+—La gente que no viene.
+
+Mientras Han Jiwoo contenía el aliento, el niño no dijo nada más y giró el destornillador contra su brazo.
+
+Han Jiwoo no se levantó y se quedó agachada largo rato. Aka la miró, pero no dijo nada.
+
+Han Jiwoo volvió a la pared, se sentó y habló muy bajo.
 
 —Es de Hazran.
 
-Ater levantó la cabeza.
-Kael también movió la mirada.
+Ater levantó la cabeza, y Kael también movió la mirada.
 
-Han Jiwoo no siguió enseguida.
+Han Jiwoo no siguió enseguida: se miró la mano, la cerró y la abrió.
 
-Porque en el instante de decirlo en voz alta,
-esa sensación parecía que se volvería no una simple suposición, sino una memoria que de verdad había que recuperar.
+—Aquel niño tiene una costumbre que vi en Hazran.
 
-Pero al fin lo dijo.
+Ater, que había pasado un rato sin hablar, despegó la espalda de la pared.
 
-—Ese niño
-tiene algo de lo que vi en Hazran.
+—Yo he sentido algo parecido.
 
-Ater calló un buen rato.
-Luego dijo muy bajo.
+—¿En qué?
 
-—Yo sentí algo parecido.
+—En no mirar hacia arriba.
 
-Lo que recordó no fue la cara en sí.
-Más bien el modo de no mirar hacia arriba,
-la mirada que resiste y aun así mira primero a otro,
-y el movimiento de querer seguir un instante muy breve y al final tragárselo.
+Lo dijo Ater.
 
-Cuando Hazran se derrumbaba,
-los niños nunca se movían solo con su propio miedo.
-Había niños que se ponían a mirar primero
-quién corre antes,
-quién se queda,
-quién no puede seguir.
+—Los niños de debajo de la rampa tampoco miraban hacia arriba. Miraban el final de la fila. Quién no lograba subir. Y eso de querer seguir y volver a poner el pie donde estaba. Así lo hacen los niños que cuentan primero quién no va a poder venir.
 
-Eso era una costumbre de sobrevivir,
-y la cara de los niños obligados demasiado pronto a velar primero por otros.
+—Los niños de Serakion también son así.
 
-Kael, aun oyendo lo que decían los dos, no sacó enseguida una conclusión.
+Lo dijo Kael.
 
-Él no era del lado de la emoción,
-sino del de casar conducta y memoria verificables.
+Ater lo miró.
 
-—Hay que verlo más —dijo bajo—. Parecerse no es ser lo mismo.
+—Los niños de Serakion no giran el pie primero.
 
-Han Jiwoo no rebatió enseguida.
-Porque esas palabras tenían razón.
+Lo dijo Ater.
 
-Dentro de Serakion también pueden nacer hábitos parecidos.
-El miedo puede crear caras parecidas,
-y el encierro puede dejar costumbres parecidas.
+—Girarlo y volver a ponerlo donde estaba es de un niño que ya lo ha girado alguna vez.
 
-Aun así,
-ninguno de los dos podía dejar pasar a ese niño.
+Kael no respondió enseguida y miró el punto marcado junto a las líneas del suelo.
 
-Y ese mismo día,
-uno de los tres niños traídos en el primer rescate
-soltó, con una voz casi imposible de oír, una palabra más.
+—Hay que verlo más.
+
+Lo dijo en voz baja.
+
+—Parecerse no es ser lo mismo.
+
+Han Jiwoo no le rebatió y apoyó la espalda en la pared.
+
+—Lo sé. Aun así, míralo.
+
+—Lo miro.
+
+Lo dijo Kael.
+
+—Miramos y vamos.
+
+Sion estaba sentado junto al anciano de Hazran. En la placa había dieciséis trazos, y cuando Sion miró el reverso, había uno.
+
+—Eran ocho de treinta y seis, ¿verdad?
+
+Lo preguntó Sion.
+
+—Así es.
+
+—¿Y cuántos eran los niños?
+
+El anciano miró la placa.
+
+—No los conté aparte.
+
+Lo dijo el anciano.
+
+—Contábamos a todos juntos. Un niño también es una persona.
+
+—Aun así.
+
+—Muchos. Más que ahora.
+
+La uña recorrió una vez el borde de la placa.
+
+La mujer que vino con dos niños lo oyó y se acomodó en los brazos a uno de los niños.
+
+—¿Un niño que mira primero al lado?
+
+Lo preguntó ella.
+
+Han Jiwoo miró hacia allí.
+
+—Había muchos niños así. Allí.
+
+Lo dijo la mujer.
+
+—El mío también es así. Todavía.
+
+Miró al niño que tenía en brazos, y el niño miraba al lado. No a Han Jiwoo: al lado de Han Jiwoo.
+
+Han Jiwoo no pudo decir nada.
+
+Entonces abrió la boca uno de los niños traídos en el primer rescate. El niño de ojos bajos, el que había estado de pie bajo la lámpara amarilla. Era la primera vez.
 
 —Ese niño…
 
-Han Jiwoo levantó enseguida la cabeza.
+Han Jiwoo levantó la cabeza, pero el niño miraba hacia abajo. Tenía los labios secos y la voz pequeña.
 
-Al niño se le secaban los labios,
-y la voz seguía siendo pequeña.
-Pero esta vez no se detuvo en *uno más* como la otra vez.
+—…era del lado que se queda.
 
-—…era de los que se quedan.
+Luhai dejó el cuenco, y Sern levantó los ojos del panel de registro.
 
-El aire del cuarto cambió fino.
-
-Han Jiwoo bajó más el cuerpo.
+Han Jiwoo se agachó delante del niño. Cerca del suelo, hasta donde miraba el niño.
 
 —¿Qué viste?
 
-El niño miró una vez alrededor con ojos asustados.
-Y, muy bajo, casi como un soplo, siguió.
+Desde abajo, el niño miró una vez alrededor. Había pies. Los pies de Han Jiwoo, los de Luhai. Después habló, muy bajito.
 
-—Siempre… miraba atrás.
-—No al lado que se llevan,
-sino al que se queda…
+—Siempre… miraba atrás. No el lado que se llevan: el lado que se queda…
 
-Esa frase no era tanto información exacta,
-sino más bien una huella que la sensación del niño sostenía.
+Como el niño no dijo más y bajó la vista, Han Jiwoo dejó su mano junto al pie del niño, sin tocarlo. El niño miró esa mano.
 
-Pero justo por eso era más verdadera.
-
-Ese niño también lo había reconocido.
-Que la dirección que aquel pequeño miraba dentro de la fila
-no era simplemente arriba ni delante,
-sino el lado que se queda y lo de atrás.
-
-Ater preguntó bajo.
+Ater preguntó en voz baja.
 
 —¿Posibilidad de que recuerde Hazran?
 
-Nadie respondió enseguida.
+Nadie pudo responder enseguida.
 
-Porque esa sola posibilidad
-podía cambiar del todo el peso del próximo rescate.
+La máquina vieja despegó el cuerpo del pilar y dio un paso al frente.
 
-Si ese niño de verdad sostenía memoria del lado de Hazran,
-esta recuperación no era simplemente traer a otro más.
+—Entre los niños que han llegado aquí, ninguno ha hablado de Hazran.
 
-Podía convertirse en volver, tarde, a agarrar
-un tramo de tiempo que creyeron perdido para siempre.
+Lo dijo la máquina vieja.
 
-Aunque todavía nadie sacó esa palabra de forma explícita,
-Han Jiwoo ya lo intuía vagamente.
+—Los que no hablaron fueron muchos.
 
-Al volver a ver a ese niño,
-alguien al final no podría pasarlo de largo.
-No simplemente por ser niño de Hazran,
-sino como algo que tal vez tocaba alguna de las pérdidas ya recorridas.
+La primera mano retomó esas palabras.
 
-Kael, solo tras oír esa conversación, volvió a cambiar el diseño de este rescate.
+—Los niños que subieron nunca han bajado.
 
-Ahora el objetivo no era una simple recuperación.
+—¿Y los que todavía no han subido?
 
-—Esta vez lo armamos en torno a ese niño —dijo bajo—.
-Aunque saquemos a otro niño con él,
-el eje es ese niño.
+Lo preguntó Han Jiwoo.
 
-La primera mano de recuperación preguntó.
+—Están en la zona de espera.
+
+Lo dijo la segunda mano desde la pared.
+
+—Ese niño está ahí.
+
+Nadie dijo nada más.
+
+Kael se levantó de delante de las líneas y, sin borrar con el pie el punto y las líneas, se puso en cuclillas al lado y trazó de nuevo. El punto en el centro, las líneas alrededor.
+
+—Esta vez lo armamos en torno a ese niño.
+
+Lo dijo en voz baja.
+
+—Aunque saquemos a otro niño con él, el eje es ese niño.
+
+La primera mano de recogida preguntó.
 
 —¿Por qué?
 
-Kael respondió corto.
+Kael respondió en pocas palabras.
 
-—Ese niño ya vio el afuera una vez,
-y esta vez es muy probable que sepa que el afuera viene a verlo de nuevo.
-—Entonces ellos,
-nosotros,
-y los niños que quedan
-se moverán todos de manera distinta.
+—Ese niño ya vio el afuera una vez, y esta vez es muy probable que sepa que el afuera viene otra vez a verlo. Entonces los de allá, nosotros, los niños que quedan: todos nos vamos a mover distinto.
 
-Esas palabras sonaron a la vez a cálculo de rescate
-y a declaración de un desplazamiento del centro emocional.
+—¿Y si los de allá se enteran primero?
 
-Porque querían decir que no era sacar a un niño,
-sino que toda la memoria que rodeaba a ese niño empezaba a moverse.
+Lo dijo la primera mano.
 
-Han Jiwoo abrió y cerró la mano muy despacio.
-Y dijo bajo.
+—A ese niño lo quitan de en medio primero.
+
+—Por eso, rápido. La siguiente fila.
+
+Sern miró el panel de registro.
+
+—La señal sigue igual.
+
+Lo dijo Sern.
+
+—No ha aumentado ni ha disminuido. Es el tercer día.
+
+—¿Y tres días quiere decir…?
+
+—No lo sé. Es la primera vez.
+
+Seorin miró su propio punto en el suelo, lo frotó con el pie, borró solo la mitad y dejó el resto.
+
+—Con suerte, uno.
+
+Lo dijo Seorin.
+
+—Esta vez no es con suerte.
+
+El niño de ojos bajos miraba cómo Han Jiwoo cerraba la mano muy despacio y la abría. Ella dejó la mano donde estaba y dijo en voz baja.
 
 —Volvamos.
 
-Esta vez esas palabras no sonaron a impulso.
+La segunda mano despegó la espalda de la pared y dio un paso.
 
-Ya todos veían la misma cara,
-pensaban la misma posibilidad,
-y era después de haber aceptado incluso el mismo miedo.
+—Yo también.
 
-Ater abrió los ojos tras cerrarlos y dijo muy corto.
+—Tú, la brecha.
+
+Lo dijo Kael.
+
+—No entras. Recibes en la brecha.
+
+La segunda mano se miró la pierna estirada y asintió.
+
+Ater cerró los ojos, los abrió y habló muy corto.
 
 —Esta vez lo traemos.
 
-Esas palabras no eran tanto un juramento,
-sino más bien un veredicto de que ya no se podía aplazar.
+Han Jiwoo lo miró, pero Ater miraba la pared, la brecha cerrada.
 
-Al final de aquella noche,
-lo que se endureció por último dentro del estrato oculto no fue solo el plan de rescate.
+Sion levantó la tablilla de puntos. La pequeña muesca que había junto al tercer punto la alargó un poco, pero no marcó el punto.
 
-Fue la memoria.
+El anciano de Hazran giró la placa que tenía de pie y la miró. En la cara vacía, un trazo. Volvió a ponerla de pie.
 
-Aún no estaba del todo confirmado quién era ese niño.
-Pero ahora la memoria de todos
-ya se inclinaba hacia el lado de no poder pasarlo de largo.
+Mientras la lámpara amarilla parpadeaba, el niño de ojos bajos miró la mano de Han Jiwoo, apoyada en el suelo. El pie del niño se movió medio palmo hacia esa mano, pero no la alcanzó.
 
-Y justo esa inclinación
-convertía la próxima recuperación, no en una simple repetición,
-sino en el verdadero último entrar.
+Han Jiwoo no retiró la mano.
 
 ---
 

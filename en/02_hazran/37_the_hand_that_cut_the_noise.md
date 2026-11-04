@@ -110,7 +110,7 @@ Kael said evenly.
 
 At the end of those words, for the first time, Harun looked around once more.
 
-The people standing outside the alley, the ears pretending not to see but hearing everything, the merchant who had just been yelling that it was real, the eyes of the outer layer that would remember who had wrongly laid a hand on what. It was the face of someone who knew that he might think little of the people of the outer layer, but that he could not cut off a commotion that had spread this far without leaving a trace.
+The people standing outside the alley, the ears pretending not to see but hearing everything, the merchant who had just been yelling that it was his, the eyes of the outer layer that would remember who had wrongly laid a hand on what. It was the face of someone who knew that he might think little of the people of the outer layer, but that he could not cut off a commotion that had spread this far without leaving a trace.
 
 Nasim stepped in softly.
 
@@ -186,8 +186,6 @@ At that, Harun narrowed his eyes very thinly.
 "Which only made it later,"
 he said.
 
-Sion felt the sentence land more precisely than the feeling that had brushed past him at the end of the alley a little earlier. *Late* did not mean that time had passed. It was closer to meaning that they had already touched too many things at once. Etherite, Aka, Luhai, and now this commotion in the middle of the market's outer layer. It had become something that could no longer be shrunk down to a problem of four outsiders and one petty thief.
-
 Nasim reached the conclusion very softly.
 
 "Good. Then let's stop haggling it down out here and look at the price inside."
@@ -226,8 +224,6 @@ Seorin moved before Sion did.
 she said, low.
 "Ask anything more here and it all leaks outside anyway."
 
-Sion felt she was right, too.
-
 One real piece of Etherite,
 one name, Aka,
 one quick-mouthed hand called Luhai.
@@ -246,7 +242,7 @@ And somewhere inside, Aka would be there too.
 
 Sion went back over the day.
 
-Not one person in this city had said that name out loud.
+In this city, the only ones who had said that name out loud were two children.
 
 In the outer layer, they had covered a kid's mouth. Harun knew it and still only said *that name*, and Nasim never brought it up at all.
 
@@ -257,10 +253,6 @@ If you don't know a name, you can ask. A name everyone knows and no one says has
 Sion counted how many times he had said the name in the outer layer.
 
 Twice.
-
-This was not a name that ended with finding it.
-
-Look for it the wrong way, and it was a name that swallowed you whole.
 
 ---
 

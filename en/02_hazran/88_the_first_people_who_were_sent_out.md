@@ -1,22 +1,12 @@
 # Episode 88. The First People Who Were Sent Out
 
-Calling it a fight to send people out, in words only, and actually starting to send someone out first were nothing alike.
-
-The difference showed first in people's eyes.
-
 After the word came down that the people inside would be pulled out first, a very brief tremor ran through the inside of Hazran. A tremor in which the faint light of a chance to live and the dark calculation of who, then, would stay rose onto the same faces in a single instant.
-
-Watching it, Sion thought that from here on it would really get harder.
-
-Stopping the enemy from coming in was one kind of fear. But once you began deciding the order of who would live and who would stay, fear suddenly became far more human, and far crueler.
 
 Nasim began sorting people and standing them in place.
 
 "Children first. The injured, the slow-handed, anyone who can't do the work inside."
 
-His voice was already hoarse, yet it sounded strangely firmer.
-
-He knew it too. This was not tidying up; it was work where you had to make an order even if it tore people's hearts.
+His voice was already hoarse.
 
 Helping him, Sion noticed one thing.
 
@@ -49,7 +39,7 @@ Standing people in front of the ramp was not saving them. It was getting ready t
 Nasim said.
 "And people only move once they see a line."
 
-That was true. Since the line had formed, the air inside had clearly changed. Until a moment ago everyone had been pressed to the walls; now everyone was looking toward that line.
+Since the line had formed, the air inside had clearly changed. Until a moment ago everyone had been pressed to the walls; now everyone was looking toward that line.
 
 Just looking brings a person a little back to life.
 
@@ -259,7 +249,7 @@ he said.
 
 Sion wanted to correct him. Thirty-one people had just crossed thirty roofless steps. That was not nothing.
 
-But Nasim was right.
+Still, Nasim was right.
 
 Until the ship lifted, everyone here was still inside Hazran.
 

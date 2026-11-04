@@ -26,15 +26,11 @@ Aka secoua la tête.
 
 « Non. Ce côté-là était là en premier. Je me suis juste… accrochée dessus. »
 
-Les mots tenaient plus de la sensation que de l'explication.
-
-Mais justement pour cela, personne ne put les écarter.
-
 Ater ne regardait pas la lumière nouvellement levée. Il regardait Aka.
 
 « Si vous le sentez encore, dites-le-nous. Cette fois, découpez-le en morceaux plus petits. »
 
-Aka ne comprit pas immédiatement ce qu'il voulait dire. Mais Sern comprit.
+Aka ne comprit pas immédiatement ce qu'il voulait dire. Sern, lui, comprit.
 
 Il jeta un bref regard à Ater, puis ajouta très bas :
 
@@ -86,8 +82,6 @@ Sern ne répondit pas tout de suite.
 
 « Cela ne veut pas dire disparaître sans trace. Les dossiers, l'état physique, les lignes d'accès, tout est rangé d'abord. C'est une structure où le côté qui cherche arrive en retard. »
 
-Les mots étaient arrangés froidement, et donc plus inconfortables.
-
 Sion serra et desserra ses doigts sans raison particulière.
 
 Le nom d'Elia n'avait encore été confirmé par la bouche de personne.
@@ -98,7 +92,7 @@ Seorin le toucha la première.
 
 « Donc. Vous pensez tous les deux à la même chose ? »
 
-Ater et Sern, presque en même temps, ne parlèrent pas.
+Ni Ater ni Sern ne répondirent tout de suite.
 
 Ater parla le premier.
 
@@ -130,7 +124,7 @@ Seorin jeta un bref regard à Sion.
 
 Dans ce seul regard court, elle portait déjà le visage de quelqu'un qui savait à qui pensait Sion.
 
-Mais elle ne le dit pas pour lui.
+Elle ne le dit pas à sa place pour autant.
 
 Celui qui brisa le silence le premier fut Sern.
 
@@ -180,15 +174,13 @@ Luhai intervint alors pour la première fois.
 
 Aka répliqua aussitôt :
 
-« Tais-toi. »
+« Arrête. »
 
 Luhai rit, incrédule.
 
 « Pourquoi tu t'énerves contre moi ? J'allégeais l'ambiance. »
 
 « Elle ne s'est pas allégée. »
-
-Une brève querelle. Mais étrangement, grâce à cela, l'air à l'intérieur du vaisseau redescendit légèrement du côté humain.
 
 Jiwoo, les yeux ouverts, les regarda tous deux une fois, puis parla bas :
 
@@ -234,8 +226,6 @@ Sern ne répondit pas tout de suite à cette question.
 
 « Je ne veux pas dire que vous devez me faire entièrement confiance. Cependant. Pour entrer, c'est le seul moyen. »
 
-Ces mots, étrangement, sonnaient plus droits que n'importe quelle excuse.
-
 Sion regarda le visage de Sern un peu plus longtemps.
 
 Il voyait bien que cet homme ne disait pas cela parce qu'il n'avait pas peur.
@@ -254,7 +244,7 @@ Il n'avait pas l'air surpris. Mais le fait que ces mots soient sortis de la bouc
 
 Sion regarda entre les deux.
 
-Le premier-né de Valkar. Et celui qui l'avait servi.
+L'héritier de Valkar. Et celui qui l'avait servi.
 
 Tous deux ne recevaient pas les mots « retourner dans l'Empire » avec exactement le même poids.
 
@@ -264,7 +254,7 @@ Sion regarda de nouveau les deux lumières.
 
 Étrangement, elles étaient plus silencieuses qu'avant.
 
-Mais ce silence était plus proche non de l'hésitation, mais du calme de gens qui avaient déjà commencé à pencher dans une direction.
+Ce silence était plus proche non de l'hésitation, mais du calme de gens qui avaient déjà commencé à pencher dans une direction.
 
 Il stabilisa son souffle, brièvement.
 
@@ -291,8 +281,6 @@ Et dit très bas :
 Après une très brève pause, il parla du temps pour la première fois.
 
 « Mais il faut faire vite. Une fois que l'écart de ravitaillement du côté de Serakion commencera à se sentir dehors, l'Empire relèvera le niveau de surveillance périphérique. Les lignes qui sont encore ouvertes maintenant se fermeront après cela. »
-
-Sion entendit et sentit alors seulement vraiment que la direction qu'ils venaient de décider n'avait pas été prise avec loisir.
 
 Ils devaient entrer avant que la fenêtre ne se ferme.
 

@@ -1,209 +1,228 @@
 # Capítulo 186 — El hombre que pedía auxilio
 
-Cuando la segunda batalla empezó a morder de verdad,
-el plan de Seorin vivió rápido, tal como se había pensado, sobre cada estrato y cada línea de movimiento.
+Cuando la segunda batalla empezó a engranar, el plan de Seorin se puso en marcha sobre cada estrato y cada corredor.
 
-El eje izquierdo se aferró a la primera diferencia de reacción de la legión de Serakion,
-el de arriba desajustó una y otra vez la línea de caída de circulación,
-y la junta que llevaba Sion, una vez que empezó a abrirse,
-funcionaba para seguir retrasando el flujo interno de Serakion.
+El eje izquierdo se aferró a la primera diferencia de reacción de la Legión de Serakion. Cada vez que cortaban un panel, la luz de la línea de circulación se ralentizaba un poco, y al ritmo de esa luz más lenta se ralentizaban los pies de las unidades.
 
-Y en medio de todo eso,
-el último androide seguía moviéndose no como «una fuerza que reemplaza a todos»,
-sino como «un ser que tuerce el compás del campo».
+El eje de arriba desvió tres veces la línea de caída. Las tres veces, la unidad que caía fue a dar en otro sitio, y la tercera quedó encajada entre la pared y el suelo, sin poder moverse.
 
-Eso era bueno.
+La conexión que tenía a su cargo Sion, desde que se abrió la segunda brecha, hacía que el carillón de reasignación no cesara. El siguiente empezaba antes de que terminara el anterior, y por primera vez la voz de Serakion tapó sus propias palabras. Sern oyó ese sonido.
 
-Era bueno,
-pero por eso también era más peligroso.
+—Se han solapado dos veces.
 
-Porque Serakion ya leía esa variable.
+Lo dijo Sern.
 
-Han Jiwoo estaba en el mismo eje que el último androide,
-pero no se movía pegada a él.
+—Si llega el tercero, se solaparán los tres.
 
-Desde detrás de una cobertura, un paso atrás,
-ella leía sin parar el temblor mínimo de él y el cambio de reacción de las unidades enemigas.
+—¿Y entonces?
 
-Cuando ella lanzaba una señal baja y corta,
-él reaccionaba brevísimo,
-y por esa sola reacción la primera fila de la legión de Serakion se atrasaba un compás cada vez.
+—Entonces nada de lo que diga tendrá sentido.
 
-Pero justo entonces,
-Ater fue el primero en sentir algo raro.
+Sion encontró la tercera juntura.
 
-—Deténganse —dijo él muy bajo—. El sonido de adelante es extraño.
+En medio de todo aquello, el último androide no rompió el frente. Solo entraba hacia las unidades detenidas y volvía. Cada vez que entraba, la fila de la Legión de Serakion se partía un poco, y cada vez que volvía, el eje del hombro hacía ruido. El sitio al que volvía era siempre el mismo, uno desde donde se veía a Han Jiwoo. Cada vez que volvía, ella le decía:
 
-Entre los sonidos de metal
-se mezcló el sonido de un pie humano resbalando aprisa.
+—Aquí.
 
-Era tan débil que podría perderse,
-pero en este campo, justo por eso, resaltaba más.
+Se plantaba ahí, y ni una sola vez se plantó en otro sitio.
 
-Y al momento siguiente,
-de la oscuridad de la junta del estrato alto de la derecha
-apareció un hombre casi cayéndose.
+Han Jiwoo estaba en el mismo eje.
 
-Era el hombre que habían rescatado unos días atrás.
+No se movía pegada al androide; desde detrás de la cobertura, un paso más atrás, escuchaba a la vez el ruido que hacía el eje de su hombro y los pasos de las unidades enemigas. Hacía rato que los dedos con que agarraba la esquina del panel de la pared se le habían puesto blancos.
 
-Hasta el sitio de donde salió estaba mal, a la manera de Serakion.
-La pared del pasillo estaba demasiado limpia,
-y el hueco abierto en esa superficie limpia estaba abierto con la precisión justa para que un solo hombre reptara hacia afuera.
+Cuando ella lanzaba una señal baja y corta, el androide reaccionaba brevísimo. Por esa sola reacción, la primera fila de la Legión de Serakion se retrasaba un compás cada vez.
 
-Como si no hubieran dejado escapar a alguien,
-sino como un camino abierto para empujarlo a este instante y a este sitio exactos.
+Los dos hombres de Hazran sostenían de pie, detrás de ella, el panel de la pared. Les temblaban los brazos, pero no lo bajaban.
 
-La cara estaba blanca de terror,
-el aliento estaba a punto de cortarse de tan áspero,
-y los ojos temblaban sin saber a dónde miraban.
+—Cámbienlo de brazo.
 
-Al ver a la gente, tendió las manos hacia adelante como si fuera a derrumbarse.
+Lo dijo Han Jiwoo sin volverse.
+
+—Estoy bien.
+
+Lo dijo el hombre sin hermano menor.
+
+—No lo estás. Cámbienlo.
+
+Cuando los dos pasaron el panel de la pared al brazo izquierdo, el temblor se mudó también a ese lado.
+
+Ater fue el primero en levantar la mano.
+
+—Deténganse.
+
+Lo dijo muy bajo.
+
+—El sonido de delante es extraño.
+
+—¿El qué?
+
+Lo preguntó Seorin.
+
+—Es un sonido de persona.
+
+Lo dijo Ater.
+
+—Entre las máquinas.
+
+Entre los sonidos metálicos se mezcló el de unos pies humanos que resbalaban con prisa. Resbalaron una vez, chocaron contra la pared, volvieron a resbalar. Después se oyó una respiración humana, corta y áspera.
+
+Las cabezas de las dos máquinas viejas se volvieron a la vez hacia allí. Sern levantó la vista del panel de registro, y Seorin detuvo el paso.
+
+De la oscuridad de la conexión del estrato superior de la derecha apareció alguien, casi cayéndose.
+
+Era aquel hombre que había desaparecido hacía unos días del sitio del lado de la pared.
+
+Llevaba la misma ropa que tenía puesta unos días antes, cuando estaba apoyado en la pared. Los desgarrones seguían en su sitio, y no había ninguno nuevo.
+
+La pared del pasillo por donde había salido era lisa. La brecha abierta en esa superficie limpia estaba abierta justo lo suficiente para que una persona saliera arrastrándose. Los bordes de la brecha eran rectos. No era un sitio roto. Era un sitio abierto.
+
+Sern miró esos bordes rectos y luego el punto del panel de registro. El sitio donde estaba el hombre quedaba a dos pasos del punto.
+
+Tenía la cara blanquísima, la respiración áspera como si fuera a cortarse, y los ojos recorrían a la gente sin poder detenerse en nadie. Cuando se le doblaron las rodillas, apoyó una mano en el suelo y tendió la otra hacia delante.
 
 —¡Ayúdenme…!
 
-Aquella voz estaba quebrada.
-Estaba tan urgente que ni siquiera sonaba a actuación.
-Al contrario, por ser real, era más ominosa.
+Tenía la voz quebrada.
 
 —¡Por ahí no…! Hay otro camino, no ese… rápido…
 
-Esas palabras apuntaban exactamente
-a la dirección que podía torcer el eje que Seorin había visto más inestable.
+La mano tendida señalaba el eje que Seorin había considerado el más inestable. El sitio donde habían marcado el punto en el suelo, donde ahora estaban Han Jiwoo y el androide.
 
-A Sion se le enfrió la espalda.
+Sion miró la punta de aquellos dedos y luego la cara del hombre. Era la misma cara de unos días antes, cuando estaba pegado a la pared y solo respiraba. Entonces nadie la había mirado mucho rato; ahora la miraban todos.
 
-Era demasiado perfecto.
-Era un timing ni demasiado tarde ni demasiado temprano.
-Y, sobre todo,
-era una cara demasiado fácil de querer creer.
+Uno de los hombres de Hazran bajó el panel de la pared.
 
-Aquella no era la cara de un traidor que sonríe.
-Era la cara de una persona que había sobrevivido rota.
+—Ese hombre…
 
-Por eso era más peligroso.
+El de al lado le agarró el brazo, y el panel de la pared volvió a subir.
 
-La expresión de Han Jiwoo fue la primera en temblar.
+—¿Lo conoces?
 
-Ella sin duda recordaba a ese hombre.
-La persona que se pegaba a la pared respirando en silencio,
-la persona que seguía medio ida incluso después del rescate.
+Lo preguntó Han Jiwoo sin volverse.
 
-Así que ahora no podía empujar esa cara como pura mentira.
+—No.
 
-—Espera… —dijo ella casi por reflejo.
+Lo dijo el hombre.
 
-Pero Seorin no se movió enseguida.
+—Pero es una persona.
 
-Ella, sin siquiera mirar al hombre,
-leía primero las líneas de movimiento y las reacciones.
+Han Jiwoo no respondió.
 
-Eso, a Sion, le pareció más aterrador.
+Su cuerpo se movió primero.
 
-Seorin, antes de si aquel hombre daba lástima o no,
-miraba primero para qué punto de este campo había sido colocada esa aparición.
+Un paso.
+
+—Espera…
+
+Lo dijo ella. Al bajar la vista, vio que su pie había salido de la cobertura, pero no lo volvió a meter. La mano con que había agarrado la esquina del panel de la pared se había apartado de la pared.
+
+El ojo óptico del último androide fue al pie de ella, el que había salido de la cobertura. Luego al hombre, luego otra vez al pie. Avanzó medio paso delante de ella. Sin cortarle el paso, se puso delante.
+
+Seorin no miró al hombre. Miró la brecha de la que había salido y la oscuridad de más allá, y luego, uno a uno, los sitios donde estaban sus grupos. El eje izquierdo, el de arriba, Han Jiwoo y el androide, el suelo bajo sus propios pies. Solo entonces miró al hombre. Fue a quien menos tiempo miró.
+
+—¿Por qué miras tan poco al hombre?
+
+Lo preguntó Luhai desde lejos.
+
+—El hombre está ahí. No se mueve. Lo que se mueve está detrás.
 
 El hombre, casi sollozando, volvió a hablar.
 
-—¡Vengan rápido…! ¡Por aquí no los ven…! Desde arriba… ¡desde arriba lo vieron todo…!
+—¡Vengan rápido…! ¡Por aquí no los descubren…! Desde arriba… ¡desde arriba lo vi todo…!
 
-Esas palabras eran tan desesperadas
-que Sion, por un momento, de verdad tambaleó.
+A lo lejos, en el eje derecho, Luhai reajustó la barra de hierro en la mano. No se movió de su sitio.
 
-¿Y si aquello era real?
-¿Y si de verdad había otro camino?
-¿Y si de verdad llevábamos demasiado tiempo al frente?
+—No vayas.
 
-Lo más espantoso de Serakion fue siempre esto.
+Se lo gritó Luhai a Han Jiwoo.
 
-No que la mentira sea verosímil.
-Sino que impide hasta el final descartar la posibilidad de que sea verdad.
+—Yo también quiero ir. No vayas.
 
-Y Serakion era, de esa manera, el mundo más malo.
-En vez de romper a la gente de golpe,
-hacía tambalear primero el juicio,
-y convertía la ética misma de que hay que ayudar en el umbral de la trampa.
+Una de las máquinas viejas dio un paso adelante y se detuvo. No es que la máquina de al lado le hubiera agarrado el brazo: se detuvo por sí misma. Uno de los hombres de Hazran intentó ir hacia allí y el de al lado le agarró el brazo; el brazo sujeto intentó soltarse una vez y desistió.
 
-El ojo óptico del último androide se agitó muy breve.
+También el pie de Sion se movió una vez, y solo después de moverlo se dio cuenta y lo retiró. Le sudaba la mano con que agarraba la empuñadura, y Sern lo vio así.
 
-Él también miraba hacia allá.
-La mano temblorosa del hombre,
-la voz quebrada,
-y la oscuridad detrás de eso.
+—¿Ha retirado el pie?
 
-Y en ese instante,
-Sion vio algo raro.
+—Lo retiré.
 
-La sensación de que el último androide no miraba al hombre,
-sino que miraba más largo el compás de la oscuridad detrás del hombre.
+—¿Por qué lo ha retirado?
 
-Como si detectara primero que el verdadero peligro
-estaba en el flujo que rodeaba a esa persona más que en la persona misma.
+—No lo sé.
 
-Sern murmuró bajo.
+Lo dijo Sion.
+
+—Quería ir. Pero Seorin no fue.
+
+Sern miró el panel de registro, pero no anotó nada.
+
+El ojo óptico del último androide tembló muy brevemente.
+
+El androide también miraba hacia allí. El ojo óptico, que miraba la mano temblorosa del hombre, pasó más allá del hombre y se detuvo en la brecha a su espalda, y se detuvo todavía más en la oscuridad del otro lado de la brecha. No volvió al hombre.
+
+Al verlo, Han Jiwoo miró al hombre y luego volvió a mirar hacia donde apuntaba el ojo óptico del androide, pero allí solo había oscuridad. A sus ojos no se veía nada.
+
+—¿Qué hay?
+
+Se lo preguntó al androide.
+
+No respondió. El ojo óptico seguía vuelto hacia la oscuridad. Aunque ella volvió a mirar aquella oscuridad, no había nada. Aun así, sin apartar la vista de hacia donde apuntaba el ojo óptico, volvió a agarrar la esquina del panel de la pared.
+
+Sern murmuró en voz baja.
 
 —Es demasiado exacto.
 
-Aquellas palabras no apuntaban directamente a nadie,
-pero también querían decir que todos en la sala pensaban lo mismo.
+—¿El qué?
 
-Es demasiado exacto.
-En el momento demasiado necesario,
-con las palabras demasiado necesarias,
-sacudiendo el hueco demasiado necesario.
+—Es el sitio que ha señalado.
 
-Pero, aun así, tampoco podían desechar de inmediato a ese hombre.
+Lo dijo Sern.
 
-Eso era lo que más dolía a Han Jiwoo.
+—Es el eje que nosotros considerábamos el más débil. ¿Cómo lo sabe ese hombre?
 
-Ella sin duda sabía que esto era raro.
-Pero, a la vez,
-también sabía que ese hombre podría ser de verdad solo una víctima usada.
+Seorin no respondió.
 
-Y por ser una persona que lo sabía,
-no podía enfriarse tan fácil.
+Sern no estaba mirando el panel de registro. Mientras miraba entre el eje que había señalado el hombre y los sitios donde estaban ellos, tenía el dedo puesto sobre el punto del panel de registro.
 
-—Está pidiendo ayuda —dijo ella muy bajo.
+Han Jiwoo lo dijo muy bajo.
 
-Aquello, más que un argumento,
-sonaba como algo que se decía a sí misma.
+—Está pidiendo ayuda.
 
-Seorin solo entonces respondió corto.
+Lo dijo sin mirar a Seorin, mirando al hombre. Cuando soltó la esquina del panel de la pared que tenía agarrada, la mano suelta fue a dar al costado, donde estaba el bolsillo interior.
 
-—Lo sé. Por eso hay que tener más cuidado.
+Seorin respondió corto.
 
-Aquellas palabras no eran frías.
-Al contrario, por ser tan exactas, sonaban crueles.
+—Lo sé. Por eso voy con más cuidado.
 
-El hombre dio un paso más tambaleando y avanzó.
+La mano de Seorin estaba en la empuñadura de la hoja, a la cintura. No la desenvainó. Han Jiwoo miró esa mano.
+
+El hombre avanzó un paso más, tambaleándose. Despegó la mano que tenía apoyada, tendió las dos y empujó el suelo con las rodillas. Donde empujó no quedó ninguna marca. Era el suelo de Serakion.
 
 —Por favor… No puedo ir solo…
 
-Justo entonces,
-en la oscuridad detrás de él, un enganche de metal
-tan mínimo que un humano casi no lo oiría, sonó una vez.
+Detrás, en la oscuridad, sonó un encaje de metal.
 
-El sonido de un cierre cortés que se reajusta.
-El sonido de la reorganización del pasillo cerrando la última casilla.
-El sonido de la trampa completándose en torno a una persona.
+Era un sonido difícil de oír para una persona. Las cabezas de las dos máquinas viejas se volvieron a la vez hacia allí, y el cuerpo del último androide giró.
 
-Pero el último androide, en ese instante,
-torció el cuerpo casi al momento.
+El lado del hombro torcido quedó delante. No hacia el hombre, sino entre la brecha a espaldas del hombre y los suyos.
+Dio un paso. El hombro hizo ruido.
+Se plantó en ese sitio.
 
-Era una reacción de otra clase que la del combate frontal.
-No la de bloquear al que embiste,
-sino un movimiento como si hubiera leído que «la trampa tendida detrás de esa persona está por cerrarse».
+Han Jiwoo miró esa espalda. Miró las dos manos tendidas del hombre y volvió a mirar esa espalda. Su pie volvió medio paso hacia la cobertura. Solo medio paso.
 
-Sion, al ver eso, sintió que se le cortaba el aliento.
+Ater, con la vista en lo alto, levantó un dedo.
+Levantó dos.
+El tercer dedo empezó a subir y se detuvo.
 
-Serakion de verdad estaba aprendiendo.
+Sern cerró el panel de registro y se lo metió bajo el brazo. Se le quedaron las dos manos libres.
 
-Ahora ya no solo empujaba a la legión,
-sino que usaba hasta el miedo y la confusión de un humano rescatado
-para intentar torcer el eje más inestable del plan de Seorin.
+Seorin apartó la mano de la empuñadura y la levantó. Era una mano con la palma hacia atrás, una mano que decía que esperaran.
 
-Y justo en ese sitio,
-la segunda batalla se ahondaba de simple combate
-a una lucha que ponía a prueba el juicio mismo.
+Todos miraron esa mano. Han Jiwoo, Luhai, las dos máquinas viejas. El panel de la pared de los dos hombres de Hazran seguía en su sitio, y nadie salió. El hombre lloraba con las dos manos tendidas.
+
+Las manos del hombre seguían tendidas. Las puntas de los dedos temblorosos no tenían tierra. Estaban limpias. Unos días antes, las manos que se apoyaban en la pared estaban cubiertas de tierra.
+
+Han Jiwoo miró esas puntas de dedos limpias y luego las suyas, con restos de grasa y marcas de la esquina del panel de la pared. Sin bajar la mano, volvió a agarrar la esquina del panel. El pie que había vuelto medio paso no volvió más.
 
 ---
 

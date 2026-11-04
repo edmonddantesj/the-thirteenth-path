@@ -28,9 +28,9 @@ Sion comprit ce que cela voulait dire.
 
 Jusqu'ici, il avait suffi qu'Ater dise où frapper. Désormais, même après l'avoir entendu, il ne fallait pas être en retard. Savoir et agir à temps venaient de se séparer.
 
-Cet écart, Sion l'avait déjà vu une fois ce matin. Devant la réserve, quand la file qui se passait les outres d'eau s'était arrêtée : tout le monde savait qu'il fallait s'arrêter, mais une main avait eu un temps de retard, et une outre avait roulé.
+Cet écart, Sion l'avait déjà vu une fois hier. Devant la réserve, quand la file qui se passait les outres d'eau s'était arrêtée : tout le monde savait qu'il fallait s'arrêter, mais une main avait eu un temps de retard, et une outre avait roulé.
 
-Ce matin, c'était une outre.
+Cette fois-là, c'était une outre.
 
 Ici, avec un temps de retard, ce qui roulerait ne serait pas une outre.
 
@@ -78,7 +78,7 @@ Le cri venait d'Ater.
 
 En l'entendant, Sion sentit sa gorge se serrer.
 
-Tout à l'heure, Ater n'avait dit que le nom. “Sern.” Cela suffisait. Aujourd'hui, il avait crié, et s'il avait fallu crier, c'est qu'il était déjà tard.
+Tout à l'heure, Ater n'avait dit que le nom. “Sern.” Cela suffisait. Cette fois, il avait crié, et s'il avait fallu crier, c'est qu'il était déjà tard.
 
 Sern se dégagea.
 
@@ -203,8 +203,6 @@ Ater l'avait dit : une fois qu'on s'en est servi, la deuxième fois, ça prend m
 Nassim, tirant le blessé vers lui, cracha un juron à voix basse.
 
 « Ça n'a plus rien d'un marché, c'est de la vraie folie. »
-
-Les mots étaient venus tard. Venus tard, ils sonnaient plus sincères.
 
 Sion regarda le couloir.
 

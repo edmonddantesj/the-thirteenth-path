@@ -10,7 +10,7 @@ La coque s'enfonça plus profondément sous l'ombre des débris. Les intervalles
 Elle le marmonnait, les dents serrées.
 « Ce serait trop bête de crever maintenant. »
 
-À qui elle parlait, c'était difficile à dire. Au vaisseau, au moteur, à elle-même. Mais, étrangement, les trois semblaient justes.
+À qui elle parlait, c'était difficile à dire. Au vaisseau, au moteur, à elle-même.
 
 Sern dit, en parcourant le panneau du regard :
 
@@ -56,8 +56,6 @@ Seorin demanda :
 Han Jiwoo ne répondit pas tout de suite. Elle tira encore une fois sur le manche, et alors seulement elle dit à voix basse :
 
 « Impossible de descendre sans casse. »
-
-Cette seule phrase suffit.
 
 Cette fois, personne ne demanda « on peut tenir ? ». La question n'aurait rien changé à leur état. Il ne restait plus qu'à se planter vivants, d'une manière ou d'une autre.
 
@@ -231,7 +229,7 @@ Ater se redressa en s'appuyant sur son genou et dit :
 
 Kael, avant de répondre, vérifia le fragment. Il était encore contre lui. Alors seulement, il laissa échapper un souffle très bref.
 
-Sion, lui aussi, lâcha la poignée et se redressa lentement. Il ne glissa pas la main dans sa veste. Pas besoin d'y toucher : il savait où c'était.
+Sion, lui aussi, lâcha la poignée et se redressa lentement. Il ne glissa pas la main dans sa veste. Pas besoin d'y toucher : il savait où était le billet.
 
 **Hazran**
 **Aka**
@@ -267,10 +265,6 @@ Au-delà des épaves à demi ensevelies, le sable, la chaleur et l'éclat de mé
 Elia n'avait laissé qu'un nom et un mot.
 Han Jiwoo avait dit qu'il fallait de l'éthérite.
 Et quelque part dans ce désert, il y avait Aka.
-
-Avoir survécu ne voulait pas dire que c'était fini.
-
-Le vrai commencement, c'était maintenant.
 
 ---
 

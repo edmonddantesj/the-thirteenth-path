@@ -1,6 +1,6 @@
 # Episode 99. The Moment Before Something Finally Breaks
 
-Next to the short mark on the board, Sion scratched a fifth notch.
+Sion looked at the short mark scratched on the board.
 
 That made an hour.
 

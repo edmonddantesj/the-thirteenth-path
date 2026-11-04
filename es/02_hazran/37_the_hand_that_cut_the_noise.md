@@ -110,7 +110,7 @@ Kael lo dijo con calma.
 
 Al final de esas palabras, Harún, por primera vez, volvió a mirar a su alrededor.
 
-La gente de pie fuera del callejón, los oídos que hacían como que no veían pero lo oían todo, el comerciante que hasta hacía nada gritaba que era de verdad, los ojos de la capa exterior que recordarían quién había puesto la mano donde no debía. Era la cara de alguien que podía no darle importancia a la gente de la capa exterior, pero que sabía que un alboroto tan extendido no se podía cortar sin dejar rastro.
+La gente de pie fuera del callejón, los oídos que hacían como que no veían pero lo oían todo, el comerciante que hasta hacía nada gritaba que era suyo, los ojos de la capa exterior que recordarían quién había puesto la mano donde no debía. Era la cara de alguien que podía no darle importancia a la gente de la capa exterior, pero que sabía que un alboroto tan extendido no se podía cortar sin dejar rastro.
 
 Nasim se metió con suavidad.
 
@@ -160,7 +160,7 @@ Esta vez Harún no miró a Luhai, sino hacia Sion.
 
 —¿Ustedes también vinieron a ver eso?
 
-Sion no vaciló ni un momento.
+Sion no vaciló.
 
 —Necesitamos eterita.
 Lo dijo él.
@@ -185,8 +185,6 @@ Al oír eso, Harún entornó los ojos de forma muy leve.
 
 —Por eso es todavía más tarde.
 Lo dijo él.
-
-Sion sintió que esa frase le entraba con más precisión que la sensación que le había rozado un momento antes al fondo del callejón. Que fuera tarde no se debía a que hubiera pasado el tiempo. Se acercaba más a querer decir que ya habían tocado demasiadas cosas a la vez. La eterita, Aka, Luhai y, encima, ese alboroto estallado en plena capa exterior del mercado. Ya no era algo que pudiera reducirse al problema de cuatro forasteros y un ratero.
 
 Nasim cerró la conclusión con mucha suavidad.
 
@@ -226,8 +224,6 @@ Seorin se movió antes que Sion.
 Lo dijo en voz baja.
 —De todos modos, por más que preguntemos aquí, todo se va a filtrar afuera.
 
-Sion también sintió que tenía razón.
-
 Un fragmento verdadero de eterita,
 un nombre llamado Aka,
 una mano de boca rápida llamada Luhai.
@@ -246,7 +242,7 @@ Y en algún lugar de ese interior estaría también Aka.
 
 Sion repasó todo aquel día.
 
-En esa ciudad no había nadie que hubiera dicho ese nombre en voz alta.
+En esa ciudad, los únicos que habían dicho ese nombre en voz alta eran dos niños.
 
 En la capa exterior le habían tapado la boca a una criatura. Harún, aun sabiéndolo, solo había dicho «ese nombre», y Nasim ni siquiera lo había sacado.
 
@@ -257,10 +253,6 @@ Si un nombre no se conoce, se puede preguntar. Un nombre que todos conocen y nad
 Sion contó cuántas veces había dicho él ese nombre en la capa exterior.
 
 Dos.
-
-Ese nombre no era de los que se acaban con encontrarlos.
-
-Era de los que, si los buscas mal, te tragan tal cual.
 
 ---
 

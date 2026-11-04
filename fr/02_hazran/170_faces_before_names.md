@@ -1,272 +1,229 @@
 # Chapitre 170 — Des visages avant les noms
 
-Le secteur où se trouvaient les androïdes était toujours silencieux.
+Le secteur où se trouvaient les androïdes restait silencieux. Ce n'était pas le même silence que quelques jours plus tôt.
 
-Mais ce n'était plus le même silence que quelques jours plus tôt.
+Désormais, parmi ceux qui passaient devant, certains ne parvenaient pas à détourner la tête. Leurs pas se pressaient, mais leurs yeux restaient au fond du secteur, et ce n'est qu'après avoir dépassé l'entrée que leur tête revenait vers l'avant.
 
-Désormais, parmi ceux qui passaient devant,
-certains ne parvenaient plus à détourner complètement la tête.
+C'était le cas des enfants. Au début, c'étaient eux qui se cachaient le plus loin, mais en quelques jours, leurs cachettes s'étaient peu à peu rapprochées. D'abord derrière l'angle du couloir, ensuite derrière un pilier, et ce jour-là, le plus souvent, à l'entrée du secteur.
 
-Même en voulant ne pas regarder,
-un regard qui a déjà vu une fois
-ne revient plus aussi facilement vers l'ignorance totale.
+Ce jour-là encore, deux enfants rôdaient à distance, à l'entrée du secteur. L'un se tenait derrière Han Jiwoo, presque à s'y cacher ; l'autre avait fait un demi-pas de plus en avant.
 
-Les enfants, surtout, étaient ainsi.
-
-Au début, c'étaient eux qui s'étaient cachés le plus loin.
-Mais la peur ne reste pas toujours au même endroit.
-
-Quand on a peur, on fuit ;
-quand on a un peu moins peur, on regarde de nouveau ;
-et si l'on a encore peur,
-on finit parfois par regarder longtemps depuis loin.
-
-Ce jour-là aussi, deux enfants rôdaient à distance à l'entrée du secteur.
-
-L'un se tenait presque caché derrière Han Jiwoo,
-et l'autre était sorti d'un demi-pas devant lui.
-
-Tous deux ne disaient rien.
-Mais leurs yeux ne cessaient d'aller vers les androïdes.
+Aucun des deux ne disait rien, mais leurs yeux restaient tournés vers les androïdes.
 
 Sans se retourner, Han Jiwoo dit très bas :
 
 « Ça fait peur, hein. »
 
-Un enfant hocha faiblement la tête.
+Un des enfants hocha doucement la tête.
 
 « Oui. »
 
-Un peu plus tard,
-l'autre demanda encore plus bas :
+« Moi aussi. »
 
-« Mais…
-pourquoi j'ai toujours envie de regarder là-bas ? »
+C'était Han Jiwoo.
 
-Han Jiwoo ne put pas répondre aussitôt.
+L'enfant leva les yeux vers elle.
 
-Pour une question d'enfant,
-elle était étrangement trop juste.
+« C'est vrai ? »
 
-On a peur.
-Mais on regarde.
-On veut fuir,
-mais les yeux reviennent.
+« C'est vrai. C'est pour ça que je regarde. »
 
-C'était exactement l'ensemble des émotions
-qui entouraient désormais ce secteur.
+Un instant plus tard, l'autre enfant demanda, plus bas encore :
 
-Ce ne fut qu'après un long moment que Han Jiwoo répondit :
+« Mais… pourquoi on a tout le temps envie de regarder par là ? »
 
-« Les choses qu'on ne connaît pas encore entièrement
-font souvent se retourner les gens. »
+Han Jiwoo ne sut pas répondre tout de suite et baissa les yeux sur ses mains. À chaque articulation de ses doigts, il y avait des cicatrices laissées par les machines qu'elle avait touchées. Elle serra cette main une fois, la rouvrit, et ce ne fut que longtemps après qu'elle parla.
 
-Les enfants n'eurent pas l'air de comprendre tout à fait.
-Mais, étrangement,
-ils s'approchèrent un peu plus.
+« Les choses qu'on ne comprend pas encore entièrement, elles font qu'on se retourne sans arrêt. »
 
-Seorin regardait cela de loin, mais ne les arrêta pas.
-Luhai non plus ne les retint pas cette fois.
+Les enfants ne semblaient pas avoir tout compris, mais s'approchèrent quand même un peu plus. L'enfant de derrière serrait toujours un pan des vêtements de Han Jiwoo ; l'enfant de devant avait la main libre.
 
-Une ancienne machine, près du mur,
-observait la scène sans bouger.
+Seorin voyait cela de loin, mais n'intervint pas. Adossée au mur, elle ne décroisa pas les bras. Luhai non plus, cette fois, ne fut pas le premier à les retenir ; il ouvrit la bouche une fois, puis la referma.
 
-L'enfant qui s'était avancé d'un demi-pas
-hésita longtemps, puis secoua la poussière sèche qui couvrait sa main.
+« On ne devrait pas les arrêter ? »
 
-Et, très lentement,
-il alla non pas jusqu'à un androïde,
-mais jusqu'à un point juste avant lui.
+Luhai posa la question à Seorin, à voix basse.
 
-Tous regardèrent ce mouvement.
-Mais personne ne l'interrompit.
+« Pour quoi faire ? Pendant des jours, rien ne s'est passé. On a juste vu un enfant s'approcher. »
 
-Il restait sur la main de l'enfant
-un peu de poussière prise dans la fente du mur un instant plus tôt.
+« On ne sait pas ce qui se passe, une fois tout près. »
 
-L'enfant se retourna une fois.
-Comme pour vérifier si quelqu'un allait l'arrêter.
+« C'est pour ça qu'on regarde. »
 
-Mais personne ne parla.
+Luhai croisa les bras comme Seorin, et ne les décroisa plus.
 
-Alors l'enfant tourna de nouveau la tête
-et leva la main avec une extrême prudence.
+Du côté du mur, une vieille machine observait la scène sans bouger. Une main du dehors vint se poster près de l'entrée, les mains baissées, et Han Jiwoo la regarda.
 
-Sa main toucha la surface lisse du visage de l'androïde.
+« Tu ne donnes pas d'ordres, aujourd'hui ? »
+
+« Non. Puisque nous avons décidé de regarder. »
+
+L'enfant de devant, après avoir longtemps hésité, frotta contre son pantalon la poussière sèche de ses mains, puis frotta encore une fois ; alors seulement, très lentement, l'enfant se mit en marche. Pas jusque devant un androïde, mais jusqu'à la distance d'un bras tendu.
+
+Dix pas, trois respirations.
+
+Tous virent ce mouvement, mais personne ne l'interrompit. Le pied de Luhai avança d'un demi-pas, puis revint quand Aka lui attrapa le bras.
+
+« Et si ça s'écroule ? »
+
+Il parlait très bas.
+
+« Ça ne s'écroulera pas. Ça tient debout. Depuis des jours. »
+
+Sur la main de l'enfant restait la poussière de terre ramassée tout à l'heure en tâtant une fissure du mur. Même frottée, elle était restée entre les doigts.
+
+L'enfant se retourna une fois. Regarda Han Jiwoo, regarda Seorin, regarda Luhai. Personne ne dit rien.
+
+Alors l'enfant tourna de nouveau la tête et, avec beaucoup de précaution, leva la main.
+
+La main toucha la surface lisse du visage de l'androïde. Au moment du contact, les épaules de l'enfant se contractèrent une fois, mais la main ne se retira pas.
 
 Tous retinrent leur souffle.
 
-Sur cette surface,
-l'enfant dessina un œil rond avec son doigt couvert de poussière.
+Sur cette surface, d'un doigt couvert de terre, l'enfant dessina un œil rond. Puis un autre, de l'autre côté. Le second œil était un peu plus petit que le premier. Après un bref arrêt, cette fois, une bouche courte.
 
-Puis un second de l'autre côté.
+Un visage beaucoup trop simple. Un visage de dessin d'enfant, maladroit, qui s'effacerait vite.
 
-Il s'arrêta un instant,
-puis dessina cette fois une courte bouche.
+Personne ne rit. Luhai rabaissa la main qu'il portait vers sa bouche.
 
-C'était un visage très simple.
-Un visage d'enfant,
-maladroit et vite effaçable.
+Quand l'enfant retira la main, la poussière de terre resta faiblement sur la surface du visage. L'enfant regarda une fois son doigt.
 
-Mais à cet instant,
-personne, dans cette pièce, ne put rire.
+L'androïde ne bougea pas. Pas un mot.
 
-C'était trop silencieux pour être drôle,
-et trop étrangement vaste pour être traité à la légère.
+Quelques secondes plus tard, quelque part sous la surface lisse, une lueur très pâle passa une fois.
 
-Quand l'enfant retira sa main,
-la poussière resta faiblement sur la surface du visage.
+Han Jiwoo fut la première à inspirer brusquement. Sern leva les yeux, et Ater décolla son dos du mur.
 
-L'androïde ne bougea pas.
-Ne dit rien.
-
-Mais quelques secondes plus tard,
-quelque part sous la surface lisse,
-une lumière très pâle passa une fois.
-
-Han Jiwoo retint son souffle la première.
-Sern releva les yeux,
-et Ater quitta le mur.
-
-La lumière sembla disparaître,
-puis revint très faiblement à l'endroit que l'enfant venait de dessiner.
+Cette lueur sembla s'éteindre, puis réapparut en traits très ténus, à l'endroit même que l'enfant venait de dessiner.
 
 Deux yeux.
-Une courte bouche.
+Une bouche courte.
 
-Cette fois, ce n'était pas de la poussière,
-mais une ligne numérique à peine visible, venue de l'intérieur de la surface.
+Cette fois, non pas en terre, mais en traits numériques à peine visibles, depuis l'intérieur de la surface. Le second œil, exactement comme dans la terre, était un peu plus petit que le premier.
 
-L'enfant se figea.
-L'autre, derrière lui, agrippa très fort le pan du vêtement de Han Jiwoo.
+L'enfant se figea sur place. L'autre enfant, derrière, agrippa fort le pan des vêtements de Han Jiwoo.
 
-Luhai dit presque dans un souffle :
+Luhai parla, presque dans un souffle.
 
 « Vous avez vu. »
 
-Personne ne répondit.
+Personne ne répondit. La main de Sern se mit à bouger sur le panneau d'enregistrement, écrivit une ligne et s'arrêta. Il regarda la ligne écrite et n'écrivit plus rien.
 
-Avant les réponses,
-l'air entier de la pièce était déjà en train de changer.
+L'androïde restait silencieux.
 
-L'androïde restait muet.
-Mais un peu plus tard,
-comme s'il vérifiait son propre visage,
-il inclina très lentement la tête sur le côté.
+Un peu plus tard, l'androïde inclina très lentement la tête de côté. Puis de l'autre côté. Là où la tête s'arrêta une fois, toujours inclinée, c'était du côté où son propre visage se reflétait dans une plaque de métal.
 
-Puis de l'autre côté.
+L'enfant murmura très bas :
 
-Ce mouvement, qui au début aurait pu sembler une simple erreur,
-était clairement différent cette fois.
+« Ça a un visage, maintenant. »
 
-Ce n'était pas une vérification de fonction,
-mais un geste proche de quelqu'un qui tâtonne maladroitement
-autour de son premier visage.
+« C'est toi qui l'as fait. »
 
-L'enfant murmura tout bas :
+C'était Luhai.
 
-« Il a un visage. »
+« Non. Moi, je l'ai dessiné. Le visage, c'est ça qui l'a fait venir. »
 
-C'était une exclamation enfantine,
-mais personne dans la pièce ne l'entendit à la légère.
+Luhai se tut.
 
-En regardant cela,
-Han Jiwoo sentit quelque chose s'effondrer très lentement dans sa poitrine.
+Han Jiwoo fit un pas. Sa main se leva la première vers le visage de l'androïde, jusque tout près des traits dessinés par l'enfant. Arrêtée à une phalange, la main resta longtemps sans toucher, puis redescendit.
 
-Cela ne ressemblait à aucune réaction des machines qu'elle avait réparées jusqu'ici.
-Ce n'était pas une panne,
-ni une simple réponse,
-ni l'exécution d'un ordre.
+« Pourquoi tu ne touches pas ? »
 
-C'était au contraire si étranger
-que cela semblait enfin approcher un mot.
+L'enfant posa la question.
 
-Du côté du vivant.
+« Parce que c'est à toi. C'est toi qui l'as dessiné. Ma main, pas encore. »
 
-Elle ne pouvait pas encore le dire à voix haute.
-Mais, sans ce mot, tous les autres s'éloignaient.
+L'enfant regarda son doigt, puis de nouveau l'androïde.
 
-Une ancienne machine s'avança très lentement.
+Une vieille machine s'avança très lentement. Cette fois, elle ne s'arrêta pas. Juste assez pour ne pas trop se rapprocher de l'androïde et de l'enfant, elle se plaça exactement à un pas sur le côté.
 
-Cette fois, elle ne s'arrêta pas.
-Elle se plaça seulement un pas sur le côté,
-de façon à empêcher l'androïde et l'enfant de se retrouver trop près.
+Puis elle regarda ce visage un long moment. Son œil optique trembla très légèrement, se posa une fois sur l'enfant, puis revint au visage.
 
-Puis elle contempla ce visage pendant un long moment.
+« C'est un visage que vous connaissez ? »
 
-Son œil optique vacilla très légèrement.
+Sion posa la question.
 
-Cette réaction ressemblait à de la vigilance,
-à de la stupeur,
-et peut-être aussi à celle d'un être qui revoit quelque chose perdu depuis trop longtemps.
+« Je ne sais pas. Il n'y a que trois traits, et pourtant je sais. De quel côté sont les yeux. »
 
-Sern dit presque dans un souffle :
+Sion regarda les deux yeux, la bouche, ces trois traits. Lui aussi le savait.
 
-« Je vais l'enregistrer. »
+Sern parla presque dans un souffle.
+
+« Je le consigne. »
+
+« Tu écris quoi ? »
+
+Seorin posa la question.
+
+« Trois traits. Ils ont suivi. »
+
+Sern répondit.
+
+« Je n'écris rien de plus. Pas encore. »
 
 Ater ajouta très bas :
 
-« Ce n'est pas une réaction de surface. »
-« C'est venu de l'intérieur. »
+« Ce n'est pas une réaction de surface. Cela a suivi depuis l'intérieur. »
 
-Luhai avait encore le visage de quelqu'un qui n'arrivait pas à y croire.
+Luhai avait encore l'air de ne pas y croire.
 
-« Ce que le gamin a dessiné…
-il le reproduit ? »
+« Ce que l'enfant a dessiné… ce truc-là l'a imité ? »
 
-« Peut-être qu'il ne le reproduit pas. »
-dit Han Jiwoo à voix basse.
-« Peut-être qu'il l'a reçu pour la première fois. »
+« Ce n'était peut-être pas de l'imitation. »
 
-Après ces mots,
-Seorin s'avança lentement pour la première fois.
+Han Jiwoo parla bas. Sa main baissée était encore à moitié fermée.
 
-Elle regarda d'abord l'enfant,
-puis l'androïde qui avait désormais un visage.
+« C'est peut-être la première fois que ça accepte quelque chose. »
 
-Et elle dit très calmement :
+« C'est quoi, accepter ? »
 
-« Maintenant, on ne peut plus les regarder comme avant. »
+Luhai posa la question.
 
-Personne ne put contredire ces mots.
+Han Jiwoo ouvrit sa main couverte de cicatrices.
 
-Ils l'avaient déjà vu.
-Le moment où ceux-là recevaient quelque chose.
-Et le fait que cette réception
-pouvait être une réponse née de l'intérieur avant l'ordre.
+« Une machine qui ne repousse pas la main qui la répare. Il y a des machines qui repoussent. Là, ça n'a pas repoussé. Maintenant. »
 
-L'enfant demanda de nouveau, avec une grande prudence :
+Luhai regarda la main de l'androïde : collée au flanc, elle ne bougeait pas.
 
-« Alors…
-il est de notre côté, maintenant ? »
+Après ces mots, Seorin s'approcha lentement. Elle décolla son dos du mur, décroisa les bras, et vint jusqu'à côté de l'enfant.
 
-La question venait trop vite.
-Elle était trop difficile,
-et personne ne pouvait y répondre facilement.
+Elle regarda d'abord l'enfant, puis l'androïde qui avait reçu un visage. Après avoir regardé un à un les trois traits du visage, elle dit très doucement :
 
-Mais cette fois, Han Jiwoo ne se contenta pas de silence.
+« On ne peut plus regarder comme avant. »
 
-Elle regarda le nouveau visage de l'androïde,
-puis l'enfant,
-et dit très bas :
+Luhai voulut dire quelque chose, puis y renonça ; Ater ne retourna pas au mur.
 
-« Je ne sais pas encore. »
-« Mais au moins,
-il ne me semble pas vide. »
+L'enfant demanda encore, avec beaucoup de précaution :
 
-Ces mots ressemblaient à une petite consolation,
-et aussi à un grand avertissement.
+« Alors… maintenant, ça aussi, c'est de notre côté ? »
 
-Car s'il n'était pas vide,
-la manière de les traiter devrait désormais changer entièrement.
+Seorin ne répondit pas. Sern baissa les yeux sur le panneau d'enregistrement, et la vieille machine regarda l'enfant.
 
-Et cette nuit-là même,
-une autre ligne de circulation changea dans le haut.
+Han Jiwoo regarda le nouveau visage de l'androïde, regarda l'enfant, et dit très bas :
 
-Serakion continuait d'accélérer.
-Mais, avec un léger retard,
-quelque chose, en bas aussi,
-commençait clairement à s'éveiller.
+« On ne sait pas encore. »
+
+« Mais au moins, je crois que ce n'est pas vide. »
+
+L'enfant leva les yeux vers Han Jiwoo.
+
+« Et si c'était vide ? »
+
+« Si c'était vide, ça ne suivrait pas. Tout à l'heure, ça a suivi. Tes traits. »
+
+L'enfant regarda le visage de l'androïde, l'endroit dessiné de sa propre main. La lumière était là. Quand l'enfant leva la main et l'agita doucement, la tête de l'androïde s'inclina d'une demi-phalange de ce côté. L'enfant inspira.
+
+Sur le doigt que l'enfant regarda de nouveau, il ne restait presque plus de terre. Sur le visage de l'androïde, les trois traits restaient allumés.
+
+Cette nuit-là, en haut, une autre ligne de circulation changea encore. Serakion continuait d'accélérer.
+
+Dans le secteur d'en bas, les trois traits tracés sur le visage de l'androïde ne s'éteignirent pas de la nuit. Un homme de Hazran qui montait la garde regarda deux fois de ce côté ; les deux fois, ils étaient allumés. La troisième fois, il n'y alla pas.
+
+La machine du côté du mur resta là toute la nuit, son œil optique posé sur ces trois traits. Après avoir regardé cet œil optique, l'homme retourna à sa place.
+
+L'enfant mit longtemps à trouver le sommeil. À côté de Han Jiwoo, l'enfant ouvrit ses doigts sans terre et les sentit : ils avaient l'odeur de la terre.
+
+L'enfant s'endormit en serrant cette main.
 
 ---
 

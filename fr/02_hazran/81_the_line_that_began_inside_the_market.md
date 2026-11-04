@@ -130,7 +130,7 @@ Sion regarda rouler ce qu'il avait écarté du pied.
 
 Il ne savait pas ce qu'il y avait dedans. Il ne savait pas non plus combien cela valait. Ni pourquoi cette femme l'avait porté jusqu'ici.
 
-Ce que Nassim avait dit hier, il venait de le dire lui-même aujourd'hui.
+Ce que Nassim avait dit tout à l'heure, cette fois, c'était lui qui venait de le dire.
 
 Quand il l'avait entendu, c'étaient des mots justes. Dans sa propre bouche, ils étaient justes, et pourtant ils lui restaient en travers de la gorge.
 

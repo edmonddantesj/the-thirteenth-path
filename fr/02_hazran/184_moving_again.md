@@ -2,153 +2,211 @@
 
 Le départ se fit en silence.
 
-Personne ne lança de cri, personne n'allongea un discours pour se donner du courage.
+Personne ne lança de cri. Seorin leva une fois la main, et chaque groupe se dispersa vers son axe. Sur la ligne grise, les pas résonnaient sur des rythmes différents. Des pas d'humains, les pas lourds des vieilles machines, et un pas dont un côté touchait le sol plus lourdement que l'autre.
 
-Tous le savaient déjà. Ce qu'il fallait maintenant n'était pas l'exagération de la résolution, mais la précision qui ne laisserait pas passer deux fois la même faille.
+Le plan de Seorin restait le même.
 
-Le plan de Seorin était toujours vivant.
+Quelle couche serait tenue par qui, quelle ligne serait coupée par qui, quel groupe se chargerait de la récupération et de l'appât. Quel axe était le plus dangereux, et à quel moment les mouvements des uns et des autres devraient s'engrener. Tout était tel qu'écrit sur la première page du panneau d'enregistrement de Sern ; sur la deuxième page, il y avait un point de plus.
 
-Quelle couche serait tenue par qui, quelle ligne serait coupée par qui, quel groupe assurerait la récupération et l'appât, quel axe était le plus dangereux, et à quel moment les mouvements de chacun devraient s'engrener.
+Le dernier androïde fut placé sur le même axe que Han Jiwoo.
 
-L'ossature n'avait pas changé.
+C'était l'endroit où Seorin avait marqué un point sur le sol. L'axe le plus instable, celui qui pouvait trembler le plus.
 
-Mais dès que tous commencèrent à rejoindre leurs places, Sion le comprit vite.
+« Pourquoi l'endroit le plus instable ? »
 
-L'exécution ne serait plus celle du plan d'autrefois.
+Luhai l'avait demandé avant le départ.
 
-Parce que, cette fois, le dernier androïde se trouvait parmi eux.
+« Pour que ça tremble. »
 
-Il fut placé sur le même axe que Han Jiwoo.
+Seorin avait répondu.
 
-L'axe le plus instable, celui qui pouvait le plus trembler, celui où la plus petite variable pouvait faire basculer tout l'équilibre.
+« Mets celui-là sur un axe qui ne tremble pas, et c'est celui-là seul qui tremble. Mets-le sur un axe qui tremble, et en face, ils ne savent pas ce qui a fait trembler. »
 
-Seorin ne le mit pas en tête. Elle ne l'utilisa pas non plus comme la lame d'une percée frontale.
+Seorin ne plaça pas l'androïde en tête, mais au milieu du groupe. Devant, une vieille machine ; derrière, Han Jiwoo ; derrière elle, deux hommes de Hazran. Les deux hommes portaient chacun un morceau de panneau mural, moins une arme qu'une chose pour parer.
 
-Elle le plaça là où il pouvait changer le flux.
+L'homme sans petit frère rajusta son panneau mural. Comme ses mains tremblaient, l'homme d'à côté soutint le dessous du panneau mural, et ils le portèrent à deux.
+Un temps.
+L'homme d'à côté retira la main. L'homme le porta seul. Rien ne trembla.
 
-Un endroit auquel les androïdes de type ordre seraient forcés de réagir, et où une seule réaction pouvait dérégler tout le rythme.
+Han Jiwoo marchait juste à côté de l'androïde.
 
-Ce n'était pas une manière de jeter une force au combat.
+Sans le soutenir, elle garda jusqu'au bout une distance où sa main, tendue, l'aurait atteint aussitôt. Quand l'androïde vacillait, la main montait ; quand l'androïde se redressait, elle redescendait. Trois fois elle monta, trois fois elle redescendit, sans jamais toucher. La quatrième fois, elle s'arrêta en montant : avant même de vaciller, l'androïde avait corrigé son pas de lui-même.
 
-C'était une manière de réajuster le champ de bataille.
+« Tu t'en sors bien. »
 
-Sion sentit que cette disposition était juste.
+Han Jiwoo le dit.
 
-Elle ne consommait pas le dernier androïde comme un outil. Elle intégrait honnêtement au plan le changement que son existence avait déjà créé.
+Sans répondre, l'androïde regarda le pied corrigé, puis, au pas suivant, le corrigea encore avant de vaciller.
 
-Han Jiwoo marchait juste à côté de lui.
+Les enfants les regardèrent partir depuis l'intérieur jusqu'au dernier moment.
 
-Elle ne le soutenait pas complètement. Cela l'aurait peut-être réduit à un être trop faible.
+Avant que le dernier androïde ne se retourne, un enfant agita très faiblement la main. Cette main qui, l'autre fois, était seulement restée levée, cette fois s'agitait.
 
-Mais elle conserva jusqu'au bout une distance où elle pouvait le toucher d'un geste.
+L'androïde regarda longtemps cette main, puis fit trembler très légèrement son œil optique.
 
-Elle savait qu'il était encore instable, et elle savait aussi qu'elle ne devait pas l'empêcher de marcher par lui-même.
+Quand l'enfant baissa la main, l'enfant d'à côté la prit. La femme de Hazran entoura leurs épaules et les tourna vers l'intérieur, mais l'enfant, tout en se laissant tourner, tordait la tête vers l'arrière. Aka se plaça devant pour lui masquer la vue. Quand l'enfant pencha la tête de côté, Aka se décala de côté.
+L'enfant n'abandonna pas. Aka non plus.
+Jusqu'au tournant.
 
-Cette distance subtile ressemblait au langage qui leur convenait le mieux à cet instant.
+La ligne grise de l'ancienne couche était plus silencieuse qu'avant.
 
-Les enfants les virent partir depuis l'intérieur jusqu'au dernier moment.
+Trois bruits de pas.
+Des humains.
+Des machines.
+L'androïde.
 
-Leurs visages n'avaient pas fini de pleurer. Mais ils ne s'accrochèrent plus comme avant.
+Le mur renvoyait les trois.
 
-Avant que le dernier androïde ne se retourne, un enfant agita très faiblement la main.
+Les chemins intérieurs de Serakion avaient toujours été ainsi. Trop lisses, trop ordonnés. Même là où le premier combat était passé, il n'y avait pas de poussière au sol. Même les sections des structures brisées étaient étrangement droites, et les traces du premier combat restaient sur cette surface grise et propre comme des taches non autorisées.
 
-Il regarda cette main longtemps, puis son œil optique trembla presque imperceptiblement.
+Une éraflure sur le mur descendait de la hauteur d'un homme jusqu'au sol. Au bout de cette éraflure, tout avait été dégagé. Il ne restait que l'éraflure ; ce qui l'avait faite n'était plus là.
 
-Personne ne pouvait encore garantir que c'était une réponse plutôt qu'une simple réaction.
+En passant à côté, Luhai la parcourut une fois du bout des doigts, mais rien ne resta sur ses doigts. Il les regarda, puis raffermit sa prise sur sa barre de fer.
 
-Mais personne, là, ne le traita comme quelque chose d'insignifiant.
+« Qui a dégagé ça ? »
 
-C'était suffisant.
+Luhai demanda.
 
-Il ne restait plus qu'à bouger.
+« C'est l'autre camp. »
 
-Les lignes grises de l'ancienne couche étaient plus silencieuses qu'avant.
+Sern répondit.
 
-Le mot « silencieuses » ne suffisait pas. Les chemins intérieurs de Serakion avaient toujours été ainsi : trop lisses, trop ordonnés, et pour cette raison même inquiétants.
+« C'était la nuit. Sans un bruit. »
 
-Même les sections des structures brisées étaient étrangement droites, et les traces du premier combat restaient sur ces surfaces grises propres comme des taches interdites.
+« C'étaient les nôtres. »
 
-Quelque part, un son d'annonce bas et poli passa une fois.
+« Ce sont les leurs. Selon leur façon de compter. »
 
-Ce n'était pas une alarme bruyante. Cela ressemblait plutôt au son qui reclassait les lignes et réorganisait le flux.
+Luhai regarda encore l'éraflure qui descendait de la hauteur d'un homme jusqu'au sol, mais il n'y avait rien au bout.
 
-Serakion était toujours faux de cette façon.
+Quelque part, un son de guidage bas et poli passa une fois. Ce n'était pas une alarme, mais un son qui annonçait, de la même voix que tout à l'heure, quels chemins s'étaient ouverts et lesquels s'étaient fermés. Le chemin qu'on disait fermé était celui-là même qu'ils empruntaient, et pourtant personne ne s'arrêta.
 
-Un monde qui répondait par l'organisation avant le tumulte, enfermait les gens par la disposition avant la violence, et présentait l'ordre avant la peur.
+« Il paraît que c'est fermé. »
 
-En traversant ce silence, Sion ressentit quelque chose d'étrange.
+Un homme de Hazran le dit.
 
-C'était bien le même chemin. Le même plan.
+« On prend le chemin fermé. »
 
-Mais le sens qui circulait à l'intérieur était différent.
+Seorin répondit.
 
-Avant, c'était un plan pour la structure, la destruction et la fissure.
+« Les chemins ouverts, l'autre camp les surveille. »
 
-Désormais s'y mêlait aussi la sensation de ne pas perdre jusqu'au bout l'être qu'ils avaient sauvé.
+L'homme rajusta son panneau mural.
 
-Ater vérifia une ouverture en avant et dit bas :
+En écoutant ce son, Sion regardait le dos de celui qui marchait devant lui dans son groupe. C'était le même chemin, le même plan.
 
-« À la première réaction, tout changera. »
+Sur son axe gauche marchait le dernier androïde. Un bruit de pas qui n'existait pas la première fois qu'ils avaient pris ce chemin. Ni un pas d'humain, ni un pas de vieille machine, ni un pas d'unité de Serakion. Ce bruit, un pied touchant le sol plus lourdement que l'autre, heurtait le mur et revenait. Les murs de Serakion renvoyaient bien les sons.
 
-Tous s'y attendaient déjà.
+Ater, vérifiant la brèche en avant, dit à voix basse :
 
-Les androïdes de Serakion réagiraient probablement autrement dès qu'ils détecteraient l'existence du dernier androïde.
-
-Et cette faille était justement le cœur du plan.
+« À la première réaction, tout changera aussitôt. »
 
 Sern ajouta très bas :
 
-« Nous ne visons pas l'écart de puissance. Nous visons l'écart de réaction. Il ne s'agit pas de briser une ligne, mais de l'empêcher de rester une même ligne. »
+« Ce que nous visons n'est pas l'écart de puissance. C'est l'écart de réaction. Il ne s'agit pas de briser une ligne, mais de l'empêcher de rester la même ligne. »
 
-Sion avala silencieusement son souffle.
+Luhai hocha la tête à ces mots et raffermit sa prise sur la barre de fer qu'il tenait ; c'était la troisième fois.
 
-C'était vrai.
+« Pourquoi tu la reprends sans arrêt ? »
 
-Ce combat ne serait pas décidé par le plus fort. Il serait décidé par celui qui saurait lire et utiliser le premier la légère secousse née quand un ordre rencontre une volonté.
+Sion le demanda.
 
-Le plan de Seorin avait donc davantage la forme d'une guérilla.
+« J'ai les mains moites. Toi aussi. »
 
-Non pas gagner en poussant le front, mais empêcher Serakion de maintenir son efficacité parfaite, et laisser chaque groupe couper une mesure à chaque faille.
+Sion regarda la poignée de sa lame : elle était mouillée. Il la frotta sur son pantalon.
 
-Retarder les lignes de chute, sectionner les lignes de circulation, disperser en individus une légion qui devait bouger comme une seule ligne.
+Seorin marchait les yeux devant, sans rien dire. À chaque embranchement, elle indiquait la direction d'un seul doigt, et les groupes se séparaient en suivant ce doigt.
 
-Et au centre de tout cela se trouvait le dernier androïde qui marchait à côté d'eux.
+Au premier embranchement, le groupe de Luhai tourna à droite. Avant de tourner, Luhai jeta un regard en arrière, du côté de l'androïde. Au deuxième embranchement, Ater saisit l'angle d'une structure, se hissa vers le haut, puis regarda une fois en bas.
 
-Il n'était toujours pas entier. Sa marche était subtilement lente, et l'axe de son épaule fixé provisoirement ne semblait pas parfaitement stable.
+Au troisième embranchement, les deux vieilles machines se séparèrent. Avant de se séparer, elles se regardèrent une fois. L'une posa la main sur le plastron de l'autre puis la retira, et l'autre fit le même geste. Puis elles se séparèrent. Sion le vit, mais ne sut pas ce que cela voulait dire.
 
-Et pourtant, il ne s'arrêtait pas.
+Il restait Seorin, Sion, Sern et le groupe de Han Jiwoo.
 
-Il regardait plutôt le chemin devant lui d'une manière plus calme et plus nette qu'avant le combat.
+Le dernier androïde n'était toujours pas entier. Sa marche était très légèrement lente, et l'axe d'épaule fixé émettait un bruit tous les dix pas. Chaque fois que ce bruit se faisait entendre, la main de Han Jiwoo montait, et chaque fois qu'elle redescendait, Han Jiwoo regardait sa propre main.
 
-En le voyant, Sion sentit encore une fois qu'il n'était plus simplement un être qui avait survécu.
+L'androïde ne s'arrêta pas. Sans détacher l'œil optique du dos placé devant, à l'embranchement, l'androïde pivota du côté indiqué par le doigt de Seorin, avant même celui qui marchait devant. La vieille machine de tête le remarqua et pressa le pas.
 
-Il était l'une des raisons du prochain combat.
+En voyant cela, Han Jiwoo comprit que son propre pied avait un temps de retard, et pressa le pas.
 
-Et en même temps, la raison pour laquelle ce combat devait être différent.
+« Tu as tourné avant. »
 
-Seorin leva une dernière fois la main pour vérifier la position de chaque groupe.
+Han Jiwoo le dit à l'androïde.
 
-Les regards de tous s'engrenèrent brièvement, et les anciennes machines se dispersèrent vers leurs axes.
+« Avant le doigt de Seorin. »
 
-Le dernier androïde s'arrêta avec Han Jiwoo devant l'axe qui tremblerait le premier.
+Sans répondre, l'androïde regarda le dos de devant. À l'embranchement suivant, encore un demi-pas d'avance pour tourner ; Han Jiwoo vit ce demi-pas.
 
-À cet instant, très loin, le son de circulation interne de Serakion changea presque imperceptiblement.
+L'éclairage du couloir s'assombrit une fois, puis revint. L'éclairage de Serakion était un éclairage qui ne s'assombrissait pas. Sern leva la tête et nota brièvement quelque chose sur le panneau d'enregistrement ; pendant ce temps, Seorin ne ralentit pas.
 
-Le flux poli venait de commencer à se réorganiser.
+« Qu'est-ce que c'est ? »
 
-Sion sentit son dos se refroidir.
+Sion le demanda.
 
-C'était venu.
+« Je ne sais pas. »
 
-Cette fois, c'était eux qui étaient entrés les premiers. Cette fois, c'était eux qui avaient choisi leur place.
+Sern répondit.
 
-Et pourtant, Serakion aussi commençait à détecter quelque chose.
+« Il ne s'est jamais assombri. Je le note. »
 
-L'œil optique du dernier androïde trembla très brièvement. Han Jiwoo retint son souffle, et le regard de Seorin devint plus acéré.
+« C'est l'autre camp qui a tremblé ? »
 
-Dans l'ancien plan, un nouveau cœur était déjà entré.
+« L'autre camp ne tremble pas. »
 
-Et ce cœur allait maintenant battre la première mesure du deuxième combat.
+Sern répondit encore.
+
+« Je l'inscris comme une secousse. »
+
+Seorin leva la main une dernière fois pour vérifier la position de chaque groupe.
+
+En haut, Ater leva la main en réponse, et Sern leva le panneau d'enregistrement pour le montrer. Au loin, le bout de la barre de fer de Luhai frappa deux fois l'angle d'un mur. Les vieilles machines, chacune sur son axe, posèrent la main sur le mur.
+
+Le dernier androïde, avec Han Jiwoo, s'arrêta devant l'axe qui tremblerait le premier.
+
+La vieille machine de tête posa la main sur le mur. Quand Han Jiwoo se plaça à côté d'elle, l'androïde se mit entre les deux, et les deux hommes de Hazran dressèrent leurs panneaux muraux.
+
+Au loin, le son de circulation intérieur de Serakion changea très légèrement.
+
+Le son de guidage poli se coupa une fois. Quand il reprit, il était un peu plus rapide et dit deux fois la même chose. Le son de guidage de Serakion était un son qui ne disait jamais deux fois la même chose.
+
+La main de Sern s'arrêta sur le panneau d'enregistrement ; il n'écrivit pas, il écouta.
+
+« Qu'est-ce qu'il dit ? »
+
+Seorin le demanda.
+
+« On nous dit que l'itinéraire a été réaffecté. »
+
+Sern répondit.
+
+« Il l'a dit deux fois. Le même itinéraire. »
+
+« Pourquoi dire deux fois la même chose ? »
+
+« Parce que la première annonce n'a pas porté. »
+
+Sern répondit.
+
+« Ou parce que Serakion n'a pas cru à sa propre première annonce. »
+
+Seorin regarda devant.
+
+Sion sentit son dos se refroidir et serra la poignée de sa lame.
+
+L'œil optique du dernier androïde trembla très brièvement. Tandis que Han Jiwoo retenait son souffle, Seorin détourna vers l'axe gauche la tête qu'elle tenait tournée vers l'avant.
+
+L'androïde fit un pas en avant.
+La vieille machine retira la main du mur.
+Les panneaux muraux des deux hommes de Hazran se levèrent.
+La main de Han Jiwoo monta.
+
+Cette fois, elle ne redescendit pas.
+
+La main se posa sur l'épaule de l'androïde, sur les nœuds. L'androïde ne s'arrêta pas. La main de Han Jiwoo avança avec cette épaule.
+
+Un pas.
+
+Elle lâcha.
 
 ---
 

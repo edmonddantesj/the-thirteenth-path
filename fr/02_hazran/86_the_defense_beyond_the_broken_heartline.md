@@ -1,14 +1,8 @@
 # Chapitre 86 — La défense au-delà de la ligne vitale brisée
 
-Après la fermeture de la ligne centrale du marché, Hazran sembla un instant avoir vraiment cessé de respirer.
+Après la fermeture de la ligne centrale du marché, Hazran retint un instant son souffle.
 
-Le bruit de tout ce qui s'effondrait avait été énorme, mais le silence qui suivit fut étrangement plus énorme encore.
-
-Sion eut peur de ce bref silence. Un silence né au milieu de la guerre n'était pas une fin ; c'était plutôt le temps où le choc suivant reprend position. Il avait l'impression de le savoir désormais avec son corps.
-
-Et vraiment, ce temps ne dura pas.
-
-Seulement, entre-temps, une chose avait changé.
+Entre-temps, une chose avait changé.
 
 Le vent commença à entrer.
 
@@ -66,9 +60,7 @@ Haroun enchaîna aussitôt :
 
 « La première ligne les jette dans le couloir, la deuxième les fait plier, la troisième garde les gens. »
 
-Des mots brefs. Mais pour les gens de Hazran, désormais, cela suffisait.
-
-Le champ de bataille avait complètement changé. Le marché qui, jusque-là, se repliait autour de la seule ligne centrale était désormais fragmenté en ruelles intérieures au-delà, en couloirs de liaison, en espaces étroits devant les sections de la coque. Le grand courant était mort ; à sa place, plusieurs petits fronts avaient pris vie.
+Le champ de bataille avait complètement changé. Le marché qui, jusque-là, se repliait autour de la seule ligne centrale était désormais fragmenté en ruelles intérieures au-delà, en couloirs de liaison, en espaces étroits devant les sections de la coque.
 
 Hazran ne devait plus tenir comme une ville entière, mais par les petits organes qui lui restaient en dedans.
 
@@ -129,7 +121,7 @@ Haroun répondit sans arrêter ses mains :
 
 « À partir de la deuxième, ils connaissent cette forme. »
 
-Sion pensa que ces mots expliquaient la ville tout entière. Hazran n'avait jamais dressé de barricade faite pour durer. On dressait vite ce qui marcherait une fois, et quand ça avait servi, on dressait vite autre chose. Comme on ne le faisait qu'avec ce qui n'avait pas de prix, on pouvait le jeter sans regret, et comme le jeter ne faisait pas mal, on pouvait toujours en refaire.
+Hazran n'avait jamais dressé de barricade faite pour durer. On dressait vite ce qui marcherait une fois, et quand ça avait servi, on dressait vite autre chose. Comme on ne le faisait qu'avec ce qui n'avait pas de prix, on pouvait le jeter sans regret, et comme le jeter ne faisait pas mal, on pouvait toujours en refaire.
 
 Le problème, c'est qu'on ne pouvait pas se servir des gens ainsi.
 
@@ -175,8 +167,6 @@ Nassim se tourna soudain vers les gens.
 « Ne faites pas ces têtes de fin du monde ! »
 Sa voix claqua, aiguë :
 « Ce n'est pas fini. Si c'était fini, on ne courrait pas comme ça ! »
-
-Ces mots étaient presque forcés. Mais même forcés, il les fallait. Ceux qui avaient vu l'effondrement pouvaient, au moindre relâchement, sentir leur cœur s'éteindre avec.
 
 Puis Nassim ajouta, très bas, pour Sion seul :
 

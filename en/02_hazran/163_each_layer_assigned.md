@@ -48,11 +48,7 @@ Seorin asked.
 
 One corner of the triangle, the one the second looked at, was the spot it had named yesterday.
 
-Seorin drew a short line beside the triangle, as if taking notes, and summed up.
-
-"Kael doesn't cut paths, he wrecks the speed at which the closing finds its beat again."
-
-Kael gave a short nod and set the stone down.
+Kael set the stone down.
 
 Ater was next; he spoke without picking up a stone.
 
@@ -139,10 +135,6 @@ The second added.
 "Recovery too."
 
 The first took it up.
-
-Seorin summed it up, short.
-
-"Good. The old machines inside aren't the ones tearing it down, they're the axis that braces it so the people aren't crushed when it falls."
 
 The old machine looked at the floor below the plate, where its lines were, and the light of the wall-side machine went down that far as well.
 

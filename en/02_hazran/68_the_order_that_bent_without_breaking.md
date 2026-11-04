@@ -38,7 +38,7 @@ Sern took it up at once.
 he said, low.
 "They do not run because there is no law. They run longer because they do not look like law."
 
-Hearing that, Seorin smiled faintly. She did not like the method, but he was right.
+Hearing that, Seorin smiled faintly.
 
 Harun stood a little apart from Zahir.
 
@@ -139,8 +139,6 @@ Zahir went on, very low.
 
 "That is why I punish you more."
 
-With that one line the air changed.
-
 Luhai's eyes went wide, and Kael lifted his chin slightly. Sern had the face of someone who had known it was coming.
 
 Zahir spoke.
@@ -215,9 +213,9 @@ At last he spoke, very low.
 
 "I will accept it."
 
-It was the same thing he had said before.
+It was the same thing he had said before he heard what the punishment was.
 
-But to Seorin it sounded different from before. Before, he had said he would accept it if Zahir judged that he had crossed the line. Now he simply said he would accept it.
+But to Seorin it sounded different from what he had said at the very start. At the start, he had said he would accept it if Zahir judged that he had crossed the line. Now he simply said he would accept it.
 
 What had dropped out in between was the condition.
 
@@ -236,14 +234,6 @@ Ater answered.
 "Rather than proper,"
 he said quietly,
 "it is running in its own way."
-
-Seorin thought that was more accurate.
-
-This was neither the Empire nor the Alliance. That did not make it a place that ran any more carelessly.
-
-Hazran was rebuilding, in Hazran's own way, an order that had been bent once.
-
-And only then did it grow a little clearer to her that what Sion's party would take away from here might not be just metal or a single ship.
 
 ---
 

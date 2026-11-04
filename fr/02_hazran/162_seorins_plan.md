@@ -1,293 +1,272 @@
 # Chapitre 162 — Le plan de Seorin
 
-Même après qu'ils eurent conclu qu'ils ne pourraient jamais tous les sauver en répétant les sauvetages,
-et qu'il fallait donc ébranler la structure elle-même,
-aucun chemin n'apparut aussitôt.
+Le lendemain, Seorin traîna une plaque jusqu'au milieu de la pièce.
 
-C'était naturel.
+C'était une vieille plaque de métal restée dressée dans un coin, un de ses angles tordu. Elle la coucha sur le sol et en balaya la poussière du plat de la main, une fois, deux fois. La plaque mise à nu portait d'anciennes éraflures, et il restait par-dessus de la place pour dessiner.
 
-Faire s'effondrer.
-Couper.
-Briser.
-
-Les mots étaient faciles.
-Mais face à un ordre stratifié comme Serakion,
-pour que ces mots deviennent un véritable plan,
-il fallait d'abord remettre à plat qui savait quoi,
-qui ignorait quoi,
-et ce qu'il fallait toucher en premier.
-
-Et celle qui le fit la première
-fut Seorin, revenue s'asseoir à une place longtemps restée vide.
-
-Elle tira au centre de la pièce une vieille plaque,
-puis commença à y poser un à un
-les trajets connus des mains de récupération,
-la structure de fermeture que Kael avait lue,
-les secteurs protocolaires supérieurs vus par Ater,
-les failles du système d'approbation signalées par Sern,
-et les informations sur les lignes de maintien que les anciennes machines de l'intérieur avaient gardées.
+Quand Seorin prit un morceau de pierre aux arêtes vives et l'appuya contre la plaque, il racla le métal et laissa une ligne blanche.
 
 « Bien. »
-Dit Seorin à voix basse.
-« Maintenant, on arrête un instant de geindre,
-et on commence par mettre au clair ce qu'il faut détruire. »
 
-Ces mots parurent froids,
-mais, étrangement, ils stabilisèrent plutôt la pièce.
+Elle parlait bas.
 
-Ce n'était pas que les émotions avaient disparu.
-La colère de Jiwoo n'était toujours pas retombée,
-Kael ressassait l'échec en calculs,
-plus la pensée d'Ater s'approfondissait, plus son visage se fermait,
-et les anciennes machines savaient que les lignes qu'elles avaient longtemps maintenues pouvaient désormais devenir des cibles.
+« Maintenant, on arrête un moment de pleurnicher, et on commence par mettre au clair ce qu'il faut casser. »
 
-Mais c'était précisément pour cela
-que quelqu'un devait ordonner tout cela en phrases.
+Han Jiwoo la regarda, ouvrit la bouche puis la referma ; tenant toujours la main du petit enfant, elle vint s'asseoir près de la plaque.
 
-Dans ces moments-là, Seorin était la personne la plus utile.
+Kael vint ; Ater se retourna à la sortie mais ne vint pas, et regarda de là-bas. Quand Sern apporta le panneau d'enregistrement et le posa à côté de la plaque, la première main de récupération vint aussi.
+
+La seconde main de récupération quitta le mur en traînant sa jambe tendue à chaque pas, mais resta debout à côté de la plaque sans s'asseoir. La vieille machine fit un pas hors du pilier et s'arrêta : de là, elle voyait la plaque.
+
+Luhai était près des enfants, et Aka aussi. Sion se tenait entre les gens de Hazran et la plaque, sans s'asseoir ni d'un côté ni de l'autre.
+
+Seorin frappa trois fois la plaque avec la pierre.
 
 « Pour l'instant, on a confirmé trois choses. »
-Elle replia les doigts l'un après l'autre.
-« Premièrement,
-faire sortir quelques personnes ne mettra pas fin à cette structure. »
-« Deuxièmement,
-dès qu'on le perce une fois, Serakion apprend et colmate aussitôt. »
-« Troisièmement,
-à partir de maintenant, il ne faudra donc pas seulement sortir des gens,
-mais toucher l'axe qui fait qu'on les traite ainsi. »
 
-Kael hocha très brièvement la tête.
-Ater accepta lui aussi sans un mot.
+Elle replia un doigt.
 
-Seorin passa aussitôt à la suite.
+« Un : sortir quelques personnes, ça ne mettra pas fin à cette structure. »
+
+Une ligne sur la plaque.
+
+« Deux : une fois percé, Serakion apprend tout de suite et colmate. »
+
+Deux lignes.
+
+« Trois : donc, à partir de maintenant, il ne s'agit plus seulement de sortir des gens, il faut toucher à l'axe qui fait qu'on les manie comme ça. »
+
+Trois lignes. Elle ne posa pas la pierre.
+
+Kael hocha très brièvement la tête ; à la sortie, Ater ne dit rien, et la première regarda les trois lignes de la plaque.
 
 « Alors le problème, c'est ça. »
-Elle tapota la plaque.
-« Dans Serakion, qu'est-ce qu'on doit couper
-pour ébranler le haut et ouvrir le bas ? »
 
-Cette fois, Kael parla le premier.
+Seorin tapota la plaque.
 
-« Les chemins ne suffisent pas. »
-Dit-il à voix basse.
-« Il y en a déjà trop,
-et les méthodes de blocage apprennent elles aussi. »
-« Couper une ligne de déplacement,
-c'est un retardement, pas un effondrement. »
+« Dans Serakion, qu'est-ce qu'on coupe pour que le haut vacille et que le bas s'ouvre ? »
 
-Seorin résuma aussitôt.
+Kael parla le premier. Accroupi devant la plaque, il prit la pierre de Seorin et traça plusieurs longues lignes sous les trois autres. Ce qu'il avait effacé la veille : les chemins.
 
-« Alors les chemins sont un résultat,
-ce que nous devons viser, c'est l'axe. »
+« Les chemins, ça ne suffit pas. »
 
-Sern prit le relais.
+Il parlait bas.
 
-« Le système d'approbation fonctionne de la même manière. »
-« Secouer les trajets terminaux ou les machines de guidage ne suffit pas ;
-la couche supérieure recouvre vite cela sous une autre forme. »
-« Le problème est de savoir qui approuve quoi,
-et à quelle structure d'enregistrement ces approbations et ces affectations sont liées. »
+« Des chemins, il y en a déjà trop, et la façon dont on les bloque, ça s'apprend aussi. Couper une ligne de déplacement, c'est un retard, pas un effondrement. »
 
-Seorin plissa les yeux.
+Il barra l'une des longues lignes d'un trait qui la coupait. À côté, il y avait une autre longue ligne, et une autre encore à côté.
 
-« Donc, d'après toi,
-il faut regarder davantage la structure administrative qui fait réellement tourner le haut. »
+« Coupé, ça passe à côté. »
+
+« Alors les chemins sont un résultat, et ce qu'on vise, c'est l'axe. »
+
+C'était Seorin.
+
+Sous les longues lignes, Kael grava un point profond dans la plaque avec la pierre.
+
+« Ça. »
+
+« C'est où ? »
+
+« Je sais pas. Je sais que ça existe. Les chemins se ferment tous au même endroit. »
+
+Sern prit le relais et poussa le panneau d'enregistrement à côté de la plaque. Sur le panneau d'enregistrement, des signaux flottaient sous forme de lignes qui montaient et descendaient.
+
+« Il en va de même pour le système d'approbation. Si l'on se contente d'ébranler les trajets terminaux ou les machines de guidage, la couche supérieure recouvre vite cela sous une autre forme. Le problème est de savoir qui approuve quoi, et par quelle structure d'enregistrement ces approbations et ces affectations sont reliées. »
+
+Seorin plissa les yeux et prit la parole.
+
+« Donc toi, tu dis qu'il faut regarder de plus près la structure administrative qui fait vraiment tourner le haut. »
 
 Sern répondit brièvement.
 
-« Oui. »
-« L'ordre visible en surface
-et l'ordre qui soutient réellement les autorisations et les affectations peuvent être différents. »
+« Oui. L'ordre visible en surface et l'ordre qui soutient réellement les autorisations et les affectations peuvent être différents. »
 
-Ce n'était pas une simple information administrative.
+« Comment tu vois ça ? »
 
-Peu importe l'élégance de Serakion,
-pour maintenir réellement cette élégance,
-quelqu'un doit approuver,
-quelqu'un doit affecter,
-quelqu'un doit enregistrer,
-et quelqu'un doit ensuite recouvrir tout cela.
+Han Jiwoo posa la question.
 
-Il fallait connaître cette structure pratique
-pour pouvoir ébranler la politique.
+« Nous suivons le signal à rebours. »
 
-Ater posa son propre regard par-dessus.
+Sern expliqua.
 
-« Le haut fonctionne aussi par face. »
-Dit-il à voix basse.
-« Plus que de savoir qui décide,
-il importe de savoir qui doit avoir l'air de décider. »
-« Si cette face se brise une fois,
-les véritables lignes d'autorité peuvent vaciller aussi. »
+« Quand un enfant monte, d'où le signal part-il en premier ? Du côté de l'enfant, ou d'en haut ? »
 
-Seorin eut presque un rire.
+« Il part d'où ? »
 
-« Tu t'en charges. »
-« Qui fonctionne par vanité,
-et où il faut toucher pour que le haut commence à se surveiller lui-même. »
+« Il part d'en haut. Avant que l'enfant ne bouge. »
 
-Ater ne prit même pas un air contrarié.
-Il hocha seulement la tête.
+Pendant que Han Jiwoo se taisait, Sern posa le doigt sur une ligne du panneau d'enregistrement, celle qui montait.
 
-Lire une structure politique qui ressemblait à son propre monde
-n'avait rien d'agréable pour lui,
-mais c'était aussi quelque chose que lui seul pouvait faire avec autant de précision.
+Ater parla depuis la sortie, sans venir.
 
-Seorin tapota un autre côté de la plaque.
+« Là-haut, les choses tournent aussi par la face. »
 
-« Kael, toi, pas les chemins. L'axe. »
-« Pas ce qu'il faut bloquer pour ralentir le mouvement,
-mais ce qu'il faut couper pour dérégler la fermeture elle-même. »
+Seorin regarda de ce côté.
 
-Cette fois, Kael répondit plus longuement.
+« Plus que de savoir qui décide, ce qui compte, c'est qui doit avoir l'air de décider. Si cette face se brise une seule fois, les véritables lignes d'autorité peuvent vaciller aussi. »
 
-« Il existe un point où la ligne de montée,
-la ligne auxiliaire de colmatage
-et la ligne de vie s'entrelacent. »
-« Si on le touche,
-ce n'est pas un seul chemin,
-mais toute la manière dont le haut traite le bas qui peut se décaler un instant. »
+Seorin répondit avec une sorte de petit rire.
 
-Luhai cligna des yeux.
+« Ça, c'est pour toi. Qui tourne à la frime, et où il faut toucher pour qu'en haut ils commencent à se surveiller entre eux. »
 
-« Alors plus personne ne peut bouger ? »
+Sans changer d'expression, Ater hocha brièvement la tête depuis la sortie.
 
-Kael secoua la tête.
+« C'est chez vous que vous l'avez vu ? »
 
-« Non. C'est pour ça que c'est difficile. »
-« Ça ne s'arrêtera pas complètement.
-Mais pendant qu'ils essaieront de se réaligner les uns sur les autres,
-le rythme qui lit les gens pourra prendre du retard. »
+La première posa la question.
 
-Seorin reprit aussitôt ces mots comme si elle les notait.
+« C'est chez moi que je l'ai fait. »
 
-« Voilà. Nous ne visons pas l'arrêt complet,
-mais le ralentissement du rythme de lecture. »
+Ater répondit.
 
-Cette phrase sembla devenir le point qui reliait les sauvetages passés
-à la stratégie à venir.
+Seorin tapota un autre endroit de la plaque, à côté du point que Kael avait gravé.
 
-Serakion lit les gens,
-les classe,
-les ajuste,
-les élève,
-les renvoie.
+« Kael, pas les chemins : l'axe. Pas ce qu'il faut bloquer pour ralentir le déplacement, mais ce qu'il faut couper pour que la fermeture elle-même s'emmêle. »
 
-Alors faire s'effondrer cette structure
-commencerait sans doute, en fin de compte,
-par briser le rythme de cette lecture et de cet ajustement.
+Cette fois, Kael répondit plus longuement, et traça avec la pierre trois lignes qui se rejoignaient en un même point.
 
-Même en écoutant cela,
-le visage de Jiwoo ne se détendit pas entièrement.
+« Il y a un point où la ligne de montée, la ligne auxiliaire de colmatage et la ligne de vie s'entrelacent. Si on touche là, ce n'est pas un seul chemin, c'est toute la façon dont le haut traite le bas qui peut se décaler un moment. »
 
-Mais cette fois,
-il n'y avait plus seulement de la colère.
+Il posa la pierre debout à l'endroit où les trois se rejoignaient.
+
+« Ici. »
+
+« Tu l'as vu ? »
+
+Seorin posa la question.
+
+« Trois fois. Je suis passé à côté chaque fois que j'entrais. Deux lignes du plafond se séparent là. La ligne du sol de l'étage du dessus tourne là aussi. Le marquage d'empreintes s'arrête là. »
+
+La seconde, toujours debout, regarda cet endroit.
+
+« Il y a beaucoup de monde là-bas. »
+
+« Je sais. »
+
+Luhai posa une question, près des enfants.
+
+« Alors plus rien ne pourra bouger ? »
+
+Kael secoua la tête en répondant.
+
+« Non. C'est pour ça que c'est dur. Ça ne s'arrête pas complètement. Mais pendant qu'ils se réajustent les uns sur les autres, le rythme auquel ils lisent les gens peut prendre du retard. »
+
+« De combien ? »
+
+« Je sais pas. Ça n'a jamais pris de retard. »
+
+Seorin reprit aussitôt ces mots et, avec la pierre, traça sur la plaque une ligne courte, comme si elle les notait.
+
+« Voilà. Plutôt que l'arrêt complet, on vise à ralentir le rythme de lecture. »
+
+Même en regardant cette ligne, Han Jiwoo garda le visage fermé. Quand sa main qui tenait celle du petit enfant se crispa, l'enfant regarda cette main, et Han Jiwoo relâcha enfin la pression.
 
 « Et les gens ? »
-Demanda-t-elle à voix basse.
-« Ceux qui restent à l'intérieur,
-où seront-ils quand on ébranlera cette structure ? »
 
-La question était importante.
+Elle posa la question à voix basse.
 
-Si, en prétendant sauver les gens, ils ébranlaient la structure
-pour finalement les écraser plus profondément encore,
-cela n'aurait aucun sens.
+« Ceux qui restent là-dedans, quand on secouera cette structure, ils se retrouveront où ? »
 
-Une ancienne machine répondit :
+Quand Seorin arrêta la pierre, Kael regarda cette pierre. L'endroit où les trois lignes se rejoignaient : celui où, avait dit la seconde, il y avait beaucoup de monde.
 
-« C'est pour cela que nos mains sont nécessaires. »
-« Les lignes de maintien intérieures,
-les lignes de signal,
-les connexions cachées, nous les connaissons. »
-« Même si nous ne pouvons pas tout détruire,
-nous pouvons tenir pour que l'effondrement ne tombe pas du côté où les gens seraient écrasés. »
+La vieille machine fit encore un pas en avant, jusqu'à l'endroit d'où l'on voyait la plaque.
 
-Pour la première fois,
-les anciennes machines de l'intérieur entraient dans la stratégie non comme de simples êtres qui tenaient,
-mais comme l'un de ses axes véritables.
+« C'est pour cela que nos mains sont nécessaires. Les lignes de maintien intérieures, les lignes de signal, les lignes de connexion cachées : nous les connaissons. Même si nous ne pouvons pas tout détruire, nous pouvons faire tenir les choses pour que cela ne s'effondre pas du côté où les gens seraient écrasés. »
 
-Seorin ne laissa pas passer ces mots.
+Elle désigna, sous les trois lignes de la plaque, le sol hors de la plaque.
 
-« Bien. Alors on peut résumer. »
-Dit-elle.
-« Ater : la face du haut et l'axe politique.
-Sern : l'axe des approbations et des enregistrements.
-Kael : l'axe des fermetures et des déplacements.
-Les anciennes machines de l'intérieur : les lignes de maintien et l'amortissement de l'effondrement. »
+« Là-dessous, il y a nos lignes. Si le haut s'emmêle, c'est nous qui soutenons. »
 
-Elle s'arrêta un instant.
-Puis elle regarda Jiwoo.
+« Et si vous vous éteignez en soutenant ? »
+
+Han Jiwoo posa la question.
+
+La vieille machine ne répondit pas tout de suite.
+
+« Cela aussi, nous le calculons. Cette fois, nous ne commençons pas par nous. »
+
+L'œil optique de la machine du côté du mur se releva, et sa faible lumière éclaira la plaque. Seorin vit cette lumière, mais ne dit rien.
+
+« Bien. Alors, ça se met en place. »
+
+Tout en parlant, Seorin partagea la plaque en quatre avec la pierre. Quatre lignes.
+
+« Ater, la face du haut et l'axe politique ; Sern, l'axe des approbations et des enregistrements ; Kael, l'axe des fermetures et des déplacements ; les vieilles machines de l'intérieur, les lignes de maintien et l'amortissement de l'effondrement. »
+
+Elle posa une pierre dans chaque case. Quatre. Voyant qu'il lui en restait une, elle s'arrêta un instant, puis regarda Han Jiwoo.
 
 « Toi, les gens. »
 
-Jiwoo leva les yeux.
+Han Jiwoo leva les yeux.
 
-Seorin parla très simplement.
+Seorin posa la cinquième pierre hors des cases, au milieu de la plaque.
 
-« Jusqu'où les humains qui restent à l'intérieur peuvent bouger,
-où ils s'effondrent,
-où ils tiennent encore leur propre rythme,
-c'est toi qui le vois le mieux. »
+« Jusqu'où les humains qui restent à l'intérieur peuvent bouger, où ils s'effondrent, où ils tiennent encore leur propre rythme : c'est toi qui le vois le mieux. »
 
-Ce n'était ni une consolation ni une délégation vide.
-C'était un placement exact.
+Han Jiwoo regarda la pierre posée au milieu, puis, tenant toujours la main de l'enfant, hocha lentement la tête.
 
-Jiwoo hocha très lentement la tête.
+« Et les enfants ? »
 
-Désormais, son rôle n'était plus seulement d'être une main qui ramenait quelques personnes de plus,
-mais celle qui verrait où, du côté humain,
-le temps pouvait reprendre vie quand cette structure serait secouée.
+Elle posa la question.
 
-En entendant cela, Sion ouvrit la bouche à son tour, calmement.
+« Les enfants aussi, ce sont des gens. Tu les regardes aussi. »
 
-« Alors moi, je tiendrai les deux. »
+Sion quitta le côté des gens de Hazran et vint vers la plaque ; il se tint à côté, sans s'asseoir.
+
+« Alors moi, je tiens les deux. »
 
 Seorin le regarda.
 
-Sion dit brièvement :
+« Ceux qui restent à l'intérieur, et ceux qui devront de nouveau courir dehors. Entre les deux, il ne faut pas que ça se coupe, non ? »
 
-« Ceux qui restent à l'intérieur
-et ceux qui devront courir dehors encore une fois.
-Il ne faut pas que l'un ou l'autre se coupe, non ? »
+Seorin regarda tour à tour Sion et la plaque sans prendre de pierre, mais il n'y en avait plus. Sans pierre, du doigt, elle traça une ligne qui faisait le tour du bord de la plaque.
 
-Ces mots étaient sortis comme si ce n'était pas grand-chose,
-mais plusieurs personnes dans la pièce savaient à quel point ils étaient importants.
+« Là. »
 
-Peu importe la qualité de la stratégie,
-si les gens s'effondrent, il n'y aura pas de suite.
-Et maintenant, Sion acceptait naturellement comme sa part
-ce rôle de lien chargé de les empêcher de s'effondrer.
+Sion regarda cette ligne qui entourait la plaque et hocha la tête.
 
-Enfin, Seorin balaya toute la plaque du regard.
+La seconde, debout, posa une question.
 
-« Bien. »
-Dit-elle.
-« Pour la première fois, ça commence à avoir du sens. »
-« Nous ne sommes pas en train de préparer un plan pour sortir quelques personnes de plus,
-mais un plan pour dérégler la manière dont Serakion lit, manie et renvoie les gens. »
+« Et nous deux ? »
 
-En l'entendant, Luhai murmura tout bas :
+« La récupération. Ça, ça continue. Si ça s'arrête, les enfants ne le sauront pas. »
+
+Pendant que la seconde regardait sa propre jambe, la première répondit.
+
+« Nous le ferons. »
+
+Enfin, Seorin regarda l'ensemble de la plaque. Les trois lignes, les longues lignes et le point, l'endroit où se rejoignaient les trois lignes, les quatre cases et les cinq pierres, et la ligne du pourtour.
+
+« Bien. Pour la première fois, ça a du sens. On n'est pas en train de monter un plan pour sortir quelques personnes de plus, on cherche comment emmêler la structure par laquelle Serakion lit les gens, les manie et les renvoie. »
+
+Près des enfants, Luhai murmura tout bas.
 
 « Donc on va vraiment le casser. »
 
-Seorin eut un bref sourire.
+Seorin eut un petit rire.
 
-« Oui. Enfin correctement. »
+« Oui. Enfin, comme il faut. »
 
-À la fin de ce jour,
-personne dans la pièce ne pouvait encore calculer leurs chances.
-Il y avait encore beaucoup d'inconnues,
-beaucoup d'ordres supérieurs non révélés,
-et ils n'avaient toujours pas vu jusqu'au bout ce qu'était le centre.
+Elle posa la pierre à côté de la plaque et ne la reprit pas.
 
-Mais au moins une chose devint claire.
+Le vieil homme de Hazran jeta un regard par-dessus vers cette plaque où étaient posées les cinq pierres, puis regarda sa propre plaque. Seize traits.
 
-À partir de maintenant,
-ils n'allaient plus seulement chercher comment survivre à l'intérieur de Serakion.
-Ils commençaient à bâtir une vraie stratégie
-pour briser la manière même dont Serakion ne pouvait fonctionner qu'ainsi.
+« Et nos traits, ils vont où ? »
+
+Seorin le regarda et répondit.
+
+« Sur cette plaque-là. Gardez-les là. Nous, on s'occupe de celle-ci. »
+
+Le vieil homme serra sa plaque contre sa poitrine et recula d'un pas.
+
+Depuis la sortie, Ater regarda la plaque de loin. Une des quatre pierres : sa case. Ce ne fut qu'après avoir longtemps regardé cette case qu'il se retourna vers la sortie.
+
+Le panneau d'enregistrement en main, Sern cherchait, du côté qui montait, le point de départ de la ligne du signal.
+
+Quand la lampe jaune clignota, les cinq pierres sur la plaque jetèrent leurs ombres dans cinq directions. L'ombre de la pierre du milieu était la plus longue.
+
+Han Jiwoo regarda cette ombre.
 
 ---
 

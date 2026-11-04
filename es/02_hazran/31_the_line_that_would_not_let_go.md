@@ -81,8 +81,8 @@ Han Jiwoo le replicó breve.
 
 —¿Lo sabes con solo mirarlas?
 
-—El sonido del motor es distinto.
-Lo dijo Kael.
+—La estela del propulsor es distinta.
+Lo dijo Kael, y añadió: «Una nave civil no puede cortar el empuje así, a golpes tan cortos.»
 —Uno asusta. El otro quiere morder hasta el final. La mano que atrapa va aparte.
 
 Sern preguntó enseguida.
@@ -97,7 +97,7 @@ Lo dijo en voz baja.
 
 Nadie le preguntó nada más.
 
-A Sion eso le pareció extraño. Kael había dicho qué clase de gente eran los de allá con solo el sonido de un motor, y nadie le pedía pruebas.
+A Sion eso le pareció extraño. Kael había dicho qué clase de gente eran los de allá con solo la estela de un propulsor, y nadie le pedía pruebas.
 
 Seorin ya estaba preguntando lo siguiente.
 
@@ -142,11 +142,11 @@ Kael murmuró en voz baja.
 
 Al mismo tiempo, Sion vio otra luz residual que se colaba entre los bastidores exteriores de la derecha.
 
-Y aguzó el oído. Kael había dicho que los distinguía por el sonido.
+Y miró las estelas de los propulsores, detrás. Kael había dicho que los distinguía por eso.
 
-No oyó nada. El retumbo dentro del casco era demasiado fuerte.
+A los ojos de Sion, las dos líneas de luz parecían idénticas.
 
-En cambio, lo vio. Aquella nave giraba después de que giraran ellos. Siempre medio tiempo tarde, siempre en el mismo ángulo.
+En cambio, vio otra cosa. Aquella nave giraba después de que giraran ellos. Siempre medio tiempo tarde, siempre en el mismo ángulo.
 
 —Jiwoo.
 Sion la llamó, breve.

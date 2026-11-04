@@ -152,7 +152,7 @@ Han Jiwoo picked it up as if in passing.
 
 "Here things only start after they're over, don't they."
 
-Sion thought she was right. Hazran had always been like that. The moment you thought you had gotten something, the real price started to attach.
+Hazran had always been like that. The moment you thought you had gotten something, the real price started to attach.
 
 Zahir spoke slowly.
 
@@ -202,7 +202,7 @@ Then this was less a destination than something close to the right to move on to
 
 Sion looked into his hand again.
 
-For days he had carried it thinking it was a key. He had thought something would open if he held it, and so he could not open his hand for fear of losing it.
+All through the race he had carried it thinking it was a key. He had thought something would open if he held it, and so he could not open his hand for fear of losing it.
 
 It was not a key. It was a ticket.
 
@@ -251,8 +251,6 @@ He said it.
 Then he added, short.
 
 "The reward will be settled inside."
-
-With that one sentence, the air in the courtyard changed again.
 
 Sion understood what it meant, in two layers.
 

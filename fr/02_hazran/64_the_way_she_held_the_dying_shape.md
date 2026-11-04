@@ -46,8 +46,6 @@ Aka hocha brièvement la tête.
 Elle continua.
 « Ça ne fait que prendre la même forme. »
 
-Pour Sion, cette phrase sonnait comme une explication de Hazran tout entier.
-
 Ce qui ne devient semblable qu'en surface.
 Ce qui fait semblant d'être une porte.
 Les lumières qui font semblant de vivre.
@@ -203,8 +201,6 @@ Cette fois, Aka ne hocha pas la tête tout de suite.
 Elle poursuivit.
 « Faire bouger, c'est après. »
 
-Sion comprit bientôt pourquoi ces mots résonnaient étrangement plus fort.
-
 Ce qu'on pouvait faire dans cet intérieur, c'était retenir ce qui mourait pour l'empêcher de mourir. Pas plus.
 Décoller vraiment,
 prendre le chemin,
@@ -226,14 +222,6 @@ Elle regarda d'abord une fois l'obscurité plus profonde derrière la coque, pui
 « Avant de sortir, »
 dit-elle,
 « il faut d'abord voir encore une chose. »
-
-Sion comprit que ce n'était pas une simple précision de plus.
-
-Cet intérieur avait encore un intérieur plus profond,
-et avant même la façon de sauver la coque,
-il restait quelque chose à montrer : pourquoi ce chemin n'était pas encore tout à fait mort.
-
-Et maintenant, pour la première fois, Aka pensait montrer aussi le seuil d'après.
 
 ---
 

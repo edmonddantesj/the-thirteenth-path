@@ -111,8 +111,6 @@ Zahir habló en voz baja, casi por primera vez con voz de persona.
 
 —Gracias por todo este tiempo.
 
-Cuando cayeron esas palabras, el aire alrededor se desmoronó de forma casi imperceptible.
-
 Luhai fue el primero en bajar la cabeza. Nasim, sin soltar ni una maldición, solo apretó los labios. Harún, a lo lejos, cerró los ojos y volvió a abrirlos. Seorin giró un poco la cara, y Han Jiwoo agarró con más fuerza la baranda.
 
 Nahira, hasta el final, no dijo nada.
@@ -139,8 +137,6 @@ Lo dijo.
 
 Sion recibió esas palabras de frente.
 
-Eran ciertas. Por eso dolían.
-
 Seorin preguntó tarde, en voz baja.
 
 —¿Lo dices en serio?
@@ -148,8 +144,6 @@ Seorin preguntó tarde, en voz baja.
 Zahir respondió enseguida.
 
 —A Hazran la cierra Hazran.
-
-Con esa sola frase bastaba.
 
 Zahir levantó una mano.
 
@@ -201,7 +195,7 @@ Han Jiwoo gritó desde dentro del casco.
 
 —¡¿Cuántos son?!
 
-—Dieciséis.
+—Dieciséis —gritó Sion.
 
 —Con dieciséis, la izquierda no se hunde.
 
@@ -225,7 +219,7 @@ Uno de los ocho alzó por fin la cabeza.
 
 —Nosotros…
 
-—Las manos que cavaron hasta el final no son manos que se quedan aquí.
+—Las manos que cavaron el montón hasta el final no son manos que se quedan aquí.
 
 Quien había hablado no pudo decir nada. Entre dos levantaron a uno que estaba sentado a su lado.
 
@@ -235,7 +229,7 @@ Sion los iba contando mientras subían, y la mano se le detuvo.
 
 Ocho, más los ocho del grupo, eran dieciséis.
 
-Entonces los que se quedaban aquí eran cuatro.
+Todavía quedaban cuatro que no entraban en esos dieciséis.
 
 Sion giró la cabeza.
 

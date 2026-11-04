@@ -20,7 +20,7 @@ Un faible grésillement traversa une fois le canal fermé de courte portée.
 
 Chaque fois que les couches de métal de la paroi et de la coque se superposaient, le canal local réglé par Han Jiwoo se chargeait de ce genre de micro-coupures. Ce n'était pas une liaison longue portée. Elle suffisait tout juste, comme maintenant, à relier brièvement ceux qui restaient à bord et ceux qui allaient sortir.
 
-La voix de Han Jiwoo arriva.
+Depuis le siège de pilotage, la voix de Han Jiwoo arriva dans le canal.
 
 « Si je colle encore l'angle de la coque, on racle. »
 
@@ -120,8 +120,6 @@ Seorin dit :
 « C'est pour ça que s'accoler n'importe comment, c'est mourir. »
 Cette fois, ce n'était pas Han Jiwoo qui avait répondu, mais Sion.
 
-À ces mots, l'air changea de nouveau dans la coque.
-
 Han Jiwoo lâcha les commandes d'une main et dit :
 
 « Alors voilà comment on fait. Moi, je tiens l'angle du vaisseau ; Sion lit les vestiges en premier. Sern calcule l'ordre de la structure. Ater retrouve quelle logique d'approche c'était à l'origine. Seorin, si un signal anormal apparaît, tu coupes tout de suite. »
@@ -158,7 +156,7 @@ Ater ne répondit pas.
 
 Sern n'insista pas non plus. C'était la troisième fois aujourd'hui qu'il n'obtenait pas de réponse, et les trois fois allaient dans le même sens.
 
-Au moment où ces mots tombèrent, Sion aperçut, au bas de la structure, une éraflure très ténue qui ressemblait à un motif. Peut-être une marque de la lignée des Myo, peut-être quelque chose d'antérieur encore. Trop usée pour qu'il en soit sûr. Mais une chose au moins était certaine.
+Dans ce silence, Sion aperçut, au bas de la structure, une éraflure très ténue qui ressemblait à un motif. Peut-être une marque de la lignée des Myo, peut-être quelque chose d'antérieur encore. Trop usée pour qu'il en soit sûr. Mais une chose au moins était certaine.
 
 Ce n'était pas une route abandonnée.
 C'était une route qu'on avait laissée là en feignant de l'abandonner.
@@ -173,7 +171,7 @@ Sion se retourna.
 
 « Pourquoi tu lâches ? »
 
-« Ça ne se fait pas du bout des doigts. »
+« Ça ne se fait pas aux commandes. »
 
 Han Jiwoo tira de la paroi, à côté du siège de pilotage, deux vieilles poignées. Ce n'était pas le système de pilotage officiel, mais des axes manuels qui poussaient directement le circuit hydraulique. Ils n'étaient pas d'origine : quelqu'un les avait installés après coup.
 

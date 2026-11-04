@@ -14,7 +14,7 @@ Seorin was the first to find her voice.
 
 "Insane."
 
-That one word was so exact that Sion, if anything, couldn't raise his head.
+Sion couldn't raise his head.
 
 Sern, standing opposite, said nothing either.
 He looked at Ater before he looked at the record panel.
@@ -105,7 +105,7 @@ The archivist's.
 "…restore… the sequence… no… the sequence has to be seen first…"
 
 The voice broke off, then went on again.
-Most of the middle was broken, and that made it all the more desperate.
+Most of the middle was broken.
 
 "…even if the name… survives… if the sequence dies… the verdict changes…"
 
@@ -176,8 +176,6 @@ Ater read that look and asked.
 Sern answered without closing the screen.
 
 "Not the Empire alone."
-
-That one short sentence changed the air in the passage completely.
 
 Sion's eyes had already gone to the screen on Sern's wrist. Reading small text in a dark passage took nothing more than night vision.
 
@@ -332,7 +330,7 @@ Sion looked at her back for a moment. The justification request was still alive,
 
 The rust at the edge of the crack had been scraped off inward. Fresh scrape marks.
 
-"The one who locked it went out this way too."
+"The one who locked it went out this way too," Sion said to Seorin's back.
 
 Sion followed her, Sern beside him found the direction in which the crack actually opened, and Ater, last of all, looked back once. The dead archivist's place, the darkened terminal, the half-open preservation room door. He could not look long at a place it was already too late for.
 

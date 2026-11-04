@@ -14,8 +14,6 @@ Only then did Sern speak.
 
 "Then the question is not who signed this. It is who rewrote the signing sequence."
 
-The sentence was startlingly calm.
-And that made it heavier.
 In that moment Sion felt a little more clearly that this quiet man was frightening not in a way that resembled his own, but in an entirely different way. Sion read scent; that man read structure.
 
 Ater said nothing.
@@ -221,8 +219,6 @@ A few days ago someone had burned this, and that someone had followed the archiv
 Elia picked up the snack bag again.
 
 "That's the question you didn't ask earlier."
-
-The air in the room settled once more.
 
 Sion took another fragment out of the retrieval pocket inside his coat. He had carried it all the way from the Administration dock. He set it down beside the reading plate.
 

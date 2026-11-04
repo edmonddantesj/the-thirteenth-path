@@ -112,7 +112,7 @@ Elia lo recogió en el acto.
 —Si subes a alguien que solo ha venido a medias, es el primero que te traiciona a mitad de camino.
 
 Al oír eso, Seorin miró un momento a Sion.
-Sion hizo como que no se daba cuenta, pero los dos lo sabían. Esas palabras no iban solo para Ater. Querían decir que, en esa habitación, si cualquiera se guardaba medio corazón, se acabó.
+Sion hizo como que no se daba cuenta, pero los dos lo sabían. Esas palabras no iban solo para Ater.
 
 Sern tomó la palabra con calma.
 
@@ -133,8 +133,6 @@ Ni ante eso cambió Sern de expresión.
 Sion descruzó los brazos y preguntó.
 
 —Entonces, ¿quién lleva el fragmento?
-
-No era una pregunta para tomársela a la ligera.
 
 El fragmento que había quedado en el sitio del Archivista muerto.
 El resto donde sobrevivía el nombre de Jun Aster.

@@ -271,9 +271,9 @@ La file était déjà formée. Sur les vingt-huit, vingt étaient coupés par tr
 
 Sion regarda ces huit.
 
-C'étaient toutes des mains qui creusaient l'amas tout à l'heure. Le dos de leurs mains était écorché, et deux d'entre eux n'avaient plus d'ongles.
+C'étaient pour la plupart des mains qui creusaient l'amas tout à l'heure. Le dos de leurs mains était écorché, et deux d'entre eux n'avaient plus d'ongles. Quelques enfants se serraient contre ces mains-là.
 
-Tout à l'heure, ils étaient onze ; ils étaient huit. Trois étaient allés au trou, deux en étaient ressortis, et l'un de ces deux, incapable de tenir debout, était assis à côté.
+Les onze qui creusaient l'amas tout à l'heure n'étaient pas tous là. Trois étaient allés au trou, deux en étaient ressortis, et l'un de ces deux, incapable de tenir debout, était assis à côté.
 
 Dire que personne n'avait décidé qui ferait partie des huit était faux. C'était déjà décidé. Ces gens-là ne s'étaient pas mis une seule fois dans la file de toute la journée.
 

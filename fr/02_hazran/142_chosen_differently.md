@@ -1,244 +1,292 @@
-# Chapitre 142 — Choisis autrement
+# Chapitre 142 — Chacun pour une raison différente
 
-L'équipe de reconnaissance était constituée
-pas par quelqu’un qui lève la main.
+Pour former l'équipe de reconnaissance, personne ne leva la main bien haut.
 
-Cette ancienne couche ne bouge pas de cette façon.
+La vieille machine se tint sous le panneau mural, la première main de récupération devant la brèche, et les gens se placèrent entre elles. Ceux qui partiraient et ceux qui resteraient étaient encore mêlés.
 
-Ceux qui y vont sont décidés en premier
-pas de ceux qui le veulent,
-mais de la part de ceux qui ont maintenant une raison, ils doivent le faire.
+Les mots qu'avait laissé échapper la personne blessée étaient brefs. Les enfants, les gamins qui ont de bonnes mains, on les monte. Et un point marqué en haut du panneau d'enregistrement de Sern : c'était tout.
 
-Les mots divulgués par la victime étaient courts.
-Cassé.
-Pas une carte précise.
+La première main de récupération, sans la moindre hésitation, se tenait devant la brèche et enroulait autour de sa main la corde qu'elle avait détachée la veille du dos de la seconde. Elle l'enroulait, la déroulait : une main qui mesurait une longueur.
 
-Mais déjà assez.
+Han Jiwoo parla la première.
 
-Enfants.
-Ceux qui ont de bonnes mains.
-Les déplacer vers le haut.
+« Moi, j'y vais. »
 
-Ces quelques fragments à eux seuls montraient clairement
-que Serakion sélectionnait les humains plus précisément et les redistribuait.
-
-La question était maintenant de savoir qui viendrait le confirmer.
-
-La première main de récupération n’a montré aucun signe d’hésitation.
-Dès le départ, le plan était de repartir.
-
-Mais cette fois,
-l’intérieur ne pouvait pas non plus le bloquer inconditionnellement.
-
-Jiwoo parla en premier.
-
-« J'y vais. »
-
-Une vieille machine a répondu immédiatement.
+Une des vieilles machines répondit aussitôt.
 
 « On a besoin de vous ici aussi. »
 
-Jiwoo ne détourna pas le regard.
+Han Jiwoo ne détourna même pas les yeux.
 
-« Je sais que je suis nécessaire ici. »
-Dit-elle à voix basse.
-« Mais si je reste ici à imaginer comment ils choisissent des mains humaines là-bas, je serai en retard. »
+« Je sais qu'on a besoin de moi ici. »
 
-Ce n’était pas un simple défi.
+Elle parla à voix basse.
 
-Jiwoo avait maintenant une raison de voir directement
-comment Serakion lit les mains humaines,
-comment elles sont converties en valeur, en compétence et en propriété.
+« Mais si je reste ici à imaginer comment ils choisissent les mains des gens là-bas, ce sera trop tard. »
 
-Si la sensibilité de Serakion
-n'appartient qu'aux machines aristocratiques
-ou est descendu selon l'ordre à travers tout ce qui se trouve en dessous du niveau supérieur -
-cela ne peut être connu que sur place.
+Elle leva les mains pour les montrer. Les cicatrices aux jointures, l'huile sous les ongles, le sang séché de toute la nuit.
 
-Cette fois-ci non plus, la première main de récupération ne s'y est pas opposée.
+« On a entendu comment là-haut ils appellent ces mains. La valeur. »
 
-Il regarda Jiwoo une fois, puis dit brièvement.
+La vieille machine regarda ces mains, mais ne répondit pas.
 
-« Si vos pieds sont lents, je vous quitte. »
+La première main de récupération, cette fois, ne s'y opposa pas non plus ; elle parcourut Han Jiwoo du regard une fois, puis dit brièvement.
 
-Jiwoo a riposté instantanément.
+« Si vous êtes lente, on vous laisse. »
 
-« Tu casses en premier, pas moi. »
+Han Jiwoo répliqua sur-le-champ.
 
-Un court silence.
+« Toi, tâche de ne pas te casser avant moi. »
 
-Ce n’est qu’à ce moment-là que Luhai laissa échapper un petit reniflement :
-et Aka les observa tour à tour sans un mot.
+Un bref silence.
 
-C'était une impasse,
-mais étrangement, cela ressemblait aussi un peu à un rite de passage.
+Luhai laissa échapper un petit rire étouffé, et Aka, sans un mot, les regarda l'une après l'autre. La seconde main de récupération, adossée au mur, regardait sa propre jambe, celle qui s'était cassée la première.
 
-Pas parce qu'ils s'aimaient…
-une manière de confirmer s'ils courent désormais le même danger.
+« Moi, j'y vais. »
 
-Ater s'avança ensuite.
+Elle le dit alors que personne ne lui demandait rien.
 
-Il était resté silencieux pendant un moment.
-Mais étrangement, tout le monde avait déjà des visages qui savaient qu'il parlerait.
+La vieille machine regarda cette jambe.
+
+« Elle traîne. »
+
+« Même si elle traîne, le chemin, je le connais. »
+
+La vieille machine n'ajouta rien ; Han Jiwoo regarda une fois la jambe de la seconde, puis appuya sur sa sacoche à outils.
+
+Ce fut ensuite qu'Ater s'avança.
+
+Lui qui était resté longtemps silencieux sortit du côté de la sortie obscure et vint se placer parmi les autres. Seorin le regarda, mais Ater ne la regarda pas.
 
 « J'y vais aussi. »
-dit-il.
+
+C'était lui.
 
 Sion le regarda.
 
-Ater a ajouté, très brièvement.
+Ater ajouta, très brièvement.
 
-« Je dois le voir moi-même. »
+« Parce qu'il faut que je le voie de mes yeux. »
 
-Ces mots étaient courts,
-mais Sion pouvait comprendre presque tout en eux.
+« Quoi ? »
 
-Serakion est différent de l'Empire.
-Du moins en surface.
+Seorin posa la question.
 
-Plus complexe.
-Plus raffiné.
-Cache la violence avec plus d’élégance.
+Alors seulement, Ater regarda Seorin, puis Sion.
 
-Mais c'est précisément à cause de cela,
-Ater a plus de raisons de chercher.
+« Je n'y vais pas pour voir à quel point cela diffère de l'Empire, mais à quel point cela n'en diffère pas. »
 
-Si l'extérieur est si différent et pourtant l'essence ressemble…
-alors ce n'est pas seulement le problème de Serakion.
-Cela pourrait changer le regard qu’il utilise pour regarder son propre Empire.
+Sion non plus ne dit rien et regarda le visage d'Ater. Le coin de ses lèvres s'était durci, plus qu'avant leur arrivée à Hazran, et Sion détourna les yeux.
 
-Ater, recevant le regard de Sion, parla à voix basse.
+La première main de récupération regarda Ater.
 
-« Je ne vais pas voir à quel point c'est différent de l'Empire.
-Je vais voir à quel point ce n'est pas différent. »
+« L'Empire. »
 
-Ces mots étaient froids.
-Mais plus précis pour cela.
-Sion ne dit rien.
-Au lieu de cela, sur le visage d'Ater, il vit
-un froid plus intense qu'avant d'entrer dans Hazran.
+« Oui. »
 
-Ater n'allait pas simplement observer un monde hostile.
-Il était plus proche du côté qui allait récupérer
-une question qui s'ancrerait à son retour dans son propre monde.
+« Là-bas aussi, on choisit ? »
 
-Kael était le dernier.
+« On choisit. »
 
-Dès le début, il avait l'air de quelqu'un qui irait,
-mais étrangement, il ouvrit la bouche en dernier.
+Ater répondit.
 
-Il étudia la carte murale et les itinéraires que les récupérateurs parcouraient depuis longtemps,
-dit alors, très bas.
+« De façon moins jolie. »
 
-« J'y vais aussi. »
+La première enroula la corde une fois de plus.
 
-demanda la vieille machine.
+Kael vint en dernier.
 
-« Raison. »
+Sur le panneau mural qu'il regardait figuraient les itinéraires parcourus par les mains de récupération et les quatre points flous, et à côté, la ligne qui montait, celle que Sern avait tracée sur son panneau d'enregistrement.
 
-Kael resta silencieux pendant un moment.
+Il parla très bas.
 
-Puis, en regardant entre les itinéraires gris dessinés sur le panneau
-et la direction de la conduite en troupeaux de la légion androïde, déclara-t-il.
+« Moi aussi, j'y vais. »
 
-« Pour extraire les gens,
-il faut voir où bloquer et où ouvrir en même temps. »
+La vieille machine demanda.
 
-Un court silence.
+« La raison ? »
 
-Ces mots étaient secs, comme Kael.
-Mais Sion comprit immédiatement qu'il s'agissait d'une phrase assez importante.
+Kael, un instant sans rien dire, regarda tour à tour sur le panneau mural les lignes grises et les marques de direction de la légion androïde.
 
-Kael avait toujours été considéré comme du côté lourd.
-Le côté qui tient jusqu’au bout.
-Mais pour le moment, il ne parlait pas simplement en tant que personne qui bloque.
-Il disait qu'il regarderait ensemble où ouvrir et où bloquer, afin d'économiser.
+« Pour faire sortir des gens, il faut voir en même temps les endroits à bloquer et ceux à ouvrir. »
 
-C'était le jugement d'un bouclier
-et en même temps un pionnier.
+Un bref silence.
 
-La première main de récupération regarda Kael une fois.
+La seconde main de récupération détacha son dos du mur.
 
-Plus longtemps qu'avant.
+« L'escalier. »
 
-« Voyons si le corps correspond aux mots. »
-dit-il, bas.
+Elle s'adressait à Kael.
+
+« Trois de large. Pas de rampe. Ce que j'ai dit hier. »
+
+« Je l'ai entendu. C'est là que tu l'as lâchée. »
+
+« Là. »
+
+Kael hocha la tête et baissa une fois les yeux sur la largeur de ses propres épaules.
+
+Pendant que la première main de récupération regardait Kael plus longtemps qu'avant, la main qui enroulait la corde s'arrêta.
+
+« Voyons si le corps suit, plutôt que les mots. »
+
+Elle parla à voix basse.
 
 Kael répondit brièvement.
 
-« Ouais. »
+« D'accord. »
 
-C'était la fin.
-Mais au cours de ce court échange,
-les deux s’étaient clairement mis mutuellement à l’épreuve.
+Ce fut tout.
 
-Sion regarda entre les trois.
+La première acheva d'enrouler la corde et la lança à Kael ; Kael l'attrapa, en soupesa le poids et se la passa autour de la taille. La première regarda sa façon de l'enrouler, mais ne dit rien.
 
-Jiwoo va voir le monde des mains.
-Ater va confirmer la ressemblance entre l'Empire et Serakion.
-Kael va voir l'équilibre entre la percée et la défense nécessaire pour sauver.
+Sion regarda tour à tour ces trois-là, Han Jiwoo, Ater et Kael. Tous trois regardaient ailleurs : Han Jiwoo ses mains, Ater vers le haut, Kael le panneau mural. À côté, des deux mains de récupération, la première regardait la brèche, la seconde sa propre jambe.
 
-Tous les trois sortent,
-mais pas pour la même raison.
+Luhai parla comme s'il n'en pouvait plus.
 
-Et à cause de ça,
-la combinaison semblait parfaite pour aller ensemble.
+« C'est encore moi qu'on laisse de côté ? »
 
-Puis Luhai parla, comme s'il ne pouvait pas se retenir.
+Aka le regarda la première et dit d'un ton égal.
 
-« Est-ce que je suis encore exclu ? »
+« Toi, même ici, tu ne lâcheras personne. »
 
-Aka le regarda en premier.
-Et elle a dit très calmement.
+Luhai ouvrit la bouche, la referma et regarda vers le passage. Des deux enfants qui regardaient de ce côté, l'un leva la main. Luhai ne leva pas la main, il hocha seulement la tête, et l'enfant baissa la main.
 
-« Tu ne perdrais personne ici non plus. »
+« … D'accord. »
 
-Luhai ouvrit la bouche et la ferma.
+C'était Luhai.
 
-Dans cette courte ligne,
-son visage indiquait qu'il avait déjà réalisé que sa place était prête.
+L'enfant accourut du passage et s'accrocha à la jambe de Luhai.
 
-Sion était pareil.
+« Tu pars pas ? »
 
-Ce n'était pas qu'il ne voulait pas y aller.
-Mais les yeux qui restent à l'intérieur et lisent d'abord les signes de l'effondrement
-– tant du côté humain que machine – étaient nécessaires à l’heure actuelle.
+« Je pars pas. »
 
-Il ne s’agissait plus seulement d’une tâche assignée temporairement.
-C’était plus proche d’une fonction sur laquelle cette ancienne couche avait en fait commencé à s’appuyer.
+« Vrai ? »
 
-Au moment où ceux qui partent et ceux qui restent sont divisés,
-Sion ressentit une sensation totalement différente de celle de quitter Hazran.
+« Vrai. »
 
-À l'époque, rester était une responsabilité.
-Maintenant, rester à lire est aussi une responsabilité.
-La première main de récupération a dit une dernière chose, très brève.
+Même après avoir lâché sa jambe, l'enfant resta à côté ; Luhai posa la main sur la tête de l'enfant et ne la retira pas.
 
-« Nous sortons avant le lever du soleil. »
-« Si nous sommes en retard,
-le côté qui prélève aura fini en premier. »
+Sern leva son panneau d'enregistrement.
 
-C'était un signal de préparation
-et un avertissement.
+« Je reste. »
 
-Serakion bouge déjà.
-Plus joliment.
-Plus précisément.
-Sélectionner et élever les gens plus profondément.
+Personne ne le lui avait demandé, mais Sern le dit.
 
-Donc ce côté aussi
-il faut bouger avant qu'il ne soit encore plus tard.
+« Il convient que celui qui a mémorisé les chemins ne sorte pas. »
 
-A la fin de cette nuit,
-Jiwoo, Ater et Kael commencèrent à se diriger vers le même chemin,
-chacun portant une raison différente.
+La vieille machine regarda Sern et hocha une fois la tête.
 
-Et Sion les regardait et savait.
+Sion savait quelle était sa place ; aussi, au lieu de lever pour la montrer la planchette où étaient marqués seize points, il la garda calée sous son bras.
 
-A partir de là, l'intérieur et l'extérieur de cette ancienne couche
-ne se déplaceraient plus séparément.
+Seorin vint se placer à côté de Sion.
 
-Du moins pas cette fois.
+« Tu restes, donc. »
+
+« Je reste. »
+
+« À Hazran, tu étais parti. »
+
+« À ce moment-là, c'était le moment de partir. »
+
+« Et toi, pourquoi tu restes ? »
+
+Sion posa la question.
+
+« Il faut que quelqu'un reste. Des yeux pour regarder les gens, et des mains pour les protéger. »
+
+« C'est toi, les mains ? »
+
+« Pour l'instant. »
+
+Seorin n'ajouta rien et resta là, entre les cinq qui partaient et ceux qui restaient, à côté de Sion.
+
+La première main de récupération dit brièvement, pour finir.
+
+« Nous sortons avant que la lampe ne s'éteigne. Si nous tardons, ceux qui choisissent auront fini avant nous. »
+
+La lampe jaune clignota, et Sern nota le nombre. Quatre.
+
+Han Jiwoo resserra sa sacoche à outils, à laquelle manquaient deux tournevis. La femme venue avec deux enfants la regardait faire, puis regarda le tournevis serré dans la main de son enfant. Elle le retira à l'enfant et le tendit à Han Jiwoo.
+
+Han Jiwoo secoua la tête.
+
+« Garde-le. »
+
+« Il t'en manque. »
+
+« J'y vais avec ce qui manque. »
+
+La femme remit le tournevis dans la main de l'enfant.
+
+La femme au visage fatigué apporta un paquet de linges et le tendit à Han Jiwoo.
+
+« Ce sera pour dehors. »
+
+Le paquet de linges que reçut Han Jiwoo était de ceux qui n'avaient pas de sang, et il n'en restait presque plus.
+
+« Et vous ? »
+
+« Il en reste. Un peu. »
+
+Han Jiwoo mit les linges dans sa poche.
+
+Depuis le mur, la seconde main de récupération appela Kael. Quand Kael vint, la seconde désigna sa propre poitrine.
+
+« Pour porter quelqu'un sur le dos, la corde ne se met pas ici. »
+
+Elle désigna son aisselle.
+
+« Ici. Attachée sur la poitrine, on ne peut plus respirer. »
+
+Kael regarda la corde enroulée autour de sa taille, la défit et l'enroula de nouveau pour qu'elle passe sous les aisselles. La seconde tira sur le nœud pour l'éprouver.
+
+« C'est bon. »
+
+La vieille machine se plaça devant Ater.
+
+« Quand vous reviendrez, grattez trois fois. »
+
+Elle désigna la plus basse des rainures du mur, celle qui portait des traces de griffures.
+
+« Trois fois. »
+
+Ater le répéta.
+
+« À deux, je n'ouvre pas. À quatre, c'est autre chose. »
+
+« Trois fois. »
+
+La vieille machine hocha la tête.
+
+Ater se retourna une fois vers la sortie obscure, mais personne ne s'y tenait. Sern marcha jusque-là et se tint à cet endroit ; alors Ater se détourna.
+
+Kael resserra une fois encore la corde sous ses aisselles.
+
+Han Jiwoo, Ater et Kael se placèrent devant la brèche, et la première main de récupération se plaça devant eux. La vieille machine posa la main sur les six rainures.
+
+Sion déplia la planchette, regarda les points des trois qui partaient et, sans les effacer, fit seulement une marque à côté. Dehors.
+
+La brèche s'ouvrit de la largeur d'une paire d'épaules, et un air froid et sec entra.
+
+Han Jiwoo fut la première à se tourner de côté. Son épaule racla le bord, et cet endroit s'usa un peu plus. Quand elle entra dans la brèche, Ater la suivit.
+
+Kael tourna les épaules. Ça ne passait pas. Il les tourna davantage. Ça passa.
+
+Quand la seconde main de récupération entra en traînant la jambe, le bruit du frottement résonna dans la brèche. Le bruit de Han Jiwoo qui recevait cette jambe de l'autre côté. La première main de récupération entra la dernière, sans se retourner.
+
+Quand la vieille machine retira la main des rainures, la brèche se referma.
+
+Sur la planchette que Sion regarda de nouveau, il y avait trois points marqués dehors. À la place des machines, il n'y avait pas de points ; il en traça deux de plus. Dehors.
+
+Luhai jeta un œil par-dessus la planchette.
+
+« Ils reviennent quand ? »
+
+« Trois jours. »
+
+C'était ce que Han Jiwoo avait dit tout à l'heure en regardant la jambe de la seconde, et Sion écrivit ces mots sur la planchette.
 
 ---
 

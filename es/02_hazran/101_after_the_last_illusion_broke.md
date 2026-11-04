@@ -76,7 +76,7 @@ Los tres no salieron.
 
 Nasim se detuvo al oírlo.
 
-Solo entonces lo entendió Sion también. Esos tres estaban ahora en el tercer bloque desde atrás. Para que les tocara, el barco tenía que despegar tres veces más. Con tres veces, hoy no les llegaba.
+Solo entonces lo entendió Sion también. Esos tres estaban en la última fila. Para que les tocara, el barco tenía que despegar tres veces más. Con tres veces, hoy no les llegaba.
 
 Luhai estaba a su lado.
 
@@ -128,8 +128,6 @@ Al volver, empujó la espalda de alguien asustado. Mientras empujaba, solo dijo 
 Esas últimas palabras se le quedaron a Sion mucho rato.
 
 Querían decir que había que ir aun sabiendo que no estaba bien. Seguro que aquel chico lo había dicho hoy no sé cuántas veces.
-
-Sion no tardó nada en entender aquello.
 
 Todos los que cavaban eran gente que hoy no podría subir. Los que subirían estaban en la fila, y los que no podrían habían venido aquí. Nadie había dicho que se separaran así, y se habían separado solos.
 
@@ -311,7 +309,7 @@ Sion fue a la tablilla. Las marcas de los despegues seguían en seis. Todavía n
 
 Cinco veces.
 
-Al lado de la raya corta trazó una más. Era la segunda hora.
+Había dos rayas cortas. Era la segunda hora.
 
 Sion fue hacia Aka.
 

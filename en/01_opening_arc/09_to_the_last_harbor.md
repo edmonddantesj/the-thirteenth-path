@@ -141,8 +141,6 @@ Seorin added, low.
 
 "Where Elia is, that's exactly it."
 
-After that one line, the air in the cabin changed a little.
-
 Ater lowered his eyes, very briefly.
 
 "Is it safe there?"

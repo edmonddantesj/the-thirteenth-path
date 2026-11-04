@@ -1,292 +1,209 @@
 # Capítulo 160 — Solo una promesa
 
-El tercer rescate,
-de principio a fin,
-respiraba más cerca del fracaso que del éxito.
+El tercer rescate tardó mucho ya desde la entrada.
 
-Todos lo sabían.
-Esta vez no era simplemente un rescate de entrar una vez más y salir.
+Delante de la brecha, mientras la máquina vieja apoyaba la mano en la ranura, Sion marcó en la tablilla de puntos. Fuera, cuarta vez. Salieron cinco. La segunda mano de recogida se quedó en el lado de dentro de la brecha con la pierna estirada; no se sentó, y se mantuvo de pie con la espalda contra la pared.
 
-Esta vez entraban hacia ese niño.
-Y justo por eso,
-Serakion también cerraría más rápido.
+Kael entró en el camino estrecho girando dos veces los hombros, y la primera mano de recogida lo siguió. No había ruido. No estaba el ruido de la segunda mano. Han Jiwoo, que caminaba al compás de ese ruido ausente, apretó el paso, y Ater le presionó una vez el hombro. El paso se hizo más lento.
 
-Aun así entraron.
+Kael fue el primero en pegar el ojo a la rendija frente a la zona de espera; miró largo rato, se apartó, extendió los dedos, los dobló y volvió a extenderlos.
 
-El tiempo que costó volver a llegar a la fila interior
-fue más largo de lo previsto.
+—Los intervalos son todos distintos.
 
-Tras el primer rescate,
-tras el segundo rescate,
-Serakion no repitió cada vez el mismo error.
+Lo dijo muy bajo.
 
-El intervalo de la línea de relevo se volvió más sucio,
-el modo de hablar de las máquinas de guía se volvió más suave,
-y entre los humanos, para que ahora se cubrieran unos a otros cuando alguien se tambaleaba,
-el propio ritmo de vida estaba reajustado de nuevo.
+—En cada lote. En cada parada.
 
-Por fuera parecía más sereno.
-Pero por dentro,
-esa serenidad estaba más cerca de un encierro más grueso.
+Cuando Ater pegó el ojo, vio que una máquina de guía se detenía delante de un niño, y una voz de una altura que antes no llegaba hasta aquí se oyó por encima de la pared.
+«Puede tomarse su tiempo.»
+Ater se apartó.
 
-Kael esta vez casi no habló.
-Porque la velocidad con que cambiaba el cierre
-se había vuelto más rápida que la velocidad con que él leía el camino.
+—Se ha vuelto más suave.
 
-Ater también redujo la intervención visible.
-Ahora, con solo sacudir la mirada de una máquina,
-Serakion podía usar esa sacudida misma como material de aprendizaje.
+—Entonces es peor.
 
-Han Jiwoo solo miró a ese niño.
+Lo dijo Han Jiwoo.
 
-Y esta vez,
-lo pudo saber más claro.
+—Es peor.
 
-Ese niño también los esperaba.
+Al otro lado de la rendija donde Han Jiwoo pegó el ojo había una fila.
 
-No miraba abiertamente.
-Al contrario, se cuidaba más,
-fingía estar más habituado,
-y mantenía el cuerpo apretado, como si estuviera más dentro del compás de Serakion.
+Niño, adulto, niño, adulto, niño. Entre los adultos que había entre niño y niño estaba el adulto de la mano temblorosa, y el sitio a su lado estaba vacío. Han Jiwoo miró el final de la fila.
 
-Pero justo por eso,
-Han Jiwoo lo supo.
+Ese niño estaba allí.
 
-Aquello no era la calma de un niño que se había rendido.
-Era la calma de quien cree que esta vez quizá de verdad vengan.
+Los pies sobre las huellas, las manos a los lados, la cabeza al frente, con más precisión que antes. El pecho del niño, tal como lo veía Han Jiwoo, parecía subir y bajar con regularidad, pero los hombros subían medio compás antes que la respiración. Eran hombros que fabricaban el aliento.
 
-Esa fe,
-al contrario, dolía más.
+Cuando la fila se detuvo, los pies del niño quedaron exactamente sobre las huellas. Después, la punta del pie se giró hacia este lado el ancho de un dedo, y volvió.
 
-La fila pasó la tercera parada,
-y justo antes de la siguiente línea de relevo
-se abrió una vez un hueco muy breve.
+—Lo vi.
 
-Esta vez ese niño fue primero.
+Lo dijo Han Jiwoo, en un soplo.
 
-De verdad como un instante,
-el pie de ese niño se dirigió hacia fuera antes que el compás que daba Serakion.
+—Yo también.
 
-Han Jiwoo bajó el cuerpo casi a la vez.
-La segunda mano de recuperación entró por el hueco del lado,
-y Ater, también esta vez ni demasiado tarde
-ni demasiado pronto,
-partió la prioridad de reacción de la máquina de guía.
+Lo dijo Ater.
 
-Kael dijo bajo.
+En la segunda parada, la mano del niño se separó del costado. La palma se abrió medio palmo hacia fuera y volvió a pegarse.
+
+—La mano también.
+
+Lo dijo Han Jiwoo.
+
+Kael miraba el pliegue del techo: las dos líneas y otra más al lado. Ya eran tres.
+
+—Añadieron una.
+
+Nadie respondió.
+
+Más breve que antes, Ater entró en el pasillo, dentro de la mirada de una máquina de guía, y pasó sin detenerse. La cara de la máquina lo siguió medio compás y lo soltó; Ater no avanzó más y se pegó a la pared.
+
+Justo antes de la tercera parada.
+
+Justo antes de la línea de relevo, la fila se hizo más lenta, y el adulto de la mano temblorosa se detuvo medio compás tarde. El pie del niño se giró antes que él, medio paso hacia este lado. Esta vez no volvió.
+
+Mientras Han Jiwoo se agachaba, la primera mano entró por la brecha lateral. Ater dio un paso entre dos máquinas de guía, y las caras de las dos máquinas se separaron. Una hacia Ater, la otra hacia la fila.
+
+Kael habló en voz baja.
 
 —Ahora se llega.
 
-De verdad fue así.
+Han Jiwoo tendió la mano. Hasta el niño, tres pasos.
+El pie del niño se despegó de la huella. Un paso.
+La mano de Han Jiwoo, dos pasos.
+La mano del niño subió hacia fuera.
 
-Esta vez no era una distancia lejana como el primero.
-Tampoco había que crear desde el inicio un compás del todo distinto como el segundo.
+Una fila de atrás se plegó.
 
-De verdad, parecía que, con que la mano llegara una vez más,
-se podría sacar a ese niño.
+Sin ruido, antes de lo previsto. Dos máquinas de guía, sin mirarse, se movieron a la vez entre persona y persona. El cuerpo de una máquina se metió entre el hombro de un adulto y el hombro de un niño. El camino seguía abierto, pero el espacio entre ellos se cerró.
 
-Pero Serakion también parecía haber estado esperando ese instante.
+La cara de Kael se endureció.
 
-Una fila de atrás se plegó antes de lo previsto,
-y dos máquinas de guía, esta vez sin mirarse,
-casi a la vez volvieron a estrechar solo el espacio entre los humanos.
+—Ha cambiado.
 
-El modo de cerrar había cambiado.
-Ya no cerraba primero el camino,
-sino que borraba primero el espacio entre persona y persona.
+Lo dijo en voz baja.
 
-El gesto de Kael se rompió por primera vez.
+—Primero cierran el espacio entre ellos.
 
-—Cambió —dijo bajo—.
-Cierran primero los huecos entre ellos.
+El niño ya tenía un pie fuera. Hasta la mano de Han Jiwoo, un paso.
 
-En el instante en que cayeron esas palabras,
-ese niño ya tenía un pie fuera.
+Entonces un niño más pequeño, justo al lado del niño, se fue hacia delante. Al meterse el cuerpo de la máquina en el espacio entre ellos, el cuerpecito salió empujado desde dentro de la fila; dos niños de atrás se tambalearon uno tras otro, y uno cayó de rodillas.
 
-Pero justo al lado,
-otro humano más pequeño perdió el equilibrio.
+La mano de Han Jiwoo fue hacia allí sin que ella se diera cuenta.
 
-El cuerpo pequeño se volcó hacia delante dentro de la fila,
-y dos niños de atrás se tambalearon en cadena.
+Hubo algo más rápido.
 
-Han Jiwoo, casi por instinto, fue a tender la mano también hacia allí.
-Pero más rápido que eso fue
-ese niño que iba a salir hacia fuera.
+Ese niño giró el cuerpo.
+El pie que había salido, otra vez dentro.
+Agarró con las dos manos la espalda del niño pequeño.
+Empujó.
+Hacia la brecha de fuera, hacia Han Jiwoo.
 
-Ese niño se giró primero.
+El niño pequeño entró empujado en las manos de Han Jiwoo, y ella lo recibió y lo sujetó.
 
-Y, asombrosamente rápido,
-empujó al niño más pequeño que él hacia el hueco exterior antes que a sí mismo.
-Era la elección de ceder ese camino corto, ahora abierto,
-primero al más pequeño que él.
+Ese niño llegó medio compás tarde.
 
-En ese instante su propio cuerpo quedó medio compás tarde,
-y la alineación del lado de Serakion empezó a rellenar justo ese hueco.
+El cuerpo de la máquina se metió entre ese niño y el niño pequeño, y el espacio se cerró. Los pies de ese niño volvieron por sí solos sobre las huellas. Las manos a los costados, la cabeza al frente.
 
-En ese instante,
-a Han Jiwoo se le cortó el aliento.
+Ese niño miró a Han Jiwoo.
 
-Aquello no era un reflejo de miedo,
-y tampoco se explicaba solo con la sumisión que enseñaba Serakion.
+Una vez.
 
-Era quien juzgó demasiado rápido
-a quién había que empujar primero,
-a quién había que empujar primero hacia el hueco exterior para que los demás niños se derrumbaran menos.
+Sin girar la cabeza, solo con los ojos, breve. La boca de Han Jiwoo se abrió, pero antes de que saliera ningún sonido, los ojos del niño volvieron al frente.
 
-Estaba más cerca del juicio de los niños que se veía cuando Hazran caía.
+La primera mano de recogida habló en voz baja, desde atrás.
 
-Y ese niño,
-después de empujar al otro niño hacia el hueco,
-miró un instante muy breve hacia Han Jiwoo.
+—Hay que salir ahora.
 
-De verdad un instante.
-Tan breve
-que no cabía en él ni una palabra entera.
+Han Jiwoo no se movió. Sujetaba la muñeca del niño pequeño, y la otra mano se le había quedado en el aire, hacia la fila.
 
-Pero esos ojos eran claros.
+Kael habló como si cortara.
 
-Eran los ojos de quien dice que, aunque no salga esta vez,
-ustedes volverán.
+—Ahora no se le puede sacar. Hay que salir vivos para volver.
 
-Al instante siguiente,
-Serakion volvió a tragarse a ese niño dentro de su compás.
+La mano de Han Jiwoo no bajó del aire.
 
-La primera mano de recuperación dijo bajo, detrás.
+Ater le agarró una vez ese brazo, más arriba de la muñeca, donde estaba el hueso. No fuerte.
 
-—Hay que salir ya.
+—Volveremos.
 
-Aquello no era un juicio, sino un hecho.
+Lo dijo en voz baja.
 
-Si se quedaban más,
-esta vez no se cerraría ese niño solo,
-sino que todos los que habían entrado podían cerrarse juntos.
+Han Jiwoo bajó la mano, agarró con las dos manos la muñeca del niño pequeño y se dio la vuelta.
 
-Han Jiwoo no pudo moverse.
-Más exactamente,
-si iba a moverse, quería moverse para agarrar a ese niño.
+La primera mano cortó el flujo por detrás. Cuando una máquina avanzó medio paso, la primera mano se plantó en ese medio paso. Un compás. Mientras Kael, en la esquina, doblaba los dedos hasta tres, las tres líneas del techo bajaron. No había hombro que sostener, así que no sostuvo nada. No corrió: caminó con el paso de allá.
 
-Pero Kael dijo casi como cortando.
+El tono de guía llegó suave a sus espaldas.
+«Regrese a su posición asignada.»
+Una sola vez; no los persiguió.
 
-—Ahora no se puede sacar.
-—Hay que salir vivos para volver.
+Ante el reborde del camino de abajo, Han Jiwoo subió primero al niño pequeño. Cuando el niño, sobre el reborde, se volvió a mirar hacia la fila, Han Jiwoo le giró la barbilla hacia delante con la mano. Cruzó.
 
-Esas palabras eran crueles,
-y por eso no estaban equivocadas.
+La segunda mano, de pie en la brecha con la pierna estirada, recibió al niño pequeño con una mano, apoyada en la pared. Entraron la primera mano y Ater, y Kael, girando dos veces los hombros, entró el último.
 
-Ater le agarró el brazo a Han Jiwoo una vez.
-No fuerte,
-solo lo justo para hacerle pasar de verdad el último juicio.
+La brecha se cerró.
 
-Y dijo muy bajo.
+Nadie habló.
 
-—Volvemos.
+Han Jiwoo, con la muñeca del niño pequeño en la mano, estaba de pie sin apoyar la espalda en la pared. El niño levantó la vista hacia ella, pero ella no lo miró: miró la pared cerrada.
 
-Esta vez sonó como una promesa.
-No,
-no podía ser sino una promesa.
+Kael se arrodilló y apoyó el puño en el polvo, junto a las líneas. Se quedó así largo rato, mientras los hombros le subían y bajaban, pero no miró las líneas.
 
-Al final no lograron sacar a ese niño y traerlo.
+Ater, con la espalda contra la pared y los ojos cerrados, no se movió en mucho rato.
 
-Este tercer rescate
-fue el que más cerca llegó
-y el que más nítido falló.
+En la tablilla de puntos que sostenía Sion, el tercer punto seguía vacío, y a su lado había una muesca larga. Junto a esa muesca, fuera de la muesca, marcó un punto para el niño pequeño. El tercer punto lo dejó vacío. Tampoco borró la muesca.
 
-Y justo ese fracaso
-se clavó más hondo en los que quedaban.
+Luhai trajo un cuenco de agua y lo dejó delante del niño pequeño. El niño miró el cuenco, miró la mano de Han Jiwoo, y luego tomó el cuenco con una mano y bebió sin derramar.
 
----
+Sion dejó la tablilla y fue hacia la gente de Hazran.
 
-Tras volver al estrato oculto,
-Han Jiwoo no dijo nada durante un buen rato.
+La mujer del rostro cansado estaba sentada con un trapo apretado en la mano, conteniendo el aliento. Cuando Sion, sin decir nada, le puso delante un vaso de agua, la mano que ella levantó tembló. Mientras Sion miraba a otra parte, la mujer tomó el vaso.
 
-Kael, por primera vez, apoyó el puño en el suelo y recobró el aliento largo rato,
-y Ater, apoyado en la pared, con los ojos cerrados, no se movió durante un buen rato.
+Un poco más allá, el hombre sin hermano menor estaba sentado con las manos entrelazadas, y los labios se le movían sin sonido. Era una boca que contaba. Cuando Sion se sentó delante de él, a tres pasos, sin decir nada, los labios del hombre se detuvieron y volvieron a moverse. Sion dejó un vaso de agua en el sitio de al lado, y el hombre miró el vaso. Los dedos se le soltaron.
 
-Pero Sion, en medio de todo eso, no pudo quedarse quieto.
+Aka se sentó delante del niño pequeño y dejó la manga junto a la mano del niño. El niño no agarró la manga: miró la mano de Han Jiwoo, que le sujetaba la muñeca. Aun así, Aka no retiró la manga.
 
-Esta vez él se movió no hacia dentro del grupo de reconocimiento de fuera,
-sino primero hacia la gente que se había quedado.
+Ater abrió los ojos, miró a Sion, sentado delante del hombre, y miró el vaso delante de la mujer. No volvió a cerrar los ojos.
 
-Una mujer humana que había cruzado junto a ellos desde Hazran
-seguía sentada, también esta vez, conteniendo casi el aliento.
+Sern miró el panel de registro.
 
-Cuántos niños habían vuelto,
-cuántos quedaban aún dentro,
-quién iba a entrar de nuevo:
-era la cara de quien, tras oírlo todo, no puede decir nada.
+—La señal…
 
-Sion le puso delante, sin palabras, un vaso de agua.
+Lo dijo Sern.
 
-La mujer no levantó la mano enseguida.
-Sion fingió no ver que esa mano temblaba.
+—…ha disminuido.
 
-Un poco más allá,
-estaba sentado aquel hombre que había dicho que su hermano había desaparecido.
+La primera mano lo miró.
 
-Hoy también tenía la cara de contar números.
-Esta vez dos habían vuelto,
-esta vez quedaba otro más,
-y era la cara de quien sigue tratando de calcular
-qué niños habían ido y venido por dentro y por fuera sin que él lo supiera.
+—Quiere decir que lo han encontrado.
 
-Sion se sentó también, en silencio, ante él.
+—Sí.
 
-No dijo nada en especial.
-En vez de eso, le acercó unas gachas ralas que se podían tragar en lugar de comida,
-y miró largo rato cómo ese hombre se sujetaba las rodillas con las manos vacías.
+Sern respondió.
 
-Tanto el lado de la mujer
-como el del hombre
-eran ahora caras que necesitaban, antes que consuelo, cuidado.
+—Esta vez lo sé.
 
-Y Sion, de forma extraña,
-aceptaba con toda naturalidad que ese cuidado le tocaba a él ahora.
+La máquina vieja despegó el cuerpo del pilar y se colocó ante el panel de la pared. Cuatro puntos borrosos, cinco nítidos. No hizo ninguna marca, y miró la placa del anciano de Hazran, puesta de pie junto al panel de la pared. La cara vacía miraba la pared.
 
-No era porque nadie se lo hubiera mandado.
-Solo que vio primero a quién había que sostener
-para que no se derrumbara aquí y ahora.
+El anciano de Hazran giró esa placa. Un trazo. No trazó el segundo: apretó el único trazo con la punta del dedo y volvió a ponerla de pie.
 
-Ater miró de lejos esa escena.
+La segunda mano, apoyada en la pared, habló sin dirigirse a nadie.
 
-Mientras Han Jiwoo y Kael volvían a calcular el rescate,
-Sion estaba sentado junto a la gente que se había quedado.
-Entre quien contaba a los que habían desaparecido
-y quien comprobaba el aliento de los niños que habían vuelto,
-él se había metido en silencio.
+—¿Lo vieron?
 
-Esa escena parecía poca cosa.
-Pero, de forma extraña,
-parecía que iba a quedar como uno de los paisajes más duraderos
-tras este fracaso de la recuperación.
+—Empujó.
 
-Un niño que no había vuelto,
-y entre él y la gente que aún lo esperaba sin saberlo,
-el paisaje de Sion sentado primero.
+Lo dijo Han Jiwoo.
 
-Al final de aquel día,
-nadie llamó éxito a este rescate.
+Eran las primeras palabras que decía.
 
-Porque no habían traído al niño,
-y, al contrario, habían vuelto del modo más doloroso, dejando solo una promesa.
+—En su lugar.
 
-Pero a la vez,
-nadie pudo llamarlo tampoco una derrota completa.
+La segunda mano no preguntó más.
 
-Ese niño había mirado claramente hacia aquí,
-había empujado primero a otro niño hacia el hueco,
-y había quedado con ojos de que volverían.
+Aunque la lámpara amarilla parpadeaba, el niño pequeño la miraba desde abajo sin parpadear. Han Jiwoo lo vio y aflojó la mano que le sujetaba la muñeca, y la mano del niño quedó vacía. El niño miró esa mano vacía y volvió a agarrar la mano de Han Jiwoo. Por sí mismo.
 
-Así que esto no era un fracaso terminado,
-sino el fracaso que se volvía la razón
-para entrar de nuevo, ahora sí, una última vez.
-
-Y aquella noche,
-lo que quedó dentro del estrato oculto no fue solo herida.
-
-Quién seguía aún dentro,
-quién los esperaba,
-y quién sostenía ese espacio en silencio
-se volvió mucho más nítido que antes.
+Han Jiwoo apoyó la espalda en la pared y no cerró los ojos. La pared cerrada, las huellas detrás, los pies encima. Sin poder verlos, miró esos pies.
 
 ---
 

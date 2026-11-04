@@ -46,8 +46,6 @@ Aka gave a short nod.
 she said.
 "Only the shape ends up the same."
 
-To Sion the sentence sounded like an explanation of all of Hazran.
-
 Things that came to look alike only on the outside.
 The thing pretending to be a door.
 The flames that pretended to live.
@@ -203,8 +201,6 @@ Instead she spoke, very low.
 she said.
 "Making it move is next."
 
-Sion soon knew why those words came in strangely larger.
-
 What could be done in here now went only as far as holding it so it didn't die.
 Actually lifting off,
 riding the path
@@ -226,14 +222,6 @@ Instead, only after looking once into the deeper dark behind the hull, and once 
 "Before we go out,"
 she said,
 "there's one more thing to see first."
-
-Sion knew that wasn't just more explanation.
-
-It meant this inside still had an inside of its own,
-and that before any way to save the hull,
-there was something more left to show why this path was not completely dead yet.
-
-And now, for the first time, Aka was thinking of showing them even that next threshold.
 
 ---
 

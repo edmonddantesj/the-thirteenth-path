@@ -234,10 +234,6 @@ No, one of those was wrong. He had just heard that without it, a wrist cooked.
 
 And in Seorin's pocket there was one that would last half a year.
 
-Strangely, he had a feeling those two would stay with him longer than this whole evening's Bazaar.
-
-Like a distance that had always been there and was only now coming into view.
-
 ---
 
 <sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

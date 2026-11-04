@@ -28,7 +28,7 @@ Kael posa la question.
 
 Han Jiwoo ne sut pas répondre.
 
-Sion savait ce qu'était ce silence. Ce que Han Jiwoo avait dit la veille revenait tel quel. Sans nom, on ne peut pas le passer à la personne suivante. En cet instant, Han Jiwoo ne parvenait même pas à faire passer, de ses propres mains, ce qu'elle venait de vivre.
+Sion savait ce qu'était ce silence. Ce que Han Jiwoo avait dit tout à l'heure revenait tel quel. Sans nom, on ne peut pas le passer à la personne suivante. En cet instant, Han Jiwoo ne parvenait même pas à faire passer, de ses propres mains, ce qu'elle venait de vivre.
 
 Appuyé à la rambarde, Sion reprit son souffle.
 
@@ -76,8 +76,6 @@ Ater posa la question.
 « Non. »
 Sern répondit.
 « Si nous les avions semés, il resterait des traces. »
-
-Ces mots étaient plus inquiétants encore.
 
 Les avoir semés, cela se comprenait. Les avoir trompés, cela avait un sens aussi. Que rien ne s'explique voulait dire que ce vaisseau avait bougé en dehors de la poursuite et de l'esquive.
 
@@ -129,7 +127,7 @@ C'était la phrase minimale sur laquelle les gens présents pouvaient tout juste
 
 En l'entendant, Sion regarda vers le sol.
 
-Huit personnes de Hazran étaient collées à la paroi. Elles avaient penché avec le vaisseau, et depuis que le calme était revenu, elles n'avaient rien dit.
+Huit personnes de Hazran étaient assises, adossées à la paroi. Elles avaient penché avec le vaisseau, et depuis que le calme était revenu, elles n'avaient rien dit.
 
 L'une d'elles se leva lentement et marcha jusqu'au sol nu devant ce panneau.
 
@@ -149,7 +147,7 @@ Ces gens en savaient plus qu'eux sur ce vaisseau. Mais ils n'avaient pas l'inten
 
 Sion alla vers Aka.
 
-« Hier, tu as dit que si on lui donne un nom, c'est fini. »
+« Tout à l'heure, tu as dit que si on lui donne un nom, c'est fini. »
 
 Aka ne quittait pas cet endroit des yeux.
 
@@ -169,7 +167,7 @@ Aka n'avait pas dit ce que c'était. Elle avait seulement dit ce que cela avait 
 
 C'étaient donc des mots qui ne refermaient encore rien.
 
-Ce n'est qu'alors que Sion comprit que c'était la même façon de faire que Han Jiwoo, la veille, laissant telle quelle la ligne vide de sa liste. Laisser vide, écrire *pas encore*, ne dire que ce qui a été fait. Trois façons de ne pas clore.
+Ce n'est qu'alors que Sion comprit que c'était la même façon de faire que Han Jiwoo, tout à l'heure, laissant telle quelle la ligne vide de sa liste. Laisser vide, écrire *pas encore*, ne dire que ce qui a été fait. Trois façons de ne pas clore.
 
 L'extérieur miteux, les traces de raccords, les cadres brisés.
 
@@ -179,7 +177,7 @@ En dessous, il y avait un ordre plus ancien que personne ne connaissait encore, 
 
 ---
 
-À bord du vaisseau de traque de l'Empire, les mêmes phrases firent un moment l'aller-retour.
+Entre la salle du commandant du vaisseau amiral impérial et le vaisseau de traque, les mêmes phrases firent un moment l'aller-retour.
 
 « Revérifiez la dernière trajectoire. »
 
@@ -215,7 +213,7 @@ C'était le commandant.
 
 L'officier des registres corrigea l'entrée.
 
-C'était le registre où, quelques jours plus tôt, la même main avait écrit *inconnu* au lieu du nombre de personnes. Cette fois, le même mot entra aussi du côté du vaisseau.
+C'était le registre où, la veille, la même main avait écrit *inconnu* au lieu du nombre de personnes. Cette fois, le même mot entra aussi du côté du vaisseau.
 
 Au même moment, du côté du réseau de surveillance de l'Alliance, c'était à peu près pareil.
 
@@ -239,7 +237,7 @@ Ce n'était pas un rapport d'erreur. Cela tenait plutôt d'un avis de révision 
 
 « À partir de maintenant, ne classez plus les choses d'après leur forme visible. »
 
-Puis Kanus reprit la feuille qu'elle avait poussée de côté quelques jours plus tôt.
+Puis Kanus reprit la feuille qu'elle avait poussée de côté la veille.
 
 La feuille où étaient inscrits les morts et les disparus. Celle qu'elle avait appelée des chiffres clos.
 
@@ -280,6 +278,14 @@ Les seize étaient encore tous là, à l'intérieur. Dehors, on ne voyait rien ;
 Mais une chose différait de tout à l'heure.
 
 Jusqu'ici, ce vaisseau n'avançait que si des gens le poussaient. Ce n'était plus le cas.
+
+C'est alors que Sion le vit.
+
+Au fond de la coque, dans une fente de la paroi que personne n'avait touchée, flottait une petite lumière. Pas plus grande qu'un ongle.
+
+Une lumière de terre brûlante. Comme le sol de Hazran en plein midi.
+
+La lumière ne restait pas immobile. Elle penchait, très légèrement, vers l'avant. Du côté où se trouvait la planète des machines.
 
 Hazran avait fermé.
 

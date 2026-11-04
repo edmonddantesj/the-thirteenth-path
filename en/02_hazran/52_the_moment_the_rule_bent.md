@@ -232,8 +232,6 @@ At the same time, the air beneath the heat layer twisted hard a third time.
 
 This time several of the lights that pretended to be alive burst upward at once and began tearing to shreds the very approach lines that had still been left a moment ago.
 
-And Sion knew.
-
 The rule had just bent first.
 
 ---

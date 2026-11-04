@@ -65,7 +65,7 @@ Kael le demanda.
 
 « J'ai pas compté. Si tu comptes, tu restes planté là. »
 
-Kael compta en ne remuant que les lèvres, les yeux sur les rainures, et s'arrêta à vingt. Il y avait encore une rainure après, et il s'arrêta là.
+Kael compta en ne remuant que les lèvres, les yeux sur les rainures, et s'arrêta à vingt. Il y avait encore une rainure après, mais il ne compta pas plus loin.
 
 Han Jiwoo regardait aussi, et son regard s'attarda longtemps sur un visage où il n'y avait rien. Elle regarda le visage du dernier androïde, le trait pâle qu'un enfant y avait dessiné, puis revint à cet autre visage.
 Rien.
@@ -77,7 +77,7 @@ Le dernier androïde regarda cette main, la poche intérieure, puis la désigna 
 
 Han Jiwoo le dit.
 
-« Ce n'est pas à toi. C'est à celui d'avant toi. »
+« Ce n'est pas à toi. C'est à celui qui est parti avant. »
 
 Le doigt se retira.
 

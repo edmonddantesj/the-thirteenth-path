@@ -1,536 +1,206 @@
 # Capítulo 206 — No un abandono
 
-La reconstrucción del interior de Serakion
-iba tomando forma de a poco.
-
-Aún había muchos sectores caídos,
-y los restos por retirar no tenían fin,
-pero ahora la gente, al menos,
-ya sabía dónde poner qué
-y desde dónde había que empezar de nuevo, y así se movía.
+La reparación iba tomando forma.
 
-Las máquinas
-revivieron la línea de energía provisional y el eje auxiliar de elevación,
-los humanos
-separaban los materiales salvables de los restos por desechar,
-y los androides
-cortaban callados
-las viejas huellas de alineación
-que aún quedaban hondo dentro de Serakion.
+Las máquinas revivieron las líneas provisionales de energía y los ejes auxiliares de elevación.
+Los humanos separaron los materiales que se podían salvar de los restos que había que tirar.
+Los androides iban cortando, uno por uno, los rastros de alineación que quedaban en lo hondo.
 
-Y más arriba de eso,
-hasta el hangar del estrato alto largo tiempo cerrado,
-al fin se abrió un camino.
+Un robot noble bajó, avisó en pocas palabras de que el camino se había abierto aún más arriba, hasta el hangar del estrato superior, cerrado durante mucho tiempo, y se volvió.
 
-Cuando esa noticia llegó abajo,
-la primera en alzar la cabeza fue Aka.
+Aka, la primera en alzar la cabeza, miró un rato hacia arriba.
 
-Ella, un rato sin decir nada,
-miró hacia arriba,
-y muy bajo dijo.
+—Ahora hay que irse.
 
-—Ahora hay que ir.
+Nadie volvió a preguntar.
 
-Nadie repreguntó enseguida.
+Subieron Sion, Seorin, Sern, Ater, Han Jiwoo, Kael, Luhai, Aka, el último androide y, además, unos cuantos supervivientes de Hazran y los niños. La primera mano de recogida y la segunda se quedaron abajo: por la pierna de la segunda, y la primera, a su lado.
 
-Todos lo sabían.
+El sector más alto estaba en silencio y olía a algo cerrado durante mucho tiempo. Al llegar ante el hangar, lo que los detuvo a todos no fue nada desconocido.
 
-Que algo termine
-no cierra por sí solo todos los caminos.
-Que algún camino
-solo se abre después de terminar.
+Una nave.
 
-El grupo de Sion
-y algunos sobrevivientes de Hazran,
-Luhai,
-Aka,
-Han Jiwoo,
-Kael,
-Sern,
-Ater,
-y el último androide
-subieron por ese camino.
+Era el barco en que habían subido al dejar Hazran, viejo y destartalado, el que los había traído hasta aquí.
 
-El sector más alto
-era otra vez distinto de la Serakion cruzada hasta ahora.
+Pero estaba distinto. El polvo viejo del casco había desaparecido, y los bordes del revestimiento desgarrado estaban recortados rectos. Junto a la escalerilla rota habían retirado los restos, y las esquirlas afiladas estaban reunidas a un lado, en orden. En el sector de mantenimiento, las piezas que se podían salvar y los trozos cambiados estaban colocados en fila.
+Demasiado en fila.
 
-Allí era más callado,
-más tiempo había estado cerrado,
-y de un modo raro
-quedaba un aliento de después de que alguien se fue.
+Sern fue el primero en hablar, en voz baja.
 
-Pero cuando se pararon ante el hangar,
-lo que primero los detuvo a todos
-no fue algo extraño.
+—…Alguien ha puesto las manos en ella.
 
-Fue algo familiar.
+Kael rodeó el casco palpando con la mano las junturas del revestimiento, pero no había nada arrancado a la fuerza. Vio un tornillo al que le faltaba media vuelta, y aun así no lo apretó.
 
-Lo que allí estaba
-era la mismísima nave
-en que el grupo partió al dejar Hazran por primera vez.
+—Son manos que lo hacían por primera vez.
 
-Demasiado vieja,
-destartalada,
-que parecía apenas aguantar,
-pero que al final los trajo hasta aquí, esa nave.
+Lo dijo Kael.
 
-Pero era raro.
+—Manos cuidadosas.
 
-Estaba distinta de antes.
+—¿De quién habla?
 
-El polvo viejo que cubría el casco estaba casi retirado,
-y el revestimiento exterior rasgado y colgante
-estaba ordenado lo más recto posible.
+Lo preguntó Sern.
 
-Los restos apilados junto a la escalera rota estaban retirados,
-y las esquirlas afiladas, peligrosas a ojos de cualquiera,
-estaban juntadas prolijas a un lado.
+Kael señaló con la barbilla hacia los robots nobles.
 
-Hasta
-el sector de mantenimiento de alrededor, antes la desidia misma,
-tenía las piezas salvables y los trozos reemplazados
-puestos de un modo raramente pulcro.
+—Los de las manos largas.
 
-Sern fue el primero en decirlo, bajo.
+Luhai entrecerró los ojos.
 
-—…Alguien lo tocó.
+Los robots nobles que estaban a ambos lados del hangar retrocedieron en silencio un paso cada uno y abrieron el paso. Uno medio paso, otro un paso entero: no tenían el mismo ángulo, y así retirados miraban al grupo y al barco.
 
-Kael, sin decir nada, observó alrededor.
+Han Jiwoo contempló un rato aquel panorama.
 
-No era huella de un arreglo forzado.
-Más bien
-estaba cerca de la huella de un ser
-no habituado a reparar
-que por primera vez trató con cuidado algo roto.
+—…Así que hicieron esto.
 
-Luhai entornó lento los ojos.
+Al frente de los robots nobles que miraba Aka estaba el robot que había recibido al grupo la primera vez. Tenía las comisuras alzadas como aquella vez, pero no como aquella vez. Las comisuras bajaban y volvían a subir, sin poder quedarse quietas. Han Jiwoo miró esas comisuras. Cuando llegaron por primera vez, alguien había dicho algo.
+Una hoja que solo aprendió a sonreír.
+La hoja estaba plegada.
 
-Y entonces,
-los robots nobles que estaban a ambos lados del hangar
-retrocedieron muy callados un paso cada uno.
+Ese robot inclinó la cabeza con torpeza, demasiado hondo. La alzó a medias y la volvió a inclinar. Si era un saludo o una disculpa.
 
-Era un gesto de ceder el paso.
+Luhai chasqueó la lengua bajito.
 
-No estaban en un ángulo perfectamente alineado,
-ni en la postura de antes, con la sola cortesía hueca.
+—Esto sí que es raro.
 
-Se hacían a un lado con cuidado,
-y miraban sin más
-a la nave y al grupo de Sion.
+Casi no había burla.
 
-Si eso era expiación,
-o cuidado hacia los que parten,
-o una primera acción hecha sin distinguir ambas cosas,
-nadie lo sabía.
+—¿Dónde habrán aprendido a arreglar cosas?
 
-Solo había algo claro.
+Lo dijo Han Jiwoo.
 
-Los que no habían aprendido a reparar,
-ahora reparaban algo por primera vez.
+—No aprendieron.
 
-Eso no era un restablecimiento perfecto,
-ni una reparación fina.
+Lo dijo Kael.
 
-Ordenar lo destartalado
-a su modo, lo mejor que pudieron,
-retirar lo peligroso,
-y dejar libre el paso para que los que parten se lastimen menos:
-un arreglo torpe de ese tipo.
+—Por eso le falta media vuelta.
 
-Pero por eso mismo, al contrario,
-era más extraño y más nítido.
+Han Jiwoo también miró ese tornillo, pero no lo apretó.
 
-Han Jiwoo miró un rato ese paisaje.
+Cuando Sion caminó hacia la nave, el último androide caminó a su lado. En el instante en que el último androide se paró ante el barco, el aire del hangar tembló levemente; pasó mucho rato sin moverse, sin poder alzar la mano, y luego levantó la punta de los dedos y la apoyó en el casco.
 
-Y muy bajo dijo.
-
-—…Hicieron esto.
-
-Aka, al lado,
-miró lento a los robots nobles.
-
-Al frente de ellos
-estaba el robot
-que recibió al grupo la primera vez.
-
-El de antes
-era una cuchilla que solo aprendió a sonreír.
-
-La forma de la comisura estaba curvada en sonrisa,
-pero esa sonrisa no era un gesto para tranquilizar a la gente,
-sino un filo para acercarse más liso.
-
-Pero el de ahora estaba distinto.
-
-Todavía había algo afilado en él.
-Todavía no se había vuelto un ser del todo suave.
-
-Pero ese filo
-ya no estaba recto como el metal.
-
-Estaba como plegado en algún sitio,
-como tembloroso en algún sitio,
-y parecía un ser que por primera vez
-empezaba a aprender a la vez expresión y rostro.
-
-Ya no una cuchilla que solo aprendió a sonreír,
-sino algo como un cuchillo de papel
-que ahora aprendió sonrisa y rostro.
-
-Ese robot,
-tras mirar un rato al grupo de Sion,
-muy torpe,
-pero sin duda
-bajó la cabeza.
-
-Estaba cerca de un saludo.
-
-Pudo haber estado cerca de una disculpa.
-
-O quizá fueron ambas cosas.
-
-Luhai, al ver eso,
-chasqueó muy bajo la lengua.
-
-—Sí que es raro.
-
-Pero esta vez
-en esa palabra casi no había burla.
-
-Sion, sin decir nada,
-caminó lento hacia la nave.
-
-El último androide
-también se movió a su lado.
-
-En el instante en que se paró ante la nave,
-el aire dentro del hangar
-tembló muy mínimo.
-
-Esa nave
-no era un hallazgo nuevo.
-
-Pero tampoco por eso
-era la misma de antes.
-
-El barco que hizo posible la primera partida,
-ahora, para hacer posible la próxima partida,
-estaba reordenado
-por las manos torpes de alguien.
-
-Eso mismo
-sujetaba el corazón raramente largo.
-
-El último androide
-un momento no pudo alzar la mano y se quedó quieto.
-
-Poco después,
-lento alzó la punta de los dedos
-y tocó la superficie del casco.
-
-En ese instante,
-un rayo de luz que quedaba hondo dentro del casco
-revivió muy lento.
-
+En lo hondo del interior del casco revivió despacio un hilo de luz.
 Una línea.
 Otra línea.
+Una respuesta de algún lugar del barco resonó grave por el hangar.
 
-Una respuesta dormida en algún sitio de la nave
-resonó callada por el hangar
-como un aliento que despierta demasiado tarde.
+Ater siguió esa luz con cara de quien lee, mirando largo rato el costado del casco, y aun así durante un rato no dijo nada.
 
-Ater, siguiendo esa luz,
-miró largo el costado de la nave.
+—Esto… es más antiguo de lo que pensaba.
 
-Parecía estar leyendo algo,
-pero al final no lo dijo todo en voz alta.
-
-En cambio, muy callado, dijo.
-
-—Esto…
-tiene una veta más antigua de lo que parece.
-
-Sern preguntó enseguida.
+Lo preguntó Sern.
 
 —¿Qué quiere decir?
 
-Ater calló un momento,
-y sin quitar la vista, respondió.
+Ater no apartó la mirada.
 
-—Ahora no puedo decirlo todo. Pero lo cierto es que esta nave no quedó solo con la forma que conocíamos.
+—Ahora no puedo decirlo todo. Pero lo que es seguro es que esta nave no se ha conservado solo con la forma que conocíamos.
 
-A Aka le temblaron los ojos.
+A Aka le temblaron los ojos, pero no lo sacó como si fuera la respuesta. Miró alternadamente al último androide y al barco, y soltó el aire.
 
-Ella también
-parecía haber sentido algo,
-pero no lo sacó a la fuerza como una respuesta.
+Han Jiwoo habló en voz baja.
 
-En cambio,
-mirando alternando al último androide y la nave,
-exhaló muy bajo.
+—Así que por eso te detuviste así aquí.
 
-Entre esos dos
-había una respuesta demasiado antigua
-que la explicación no alcanzaba a sujetar.
+Como el último androide no apartaba la mano del casco, la luz se avivó una vez bajo esa mano.
 
-Una sensación de la clase en que
-hay más de lo que aún no se debe decir
-que de lo que se puede decir.
+—¿También fue así cuando llegaste la primera vez?
 
-Han Jiwoo, mirando esa escena,
-muy callada dijo.
+Lo preguntó Sion.
 
-—Así que por eso te detuviste aquí de ese modo.
+Sin apartar la mano del casco, el último androide negó con la cabeza.
 
-Esas palabras no eran una explicación,
-sino algo cerca de atrapar
-una sensación que solo ahora se hilvana vaga.
+Aka se acercó y se puso al lado. Estuvo así un rato, y luego habló en voz baja.
 
-Poco después,
-Aka caminó lento junto al último androide.
+—Ya va siendo hora de que tengas un nombre.
 
-Ella se quedó un rato a su lado.
+Mientras se reunían las miradas, el último androide se volvió muy poco hacia Aka.
 
-Y muy bajo dijo.
-
-—Ahora tienes que tener un nombre.
-
-Las miradas de alrededor
-se reunieron calladas hacia allá.
-
-El último androide
-se giró muy mínimo hacia ella.
-
-Aka, tras tomar un momento el aliento,
-con voz que no temblaba, dijo.
+Aka acompasó la respiración.
 
 —Serakion.
 
-Ese nombre
-no sonaba a superponer sin más
-el nombre del planeta roto.
+Nadie respiró.
 
-Más bien
-sonaba a devolver por primera vez, cerca de su primer sentido,
-un nombre largo tiempo estropeado.
+—No el nombre que quedó como cárcel. Un nombre más cerca de lo que quiso decir al principio.
 
-Aka siguió.
+Pasó mucho tiempo sin moverse. La mano sobre el casco, y Aka. Después, despacio, inclinó la cabeza tan poco que casi no se veía. Han Jiwoo, mirando esa cabeza inclinada, puso la mano sobre el nudo.
+Lo tocó. La retiró.
 
-—No el nombre que quedó como prisión. Un nombre cercano a su primer sentido.
+Serakion.
 
-Serakion
-permaneció inmóvil muy largo rato.
+Después de eso, los movimientos se separaron. Parte de los supervivientes de Hazran decidió llevarse a los niños y a unos cuantos androides para ver si podían revisar otra nave. Volver a Hazran, a la Hazran a la que no se podía volver, y empezar desde el suelo. Mientras la mujer que vino con dos niños se preparaba para irse con tres, el hombre sin hermano menor se puso del mismo lado que su hermano, y el anciano de Hazran tomó la placa con los diecisiete trazos.
 
-Y luego, de verdad mínimo,
-tan lento que casi no se veía,
-bajó la cabeza.
+También hubo quienes se quedaban.
+Parte de las máquinas.
+Parte de los humanos.
+Parte de los androides.
+Eran los que habían decidido no dejar abandonadas estas ruinas. Se quedaron la máquina del lado de la pared, la primera y la segunda, y la mujer del rostro cansado.
 
-Era un movimiento más hondo
-que decir que aceptaba.
+La máquina del lado de la pared miró la puerta del hangar.
 
-Desde ese instante,
-los movimientos de los que debían quedarse
-y de los que debían partir
-empezaron a separarse de a poco.
+—Haré que los barcos puedan posarse. Los que salen. Los que entran.
 
-Algunos de los sobrevivientes de Hazran,
-llevando a los niños y a algunos androides,
-empezaron a ver si podían revivir otra nave.
+Luhai oyó eso y chasqueó la lengua.
 
-Ellos debían prepararse para volver a Hazran.
+—Lo que hay que ver. Ahora resulta que quieren convertir la cárcel en un puerto.
 
-Llevando a los que sobrevivieron,
-llevando a los niños,
-aunque ya no pudieran volver a la Hazran de antes,
-tenían que volver
-y empezar de nuevo desde el suelo.
+Y enseguida añadió, sereno.
 
-Al revés,
-había quienes decidieron quedarse en Serakion.
+—…Aun así, eso es mejor.
 
-Parte de las máquinas,
-parte de los humanos,
-y parte de los androides
-decidieron no dejar abandonada esta ruina enorme.
+Sion alzó la cabeza y, sin decir nada, asintió.
 
-Serakion, ahora,
-no debía quedar solo como prisión.
+Seorin miró a los que se quedaban: la máquina del lado de la pared y la mujer del rostro cansado.
 
-Había que volver este sitio
-en un punto de enlace que uniera de nuevo,
-en un puerto que conectara los caminos rotos,
-en un sitio donde algún día
-pudiera empezar un nuevo ir y venir.
+—Dejen la placa de abajo.
 
-Luhai, al oír esa charla,
-chasqueó corto la lengua.
+Lo dijo Seorin.
 
-—De todo se ve. Con eso de cambiar una prisión por un puerto.
+—Las cinco piedras, todas.
 
-Pero lo que añadió justo después de esas palabras
-fue inesperadamente sereno.
+El ojo óptico de la máquina del lado de la pared subió y bajó.
 
-—…Aun así, es mejor.
+Del borde del hangar llegaron unos pasos pequeños. El niño que primero había puesto líneas en la cara de Serakion se acercó despacio tras vacilar, y los adultos no intervinieron. La mujer que vino con dos niños alzó la mano y la bajó.
 
-Sion, al oír esas palabras,
-alzó callado la cabeza.
+El niño alzó la vista hacia Serakion durante un rato.
 
-Cierto.
-Es mejor.
+—¿Tienes que irte?
 
-No terminar solo en derribar,
-sino ir ahora hacia dejar algo distinto.
+El hangar quedó en silencio. Mientras Aka contenía el aliento y Han Jiwoo bajaba la cabeza, Sion no podía apartar la mirada.
 
-Quizá esa fuera la razón
-de haber sobrevivido hasta aquí.
+Serakion no se movió enseguida: apartó la mano del casco y miró al niño. Mientras miraba hacia las caras que habían dibujado los niños, hacia las manos que habían retirado juntas los restos, el cuerpo se balanceó muy poco hacia el lado del hombro caído.
 
-Poco después,
-en el borde del hangar
-se oyeron unos pasitos muy familiares.
+Alzó la mano despacio. Se detuvo cerca de la cabeza del niño. No la tocó.
+Las puntas de los dedos temblaron.
+Por primera vez.
+El niño no lloró; solo miraba esa mano con los ojos muy abiertos.
 
-Como siempre,
-ese niño, tras vacilar largo,
-caminó lento hacia Serakion.
+Serakion se llevó esa punta de los dedos al pecho, la apoyó y luego señaló a lo lejos, hacia la nave. No hubo palabras.
 
-Fue la mano que una vez
-le puso primero una línea temblorosa en la cara.
-El niño que después de eso también
-se quedó a menudo a su lado sin preguntar por qué.
+El niño siguió esa mano hasta el barco y volvió a mirar a Serakion. Tuvo un buen rato los labios apretados y, al fin, preguntó muy bajito.
 
-Los adultos de alrededor,
-esta vez, ninguno se metió primero.
+—¿Vuelves?
 
-El niño, un rato sin poder decir nada,
-alzó la vista hacia Serakion.
+Serakion no vaciló.
+Asintió. Despacio, con claridad.
+Una vez.
 
-Y al fin,
-muy callado, preguntó.
-
-—¿No puedes quedarte?
-
-Esa pregunta,
-de tan simple,
-al contrario dejó todo el hangar en silencio.
-
-Aka contuvo muy mínimo el aliento,
-Han Jiwoo bajó la cabeza,
-y Sion tampoco apartó los ojos.
-
-Serakion no se movió enseguida.
-
-Pero ese silencio
-no era un silencio sin vacilación.
-
-Más bien
-estaba cerca de la pausa de un ser
-que por primera vez se inclina de verdad
-hacia querer quedarse.
-
-El tiempo pasado con ese niño.
-Los rostros que los niños dibujaron.
-Las manos que retiraron restos juntas.
-Los androides que empezaron a aprender a reír de nuevo.
-La gente que apenas se reencontró.
-
-Todo eso
-ataba aquí a Serakion.
-
-Se sacudió muy mínimo.
-
-Si pudiera no partir,
-si pudiera quedarse aquí,
-eso sería sin duda
-una elección dulce.
-
-Pero justo por eso
-lo sabía.
-
-Que no podía detenerse solo aquí.
-
-Que una pausa como la suya
-quizá quedara aún en otros sitios.
-Que en alguna parte
-quizá hubiera cosas que esperan la mano de alguien.
-
-Así como ese niño
-le había puesto una línea en la cara,
-ahora también le tocaba
-ir a otro sitio.
-
-Serakion alzó despacio la mano.
-
-Y muy cuidadoso,
-la detuvo cerca de la cabeza del niño.
-
-No la tocó.
-
-Pero esta vez esa punta de los dedos
-temblaba sin duda.
-
-El niño no lloró.
-
-En cambio, solo con los ojos agrandados,
-miró esa mano.
-
-Serakion se detuvo un momento,
-y luego llevó despacio la punta de sus dedos
-hacia su propio pecho.
-
-Y otra vez
-la movió muy lejos,
-hacia la nave.
-
-No hubo palabras.
-
-Pero con eso bastaba.
-
-El niño también entendió.
-
-Quiero quedarme aquí.
-Aun así debo ir.
-Y este partir
-no es partir para abandonar.
-
-El niño, tras apretar los labios,
-muy pequeño preguntó.
-
-—¿Vas a volver?
-
-Serakion, esta vez,
-no vaciló ni un poco.
-
-Lento,
-pero claro,
-asintió.
-
-Ante ese único gesto
-el niño al fin rió.
-
-Tenía cara de ir a llorar,
-pero, raro, lo primero que salió fue la risa.
+El niño sonrió. Tenía cara de ir a llorar, pero lo primero que salió fue una sonrisa.
 
 —Entonces está bien.
 
-Al terminar esa frase,
-del borde del ojo de Aka
-cayó lento un pequeño rastro de humedad.
+Del rabillo del ojo de Aka cayó despacio una gota, pero no se la secó.
 
-Pero eso no era lágrima de desesperación.
+Han Jiwoo rodeó con el brazo los hombros del niño.
 
-Era de las que se forman sin remedio
-ante un tiempo que llegó demasiado tarde
-y aun así al fin empezó a fluir en la dirección correcta.
+Luhai, mirando a lo lejos, masculló.
 
-Han Jiwoo abrazó callada el hombro del niño,
-y Luhai, mirando sin más hacia lejos, murmuró.
+—Más te vale volver. Si no vuelves, entonces sí que no te lo perdono.
 
-—Ven sin falta. Si no vienes, ahí sí no te lo perdono.
+Unos cuantos rieron bajito.
 
-Varios de alrededor
-rieron muy pequeño ante esas palabras.
-
-Serakion, oyendo ese sonido,
-muy despacio se volvió hacia todos.
+Serakion se volvió a mirarlos a todos.
 
 Sion.
 Seorin.
@@ -543,82 +213,31 @@ Aka.
 Los niños.
 Las máquinas.
 Los humanos.
-Y los androides que iban recobrando su rostro.
+Los androides que iban recobrando la cara.
 
-Ahora lo sabe.
+Uno a uno, despacio. El ojo óptico, un compás para cada uno.
 
-Su partida
-no es para cortarse de ellos,
-sino para seguir la misma dirección de ellos
-más lejos.
+Más allá del hangar se veían las ruinas del estrato superior, y en algún lugar, debajo, la gente se movía.
+Las máquinas arreglando los caminos.
+Los niños corriendo.
+Los androides mirándose las caras unos a otros.
 
-El estrato alto de Serakion visto fuera del hangar
-seguía en ruinas,
-pero en algún sitio de abajo
-ya se movía gente,
-las máquinas reparaban caminos,
-los niños corrían,
-y los androides
-se volvían a mirar el rostro entre ellos.
-
-Eso ya no era
-el paisaje de una estrella muerta.
-
-Justo antes de partir,
-Sion miró una vez, más allá de la nave,
-hacia la Serakion que apenas empezaba a volverse un puerto.
-
-Y muy callado dijo.
+Justo antes de partir, Sion miró a Serakion desde el pie de la escalerilla. El niño, que seguía de pie en el suelo del hangar, habló muy bajito.
 
 —Ve y vuelve.
 
-Fueron palabras cortas.
+Ante esas palabras cortas, Serakion giró el cuerpo muy poco hacia el niño y se detuvo, y el ojo óptico se quedó un compás en el niño.
 
-Pero eso no era un adiós de desprenderse ahora.
-Estaba más cerca de decir que,
-aun en el camino de partir juntos,
-algún día se puede volver a este sitio.
+Muy abajo, desde el lado de los que volverían a Hazran y el de los que se quedarían para levantar una base, subían mezclados dos sonidos: el de atar fardos y el de levantar los paneles de la pared.
 
-Serakion, al oír esas palabras,
-muy mínimo se volvió hacia Sion.
+Los robots nobles abrieron con torpeza la puerta del hangar; no se abrió a la primera, sino a la segunda. El robot que los había recibido la primera vez se quedó de pie hasta el final. Las comisuras subieron y bajaron, y el robot las dejó así.
 
-Y se detuvo un momento.
+La escalerilla.
 
-Ni del todo una inclinación,
-ni del todo un saludo,
-no era exactamente ninguna de las dos,
-pero de todos modos era una respuesta clara.
+Han Jiwoo subió primero, y Serakion la siguió. El sonido que salió del eje del hombro entró en el barco. El niño, que oyó ese sonido desde el suelo del hangar, alzó la mano.
+No la agitó. La tenía alzada.
 
-Lejos, abajo,
-el lado que se prepara para volver a Hazran
-y el lado que se queda a levantar una base en Serakion
-se movían cada uno con su propio ajetreo distinto.
-
-No era la misma despedida.
-Tampoco la misma partida.
-
-Pero esta vez todos
-se movían cada uno por su propia voluntad.
-
-Eso importaba.
-
-Serakion, ahora,
-ya no era un nombre que encierra a alguien.
-
-Empezaba a ser un nombre
-que puede volver a partir,
-que puede volver a regresar,
-y que puede enlazar otros caminos y otras estrellas.
-
-Que una prisión se vuelva puerto
-no es que el muro desaparezca.
-
-Es llegar a creer al fin
-que más allá de ese muro también hay camino.
-
-Y ahora,
-ese primer zarpe
-estaba empezando.
+Empezaba la primera travesía.
 
 ---
 

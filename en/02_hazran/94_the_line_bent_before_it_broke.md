@@ -216,9 +216,9 @@ Harun came out from the wreckage.
 
 He shifted his grip on his weapon with his right hand and didn't use his left.
 
-Sion didn't notice at first. He noticed when Harun walked over to the board and drew a mark. Until now, Harun had drawn them with his left hand.
+Sion didn't notice at first. He noticed when Harun walked over to the board and drew the mark in Nasim's place.
 
-This time he drew it with his right. The weapon tucked under his arm.
+He drew it with his right hand. The weapon tucked under his arm. His left hand never even came up to the board.
 
 "Harun."
 

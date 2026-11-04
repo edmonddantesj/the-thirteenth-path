@@ -1,128 +1,180 @@
-# Chapitre 177 — Un mot
+# Chapitre 177 — Avant le mot âme
 
-Tandis que le dernier androïde tenait seul, tous les regards de l'ancienne couche finirent par revenir vers lui.
+Tant que le dernier androïde tenait seul, tous les regards de l'ancienne couche restaient posés sur cette silhouette.
 
-La légion de Serakion continuait d'entrer, et lui avait déjà usé son corps à plusieurs reprises pour contenir cette vague.
+La Légion de Serakion continuait d'affluer, et cette vague, le dernier androïde la contenait déjà depuis plusieurs assauts en rognant sur son propre corps.
 
-Pourtant, les regards ne restaient plus seulement sur la question de savoir combien de temps il tiendrait.
+À l'arrière, les gens ne comptaient plus. Au début, ils avaient compté les unités ennemies qui tombaient ; ensuite, les pièces qui se détachaient de son corps. À présent, ils ne comptaient plus rien et se contentaient de regarder.
 
-Ils glissaient vers quelque chose de plus étrange, et de plus effrayant.
+Seul Sern comptait encore.
 
-Qu'était donc en train de devenir cet être ?
+« C'est la cinquième ligne. »
 
-Sion ne pouvait pas formuler la question à voix haute.
+Seorin enchaîna.
 
-Car le changement qui se produisait devant eux était de ceux qu'on risquait de perdre dès qu'on leur collait un nom.
+« L'intervalle ? »
 
-Le dernier androïde fit encore se croiser deux individus de Serakion, puis brisa avec précision l'axe central du troisième qui passait entre eux.
+« Ils viennent par deux. L'intervalle est toujours le même. »
 
-Ses mouvements devenaient plus courts, plus dépourvus d'hésitation, et touchaient désormais avant toute explication.
+Seorin tourna la tête vers Han Jiwoo.
 
-Un des enfants qui regardaient retint difficilement ses sanglots et dit d'une toute petite voix :
+« Jiwoo. Les enfants, plus en arrière. »
 
-« Il… il doit avoir mal. »
+Han Jiwoo regarda derrière elle. Le mur. Le dos des enfants touchait déjà le mur.
 
-Les mots étaient si faibles que seuls quelques-uns semblèrent d'abord les entendre.
+« L'arrière, c'est ici. »
 
-Mais curieusement, cette phrase parut se répandre dans toute la pièce.
+Seorin regarda ce mur, n'ajouta rien et tourna les yeux vers la brèche de l'arrière. Au-delà de la brèche, il y avait le couloir, mais au-delà du couloir, on ne savait pas. Elle n'y envoya pas les enfants.
 
-Han Jiwoo leva la tête. Sion retint son souffle. Même les anciennes machines semblèrent s'arrêter un instant.
+Le dernier androïde fit de nouveau se croiser deux unités de Serakion. Le bras de la première fut saisi et poussé vers la deuxième ; pendant qu'elles se heurtaient, l'axe central de la troisième unité, qui entrait derrière, vola en éclats. Les trois gestes s'enchaînèrent en un seul. Chacun était plus court qu'au premier combat.
 
-Il doit avoir mal.
+Les trois unités brisées furent poussées au bord du couloir. Le tas qui s'y accumulait arrivait maintenant à hauteur de sa taille et bouchait une ligne latérale. Les unités de Serakion ne franchissaient pas ce tas et ne venaient plus que de face.
 
-Les mots étaient trop simples.
+Luhai regarda ce tas, puis baissa les yeux sur le morceau de panneau mural qu'il tenait. Quand il le dressa contre le tas, celui-ci gagna un empan de hauteur. En se retirant vers l'arrière, il jeta un regard au dos de l'androïde.
 
-Et c'est pour cela qu'ils frappaient un endroit que personne ne pouvait éviter.
+Un enfant regardait ce dos. Une femme de Hazran tenta de lui faire tourner les épaules, mais l'enfant se dégagea et se retourna encore ; la femme n'insista plus. Les yeux de l'enfant étaient sur le flanc de l'androïde. À l'endroit griffé tout à l'heure, de la lumière fuyait.
 
-Jusque-là, les gens les avaient vus comme forts, étranges, en train de changer.
+Ravalant à grand-peine ses sanglots, l'enfant dit d'une toute petite voix :
 
-Mais cet enfant fut le premier à voir cet être du côté de ce qui pouvait souffrir.
+« Ça… ça doit faire mal. »
 
-Ce n'était ni une analyse, ni un jugement, ni une explication.
+Les mots étaient si faibles que seules quelques personnes, tout près, les entendirent.
 
-C'était une phrase qui touchait directement le vivant.
+Han Jiwoo leva la tête. Sion l'entendit aussi. La main d'une vieille machine se détacha du mur.
 
-Presque au même moment, le mouvement du dernier androïde vacilla très brièvement.
+La femme de Hazran baissa les yeux sur l'enfant, mais l'enfant regardait l'androïde. La femme ne dit rien, mais la main posée sur l'épaule de l'enfant se serra.
 
-Le bras d'un individu de Serakion lui griffa profondément le flanc. Le métal se déchira, la lumière ondula, et son corps recula d'un demi-pas.
+Presque au même instant, le mouvement du dernier androïde vacilla, très brièvement.
 
-Sion ne put pas être sûr que ce n'était pas un hasard.
+Lâcher la troisième unité tout juste abattue prit un temps de trop. Dans cet intervalle, le bras d'une unité de Serakion laboura profondément son flanc. Le métal se déchira, la lumière ondoya, et le corps fut repoussé en arrière.
 
-Mais Han Jiwoo, elle, réagit autrement. En voyant ce bref vacillement, elle ouvrit grand les yeux.
+Sion vit seulement que ce vacillement était arrivé en même temps que les mots de l'enfant.
 
-Il a entendu.
+Les yeux de Han Jiwoo s'agrandirent, et la main posée sur le dos de l'enfant qu'elle tenait s'immobilisa. Sa bouche s'entrouvrit, puis se referma. Aucun son ne sortit.
 
-Elle ne le dit pas, mais son visage portait clairement ces mots.
+Seorin regarda Han Jiwoo.
 
-Le dernier androïde se redressa.
+« Quoi ? »
 
-Puis il regarda en arrière, très brièvement, vraiment très brièvement.
+Han Jiwoo secoua la tête une fois, et Seorin reporta les yeux sur l'androïde.
 
-Au bout de son regard se trouvait l'enfant qui avait parlé.
+Le dernier androïde se redressa. Du flanc griffé, la lumière fuyait. Une main s'y appuya une fois. La fuite ne s'arrêta pas. Retirée, la main était couverte de lumière. Le regard de l'androïde se posa sur cette main.
 
-Un visage épuisé d'avoir pleuré. Des yeux terrifiés qui pourtant continuaient de regarder. Et le visage d'un enfant qui considérait trop naturellement que quelqu'un pouvait être blessé.
+Un temps.
 
-L'arrêt ne dura qu'un instant.
+Puis, de cette même main, l'androïde reçut l'unité suivante.
 
-Mais pour Sion, cet instant sembla étrangement plus grand que tous les mouvements précédents.
+Et très brièvement, vraiment très brièvement, son regard se tourna vers l'arrière.
 
-C'était une vérification. Ou quelque chose qui entrait un peu plus loin que la vérification.
+Au bout de ce regard se trouvait l'enfant qui avait prononcé ces mots.
 
-La légion de Serakion ne laissa pas passer cette faille. Deux individus entrèrent en même temps.
+Un visage épuisé d'avoir pleuré, des yeux pleins de peur qui restaient pourtant tournés de ce côté. Une main aux doigts encore terreux, qui serrait un pan de vêtement.
 
-Mais, cette fois, la réaction du dernier androïde fut différente.
+L'enfant regarda aussi l'androïde. Leurs regards ne se croisèrent que le temps de lever un pied.
 
-Il ne coupa pas aussitôt comme avant. Il tourna d'abord son corps plus vers l'intérieur pour couvrir entièrement la direction où se trouvaient les enfants.
+L'enfant prit la main de la femme de Hazran. La femme baissa les yeux, mais l'enfant regardait l'androïde.
 
-Puis il reçut l'attaque de face.
+La Légion de Serakion ne laissa pas passer cette ouverture. Deux unités poussèrent en même temps.
 
-Le choc éclata violemment. L'axe d'épaule qui lui restait se tordit davantage, et l'un de ses yeux optiques resta presque éteint pendant un moment.
+Sern prit la parole.
 
-Les enfants avalèrent leurs cris.
+« Il y en a deux, de face. »
 
-Mais même ainsi, il ne recula pas d'un pas.
+La réaction du dernier androïde fut différente.
 
-Sion eut le souffle coupé.
+Au lieu de trancher aussitôt comme avant, le corps pivota d'abord plus loin vers l'intérieur, et le torse masqua la direction où se trouvaient les enfants, derrière. Le front se rétrécit d'autant. C'est par ce front rétréci que les deux unités furent reçues.
 
-Cet être n'apprenait plus seulement à combattre. Il apprenait aussi où employer son propre corps.
+Le choc éclata avec fracas. L'axe d'épaule qui restait se tordit plus profondément, et l'un des yeux optiques resta un long moment sans pouvoir se rallumer. Une fissure courut sur le plastron et monta jusque juste sous le trait de la bouche que l'enfant avait dessiné.
 
-Et son critère devenait de plus en plus clair.
+Les enfants ravalèrent leurs cris.
 
-Ce qui se trouvait derrière. Ce qu'il ne pouvait pas laisser. Ce qui pleurait. Ce qui l'avait vu comme quelqu'un qui pouvait avoir mal.
+Le dernier androïde ne recula pas d'un pas.
 
-À cet instant, Han Jiwoo sentit des mots longtemps comprimés en elle remonter jusqu'au bord de ses lèvres.
+Des deux unités reçues, l'une eut le cou brisé par le bras qui restait. L'autre fut plaquée contre le mur par l'épaule tordue. Quand elle tenta de bouger de nouveau, le torse de l'androïde l'écrasa et ne s'en détacha qu'une fois sa lumière éteinte. Ensuite, pour que le tas ne s'écroule pas, l'unité fut glissée tout en bas du tas, au bord.
 
-Pas encore. C'était encore trop tôt. On ne pouvait pas encore l'appeler ainsi.
+Han Jiwoo desserra les bras qui tenaient l'enfant, et sa main libérée s'arrêta devant sa poitrine. C'était une main qui voulait saisir quelque chose, mais il n'y avait rien à saisir, et elle la ramena sur le dos de l'enfant.
 
-Mais elle ne pouvait pas non plus continuer à tenir uniquement avec d'autres mots.
+Ses lèvres bougèrent une fois, mais aucun mot ne vint. Elles bougèrent encore. Toujours rien. Elle se mordit les lèvres.
 
-Une ancienne machine murmura très bas :
+Sion vit ces lèvres. Il regardait les gens, comme Seorin le lui avait dit, et c'est ainsi qu'il les avait vues. Les yeux de Han Jiwoo étaient sur l'androïde ; Sion ramena les siens vers les gens.
 
-« Il entend. »
+Une vieille machine murmura très bas :
 
-Personne ne demanda à qui ces mots s'adressaient.
+« … Ça entend. »
 
-Car tous, dans la pièce, avaient senti que la phrase de cet enfant avait peut-être réellement atteint le dernier androïde.
+À qui s'adressaient ces mots, personne ne le demanda.
 
-Un seul mot d'enfant.
+La machine voisine tourna la tête vers l'enfant, puis vers l'androïde, et ne la ramena pas.
 
-Il doit avoir mal.
+Du côté haut, Ater baissa les yeux vers Sern.
 
-Cette phrase brève et petite ne pouvait pas changer la direction du champ de bataille, mais elle semblait être restée, comme une onde, à l'intérieur d'un être.
+« Vous le consignez ? »
 
-Le dernier androïde bougea de nouveau.
+Les yeux de Sern passèrent du panneau d'enregistrement à l'enfant, puis de l'enfant à l'androïde.
 
-Cette fois, ses gestes étaient plus rudes, plus désespérés, et ménageaient encore moins son corps.
+« Je le consigne. »
 
-Mais, étrangement, ils n'en étaient que plus clairs.
+Il écrivit une ligne, puis plaqua le panneau d'enregistrement contre sa poitrine.
 
-Ce n'était plus l'exécution d'un ordre. C'était une réponse, un choix, un mouvement vers quelque chose que personne n'osait encore nommer.
+La machine qui avait tourné la tête se détacha du mur, marcha lentement jusqu'au bout du tas, au bord du couloir, et s'y arrêta. L'espace qui restait entre le tas et le mur avait la largeur exacte de son corps. Elle s'y glissa. La ligne latérale fut entièrement bouchée.
 
-En le voyant, Sion pensa :
+Luhai regarda cela, puis le panneau mural qu'il avait dressé. Il ne dit rien.
 
-Peut-être que ce qui touche en premier n'est pas une grande déclaration. Peut-être que quelque chose commence déjà au moment où quelqu'un te considère comme capable de souffrir.
+L'enfant ne répéta pas ses mots, mais la main qui serrait le vêtement de Han Jiwoo se crispa. La femme de Hazran posa la main sur la tête de l'enfant.
 
-Et cette vérité ne laissait à personne, dans l'ancienne couche, de chemin pour revenir en arrière.
+L'enfant leva les yeux vers Han Jiwoo.
+
+« Et si ça fait mal, on fait comment ? »
+
+Han Jiwoo ne répondit pas tout de suite. Elle regarda le flanc de l'androïde, la lumière qui s'en échappait, puis sa propre main.
+
+« … On répare. »
+
+L'enfant regarda cette main.
+
+« Tu peux réparer ? »
+
+« Il faut essayer pour le savoir. »
+
+Quand l'enfant se retourna vers l'androïde, la main qui serrait le vêtement de Han Jiwoo se relâcha un peu.
+
+La femme de Hazran regarda Han Jiwoo.
+
+« Ça se répare, ça ? »
+
+Han Jiwoo ne regarda pas la femme.
+
+« Les machines, ça se répare. »
+
+La femme ne demanda rien de plus, mais ne retira pas non plus la main posée sur la tête de l'enfant. Han Jiwoo couvrit cette main de la sienne. Et, sans la lâcher, elle regarda le champ de bataille.
+
+Sion les vit toutes les deux, et vit aussi que Han Jiwoo avait regardé sa propre main. Quand il ramena les yeux vers les gens, l'homme devant la brèche était toujours là. La main qui griffait le mur s'était arrêtée.
+
+Le dernier androïde se remit en mouvement.
+
+Cette fois, ce fut plus brutal. L'androïde n'attendit pas l'unité qui s'engageait à l'entrée du passage et fit un pas en avant pour la recevoir. Pendant que l'unité reçue était écrasée au sol et brisée, la lumière qui fuyait du flanc tomba par terre. Elle y resta un temps, puis s'effaça. Debout à cet endroit, l'androïde attendit l'unité suivante.
+
+Sion regarda cet endroit. C'était un pas plus loin que là où l'androïde se tenait tout à l'heure, en se retournant. Autant la distance avec les enfants s'était élargie d'un pas, autant celle avec l'ennemi s'était réduite d'un pas.
+
+Seorin aussi vit ce pas.
+
+« Sern. »
+
+« Oui. »
+
+« Il en reste combien ? »
+
+Sern regarda l'entrée, mais au-delà, il faisait noir.
+
+« Je vois deux lignes. Ce qu'il y a derrière, je ne le sais pas. »
+
+Seorin hocha la tête. Sa main, à la ceinture, saisit la poignée de l'épée. Elle ne la tira pas.
+
+Pendant que la ligne suivante de la Légion de Serakion se plaçait à l'entrée, de la lumière fuyait de la fissure du plastron du dernier androïde. Au-dessus de cette lumière, le trait de la bouche courte restait allumé.
+
+L'enfant regardait ce trait. Han Jiwoo aussi. Les deux guettaient : ce trait allait-il s'éteindre ?
+
+Le trait ne s'éteignit pas.
 
 ---
 

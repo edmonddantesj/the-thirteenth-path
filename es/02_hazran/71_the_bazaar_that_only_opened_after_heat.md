@@ -18,7 +18,7 @@ Sion, al verlo, soltó un suspiro muy pequeño.
 
 No era una luz recta y limpia. Tenía rastros de remiendo, tenía la veta del desgaste; era una luz hecha a duras penas entre las cosas que habían sobrevivido aquel día.
 
-Pero justo por eso uno se quedaba mirándola más rato.
+Justo por eso uno se quedaba mirándola más rato.
 
 Luhai, como si hubiera estado esperando esa reacción, se adelantó y habló.
 
@@ -33,8 +33,6 @@ Seorin habló justo a su lado.
 Luhai se encogió de hombros.
 
 —No seré el dueño, pero puedo ser alguien a quien le gusta, ¿no?
-
-Lo soltó a la ligera, pero, por raro que fuera, no sonó a palabra vacía.
 
 Sion le dio vueltas y al final preguntó.
 
@@ -141,19 +139,17 @@ Luhai se encogió de hombros.
 
 Seorin le echó una mirada de reojo.
 
-—Para llevar un día viéndolo, hablas muy fuerte.
+—Para ser un crío, hablas muy fuerte.
 
 Esta vez Luhai no se rio enseguida. En cambio, habló un poco más bajo.
 
-—Justo por ser un día, hay cosas que se ven más.
+—Justo por ser un crío, hay cosas que se ven más.
 Luhai lo dijo.
 —La gente de fuera solo ve esto como un sitio sucio, ruidoso y peligroso. Pero hasta en un sitio así hay cosas que nadie tiró y que se guardaron hasta el final, ¿no?
 
 Miró, al fondo del callejón, una lona donde habían colgado como una vela un trozo de vidrio medio roto.
 
 —A mí esos sitios me gustan.
-
-Aquello era mucho más sincero de lo esperado.
 
 Sion, al oírlo, creyó entender un poco por qué Luhai estaba orgulloso de este lugar.
 

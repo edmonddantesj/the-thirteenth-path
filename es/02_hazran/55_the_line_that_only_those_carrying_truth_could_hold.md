@@ -67,8 +67,6 @@ Sern respondió muy breve.
 
 —La regla es quien saque lo verdadero.
 
-Las palabras fueron de una exactitud fría.
-
 En las gradas, las voces que preguntaban quién había agarrado lo verdadero crecían ya más que las que gritaban los nombres de la carrera. Luhai, pegado al extremo de la baranda, recorría con los ojos casi toda la línea de escape, y Seorin ya no leía las manos, sino el flujo de la gente. Quién aprovechaba el derrumbe de la carrera para bajar y quién seguía arriba, mirando y esperando.
 
 —Bajan dos.
@@ -184,8 +182,6 @@ Si soltaba, estaría más cómodo.
 Sion lo pensó una vez y lo borró. Borrarlo no le llevó tiempo.
 
 Algo bajaba desde arriba.
-
-Al principio creyó que eran escombros. Los escombros no toman un ángulo así.
 
 Era el planeador de Kael. Detrás iba Sern.
 

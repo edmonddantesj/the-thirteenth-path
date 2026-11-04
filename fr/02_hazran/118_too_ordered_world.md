@@ -1,203 +1,234 @@
 # Chapitre 118 — Un monde trop ordonné
 
-La première chose visible n’était pas une ville.
+La première chose qu'ils virent ne fut pas une ville.
 
-C'était de la lumière.
+Ce fut de la lumière.
 
-Bien au-delà de la fenêtre,
-des grains d'argent posés trop soigneusement sur le noir de l'espace se levèrent en premier.
+Loin derrière le hublot, des lignes d'argent posées bien droites sur le noir de l'espace apparurent d'abord. Elles n'étaient pas éparpillées comme la lumière des étoiles, ni espacées de loin en loin comme des balises de route. Elles étaient plantées au même intervalle, avec le même éclat, selon la même inclinaison.
 
-Ils ne ressemblaient pas à la lumière des étoiles diffusée naturellement.
-Ils n’étaient pas aussi simples que des balises routières.
+À l'instant où il les vit, Sion recula d'un pas. Ce qu'il avait senti un peu plus tôt, les yeux fermés, était là, et les yeux ouverts, c'était pareil.
 
-On aurait dit que quelqu'un avait conduit des lignes métalliques
-dans l'obscurité à intervalles précis, froid.
+Froid, lisse, ordonné.
 
-Au moment où Sion l'a vu,
-il sut immédiatement que le grain qu'il avait senti dans l'air auparavant
-était maintenant vu de ses yeux.
+Dans le ciel de Hazran, il y avait toujours quelque chose de travers. Un relais ajouté sur le tard, un feu de signalisation à moitié éteint, des traces nées du simple fait que des gens y vivaient. Là-devant, il n'y avait rien de tel.
 
-Froid.
-Lisse.
-Ordonné.
+Luhai fut le premier à marmonner, tout bas.
 
-Mais c'est précisément à cause de cela,
-c'était étrange.
+« Ça… ça ressemble pas à un endroit où vivent des gens. »
 
-Toute ville ou civilisation vivante,
-aussi grand soit-il, il y a de la maladresse quelque part.
-Traces ajoutées tardivement.
-Sections pas entièrement organisées.
-Le déséquilibre né du fait que les gens sont en vie.
+Han Jiwoo, la main toujours sur la barre, ne répondit pas tout de suite. Ses yeux, qui surveillaient les valeurs de stabilité de la coque, allaient vers le hublot et revenaient, y allaient encore et revenaient. La troisième fois, ils mirent du temps à revenir.
 
-Mais ce qui s’annonçait était différent.
+« Je capte pas la température extérieure. »
 
-Trop précis.
-Trop uniforme.
-Tellement beau
-qu'il ressemblait plus à une exposition qu'à la vie.
+Elle parla.
 
-Luhai marmonna le premier, à voix basse.
+« C'est masqué. »
 
-« Cela ne ressemble pas à un endroit où vivent des gens. »
+Sern répondit.
 
-Jiwoo ne pouvait pas non plus répondre tout de suite.
+« Par quoi ? »
 
-Elle a continué à vérifier les lectures de stabilité de la barre et de la coque,
-pourtant, un œil continuait à être volé par la vue extérieure.
+« Je ne sais pas. Les valeurs sont vides. »
 
-Il pourrait s'agir de structures construites par des machines.
-Cela aurait effectivement plus de sens.
-Mais le problème était
-qu'aux endroits où ces structures doivent paraître fonctionnelles,
-une précision étrangement ostentatoire y était attachée.
+Han Jiwoo tapota deux fois du doigt l'emplacement vide du tableau de bord, mais l'emplacement resta vide.
 
-Cela avait l'air d'un gaspillage,
-mais en même temps parfait.
+Derrière le hublot, les structures grandissaient à mesure qu'elles approchaient sans jamais se désordonner, et leur surface n'avait aucune jointure. Han Jiwoo connaissait les jointures de sa propre coque, savait où elle résonnait et où elle fuyait. Là-bas, il ne semblait y avoir aucun endroit de ce genre. Elle serra la barre plus fort.
 
-Cela ne ressemblait pas à quelque chose fabriqué par des machines uniquement soucieuses d’efficacité.
-Mais cela ne semblait pas non plus chaleureux comme quelque chose créé par la vie.
+« La hauteur ? »
 
-Ce milieu mal aligné
-a rendu Jiwoo plus mal à l'aise.
+Seorin posa la question.
 
-Sern lut les chiffres en premier, comme toujours.
+« Je la capte pas. »
 
-« Les valeurs de réflectance sont fausses. »
-dit-il, bas.
+Han Jiwoo répondit.
 
-demanda Kael.
+« On voit pas le bout, je peux pas mesurer. »
 
-« Ça veut dire quoi. »
+Sern ajouta :
 
-Sern désigna une structure à l'extérieur de la fenêtre.
+« Il en va de même en dessous. Je ne capte aucun fond. »
 
-« À cette taille, il devrait y avoir une réflexion plus diffuse. »
-dit-il.
-« Mais c'est trop propre. »
+Seorin regarda tour à tour le haut et le bas du hublot. En haut, des lignes ; en bas, des lignes.
 
-Ces mots étaient courts,
-mais suffisamment inquiétant.
+Cette fois encore, Sern lut d'abord les chiffres.
 
-Ce qui est visible est étrange.
-Ce qui est lisible est étrange.
+« Les valeurs de réflexion sont anormales. »
 
-Cela signifie que ce monde n’est pas simplement un monde magnifique.
-Ce pourrait être un monde qui *contrôle même sa propre beauté*.
+Il parla à voix basse.
 
-Seorin se tenait debout, sans s'appuyer sur la balustrade,
-et observait longuement le paysage qui approchait à l'extérieur.
+Kael posa la question.
 
-Puis dit, très bref.
+« Ça veut dire quoi ? »
 
-« Suffocant. »
+Sern désigna l'une des structures, derrière le hublot.
 
-Ce seul mot était le plus précis.
+« À cette taille, il devrait s'y mêler davantage de réflexion diffuse. »
 
-Grandiose.
-Froid.
-Inconnu.
-Beau.
-Tout est correct.
+Il poursuivit.
 
-Mais au-delà de tout ça,
-la dernière sensation qui restait était proche de l'étouffement.
+« Or c'est trop bien rangé. »
 
-Tellement bien organisé
-que c'était comme un endroit où quelqu'un comme elle n'aurait même pas le droit de faire une erreur.
+Kael regarda la structure : la lumière revenait dans une seule direction, sans que rien ne s'éparpille. Il plissa les yeux, mais c'était toujours pareil.
 
-Aka a regardé dehors pendant un long moment,
-dit alors, très bas.
+« Tout ça, c'est des machines ? »
 
-« Cela ne ressemble pas à un endroit où l'on observe des êtres vivants depuis longtemps. »
+« C'est fait par des machines. »
 
-Sion la regarda lentement.
+Han Jiwoo répondit.
 
-Aka continua.
+« Si c'en sont, ça, j'en sais rien. »
 
-« Cela ressemble à un endroit où l'on manipule des êtres vivants. »
+Depuis la coursive, Ater interrogea Sern.
 
-Après que ces mots soient tombés,
-personne ne pouvait ouvrir la bouche tout de suite.
+« Les intervalles entre ces lignes sont-ils tous identiques ? »
 
-Ce monde était clairement complexe.
-Calme.
-Ordonné de façon éblouissante.
+« Ils sont identiques. »
 
-Mais il n’y avait aucun sentiment d’être accueilli.
-Au lieu de cela, de loin,
-cela semblait plus proche d'un monde qui demande d'abord *qu'êtes-vous*, cherchant à classer.
+Sern répondit en regardant le panneau d'enregistrement.
 
-Sion regardait par la fenêtre
-et ressentit à nouveau à quel point cela était opposé à Hazran.
+« S'il existe une différence, les instruments de ce vaisseau ne la captent pas. »
 
-Hazran était un monde dans lequel les êtres vivants tenaient bon, même si tout s'effondrait jusqu'à la fin.
-Imparfait.
-Mal organisé.
-Tout est usé.
-Mais les gens étaient là.
+Ater fit trois pas vers le hublot et s'arrêta là. Il n'avança pas davantage.
 
-Mais le monde devant
-on aurait dit qu'il ne s'effondrerait jamais.
-Au lieu de cela, il semblait que l'espace permettant aux gens d'entrer
-n'avait jamais été calculé dès le départ.
+Du fond de la coursive, les gens de Hazran sortirent un à un et vinrent du côté du hublot, sans que personne dise un mot. Un enfant, agrippé au pan de vêtement d'un adulte, vint jusque sous le hublot ; comme l'enfant n'arrivait pas à voir, l'adulte souleva l'enfant dans ses bras.
 
-dit Luhai, très bas.
+L'enfant regarda dehors et ferma la bouche. Pas de larmes, pas de sourire non plus.
 
-« Cet endroit n'a pas été fait pour nous sauver. »
+Le vieil homme, debout derrière, ne regardait pas le hublot mais le dos de ceux qui le regardaient.
 
-Ater, sans prendre ces mots,
-a continué à regarder dehors et a parlé brièvement.
+Seorin se tourna vers eux.
 
-« Nous entrons ? »
+« Asseyez-vous. Ça peut secouer. »
 
-La question était courte.
-Mais la réponse était déjà décidée.
+Personne ne s'assit. Seorin ne le répéta pas et regarda de nouveau le hublot.
 
-Ils étaient arrivés jusqu'ici.
-Les mots que Zahir a laissés.
-La responsabilité confiée à Hazran.
-Les traces condensées.
-Tout cela convergeait désormais vers le seuil de ce monde.
+Avec les seize réunis devant un seul hublot, la cabine devint étroite. Les parois raccordées à Hazran, les traces de soudure, les tôles que Han Jiwoo avait rajoutées, les outils étalés sur le sol, les gourdes, les ballots de tissu. Au-delà de tout cela, un seul hublot s'emplissait d'argent.
 
-dit Sion, très bas.
+Seorin, sans s'appuyer à la rambarde, se tenait droite et regarda longuement le paysage qui se rapprochait dehors. Ses bras croisés se défirent, et ses mains retombèrent le long de son corps.
 
-« Nous devons y aller. »
+Puis elle dit, très brièvement :
 
-Cela ne ressemblait pas à du courage.
-Il s’agissait plutôt d’accepter le fait qu’il ne restait plus d’autre choix.
+« Ça étouffe. »
 
-Jiwoo vérifia les lectures de la coque une fois de plus.
-Sern a lu les structures extérieures et les intervalles de surveillance.
-Seorin n'avait toujours pas quitté la fenêtre des yeux.
-Aka resta silencieuse le plus longtemps.
+Luhai regarda Seorin, mais Seorin ne quitta pas le hublot des yeux. Luhai tira une fois sur son col.
 
-Et bien plus tard,
-c'était presque comme se parler à elle-même, dit-elle.
+« Je ferme le volet ? »
 
-« Beau, mais sans considération. »
+Kael posa la question.
 
-Ces mots sont immédiatement entrés étrangement dans la poitrine de chacun.
+« Ferme pas. »
 
-C'était vrai.
+Han Jiwoo répondit sans quitter la barre des yeux.
 
-La première impression que ce monde a donnée était exactement celle-là.
-Magnifique,
-mais aucune considération.
-Complexe,
-mais pas de bienvenue.
-Parfait,
-mais aucune trace d'avoir d'abord pensé au souffle d'un être vivant.
+« Faut qu'on voie. »
 
-Le vaisseau tourna son corps vers la zone où flottaient ces structures froides et droites,
-beaucoup plus tranquillement qu'avant.
+Kael retira la main qu'il avait posée sur le volet du hublot ; la poignée garda l'empreinte de sa main. Il l'essuya avec sa manche.
 
-La planète des machines
-n'était plus une destination lointaine.
+Luhai le vit et dit :
 
-Tellement ordonné que c'était inquiétant dès le premier instant de vue,
-ça se déroulait tranquillement devant la fenêtre
-comme un monde réel.
+« Tu fais quoi ? »
+
+« Je sais pas. Comme ça. »
+
+Luhai regarda ses propres mains. Elles étaient tachées d'huile, mais il ne les essuya pas.
+
+Aka regarda longtemps dehors, puis dit tout bas :
+
+« Ça ressemble pas à un endroit qui a longtemps regardé du vivant. »
+
+Sion se tourna lentement vers elle.
+
+L'adulte qui portait l'enfant posa l'enfant à terre, et l'enfant leva la main pour retourner dans ses bras. L'adulte, au lieu de reprendre l'enfant dans ses bras, prit cette main.
+
+Sern leva les yeux du panneau d'enregistrement.
+
+« L'une des structures a changé d'angle. »
+
+Han Jiwoo regarda le hublot.
+
+« Laquelle ? »
+
+« C'est la deuxième à gauche. »
+
+Han Jiwoo regarda la deuxième à gauche, mais n'y vit aucun changement.
+
+« De combien ? »
+
+« C'est en dessous du seuil de mesure. »
+
+« Et pourtant elle a changé ? »
+
+« Les valeurs de réflexion ont changé. »
+
+Han Jiwoo se tut et ne quitta plus la deuxième à gauche des yeux.
+
+Aka regarda la structure.
+
+« Elle a tourné en nous voyant ? »
+
+« Je ne sais pas. »
+
+Sern répondit.
+
+« Elle a tourné après notre arrivée. C'est tout ce que je sais. »
+
+Aka hocha la tête, sans pour autant s'éloigner du hublot.
+
+Sion ne sortit pas la plaque de métal ; la main posée sur sa poche, il regarda le hublot. La deuxième à gauche. Il la chercha, mais toutes se ressemblaient, et il ne sut pas laquelle c'était.
+
+Il regarda dehors, puis derrière lui. Les gens de Hazran s'étaient rassemblés à l'entrée de la coursive. Des vêtements usés, des bandes de tissu enroulées, des visages qui n'avaient pas été lavés depuis des jours. Derrière eux, on voyait les traces de soudure de la paroi de la coque.
+
+Quand il regarda de nouveau le hublot, dehors, il n'y avait pas une seule trace de soudure.
+
+Luhai dit très bas :
+
+« Cet endroit, il a pas été fait pour nous sauver. »
+
+Sans relever ces mots, les yeux toujours tournés vers le dehors, Ater parla brièvement.
+
+« Entrons-nous ? »
+
+Seorin regarda Ater, mais Ater regardait le hublot. La main de Han Jiwoo s'arrêta sur la barre, et Sern leva les yeux du panneau d'enregistrement.
+
+Sion dit très bas :
+
+« Faut y aller. »
+
+Il appuya une fois sur sa poche. La plaque était là. Deux traits.
+
+Pendant que Han Jiwoo vérifiait une fois de plus les valeurs de la coque, Sern lisait la structure extérieure et les intervalles de surveillance, et Seorin ne quittait pas le dehors des yeux.
+
+Kael alla vers les gens de Hazran et leur fit signe de retourner au fond de la coursive, mais ils n'y allèrent pas. Après deux signes, Kael renonça et, debout devant eux, regarda le hublot avec eux.
+
+Pendant que Luhai allumait et éteignait sa lampe torche, Aka resta silencieuse plus longtemps que tous. Puis, bien plus tard, presque pour elle-même, elle dit :
+
+« C'est beau, mais ça n'a aucun égard. »
+
+En entendant ces mots, Sern nota quelque chose sur le panneau d'enregistrement, et ce n'était pas un chiffre. Han Jiwoo le regardait faire, et Sern ne cacha pas le panneau d'enregistrement.
+
+Le vaisseau vira, bien plus silencieusement qu'avant, vers la zone où flottaient ces structures froides et droites.
+
+Pendant le virage, la coque ne résonna pas. Han Jiwoo ôta une main de la barre et la posa contre la paroi, mais il n'y avait aucune résonance ; elle remit la main sur la barre.
+
+Derrière le hublot, les lignes d'argent s'écartèrent des deux côtés au-delà de sa largeur : ce n'étaient plus des lignes mais des surfaces. Sur la surface, encore des lignes, et sur ces lignes, encore des lignes. On n'en voyait pas la fin.
+
+L'enfant lâcha la main de l'adulte et posa la paume contre le hublot. L'adulte ne retira pas cette main. L'empreinte de la paume de l'enfant resta sur le hublot, mais dehors, il n'y avait pas la moindre trace.
+
+Sern regarda le panneau d'enregistrement.
+
+« La deuxième à gauche a encore changé. »
+
+Cette fois, personne ne demanda rien. Han Jiwoo déplia un à un les doigts qui tenaient la barre, puis les referma. Les cinq.
+
+Même après que l'enfant eut retiré la main du hublot, l'empreinte resta. Han Jiwoo la vit et ne l'effaça pas.
+
+« On laisse comme ça. »
+
+Elle le dit alors que personne n'essayait de l'effacer.
+
+À côté de Kael qui rabaissait sa manche, Luhai frotta sa main huileuse sur son pantalon, mais elle ne se nettoya pas. Sern leva les yeux du panneau d'enregistrement et regarda le hublot.
+
+La planète des machines emplit tout le hublot.
 
 ---
 

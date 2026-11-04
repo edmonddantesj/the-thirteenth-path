@@ -271,9 +271,9 @@ The line was already formed. Of the twenty-eight, twenty were split into threes,
 
 Sion looked at the eight.
 
-All of them were the hands that had been digging at the pile earlier. The backs of their hands were scraped raw, and two had no fingernails.
+Most of them were the hands that had been digging at the pile earlier. The backs of their hands were scraped raw, and two had no fingernails. A few children clung close beside those hands.
 
-There had been eleven earlier; now there were eight. Three had gone into the hole and two had come out, and one of those two couldn't stand now and sat off to the side.
+Not all eleven who had been digging at the pile earlier were there. Three had gone into the hole and two had come out, and one of those two couldn't stand now and sat off to the side.
 
 That no one had decided who would be the eight was wrong. It had already been decided. These people hadn't stood in line once all day.
 

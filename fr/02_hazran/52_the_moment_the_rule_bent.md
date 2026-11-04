@@ -232,8 +232,6 @@ Au même moment, l'air sous la couche thermique se tordit une troisième fois, v
 
 Cette fois, plusieurs lueurs qui feignaient de vivre explosèrent ensemble vers le haut et commencèrent à lacérer la ligne d'entrée qui subsistait encore.
 
-Et Sion comprit.
-
 La règle venait, à l'instant, de plier la première.
 
 ---

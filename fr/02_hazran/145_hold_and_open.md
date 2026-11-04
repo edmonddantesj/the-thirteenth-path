@@ -1,157 +1,312 @@
-# Chapitre 145 — Tenir et ouvrir
+# Chapitre 145 — Bloquer et ouvrir
 
-Serakion était un monde qui se fermait bien plus vite qu’il n’y paraissait de l’extérieur.
+Serakion était un monde qui se fermait plus vite qu'il n'y paraissait du dehors.
 
-Kael fut le premier à commencer à lire ce fait.
+Ce fut Kael qui, le premier, commença à le lire.
 
-Plus l'équipe de reconnaissance s'enfonçait en profondeur, plus le regard de Kael suivait la structure devant les gens.
+Plus l'équipe de reconnaissance s'enfonçait vers l'intérieur, plus le regard de Kael suivait la structure plutôt que les gens. Moins qui passait que l'endroit où les choses se repliaient ; moins quelle porte se bloquait que quel point ralentissait en premier.
 
-Pas qui passait par là, mais où les choses se déroulaient. Pas quelles portes se sont complètement fermées, mais quels points ont ralenti en premier.
+Il regardait les fines fentes d'observation et les lignes de jonction cachées près du plafond, l'usure du sol et les déformations thermiques des parois. Il s'attardait longtemps sur un endroit avant de passer au suivant.
 
-Serakion ne ferme pas tout d'un coup. C'est même le contraire.
+La seconde main de récupération le remarqua et posa la question à voix basse.
 
-On laisse les choses paraître ouvertes, puis on ne ferme que juste ce qu'il faut, au moment où il est vraiment trop tard.
+« Que regardez-vous ? »
 
-Ainsi, ceux qui tentent de s'échapper se rendent toujours compte un instant plus tard de l'endroit où ils ont été enfermés.
+Kael répondit sans détourner les yeux.
 
-Kael étudia les fines fentes d'observation, les joints cachés près du plafond, les motifs d'usure du sol, les déformations microthermiques le long des murs.
+« L'ordre de fermeture. »
 
-La deuxième main de récupération le remarqua et demanda bas.
+Un bref silence.
 
-« Qu'est-ce que vous regardez. »
+La seconde main baissa les yeux sur sa propre jambe : une jambe qui connaissait l'ordre de fermeture.
 
-Kael répondit sans détourner son regard.
+Kael ne désignait rien de la main ; il suivait des yeux les embranchements et les plis en parlant.
 
-« La séquence de clôture. »
+« Ici, on ne bloque pas le centre. On replie d'abord le point qu'on remarque en dernier. Alors les gens, croyant que c'est encore ouvert, s'enfoncent plus loin. »
 
-Bref silence.
+La première main de récupération laissa échapper un bref souffle.
 
-Cette expression semblait également être un langage familier du côté des récupérateurs.
+« C'est ça. »
 
-Kael ne montrait pas physiquement du doigt, mais traçait les fentes et les plis avec ses yeux pendant qu'il parlait.
+Elle le dit à voix basse.
 
-« Cet endroit ne bloque pas le centre. Il plie le point que les gens remarquent en dernier. »
-
-« Ensuite, ils s'enfoncent plus profondément, croyant toujours que c'est ouvert. »
-
-La première main de récupération laissa échapper le souffle le plus court.
-
-« Exact. »
-Il le dit à voix basse.
 « C'est pour ça qu'on finit toujours par courir une fois de plus. »
 
-Cela ressemblait à une conversation d'expérience.
+« Et quand on a couru une fois de plus ? »
 
-La structure de Serakion n'est pas conçue pour bloquer les chemins. Son objectif est plutôt de faire bouger les gens jusqu’au mauvais moment.
+Kael posa la question.
 
-Au moment de la fermeture, il est déjà trop tard.
+« On s'arrête devant ce qui est fermé. Et derrière, c'est déjà fermé aussi. »
 
-En lisant cela, Kael a commencé à comprendre pourquoi le sauvetage et le combat devaient aller de pair dans ce monde.
+L'œil optique suivit une des lignes de jonction du plafond.
 
-Pour retirer quelqu’un, un côté doit réellement tenir. Mais cette emprise ne peut pas être celle où vous restez aveuglément sur vos positions.
+Kael hocha la tête, regarda encore une ligne de jonction au plafond, puis replia un doigt.
 
-Vous devez choisir les points à bloquer en premier et laisser exactement un chemin ouvert.
+Han Jiwoo était accroupie à côté de la seconde main. Profitant de l'arrêt, elle avait ouvert l'articulation, donné deux tours de tournevis, puis refermé.
 
-Autrement, la défense devient un suicide et le sauvetage se termine par une course-poursuite.
+« Vas-y. »
 
-Un peu plus loin, ils tombèrent sur une structure de cloison à moitié cachée qui se plia une fois et s'ouvrit à nouveau.
+La seconde main se mit à marcher ; la jambe traînait moins.
 
-De l’extérieur, cela ressemblait à un mur décoratif, mais à l’intérieur, de minces treillis et des axes de couplage étaient encastrés.
+Un peu plus loin à l'intérieur apparut une cloison faite pour se replier une fois, puis se rouvrir.
 
-Kael s'arrêta longuement devant.
+Vue de dehors, c'était un mur décoratif à motifs, mais à l'intérieur étaient logés un fin treillis et des axes de jonction. Kael s'arrêta longtemps devant et regarda les lignes entre les motifs : les lignes coupaient les motifs.
 
-« Ce n'est pas pour bloquer les troupes. »
+« Ça ne sert pas à arrêter des troupes. »
+
 Il le dit à voix basse.
-« C'est pour couper le flux. »
 
-demanda Ater à côté de lui.
+« Ça sert à couper le flux. »
 
-« Y a-t-il une différence. »
+Ater, à côté de lui, posa la question.
+
+« Y a-t-il une différence ? »
 
 Kael répondit brièvement.
 
-« Une grande. Bloquer les troupes, c'est vouloir se battre. Couper le flux, c'est vouloir les disperser. »
+« Une grande. Arrêter des troupes, c'est vouloir se battre. Couper le flux, c'est vouloir séparer les uns des autres. »
 
-C’était si précis que Jiwoo comprit immédiatement.
+Ater regarda les motifs et les lignes de la cloison.
 
-Serakion pouvait gérer des personnes dispersées bien plus efficacement qu'un groupe fuyant en masse.
+« Ce n'est donc pas pour bloquer. »
 
-Dispersés, ils ne parviennent pas à se retrouver. Quand l’un d’eux est pris en premier, les autres ne le savent pas.
-Et puis, un par un, ils peuvent à nouveau être triés.
+C'était Ater.
 
-La première main de récupération l'a dit très bas.
+« Ça ne bloque pas. »
 
-« C'est pourquoi nous surveillons toujours deux choses. L'une est le chemin sur lequel vous les amenez. L'autre est la position que vous occupez jusqu'au bout. »
+Kael répondit.
 
-Kael le regarda pour la première fois.
+« Ça coupe. »
 
-Tous deux lisaient la structure de manière plus similaire que prévu.
+Sur l'axe de jonction de la cloison, Han Jiwoo vit de l'huile fraîche. Elle en prit sur le doigt et la sentit.
 
-La différence était que les mains de récupération savaient ces choses après avoir échoué à plusieurs reprises avec leur corps, tandis que Kael lisait les principes rapidement pour la première fois devant ce monde.
+« On s'en sert souvent. »
 
-Un peu plus tard, ils aperçurent le couloir extérieur d’une zone de rassemblement de niveau intermédiaire où les candidats élevés attendaient brièvement.
+« On s'en sert souvent. »
 
-Ils ne sont pas entrés. Mais la zone était bien plus raffinée que les sections précédentes. La lumière était douce. Le son était faible. La structure conçue pour inciter les gens à s’arrêter et à rester était si naturelle qu’elle était transparente.
+La seconde main répondit.
 
-C'était précisément pourquoi Kael l'avait reconnu plus rapidement.
+« Chaque fois que nous venons. »
 
-« C'est un endroit où vous ne pouvez pas vous battre. »
-dit-il.
+Han Jiwoo s'essuya le doigt sur son pantalon.
 
-Jiwoo le regarda.
+Deux machines passèrent dans le couloir derrière la cloison ; alors la cloison se replia sans bruit, les motifs se rompirent, et ce fut un mur. Kael compta.
+Un.
+Deux.
+Trois.
+La cloison se rouvrit, les motifs se rejoignirent, et ce fut de nouveau un couloir.
 
-Kael continua sans bouger le regard.
+« Trois. Le temps où elle reste fermée. »
 
-« C'est trop joliment scellé. Si les gens paniquent, ils sont poussés plus loin à l'intérieur. »
+« Toujours trois ? »
 
-Ces mots révélèrent l’intelligence cruelle de la conception spatiale de Serakion.
+Han Jiwoo posa la question.
 
-Plus un espace semble agréable, confortable et moins menaçant, plus le contrôle réel peut être profond.
+« Je ne sais pas. Cette fois, trois. »
 
-Alors, ceux qui résistent et ceux qui viennent à la rescousse ont tendance à faire des faux pas dès le premier pas.
+C'était la seconde main.
 
-Kael étudia longuement les trajectoires du sol, les reflets des murs et les positions cachées des axes de fermeture, puis parla à voix basse.
+« La dernière fois, c'était deux. »
 
-« Pour extraire quelqu'un, vous ne combattez pas ici. Vous redirigez un carrefour auparavant. »
+Kael déplia trois doigts, en replia un pour n'en garder que deux, puis rouvrit les trois.
 
-La seconde main de récupération demanda très brièvement.
+« Quand c'était deux, tu étais dedans ? »
 
-« Pourquoi. »
+Han Jiwoo s'adressait à la seconde main.
 
-Kael montra le sol du menton.
+« Dehors. »
 
-« Si vous êtes détecté ici, la vitesse de fermeture est plus rapide que la vitesse de course d'une personne. »
+« Et dedans ? »
 
-Bref silence.
+« Trois. Un seul est sorti. »
 
-Ce n’était pas exagéré. C'était plus proche de la description la plus réaliste de ce monde.
+Sur la cloison ouverte que regardait Han Jiwoo, les motifs s'étaient rejoints, mais derrière, les deux restants étaient enfermés. Elle ne détourna pas les yeux.
 
-Serakion vous fait toujours comprendre trop tard. Et une fois que vous êtes en retard, le corps humain ne peut plus suivre la structure.
+« Celui qui est sorti ? »
 
-Sachant cela, le combat dans l'esprit de Kael était en train de passer d'une simple collision à une technique permettant de gagner du temps et de retarder les replis.
+« Au niveau d'en bas. »
 
-Ce que vous bloquez n'est pas un mur. C'est l'heure de fermeture. Ce que vous ouvrez n'est pas une porte. C'est l'écart et la séquence qu'une personne doit traverser.
+« Qui ? »
 
-Jiwoo entendit cela et murmura très bas.
+La seconde main ne répondit pas ; Han Jiwoo passa un à un les visages du niveau d'en bas, puis s'arrêta.
 
-« Il ne s'agit pas de retirer les gens. Il s'agit de les faire sortir avant que tout ne se replie. »
+La première main parla très bas.
 
-Kael fit un bref signe de tête.
+« C'est pour ça qu'on regarde toujours deux choses. Le chemin par où on les sort, et la place qu'on tient jusqu'au bout. »
 
-C'était vrai.
+Kael regarda longtemps de ce côté, puis posa une question.
 
-Le sauvetage à Serakion n’est pas un combat de force. Il s’agit plutôt d’une lutte contre le timing : retirer les gens avant que la structure ne se ferme.
-Et puis, la première main de récupération a regardé vers l’avant et a dit très bas.
+« La place qu'on tient, qui la tient ? »
 
-« La ligne de préparation pour l'élévation est sur le point de bouger. »
+« Ça dépend des fois. »
 
-Les trois regards tournèrent dans cette direction simultanément.
+« Et on en revient ? »
 
-Le flux d’envoi d’humains qualifiés vers le haut. Où couper ce flux, où le rediriger, jusqu'où suivre – rien de tout cela n'était plus abstrait.
+La première main répondit après un temps.
 
-Kael inspira très doucement.
+« Ça dépend des fois. »
 
-Et à ce moment-là, tout le monde ressentait la même chose : cette reconnaissance allait au-delà de la simple observation pour devenir un projet visant réellement à extraire quelqu'un, un jour.
+Kael regarda de nouveau la cloison, puis la largeur de ses propres épaules. Ses yeux firent encore une fois l'aller-retour entre la cloison et ses épaules.
+
+La seconde main parla en regardant le dos de Kael.
+
+« Vous êtes large. Pour tenir cette place. »
+
+Kael répondit sans se retourner.
+
+« C'est pour ça que je m'y tiens. »
+
+La première main regarda les épaules de Kael, puis la largeur de la cloison.
+
+« Avec ces épaules, il en passe deux de plus. »
+
+« Trois. Si ce sont des enfants. »
+
+La première main n'en dit pas plus ; la seconde, elle, regarda ses propres épaules : elles étaient étroites.
+
+Un peu plus tard apparut le circuit extérieur de la zone d'attente intermédiaire, où séjournaient les candidats qu'on allait faire monter.
+
+Ils n'y entrèrent pas ; ils regardèrent à travers une fente d'observation.
+
+Plus raffiné que les zones précédentes, l'endroit avait une lumière douce et des sons bas. Au sol, les places où s'arrêter étaient marquées d'empreintes, et les gens debout dessus ne bougeaient pas, même quand une machine passait.
+
+Kael parla en regardant les empreintes.
+
+« Ici, c'est un endroit où il ne faut pas se battre. »
+
+Han Jiwoo le regarda.
+
+Kael poursuivit sans détourner les yeux.
+
+« C'est fermé trop joliment. Si les gens prennent peur, ils sont poussés plus loin à l'intérieur. »
+
+Il désigna le fond du secteur, le côté où la lumière était plus douce encore.
+
+« Là-bas, ça a l'air plus confortable. Alors on court par là. C'est là que ça se ferme. »
+
+Aux yeux de Han Jiwoo aussi, ce côté-là avait l'air confortable ; elle détourna les yeux.
+
+« Comment tu le sais ? »
+
+« Le sol. Du côté confortable, il n'y a pas de traces. Personne n'arrive jusque-là. »
+
+Han Jiwoo regarda le sol : plus on allait vers l'intérieur, plus le marquage d'empreintes était net. Un marquage que rien n'avait usé.
+
+« Alors on court où ? »
+
+« On ne court pas. Dès qu'on court, on va là où eux ont choisi. Il faut dévier en marchant. »
+
+Han Jiwoo regarda de nouveau le marquage d'empreintes et mesura la largeur où l'on pourrait marcher.
+
+Quelqu'un écarta le pied d'un demi-pas hors de son empreinte ; une machine vint se planter devant ce pied. Ce n'est qu'après que la personne eut remis le pied dans l'empreinte que la machine s'en alla. Le pied était sur l'empreinte. Exactement.
+
+« Pourquoi cette personne a écarté le pied ? »
+
+Han Jiwoo posa la question.
+
+« Je ne sais pas. »
+
+Kael répondit.
+
+« Elle en avait envie, sans doute. »
+
+La seconde main baissa les yeux sur sa propre jambe : une jambe qui avait envie de s'écarter. Han Jiwoo s'accroupit et sortit le tournevis ; c'était la troisième fois.
+
+Kael examina encore un long moment les circuits au sol, les reflets sur les parois et l'emplacement des axes de fermeture cachés, puis parla à voix basse.
+
+« Pour sortir quelqu'un, on ne se bat pas ici. Il faut dévier avant, un embranchement plus tôt. »
+
+La seconde main de récupération posa une question très brève.
+
+« Pourquoi ? »
+
+Kael désigna le sol du menton.
+
+« Si on se fait repérer ici, ça se ferme plus vite qu'on ne court. »
+
+La seconde main regarda sa jambe, et la première regarda la jambe de la seconde. Ni l'une ni l'autre ne dit rien.
+
+Ater regarda les axes de fermeture que Kael avait vus, mais il ne les voyait pas. Ce n'est qu'après un long moment qu'il les distingua dans les motifs du mur.
+
+« Y en a-t-il trois ? »
+
+« Quatre. »
+
+Kael répondit.
+
+« Un de plus au plafond. »
+
+Ater regarda le plafond. Il le vit.
+
+Han Jiwoo murmura très bas.
+
+« Il ne s'agit pas de faire sortir les gens. Il faut les tirer de là avant que ça se replie. »
+
+Kael hocha brièvement la tête.
+
+« Avant que ça se replie. »
+
+Il le répéta.
+
+« Pour ça, il faut savoir quand ça se replie. Avant qu'eux ne le sachent. »
+
+« Qui le saura ? »
+
+Han Jiwoo posa la question.
+
+Ater regarda de nouveau les quatre axes de fermeture.
+
+« Les quatre se ferment-ils ensemble ? »
+
+« Non. »
+
+Kael répondit.
+
+« Le plafond d'abord. Les murs ensuite. Il faut que le plafond soit fermé pour que les murs se ferment. »
+
+« Alors le plafond… »
+
+« Si on retarde le plafond, les murs ne peuvent pas se fermer. »
+
+Le plafond vers lequel Ater leva les yeux était haut.
+
+« Qui peut l'atteindre ? »
+
+« Moi. »
+
+Kael poursuivit en regardant son bras.
+
+« Avec ces épaules qu'il a fallu tourner deux fois pour entrer. »
+
+Il regarda la seconde main.
+
+« Quelqu'un qui connaît le chemin. »
+
+La seconde main hocha la tête.
+
+« Moi. »
+
+« Avec cette jambe ? »
+
+« Avec cette jambe. »
+
+Han Jiwoo appuya sur sa sacoche à outils.
+
+La première main parla très bas, les yeux devant.
+
+« La ligne d'attente de la montée va bientôt se mettre en mouvement. »
+
+Les regards des trois se tournèrent de ce côté.
+
+Au fond du secteur, une ligne lumineuse de guidage s'alluma, et les gens debout sur les empreintes levèrent la tête au même instant. Deux machines se postèrent devant la porte intérieure. Ce n'était pas une porte mais un endroit où le mur s'ouvrait, et l'on n'en voyait pas le joint.
+
+Pendant que Han Jiwoo retenait son souffle, la main d'Ater s'appuya au mur. Kael regarda de nouveau les quatre axes de fermeture. Un au plafond et trois aux murs : quatre doigts.
+
+La seconde main remit sa jambe en place sans bruit, mais il y eut tout de même un bruit, très léger. La première ne se retourna pas.
+
+La ligne lumineuse de guidage s'étira vers l'intérieur, et les gens détachèrent au même instant le pied de leur empreinte. Un pas.
+
+Kael inspira. Il n'expira pas.
 
 ---
 

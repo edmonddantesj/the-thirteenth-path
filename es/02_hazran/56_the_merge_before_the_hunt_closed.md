@@ -39,15 +39,13 @@ Al oírlo, Han Jiwoo echó por primera vez una mirada de reojo hacia un lado.
 
 —No está mal.
 
-Fue una frase corta. Pero a Sion esa sola frase le sonó extrañamente fuerte. Que en una partida como esta Han Jiwoo aceptara enseguida el cálculo de otra mano quería decir, al menos, que la línea que Sern estaba viendo era de fiar.
-
 Sion envolvió con más firmeza la brasa que tenía en la mano.
 
 Los ojos de Sern, el aparato de Kael, el pilotaje de Han Jiwoo: todo empezaba a moverse ahora con esta sola brasa como referencia. No según la tabla de puntos sacada de la partida de la carrera, sino en una disposición para sacar viva hacia fuera la mano que llevaba lo verdadero.
 
 Detrás, el planeador rojo oscuro recuperaba de nuevo la línea.
 
-Oficio, tenían. Habían perdido el ritmo dos veces y aun así no se habían muerto del todo. Aunque al planeador le habían arrancado un panel de un costado y el hombro del que iba detrás se había sacudido con fuerza, el piloto de delante se aferró a la línea hasta el final. Solo que ya no eran los que seguían con holgura, como al principio. Los equipos con la brasa eran ahora dos, y ellos se habían vuelto los que tenían que decidir a cuál desgarrar primero.
+Oficio, tenían. Habían perdido el ritmo dos veces y aun así no se habían muerto del todo. Aunque al planeador le habían arrancado un panel de un costado y el hombro del que iba detrás se había sacudido con fuerza, el piloto de delante se aferró a la línea hasta el final. Solo que ya no eran los que seguían con holgura, como al principio. Los equipos que quizá llevaban la brasa eran ahora dos, y ellos se habían vuelto los que tenían que decidir a cuál desgarrar primero.
 
 —Van a morder primero a la pareja de Han Jiwoo.
 Sern lo dijo en voz baja.
@@ -207,11 +205,6 @@ En vez de responder, Sion abrazó la brasa más hondo.
 Detrás, el planeador rojo oscuro volvía a pegarse;
 al costado, el planeador de Kael y Sern buscaba el ángulo para volver a unirse abajo;
 arriba, las manos de fuera de la arena empezaban a olerse cada vez más la línea de escape.
-
-Y Sion lo supo.
-
-Lo siguiente no era una simple unión.
-A partir de ahora, los dos equipos que tenían lo verdadero debían decidir cómo huir juntos.
 
 Sion miró una vez la línea vacía de delante.
 

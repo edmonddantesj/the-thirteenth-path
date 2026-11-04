@@ -176,7 +176,7 @@ Sion s'arrêta un instant.
 
 Contre la paroi d'en face, Luhai était assis, les genoux entre les bras.
 
-Il n'avait pas dit un mot depuis tout à l'heure. Celui qui, dans ce vaisseau, avait vécu le plus longtemps à Hazran était le plus silencieux.
+Il n'avait pas dit un mot depuis tout à l'heure. Celui qui, dans le groupe, avait vécu le plus longtemps à Hazran était le plus silencieux.
 
 En faisant passer les bidons d'eau, Sion en posa aussi un devant Luhai.
 
@@ -218,8 +218,6 @@ Sion alla se mettre à côté d'elle.
 Aka mit longtemps à répondre.
 
 « Ceux qui ont vu ça doivent partir. »
-
-Sion sentit ces mots le frapper exactement au fond de la poitrine.
 
 S'ils étaient à bord, ce n'était pas par chance. Zahir les avait menés jusqu'au seuil et poussés à l'intérieur, Nassim les avait poussés dans le dos, Nahira leur avait lâché la main. La dernière chose qu'avaient faite ces gens, c'était de les envoyer dehors.
 

@@ -228,8 +228,6 @@ Han Jiwoo añadió lo suyo.
 
 —Pero no creo que tengamos mucho tiempo para admirarlo.
 
-Tenía razón.
-
 Bajo la plataforma auxiliar que Kael apuntalaba estalló otra vez un crujido de metal. El apuntalamiento no iba a durar para siempre. Las dos líneas y el trozo de línea de aprobación que acababan de conseguir podían ser todo.
 
 Sern habló con firmeza.

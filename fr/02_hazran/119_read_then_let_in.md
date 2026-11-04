@@ -1,334 +1,276 @@
 # Chapitre 119 — Lire, puis laisser entrer
 
-Plus ils se rapprochaient,
-plus ce monde devenait — non pas beau —
+À mesure qu'ils approchaient, ce monde ne devint pas plus beau. Il devint plus précis.
 
-mais précis.
+À mesure que la distance diminuait, on distinguait jusqu'à l'intervalle entre les strates, l'angle de la lumière réfléchie, la courbure des structures reliées entre elles, la largeur des espaces vides. Tout était identique, et nulle part rien ne différait.
 
-De loin, c'était la beauté des reflets argentés et des structures froides qui frappait d'abord.
-Mais à mesure que la distance diminuait,
-le fait que cette beauté n'était pas un simple paysage,
-mais un arrangement minutieusement calculé, devenait de plus en plus net.
+Devant le hublot, Sion se mit à compter ces intervalles et s'arrêta après cinq : les cinq étaient identiques.
 
-Les intervalles entre les strates.
-L'angle de la lumière réfléchie.
-La courbure des structures reliées entre elles.
-Jusqu'à la largeur des espaces vides.
+Derrière, un enfant demanda à un adulte :
 
-Nulle part un résidu de désordre.
+« Y en a combien ? »
 
-En contemplant cela, Sion se surprit à penser
-moins à l'acharnement avec lequel ce monde s'était poli lui-même,
-et davantage à tout ce qu'il avait dû retrancher au fil du temps.
+Comme l'adulte ne répondait pas, Sern répondit à sa place.
 
-Un monde trop ordonné
-est en général un monde qui n'a pas toléré grand-chose.
+« Il y en a cent trente-deux, rien que parmi celles que l'on voit. »
 
-Jiwoo, sans lâcher le gouvernail, dit à voix basse :
+L'enfant resta bouche bée, et l'adulte lui fit refermer la bouche.
 
-« Le réseau extérieur nous observe. »
+Sans cesser de manier la barre, Han Jiwoo dit à voix basse :
 
-Kael regarda par la vitre et demanda :
+« Le réseau extérieur regarde vers nous. »
 
-« Des armes ? »
+Kael demanda, les yeux sur le dehors :
 
-Jiwoo secoua aussitôt la tête.
+« Des batteries ? »
 
-« Pas encore, »
-dit-elle.
-« Mais ce ne sont pas de simples structures non plus. »
+Han Jiwoo secoua aussitôt la tête.
 
-Sern reprit immédiatement les relevés.
+« Pas encore. Mais c'est encore moins de simples structures. »
 
-« Les intervalles d'observation changent, »
-dit-il.
-« À mesure que nous nous rapprochons, leur alignement suit — de façon infime. »
+Sern prit aussitôt le relais avec les valeurs.
 
-Un bref silence.
+« L'intervalle d'observation est en train de changer. »
 
-Luhai se raidit.
+Il poursuivit.
 
-« Alors ça nous regarde. »
+« Plus nous approchons, plus leur alignement suit, de façon infime. »
 
-Sern répondit brièvement, comme à son habitude :
+Il superposa deux lignes sur le panneau d'enregistrement pour les montrer. L'une était leur propre vitesse, l'autre l'angle de là-bas, et les deux lignes s'infléchissaient de la même façon.
 
-« Oui. »
-« Ça nous lit. »
+Au bout d'un bref silence, le visage de Luhai se durcit.
 
-Ces deux phrases suffirent
-à modifier de nouveau l'air à l'intérieur de la coque.
+« Alors ça veut dire qu'ils regardent. »
 
-Jusqu'ici, c'étaient eux qui observaient ce monde.
-Mais au-delà d'un certain seuil,
-ce monde s'était mis à les observer en retour.
+Sern, cette fois encore, répondit brièvement.
 
-Aka, les yeux tournés vers la vitre, dit très bas :
+« Oui. Nous sommes lus. »
 
-« Ce n'est pas un accueil. »
+La main de Han Jiwoo glissa une fois sur la barre ; elle s'essuya la main sur son pantalon et la reprit.
+
+« Lire, ça lit quoi ? »
+
+Luhai posa la question.
+
+« Ils lisent la taille, la vitesse, la masse. »
+
+Sern répondit.
+
+« Pour la suite, je ne sais pas. »
+
+Luhai baissa les yeux sur son propre corps.
+
+« Même ce qu'il y a à bord ? »
+
+Sern ne répondit pas et ne regarda que le panneau d'enregistrement, pendant que Luhai reculait encore d'un pas du hublot.
+
+Les yeux sur le dehors, Aka dit très bas :
+
+« C'est pas un accueil. »
 
 Seorin demanda :
 
 « Alors quoi ? »
 
-Aka ne répondit qu'après un long silence.
+Aka ne répondit que longtemps après.
 
-« Du tri. »
+« Un tri. »
 
-Le mot était court,
-et c'est pour cela qu'il frappa plus froidement.
+Kael remua les lèvres pour répéter le mot sans un son, pendant que Luhai, de nouveau, reculait d'un pas du hublot.
 
-Ce monde n'avait pas ouvert le feu.
-N'avait pas averti.
-N'avait pas bloqué.
+Ce monde n'avait encore ni tiré, ni averti, ni bloqué. Les structures d'argent ne faisaient que changer peu à peu d'angle, et quand elles en changeaient, il n'y avait aucun bruit. Derrière le hublot, on n'aurait rien pu entendre de toute façon, mais Han Jiwoo tendait quand même l'oreille.
 
-Mais le silence n'en était pas un non plus.
+Ater regarda longuement entre les structures du dehors, puis parla brièvement.
 
-C'était l'inverse —
-un calme si profond qu'il en devenait plus explicite encore.
+« Est-ce une invitation à entrer ? »
 
-Ce monde ne délibérait pas sur l'opportunité de les attaquer.
-Il jugeait d'abord dans quelle catégorie les ranger.
+Han Jiwoo répondit à voix basse.
 
-Ater observa longuement l'espace entre les structures extérieures,
-puis dit brièvement :
+« Ça bloque pas, et ça accueille pas non plus. »
 
-« On nous laisse entrer ? »
+Sern enchaîna.
 
-Jiwoo répondit à voix basse :
+« Cela tient plutôt du guidage. »
 
-« Ça ne bloque pas,
-et ça ne reçoit pas non plus. »
-
-Sern enchaîna :
-
-« C'est plus proche du guidage. »
-
-Kael plissa les sourcils.
+Kael fronça les sourcils.
 
 « Dans le bon sens ? »
 
-Cette fois, personne ne put répondre tout de suite.
-
-Ce pouvait être un bon guidage.
-Ce pouvait être un mauvais guidage.
-Mais au moins une chose était certaine.
-
-Même la trajectoire qu'ils avaient l'impression de choisir
-se trouvait peut-être déjà à l'intérieur du périmètre autorisé par ce monde.
-Et plus troublant encore,
-ce monde ne montrait aucune agitation face à leur entrée.
-
-Comme si parvenir jusqu'ici
-relevait déjà de l'ordre du prévu.
+Cette fois, personne ne put répondre tout de suite ; Sern regarda le panneau d'enregistrement, Han Jiwoo la barre, Seorin le hublot.
 
 Luhai dit à voix basse :
 
-« La pire des approches. »
+« La pire des façons. »
 
-Seorin expira très brièvement.
+Seorin expira, très brièvement.
 
-« Pire que ceux qui vous tombent dessus en combattant, »
-ajouta-t-elle en regardant par la vitre.
-« Ici, bizarrement, il n'y a que le côté entrée qui soit aussi lisse. »
+« Pire que ceux qui cherchent la bagarre. »
 
-C'était vrai aussi.
+Elle ajouta, les yeux tournés vers le dehors :
 
-L'hostilité, au moins, se lit comme de l'hostilité.
-Mais ceci
-était une méthode qui rendait impossible de trancher sur-le-champ entre hostilité et hospitalité,
-et qui déstabilisait l'autre en profondeur.
+« Ici, bizarrement, il n'y a que le côté entrée qui soit trop lisse. »
 
-Plusieurs structures argentées flottant devant le vaisseau
-corrigèrent leur angle — à peine.
+Elle regardait son propre visage reflété dans le hublot ; derrière, une structure d'argent passa, puis passa aussi sur son visage. Elle recula d'un demi-pas.
 
-Un changement si infime qu'il ne ressemblait presque pas à un mouvement.
-Mais Sern le repéra aussitôt.
+Quelques structures d'argent qui flottaient à l'avant du vaisseau inclinèrent leur angle, très légèrement, et Sern s'en aperçut aussitôt.
 
-« Ligne d'entrée verrouillée, »
-dit-il à voix basse.
+« La ligne d'entrée est fixée. »
 
-Jiwoo demanda immédiatement :
+Il le dit à voix basse.
 
-« Ligne de sortie ? »
+Han Jiwoo demanda aussitôt :
 
-Sern parcourut les données un instant de plus avant de répondre.
+« Et la ligne de sortie ? »
 
-« Pas encore visible. »
+Sern lut encore un moment les valeurs avant de répondre.
 
-Jiwoo se mordit la lèvre.
+« Je n'en vois pas encore. »
 
-Le choix était désormais simple.
-Impossible de revenir en arrière.
-Impossible de s'arrêter.
-Et ce monde avait déjà fixé
-le seul seuil qu'ils franchiraient.
+Han Jiwoo se mordit la lèvre et tourna un peu la barre vers la gauche. La coque suivit, et les structures, dehors, pivotèrent elles aussi de la même amplitude ; elle remit la barre en place.
 
-Après cela,
-le fait même que rien ne les bloquait devenait encore plus inconfortable.
+Le chemin que suivait le vaisseau était déjà dégagé. Les structures d'argent s'ouvraient, comme si elles avaient calculé jusqu'à sa largeur, en laissant deux empans de main de chaque côté de la coque, et Han Jiwoo regarda ces deux empans.
 
-Le chemin qu'empruntait le vaisseau était déjà dégagé,
-et les structures argentées s'ouvraient avec une précision telle
-qu'on eût dit la largeur elle-même calculée à l'avance.
+« C'est pas un guidage. »
 
-Large.
-Amplement large.
-Mais étrangement,
-nul sentiment de liberté.
+Kael demanda, à côté d'elle :
 
-L'inverse, plutôt.
+« Alors quoi ? »
 
-Ce chemin ne semblait pas ouvert —
-il semblait assigné.
+Han Jiwoo répondit en regardant dehors.
 
-Jiwoo, agrippée au gouvernail, dit à voix basse :
+« La manière de passer est imposée. »
 
-« Ce n'est pas un guidage. »
+Sern, qui lisait toujours les valeurs, dit très brièvement :
 
-Kael, à côté d'elle, demanda :
+« Si nous en sortons, nous serons aussitôt pris. »
 
-« Quoi alors ? »
+Ater demanda sans quitter le dehors des yeux :
 
-Jiwoo répondit en regardant le dehors :
+« Vous en êtes certain ? »
 
-« Le mode de passage est imposé. »
+Sern, cette fois encore, répondit brièvement.
 
-Sern, toujours plongé dans les données, ajouta très brièvement :
+« Oui. C'est trop bien rangé. »
 
-« Déviez, et vous serez repéré immédiatement. »
+Ater hocha la tête, se détourna du hublot et regarda les gens du côté de la coursive. Les gens de Hazran se tenaient encore à l'entrée de la coursive.
 
-Ater, les yeux rivés au dehors, demanda :
+« Il vaudrait mieux les faire asseoir. »
 
-« Certain ? »
+Il s'adressait à Seorin.
 
-Sern répondit encore brièvement :
+« S'ils sont debout quand nous serons pris, ils se blesseront. »
 
-« Oui. »
-« C'est trop organisé. »
+Seorin se retourna vers eux.
 
-Sion regardait au-dehors
-et comprit que la beauté de ce monde ne ressemblait plus à un paysage.
+« Asseyez-vous. »
 
-Plus ils s'approchaient,
-plus elle cessait d'être un objet d'admiration
-pour devenir une ligne de référence mesurant chacun de leurs mouvements.
+Cette fois, le vieil homme s'assit le premier, puis l'enfant, puis les autres. Les têtes descendirent sous le hublot ; seul un enfant, les genoux relevés, levait les yeux vers le hublot.
 
-Chaque fois qu'ils passaient entre les structures argentées,
-c'était comme si des yeux invisibles lisaient tour à tour la longueur et le poids de la coque,
-sa vitesse, son équilibre,
-et jusqu'au type de vie qu'elle transportait.
+Pendant qu'Ater regardait de nouveau le hublot, Sion regarda dehors lui aussi. Chaque fois qu'ils passaient entre les structures d'argent, l'ombre de la coque glissait sur leur surface, et là où l'ombre était passée, il ne restait rien. Il leva la main près du hublot, puis la baissa.
 
-Seorin ne cacha pas son déplaisir.
+Seorin dit :
 
-« Même le passage exige une permission, ici. »
+« Ici, même pour passer, faut une permission. »
 
-Aka resta longtemps sans rien dire.
+Aka avait approché le front tout près du hublot, sans le toucher, et resta un moment sans rien dire.
 
-Ce n'était pas la peur que ce monde lui inspirait.
-C'était un malaise d'une nature plus étrange.
+Elle regarda dehors, puis dit très bas :
 
-Si lisse
-qu'il n'y avait nulle fissure.
-Nulle fissure,
-donc nulle marge pour que le vivant se ménage un espace par accident.
+« C'est pas un endroit gentil. C'est un endroit poli. »
 
-Elle regarda par la vitre et dit très bas :
+Sion se tourna lentement vers elle.
 
-« Ce n'est pas un endroit aimable. »
-« C'est un endroit poli. »
+Aka continua.
 
-Sion la regarda lentement.
+« Être poli, des fois, ça veut pas dire qu'on voit l'autre comme une personne. »
 
-Aka poursuivit.
+Luhai voulut dire quelque chose, puis renonça ; Kael lui donna une tape sur le bras, et Luhai ne repoussa pas cette main.
 
-« Être poli
-ne signifie pas toujours que l'on considère l'autre comme une personne. »
+Un peu plus tard, loin à l'avant du vaisseau, de longues et fines bandes de lumière s'allumèrent l'une après l'autre.
 
-Un peu plus tard,
-loin devant le vaisseau,
-de fines et longues bandes de lumière s'allumèrent en séquence.
+Une.
+Puis une autre.
+Au même intervalle.
 
-Au premier regard, elles ressemblaient à des feux de navigation.
-Mais en y regardant mieux,
-ce n'étaient pas de simples balises —
-elles s'allumaient une à une selon un rythme déterminé,
-notifiant en silence la vitesse et l'espacement auxquels il fallait se conformer.
+Han Jiwoo le savait sans avoir à compter cet intervalle. Sous la barre, l'indicateur de vitesse clignotait au même rythme.
 
 Sern dit à voix basse :
 
-« Limitation de vitesse en approche. »
+« Une limitation de vitesse vient de nous être imposée. »
 
-Jiwoo fronça les sourcils.
+Han Jiwoo fronça les sourcils.
 
-« Un signal est envoyé ? »
+« Ils envoient un signal ? »
 
-« Pas ouvertement, »
-dit Sern.
-« Mais c'est réglé d'avance. »
+« Ils ne le font pas ouvertement. »
 
-À cet instant,
-à l'intérieur d'une vaste structure annulaire flottant au loin,
-un couloir doucement ouvert devint visible.
+C'était Sern.
 
-Il s'ouvrit à la manière d'une machine,
-et pourtant, étrangement, évoquait moins une porte que l'entrée d'un salon de réception.
+« Mais tout a été réglé d'avance. »
 
-Des courbes excessivement ordonnées.
-Des surfaces métalliques belles au point d'en être superflues.
-Des proportions qui rendaient d'emblée misérable quiconque entrait.
+Comme Han Jiwoo ne réduisait pas la vitesse, l'une des bandes, à l'avant, s'éteignit ; ce n'est qu'après qu'elle eut ralenti que la bande se ralluma. Elle ouvrit une fois la main qui tenait la barre, puis la referma.
+
+« Refais-le une fois. »
+
+C'était Seorin.
+
+Han Jiwoo accéléra. Deux bandes s'éteignirent. Elle ralentit. Les deux se rallumèrent.
+
+« La deuxième fois, c'est deux. »
+
+C'était Han Jiwoo.
+
+« Je fais pas de troisième fois. »
+
+Seorin hocha la tête, et Sern nota le chiffre deux sur le panneau d'enregistrement.
+
+À cet instant, loin derrière le hublot, une passe s'ouvrit à l'intérieur d'une immense structure annulaire qui flottait là.
+
+Elle s'ouvrit sans bruit, et à l'endroit ouvert, la surface métallique formait une courbe lisse jusqu'au fond. L'entrée était large et l'intérieur étroit, d'une étroitesse taillée à la largeur de la coque.
 
 Kael dit à voix basse :
 
-« C'est l'entrée ? »
+« C'est ça, l'entrée ? »
 
-Jiwoo répondit sans lâcher la barre :
+Han Jiwoo répondit sans lâcher la barre.
 
-« Moins une entrée que… »
-Elle déglutit brièvement.
-« Plutôt un mode de réception. »
+« Plutôt qu'une entrée… »
+
+Elle retint un peu son souffle.
+
+« On dirait une façon de recevoir. »
 
 Le vaisseau glissa lentement à l'intérieur de la structure annulaire.
 
-Presque aucune vibration.
-Aucun impact.
+Pas de vibration, pas de choc. Han Jiwoo posa la main contre la paroi : aucune résonance. Jamais, à Hazran, ce vaisseau n'avait été aussi silencieux ; elle retira la main.
 
-Et c'est justement pour cela que le malaise grandit.
+À l'entrée de la coursive, l'enfant serra la main d'un adulte, et l'adulte serra cette main en retour.
 
-Comme si chaque secousse du voyage jusqu'ici avait été un mensonge —
-à partir du moment où ils pénétrèrent dans ce monde,
-tout devint si fluide
-qu'on eût dit qu'ils avaient toujours fait partie de cet ordre.
+Et c'est alors que le groupe entendit pour la première fois une voix basse et épurée qui flottait à l'intérieur de ce monde.
 
-Et alors,
-pour la première fois, une voix basse et épurée s'éleva de l'intérieur de ce monde.
-
-On ne put déterminer aussitôt si elle s'adressait directement à eux.
-Trop lointaine.
-Trop calibrée.
-Elle ressemblait plutôt à une annonce dont toute émotion aurait été rabotée.
-
-Mais un seul mot demeura étrangement distinct.
+Une voix lointaine, sans hauts ni bas, dont un seul mot était net.
 
 « Serakion… »
 
 Un bref silence.
 
-Sion releva les yeux, très lentement.
+Tandis que Sion levait très lentement les yeux, la main de Han Jiwoo s'immobilisa sur la barre. Quand le doigt de Sern s'arrêta sur le panneau d'enregistrement, Seorin se détourna du hublot.
 
-Ce monde froid,
-ordonné,
-beau mais dépourvu d'égard,
-venait enfin de livrer son propre nom — très tard.
-
-Aka répéta ce nom une fois, d'une voix à peine audible.
+D'une voix à peine audible, Aka relut ce nom une fois.
 
 « Serakion. »
 
-À cet instant,
-le nom ne sonna pas comme un message de bienvenue.
+Ce son resta dans la coque, rien de plus ; la voix du dehors ne revint pas.
 
-Il ressemblait davantage à un mot qui dit calmement,
-à quelqu'un déjà entré,
-dans quoi, exactement, il vient de pénétrer.
+Les lumières de la coque se reflétèrent sur la surface métallique, au fond de la passe, et partout où elles se reflétaient, les traces de soudure de la coque se reflétaient aussi. Ce vaisseau n'avait jamais vu sa propre forme reflétée aussi nettement. Han Jiwoo regarda ce reflet : on y voyait toutes les tôles rajoutées.
+
+Sous le hublot, l'enfant tira la manche d'un adulte.
+
+« C'est un nom ? »
+
+L'adulte prit seulement la main de l'enfant, sans répondre.
+
+Le vaisseau continua de s'enfoncer à l'intérieur.
 
 ---
 

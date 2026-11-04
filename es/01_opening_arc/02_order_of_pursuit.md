@@ -30,7 +30,7 @@ Ater cerró la pantalla en silencio.
 
 La Cámara de Reconocimiento imperial siempre había sido un lugar que creía en la secuencia. Qué se abre, qué se cierra, qué se borra, qué se conserva. Su orden empezaba en la secuencia. Por eso un registro con la secuencia alterada era peor que un simple error.
 
-—Barek. Prepare una línea de acceso al terreno.
+—Barek. Rastree esa línea de recuperación hacia atrás.
 
 Sern inclinó la cabeza.
 
@@ -88,7 +88,7 @@ Ater no lo negó ni lo confirmó. Solo habló, muy bajo.
 
 —Parece que ha entrado una mano no ordenada.
 
-Sern no preguntó más ante esas palabras. En cambio, volvió a girarse hacia el terminal. Era raro que Su Excelencia dijera «no ordenada». Y cuando aparecía una expresión así, las cosas solían derivar en una dirección más engorrosa que un sellado.
+Sern no preguntó más ante esas palabras. En cambio, volvió a girarse hacia el terminal. Cuando Su Excelencia sacaba esa palabra, «no ordenada», las cosas solían derivar en una dirección más engorrosa que un sellado.
 
 Hizo aparecer la lista de accesos exteriores que había mantenido aparte, fuera de la línea de aprobación.
 El camino hacia la ciudad portuaria neutral no era uno solo. La nave diplomática oficial, la línea de aprobación logística imperial, las naves de transbordo de concesión civil y hasta las rutas grises que no quedaban en los registros. La cuestión era cuál de ellas se había movido primero.
@@ -113,10 +113,10 @@ Ater se volvió hacia él.
 
 —En que no hay nada.
 
-La respuesta de Sern fue corta, y por eso más precisa.
+La respuesta de Sern fue corta.
 
 —Con los papeles tan removidos, no hay rastro de aprobación oficial de traslado.
-El tiempo de espera de la aprobación es de unas siete horas, y en ese tiempo el terreno se cierra tres veces. Quien lo sabe no espera.
+Por ese lado, la espera de aprobación siempre ronda las siete horas, y en ese tiempo el terreno se cierra tres veces. Quien lo sabe no espera.
 
 La mirada de Ater se hundió un instante.
 Era una expresión en la que el desagrado y el interés se superponían en una capa muy fina.
@@ -140,9 +140,11 @@ Ater se colocó bien el faldón del abrigo.
 
 —La más rápida de las que no llamen la atención.
 
-Sern no preguntó más.
+Sern solo inclinó la cabeza.
 Moverse en nombre de los Valkar, pero reducir al mínimo la sombra de los Valkar.
 Eso bastaba para leer que este asunto era distinto de lo habitual.
+
+---
 
 El interior de la nave de recogida era aún más estrecho de lo que había pensado.
 
@@ -351,16 +353,10 @@ Seorin preguntó muy bajo.
 
 —¿Abrimos?
 
-Sion puso la mano sobre el panel de la puerta.
+En vez de contestar, Sion puso la mano sobre el panel de la puerta.
 El tacto frío del metal le llegó a la palma.
 
-—Hay que abrir.
-
-—¿Por qué?
-
-Sion contestó escuchando las voces del otro lado de la puerta.
-
-—Porque ahora tenemos que confirmar si lo que perseguimos es un objeto o una persona.
+Las voces del otro lado de la puerta se cortaron en seco.
 
 En ese instante, toda la nave de recogida se sacudió una vez con fuerza.
 A lo lejos resonó grave una larga señal de entrada a puerto.

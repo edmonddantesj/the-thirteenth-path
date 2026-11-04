@@ -4,15 +4,11 @@ Seorin parla la première.
 
 « Pourquoi c'est aussi calme ? »
 
-L'air de la coque s'arrêta le temps d'une mesure.
-
 Ce n'est qu'en l'entendant que Sion s'aperçut qu'il n'avait pas compté cela. L'eau, on l'avait comptée, les gens aussi, le temps, on n'avait pas pu le compter, mais ce qui leur collait aux talons, personne ne l'avait compté.
 
 « Après une sortie pareille, ils auraient déjà dû mordre. »
 C'était Seorin.
 « Ils ne mordent vraiment pas. »
-
-Sion sut aussitôt qu'elle avait raison.
 
 Tant que l'intérieur de Hazran ne s'était pas effondré tout entier, l'autre camp n'avait jamais reculé. À chaque décollage, ils avaient visé le passage, et même quand la dernière ligne avait été ensevelie, ils ne s'étaient pas arrêtés.
 
@@ -39,7 +35,7 @@ Sion trouva cette distinction bien digne de Kael. Même au marché de Hazran, ce
 
 Sern leva la tête de son panneau.
 
-« S'ils étaient incapables de nous suivre, ils se seraient accrochés à nous depuis longtemps. »
+« S'ils avaient pu nous suivre, ils se seraient accrochés à nous depuis longtemps. »
 Il le dit.
 « C'est le calme qui est plus étrange. »
 
@@ -134,7 +130,7 @@ Impossible de savoir si cela s'était élargi ou si c'était ainsi depuis le dé
 
 Du bout de l'ongle, Sion traça un court trait à cet endroit.
 
-À une longueur de bras du trait qu'il avait tracé la veille à côté du panneau.
+À une longueur de bras de la marque qu'il avait tracée la veille à côté du panneau.
 
 « Pourquoi tu traces ça ? »
 C'était Luhai qui demandait.
@@ -260,7 +256,7 @@ Ce n'est qu'après un demi-empan de plus que Han Jiwoo retira sa main.
 
 Elle ne dit rien. Sion ne demanda rien non plus.
 
-Sion ressortit l'ongle et traça un deuxième trait à cet endroit. À un demi-empan du premier.
+Sion ressortit l'ongle et traça un deuxième trait à cet endroit. À un demi-empan du premier qu'il avait tracé aujourd'hui.
 
 Désormais, il y avait de quoi mesurer.
 

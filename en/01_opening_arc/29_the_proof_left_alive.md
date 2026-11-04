@@ -51,8 +51,6 @@ Seorin did not answer that. Instead she turned her eyes to Sion.
 
 "Explain."
 
-With that one word, the air in the hull fell back into order.
-
 Sion leaned his back against the wall, caught his breath, and said,
 
 "It wasn't a location."
@@ -147,8 +145,6 @@ Ater looked up.
 Kael stopped for a moment under that look.
 
 "This isn't the first one."
-
-At those words the air in the hull changed, very slightly.
 
 Seorin didn't so much as move an eyebrow, but in that brief stillness Sion could feel her already reordering her priorities. Han Jiwoo openly narrowed her brows, and Sern, if anything, went quieter. Ater's eyes were held less by the fragment in Kael's hands than by the words that had just come out: "not the first."
 

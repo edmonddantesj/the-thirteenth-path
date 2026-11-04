@@ -222,7 +222,7 @@ Pour la première fois dans cette salle, Sern écrivit une ligne sur le panneau 
 Lignes.
 
 Au lieu de répondre, Sion se retourna encore une fois vers la forme.
-La tête revint exactement vers lui.
+La tête était exactement tournée vers lui.
 
 « C'est fini, mais… »
 

@@ -28,7 +28,7 @@ Ater no cambió en absoluto de expresión.
 
 —Y usted, por su parte, hace menos ruido que un peón de los bajos fondos.
 
-Por el canal de proximidad, Seorin se metió en voz baja.
+Por el canal de proximidad, Seorin se metió en voz baja. Sion llevaba el terminal de muñeca abierto en altavoz. En un sitio así de estrecho, todos oían lo que llegaba por el canal, y lo que se decía aquí también llegaba al otro lado.
 
 —Sigan con eso solo mientras los dos estén vivos.
 

@@ -163,7 +163,7 @@ Seorin fut brève.
 
 Sion demanda.
 
-« De près, ils se lisent d'abord l'un l'autre. De loin, chacun lit de son côté. De près, ils lisent le voisin, et seulement ensuite ils lisent. »
+« De près, ils se lisent d'abord l'un l'autre. De loin, chacun lit de son côté. De près, ils lisent d'abord le voisin. »
 
 Le premier grésillement des deux machines effleura le sol.
 
@@ -225,7 +225,7 @@ Han Jiwoo fut la dernière. Quand elle dégagea son épaule, la ligne lumineuse 
 Un peu plus tard, et elle aurait été coupée là. En baissant les yeux sur son épaule, Han Jiwoo vit que le tissu écrasé avait gardé une marque. Elle la lissa de la main.
 La marque resta.
 
-Une vieille machine s'appuya d'une main au mur et voulut émettre encore un grésillement, puis s'arrêta : aucun son ne sortit.
+Une vieille machine s'appuya d'une main au mur et voulut émettre encore un grésillement, mais aucun son ne sortit.
 
 « Combien de fois ? »
 

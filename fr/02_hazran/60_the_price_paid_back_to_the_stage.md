@@ -34,13 +34,13 @@ Sion l'avait dit à voix basse.
 
 Quand la ligne qui longeait le dessous des structures mortes prit fin, une large surface de jonction apparut, qui rejoignait la couche extérieure de la cour centrale de Hazran. C'était le même endroit que la ligne de départ vue avant la course, et pourtant il semblait maintenant tout autre. Les tentures rouges étaient à moitié renversées, une partie des balustrades des gradins s'était effondrée, et les gens ne se tenaient plus là comme des spectateurs. Certains s'étaient retirés, d'autres regardaient encore vers l'intérieur, d'autres encore pesaient de quel côté se ranger ensuite.
 
-Et en plein milieu, Zahir se tenait toujours debout.
+Et en plein milieu, Zahir se tenait debout.
 
 Cette fois, il n'était pas assis.
 
 Sion trouva cela étrangement plus imposant. Jusque-là, Zahir avait toujours été l'homme assis à sa place, qui regardait les mises rouler vers lui. Mais maintenant, il s'était levé lui-même. Comme quelqu'un qui refusait de recevoir assis au moins cette dernière scène : savoir qui reviendrait jusque devant lui, le vrai en main.
 
-Nassim se tenait un demi-pas derrière lui, Haroun plus loin sur le côté. Nahira barrait à moitié le devant d'Aka, Luhai était descendu jusqu'au bas de la balustrade et penchait presque vers l'intérieur, et Seorin et Ater n'avaient plus des visages de spectateurs, mais ceux de gens prêts à rentrer dans la partie.
+Nassim se tenait un demi-pas derrière lui, Haroun plus loin sur le côté. Du côté des gradins, Nahira barrait à moitié le devant d'Aka, Luhai était descendu jusqu'au bas de la balustrade et penchait presque vers l'intérieur, et Seorin et Ater n'avaient plus des visages de spectateurs, mais ceux de gens prêts à rentrer dans la partie.
 
 À l'instant où les deux engins touchèrent le devant du centre, la rumeur de la foule enfla une fois, puis s'éteignit d'elle-même.
 
@@ -120,8 +120,6 @@ Zahir leva le regard de la braise vers le visage de Sion.
 Zahir poursuivit :
 « Qui a gâché la partie ? »
 
-Cette fois, l'air de la cour centrale se figea dans un tout autre sens que tout à l'heure.
-
 Ce n'était plus seulement une affaire de règlement de la course.
 La main qui tenait le vrai était revenue vivante ; dès lors, il fallait régler aussi la question de savoir qui avait brisé les règles.
 
@@ -161,7 +159,7 @@ Les mots étaient déjà dits.
 
 Zahir tourna la tête pour la première fois.
 
-Il détacha les yeux de la braise dans la main de Sion et regarda vers les gradins. Vers celle, parmi ceux qui s'y trouvaient, qu'il n'avait pas regardée jusque-là.
+Il détacha les yeux de la braise dans la main de Sion et regarda vers les gradins. Vers un côté où, jusque-là, il n'avait pas posé les yeux une seule fois.
 
 « À qui est cette enfant ? »
 
@@ -173,7 +171,7 @@ Zahir posa la question sans regarder Nassim.
 
 « On peut interroger l'enfant ? »
 
-Il avait demandé « on peut », et non « me le permettriez-vous ». Sion saisit la différence. L'homme le plus haut placé de la cour centrale venait de faire entrer une enfant dans la partie.
+La tournure était celle d'une question, mais ce n'était pas une demande de permission. Sion saisit la différence. L'homme le plus haut placé de la cour centrale venait de faire entrer une enfant dans la partie.
 
 Le sourire de Nassim disparut complètement.
 
@@ -208,14 +206,6 @@ Sion regarda le creux de sa main.
 La braise était la même depuis tout à l'heure. Ni plus grande ni plus petite.
 
 Dans cette ville, c'était la seule chose dont le prix n'avait pas changé.
-
-Sion le comprit à cet instant.
-
-À partir d'ici,
-ce n'était plus la scène où l'on prouvait qu'on était revenu vivant,
-mais celle où l'on décidait avec le sang de qui ce retour serait réglé.
-
-Et en plein milieu, c'était dans sa main à lui que se trouvait le vrai.
 
 ---
 

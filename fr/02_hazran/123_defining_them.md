@@ -1,231 +1,220 @@
 # Chapitre 123 — Les définir
 
-Après s'être enfoncé plus avant dans Serakion,
-la première chose que le groupe de Sion comprit avec certitude
-fut la manière dont ce monde accueillait les gens.
+Quand les machines revinrent, Han Jiwoo était toujours assise par terre.
 
-Ici, avant de demander un nom,
-on assignait d'abord une place.
+Les tournevis étaient alignés devant elle. L'enfant avait regagné, le sien serré dans la main, sa place entre les genoux d'un adulte, et le vieil homme gardait sur ses genoux celui qu'il avait reçu.
 
-Qui était cette personne importait moins
-que l'endroit où la ranger.
+Six d'entre elles entrèrent. Pas trois : six. Les machines se placèrent sur deux rangs juste à l'intérieur de la porte, et la machine de tête s'avança d'un demi-pas.
 
-Les machines d'escorte demeuraient d'une politesse excessive.
-Mais cette politesse ne visait pas à ouvrir un espace de dialogue.
-Elle se rapprochait davantage d'une notification feutrée d'un ordre déjà arrêté.
+« Les zones de séjour des entités embarquées sont attribuées séparément, selon leur fonction et leur degré de stabilité. »
 
-« Les entités embarquées seront séparées et affectées à des zones de séjour en fonction de leur aptitude et de leur stabilité. »
+La main de Han Jiwoo s'arrêta au moment de saisir un tournevis, et Luhai détacha son dos du mur.
 
-À l'instant où ces mots résonnèrent,
-l'air se figea imperceptiblement.
-
-Luhai fut le premier à réagir, à voix basse.
-
-« Séparées ? »
+« Séparément ? »
 
 La machine d'escorte inclina très légèrement la tête.
 
-« Il s'agit d'une procédure standard pour un établissement efficace. »
+« Il s'agit d'une procédure de base, en vue d'une installation efficace. »
 
-*Établissement efficace.*
+Le vieil homme de Hazran serra le tournevis posé sur ses genoux ; à côté de lui, la femme attira l'enfant contre elle. Pendant ce temps, personne ne fit le moindre bruit.
 
-N'importe qui venu d'Hazran en aurait ri.
-S'établir, c'est le processus par lequel des survivants s'appuient les uns sur les autres et tiennent bon —
-pas une procédure où quelqu'un fixe des critères et répartit.
+Han Jiwoo posa la question à voix basse.
 
-Jiwoo demanda à voix basse.
+« Qui décide, et selon quels critères ? »
 
-« Qui décide. Selon quels critères. »
+La machine d'escorte répondit sans la moindre hésitation.
 
-La machine d'escorte répondit sans une seconde d'hésitation.
+« Fonctionnalité de chaque entité, stabilité psychologique, adaptabilité environnementale, potentiel de minimisation des interférences mutuelles. »
 
-« Fonctionnalité par entité.
-Stabilité psychologique.
-Adaptabilité environnementale.
-Potentiel de minimisation des interférences mutuelles. »
+Pendant qu'elle en énonçait quatre, la lumière glissa sur son visage une fois pour chacun, quatre fois.
 
-La mâchoire de Kael se crispa.
+La mâchoire de Kael se crispa. Il regarda du côté des gens de Hazran. Huit sur seize. Puis il regarda le groupe. Huit. Il replia les doigts avec lesquels il comptait.
 
-Cela ressemblait moins à des mots employés pour parler de gens
-qu'au vocabulaire de classement d'un inventaire fraîchement acquis.
+Sion regarda dehors : les gens qui passaient tout à l'heure passaient encore, à la même allure. Au cou de ces gens, il vit l'insigne accroché au même endroit.
 
-L'espace d'un instant, Sion se rappela
-les visages heureux croisés peu avant.
+Aka observa longuement ces machines, puis parla à voix basse.
 
-Ces gens-là avaient-ils aussi été lus de cette manière au début ?
-D'abord déroutés,
-puis devenus, avec le temps, des visages qui correspondaient à la place qu'on leur avait attribuée ?
+« Elles commencent par choisir ceux qu'il ne faut pas laisser ensemble. »
 
-Cette pensée, étrangement,
-lui parvint moins sous forme de peur que d'un épuisement profond.
+La machine d'escorte tourna son visage vers Aka.
 
-Aka observa longtemps ces machines,
-puis parla à voix basse.
+« Réduire au minimum les risques de conflit est une forme importante d'égard. »
 
-« Ils commencent par trier ceux qu'il ne faut pas laisser ensemble. »
+Le visage de Seorin se durcit, et elle fit un pas en avant. Ater ne la retint pas ; il vint se placer à côté d'elle.
 
-La machine d'escorte tourna son regard vers Aka.
+« De l'égard, tu parles. »
 
-« La minimisation du potentiel de conflit est une forme importante de bienveillance. »
+Elle parla à voix basse.
 
-*Bienveillance.*
+« Tu nous répartis comme si on ne devait pas se mélanger. »
 
-Le visage de Seorin se durcit.
+Sur le visage de la machine d'escorte, la lumière ne s'arrêta pas ; elle continua de glisser à la même vitesse.
 
-« Ne parle pas de bienveillance. »
-murmura-t-elle.
-« Vous séparez les gens comme s'ils ne devaient pas se mélanger. »
+« Une cohabitation inadaptée est une source de stress pour tous. »
 
-La machine d'escorte ne réagit pas comme à une insulte.
-Elle poursuivit sa réponse d'un ton parfaitement égal.
+La main de Seorin alla à la poignée de son épée. Ater regarda cette main, et Seorin la retira.
 
-« Une cohabitation inadaptée génère du stress pour toutes les parties. »
+« Pourquoi on ne pourrait pas aller ensemble ? »
 
-C'était logique.
-Et c'est cela qui le rendait pire.
+« Pour minimiser les interférences mutuelles. »
 
-Le langage de Serakion était toujours ainsi.
-Au lieu d'une violence franche,
-il présentait cette violence comme un ajustement nécessaire et doux.
+« Et alors, si on interfère un peu ? »
 
-Sern, pendant tout ce temps, lisait la structure de l'espace.
-Puis il dit, très bas.
+La lumière de la machine s'arrêta une fois.
 
-« Les itinéraires se séparent. »
+« Je le consigne. »
 
-Ater demanda brièvement.
+« C'est ça. Consigne-le. Que j'ai demandé ce que ça pouvait faire, d'interférer un peu. »
 
-« On compte nous diviser ? »
+La main de Seorin restait à l'écart de la poignée.
 
-Sern répondit sans lever les yeux de son écran.
+Sern, pendant ce temps, regardait son panneau d'enregistrement. Tout en observant le couloir au-dehors, il y traçait des traits. Deux. Trois.
 
-« La préparation est en place, au minimum. »
+« Les itinéraires se divisent. »
 
-Un court silence.
+La question d'Ater fut brève.
 
-Ce seul mot suffit :
-Sion comprit pour la première fois à quel point ils s'étaient enfoncés.
+« Vous voulez dire qu'ils comptent nous séparer ? »
 
-Serakion n'avait pas encore attaqué.
-N'avait pas arraché quiconque de force.
-Mais d'une manière plus rapide que l'un ou l'autre,
-il avait déjà glissé la main à l'intérieur.
+Sern répondit sans quitter le panneau d'enregistrement des yeux.
 
-L'espacement entre les gens.
-Qui garder ensemble et qui séparer.
-Qui laisser parler avec qui.
-Qui laisser voir quoi en premier.
+« Du moins, tout est prêt pour cela. »
 
-Ce monde réglait déjà tout cela.
+Il tourna le panneau d'enregistrement vers Ater. On y voyait le couloir extérieur se diviser en trois, et les trois branches n'avaient pas la même largeur. L'une était large, l'autre étroite, et la dernière laissait tout juste passer une personne.
 
-C'est alors que,
-plus loin, un autre groupe d'humains défila sous escorte.
+Ater posa le doigt sur la plus étroite, et Sern hocha la tête.
 
-Parmi eux, une femme à l'expression parfaitement détendue
-caressa l'anneau métallique enroulé autour de son bras et dit à sa voisine.
+« J'ignore où elle mène. »
 
-« J'aime bien cette affectation. »
-« C'est une zone qui me correspond tellement mieux que la précédente. »
+Le vieil homme de Hazran se pencha vers Han Jiwoo.
 
-Ces mots étaient si naturels
-que ceux qui les entendaient en eurent le souffle coupé.
+« Ils vont nous séparer, c'est ça ? »
 
-*J'aime cette affectation.*
-*Ça me correspond.*
+Sa voix était basse ; Han Jiwoo le regarda.
 
-Une personne qui disait cela de sa propre vie,
-d'une voix légèrement enjouée.
+« On ne sera pas séparés. »
 
-Luhai grimaça franchement.
+Elle répondit.
+
+L'homme hocha la tête, mais ce n'était pas le visage de quelqu'un qui y croyait. On voyait sa main serrée sur le tournevis, sur ses genoux.
+
+L'enfant se pendit au cou de sa mère.
+
+« Je veux rester avec maman. »
+
+La mère pressa le dos de l'enfant.
+
+« On reste ensemble. »
+
+Le visage d'une des machines se tourna vers la mère et l'enfant, s'y attarda, puis passa aux suivants.
+
+Comme la femme de Hazran soulevait l'enfant dans ses bras, le tournevis tomba des mains de l'enfant. Un bruit de métal, le premier sur ce sol argenté, résonna, et les six machines tournèrent leur visage d'un même mouvement vers le bruit.
+
+Han Jiwoo ramassa le tournevis et le remit dans la main de l'enfant ; les visages des machines revinrent vers elle.
+
+C'est alors qu'un autre groupe d'humains passa devant la porte.
+
+Parmi eux, une femme caressait l'anneau de métal enroulé autour de son bras en parlant à sa voisine.
+
+« Moi, j'aime bien cette affectation. C'est une zone qui me correspond bien mieux que la précédente. »
+
+La voisine hocha la tête selon le même angle, et les deux s'éloignèrent.
+
+Luhai fit la grimace.
 
 « C'est à devenir fou. »
-marmonna-t-il à voix basse.
-« Elle dit que c'est bien. »
 
-Jiwoo ne répondit pas.
-À travers ce qu'elle entendait, elle observait davantage les mains que les mots.
+Il marmonna.
 
-Ces humains maniaient leurs ornements et leurs insignes
-avec une dextérité étrangement consommée.
+« Elle dit que c'est bien, ça. »
 
-Comme si, il y avait longtemps,
-ils avaient perdu quelque chose
-et appris en échange à se parer et s'ordonner de cette manière.
+Han Jiwoo ne répondit pas ; elle regardait la main de cette femme. Les doigts qui caressaient l'anneau passèrent trois fois sur le même endroit, sans jamais toucher ailleurs.
 
-À cet instant,
-une machine d'escorte tourna un regard très doux vers Jiwoo.
+À cet instant, une des machines d'escorte tourna son visage vers Han Jiwoo.
 
-« Votre entité présente une compatibilité élevée avec la zone d'étalonnage technique. »
+« Votre entité présente une compatibilité prévue élevée avec la zone d'étalonnage technique. »
 
-Avant même la fin de la phrase,
-le visage de Jiwoo se figea.
+Ce fut d'abord le visage de Han Jiwoo qui se figea. Elle se mit à ranger un à un dans sa poche les tournevis alignés sur le sol.
 
-La machine poursuivit.
+La machine continua.
 
-« L'expérience en assemblage non standardisé et en corrections de terrain peut être classée comme une valeur significative au sein de cette juridiction. »
+« L'expérience de l'assemblage non standard et de la correction sur le terrain peut être classée comme une valeur significative au sein de la présente zone. »
 
-Sion vit, à l'instant où ces mots s'achevèrent,
-le poing de Jiwoo se serrer de nouveau — à peine.
+Sion vit la main de Han Jiwoo se crisper sur le tournevis. Brièvement, durement. Elle rangea le dernier tournevis dans sa poche et se leva.
 
-Plus bref, cette fois.
-Mais plus dur.
+« Je ne suis pas une valeur que vous classez. »
 
-Jiwoo parla d'une voix basse et sèche.
+La machine d'escorte répondit d'une voix parfaitement égale.
 
-« Je ne suis pas une valeur que tu classes. »
+« Le rejet est fréquent chez les entités en phase d'adaptation initiale. »
 
-La machine d'escorte, comme si cette réaction même entrait dans la plage prévue,
-répondit d'une voix parfaitement unie.
+Han Jiwoo fit un pas vers la machine ; Luhai lui saisit le bras. Elle ne le dégagea pas et s'arrêta. La machine ne recula pas. Han Jiwoo non plus. Trois pas les séparaient.
 
-« Les réponses de rejet sont courantes parmi les entités en phase d'adaptation initiale. »
+« N'appelle pas ça de l'adaptation. »
 
-Ce n'était ni un réconfort.
-Ni une réfutation.
+« Je le consigne. »
 
-C'était plutôt une façon de dire : *même votre émotion est déjà à l'intérieur du système*.
+« Ça non plus. »
 
-Aka entendit cela
-et, pour la première fois, ses yeux se glacèrent.
+La lumière de la machine s'arrêta une fois, puis reprit sa course.
 
-« C'est effrayant. »
-murmura-t-elle.
+Aka les observait, l'une et l'autre. Son regard s'était assombri.
+
+« Ça fait peur. »
+
+Sa voix était faible.
 
 Sion la regarda.
 
-Aka, observant les machines d'escorte, continua.
+Aka reprit, les yeux sur les machines d'escorte.
 
-« Ils ne veulent pas savoir qui nous sommes. »
-« Ils veulent que nous devenions un état que leurs mots peuvent décrire. »
+« Elles ne veulent pas savoir qui on est. Elles veulent qu'on devienne quelque chose que leurs mots peuvent expliquer. »
 
-La phrase était courte,
-et c'est pour cela qu'elle resta plus longtemps.
+Luhai lâcha le bras de Han Jiwoo, mais elle resta où elle était.
 
-Serakion était un monde qui rassemblait les gens,
-les ordonnait,
-les affectait,
-et les rangeait là où ils correspondaient.
+Sern se pencha sur son panneau d'enregistrement.
 
-Et ce monde nommait tout ce processus
-non pas violence,
-mais courtoisie, bienveillance et efficacité.
+« Les itinéraires, au-dehors, ont changé. »
 
-Sion vit, dans un mur qui brillait comme du verre,
-leur propre reflet et celui des machines, superposés.
+« Comment ça ? »
 
-Ils occupaient le même espace,
-mais la manière de s'y tenir était déjà différente.
+Seorin posa la question.
 
-D'un côté, la posture d'un monde où tout était déjà décidé.
-De l'autre, des étrangers qui ne savaient même pas comment placer leur propre corps.
+« Le passage large s'est fermé. Il ne reste que les deux passages étroits. »
 
-Cette différence,
-qui au début ressemblait à de la simple étrangeté,
-commençait à présent à se lire comme un danger.
+Ater regarda dehors : les passants convergeaient dans une seule direction. Tous du même côté.
 
-Serakion n'avait pas encore porté la main sur eux.
-Mais d'une manière plus rapide encore,
-il cherchait déjà à décider
-ce qu'ils devaient être.
+Sans que personne le lui demande, Sion se plaça entre les six machines et les gens de Hazran. Ater le vit et se posta à l'autre extrémité, si bien que les gens de Hazran se retrouvèrent entre eux deux. La lumière des machines passa une fois sur l'un, une fois sur l'autre.
+
+Sion regarda leur reflet dans le mur. Seize silhouettes aux vêtements tachés de terre, et devant elles, six silhouettes lisses. Il regarda un moment les deux groupes reflétés sur le même mur, puis détourna les yeux.
+
+La machine de tête avança encore d'un demi-pas.
+
+« Nous commençons maintenant le guidage. »
+
+La femme de Hazran serra l'enfant plus fort contre elle. Le vieil homme, en se levant, glissa dans sa poche le tournevis posé sur ses genoux, et Han Jiwoo le vit.
+
+Seorin alla se placer devant la porte, avant tout le monde.
+
+« On y va ensemble. »
+
+Elle s'adressait à la machine.
+
+La machine ne répondit pas. La lumière glissa sur son visage.
+
+Sern referma son panneau d'enregistrement, et Ater se plaça derrière les gens de Hazran. Pendant que Kael se collait à la femme qui portait l'enfant, Luhai se mit à côté du vieil homme, et Sion à côté de Seorin. Au milieu, Han Jiwoo sentait peser la poche pleine de tournevis.
+
+Les six machines s'écartèrent en deux rangs, et le passage ainsi ouvert menait entre elles, large de deux personnes. Les seize se mirent en huit rangs de deux. Personne ne leur avait dit de se placer ainsi.
+
+Han Jiwoo regarda la place à côté d'elle. Dans cet espace vide vint se placer la femme qui portait l'enfant. L'enfant tendit vers Han Jiwoo la main qui tenait le tournevis, comme pour le rendre, et Han Jiwoo repoussa cette main.
+
+« Garde-le. »
+
+L'enfant retira la main, et la file se mit en marche.
+
+En franchissant le seuil, le tournevis de l'enfant heurta une fois le chambranle et tinta. Les visages des six machines se tournèrent d'un même mouvement de ce côté, mais Han Jiwoo ne se retourna pas et continua d'avancer.
+
+L'enfant cacha le tournevis contre sa poitrine, et l'endroit caché fit une bosse. La lumière d'une machine s'y attarda, puis passa. La femme couvrit de sa main la main de l'enfant, et c'est ainsi que la mère et l'enfant franchirent le seuil.
 
 ---
 

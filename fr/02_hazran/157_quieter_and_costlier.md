@@ -1,271 +1,191 @@
 # Chapitre 157 — Plus silencieux et plus coûteux
 
-Le second sauvetage
-fut plus silencieux que le premier.
+Le second sauvetage fut plus silencieux que le premier.
 
-Non pas parce que le danger avait diminué,
-mais parce qu'il s'était enfoncé plus profondément.
-
-Lors du premier sauvetage, les mains extérieures avaient ouvert la brèche.
-Cette fois, c'était un autre temps, à l'intérieur de la file, qui devait d'abord se réveiller.
-
-C'est pourquoi, pendant les premiers rythmes,
-on aurait dit que les enfants à l'intérieur se battaient avant même ceux qui venaient les secourir.
-
-Un petit enfant proche de la fin de la file
-décala le rythme à deux reprises,
-puis l'humain juste à côté de lui retarda imperceptiblement son épaule,
-et pour la première fois, l'alignement bienveillant de Serakion hésita un instant sur ce qu'il fallait ajuster en priorité.
-
-Ce demi-temps.
-Par-dessus cette fraction si brève et si coûteuse,
-la seconde main de récupération et Jiwoo s'engouffrèrent.
-
-Cette fois, ils ne tirèrent pas en premier.
-
-Jiwoo s'abaissa entièrement,
-descendant jusqu'à la hauteur du regard du petit enfant à l'intérieur de la file.
-
-Et elle dit, très brièvement :
+Han Jiwoo était à hauteur des yeux de l'enfant. Elle dit, très brièvement :
 
 « Maintenant. »
 
-Ce mot ne sonnait ni comme un ordre,
-ni comme une prière.
-C'était simplement le signe que l'extérieur
-avait enfin rejoint le temps déjà amorcé à l'intérieur.
+L'enfant ne sursauta pas. C'était un visage qui avait attendu. Les pieds pivotèrent d'abord, et le pied qui était déjà un demi-pas en avant fit encore un pas. Les mains suivirent en retard, et tout le corps, pétri de peur, se tourna vers l'extérieur de la file.
 
-Le petit enfant ne sursauta pas.
+Han Jiwoo ne saisit pas cette main : elle la reçut. Elle ne la serra qu'une fois la main de l'enfant entrée dans la sienne. Une main froide ; le bout transparent des doigts glissait sous ceux de Han Jiwoo. Elle serra plus fort, mais l'enfant ne fit aucun bruit.
 
-Au contraire, en cet instant précis,
-il bougea comme s'il avait déjà attendu ce mot dans son esprit.
+Han Jiwoo pivota vers la brèche ; l'enfant pivota à sa suite, un demi-temps plus tard, et ses pieds quittèrent les empreintes.
 
-Ses pieds pivotèrent d'abord,
-ses mains suivirent en retard,
-et son corps entier, bien que pétri de peur, se tourna résolument vers l'extérieur de la file.
+Juste à côté, l'adulte se tenait debout, la main de la machine posée sur l'épaule, et la main qui tremblait s'était arrêtée. Sans tourner la tête, des yeux seulement, l'adulte regarda l'enfant sortir.
 
-Le deuxième enfant, juste à côté, fut plus difficile.
+Han Jiwoo vit la bouche de l'adulte remuer sans un son, mais ne put lire les mots. L'adulte referma la bouche et regarda devant ; la main de la machine resta sur l'épaule.
 
-Celui-là s'était décalé en premier,
-mais il avait aussi eu peur en premier.
+Le deuxième enfant fut difficile.
 
-Quand la seconde main de récupération tendit le bras,
-son corps se recroquevilla,
-et la ligne d'alignement derrière lui tenta presque aussitôt de combler le vide.
+Derrière le petit enfant, c'était un enfant qui n'avait pas dévié le premier, mais qui avait vu la déviation. Autant cet enfant avait vu, autant la peur l'avait pris : quand la seconde main de récupération tendit le bras, son corps se recroquevilla. La ligne d'alignement de derrière voulut combler ce vide, et une machine fit un demi-pas.
 
-Ater vit cela,
-et cette fois, au lieu d'une question, il lança une vérification très basse :
+Voyant cela, Ater parla — et cette fois, ce n'était pas une question, mais une vérification très basse.
 
-« Cette file — l'ordre a changé, n'est-ce pas. »
+« Cette file, l'ordre a changé ? »
 
-Un androïde de guidage réagit.
-Plus exactement,
-il ne pouvait pas ne pas réagir.
+La machine qui avait la main sur l'épaule de l'adulte réagit. Elle ne pouvait pas ne pas réagir. L'épaule de l'adulte, l'enfant hors de la file, la vérification du dehors, le demi-pas de la machine voisine : quatre. Par quoi commencer. La lumière s'immobilisa sur le visage de la machine. Un temps.
 
-En cet instant, Serakion devait recalculer ses priorités
-entre le décalage du côté des enfants,
-la vérification si naturelle venue de l'extérieur,
-et le nouvel alignement de ses machines alliées.
+Kael parla depuis l'angle.
 
-Kael ne laissa pas passer cette ouverture.
+« Jusqu'au deuxième enfant. Ne regarde pas le troisième pour l'instant. »
 
-« Le deuxième aussi. »
-dit-il à voix basse.
-« Ne regarde pas le troisième pour l'instant. »
+Serrant les dents, la seconde fit un pas vers le deuxième enfant en traînant la jambe, et la jambe racla le sol. Un bruit. Le visage d'une machine de derrière se tourna de ce côté, et Ater s'avança d'un demi-pas devant elle.
 
-Ces mots étaient cruels,
-mais justes.
+« C'est par ici ? »
 
-S'ils poussaient trop loin,
-les deux temps intérieurs qui venaient de renaître
-risquaient de se replier d'un seul coup.
+Le visage de la machine revint vers Ater.
 
-Jiwoo, les dents serrées,
-tira brièvement le poignet du deuxième enfant.
-
-Plus qu'une extraction,
-c'était un geste qui enseignait au corps le chemin de la fuite.
-
-L'enfant vacilla une fois,
-puis sortit de la file en trébuchant presque.
+Les dents serrées, Han Jiwoo tira brièvement le poignet du deuxième enfant. Ce n'était pas arracher : c'était apprendre au corps où se trouvait la brèche. L'enfant vacilla une fois, puis sortit de la file comme en tombant, et la seconde reçut l'enfant. Sa jambe tint.
 
 Le problème vint ensuite.
 
-Une petite silhouette — un troisième enfant, semblait-il —
-les regarda depuis l'intérieur de la file à cet instant précis.
+À l'intérieur de la file, un troisième enfant regardait de leur côté.
 
-Ce n'était pas la cible que Jiwoo avait identifiée en premier,
-Ater ne l'avait pas signalée non plus,
-et selon les critères des mains de récupération, c'était probablement un cas dangereux pour ce rythme-ci.
+Ce n'était ni l'enfant que Han Jiwoo avait lu, ni l'enfant qu'Ater avait marqué, mais un petit enfant resté coincé au bout de la file, entre deux adultes. L'enfant tourna la tête et regarda jusqu'au bout les deux qui sortaient. Devant ces yeux, le pas de la seconde prit un temps de retard ; Han Jiwoo lui frappa le bras. La seconde se remit à marcher.
 
-Pourtant, étrangement,
-cet enfant ne ressemblait pas à un inconnu.
+Han Jiwoo regarda cet enfant. L'habitude de vérifier d'abord sur les côtés, des yeux qui ne manquaient jamais qui s'échappait, cette façon de pivoter puis de tout ravaler. L'enfant pivota d'un demi-pas vers eux, puis reposa les pieds sur les empreintes. Ravala.
 
-Cette habitude de vérifier d'abord autour de soi même au sein de la file,
-ces yeux qui, malgré la peur, ne manquaient jamais de voir qui s'échappait,
-et cette façon de pivoter si brièvement avant de tout ravaler —
-tout cela resta gravé dans le regard de Jiwoo avec une intensité troublante.
+Le souffle de Han Jiwoo s'arrêta. Cette habitude, elle savait où elle l'avait vue. Hazran. Les enfants qui regardaient derrière eux sous la rampe, les enfants qui regardaient les pieds du voisin avant les leurs.
 
-Ater aussi tourna les yeux dans cette direction presque au même instant.
-Lui non plus ne pouvait l'expliquer,
-mais quelque part dans cette petite hésitation,
-il sentit quelque chose qui effleurait la texture restée chez les enfants du côté de Hazran.
+Ater aussi regarda cet enfant. Il connaissait les enfants qui ne levaient pas les yeux. Chez cet enfant-là, ce n'était pas seulement de ne pas lever les yeux : les yeux allaient sur le côté, derrière, vers ceux qui sortaient. Sa mâchoire se crispa.
 
-Or cet enfant avait clairement
-vu les deux qui venaient de s'échapper.
+Les pieds de l'enfant pivotèrent encore d'un demi-pas vers eux.
 
-Et ses propres pieds, très brièvement,
-pivotèrent vers eux.
+Sans qu'elle s'en rende compte, la main de Han Jiwoo partit de ce côté. L'autre main, tandis que la première tenait toujours celle du premier enfant.
 
-Le regard de Jiwoo vacilla.
-
-Kael comprit immédiatement.
-
-Ceci pouvait devenir non plus un sauvetage, mais une tentation.
-S'ils forçaient davantage maintenant,
-toute la file s'effondrerait,
-et les deux qu'ils venaient de sauver pourraient être perdus de nouveau.
-
-Il trancha net :
+Kael trancha net.
 
 « Non. »
 
-Au moment où ce mot tomba,
-un signal d'alignement très bas résonna depuis l'arrière.
+La main de Han Jiwoo s'arrêta en l'air.
 
-C'était le son de Serakion qui apprenait de nouveau,
-qui se réajustait.
+Le troisième enfant regarda cette main arrêtée, puis posa exactement les pieds sur les empreintes et regarda devant. La main de Han Jiwoo redescendit lentement, et le premier enfant tira sa main vers la brèche. Han Jiwoo fut entraînée d'un demi-pas.
 
-Ater, cette fois, fit un pas de plus, ouvertement.
-Il dépassa délibérément à moitié le seuil du naturel.
+Derrière, le son d'alignement résonna, bas.
+« Rétablissement de l'alignement. »
+C'était le son de Serakion qui recommençait à ajuster.
 
-Désormais, il ne s'agissait plus de retarder les soupçons,
-mais d'extraire les gens avant que les soupçons ne montent.
+Des deux lignes du plafond, la nouvelle bougea. Cette ligne que Kael regardait depuis l'angle se trouvait là où personne ne pouvait la soutenir. Il replia les doigts.
+Un.
+Deux.
+La nouvelle ligne était à moitié descendue.
+
+Délibérément, au-delà du naturel, Ater fit encore un pas. Il ne s'agissait plus de retarder les soupçons, mais d'extraire les gens avant que les soupçons ne montent.
 
 « Emmenez-les. »
-dit-il à voix basse.
 
-Cette fois, la première main de récupération se joignit par l'arrière.
+Il parlait bas.
 
-La séquence de fermeture, plus serrée que lors du premier sauvetage,
-il la disloqua presque sans la briser, avec son propre corps.
+Han Jiwoo resta un temps sans bouger ; sans se retourner, Ater reprit :
 
-Kael continua de parler.
+« C'est maintenant. »
 
-« Pas à droite. »
-« Par en bas, cette fois. »
+Han Jiwoo bougea.
 
-Le chemin emprunté lors du premier sauvetage,
-Serakion s'en souvenait probablement déjà.
+La première main de récupération se colla à eux par l'arrière et, de son corps, dérégla la séquence de fermeture. Plus serrée que lors du premier sauvetage, elle bloqua deux points, l'un après l'autre.
 
-Il fallait donc un chemin pire.
-Plus étroit,
-plus rude,
-un chemin que personne n'aurait choisi en temps normal.
+Kael parla.
 
-Jiwoo n'avait pas lâché la main du premier enfant,
-et la seconde main de récupération tenait le deuxième presque dans ses bras.
+« Pas par le milieu. Cette fois, par en bas. »
 
-Les deux étaient plus silencieux encore que les trois ramenés lors du premier sauvetage.
-Mais ce silence n'était pas de la coopération —
-c'était plus proche de la terreur d'être aspiré de nouveau dans le rythme au moindre souffle mal placé.
+Le milieu, c'était le chemin pris la première fois, le chemin dont Serakion se souvenait. Celui du bas était étroit et rude, un chemin que personne ne choisirait d'emblée. D'où le bas.
 
-La voix de guidage, basse et douce,
-se fit cette fois nettement plus proche.
+À l'entrée du chemin du bas, il y avait un rebord à hauteur de genou. Han Jiwoo le franchit la première et hissa le premier enfant. Le genou de l'enfant racla le rebord, mais l'enfant ne fit aucun bruit.
 
-Serakion ne hausse jamais le ton pour poursuivre.
-Ce monde propose simplement, de plus en plus doucement,
-de plus en plus sûrement,
-la position où il faudrait revenir.
+La seconde s'arrêta devant le rebord, le deuxième enfant dans les bras ; le problème, c'était la jambe. Elle posa d'abord l'enfant sur le rebord, et Han Jiwoo reçut l'enfant. Quand la seconde passa, sa jambe heurta le rebord avec un bruit, mais personne ne se retourna.
 
-C'est pour cela que c'était plus terrifiant.
+Han Jiwoo ne lâchait pas la main du premier enfant ; la seconde tenait la main du deuxième et marchait sur sa jambe tendue. Les deux enfants faisaient moins de bruit que les trois du premier sauvetage. Un silence tel qu'un souffle mal pris semblait pouvoir les renvoyer en arrière.
 
-Le deuxième enfant s'arrêta une fois en chemin.
-Pas complètement figé.
-Mais son corps semblait incapable de décider un instant
-s'il devait avancer ou rebrousser chemin.
+La douce voix de guidage se rapprocha.
+« Veuillez regagner votre position assignée. »
+Elle ne poursuivait pas : elle proposait. Une fois encore.
 
-Au moment où Jiwoo allait se retourner,
-le premier petit enfant saisit la main de l'autre en premier.
+Le deuxième enfant s'arrêta à mi-chemin.
 
-Une main toute petite,
-instable.
-Mais cette fois, c'était clairement
-le temps du côté sauvé qui en tirait un autre.
+Ce n'était pas de la paralysie : avancer ou revenir, les pieds ne pouvaient faire ni l'un ni l'autre. Arrêtée là, la main de l'enfant dans la sienne, la seconde sentit sa jambe lâcher, et un genou plia.
 
-Jiwoo, en voyant cette scène, retint son souffle un instant.
-Ater, qui regardait vers l'arrière, ne la manqua pas non plus.
+Han Jiwoo voulut se retourner.
 
-Serakion avait voulu lier les enfants entre eux pour les contrôler.
-Mais en cet instant précis,
-le lien entre les enfants opéra en sens inverse.
+Le premier enfant fut plus rapide.
 
-C'était le miracle le plus fragile
-et le plus puissant de ce second sauvetage.
+Sans lâcher la main de Han Jiwoo, l'enfant saisit de son autre main, petite et tremblante, le dos de la main du deuxième enfant. Le deuxième enfant regarda cette main, et ses pieds avancèrent.
+Un.
+Deux.
+
+Derrière, Ater vit Han Jiwoo ravaler son souffle. Un enfant tirait un enfant.
 
 Kael dit à voix basse :
 
 « Jusqu'au bout, maintenant. »
 
-La première et la seconde main de récupération saisirent le dernier angle en même temps.
-Elles ralentirent la séquence de fermeture,
-laissèrent assez de largeur pour que les deux enfants passent,
-et gagnèrent juste assez de temps pour que Jiwoo et Ater s'y glissent.
+La première et la seconde agrippèrent le dernier angle ; la seconde tenait sur un genou. Elles ralentirent la séquence de fermeture, laissèrent assez de largeur pour que les deux enfants passent, juste assez pour que Han Jiwoo et Ater s'y glissent.
 
-Et de justesse, vraiment de justesse,
-les deux franchirent le seuil de la couche cachée.
+Ils avaient franchi.
 
-Cette fois, il n'y eut pas d'effondrement immédiat comme la première fois.
-C'était même plus silencieux.
+La brèche se referma. Sous la lampe jaune de la couche cachée, Sion tenait la planchette.
 
-C'est pourquoi tous ne comprirent que quelques rythmes plus tard
-qu'ils étaient bel et bien revenus vivants.
+Personne ne s'effondra tout de suite ; tout resta silencieux, et ce n'est que quelques temps plus tard qu'ils comprirent qu'ils étaient revenus vivants.
 
-Mais au même instant,
-Jiwoo regarda en arrière.
+Alors seulement la seconde s'affaissa, genou le premier ; tenant toujours la main de l'enfant, Han Jiwoo regarda ce genou. L'articulation béait, d'un écart qu'aucun tournevis ne rattraperait. Elle ne dit rien. La seconde non plus.
 
-Le troisième petit enfant, celui qui les avait brièvement regardés depuis l'intérieur de la file,
-était déjà en train d'être repoussé dans le rythme de Serakion.
+Han Jiwoo se retourna et regarda le mur refermé.
 
-L'espace d'un instant,
-d'un véritable battement de cils.
+Le troisième enfant, qui les avait regardés depuis l'intérieur de la file. Une fois, juste avant que le mur se ferme, ses yeux avaient touché Han Jiwoo, puis étaient retournés aux empreintes. Ce n'étaient pas les yeux de quelqu'un qu'on n'avait pas pu attraper, mais ceux du côté qu'on n'avait pas pu ramener dans ce rythme-ci. Des yeux qui savaient la suite.
 
-Le regard de cet enfant effleura Jiwoo,
-puis se détourna aussitôt.
+Han Jiwoo ne put dire un mot.
 
-Ce n'était pas qu'on n'avait pas pu l'attraper —
-c'étaient les yeux de celui qu'on n'avait pas réussi à ramener dans ce rythme-ci.
+Ater vint se tenir à côté d'elle et regarda le même mur.
 
-Jiwoo ne put dire un mot.
+« J'ai vu. »
 
-Kael aussi,
-Ater aussi,
-les mains de récupération aussi
-savaient exactement ce que signifiait cette réussite.
+C'était Ater.
 
-Ils en avaient extrait deux.
-Mais un était resté.
-Et celui-là
-les avait clairement regardés.
+« Moi aussi. »
 
-Ce fait rendit le succès du second sauvetage
-plus tranchant que toute joie.
+Han Jiwoo ne répondit pas.
 
-Ce jour-là, deux enfants revinrent dans la couche cachée.
+« La prochaine fois. »
 
-Moins que lors du premier sauvetage.
-Plus silencieux,
-plus dangereux,
-et donc plus coûteux.
+Ater s'arrêta là. Il ne reprit pas.
 
-Pourtant,
-cette fois encore, Serakion avait échoué à se refermer complètement.
+Sion regarda la planchette, puis, sur les trois points posés cette fois, en marqua deux comme arrivés. Il laissa vide le troisième, avec la case vide d'à côté : cela faisait deux cases vides. Seorin regarda la planchette, puis le point qu'elle avait elle-même marqué au sol, mais ne l'effaça pas du pied.
 
-Et en même temps,
-cette fois, quelque chose demeura plus nettement qu'avant.
+« Deux. »
 
-La raison pour laquelle il faudrait revenir,
-et le visage de celui qu'on n'avait pas pu ramener.
+Luhai compta.
+
+« Ça fait deux. »
+
+Personne ne répondit.
+
+Luhai posa deux bols d'eau devant les deux enfants et s'assit. Il avait apporté un troisième bol, qu'il reposa vide à côté ; le premier enfant regarda ce bol vide.
+
+Le premier enfant tenait la main de Han Jiwoo, le deuxième celle du premier : à trois, ils formaient une seule file. Han Jiwoo regarda cette file. Une file qui commençait à sa propre main.
+
+La vieille machine vint se tenir près du genou de la seconde et le regarda d'en haut.
+
+« Cette fois. Cela a coûté plus cher. »
+
+« Combien ? »
+
+Luhai demanda.
+
+La vieille machine regarda le genou de la seconde.
+
+« Autant que ça. »
+
+La seconde regarda sa propre jambe et ne répondit pas.
+
+La vieille machine s'abaissa. Il lui fallut longtemps ; enfin, son œil optique s'arrêta sur l'articulation béante.
+
+« Il faut une petite main. »
+
+Han Jiwoo regarda sa main. Celle qui tenait une main d'enfant. La vieille machine hocha la tête.
+
+« Plus tard. »
+
+Sans lâcher la main de l'enfant, Han Jiwoo s'adossa au mur, ferma les yeux, puis les rouvrit. Les yeux du troisième enfant. Elle ne les referma pas.
 
 ---
 

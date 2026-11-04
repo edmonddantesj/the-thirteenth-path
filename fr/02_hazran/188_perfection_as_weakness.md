@@ -1,166 +1,276 @@
 # Chapitre 188 — La faiblesse de la perfection
 
-Même juste après avoir repoussé l'homme vers l'extérieur, Seorin ne garda pas longtemps les yeux sur lui.
+Les deux hommes de Hazran repartirent vers l'arrière, l'homme entre eux. Ses pieds traînaient sur le sol sans laisser de trace. Seorin ne regarda pas de ce côté ; elle regardait devant.
 
-C'était d'une rapidité presque cruelle. Mais, maintenant, c'était juste.
+« On tient la ligne principale. »
 
-Ce que Serakion venait de rater n'était pas seulement un piège, mais toute une méthode : faire trembler l'éthique pour faire s'effondrer la tactique.
+Elle l'avait dit brièvement.
 
-S'ils avaient survécu cette fois, cela signifiait donc que le prochain coup serait aussitôt plus élaboré.
+« On garde l'axe ébranlé tel quel. »
 
-« Maintenez la ligne principale, » dit Seorin brièvement. « On utilise l'axe qui a tremblé tel quel. »
+Sion la regarda.
 
-Ce jugement aurait pu paraître étrange, mais Sion le comprit aussitôt.
+« Tel quel ? »
 
-Changer maintenant toute la disposition reviendrait plutôt à entrer dans la dispersion que Serakion voulait.
+« Tel quel. Si on change l'endroit qu'ils ont ébranlé, on se disloque exactement comme ils le veulent. On tient debout, ébranlés. »
 
-La méthode de Seorin était toujours ainsi.
+Sion raffermit sa prise sur sa lame, la paume encore moite.
 
-Ce n'est pas parce que l'adversaire a réussi à faire trembler un point qu'on change la structure à chaque fois.
+Sern ouvrit le panneau d'enregistrement et effaça du doigt la ligne qu'il avait tracée entre l'endroit où s'était tenu l'homme et celui où ils se tenaient.
 
-Au contraire, on tient en restant ébranlé, et on choisit de faire dépendre l'adversaire davantage de ce tremblement.
+« La brèche du côté de l'homme reste fermée. »
 
-Autrement dit, puisque Serakion venait de viser l'axe instable, ils allaient utiliser cette instabilité comme un appât plus précis.
+Sern le dit.
 
-Les couloirs intérieurs de Serakion continuaient de se réorganiser.
+« Peut-elle se rouvrir ? »
 
-Au loin, un son d'annonce bas et net se répétait, les murs gris s'étiraient comme si rien n'était arrivé, et les lumières de limite changeaient très légèrement de couleur pour notifier poliment quels chemins s'ouvraient et lesquels se fermaient.
+« Si ce sont eux qui l'ouvrent, elle s'ouvrira. »
 
-Tout cela était si calme que Sion en eut des frissons.
+Sern répondit.
 
-Serakion avait toujours été ainsi.
+« Nous ne pouvons pas l'ouvrir. »
 
-La violence même y devenait lisse.
+« On ne l'ouvre pas. »
 
-Les pièges mêmes y prenaient l'allure d'annonces aimables.
+Seorin le dit.
 
-On y traitait le fait de découper des êtres vivants comme la correction d'une erreur de disposition.
+« Là-bas, c'est leur chemin. »
 
-Et c'est précisément pour cela que ce monde révélait plus nettement sa faiblesse à mesure qu'il devenait parfait.
+Luhai, sa barre de fer sur l'épaule, retourna sur l'axe droit et se plaça à côté de la vieille machine qui s'y tenait. Quand Han Jiwoo regarda derrière elle, un panneau mural gisait au sol, là où les deux hommes de Hazran avaient laissé une place vide. Elle redressa le panneau mural et l'appuya contre le mur, mais ne le prit pas.
 
-Si parfait qu'au moindre décalage, tout cherchait à revenir à cette perfection.
+Le dernier androïde regarda ce panneau mural, puis le souleva d'une main et le dressa devant Han Jiwoo. C'était la main du côté de l'épaule descendue, et l'épaule grinça.
 
-Cet instinct de récupération était désormais lisible.
+« Je le porte. »
 
-Ater fit un bref signe de la main.
+Han Jiwoo le dit.
 
-« Ils arrivent. Trois branches cette fois. »
+L'androïde ne lâcha pas. Han Jiwoo saisit le coin du panneau mural, et à deux ils le tinrent.
+Un temps.
+Puis l'androïde retira sa main. Han Jiwoo tenait le panneau mural.
 
-Au fond du couloir, trois lumières de limite au sol changèrent de couleur en même temps.
+Tandis que le couloir se déplaçait, le son de guidage arriva de loin, bas et égal.
+« L'itinéraire a été réaffecté. »
+Le mur restait lisse comme si rien ne s'était passé, mais au sol les lumières de délimitation changeaient de couleur, une ligne, puis une autre. Quel chemin s'ouvrait, quel chemin se fermait, d'une même voix.
 
-Comme il l'avait dit, la légion de Serakion entra de nouveau en trois lignes. Les bruits de pas, divisés en trois, se répercutaient jusqu'à eux le long des murs gris et lisses.
+Le dernier androïde se plaça à côté de Han Jiwoo. L'épaule au nœud renoué était descendue, mais l'androïde, sans la regarder, regardait le bout du couloir.
 
-Mais elle ne poussait pas aveuglément comme lors du premier combat. Elle ne tremblait pas seulement à l'écart de réaction comme au début du second.
+D'en haut, Ater fit un bref geste de la main.
 
-Désormais, même en tremblant, elle se réorganisait continuellement pour réduire ce tremblement.
+« Ils arrivent. Cette fois, par trois branches. »
 
-Donc l'autre côté apprenait aussi.
+Quand trois lumières de délimitation, au sol tout au fond du couloir, changèrent de couleur d'un coup, les pas arrivèrent. Divisés en trois, les pas arrivaient le long des murs à intervalles égaux.
 
-Mais cet apprentissage devenait justement une faiblesse.
+Trois rangs entrèrent.
 
-Serakion cherchait trop vite à rétablir l'ordre, et pour cette raison ses lignes de rétablissement commençaient à répéter des motifs similaires.
+Ils ne poussèrent pas comme au premier combat. Les pieds du premier rang se désaccordèrent une fois, puis se raccordèrent au pas suivant, et le rang de derrière reprit ce temps. Pendant que les rangs se corrigeaient en marchant, le doigt de Sern courait vite sur le panneau d'enregistrement.
 
-Sern le lut le premier.
+« La troisième ligne de rétablissement se répète. »
 
-« La troisième ligne de rétablissement se répète. Si nous coupons à gauche, le haut droit se vide. »
+Sern le dit.
 
-À peine avait-il fini que Seorin inclina une seule fois la tête.
+« Si nous coupons à gauche, le haut à droite se vide. »
 
-Le signal fut court, et donc plus précis.
+« C'est la combientième ? »
 
-L'axe gauche mordit volontairement une ligne plus profondément, tandis que l'axe de récupération droit ne se retira pas et bougea au contraire avec un demi-temps de retard.
+Seorin demanda.
 
-À cause de ce retard d'une demi-mesure, la ligne de rétablissement de Serakion gaspilla encore un mouvement pour remplir une ligne déjà vide.
+« C'est la troisième. Les trois fois, c'est le même endroit qui se vide. »
 
-Ce seul gaspillage fut énorme.
+Seorin inclina une fois la tête vers la gauche.
 
-Quatre individus, lancés pour remplir la ligne vide, s'engouffrèrent ensemble au même endroit et se heurtèrent aux plaques d'épaule les uns des autres. Un bruit sourd de métal retentit quatre fois de suite.
+Kael vit ce mouvement, et regarda la vieille machine.
 
-La ligne supérieure se vida un instant, et la connexion tenue par Sion dévora cette brève ouverture.
+« Plus profond. La moitié de plus que la dernière fois. »
 
-Sion bougea en glissant presque, chercha entre le mur et le sol une ligne de jointure étrangement droite, la même que tout à l'heure, y posa la pointe de sa lame et appuya exactement sur un seul point.
+Quand la vieille machine enfonça la main sous le panneau jusqu'au coude, Kael posa sa propre main par-dessus.
 
-Il ne s'agissait pas de tout détruire.
+Kael, sur l'axe gauche, coupa un panneau de plus, plus profondément. Quand la vieille machine saisit ce panneau et l'écarta, la lumière de la ligne de circulation ralentit d'un cran encore.
 
-Ce n'était pas nécessaire.
+Sans que l'axe droit se retire, Luhai abaissa sa barre de fer avec un demi-pas de retard. La vieille machine aussi, avec un demi-pas de retard. Un rang vide se forma, et Serakion vint le combler.
 
-Chez Serakion, dès qu'un seul point se décalait, tout le reste s'alourdissait pour le corriger.
+Quatre arrivèrent.
+Au même endroit.
+D'un seul coup.
 
-Un court grincement métallique retentit, et une ligne de circulation partit sur le côté au lieu de descendre.
+Plaque d'épaule contre plaque d'épaule. Un bruit sourd de métal, quatre fois de suite. Les quatre restèrent serrés au même endroit, incapables de bouger.
 
-Un panneau du mur de droite, à moitié replié, s'arrêta de biais.
+Luhai regarda les quatre et leva sa barre de fer.
 
-Aussitôt, l'épaule de l'individu de tête de la deuxième ligne de la légion de Serakion accrocha l'arête de ce panneau oblique, et celui qui suivait percuta son dos de plein fouet.
+« Pas encore. »
 
-Une collision très brève.
+Seorin le dit.
 
-Un arrêt très bref.
+« Ceux-là, laisse-les comme ça. Si tu les dégages, ils les remettront en place. »
 
-Mais leur côté transformait tout ce bref en tactique.
+Pendant que Luhai abaissait sa barre de fer, les quatre poussaient sur les plaques d'épaule les uns des autres, et plus ils poussaient, plus ils se coinçaient.
 
-Une ancienne machine entra dans cet arrêt pour briser d'abord la jambe d'un individu, et une autre poussa contre le mur celui qui suivait la ligne de rétablissement.
+Le passage du haut se vida.
 
-Les mouvements n'étaient pas éblouissants.
+Sion se glissa en avant. Entre le mur et le sol, il y avait une ligne de jointure. Comme celle de tout à l'heure, plus droite que les autres.
+Il posa la pointe de la lame sur un point.
+Appuya.
+Y mit son poids.
+Sa paume glissa.
+Il appuya de nouveau.
 
-Mais ils étaient trop appropriés.
+Après un bref crissement de métal, une ligne de circulation se déroba non pas vers le bas mais sur le côté, et un pan du mur de droite, à moitié replié, s'arrêta de biais.
 
-Sion aimait cela.
+L'épaule de l'unité de tête du deuxième rang accrocha cet angle. L'unité qui suivait heurta son dos. Un bref arrêt.
 
-Et au centre, le dernier androïde continuait de faire trembler les lignes de réaction de Serakion.
+Une vieille machine se glissa dans l'intervalle et brisa la jambe de l'unité accrochée. Une autre poussa vers le mur l'unité collée derrière la ligne de rétablissement ; l'unité s'enfonça dans le mur, et le plastron de la machine résonna une fois.
 
-Il ne combattait pas longtemps de face. Il apparaissait, attirait le regard d'une ligne, se décalait aussitôt d'une demi-mesure, et faisait couper par les humains le flux de la légion ainsi dérangé.
+Le dernier androïde sortit. Pas de front : devant un rang.
+Les yeux optiques de ce rang se tournèrent vers l'androïde.
+Un écart d'un demi-temps.
+Le rang se tordit pour suivre.
+Le flanc du rang tordu se vida.
+La barre de fer de Luhai entra là, dans un genou.
+L'unité plia.
 
-Son rôle se tenait presque entre l'appât et la lame.
+Quand l'androïde revint à l'endroit d'où Han Jiwoo restait visible, l'axe d'épaule grinça.
 
-Mais on ne pouvait pas l'appeler seulement un appât, parce qu'il continuait de réagir vers ce qu'il ne pouvait pas laisser derrière lui.
+Revenu à sa place, l'androïde porta une fois son œil optique sur Han Jiwoo, puis le tourna vers le couloir.
 
-Han Jiwoo lisait de sa position en retrait l'intervalle entre lui et la légion, et ne donnait un signal que lorsque c'était nécessaire.
+« Ne va pas plus loin. Ma voix ne porte pas jusque-là. »
 
-« Décale-toi maintenant. »
+L'androïde ne hocha pas la tête, mais à la sortie suivante, s'avança de deux pas de moins.
 
-« Regarde la deuxième ligne d'abord. »
+Depuis l'endroit en retrait, Han Jiwoo regardait l'intervalle entre l'androïde et la légion.
+
+Trois pas.
+Deux.
+
+Elle parla brièvement.
+
+« Écarte-toi, maintenant. »
+
+L'androïde s'écarta, et dans la place vide où l'androïde s'était tenu, une unité entra.
+
+« Regarde d'abord le deuxième rang. »
+
+L'androïde regarda le deuxième rang. Le deuxième rang regarda l'androïde. Le premier rang s'arrêta.
 
 « Sors avant que l'arrière s'ouvre. »
 
-Elle ne se jetait jamais au centre du champ de bataille.
+L'androïde sortit.
+L'arrière s'ouvrit.
+L'androïde n'était plus là.
 
-Mais elle n'était pas loin non plus.
+Han Jiwoo se tenait à côté du panneau mural. Pas au milieu du champ de bataille, mais pas loin non plus : à portée de voix. Pendant qu'elle tenait cette distance, le bout des doigts qui serraient le coin du panneau mural était blanc.
 
-Juste assez près pour que la langue du même axe puisse l'atteindre.
+Une unité de Serakion fixa son œil optique sur le dernier androïde et, au lieu de venir de front, contourna par la ligne latérale. Pour créer un autre endroit auquel l'androïde devrait réagir. Sion le vit et serra les dents.
 
-Cette distance était importante.
+« Elle contourne. »
 
-Un soldat de Serakion fixa de nouveau son regard sur le dernier androïde. Mais cette fois, il ne chargea pas de face.
+Sion le dit.
 
-Il contourna par la ligne latérale pour créer un autre point auquel cet être serait forcé de réagir.
+« Je sais. »
 
-Sion serra les dents.
+Seorin répondit.
 
-Ils apprennent vraiment. Et ils apprennent vite.
+« Laisse-la contourner. »
 
-Mais cette fois, eux aussi avaient déjà intégré cette vitesse dans le calcul.
+« Si elle contourne, l'arrière se vide. »
 
-Seorin dit brièvement :
+« Si l'arrière se vide, c'est par là qu'ils viendront. Il suffit de savoir par où ils viennent. »
 
-« Pliez maintenant. »
+Quand Sion regarda derrière, c'était vide. Pendant qu'il regardait l'endroit vide, Sern marqua cet endroit d'un point sur le panneau d'enregistrement.
 
-À ces mots, l'axe de récupération droit recula volontairement d'un pas.
+D'en haut, Ater racla une fois le sol du talon. Sous la jointure du plafond : un endroit qu'il avait repéré tout à l'heure, et où il n'y avait personne.
 
-Deux individus de Serakion entrèrent aussitôt pour remplir le vide.
+Seorin parla brièvement.
 
-À cet instant, une plaque de chute supérieure tomba la première. Une épaisse plaque libérée d'une jointure du plafond s'abattit droit entre les deux individus et le mur de droite, et un grand coup sourd ébranla le sol.
+« On replie, maintenant. »
 
-C'était le point qu'Ater avait déjà lu.
+Sur l'axe droit, Luhai et la vieille machine reculèrent d'un pas ensemble, et un espace vide se forma. Deux unités de Serakion y entrèrent aussitôt pour le combler, par le chemin le plus court.
 
-Serakion, en voulant rétablir encore une fois sa perfection, tourna son corps d'une manière prévisible.
+La plaque de chute du haut tomba.
 
-Et cette prévisibilité devint leur arme.
+Libérée de la jointure du plafond, l'épaisse plaque descendit droit entre les deux unités et le mur de droite. Le sol résonna fort une fois, la poussière se leva, et avant qu'elle retombe, les deux unités avaient disparu.
 
-Au-delà de la plaque tombée, au loin, ce son d'annonce bas et net retentit une fois de plus.
+Sous la plaque.
 
-Il annonçait poliment, de la même voix que tout à l'heure, quels chemins s'étaient ouverts et lesquels s'étaient fermés.
+Ater regarda d'en haut. La plaque était à l'endroit qu'il avait raclé.
 
-Ce chemin-là, ils venaient de le fermer eux-mêmes.
+Luhai expira.
+
+« Ça, c'est Ater qui l'avait vu ? »
+
+« Tout à l'heure. »
+
+Seorin répondit.
+
+« Il savait qu'ils viendraient par là ? »
+
+« C'est le chemin le plus court. Eux, ils viennent toujours par le chemin le plus court. »
+
+Luhai raffermit sa prise sur sa barre de fer en regardant la plaque.
+
+Ater descendit et se plaça à côté de la plaque. Quand il posa la main sur le bord, c'était brûlant ; il retira la main.
+
+« Il n'y a pas de plaque suivante. »
+
+Ater le dit.
+
+« Il y avait trois jointures. Toutes les trois sont tombées. »
+
+« Alors, ensuite ? »
+
+« Ensuite, ils viendront d'un endroit où il n'y a rien à faire tomber. »
+
+Ater poursuivit.
+
+« Par le sol. »
+
+Sur le sol que regardait Seorin, la couleur des lumières de délimitation changeait.
+
+Au-delà de la plaque de chute tombée, le son de guidage arriva, bas et égal.
+« L'itinéraire a été réaffecté. »
+Quel chemin s'ouvrait, quel chemin s'était fermé, de la même voix que tout à l'heure. En l'écoutant, Han Jiwoo vit que le chemin qu'on disait ouvert était celui de sous la plaque de chute, celui qu'ils venaient de fermer.
+
+Sern écrivit sur le panneau d'enregistrement. Troisième ligne de rétablissement, quatre unités, un rang. Après l'avoir écrit, il leva la tête.
+
+« La quatrième ligne de rétablissement est en retard. »
+
+« De combien ? »
+
+« Elle a deux temps de retard. C'est la première fois. »
+
+Seorin, sans hocher la tête, regardait devant. Les trois rangs étaient devenus deux, et ces deux rangs corrigeaient leurs pas en marchant.
+
+« Il leur faut combien pour corriger ? »
+
+« Il leur faut trois pas. »
+
+Sern répondit.
+
+« Tout à l'heure, il leur en fallait deux. »
+
+« Ça ralentit. »
+
+« Cela ralentit. Pour eux aussi, c'est la première fois. »
+
+Sous les yeux de Han Jiwoo, les deux rangs accordèrent leurs pas en trois pas, puis marchèrent de nouveau comme un seul. Elle avait compté ces trois pas.
+
+Quand elle retira la main du panneau mural, le dernier androïde était revenu ; le nœud était intact. Elle regarda le nœud, mais sans y toucher, et regarda devant.
+
+Sur la pointe de la lame que regardait Sion, il y avait de la poussière de métal, mais il ne l'essuya pas. Cherchant la ligne de jointure suivante, il trouva une ligne droite entre le mur et le sol. Il compta les pas jusque-là.
+
+Quatre.
+
+Sern compta ces pas avec lui.
+
+« Il y en a quatre. »
+
+Sern le dit.
+
+« Pendant que vous y allez, ils corrigeront deux fois. »
+
+« Deux fois, et alors ? »
+
+« Entrez à la deuxième. À la première, c'est encore trop tôt. »
+
+Sion hocha la tête et passa sa lame dans la main gauche. Il frotta sa paume droite contre son pantalon, mais la sueur ne partait pas.
 
 ---
 

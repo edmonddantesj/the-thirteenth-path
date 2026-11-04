@@ -28,7 +28,7 @@ Ater ne changea pas d'expression.
 
 « Vous êtes moins bruyant qu'un manœuvre, vous aussi, à ce que je vois. »
 
-Par le canal de proximité, Seorin intervint à voix basse.
+Par le canal de proximité, Seorin intervint à voix basse. Sion avait laissé son terminal de poignet ouvert sur le haut-parleur. Dans un endroit aussi étroit, tout le monde entendait le canal, et ce qu'on disait de ce côté passait aussi à tout le monde.
 
 « Continuez, mais seulement tant que vous êtes vivants tous les deux. »
 

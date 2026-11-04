@@ -66,7 +66,7 @@ Ater dit calmement :
 Sion répondit à voix basse, lui aussi.
 « Mais maintenant qu'on est entrés jusqu'ici, on ne peut pas non plus éviter d'y mettre le pied. »
 
-Ces mots valaient autant pour les trois qui collaient au terrain que pour les deux restés sur la coque. Toucher mal à cet endroit, et la réaction du discriminateur qui subsistait mourrait, et la main qui tenait le plus grand fragment leur échapperait du même coup. À l'inverse, trop tarder, et l'autre disparaîtrait par la prochaine ligne d'évasion. À cette distance, hésiter, c'était déjà perdre.
+Ces mots valaient autant pour les trois qui collaient au terrain que pour les deux restés sur la coque. Toucher mal à cet endroit, et la réaction du discriminateur qui subsistait mourrait, et la main qui tenait le plus grand fragment leur échapperait du même coup. À l'inverse, trop tarder, et l'autre disparaîtrait par la prochaine ligne d'évasion.
 
 La voix de Han Jiwoo effleura la ligne de communication, toute petite.
 
@@ -190,8 +190,6 @@ Ater resta un instant sans rien dire.
 
 Sion fit encore un pas vers l'étroite jonction au fond de la structure. La plaque de métal sous ses pieds était instable, mais en suivant la ligne de charge que Sern lui avait indiquée tout à l'heure, elle tiendrait. Derrière lui, Sern ne quittait pas des yeux l'ordre de ses pas, et Ater, lisant les marques sur les parois et les motifs de dégradation, ne regardait que la prochaine ligne d'évasion que l'autre pourrait choisir.
 
-Leurs trois mouvements étaient désormais bien moins maladroits qu'au début. On ne pouvait pas encore parler d'une équipe. Mais au moins dans cette structure étroite, ce que chacun devait regarder en était presque à se recouper.
-
 Au bout de l'ombre, devant, le métal frotta encore une fois.
 
 Cette fois, une très brève lueur suivit le bruit.
@@ -278,7 +276,7 @@ Sern enchaîna aussitôt :
 
 « Et c'est à ce moment-là qu'il sera le plus proche. »
 
-Sion les regarda l'un après l'autre. L'un lisait la structure, l'autre l'ordre. Tous deux parlaient une langue différente de la sienne, et pourtant, étrangement, tout convergeait à présent vers la même réponse.
+Sion les regarda l'un après l'autre. Ils lisaient des choses différentes et arrivaient à la même réponse.
 
 Il dit très bas :
 

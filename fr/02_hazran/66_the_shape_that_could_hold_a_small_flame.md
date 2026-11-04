@@ -33,8 +33,6 @@ Puis elle hocha la tête, très brièvement.
 Elle continua.
 « Quand on veut sauver vite, on tue en premier. »
 
-Sion trouva ces mots d'une justesse effrayante.
-
 Il voulait mettre la braise dans la coque tout de suite. La coller aussi au foyer refroidi, là, devant lui. Vérifier sur-le-champ si cela se reliait vraiment.
 
 Or c'était justement ce genre d'envie qui tuait en premier.
@@ -197,8 +195,6 @@ Puis, posant le bout du doigt sur un coin du cadre de réception, elle ajouta :
 
 « C'est pour ça qu'il me faut ta main. »
 
-Bien qu'on s'y soit attendu dès le début, ces mots sonnèrent étrangement plus lourds.
-
 Sion sentit que ce n'était pas dit seulement à Han Jiwoo.
 La main de Han Jiwoo était celle qui faisait tenir la structure ; la sienne, celle qui emmenait la braise sans la tuer.
 
@@ -225,7 +221,7 @@ Han Jiwoo eut elle aussi un bref sourire.
 Elle s'expliqua.
 « Une grande chose qui rate, ça se voit tout de suite, mais une petite, on peut ne rien voir jusqu'à ce qu'on l'ait tuée. »
 
-Ces mots étaient si justes que Sion ne put rien dire.
+Sion ne put rien dire.
 
 La braise qu'il tenait était pareille.
 Une chose qui, maniée sans y penser, pouvait refroidir en silence à n'importe quel moment.

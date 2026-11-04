@@ -1,234 +1,248 @@
-# Capítulo 129 — Contar lo que falta
+# Capítulo 129 — Contar a los que faltan
 
-Después de que cayeran esas palabras,
-todo el espacio pareció detenerse apenas un instante.
+Después de que cayeran esas palabras, el espacio se detuvo un momento.
 
-Ahora primero hay que contar lo que se ha perdido.
+Ahora, primero, hay que contar cuántos se han perdido.
 
-Sion repitió esa frase una vez más para sus adentros.
+Dentro solo se oía hervir el agua. Ese ruido también cesó pronto.
+Alguien había bajado el fuego.
 
-Desde que entraron en Serakion,
-él había sentido todo el tiempo que los arrastraban hacia dentro de una estructura.
+Llevaron a más gente al espacio interior. Las máquinas viejas y algunos humanos se movían en silencio, y nadie daba órdenes en voz alta.
 
-Un orden que lee a la gente,
-una mirada que clasifica,
-corredores que separan.
+Cuando una máquina abría una caja, una persona sacaba tela de dentro, y cuando una persona vaciaba un cuenco de agua, una máquina se lo llevaba y volvía a llenarlo.
+Entre las manos que iban y venían no había palabras.
 
-Pero la primera estructura con la que tropezó dentro de este estrato viejo era distinta.
-
-Aquí no se decidía primero dónde poner a la gente,
-sino que se confirmaba primero quién había llegado hasta allí y quién no había podido.
-
-Esa diferencia lo golpeó con una fuerza extraña.
-
-Después de que trasladaran más gente al espacio interior,
-las máquinas viejas y algunos humanos empezaron a moverse en silencio.
-
-Nadie daba órdenes a gritos,
-nadie alzaba el nombre de nadie.
-
-Y aun así,
-en medio de todo, las tareas se repartían solas.
-
-El lado que veía el estado de los heridos,
-el lado que repartía agua,
-el lado que reunía a los niños en un mismo sitio y los calmaba,
-y el lado que confirmaba el número de los recién llegados.
+Las tareas necesarias se repartieron.
+Los que miraban cómo estaban los heridos, los que repartían el agua, los que reunían a los niños en un mismo sitio.
+Y los que confirmaban el número de los recién llegados.
 
 El número.
 
-Eso iba primero.
+El anciano de Hazran se había quedado inmóvil con el destornillador apoyado en la placa de metal. Había dos trazos hechos, y no lograba hacer el tercero.
+La máquina vieja esperaba delante de él, con las rodillas dobladas.
 
-Sion sintió que ese hecho dolía de un modo extraño.
+De los que habían venido de Hazran, los que podían caminar fueron llegando a su lado uno tras otro. Eran cinco de los ocho.
+Tres estaban recostados contra la pared.
 
-Aquí, antes que la historia de cada quien,
-primero había que saber cuántos quedaban.
+La máquina vieja preguntó en voz muy baja.
 
-La historia es para después.
-El duelo también es para después.
-La rabia también es para después.
+—Dígame cuántas personas estaban con usted.
 
-El número de los que sobrevivieron
-y el de los que faltan: eso hay que cuadrarlo primero.
+La respuesta no llegó enseguida.
 
-Parecía un hábito que solo aprenden los que han perdido durante demasiado tiempo.
-
-De entre la gente venida de Hazran,
-unos cuantos que podían caminar fueron saliendo al frente por turnos.
-
-Una máquina vieja preguntó en voz muy baja:
-
-—Díganme cuántos salieron juntos en la nave.
-
-La respuesta no salió de inmediato.
-
-Un hombre abrió la boca
-y se detuvo a mitad de camino.
-
-En el instante de contar,
-los rostros que faltaban se volvieron demasiado nítidos.
-
-Se humedeció una vez los labios resecos y al fin dijo:
+El anciano abrió la boca y se detuvo a medias. La mano que sujetaba el destornillador temblaba sobre la placa.
+Se humedeció una vez los labios secos y apenas logró decirlo.
 
 —Diecinueve.
 
-La máquina vieja preguntó:
+La máquina vieja preguntó.
 
-—¿Cuántos hay confirmados ahora?
+—¿Y cuántos hay aquí ahora?
 
-El hombre se volvió.
+El hombre se volvió a mirar atrás. Miró a los tres recostados contra la pared, a los cuatro que estaban de pie a su lado y al niño.
+Los dedos se fueron doblando uno a uno.
 
-Esa mirada que contaba los rostros vivos
-no parecía confirmar personas,
-sino tocar una a una las ausencias.
+—Tres.
 
-—Trece.
+En el instante en que cayó esa palabra, nadie pudo decir la siguiente.
 
-En el instante en que cayó esa palabra,
-nadie pudo enlazar de inmediato la siguiente.
+Dieciséis.
 
-Seis.
+Nadie lo dijo en voz alta.
 
-Nadie lo sacó a propósito de la boca,
-pero ese número quedó demasiado nítido en el espacio.
+El hombre hizo el tercer trazo en la placa. Luego la mano se detuvo.
+Le faltaban trece trazos más, pero no los hizo y dejó el destornillador sobre la placa.
 
-Un poco después,
-desde otro lado se sucedieron respuestas parecidas.
+Un poco después habló otra persona. Era la mujer que tenía a un niño en brazos.
 
-—De veintitrés a dieciséis.
-—De nueve a cinco.
-—De siete a tres.
+—Siete.
 
-Los números eran cortos.
-Pero cuanto más se acumulaban esas palabras cortas,
-más pesado se volvía el espacio.
+—¿Y ahora?
 
-Han Jiwoo cerró y abrió la mano sin darse cuenta.
+—Dos.
 
-La pérdida oída como número
-tenía un modo de permanecer más tiempo que un grito.
+Se acomodó al niño en los brazos. El niño se le abrazó al cuello.
+Dos.
 
-Sin necesidad de decir quién había muerto ni cómo,
-solo con cuántos faltaban ya era bastante atroz.
+La persona siguiente.
 
-Aka llevaba un buen rato mirando a dos niños sentados en un rincón.
+—De nueve, dos.
 
-Quizá los niños todavía no sabían con exactitud
-en qué grupo, reducido de tal número a tal otro, habían entrado.
+Los números eran cortos. Cuantas más de esas palabras cortas se amontonaban, más pesado se volvía el espacio.
 
-Pero los adultos sí lo saben.
-Por eso se quedan aún más callados.
+La cuarta persona no pudo hablar. Abrió la boca y se la tapó con la mano.
+La quinta persona habló en su lugar.
 
-Luhai al principio seguía de pie con los hombros tensos,
-pero cuando los números fueron y vinieron unas cuantas veces más, acabó tragándose una maldición.
+—No tiene a nadie. Desde el principio.
+
+La máquina vieja miró largo rato a esa persona.
+
+—También se cuenta a quien vino sin nadie. De uno, uno.
+
+La cuarta persona bajó la mano y asintió.
+
+Habían hablado tres personas y quedaban ocho.
+De treinta y cinco, siete. Con quien vino sin nadie, de treinta y seis, ocho.
+
+Han Jiwoo apretó la mano y la abrió. La apretó y la abrió.
+A la tercera vez, la mano se cerró y se quedó así.
+
+Aka llevaba un buen rato mirando a dos niños sentados en un rincón. Los niños escuchaban los números que decían los adultos.
+Uno de ellos abrió los dedos e hizo como que contaba, pero no llegó al final y bajó la mano. El de al lado le tomó esa mano.
+Los dos, de la mano, miraban a los adultos.
+
+Aka fue hasta ellos y se sentó delante. No dijo nada.
+Uno de los niños le agarró la manga, y Aka no la retiró. La mano del niño que sujetaba la manga se aflojó.
+Se había dormido.
+
+Aka no se movió, con la manga tirante. El hombro se le inclinó un poco, pero lo dejó así.
+
+Luhai seguía de pie con los hombros tensos. Cuando los números habían ido y venido tres veces, se tragó una maldición en voz baja.
 
 —¿Esto lo hacen siempre primero?
 
-Aquello, más que una pregunta dirigida a alguien,
-parecía un rechazo a un método imposible de naturalizar.
-
-Una mujer humana que estaba cerca respondió:
+La mujer del rostro cansado, que estaba cerca, respondió.
 
 —Si no, dura más.
 
 Luhai la miró.
 
-La mujer, de rostro enjuto, continuó:
+La mujer siguió hablando con el rostro enjuto. Las manos que doblaban la tela no se detenían.
 
-—Cuanto más tarde sabes quién falta,
-la gente se pone a mirar a lugares vanos.
-Mira hacia la puerta,
-mira hacia el corredor,
-y con cada paso que llega un poco tarde vuelve a levantarse.
+—Cuanto más tarde sabes quién falta, más miras adonde no hay nada. Miras hacia la puerta, miras hacia el corredor, y con un solo paso que llega un poco tarde te vuelves a levantar.
 
-Aquellas palabras eran bajas,
-y por eso más crueles.
+Terminó de doblar la tela y la dejó sobre las rodillas. Se miró las manos.
 
-No cuentan para cortar la esperanza.
-Cuentan primero para que la esperanza no desgarre a la gente más tiempo.
+—Yo también lo hacía.
 
-Solo entonces Sion
-creyó entender un poco por qué la gente de aquí tenía esos rostros tan calmos.
+No dijo más.
 
-No es por insensibilidad.
-Es porque, de tanto haberlo vivido,
-ya no soportan el estado de no haber confirmado nada.
+Luhai cerró la boca. Sin darse cuenta miró hacia el corredor, y después de mirar apartó los ojos.
 
-En ese momento,
-un humano más joven que estaba dentro de pronto alzó la voz.
+Sion miró las manos de aquella mujer. Las manos que doblaban la tela estaban apretadas sobre las rodillas.
+
+Sern le preguntó a la mujer.
+
+—¿Cuántas de esas placas hay?
+
+La mujer miró a Sern.
+
+—¿Por qué?
+
+—Sé contar. Si sé cuántas placas hay, sabré cuántas veces se ha contado aquí.
+
+La mujer se quedó mirando a Sern un buen rato antes de responder.
+
+—Están colgadas en la pared de dentro. Ve a contarlas.
+
+Sern miró hacia dentro, pero no fue.
+
+—Las contaré más tarde.
+
+—Bien.
+
+Lo dijo la mujer.
+
+—Más tarde.
+
+En ese momento, un humano más joven que estaba dentro gritó de pronto.
 
 —¡Puede que todavía no hayan llegado!
 
-Esa sola frase
-rasgó con filo el espacio que se había hundido en silencio.
+No era de Hazran. Era alguien que ya estaba en este estrato antes que ellos, de unos quince o dieciséis años.
+Respiraba agitado y miró alrededor con cara de estar a punto de llorar.
 
-Nadie respondió enseguida.
-
-A aquel joven superviviente la respiración le subía entrecortada,
-y miró alrededor con un rostro a punto de echarse a llorar.
-
-—Había muchos corredores.
-Pueden haberse quedado atrapados por detrás,
-o haber salido por otro lado…
+—Había muchos corredores. Pueden haberse quedado atrapados detrás, o haber salido por otro lado…
 
 No logró terminar la frase.
 
-Porque en este espacio solo quedaban quienes ya habían pensado esa posibilidad,
-antes y mejor que nadie.
+La mujer del rostro cansado miró hacia allí. No se levantó; apretó la tela que tenía sobre las rodillas.
 
-La máquina vieja miró hacia él.
+La máquina vieja también miró hacia allí. El ojo óptico desigual se quedó largo rato sobre el joven.
+Más que sobre ningún otro.
 
-En esa mirada no había negación ni lástima.
-Pero tampoco había una crueldad fría.
-
-Tras un buen rato, dijo en voz muy baja:
+Al cabo de un buen rato, habló muy bajo.
 
 —Puede ser.
 
-Ante esas palabras, varios contuvieron el aliento al mismo tiempo.
+Varios contuvieron el aliento a la vez. El joven levantó la cara.
 
-Pero la máquina vieja enlazó enseguida lo que seguía:
+La máquina vieja siguió enseguida.
 
-—Por eso se cuenta antes.
-Para distinguir los nombres que conservaremos hasta el final
-de las esperanzas que hay que soltar ya.
+—Por eso contamos todavía antes. Para distinguir los nombres que hay que conservar hasta el final de las esperanzas que hay que soltar ahora mismo.
 
-Aquello no era un consuelo.
-Pero tampoco era solo crueldad.
+El joven bajó la cara. Cerró la boca.
+Se dejó resbalar con la espalda contra la pared hasta quedar sentado.
 
-Más bien
-sonaba a una palabra necesaria para no derrumbarse más tarde.
+Solo entonces la mujer del rostro cansado se levantó y fue a sentarse a su lado. Sin decir nada, le puso la tela doblada sobre las rodillas.
 
-Han Jiwoo, oyendo esa frase,
-recordó lo que al final no había podido traer consigo desde Hazran.
+Han Jiwoo miró a los dos.
 
-Las máquinas que quedaron atrás,
-el casco que quedó atrás,
-la luz que quedó atrás,
-la gente que quedó atrás.
+Había cosas que al final no habían podido venir con ellos desde Hazran. Las máquinas que quedaron atrás, el casco que quedó atrás, las luces que quedaron atrás.
+No las contó. En lugar de contarlas, puso la mano sobre su bolsa de herramientas.
 
-Toda pérdida tenía un nombre.
-Pero en ciertos momentos,
-el número debía llegar antes que ese nombre.
+Le faltaban dos destornilladores. Uno que le había dado al niño, otro que le había dado al anciano.
+Esos dos sí los contó.
 
-Quizá fuera la primera regla que hace aguantar más tiempo a los supervivientes.
+El anciano de Hazran volvió a tomar el destornillador. Hizo el cuarto trazo en la placa.
+El quinto.
+Despacio, un aliento por trazo.
 
-Un poco después,
-Sern le dijo a Sion en voz muy baja:
+Sern le habló a Sion en voz muy baja.
 
-—Esta gente no abandona la esperanza.
-Administra primero el momento en que la esperanza se vuelve mentira.
+—Esta gente no abandona la esperanza. Administra de antemano el momento en que la esperanza se vuelve mentira.
 
-Sion, al oír esas palabras, no pudo responder nada.
+Sion no pudo responder nada.
 
-En cambio,
-miró largamente cómo la máquina vieja iba anotando despacio, uno tras otro, los números y los nombres de los recién llegados.
+La máquina vieja miraba la placa junto al hombre. No contaba los trazos que iban aumentando; solo los miraba.
 
-Este no es un lugar que recuerde a la gente con belleza.
-Es un lugar donde primero se pierde con exactitud.
+El sexto.
+El séptimo.
 
-Y quizá,
-solo así sea un lugar capaz, después, de recordar de verdad.
+El niño escuchaba ese ruido en brazos de su madre. Un raspado por cada trazo.
+
+Sion sacó del bolsillo la placa de metal. Dos trazos.
+Miró la placa del hombre. Siete trazos. Ocho. Nueve.
+No volvió a guardar la suya; la sostuvo en la mano y siguió mirando.
+
+Diez.
+Once.
+
+La mano del hombre se detuvo al final del undécimo trazo. Dejó el destornillador.
+Los cinco trazos que faltaban no los hizo.
+
+—El resto, mañana.
+
+La mano vacía bajó hasta la rodilla.
+
+La máquina vieja asintió. La cabeza tardó en girar.
+
+—Mañana seguirán aquí.
+
+La mujer del rostro cansado, junto al joven, miró esa placa. Once trazos.
+Tenía la cara de quien piensa en su propia placa. Nadie le preguntó cuántos trazos tenía.
+
+Ater estaba de pie en la boca de la salida oscura. No se había vuelto ni una vez mientras contaban. Ni siquiera se había movido el faldón de su abrigo.
+Aun así, lo había oído todo: el contar y el raspar de los trazos.
+Miraba la oscuridad más allá de la boca. De allí no llegaba ningún sonido.
+
+Dentro, el fuego volvió a subir. Volvió a oírse hervir el agua.
+
+Luhai fue a sentarse junto al joven. Del otro lado.
+La mujer del rostro cansado a un lado, Luhai al otro. Ninguno de los tres dijo nada.
+El joven apretó la tela que tenía sobre las rodillas.
+
+—Era mi hermano mayor.
+
+Mucho rato después, el joven lo dijo sin dirigirse a nadie.
+
+Luhai no dijo nada. La mujer tampoco.
+El joven no dijo más. La mano que apretaba la tela se aflojó.
+
+El anciano de Hazran oyó aquello. Miró su placa.
+Once trazos. Quedaban cinco.
+
+Contó con cinco dedos los cinco que haría mañana, y los dobló.
 
 ---
 

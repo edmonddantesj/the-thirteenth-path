@@ -62,7 +62,7 @@ Mais Sion vit quelque chose dans ce mouvement.
 
 Il était lent.
 
-Pas beaucoup. Un demi-temps, à peu près. Mais jusque-là, Sern n'avait jamais eu un demi-temps de retard. Il avait eu le flanc entaillé quelques jours plus tôt, et pas une seule fois depuis, cela ne s'était vu. Maintenant, cela se voyait.
+Pas beaucoup. Un demi-temps, à peu près. Mais jusque-là, Sern n'avait jamais eu un demi-temps de retard. Il avait eu le flanc entaillé le matin même, et pas une seule fois depuis, cela ne s'était vu. Maintenant, cela se voyait.
 
 Ater le vit aussi.
 

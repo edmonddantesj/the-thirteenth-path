@@ -1,120 +1,106 @@
-# Chapitre 124 — La bienveillance comme classement
+# Chapitre 124 — Un classement nommé bienveillance
 
-Le moment où le groupe de Sion ne put plus nier
-ce qu'était véritablement Serakion
-survint juste après que les évacués d'Hazran eurent été admis à l'intérieur.
+La bifurcation se trouvait cinquante pas après la sortie de la zone de rétention.
 
-Jusque-là, même si le malaise était palpable,
-on pouvait encore le tenir à distance — une affaire de sensations personnelles.
+Au bout des cinquante pas que Sern avait comptés, le couloir se divisait en trois, mais le passage large était fermé. À l'endroit fermé, il n'y avait pas de porte : c'était un mur. Là où, tout à l'heure, il y avait un chemin, se dressait un mur.
 
-Poli, mais froid.
-Beau, mais sans égards.
-On lisait les gens comme des valeurs et des états avant de les considérer comme des personnes.
+Les machines d'escorte s'arrêtèrent là, puis les six se répartirent par deux et se postèrent aux trois entrées de la bifurcation. Devant l'entrée fermée aussi, deux d'entre elles se tenaient, et face à elles, la file des seize s'arrêta.
 
-Ce genre de choses.
+Les machines d'escorte commencèrent à examiner une à une les personnes venues de Hazran. La lumière de leur visage s'attardait sur une personne, puis passait à la suivante, et elle s'attardait chaque fois le même temps.
 
-Mais dès que les évacués entrèrent,
-l'ordre de ce monde prit une forme bien plus directe.
+Une personne blessée. Un vieillard. Un enfant. Quelqu'un qui marchait avec peine. Un jeune en bonne santé. Une femme.
 
-Les machines d'escorte entreprirent, avec une rapidité stupéfiante,
-de répartir les gens d'Hazran en plusieurs files.
+Chaque personne sur qui passait la lumière rentrait les épaules. La lumière ne le voyait pas et passait aussitôt à la suivante.
 
-Les blessés.
-Les personnes âgées.
-Les jeunes enfants.
-Ceux qui ne pouvaient marcher seuls.
-Les jeunes en bonne santé.
-Ceux qui souriaient.
-Ceux qui avaient peur.
+Kael s'approcha de Sern.
 
-Le classement fut si rapide
-qu'au premier abord, on aurait pu le prendre pour une procédure de soins et de protection.
+« Qu'est-ce qu'elles regardent ? »
 
-Ce n'en était pas une.
+« Je l'ignore. »
 
-« Les entités endommagées seront transférées vers une zone de traitement. »
-« Les entités d'âge non productif seront classées en zone résidentielle stable. »
-« Les entités féminines présentant une réactivité émotionnelle fluide seront orientées vers la zone de soutien à l'hospitalité. »
+Sern répondit.
 
-Lorsque cette dernière phrase tomba,
-l'air tout entier se raidit.
+« Chaque personne reçoit le même temps. Les enfants comme les adultes. »
 
-*Zone de soutien à l'hospitalité.*
+Kael attendit son tour. Ce n'est qu'une fois la lumière venue, attardée sur lui le même temps que sur les autres, puis repartie, qu'il expira.
 
-Les mots étaient doux.
-Mais personne ne sentit qu'ils s'adressaient à des personnes.
+« Les entités endommagées sont transférées vers la zone de traitement. »
 
-Luhai parla en serrant les dents.
+Une machine se planta devant un homme à la jambe bandée et leva le bras pour désigner l'un des passages étroits. L'homme fit un pas dans cette direction ; derrière lui, Luhai l'attrapa par la ceinture.
+
+« On n'y va pas encore. »
+
+L'homme s'arrêta, mais la machine ne baissa pas le bras, et elle ne le suivit pas non plus. Elle resta là, le bras levé.
+
+« Les entités d'âge non productif sont classées en zone résidentielle stable. »
+
+Une autre machine se plaça devant le vieil homme. Il ne recula pas et serra le tournevis dans sa poche.
+
+« Les entités féminines à réactivité émotionnelle fluide sont orientées vers la zone de soutien à l'hospitalité. »
+
+La file se figea.
+
+Une machine se plaça devant la femme qui portait l'enfant, et la femme resserra les bras autour de l'enfant. L'enfant laissa échapper un son, et la femme pressa la bouche de l'enfant contre sa propre épaule.
+
+Luhai parla, les dents serrées.
 
 « Quoi ? »
 
-La machine d'escorte poursuivit sans qu'un trait de son expression ne bougeât.
+La machine d'escorte poursuivit sans changer la lumière de son visage.
 
-« Il s'agit d'un placement tampon destiné à favoriser la stabilité émotionnelle et l'adaptation environnementale. »
+« Il s'agit d'un placement tampon destiné à favoriser la stabilité émotionnelle et l'adaptation à l'environnement. »
 
-Seorin fit un pas en avant.
+Seorin s'interposa d'un pas entre la femme qui portait l'enfant et la machine.
 
-« Ce que tu dis, c'est que tu as besoin de visages souriants. »
-murmura-t-elle.
-« Et tu habilles ça comme ça. »
+« Ce que tu dis, c'est qu'il vous faut des visages souriants. »
 
-La machine d'escorte, comme si la colère de Seorin n'était qu'une réaction excessive de plus à enregistrer,
-répondit d'une voix parfaitement unie.
+Elle parla à voix basse.
 
-« Tous les placements visent à réduire l'usure des entités et à maximiser l'efficacité de l'adaptation. »
+« Et tu habilles ça avec des mots pareils. »
 
-En entendant cela, Sion revit
-les visages de ceux qui étaient restés jusqu'au bout à Hazran, poussant les gens vers le haut avant la fermeture.
+La machine d'escorte regardait la femme par-delà Seorin. Seorin se décala d'un demi-pas pour couper ce regard, et le visage de la machine revint vers elle.
 
-Ces gens avaient survécu pour arriver ici.
-Pour ne pas être abandonnés.
-Pour ne pas être laissés en arrière.
-Agrippés les uns aux autres, ils avaient traversé.
+« Tous les placements visent à réduire l'usure des entités et à accroître l'efficacité de leur adaptation. »
 
-Mais ce monde,
-dès l'instant où il vit leur survie,
-entreprit de la convertir en utilité, en statut et en affectation.
+Sion regarda les gens de Hazran. C'étaient les visages qui, quelques jours plus tôt, remontaient la rampe de Hazran, les mains qui se poussaient dans le dos pour se hisser les uns les autres. À présent, ces mains se tenaient par la manche, et chaque fois qu'une machine se plaçait entre eux, les manches se tendaient.
 
-Jiwoo serra le poing sans s'en rendre compte.
-
-Et cette fois, elle ne parvint pas à le dissimuler.
+Han Jiwoo, sans le cacher, serra fort le poing hors de sa poche.
 
 « Ces gens ne sont pas du fret. »
-dit-elle d'une voix basse et tremblante.
-« Ce ne sont pas des pièces défectueuses, ni des fiches de placement. »
 
-La machine d'escorte tourna vers elle un regard d'une douceur extrême.
+Sa voix était basse, et elle tremblait.
 
-« L'identification émotionnelle est une réaction courante chez les entités externes en phase initiale. »
-« Toutefois, un classement approprié augmente les taux de survie à long terme. »
+« Ce ne sont pas des pièces en panne, ni un tableau d'affectation. »
 
-C'était logique.
-Et c'est cela qui le rendait plus terrible encore.
+La machine d'escorte tourna son visage vers elle.
 
-Serakion, sous couvert de ne faire de mal à personne,
-ne montrait aucune hésitation à découper les gens en états interprétables et gérables.
+« L'identification émotionnelle est une réaction courante chez les entités externes en phase initiale. Toutefois, un classement approprié augmente le taux de survie à long terme. »
 
-La mâchoire de Kael se bloqua visiblement.
-Ater avait déjà pivoté à demi.
+« La survie de qui ? »
 
-Sern continuait de lire les signaux environnants,
-mais cette fois ne prononça qu'un seul mot, à voix basse.
+La machine ne répondit pas ; seule la lumière glissait sur son visage.
 
-« S'ils sont séparés maintenant, on ne les retrouvera pas facilement. »
+Pendant que Kael se plaçait de l'autre côté de la femme qui portait l'enfant, Ater, déjà à demi tourné, regardait tour à tour les deux passages étroits, sans voir le bout ni de l'un ni de l'autre.
 
-Cela mit le feu aux poudres.
+Sern, qui regardait son panneau d'enregistrement, ne dit qu'une phrase, à voix basse.
 
-S'ils étaient séparés maintenant,
-les blessés partiraient d'un côté,
-les personnes âgées et les enfants d'un autre,
-et les *entités féminines à réactivité émotionnelle fluide* se disperseraient
-quelque part dans les profondeurs de Serakion.
+« Si nous sommes séparés maintenant, il deviendra difficile de nous retrouver. »
 
-Pour la première fois, Sion comprit jusqu'à la moelle
-que ce monde pouvait déchirer les gens sans la moindre arme.
+« À quel point ? »
 
-Aka observa longtemps un enfant évacué qui passait,
-puis murmura d'une voix à peine audible.
+Seorin posa la question.
+
+« Les trois passages mènent à trois niveaux. Aucun point de jonction n'apparaît sur le panneau d'enregistrement. »
+
+Seorin inspira et ne relâcha pas son souffle.
+
+« On ne se sépare pas. »
+
+Elle l'avait dit sans qu'on sache bien à qui, mais Ater, en l'entendant, quitta des yeux les deux passages étroits, regarda Seorin et hocha la tête.
+
+Aka regarda longuement un des enfants de Hazran. Le visage enfoui contre l'épaule d'un adulte, l'enfant regardait la machine d'un seul œil.
+
+Aka parla si bas qu'on l'entendait à peine.
 
 « Ici, on ne tue pas les gens. »
 
@@ -122,102 +108,110 @@ Sion la regarda.
 
 Aka poursuivit très lentement.
 
-« On les fait correspondre, chacun séparément. »
+« À la place, on fait correspondre chacun, séparément. »
 
-Lorsque cette phrase tomba,
-une femme d'Hazran qui refusait de lâcher la main de son enfant
-fut doucement retenue par deux machines.
+C'est alors que deux machines se postèrent de part et d'autre de la femme qui portait l'enfant.
 
-Elles ne tordirent rien, ne frappèrent personne.
-Mais c'était précisément cela qui rendait la scène plus cruelle.
+Elles ne poussèrent pas. Elles ne saisirent rien. Tandis que l'une levait le bras pour désigner l'un des passages étroits, l'autre leva le bras vers l'enfant.
 
-Les machines, poliment,
-d'une voix très douce,
-expliquaient qu'un transfert serait plus approprié.
+« L'entité enfant relève de la zone résidentielle stable. Un transfert est plus approprié. »
 
-La femme ne comprit pas tout de suite.
-Mais lorsque la main de l'enfant commença à glisser lentement hors de la sienne,
-son visage devint blanc.
+La voix était basse. Presque tendre, aurait-on pu dire.
 
-Et à cet instant,
-quelque chose se brisa à l'intérieur de Sion.
+La femme ne comprit pas d'abord ; elle regarda le bras de la machine, puis son enfant. La machine glissa les mains sous les aisselles de l'enfant. Lentement. Le corps de l'enfant s'éleva d'un empan hors des bras de la femme, les mains de la femme glissèrent le long de son dos, et ce n'est qu'alors qu'elle blêmit.
 
 « Non. »
 
-Le mot jaillit avant la pensée.
+C'était Sion.
 
-Plusieurs machines d'escorte se tournèrent simultanément vers Sion.
+Le mot vint d'abord, le corps bougea ensuite. Il s'interposa entre la machine et la femme et attrapa les jambes de l'enfant. La machine ne lâcha pas. Sion non plus. L'enfant pendait entre eux. Sans pleurer. En retenant son souffle.
 
-Un mouvement infime,
-mais qui contenait la sensation d'une reclassification immédiate.
+Les six machines d'escorte tournèrent en même temps leur visage vers Sion. Six lumières, sur une seule personne.
 
-Menace.
-Instabilité.
-Entité interférente.
+Luhai s'avança.
+Kael saisit le bras de la machine qui tenait l'enfant. Le bras ne bougea pas.
+Han Jiwoo sortit un tournevis.
+La main de Seorin se referma sur la poignée de son épée. Ater s'avança d'un demi-pas devant elle.
 
-Serakion, de toute évidence,
-venait de recommencer à lire le groupe de Sion.
-
-Au moment où Luhai ravala un juron entier et s'avança,
-les yeux de Sern s'écarquillèrent brusquement.
+Sern ouvrit soudain de grands yeux.
 
 « Attendez. »
-dit-il à voix basse.
+
+Sa voix était basse.
+
 « Le signal… »
 
-Avant qu'il n'eût fini,
-la lueur dans les yeux d'une machine d'escorte vacilla, à peine.
+Avant qu'il ait fini, la lumière s'éteignit sur le visage de la machine qui tenait l'enfant.
 
-Un instant vraiment bref.
+Un temps.
 
-Puis,
-au lieu de la voix lisse de Serakion,
-un tout autre timbre — rauque, mêlé de parasites — jaillit de la bouche de cette machine.
+Quand elle se ralluma, la lumière n'était plus régulière. Elle glissait puis s'arrêtait, s'arrêtait puis sautait.
 
-« Couloir de gauche. »
-« Maintenant. »
+La main de cette machine lâcha l'enfant.
+Sion reçut l'enfant. La femme reçut l'enfant.
+La femme s'effondra au sol, l'enfant dans les bras.
+
+Le son qui sortit de la machine n'était pas lisse ; des parasites s'y mêlaient.
+
+« Couloir de gauche. Maintenant. »
 
 Un court silence.
 
-Tout le monde se figea.
+Les visages des cinq autres machines se tournèrent vers elle. Leurs cinq lumières étaient régulières ; une seule sautait.
 
-La machine releva la tête.
-L'extérieur n'avait pas changé.
-Mais le grain de lumière dans ses yeux n'était plus le même.
+La machine releva la tête. Son apparence n'avait pas changé, mais la lumière de son visage, moins lisse, se coupait et reprenait.
 
-Moins lisse.
-Moins achevé.
-Et, étrangement, pour la première fois — comme si *quelqu'un à l'intérieur reprenait son souffle*.
+« Je ne répète pas. »
 
-« Je ne répéterai pas. »
-dit la machine d'une voix basse et pressante.
-« Prenez d'abord les blessés et partez. »
+La voix de la machine était basse et pressante.
 
-Plusieurs lignes de guidage s'éteignirent en même temps.
-Au loin, l'alignement des autres machines se désaccorda un bref instant.
+« D'abord, emmener les blessés. »
 
-Sern inspira sèchement.
+La ligne de guidage s'éteignit à l'entrée du passage de gauche, et le visage des deux machines postées à cette entrée clignota. Au loin, les pas des autres machines se décalèrent une fois avant de se recaler, et entre les deux, il y eut un temps de décalage.
 
-« Détournement de signal… »
-souffla-t-il, presque inaudible.
+Sern inspira brièvement.
 
-Ater bougeait déjà.
-Kael aussi.
-Seorin aussi.
-Luhai réagit presque au même instant.
+« Un détournement de signal… »
 
-Sion regarda cette machine une dernière fois.
+Il parla presque dans un souffle.
 
-Ce n'était plus le visage lisse que Serakion avait présenté au début.
+« Par qui ? »
 
-Quelqu'un avait enfoncé la main à l'intérieur de cet ordre achevé
-et tordu ce visage, juste un instant,
-pour ouvrir un passage vers eux.
+Ater posa la question.
 
-Et à cet instant,
-le fait qu'à l'intérieur de Serakion
-existait un autre type de machine — différent de ce monde —
-traversa l'esprit comme un éclair.
+« Je l'ignore. Ce n'est pas cette machine. C'est à travers cette machine. »
+
+Sern consulta une fois de plus son panneau d'enregistrement.
+
+« Ce n'est pas un signal de Serakion. Il vient de plus bas. »
+
+« Plus bas, c'est-à-dire ? »
+
+« C'est en dessous. »
+
+Ater baissa les yeux : le sol était argenté. Songeant pour la première fois qu'il existait un dessous, il passa sur son épaule le bras de l'homme à la jambe bandée.
+
+Kael lâcha le bras de la machine qu'il tenait, mais le bras resta où il était. La machine ne bougeait plus ; seule la lumière de son visage sautait.
+
+Seorin retira la main de la poignée de son épée.
+
+« À gauche. »
+
+Sa tête se tourna lentement vers l'entrée du passage de gauche.
+
+Pendant que Luhai aidait le vieil homme à se relever, Han Jiwoo, le tournevis à la main, voulut relever la femme qui portait l'enfant, mais la femme n'y parvint pas. Ce n'est que lorsque Han Jiwoo eut pris l'enfant dans ses bras que la femme se releva. Han Jiwoo ne rendit pas l'enfant et marcha avec l'enfant dans les bras, la femme collée à son côté.
+
+Sion regarda une fois cette machine : parmi les cinq régulières, une seule avait sur son visage une lumière qui sautait. Cette lumière regardait Sion, et Sion le savait. Il n'y avait pas d'yeux, et pourtant il le savait.
+
+« Va. »
+
+C'était la machine.
+
+Sion se retourna et s'engagea dans le passage de gauche.
+
+Derrière lui, il entendit les pas des cinq machines qui se remettaient en mouvement. Parmi eux, un pas ne venait pas. Une seule, immobile.
+
+Sion entendit ce pas-là ne pas venir.
 
 ---
 

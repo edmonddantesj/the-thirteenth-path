@@ -1,142 +1,280 @@
 # Chapitre 143 — Comment vit Serakion
 
-Avant que le soleil ne fût tout à fait levé, Jiwoo, Ater et Kael pénétrèrent avec les deux mains de récupération dans un passage qui faisait le mort.
+Avant que la lampe ne s'éteigne, Han Jiwoo, Ater et Kael entrèrent avec les deux mains de récupération dans le passage qui faisait le mort.
 
-Le chemin ressemblait moins à un couloir menant vers l'extérieur qu'à un soupirail que Serakion avait délibérément effacé de sa propre surface.
+La brèche se referma sans bruit derrière eux ; quand Han Jiwoo se retourna, il n'y avait plus qu'un mur. L'endroit usé se trouvait aussi de ce côté-ci.
 
-Plafond bas. Plaques métalliques inclinées. Des raccords repris à plusieurs reprises. Des prises et des points d'appui laissés là sans ostentation.
+Le passage était bas. Le plafond touchait les têtes : Ater marchait tête baissée, et Kael la baissait davantage. Sur les tôles inclinées, les traces de rapiéçage se superposaient. Les prises, à hauteur de main, n'avaient pas été faites pour servir de prises : c'étaient les endroits où les conduites se coudaient. Des endroits usés par des mains humaines qui s'y étaient agrippées.
 
-Une structure qu'aucune voie officielle n'aurait jamais adoptée.
+Celle qui prit d'abord la tête ne fut pas la première main de récupération, mais Han Jiwoo, et la première ne l'en empêcha pas.
 
-Mais c'est précisément pour cela qu'elle convenait mieux aux mains qui tentaient de survivre au-dehors et de revenir.
+Dès l'entrée du passage, Han Jiwoo s'arrêtait ; ce n'était qu'après avoir regardé les lignes de jointure du métal et le grain usé à hauteur de main qu'elle y posait la main.
 
-Celle qui prit la tête ne fut pas la première main de récupération — ce fut Jiwoo.
+« Ici, on agrippe plus souvent de la main droite. »
 
-Plus exactement, il ne l'en empêcha pas.
+Elle parla très bas.
 
-Jiwoo s'arrêtait sans cesse dès l'entrée du passage, lisant d'abord les lignes de couture du métal et le grain usé à hauteur de main.
+« C'est un passage où, quand on est pressé, on se tord vers la droite pour se faufiler. »
 
-« Plus de prises à droite, ici, » dit-elle très bas. « Le genre de passage où l'on tord le corps vers la droite pour s'échapper en urgence. »
+La première main de récupération la regarda une fois.
 
-La première main de récupération la regarda un instant.
+« Mieux vaut que tu passes devant, alors. »
 
-Ni suspicion ni admiration — plutôt une brève confirmation : *elle lit vraiment cela*.
+Elle le lâcha d'un ton plat.
 
-« Mieux vaut te garder devant, » lâcha-t-il.
+Han Jiwoo ne répliqua pas et regarda devant elle. Quand elle saisit la conduite de la main droite, sa main épousa l'endroit usé.
 
-Cela ne ressemblait pas à une autorisation. Simplement au jugement le plus efficace.
+Derrière, la seconde traînait la jambe et faisait du bruit ; Han Jiwoo ralentit. Ce ne fut qu'une fois que la seconde l'eut rattrapée qu'elle accéléra de nouveau, d'un pas réglé sur le bruit de la seconde.
 
-Jiwoo ne répondit pas et continua d'observer devant elle.
+La première leva la main, et les cinq s'arrêtèrent.
 
-À mesure qu'ils progressaient, le dessous du monde appelé Serakion commença à se révéler peu à peu.
+En contrebas, dans un passage large, les pas d'une machine se succédaient à intervalles égaux. Les cinq se plaquèrent dos au mur et retinrent leur souffle ; pendant que la seconde soulevait sa jambe du sol pour tenir sur un seul pied, Han Jiwoo lui soutint le bras.
 
-Contrairement aux niveaux supérieurs ordonnés, on trouvait ici des canalisations et des lignes de transport dissimulées, des structures auxiliaires dont les traces d'usage étaient moins effacées, et l'ombre de la vie que les humains et les machines portaient réellement sur leurs épaules.
+Pendant que la machine passait dans le passage d'en bas, la lumière de son visage balaya le mur, sans monter jusqu'au passage du haut, et les pas s'éloignèrent.
 
-En surface, Serakion ressemblait à une esthétique achevée. Mais ce qui le maintenait en réalité, c'était le transport, l'entretien et la classification sans fin de cet envers.
+Quand la seconde reposa le pied, il y eut un bruit, et la première se retourna, mais rien ne vint.
 
-Pour la première fois, Jiwoo commença à voir non seulement la manière dont les mains de Serakion lisaient les humains, mais aussi sur quelles mains Serakion se tenait.
+Plus ils avançaient dans le passage, plus le dessous de Serakion se révélait.
 
-La structure bien polie se trouvait au-dessus. Celle qui s'usait réellement se trouvait en dessous.
+Des conduites sortaient des murs, chose qu'ils n'avaient jamais vue en haut. Sur la voie vide d'une ligne de transport qui courait au ras du sol, une caisse avançait seule, sans que personne la tire. Pendant que les cinq se plaquaient contre le mur, la caisse passa en direction de la montée.
 
-Plus l'écart était flagrant, plus il glaçait.
+« Qu'est-ce qu'il y a dedans ? »
 
-La deuxième main de récupération murmura.
+Han Jiwoo posa la question.
 
-« Première fourche qui arrive. »
+« Je ne sais pas. »
 
-Et en effet, un peu plus loin, le chemin se divisa en trois directions.
+La première répondit.
 
-L'une montait. L'autre glissait latéralement sur une longue distance. La dernière plongeait lourdement vers le bas.
+« Je ne l'ai jamais ouverte. Si on l'ouvre, elle s'arrête. »
 
-L'expression d'Ater changea dès qu'il vit la structure.
+« Et si elle s'arrête ? »
 
-« La hiérarchie est inscrite dans les chemins, » dit-il à voix basse.
+« Ils viennent. »
 
-Depuis qu'il était sorti sans Sion, les mots d'Ater semblaient plus courts, plus froidement épurés.
+La caisse tourna l'angle.
 
-Il contempla longuement la fourche, puis reprit.
+Les structures auxiliaires portaient des traces d'usage. Les prises étaient usées, et sur le sol il y avait des éraflures laissées par quelque chose de lourd qu'on avait traîné.
 
-« Le chemin qui monte est plus étroit. Celui qui descend est plus large. Ceux qui montent sont sélectionnés. Descendre suppose un déplacement de masse. »
+Ater regarda ces éraflures et leur largeur : c'était la largeur de deux personnes qui tirent.
+
+« D'en haut, on ne voyait pas cela. »
+
+C'était lui.
+
+« Parce qu'il ne faut pas que ça se voie. »
+
+La première répondit.
+
+« Le haut, c'est l'endroit qu'on regarde ; ici, c'est l'endroit qui s'use. »
+
+Une conduite que Han Jiwoo toucha était tiède : la chaleur dont on se servait en haut passait par ici. Elle retira la main et regarda un à un les coudes de conduite devenus des prises. Chacun était usé à une profondeur différente.
+
+« Six. »
+
+Elle le dit.
+
+« Six quoi ? »
+
+« Les mains qui passent par ce chemin. Les endroits usés sont à six hauteurs. »
+
+La première examina ces endroits un à un, puis répondit.
+
+« Cinq. L'une n'est pas revenue. »
+
+La sixième hauteur que vit Han Jiwoo était la plus basse. Une main de petite taille. Elle n'y toucha pas.
+
+Kael posa deux doigts à cet endroit et mesura la largeur de l'usure.
+
+« C'était quel âge ? »
+
+« Je n'ai pas demandé. »
+
+La première répondit.
+
+« Si on demande, on se met à compter. »
+
+Pendant que Kael retirait les doigts, la seconde passa à côté sans regarder cet endroit.
+
+La seconde main de récupération parla très bas.
+
+« La première bifurcation arrive bientôt. »
+
+Le passage se divisait en trois directions.
+
+L'un montait, si étroit qu'une seule personne pouvait y passer. Un autre s'étirait sur le côté, large de deux personnes. Le dernier descendait, assez large pour que quatre personnes y marchent de front. C'était vers le bas que les marques au sol étaient les plus nombreuses.
+
+En voyant cette structure, Ater changea d'expression.
+
+« Ils ont gravé la hiérarchie dans les chemins. »
+
+Il parla à voix basse.
+
+Il regarda longtemps la bifurcation, puis poursuivit.
+
+« Le chemin qui monte est plus étroit, celui qui descend plus large. Ceux qui montent sont sélectionnés ; la descente est une structure qui suppose un déplacement en masse. »
 
 La première main de récupération répondit brièvement.
 
-« Retiens bien. À Serakion, les chemins sont plus honnêtes que les mots. »
+« Regarde bien. À Serakion, les chemins sont plus francs que les paroles. »
 
-Cette phrase resta plus longtemps que prévu.
+Ater mesura de la main la largeur du chemin qui montait. Il manquait plus d'un empan par rapport à ses épaules.
 
-Si la politique ne se fait pas seulement de lois et de déclarations, alors celle de Serakion devait aussi être gravée dans les chemins, les structures, les emplacements.
+« Pour monter, il faut se mettre de profil. »
 
-Qui trouvait facile d'aller où. Qui s'arrêtait où. Qui était élevé. Qui s'amassait en bas.
+« Oui. »
 
-L'espace de ce monde constituait déjà, en lui-même, la grammaire de la classification.
+C'était la première.
 
-Ater contempla cela avec un visage où l'on devinait des mâchoires à peine serrées.
+« Celui qui monte doit tourner son corps. »
 
-Sion n'était pas là, mais Jiwoo avait étrangement l'impression de savoir un peu ce qu'il pensait.
+Ater n'ajouta rien ; il regarda de nouveau cette largeur, puis ses propres épaules et celles de Kael.
 
-L'Empire n'était pas différent. En surface, il divisait par l'armée, les portes et la loi, mais en fin de compte, qui allait où et quels chemins s'ouvraient — c'était la structure qui parlait d'abord.
+« Et Kael ? »
 
-Serakion l'avait simplement rendu plus beau. L'essence, peut-être, ne différait en rien.
+« Faudra tourner deux fois. »
 
-Kael avait observé en silence l'arrière et les flancs durant tout ce temps.
+Kael répondit.
 
-Puis, à la première fourche, il dit très bas.
+« Sinon, je n'y vais pas. »
 
-« Les positions de blocage et les positions d'extraction sont côte à côte. »
+« Tu y vas. »
 
-La deuxième main de récupération le regarda.
+C'était Han Jiwoo.
 
-Kael examina tour à tour les marques d'usure au sol et les éraflures régulières qui semblaient laissées par la légion androïde, puis poursuivit.
+« Tu tournes deux fois. »
 
-« Ce n'est pas un simple couloir. On rabat, puis au besoin, on ferme aussitôt et on n'extrait qu'un côté précis. »
+Kael, qui surveillait à la fois l'arrière et les côtés, parla très bas à la première bifurcation.
 
-Ces mots rejoignaient exactement l'analyse que Sern avait formulée à l'intérieur.
+« L'endroit où l'on bloque et celui par où l'on fait sortir sont collés l'un à l'autre. »
 
-Serakion ne se contente pas de garder. Serakion guide, classe, et conçoit les chemins de sorte que seul le côté voulu puisse être extrait séparément.
+Pendant que la seconde main de récupération se retournait vers lui, Kael désigna les traces d'usure au sol. Puis des entailles régulières, au même intervalle, à la même profondeur.
 
-En lisant cela, Kael calculait déjà où ouvrir et où fermer pour faire sortir des gens si les combats éclataient.
+« Ce n'est pas un simple passage. C'est une structure faite pour rabattre les gens, fermer aussitôt s'il le faut, et ne faire sortir qu'un côté précis. »
 
-À cet instant, il ressemblait moins à un simple bouclier qu'à un tacticien du côté qui brise la structure et crée des brèches.
+Il toucha une à une l'entrée des trois embranchements.
 
-Un peu plus loin, ils aperçurent pour la première fois l'ombre d'une véritable zone de vie.
+En haut.
+Sur le côté.
+En bas.
 
-Ils n'y pénétrèrent pas directement. Mais à travers une fente étroite, ils virent plusieurs humains longer un couloir ordonné, accompagnés de machines qui les guidaient.
+« Si ça ferme, il ne reste que le bas. »
 
-Les humains étaient d'un calme étonnant. Les vêtements, propres. Les pas, réguliers.
+La seconde hocha la tête.
 
-Mais c'est précisément cela qui rendait la scène plus inquiétante.
+« C'est pour ça qu'on est toujours poussés vers le bas. »
 
-Ater parla à voix basse.
+Kael n'ajouta rien ; regardant le chemin d'en bas, large de quatre personnes, il déplia quatre doigts.
 
-« Plus ordonné qu'une zone d'occupation militaire. »
+Han Jiwoo vit que la jambe de la seconde traînait.
 
-Jiwoo observa longuement la main d'un humain à travers la fente.
+« Attends. »
 
-Le dos de la main était propre, mais le bout des doigts portait le grain fin que laisse le travail répétitif.
+Elle dit cela et s'accroupit, ouvrit l'articulation, y glissa le tournevis et lui fit faire un tour complet.
 
-En apparence, tout était ordonné. Mais ces mains avaient touché et répété sans cesse quelque chose.
+« Vas-y. »
 
-« Il y a la vie qu'on montre, et la vie qu'on utilise, » dit-elle à voix basse.
+La seconde marcha. La jambe traînait, mais moins.
 
-Ces mots semblaient résumer toute la structure vivante de Serakion.
+Un peu plus loin, à travers une fente mince, on voyait le couloir d'en haut.
 
-L'ordre affiché se trouvait au-dessus. Le travail et la classification qui le soutenaient réellement se trouvaient en dessous.
+Sur le sol bien rangé, quelques humains passaient, et une machine marchait à côté d'eux, à la même vitesse.
 
-Mais Serakion habillait les deux comme s'ils appartenaient à une même beauté.
+Les humains étaient silencieux, leurs vêtements propres. La marque qu'ils portaient au cou était au même endroit.
 
-La première main de récupération ne les laissa pas s'attarder.
+Ater parla bas.
 
-« Plus loin à l'intérieur, » dit-il très bas, « on verra mieux pourquoi ils font monter ceux qui ont de bonnes mains. »
+« C'est plus ordonné qu'un territoire sous occupation militaire. »
 
-Cette seule phrase redonna toute sa netteté à l'objectif de la reconnaissance.
+« Vous avez vu des territoires occupés ? »
 
-Il ne s'agissait pas simplement d'examiner les chemins. Il s'agissait de voir ce que Serakion jugeait précieux, ce qui était laissé en bas, ce qui était tiré vers le haut.
+La première posa la question.
 
-Et comprendre cette structure était la condition pour savoir qui extraire, et d'où.
+« J'en ai vu. »
 
-Le chemin qu'ils parcoururent ce jour-là montra, avant même de révéler où Serakion cachait quoi, comment Serakion vivait.
+« Comment c'était, là-bas ? »
 
-La politique et la vie n'y étaient pas séparées. Dans ce monde, un chemin, une main, la hauteur d'une marche — tout faisait partie de la classification et de la gouvernance.
+« C'était bruyant. »
+
+La première ne demanda rien de plus.
+
+Han Jiwoo regarda à travers la fente la main d'un des humains. Le dos de la main était propre, mais au bout des doigts la peau à côté de l'ongle était épaissie : une main qui avait longtemps appuyé au même endroit. Elle regarda le bout de ses propres doigts : le même endroit était épais.
+
+« Il y a la vie qu'on montre, et la vie dont on se sert. »
+
+Elle parla à voix basse.
+
+« Cette main-là, elle fait quoi ? »
+
+« Je ne sais pas. »
+
+La seconde répondit.
+
+« Ce dont on se sert en haut, seul le haut le sait. »
+
+Han Jiwoo suivit cette main du regard jusqu'à ce qu'elle tourne l'angle.
+
+La première main de récupération ne les laissa pas s'arrêter longtemps.
+
+« Plus loin à l'intérieur, »
+
+dit-elle très bas,
+
+« vous verrez mieux pourquoi ils montent les gamins qui ont de bonnes mains. »
+
+Han Jiwoo détacha les yeux de la fente et demanda.
+
+« Encore combien ? »
+
+« Deux bifurcations de plus. »
+
+« Et la jambe de la seconde ? »
+
+« Elle suit. »
+
+La seconde répondit avant que Han Jiwoo ne pose la question.
+
+Ils se mirent de profil et s'engagèrent dans le chemin qui montait. Han Jiwoo, entrée la première, avait les deux épaules contre les parois. Ater entra en tournant le corps ; Kael dut le tourner deux fois, et entra ainsi. La seconde entra en traînant la jambe, qui heurta la paroi avec bruit ; la première passa en dernier.
+
+Dans le passage étroit, les souffles des cinq étaient proches. À chaque pas, les épaules de Kael raclaient la paroi, mais il ne s'arrêta pas.
+
+Quand la jambe de la seconde se coinça contre la paroi, Han Jiwoo, devant, tendit la main en arrière, et la seconde la saisit. Ce ne fut que lorsque Han Jiwoo tira que la jambe passa.
+
+« C'est par ce chemin que tu fais sortir les gens ? »
+
+Han Jiwoo chuchota.
+
+« Les enfants. »
+
+La première répondit.
+
+« Les adultes ne peuvent pas venir. »
+
+Han Jiwoo sentit de nouveau la largeur entre les parois. Celle qui touchait ses deux épaules, une largeur d'enfant.
+
+D'en haut, une lumière douce descendit du bout du passage étroit. La première leva la main et les cinq s'arrêtèrent ; quand la lumière fut passée, la première baissa la main.
+
+« Ils surveillent aussi d'en haut ? »
+
+Han Jiwoo chuchota.
+
+« En haut, on ne regarde pas en bas. C'est pour ça que ce chemin est encore vivant. »
+
+Han Jiwoo leva les yeux, mais la lumière ne revint pas.
+
+D'en haut, un son de guidage courtois se fit entendre faiblement. Le dos contre la paroi, Han Jiwoo l'entendit : ce son venait du côté qui montait.
+
+« Qu'est-ce qu'il dit ? »
+
+Kael posa la question.
+
+« Lot suivant. »
+
+La première répondit.
+
+« C'est toujours ça. »
+
+Han Jiwoo attendit ces mots une fois encore. Ils vinrent. À la même hauteur.
 
 ---
 

@@ -1,199 +1,250 @@
 # Chapitre 136 — Le chemin caché respire
 
-Ils ont vu ce chemin réellement ouvert
-seulement après que cette soirée soit complètement passée.
+Ce ne fut qu'une fois la soirée tout à fait passée qu'ils virent ce chemin s'ouvrir pour de bon.
 
-Plus précisément,
-c'était moins le voir s'ouvrir tout à fait
-que le regarder respirer un instant.
+Il ne s'ouvrit pas complètement ; il respira, un instant.
 
-Les vieilles machines ne disaient rien pendant la journée.
-Ils n’ont pas nié ce que Jiwoo et Aka avaient vu.
-Mais ils n’ont rien montré non plus immédiatement.
+De toute la journée, les vieilles machines ne dirent rien : elles ne nièrent pas ce qu'avaient vu Han Jiwoo et Aka, mais ne le montrèrent pas non plus. Devant le mur, deux d'entre elles se relayaient. Quand l'une partait, l'autre arrivait ; la place ne resta jamais vide.
 
-Ce silence était une prudence.
+Sion observa cette relève, mais il n'y avait nulle part où l'inscrire, et il ne nota rien sur la planchette à points.
 
-Cet endroit accueille les gens quand le moment l'exige,
-sauve ce qui peut l'être,
-partage le travail.
+De toute la journée, Han Jiwoo ne regarda pas ce mur ; assise devant ses pièces, elle ne leva pas une seule fois la tête. Sion vit qu'elle ne levait pas une seule fois la tête. C'était sa façon de regarder.
 
-Mais ce n’est pas une communauté qui montre tout facilement.
+On aurait pu dire que le soleil s'était tout à fait couché, mais à cet étage, il n'y avait pas de soleil. Les lampes jaunes diminuaient une à une : quelqu'un les éteignait. Pendant ce temps, les bruits de la journée retombaient.
 
-Sion trouvait cela tout à fait naturel.
+La vieille machine vint vers le groupe de Sion.
 
-L'une des raisons pour lesquelles cette vieille couche tenait depuis si longtemps,
-c'était probablement ce genre de vérification tardive et de divulgation lente.
+Cette fois, elle n'appela pas seulement Sion, mais aussi Han Jiwoo, Aka, Sern, et jusqu'à Luhai, qui les avait suivis jusqu'au bout sans dire un mot.
 
-Quand le soleil fut complètement couché
-et que les bruits de la journée commencèrent à retomber un à un,
-la même vieille machine que la veille vint vers le groupe de Sion.
+Luhai avait confié l'enfant à la vieille femme. L'enfant pleura en le regardant, mais Luhai ne se retourna pas. Quand la vieille femme, l'enfant dans les bras, s'adossa au mur, l'enfant regarda le dos de Luhai par-dessus son épaule. Au coin du couloir, Luhai se retourna une fois, et ne repartit qu'une fois que l'enfant eut cessé de pleurer.
 
-Cette fois, ce n'était pas seulement Sion.
+La machine, sans arrêter Luhai ni le lui permettre, se retourna et dit brièvement :
 
-Jiwoo.
-Aka.
-Sern.
+« Puisque vous l'avez vu, vous ne pouvez plus faire comme si de rien n'était. »
 
-Et Luhai, qui a suivi sans dire un mot jusqu'au bout.
+« Non, on peut pas. »
 
-La machine n'a pas pris la peine de l'arrêter.
-Mais il n’a pas non plus accordé l’autorisation.
+Luhai répondit.
 
-Il s'est simplement retourné et a parlé, brièvement.
+La machine n'en dit pas davantage.
 
-« Maintenant que vous l'avez vu, prétendre le contraire n'est plus possible. »
+Seorin et Ater restèrent. Seorin regarda Sion, Sion hocha la tête, et Seorin se tourna vers la sortie obscure où se tenait Ater. Kael était devant le compartiment de chargement.
 
-Cela ressemblait moins à une autorisation
-qu'à l'annonce qu'une étape de l'épreuve avait été franchie.
+À six, ils se dirigèrent vers le mur bouché.
 
-Ils choisirent une heure où les allées et venues de l'ancienne couche se faisaient plus rares,
-et retournèrent au mur scellé.
+C'était l'heure où les gens ne bougeaient plus. Dans chaque couloir qu'ils traversaient, quelqu'un dormait, et ceux qui ne dormaient pas gardaient les yeux fermés. Ces yeux fermés suivaient le bruit des pas des six.
 
-Ce qui, pendant la journée, ne ressemblait à rien d'autre qu'une vieille surface métallique scellée depuis longtemps
-faisait un son subtilement différent de près.
+Le vieil homme de Hazran ne dormait pas ; il avait sa plaque posée sur les genoux. Seize traits. Tous tracés. Il regarda les six passer devant lui et, sans un mot, retourna la plaque.
 
-Du plus profond de l'intérieur,
-le bruit de l'air pressé et relâché une fois.
+La machine qui se tenait devant le mur allait s'écarter quand elle vit la vieille machine. La vieille machine hocha la tête ; l'autre s'écarta, mais sans aller bien loin.
 
-Jiwoo l'entendit en premier.
+Le jour, ce n'avait été qu'une surface de métal vieille et bouchée depuis longtemps, mais quand on s'en approchait, on entendait un son. Tout au fond, de l'air pressé une fois qui revenait, comme un souffle.
 
-« Ce n'est pas le bruit d'un mur vide. »
-dit-elle à voix basse.
+Ce fut Han Jiwoo qui entendit ce son la première ; elle colla son oreille contre le mur.
 
-La vieille machine, au lieu de répondre,
-a posé ses mains sur plusieurs rainures presque invisibles le long du bord du mur.
+« C'est pas le bruit d'un mur vide. »
 
-*Mains* n'était presque pas le bon mot.
+Elle le dit à voix basse.
 
-Ni une pression.
-Ni une ouverture.
-Plutôt un mouvement qui amenait le vieux métal à se souvenir de lui-même.
+Sur le panneau d'enregistrement que consulta Sern, il n'y avait rien. Il abaissa le panneau d'enregistrement et tendit l'oreille.
 
-Puis un côté du mur bourdonna très faiblement.
+Au lieu de répondre, la vieille machine posa les mains sur quelques rainures au bord de la paroi.
 
-Il ne s'ouvrait pas grand.
-Juste un espace suffisamment fin pour que l’épaule d’une personne puisse à peine passer.
+Six endroits. Deux en haut, deux sur le côté, deux en bas.
 
-Mais l'air qui s'est infiltré par cet espace
-disait déjà tout.
+Elle n'appuyait pas, n'ouvrait pas : elle se contentait de poser les mains. Han Jiwoo regarda ces mains, puis l'ordre dans lequel elles se posaient. En haut, en bas, sur le côté. C'était un regard qui apprenait par cœur.
 
-Différent de l'air à l'intérieur de l'ancienne couche.
+Sern leva le panneau d'enregistrement.
 
-Plus froid.
-Plus sec.
-L'odeur du métal était différente.
+« Ne notez rien. »
 
-dit Aka à voix basse.
+La vieille machine le dit, les mains toujours posées.
 
-« L'odeur du va-et-vient. »
+« Alors je l'apprendrai par cœur. »
 
-Jiwoo marmonna doucement au moment où elle sentit aussi l'odeur.
+« Ne faites pas cela non plus. »
 
-« L'air extérieur s'y est collé. »
+Sern abaissa le panneau d'enregistrement, ferma les yeux et les rouvrit. C'était déjà appris par cœur, mais la vieille machine ne le vit pas : elle regardait le mur.
 
-Cela ne concernait pas simplement l’air extérieur.
+« Et si je l'apprends par cœur, qu'arrive-t-il ? »
 
-Pas l’intérieur raffiné de Serakion.
-Pas l’odeur installée depuis longtemps de cette vieille couche.
-L'odeur du métal qui était passé quelque part et revenait.
+Sern posa la question.
 
-Sion regarda longuement dans la brèche.
+« Si celui qui l'a appris est pris, le chemin meurt. »
 
-Presque pas de lumière.
-Mais pas non plus l’obscurité d’un espace complètement mort.
+« Je l'oublierai. »
 
-Très faiblement,
-quelque part plus profondément, une seule ligne vivante clignotait comme si elle se cachait.
+« Vous ne pourrez pas oublier. »
 
-Sern parlait à voix basse.
+La vieille machine répondit.
 
-« Il y a un signal. »
-« Pas une liaison fixe —
-il se connecte brièvement, puis se coupe. »
+« Alors ne vous faites pas prendre. »
 
-Ces mots ont rendu encore plus claire la preuve que cette voie était toujours utilisée.
+Sern ne répondit pas et cala sous son bras le panneau d'enregistrement qu'il tenait.
 
-Luhai grimaça devant l’étroit écart.
+Un côté de la paroi vibra.
 
-« C'est réel. »
-« Ils ont caché ça et l'ont utilisé ? »
+Elle ne s'ouvrit pas grand : il se forma une brèche si mince qu'elle laissait à peine passer les épaules d'une personne. Les bords de la brèche étaient usés ; c'était l'endroit que Han Jiwoo avait touché pendant la journée.
 
-La vieille machine ne lui répondait pas.
-Au lieu de cela, il dit, très bas :
+Par cette brèche étroite, de l'air filtra.
 
-« S'il est découvert, il doit être fermé.
-S’il n’est pas découvert, il doit rester en vie.
-C'est ce qu'est ce chemin. »
+À la différence de l'air de l'intérieur de l'ancienne couche, il était plus froid, plus sec. Luhai se frotta le bras par-dessus sa manche.
 
-Cela expliquait le chemin,
-mais il semblait aussi que cela expliquait toutes les mains extérieures de cette communauté.
+Aka dit, presque aussi bas qu'un souffle :
 
-Ce qui ne doit pas être vu,
-mais ne doit pas mourir non plus.
+« Ça sent le va-et-vient. »
 
-Sion sentit à nouveau l'air venant de l'intérieur de la brèche.
+Han Jiwoo aussi, à peine eut-elle senti cette odeur, murmura :
 
-À ce moment-là, il se dit que
-si cette ancienne couche était un lieu qui préserve la mémoire,
-ce chemin tenait sans doute plutôt de ce qui porte la volonté jusqu'au-dehors.
+« Y a de l'air du dehors dessus. »
 
-Il y en a qui restent.
-Il y a ceux qui sortent et reviennent.
+Ce n'était ni l'odeur de l'intérieur bien astiqué de Serakion, ni celle, longtemps stagnante, de cette couche. C'était l'odeur d'un métal qui était passé ailleurs avant de revenir, et sur laquelle s'était déposé autre chose.
 
-Les deux doivent exister,
-ou cet endroit ne deviendra plus que ruine.
+Han Jiwoo approcha le nez de la brèche.
 
-Ensuite,
-du plus profond de l’obscurité, un très court bruit de friction retentit.
+« De l'huile. De l'huile neuve. Pas d'ici. »
 
-Tout le monde s’arrêta d’un coup.
+Le bout de son nez ne quittait pas la brèche.
 
-Le corps de Luhai se tendit en premier.
-Les yeux de Sern changèrent immédiatement.
-Sion retint son souffle sans réfléchir.
+À ces mots, la vieille machine bougea son œil optique, mais elle ne démentit pas.
 
-La vieille machine gardait la main sur la brèche
-et dit, très bas.
+Sion regarda à l'intérieur de la brèche.
+
+Il n'y avait presque pas de lumière, mais ce n'était pas non plus une obscurité tout à fait morte. Quelque part plus loin, une ligne s'allumait et s'éteignait comme si elle se cachait, à intervalles irréguliers. C'étaient les mêmes intervalles que ceux des lampes jaunes de cette couche.
+
+Sern dit à voix basse :
+
+« Il y a un signal. Il n'est pas fixe : il se connecte brièvement, puis se coupe. »
+
+« Dans quel sens ? »
+
+Sion posa la question.
+
+« Il vient vers nous. »
+
+Sern lui répondit.
+
+« Ce n'est pas une émission, c'est une réception. De là-dedans jusqu'ici. »
+
+Luhai grimaça devant l'étroite brèche.
+
+« C'est vrai, alors. Ils cachent ça comme ça et ils font l'aller-retour par là ? »
+
+Il allait glisser la main dans la brèche, puis s'arrêta. La vieille machine le regardait ; il retira la main qu'il avançait.
+
+La vieille machine ne releva pas ses paroles et dit, très bas :
+
+« C'est un chemin qu'il faut fermer s'il est découvert, et qui doit vivre s'il ne l'est pas. »
+
+« Et quand ça se ferme, ceux qui sont dedans ? »
+
+Luhai posa la question.
+
+La vieille machine ne répondit pas, et ses mains posées sur le mur ne bougèrent pas.
+
+« Tu l'as déjà fermé ? »
+
+Han Jiwoo posa la question.
+
+« Deux fois. »
+
+La vieille machine répondit.
+
+« Il y avait quelqu'un dedans ? »
+
+« Une fois. »
+
+« Et la deuxième fois ? »
+
+« Ils étaient dehors. »
+
+« Ils sont revenus, alors. »
+
+« Nous leur avons ouvert. »
+
+La vieille machine regarda, parmi les six, l'une de celles du bas : une rainure du mur.
+
+« Cette main-là. »
+
+Les profondes éraflures à côté de cette rainure avaient été faites de l'intérieur.
+
+Han Jiwoo regarda la brèche, large comme des épaules, puis baissa les yeux sur ses propres épaules.
+
+Sion sentit de nouveau l'air froid et sec de l'intérieur de la brèche, mais il ne sortit pas la plaque de métal ; il posa seulement la main sur sa poche.
+
+Dans l'obscurité plus profonde, un bruit de friction retentit.
+
+Bref. Du métal qui frôlait du métal.
+
+Tous s'arrêtèrent en même temps.
+
+Le corps de Luhai se raidit le premier, et Sern leva le panneau d'enregistrement. Pendant que Sion retenait son souffle, la main de Han Jiwoo alla à sa sacoche à outils. Aka ne bougea pas.
+
+La vieille machine, la main toujours dans la brèche, dit très bas :
 
 « Ne bougez pas. »
 
-Dans cette voix, pour la première fois,
-il y avait une tension différente de la sécheresse que cette vieille couche avait toujours entretenue.
+Sa voix était différente. Pas sèche : tendue. Ses doigts posés sur le mur appuyèrent fort, une fois, sur une rainure ; la brèche commença à se resserrer, puis s'arrêta, et elle n'appuya pas davantage.
 
-Aka regarda dans l'obscurité au-delà de la brèche,
-puis dit, d'une voix presque inaudible :
+Sern regarda le panneau d'enregistrement.
 
-« Cela ne vient pas de l'intérieur. »
+« Cela se rapproche. »
+
+Il chuchota.
+
+« Ce n'est pas un signal. Ce sont des pas. »
+
+Aka regardait l'obscurité au-delà de la brèche ; puis elle dit, si bas qu'on l'entendait à peine :
+
+« Ça vient pas de dedans. »
 
 Sion la regarda.
 
-Aka continua sans détourner le regard.
+Aka continua sans détourner les yeux.
 
-« C'est le côté qui revient. »
+« C'est ceux qui reviennent. »
 
-Sur cette seule ligne,
-tout l’air a changé.
+Les doigts de la vieille machine quittèrent la rainure, mais la brèche ne se resserra pas davantage. Elle retira ses deux mains du mur.
 
-Ce n’était pas la démonstration d’un chemin mort.
-C'était peut-être l'instant même
-où une autre main, tout juste revenue de l'extérieur,
-atteignait ce seuil.
+Le bruit de friction se fit entendre encore une fois, plus près, puis vinrent des bruits de pas. Ce n'étaient pas des pas humains, ni le bruit des machines de Serakion. Un pied traînait.
 
-La vieille machine ne donnait plus d'explications.
+Il traînait, se posait, traînait.
 
-Jiwoo referma légèrement le poing sans s’en rendre compte.
-Luhai gardait les yeux fixés sur la brèche, feignant l'indifférence.
-Et Sion sentit monter en lui, pour la première fois depuis longtemps,
-une autre sorte de tension —
-différente de tout ce qu'il avait connu depuis Hazran.
+En entendant ce bruit, Han Jiwoo retira la main de sa sacoche à outils.
 
-Pas la tension de se cacher.
-La tension de quelque chose qui approche.
+« C'est une jambe. Une jambe est abîmée. »
 
-Et à ce moment-là,
-du plus profond de cette vieille couche,
-le temps d'une main qui voyage réellement dehors
-commença à rejoindre le groupe de Sion pour la première fois.
+La vieille machine regarda Han Jiwoo.
+
+« Laquelle ? »
+
+« La gauche. Le bruit de frottement vient de la gauche. »
+
+La vieille machine se tourna vers la brèche.
+
+« Si c'est la gauche, c'est la seconde. »
+
+Elle le dit sans s'adresser à personne en particulier.
+
+« La seconde revient. »
+
+Luhai entendit ces mots.
+
+« Et la première ? »
+
+La vieille machine ne répondit pas. Sur ses deux mains baissées, un doigt tremblait, et tant que Han Jiwoo le regarda, le tremblement ne cessa pas.
+
+Le bruit de pas traînés arriva juste de l'autre côté de la brèche et s'arrêta.
+
+Dans l'obscurité de la brèche, une lumière s'alluma. On vit d'abord un œil optique. Une lumière irrégulière. La lumière de cette couche. Une lumière qui revenait du dehors.
+
+Cette lumière regarda les cinq de l'autre côté de la brèche, regarda la vieille machine, et s'arrêta.
+
+La vieille machine reposa les mains sur la brèche. Six endroits.
+
+En haut, en bas, sur le côté.
+
+La brèche commença à s'élargir.
 
 ---
 

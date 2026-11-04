@@ -2,145 +2,226 @@
 
 Les préparatifs de départ avancèrent vite.
 
-Personne ne pensait avoir du temps, et personne ne croyait pouvoir retenir plus longtemps cette courte pause.
+Pendant qu'on vérifiait de nouveau les passages, Ater tria les chemins nouvellement bloqués et les brèches encore utilisables. Trois chemins bloqués, deux brèches utilisables. Du doigt, il les pointa toutes les cinq sur le mur.
 
-Serakion reviendrait forcément. Cet échec ne resterait pas sans suite. Et la prochaine fois, chaque mouvement tiendrait compte du fait qu'un androïde doté de volonté se trouvait quelque part dans cette ancienne couche.
+« Laquelle des deux ? »
 
-Tous le savaient.
+Seorin demanda.
 
-Les lignes furent donc vérifiées de nouveau. Seorin confirma brièvement et sèchement le rôle de chaque groupe, Ater tria rapidement les chemins nouvellement bloqués et les ouvertures encore utilisables, et Sern combina les dégâts, le temps et le nombre de personnes capables de se déplacer pour recomposer un ordre d'exécution plus serré encore qu'avant.
+« La gauche. La droite, l'autre camp l'a vue la dernière fois. »
 
-Mais, au milieu de tout cela, les regards revenaient sans cesse vers le dernier androïde.
+« Et la gauche, ils ne l'ont pas vue ? »
 
-Il se trouvait encore dans le secteur calme.
+« Ils l'ont sans doute vue. Plus tard. »
 
-Han Jiwoo vérifiait la dernière fixation, une ancienne machine déposait à côté de lui un fragment de pièce qu'elle venait d'apporter, et les enfants s'efforçaient de rester près de lui sans faire trop de bruit.
+Seorin choisit la gauche.
 
-La scène avait quelque chose d'étrangement paisible.
+Sern reporta de nouveau, sur une seule page du panneau d'enregistrement, les dégâts, le temps et le nombre de personnes capables de se déplacer ; la page était plus serrée qu'avant. À la ligne où il inscrivait le nombre de personnes, sa main s'arrêta une fois, et il n'écrivit qu'après avoir recompté.
 
-Et c'est pour cela que Sion sentit plus clairement encore que ce temps finirait bientôt.
+« Pourquoi tu t'arrêtes ? »
 
-Plus on voulait rester ensemble, moins il était possible de le retenir longtemps.
+Seorin demanda.
 
-Un enfant s'accroupit près du dernier androïde et demanda d'une toute petite voix :
+« Il en manquait un. »
 
-« Tu ne peux pas rester ? »
+Sern répondit.
 
-Personne ne répondit tout de suite.
+« En recomptant, le compte était juste. C'est moi qui m'étais trompé. »
 
-La question touchait exactement l'endroit que tous évitaient.
+« Qui as-tu laissé de côté ? »
 
-Pourquoi fallait-il l'emmener ? Pourquoi ne pouvait-il pas rester avec eux ? Pourquoi fallait-il déplacer de nouveau vers le danger un être qui venait à peine de survivre ?
+« C'est cet androïde que j'avais laissé de côté. »
 
-Han Jiwoo resta longtemps sans pouvoir parler.
+Sern répondit.
 
-Plus que quiconque, elle ne voulait pas renvoyer cet être vers le champ de bataille.
+« J'ignorais si sa place était sur la ligne des personnes. »
 
-Un instant plus tôt, le mot « mal » lui était venu trop naturellement, et elle savait désormais qu'en le réparant elle bougeait la main de façon à ne pas le surprendre.
+Seorin ne répondit pas et revérifia brièvement le rôle de chaque groupe. Un seul mot par groupe, et pourtant personne ne posa de question.
 
-Et pourtant, elle ne pouvait pas éviter les mots qu'il fallait dire.
+Les gens de Hazran se partagèrent l'eau et les tissus. Les tissus étaient triés entre ceux qui portaient du sang et ceux qui n'en portaient pas, et ces derniers étaient les moins nombreux. La femme au visage fatigué tendit à Han Jiwoo l'un de ceux qui n'en portaient pas.
 
-« S'il reste ici… » dit-elle très bas. « La prochaine fois, ils viendront d'abord vers vous. »
+« L'épaule. »
 
-L'enfant cligna des yeux. Il ne semblait pas avoir tout compris.
+La femme le dit.
 
-Mais même très jeune, il semblait sentir de quelle sorte de tristesse il s'agissait.
+Ce que Han Jiwoo reçut, c'était le tissu du troisième nœud.
+
+Même au milieu de tout cela, les têtes se tournaient sans cesse vers le dernier androïde.
+
+L'androïde se trouvait toujours dans le secteur calme. Pour vérifier la dernière fixation, Han Jiwoo tira un à un sur les trois nœuds, mais aucun ne se défit. Une vieille machine posa à côté un fragment de pièce qu'elle venait d'apporter ; c'était le troisième. Han Jiwoo le prit et l'inséra à l'intérieur de l'axe d'épaule : il entra.
+
+« Où l'avez-vous trouvé ? »
+
+« Sur ceux d'en face. »
+
+La machine répondit.
+
+« Là où ils sont tombés. »
+
+Han Jiwoo arrêta sa main et regarda le fragment, mais le laissa en place.
+
+« Ça s'emboîte. C'est le même corps. »
+
+À côté, les enfants baissaient la voix. Un enfant tira la manche d'un autre pour lui faire baisser la voix plus encore, et l'enfant ainsi tiré ferma la bouche.
+
+Un enfant s'accroupit à côté du dernier androïde et dit d'une toute petite voix :
+
+« Tu ne pourrais pas rester, maintenant ? »
+
+Personne ne put répondre tout de suite.
+
+L'œil optique de l'androïde se tourna lentement vers l'enfant, puis revint vers Han Jiwoo. Han Jiwoo, incapable de soutenir ce regard, regarda la fixation.
+
+La main de Sern s'arrêta sur le panneau d'enregistrement, et Ater détacha le doigt du mur. Seorin regardait l'enfant de loin. La main de la femme de Hazran qui partageait l'eau s'immobilisa, et un peu d'eau coula sur le sol.
+
+Han Jiwoo resta longtemps sans pouvoir ouvrir la bouche. Sa main se crispa sur la fixation, et un nœud se resserra un peu plus. Ce n'est qu'après avoir desserré cette main qu'elle se tourna vers l'enfant.
+
+« Si on le garde ici… »
+
+Elle parlait très bas.
+
+« La prochaine fois, c'est vers vous qu'ils viendront en premier. »
+
+L'enfant cligna des yeux, regarda Han Jiwoo, puis l'androïde. L'œil optique de l'androïde regardait l'enfant.
 
 Han Jiwoo regarda une fois le dernier androïde, puis de nouveau l'enfant.
 
-« Ils viendront le chercher. Et alors cet endroit deviendra dangereux aussi. »
+« Ils viendront chercher celui-là. Et alors, ici aussi, ça deviendra dangereux. »
 
-Les mots auraient pu paraître trop froids, mais personne ne les entendit ainsi.
+« Pourquoi ils cherchent celui-là ? »
 
-Ce n'était pas repousser quelqu'un. C'était arracher une partie de soi pour protéger.
+« Parce que celui-là était à eux. Là-bas, ils ne savent pas qu'ils ont perdu ce qui était à eux. Quand ils comptent, ils le savent. Et ils doivent être en train de compter. »
 
-Les yeux de l'enfant rougirent aussitôt.
+L'enfant regarda le visage de l'androïde.
 
-« Mais… » parvint-il à dire. « C'est bien quand il est avec nous. »
+Les yeux de l'enfant rougirent.
 
-À ces mots, plusieurs personnes détournèrent carrément la tête.
+« Mais… »
 
-Ils étaient trop justes, et c'est pour cela qu'ils faisaient plus mal.
+L'enfant eut du mal à le dire.
 
-À cet instant, Sion pensa que les adieux arrivaient sans doute toujours ainsi.
+« C'est bien, quand on est ensemble. »
 
-Être ensemble est bon. On veut donc rester ensemble. Mais justement pour cela, il ne faut pas laisser le danger venir vers l'endroit où l'on est ensemble.
+Dans la pièce, quelques personnes détournèrent la tête. Une femme de Hazran se pressa les yeux du dos de la main. Luhai, le regard au plafond, raffermit sa prise sur sa barre de fer ; Sern regarda le panneau d'enregistrement, mais n'écrivit rien. Luhai baissa les yeux du plafond.
 
-Le dernier androïde semblait entendre ces mots.
+« Ce que disent les gosses, c'est toujours le plus juste. C'est pour ça qu'on peut encore moins leur dire oui. »
 
-Son œil optique était encore faible, et son corps n'était pas complètement remis.
+Puis il regarda de nouveau le plafond.
 
-Mais lorsque l'enfant le regarda en retenant ses larmes, lui aussi tourna très lentement son regard vers lui.
+Sion ne détourna pas la tête et regarda la main de l'enfant. Une main posée près du genou de l'androïde, sans le toucher. Au bout des doigts restait encore de la terre.
 
-Et il resta ainsi longtemps, vraiment longtemps.
+L'œil optique du dernier androïde glissa lentement vers l'enfant.
 
-Personne ne pouvait dire exactement ce qui passa dans cet arrêt.
+Puis ce regard resta ainsi longtemps, vraiment longtemps. L'enfant non plus ne bougeait pas sous ce regard. Entre les deux, Han Jiwoo retenait son souffle.
 
-Mais Sion ne pouvait se défaire de l'impression que cet être choisissait alors sa place.
+La vieille machine postée à l'entrée du secteur fit un pas à l'intérieur, puis s'arrêta. L'œil optique de cette machine, celle qui avait remis le drap sur les morts, était tourné vers les doigts de l'enfant où restait la terre. La machine regarda sa propre main. Il n'y avait pas de terre.
 
-Voulait-il rester ici ? Ou devait-il partir ?
+Seorin s'approcha sans bruit.
 
-Il ne pouvait sans doute pas encore appeler cela une pensée, mais il avait déjà trop appris ce qu'il ne pouvait pas laisser derrière lui.
+Elle se baissa un peu, comme pour se mettre à la hauteur des yeux de l'enfant, et dit brièvement :
 
-Seorin s'approcha en silence.
+« Je sais que c'est bien d'être ensemble. Mais c'est justement pour ça qu'on l'emmène. »
 
-Elle abaissa un peu son corps pour se mettre à la hauteur de l'enfant et dit brièvement :
+L'enfant regarda Seorin, mais Seorin ne détourna pas les yeux. Ce n'est qu'après avoir vu la main de l'enfant toucher une fois le genou de l'androïde, puis s'en détacher, qu'elle se releva.
 
-« Je sais que c'est bien d'être ensemble. C'est pour ça qu'on l'emmène. »
+Les enfants ne purent retenir leurs larmes, mais aucun ne s'agrippa ni ne se jeta au sol. En pleurant, un enfant prit la main d'un autre, et cet enfant-là prit la main d'un autre encore. Les trois, main dans la main, regardaient l'androïde. Le quatrième enfant serrait la jambe d'une femme de Hazran, le visage tourné vers l'androïde.
 
-Ces mots étaient d'une précision surprenante.
+Aka, sans un mot, se plaça derrière les quatre. Un enfant attrapa la manche d'Aka, et Aka laissa faire.
 
-Non pas : on le laisse parce qu'on l'aime.
+« Moi, je reste. »
 
-Mais : on l'emmène parce qu'on l'aime.
+Elle le dit aux enfants.
 
-Pour que le danger ne revienne pas ici. Pour ne pas laisser une cible près de ce qu'il fallait protéger. Et aussi parce que cet être ne pouvait plus rester hors du prochain combat.
+« Ici. »
 
-Les enfants ne purent pas retenir leurs larmes.
+Les enfants écoutèrent ces mots sans quitter l'androïde des yeux.
 
-Mais, étrangement, ils ne se couchèrent pas au sol pour le retenir, ni ne crièrent qu'ils refusaient.
-
-C'était peut-être parce qu'ils comprenaient, ou plutôt parce qu'ils avaient déjà vu une fois ce que perdre signifiait.
-
-Ils avaient des visages qui semblaient sentir, même vaguement, que retenir quelqu'un maintenant ne serait peut-être pas de l'amour, mais une manière de rattacher le danger à leur côté.
-
-Un enfant qui se tenait depuis tout à l'heure près du dernier androïde toucha une dernière fois, du bout des doigts, la ligne pâle de sa bouche.
+L'enfant qui ne quittait pas le dernier androïde depuis tout à l'heure toucha une dernière fois du bout des doigts ce trait pâle de la bouche, comme pour l'appuyer encore. Le doigt s'attarda sur le trait. Avant de le retirer, l'enfant appuya encore une fois.
 
 « Reviens. »
 
-Ces mots ressemblaient à une demande, à un ordre, et à une prière.
+L'œil optique du dernier androïde trembla très légèrement. Sous le doigt, le trait de la bouche s'éclaira une fois. L'enfant retira la main. La lueur resta.
 
-L'œil optique du dernier androïde trembla très faiblement.
+Un temps.
 
-Puis, après un instant, il bougea de lui-même.
+La lueur retomba.
 
-Avant que Han Jiwoo puisse tendre la main pour le soutenir, il s'appuya au mur et se leva lentement.
+L'enfant regarda son propre doigt : la terre était passée sur le trait, et l'enfant ne l'essuya pas.
 
-Sa posture n'était pas complète. L'équilibre était si instable que son genou semblait pouvoir céder à tout moment.
+Un moment après, le dernier androïde bougea de lui-même.
 
-Et pourtant, il regarda les enfants une fois, puis tourna son corps vers Sion, Seorin et les autres.
+Han Jiwoo tendit la main pour le soutenir. Avant que cette main ne l'atteigne, l'androïde s'appuya au mur et se leva lentement.
 
-À cet instant, tous dans la pièce ressentirent la même chose.
+Sans se servir de la main du côté de l'épaule tordue, l'androïde poussa contre le mur de l'autre main pour se redresser. Le genou plia une fois. La main appuyée au mur se crispa. Les doigts raclèrent la paroi. Debout, de nouveau. Une fois debout, le trait de la bouche que l'enfant avait dessiné se trouvait au-dessus des yeux de l'enfant, et l'enfant leva la tête pour le regarder.
 
-Il n'était pas emmené de force.
+La main que Han Jiwoo avait tendue resta suspendue dans le vide. Elle la retira lentement et la serra dans l'autre.
 
-Il ne pouvait pas encore parler, et il ne comprenait peut-être pas tout. Mais ce mouvement-là, au moins, était proche d'un choix fait par sa propre volonté.
+Un regard vers les enfants : les trois qui se tenaient par la main, le quatrième qui serrait une jambe, puis l'enfant qui avait touché le trait de la bouche. Après les avoir vus tour à tour, l'androïde se tourna vers le groupe de Sion et vers Seorin.
 
-Partir ensemble parce qu'il voulait rester ensemble.
+Ce demi-tour prit trois pas. À chaque pas, l'épaule tordue oscillait et les trois nœuds se tendaient puis se relâchaient, mais aucune main ne vint tenir l'épaule.
 
-Ce choix contradictoire paraissait au contraire d'une exactitude douloureuse.
+Sion compta ces trois pas, puis regarda sa lame. Une lame neuve, sans une ébréchure, que lui avait donnée un homme de Hazran. Il la serra ; elle n'était pas encore faite à sa main.
 
-Han Jiwoo le regarda, ferma puis rouvrit les yeux, et murmura très bas :
+Une fois retourné, le dernier androïde regarda Seorin. Seorin hocha la tête une fois, mais pas de hochement en retour : les deux pieds plantés dans le sol, l'androïde resta debout à sa place.
 
-« D'accord. »
+« Un petit signe de tête, ce serait bien. »
 
-Elle-même ne savait peut-être pas à qui elle adressait ces mots.
+Luhai le dit.
 
-Mais Sion crut le savoir.
+« Ça, non. »
 
-Ils s'adressaient à cet être, aux enfants, et à tout le prochain combat qui allait commencer.
+Han Jiwoo répondit.
 
-Parce qu'il était devenu l'un des leurs, il ne pouvait plus rester seulement près d'eux.
+« Rester debout, c'est son signe de tête. Chez celui-là. »
+
+Han Jiwoo ferma les yeux, les rouvrit, et murmura très bas :
+
+« J'ai compris. »
+
+« Compris quoi ? »
+
+Seorin avait posé la question.
+
+« Debout, tout seul. Tu as vu. »
+
+Han Jiwoo s'expliqua.
+
+« Sans qu'on le soutienne. Alors, c'est qu'on part. »
+
+Seorin hocha la tête.
+
+Han Jiwoo ramassa un à un les outils sur le sol et les mit dans ses poches. Deux tournevis, une pince, un paquet du tissu qui restait. Comme elle en avait déjà donné deux à l'enfant et au vieil homme, deux places étaient vides dans sa poche ; elle y mit le tissu. Après avoir rangé le dernier, elle appuya une fois sur sa poche intérieure.
+
+Elle se leva et se plaça à côté de l'androïde. À la distance d'une main tendue. Elle ne la tendit pas.
+
+Les enfants les regardaient tous les deux. L'enfant qui avait touché le trait de la bouche leva la main, sans l'agiter, la tenant seulement levée.
+
+L'œil optique du dernier androïde s'arrêta sur cette main.
+
+Seorin se retourna.
+
+« On y va. »
+
+Les deux vieilles machines partirent les premières vers le passage. En franchissant l'entrée du secteur, l'une se retourna vers les enfants, et l'autre lui poussa l'épaule. Ater suivit, tandis que Sern refermait le panneau d'enregistrement. Luhai jeta un regard vers les enfants et se mit en marche.
+
+Deux hommes de Hazran, portant chacun un panneau mural, se placèrent derrière eux. L'homme sans petit frère était l'un d'eux. La femme au visage fatigué lui glissa un tissu dans la main ; il le prit et le porta avec le panneau mural.
+
+Le dernier androïde fit un pas. Le genou tint.
+Au deuxième pas, le genou tint encore.
+Au troisième pas, un bruit vint de l'épaule.
+La marche ne s'interrompit pas.
+
+Han Jiwoo marchait à côté, à la même allure. Un demi-pas en arrière, à l'endroit d'où l'on voyait le dos de l'androïde.
+
+La main de l'enfant était toujours levée.
+
+Jusqu'à ce qu'ils aient franchi l'entrée du secteur et tourné l'angle, Han Jiwoo ne se retourna pas, mais l'androïde se retourna une fois. La main était toujours levée. Passé l'angle, la main disparut, et l'œil optique revint vers l'avant.
+
+Un demi-pas derrière, Han Jiwoo regardait ce dos.
+
+Trois nœuds.
+
+Elle compta. Aucun ne s'était défait.
 
 ---
 

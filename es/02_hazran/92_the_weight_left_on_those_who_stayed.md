@@ -28,8 +28,6 @@ Luhai, aun con la cara blanca como la cal, habló con una voz extrañamente firm
 Eso dijo.
 —Ahora gana el que sube.
 
-Eran palabras de alguien que se había hecho adulto demasiado pronto para ser un niño, y a Sion se le encogió un momento el pecho.
-
 —¿Dónde aprendiste eso?
 Lo preguntó Sion.
 
@@ -59,7 +57,7 @@ No temblaba mucho. Los dedos de la mano derecha se doblaron y se estiraron un in
 
 Sion conocía ese gesto.
 
-El día que entraron caminando por primera vez hacia el interior, cuando Seorin se retrasó medio paso en el pasillo, había hecho exactamente lo mismo. Aquella vez Sion fingió no verlo. Pensó que era lo correcto. Con Seorin, en un momento así, fingir no ver servía más que consolar.
+Seorin ya había hecho esto una vez. Aquella vez Sion fingió no verlo. Pensó que era lo correcto. Con Seorin, en un momento así, fingir no ver servía más que consolar.
 
 Ahora eran los mismos dedos.
 
@@ -156,8 +154,6 @@ Aun así, respondió.
 
 —Entonces aguanto de pie ese tanto.
 
-Esa sola frase resultó, de un modo extraño, todavía más cruel. Nadie tenía margen para conmoverse, y salió como si fuera lo más natural del mundo.
-
 Sion dio dos pasos y se volvió.
 
 —Veintitantos.
@@ -172,7 +168,7 @@ Harún lo oyó y no respondió nada.
 
 Luego volvió a mirar al frente.
 
-Era la tercera vez que Sion oía ese silencio en el día. Una cuando preguntó si había once barricadas, otra cuando preguntó si podrían subir a todos en once viajes, y ahora.
+Era la tercera vez que Sion oía ese silencio en el día. Una cuando preguntó si había once barricadas, otra cuando preguntó cuánto podía aguantar de pie, y ahora.
 
 Los tres eran la misma clase de silencio.
 

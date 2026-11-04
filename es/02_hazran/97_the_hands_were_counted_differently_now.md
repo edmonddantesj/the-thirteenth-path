@@ -165,7 +165,7 @@ La placa seguía en su sitio. Sion no había visto cuándo la había soltado.
 
 Sion no sabía qué decir.
 
-Había entrado en Hazran con este hombre. Habían estado juntos en la partida, habían montado juntos en los planeadores, y había visto cómo le arrancaban la placa superior a su aparato. Pero ahora nada de eso servía. Lo que hacía falta era una mano que se plantara a la izquierda, y la única persona aquí que podía soltar lo que tenía entre manos era él.
+Había entrado en Hazran con este hombre. Habían estado juntos en la partida, habían montado juntos en los planeadores, y había visto cómo le daban de lleno en la parte de abajo de su aparato. Pero ahora nada de eso servía. Lo que hacía falta era una mano que se plantara a la izquierda, y la única persona aquí que podía soltar lo que tenía entre manos era él.
 
 —¿Cuántos hay por ese lado?
 

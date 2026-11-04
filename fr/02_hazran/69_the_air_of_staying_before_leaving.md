@@ -40,8 +40,6 @@ Sern dit très bas :
 
 « Parce que, si tout s'effondrait, il n'y aurait même plus de prix à faire tourner. »
 
-C'était sec, et c'est justement pour cela que cela sonnait comme Hazran.
-
 Seorin laissa son regard filer par-delà la rambarde.
 
 Le travail à l'intérieur ne semblait toujours pas près de finir.
@@ -87,8 +85,6 @@ C'était Luhai qui demandait.
 Sern regarda un instant du côté de Haroun, puis dit :
 
 « Cela veut dire qu'à sa manière, il pense encore avoir raison. »
-
-Seorin trouva ces mots étrangement irritants, et pourtant pas faux.
 
 Haroun était détestable. Mais il n'était pas plat. C'est bien pour cela qu'il était si fatigant.
 
@@ -170,7 +166,7 @@ Seorin entendit dans ces mots quelque chose d'étrange.
 
 Il avait dit « ici ».
 
-Ce gamin était né et avait grandi ici. Il connaissait le nom de chaque ruelle, savait lire les tableaux de prix et savait quel étal cachait quoi. Qu'un gamin comme lui dise de l'endroit où il vivait que ce serait dommage, ça ne collait pas.
+Ce gamin avait grandi ici. Il connaissait le nom de chaque ruelle, savait lire les tableaux de prix et savait quel étal cachait quoi. Qu'un gamin comme lui dise de l'endroit où il vivait que ce serait dommage, ça ne collait pas.
 
 « Dommage », c'est le mot de quelqu'un qui va partir.
 
@@ -226,8 +222,6 @@ Cet homme portait la marque de quelqu'un qui, un jour, en était venu à se souv
 
 Elle ne posa pas de question. Ici, ne pas demander semblait être la politesse, et Seorin avait elle-même reçu cette politesse plus d'une fois.
 
-Ces mots restèrent étrangement longtemps.
-
 Seorin regarda de nouveau sous la rambarde, sans rien dire.
 
 Le terrain qu'on remettait en état, les tentes qu'on redressait, le marché qui revivait lentement. Et les gens qui n'étaient pas encore ressortis de l'intérieur.
@@ -243,8 +237,6 @@ Le soleil commença à décliner.
 Quelque part, on entendit défaire des cordes de tente. Le bruit vint d'un endroit, puis bientôt d'un autre. Jusque-là, on ne l'entendait pas.
 
 Seorin ne savait pas ce que c'était. Elle avait observé ce marché toute la journée, et c'était la première fois qu'elle entendait ce bruit.
-
-En revanche, l'air de rester ici une fois pour de bon avant de partir s'installait peu à peu.
 
 ---
 

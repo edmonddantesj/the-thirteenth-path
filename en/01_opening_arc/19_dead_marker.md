@@ -105,7 +105,6 @@ Han Jiwoo's eyes changed at once.
 
 "Everybody quiet."
 
-The air in the cabin sank all at once.
 Sion wiped off his smile, and Seorin had already moved her hand toward the storage locker. Sern was working out the warning light's cycle and the ship's deceleration together, and Ater, without a word, was watching the faint afterimages over the instrument panel.
 
 Han Jiwoo tapped one side of the panel twice, and the hull's external listening device opened, very thinly.
@@ -270,7 +269,7 @@ Four. Four. Three.
 
 No one knew who had taken one away. Only that nothing had been put in its place, and so the ones that remained kept crying out in threes.
 
-Listening to that sound, Sion realized, late, that the fragment he had held in his hand today had been crying like this too.
+Listening to that sound, Sion realized, late, that the fragment he had held in his hand at R-12 had been crying like this too.
 
 It sounds fine, but one is missing.
 

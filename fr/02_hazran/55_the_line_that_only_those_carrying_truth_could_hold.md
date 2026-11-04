@@ -67,8 +67,6 @@ Sern répondit très brièvement :
 
 « La règle, c'est le camp qui sort en portant le vrai. »
 
-Ces mots étaient d'une exactitude froide.
-
 Sur les gradins, les voix qui demandaient qui avait saisi le vrai couvraient désormais celles qui criaient le nom de la course. Luhai, collé au bout de la balustrade, balayait des yeux presque toute la ligne de sortie, et Seorin ne lisait déjà plus les mains, mais le flux des gens. Qui profitait de l'effondrement de la course pour descendre, et qui attendait encore en haut en observant la situation.
 
 « Il y en a deux qui descendent. »
@@ -184,8 +182,6 @@ Lâcher l'aurait soulagé.
 Sion eut cette pensée une fois, puis l'effaça. L'effacer ne lui prit pas de temps.
 
 Quelque chose descendait d'en haut.
-
-Il crut d'abord à des débris. Les débris ne prennent pas un angle comme ça.
 
 C'était l'engin de Kael. Sern s'y tenait, derrière lui.
 

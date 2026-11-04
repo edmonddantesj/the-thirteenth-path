@@ -112,7 +112,7 @@ Elia came straight back.
 "Take someone who's only half on board, and he's the first to sell you out halfway."
 
 At that, Seorin glanced at Sion for a moment.
-Sion pretended not to notice, but they both knew. That wasn't said only to Ater. It meant that anyone in this room who held back half their heart was finished.
+Sion pretended not to notice, but they both knew. That wasn't said only to Ater.
 
 Sern spoke quietly.
 
@@ -133,8 +133,6 @@ Sern's face showed nothing much at that either.
 Sion unfolded his arms and asked.
 
 "So who carries the fragment?"
-
-That was not a question to pass over lightly.
 
 The fragment left at the dead archivist's place.
 The residue where Jun Aster's name remained.

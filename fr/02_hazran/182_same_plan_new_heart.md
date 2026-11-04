@@ -1,152 +1,314 @@
 # Chapitre 182 — Le même plan, un nouveau cœur
 
-Tandis que la courte pause touchait à sa fin, les mouvements dans l'ancienne couche recommencèrent à s'organiser dans une tension silencieuse.
+Tandis que la courte pause touchait à sa fin, les mouvements dans l'ancienne couche recommencèrent à s'organiser.
 
-Les enfants furent déplacés plus à l'intérieur, les blessés allongés dans un secteur de sécurité provisoire, et les lignes effondrées comme les ouvertures dans les structures furent rebouchées à la hâte.
+Les enfants furent déplacés plus à l'intérieur, et les blessés reposaient dans un secteur de sécurité improvisé. Les passages effondrés et les brèches des structures furent rebouchés à la hâte, et contre chaque endroit bouché, quelqu'un de Hazran vint s'asseoir, le dos appuyé.
 
-Au milieu de tout cela, Seorin rappela les gens autour d'elle.
+Les cinq du sol avaient été portées contre le mur et recouvertes d'un tissu. Personne ne demanda qui les avait couvertes. Un bras écarté dépassait de sous le tissu ; une vieille machine ramena le tissu par-dessus ce bras.
 
-Cette fois, tous ne pouvaient pas se tenir debout comme juste avant le combat. Certains s'appuyaient au mur, d'autres essuyaient du sang, d'autres encore n'avaient pas retrouvé leur souffle.
+Un enfant, celui qui avait dessiné la bouche souriante, se tenait devant ce tissu. Sans le soulever, une main posée sur le tissu à l'endroit du bras. Une femme de Hazran voulut emmener l'enfant, mais comme l'enfant ne bougeait pas, la femme s'assit à côté.
 
-Mais la réunion n'était pas dispersée pour autant.
+Au milieu de tout cela, Seorin rassembla de nouveau les gens.
 
-Au contraire, tous avaient vu trop de choses pour pouvoir encore parler à la légère.
+Tous ne pouvaient pas se tenir debout comme juste avant le combat. Certains s'appuyaient au mur, d'autres essuyaient du sang, d'autres encore n'avaient pas retrouvé leur souffle. Luhai était assis, un tissu enroulé autour du tibia gauche, et Sern avait déplié le panneau d'enregistrement sur ses genoux. Ater se tenait debout, sans s'appuyer au mur.
 
-Seorin les observa un long moment sans rien dire.
+Seorin parcourut longtemps les gens des yeux, un par un, sans rien dire. Quand elle eut fini, elle baissa les yeux vers le sol : là où elle avait effacé les lignes de la paume tout à l'heure, un point restait.
 
-En voyant ce silence, Sion comprit. Elle n'était pas en train de créer un nouveau plan. Elle reprenait l'ossature du plan existant et choisissait ce qu'il fallait changer ou garder.
+« On est combien ? »
 
-Enfin, Seorin ouvrit la bouche.
+Elle demanda à Sern.
+
+« Il y a quatorze personnes capables de marcher, trois machines et cet androïde. »
+
+Sern répondit.
+
+« Je n'ai pas compté les enfants. »
+
+« Ne les compte pas. »
+
+Seorin répondit.
 
 « Le cadre ne change pas. »
 
-À ces mots, l'air de la pièce devint au contraire plus net.
+Un homme de Hazran qui s'appuyait au mur en décolla le dos, et Luhai, lui aussi, leva la tête.
 
-« On garde la division par couches. On garde l'ordre d'entrée. On ne change pas les axes assignés. »
+« On garde la division par couches. On garde l'ordre d'entrée. On ne change pas non plus l'axe de chacun. »
 
-Ce n'était pas de l'entêtement.
+« On a perdu du monde, pourtant. »
 
-Le plan établi avait ses raisons. Les positions et les rôles de chacun reposaient sur les informations et la lecture des lignes accumulées jusqu'ici.
+Luhai le dit.
 
-Tout renverser maintenant reviendrait plutôt à entrer dans le désordre que Serakion désirait.
+« Les axes, eux, ne diminuent pas. Si on en retire un, ceux d'en face viennent à sa place. On déplace les gens. »
 
-Mais Seorin ajouta aussitôt :
+« Qui va où ? »
+
+« Je le dis maintenant. »
+
+Sern posa le doigt sur les anciennes lignes du panneau d'enregistrement. Trois lignes, de haut en bas ; il ne les avait pas effacées.
+
+Seorin enchaîna aussitôt.
 
 « En revanche, l'exécution change. »
 
-Alors tous les regards glissèrent naturellement vers l'endroit où se trouvait le dernier androïde.
+Alors seulement, tous les regards glissèrent une fois vers l'endroit où se trouvait le dernier androïde.
 
-Il n'était pas encore complètement remis. Il s'appuyait près du mur, et l'axe d'épaule que Han Jiwoo venait de fixer provisoirement semblait toujours instable.
+L'androïde était appuyé près du mur. Sur l'axe d'épaule que Han Jiwoo venait de fixer provisoirement, on voyait trois marques de nœuds. L'œil optique allumé regardait Seorin, et Seorin soutint ce regard.
 
-Mais il était désormais impossible de le laisser hors de cette histoire.
+« Tu m'entends ? »
 
-Seorin ne dissimula pas ce fait.
+L'œil optique ne trembla pas.
 
-« En face, il y a toujours des androïdes de type ordre. Et maintenant, de notre côté, il y a un androïde qui ne bouge pas par ordre. »
+« Je vais faire comme si tu entendais. »
 
-Cela sonnait comme une explication, mais c'était plutôt une déclaration.
+Seorin parla sans quitter ce regard.
 
-Le combat ne pouvait plus être le même, parce que les conditions du champ de bataille elles-mêmes avaient changé.
+« En face, il y a toujours des androïdes de type ordre. Et maintenant, de notre côté, il y a un androïde qui ne bouge pas sur ordre. »
 
-Ater demanda le premier, à voix basse :
+Une femme de Hazran couvrit de la main les oreilles d'un enfant puis la retira, mais l'enfant écoutait déjà.
 
-« Vous allez le mettre devant ? »
+« Pas sur ordre ? Alors sur quoi ? »
 
-Tout le monde réagit un peu vivement à cette question. Han Jiwoo leva la tête, et Sion retint brièvement son souffle.
+L'homme sans petit frère demanda.
 
-Mais Seorin ne vacilla pas.
+Seorin ne répondit pas tout de suite et regarda Han Jiwoo.
 
-« Non. Je ne vais pas le laisser tout faire à notre place. »
+« Je ne sais pas. »
 
-Les mots étaient courts, mais plusieurs personnes purent enfin respirer un peu.
+Han Jiwoo répondit.
 
-Seorin continua :
+« Je l'ai vu bouger. Ce qui le fait bouger, je ne sais pas. »
 
-« On garde les groupes existants. Chacun garde sa couche. En revanche, on l'ajoute comme variable. »
+L'homme ne demanda rien de plus.
+
+Ater fut le premier à poser une question, à voix basse.
+
+« Allez-vous le placer en tête ? »
+
+Han Jiwoo leva la tête, et le souffle de Sion s'arrêta. Luhai, toujours assis, se pencha en avant, et le tissu enroulé se tendit.
+
+Seorin regarda Ater.
+
+« Non. Je ne le laisserai pas tout faire à notre place. »
+
+Tandis que les épaules de Han Jiwoo s'abaissaient, Luhai recolla son dos au mur. Ater hocha une fois la tête.
+
+« Et si on le met en tête, il se passe quoi ? »
+
+Sion demanda.
+
+« Ceux d'en face le regardent en premier. »
+
+Seorin répondit.
+
+« S'ils ne voient que celui-là, ils ne nous voient pas. On croirait que c'est bien. Non. Si celui-là se brise, on est les suivants. »
+
+Quand Sion regarda l'androïde, les trois nœuds lui sautèrent aux yeux.
+
+Seorin continua.
+
+« On garde la composition des groupes. Qui tient quelle couche, ça ne bouge pas. En revanche, on l'ajoute comme variable. »
 
 Variable.
 
-Le mot aurait pu sonner froid, mais personne ne le reçut mal.
+À ce mot, Han Jiwoo regarda Seorin, Seorin la regarda aussi, et aucune des deux ne détourna les yeux.
 
-Cela ne ressemblait pas à une objectification. Plutôt à une façon de tenir un changement trop grand avec un mot trop petit.
+Han Jiwoo fut la première à hocher légèrement la tête, puis elle regarda son propre genou. Là où l'éclat s'était planté, un tissu était enroulé.
 
-Sern reprit comme pour organiser la pensée :
+Sern fit la synthèse, comme pour prendre la suite de ces mots.
 
-« Donc la structure reste la même, mais la main d'exécution est modifiée. »
+« Autrement dit, la structure existante est maintenue, et seul le geste d'exécution est modifié. »
 
-« Oui, » répondit Seorin. « Les vitesses de réaction changeront, et les mouvements des androïdes d'en face aussi. »
+« C'est ça. »
 
-Sion repensa au moment où ce plan était né.
+Seorin répondit.
 
-À l'époque, la stratégie s'était formée à partir d'un mélange de colère, de nécessité structurelle et de calcul.
+« Les vitesses de réaction vont changer, et les mouvements des androïdes d'en face aussi. »
 
-Mais maintenant, c'était différent.
+« Changer comment ? »
 
-Sur ce calcul se tenait désormais un être qui avait reçu un visage, protégé quelqu'un, et survécu.
+Sion demanda.
 
-Même avec le même plan, le combat ne pourrait donc être qu'autre chose.
+« Quand ils le voient, ils s'arrêtent. »
+
+Seorin répondit.
+
+« Tu l'as vu tout à l'heure. Deux unités sont restées clouées sur place devant l'androïde. On s'en sert. »
+
+« Pourquoi ils s'arrêtent ? »
+
+« Je ne sais pas. Je sais seulement qu'ils s'arrêtent. »
+
+Sern tourna le panneau d'enregistrement sur une face neuve. Il y recopia telles quelles les trois anciennes lignes, et laissa à côté une case vide.
+
+Luhai demanda, toujours assis :
+
+« Son épaule va tenir, comme ça ? »
+
+Han Jiwoo répondit sans regarder l'épaule de l'androïde.
+
+« Je ferai en sorte que ça tienne. »
+
+Luhai resserra une fois de plus le tissu de son tibia.
+
+« Avez-vous des pièces ? »
+
+Sern posa la question.
+
+« Il n'y en a pas. »
+
+Han Jiwoo répondit.
+
+« Du tissu et du fil de fer. J'ai attaché avec ça. Trois tours. »
+
+« Cela tiendra-t-il ? »
+
+« Une fois. »
+
+Han Jiwoo poursuivit.
+
+« Deux, je ne sais pas. »
+
+Sern nota ces mots. Une fois.
+
+Sion regarda le point sur le sol. Les lignes que Seorin avait tracées le jour où ce plan avait été conçu n'avaient pas ce point. Les lignes avaient été effacées ; le point restait.
 
 Han Jiwoo demanda très bas :
 
 « Alors… on le met où ? »
 
-C'était une question stratégique, et en même temps tout autre chose.
+Après avoir posé la question, elle ne regarda pas du côté de l'androïde, mais ses propres mains. Là où elle avait tenu les outils, il y avait de la graisse. Elle essaya de l'essuyer sur son pantalon, mais ça ne partait pas.
 
-Auprès de qui fallait-il le placer ? Avec qui devait-il bouger ? Et où pouvait-on le placer pour l'utiliser le moins inhumainement possible tout en protégeant le plus de choses ?
+« Pourquoi tu n'arrêtes pas de frotter ? »
+
+Luhai demanda.
+
+« Parce que ça ne part pas. »
+
+Luhai, qui regardait ses propres mains tachées de sang, les essuya lui aussi. Ça ne partait pas.
 
 Seorin regarda un instant le dernier androïde.
 
-« On change un seul axe, » dit-elle bas. « On le colle à l'axe le plus instable. Pas pour une percée directe. Pour faire trembler le flux. »
+« On ne change qu'un axe. »
 
-Ater hocha lentement la tête.
+Elle parla bas.
 
-C'était un bon choix.
+« Sur l'axe le plus instable. Pas pour une percée directe : pour faire trembler le flux. »
 
-Si le dernier androïde devenait une carte absolue censée tout remplacer, le plan mourrait, et les rôles des autres avec lui.
+Ater, entendant cela, hocha lentement la tête, puis s'adossa au mur. Sern écrivit une lettre dans la case vide du panneau d'enregistrement, à côté du point.
 
-Mais s'il devenait une variable capable de changer la probabilité de réussite d'un axe précis, l'ossature resterait vivante et tout le champ de bataille changerait.
-
-C'était cela qui comptait.
-
-Une ancienne machine murmura très bas :
+Une vieille machine murmura très bas :
 
 « Faire trembler l'ordre. »
 
-Seorin ne le nia pas.
+Seorin tourna la tête vers cette machine.
 
-« Oui. On ne gagne pas grâce à lui. On gagne par la faille qui s'ouvre parce qu'il existe. »
+« Oui. On ne cherche pas à gagner grâce à l'androïde. On gagnera par la brèche qui s'ouvre parce que l'androïde est là. »
 
-À ces mots, Sion sentit quelque chose chauffer doucement en lui.
+« Et si la brèche ne s'ouvre pas ? »
 
-C'était bon. Ce n'était pas abandonner le plan existant. C'était au contraire le rendre plus vivant.
+Ater demanda.
 
-Et à cet instant, un enfant un peu plus loin regarda le dernier androïde et demanda tout bas :
+« Alors on suit le plan d'origine. »
 
-« Il doit venir avec vous ? »
+Seorin répondit.
 
-La pièce se tut un instant.
+« C'est un plan fait sans l'androïde. Ça marche sans. Avec, c'est mieux. »
 
-Cette fois, personne ne put faire semblant de ne pas avoir entendu.
+Ater hocha la tête et regarda le panneau d'enregistrement de Sern : les trois anciennes lignes y étaient toujours.
 
-Pendant que Han Jiwoo fermait puis rouvrait les yeux, l'œil optique du dernier androïde trembla très faiblement.
+La vieille machine inclina une fois la tête puis la releva, et la machine d'à côté fit le même geste avec un temps de retard. C'était celle qui avait remis le tissu.
 
-Aucune parole de décision n'avait encore été prononcée. Mais tous le savaient déjà.
+« Vous venez aussi ? »
 
-Le laisser ici ne serait pas le protéger. Serakion viendrait forcément le chercher de nouveau. Et ce danger reviendrait alors près des enfants.
+Luhai demanda.
 
-Parce qu'ils voulaient rester ensemble, ils devaient l'emmener avec eux.
+« Nous venons. »
 
-Cette nécessité était déjà entrée jusqu'au centre de la réunion.
+La machine répondit.
 
-Seorin ne l'expliqua pas longuement.
+« Deux. »
 
-Elle dit seulement :
+« Et celles qui restent ? »
 
-« Cette fois, on frappe les premiers. Dès que la préparation est terminée, on entre. »
+« Certaines restent aussi. »
 
-Ces mots marquaient la fin du repos.
+Luhai ne compta pas.
 
-Et, en même temps, le début d'un champ de bataille entièrement différent posé sur le même plan.
+Il se frappa une fois le genou du plat de la main, mais le bruit fut faible. Personne ne regarda de ce côté, et Luhai ne regarda personne.
+
+Sion vint s'asseoir à côté de lui sans un mot. Quand Luhai allongea la jambe, le tissu se tendit.
+
+« Tu marches ? »
+
+Sion demanda.
+
+« Je marche. »
+
+« Tu cours ? »
+
+« Faudra bien. »
+
+Un peu plus loin, un enfant, regardant du côté du dernier androïde, dit tout bas :
+
+« Celui-là doit partir avec vous ? »
+
+La pièce devint silencieuse.
+
+Han Jiwoo ferma les yeux, respira une fois les yeux fermés, puis les rouvrit. L'œil optique du dernier androïde trembla très faiblement vers l'enfant.
+
+Pendant que Seorin regardait l'enfant, la femme de Hazran assise à côté entoura de sa main les épaules de l'enfant. L'enfant ne repoussa pas cette main, et ne quitta pas l'androïde des yeux.
+
+Seorin ne répondit pas à cette question. Han Jiwoo répondit.
+
+« Oui. »
+
+L'enfant regarda l'androïde.
+
+Seorin effleura une fois du bout du pied le point sur le sol.
+
+« Cette fois, on frappe les premiers. Dès que c'est prêt, on entre. »
+
+Pendant que les gens se levaient, Luhai chancela une fois en se relevant contre le mur ; Sern lui saisit le bras, et Luhai ne secoua pas cette main. Ater partait déjà vers le passage. Les hommes de Hazran, eux aussi, décollèrent leur dos des brèches bouchées et se levèrent.
+
+Han Jiwoo, sans se lever, regarda le dernier androïde, et l'androïde la regarda aussi.
+
+« Tu pourras y aller ? »
+
+Han Jiwoo demanda.
+
+Pas de réponse. L'androïde prit appui contre le mur sans se relever ; rien que cet appui.
+
+« Pas maintenant. »
+
+Han Jiwoo précisa.
+
+« Quand on partira. »
+
+Quand l'androïde retira sa main du mur, Han Jiwoo se leva la première et posa brièvement la main sur l'épaule qui restait. Ce ne fut qu'après qu'une vibration fut venue une fois sous sa main qu'elle la retira.
+
+L'enfant regarda cette main, puis la sienne.
+
+Seorin se détourna sans effacer le point au sol. Sern baissa une fois les yeux sur ce point et referma le panneau d'enregistrement.
+
+Aka vint se placer à côté de ce point, près des enfants.
+
+« Le bas, je m'en charge. »
+
+Aka le dit.
+
+Seorin se retourna.
+
+« J'ai la première et la seconde. La machine du côté du mur aussi. »
+
+C'était Aka.
+
+« Et en personnes ? »
+
+Seorin demanda.
+
+« Moi. »
+
+Seorin hocha une fois la tête.
 
 ---
 

@@ -26,7 +26,6 @@ Seorin frunció el ceño.
 
 —En sitios así, eso ya es una buena noticia.
 
-Sonaba a broma, pero no lo era del todo.
 El punto de acceso exterior no era, como decía su nombre, un puerto vivo, sino algo más parecido a un lugar donde caminos que no habían podido morir se unían a la fuerza. Que la electricidad no se hubiera ido del todo ya era, de entrada, media victoria.
 
 Cuando la puerta se abrió, un aire frío entró en la estrecha cabina.
@@ -154,11 +153,11 @@ Sern preguntó en voz baja.
 
 Solo entonces Han Jiwoo miró a Sern de frente.
 
-—Sí. Pero no será un viaje tranquilo.
+—Sí. Pero no podemos ir directos.
 Señaló con la barbilla la nave del fondo de la sala de espera.
-—Yo soy de las que leen juntas las balizas muertas y el equipo que todavía está vivo. Este tramo, sin eso, no hay manera de enlazarlo.
-Lo dijo ella.
 —De los caminos que entran hacia el cúmulo exterior, dos ya están muertos, y uno lleva un rato tanteándolo alguien por detrás. Así que hay que dar un rodeo más por fuera de lo previsto.
+Ella añadió:
+—Ese tramo de fuera solo se enlaza leyendo juntas las balizas muertas y el equipo que todavía está vivo. Eso es lo que hago yo.
 
 Ater preguntó en voz baja.
 
@@ -212,7 +211,6 @@ Seorin fue la primera en dar un paso.
 
 —Bien. Entonces subamos.
 
-Ater sintió que esa frase corta sonaba, curiosamente, más firme que cualquier orden dada hasta entonces.
 Seorin siempre era así. Cuando el ambiente se alargaba o se abría una grieta por la que las decisiones podían dividirse, cortaba justo la longitud necesaria y empujaba hacia delante.
 
 Justo antes de embarcar, Sion pasó rozando a Han Jiwoo y le habló en voz baja.
@@ -226,7 +224,6 @@ Y añadió, muy bajito.
 —Así que vive para pagarlas.
 
 Sion no respondió a eso.
-Solo que esa frase corta se le quedó colgada en un lado del pecho, curiosamente más pesada que el casco.
 
 Han Jiwoo contó a la gente delante de la rampa.
 

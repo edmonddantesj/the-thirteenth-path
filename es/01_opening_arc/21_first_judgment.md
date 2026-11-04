@@ -68,8 +68,6 @@ Sern intervino, muy bajo.
 
 —La reacción se debilita.
 
-Con esas pocas palabras, el aire cambió.
-
 Esa reacción no los estaba esperando. Era una costumbre que algo moribundo repetía unas cuantas veces más, por última vez.
 
 Seorin habló.
@@ -126,8 +124,6 @@ Sion se volvió.
 Sion no encontró con qué rebatirla.
 
 —Y además —añadió Seorin—, entrar lo decidiste tú, y quedarme lo decido yo. Eso, al menos, lo decido yo.
-
-Con que faltara uno solo de los cinco, ese umbral no se cruzaba. Nadie lo dijo en voz alta.
 
 Sion volvió a inclinarse hacia la estructura.
 

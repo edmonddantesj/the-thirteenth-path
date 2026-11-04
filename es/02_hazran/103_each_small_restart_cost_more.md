@@ -38,7 +38,7 @@ Eso era todo. Dos placas y cuatro personas.
 
 —Llegué y resultó que éramos cuatro.
 
-Sion estuvo a punto de preguntar cómo habían sido esos días, pero lo dejó. Si preguntaba, habría respuesta, y responder lleva tiempo.
+Sion estuvo a punto de preguntar cómo había ido por allí, pero lo dejó. Si preguntaba, habría respuesta, y responder lleva tiempo.
 
 El borde de la placa estaba rasgado. Se había partido a lo largo desde la esquina hacia dentro, y la grieta se abría un poco más cada vez que la apretaban.
 

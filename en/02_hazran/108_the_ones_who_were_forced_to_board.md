@@ -22,7 +22,7 @@ And beneath that lay something plainer.
 
 The war started because we came.
 
-Sion hadn't said the thought out loud, but he saw the same thing in the faces beside him. Seorin's lips were pressed shut, and Han Jiwoo's hand on the railing was gripping too hard. Kael couldn't lift the feet that had brought him back.
+Sion hadn't said the thought out loud, but he saw the same thing in the faces beside him. Seorin's lips were pressed shut, and Han Jiwoo's hand on the railing was gripping too hard. Kael couldn't lift his feet.
 
 Even Sern's and Ater's eyes caught, once each, on the inside.
 
@@ -110,7 +110,7 @@ Han Jiwoo kept reaching out from inside after that.
 
 "Hand."
 
-She said the same thing sixteen times. All sixteen times she gripped with the same strength.
+She said the same thing again and again. Every time, she gripped with the same strength.
 
 Luhai, coming up behind, stopped halfway up the ramp.
 
@@ -241,8 +241,6 @@ Nasim pushed his back from behind.
 he said, his voice hoarse.
 "The ones who board, board."
 
-The words were cruel. But if he didn't say it that way, anyone would look back. Look back, and the farewell came one step late. Right now Hazran didn't have that one step.
-
 Sion set his foot on the ramp.
 
 Zahir's voice came from behind.
@@ -303,7 +301,7 @@ For the first time, the counting broke off.
 
 Sion put his hand against the wall.
 
-Nothing came. Until a moment ago this ship had been outside, and now Sion was inside it, but nothing at all reached his fingertips.
+Nothing came. Until a moment ago he had been feeling this ship from outside, and now he was inside it, but nothing at all reached his fingertips.
 
 And the ship lifted.
 

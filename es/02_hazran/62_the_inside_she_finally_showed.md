@@ -30,7 +30,7 @@ Zahir respondió sin mirarla siquiera.
 
 —Hasta donde haya que mostrar.
 
-Seorin tenía cara de que esa respuesta no le gustaba, pero no preguntó más. Ya sabía que lo que importaba ahora, en aquel interior de Hazran, no era arrancar antes más palabras, sino ver hasta dónde les mostraban de verdad.
+Seorin tenía cara de que esa respuesta no le gustaba, pero no preguntó más.
 
 El pasadizo interior era más silencioso que los sectores que habían atravesado antes de la carrera.
 
@@ -106,6 +106,8 @@ Esta vez Han Jiwoo respondió sin apartar la mirada.
 
 —Una mano que confunde esto con chatarra no llega viva hasta aquí.
 
+—Es un casco que sacamos de los restos donde se encontró a esa niña —dijo Zahir, sin mirar hacia Aka.
+
 Un breve silencio.
 
 Solo entonces Nasim sonrió, muy levemente.
@@ -124,8 +126,6 @@ Pero, de forma extraña, en aquel interior esos pocos pasos parecían tener más
 Y habló en voz baja.
 
 —Este todavía no se hace pasar por una puerta.
-
-A Sion esas palabras le entraron, de forma extraña, como un alivio.
 
 No era una puerta completa.
 Pero al menos quería decir que no era una mentira.
@@ -215,8 +215,6 @@ Sion lo preguntó.
 Zahir respondió en voz muy baja.
 
 —La disposición a entrar todavía más adentro.
-
-Con esas palabras quedó claro que incluso aquel espacio interior no era todavía más que un umbral.
 
 ---
 

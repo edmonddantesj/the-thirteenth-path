@@ -70,8 +70,6 @@ Zahir answered, short.
 
 "Inside."
 
-That one word wasn't much of an explanation, but strangely everyone could tell it wasn't just naming a location. A deeper section. More hidden records. Or the place where Aka actually read the path and its grammar. What they had been shown so far was barely the threshold, and to see what really had to be connected, they would have to go further in.
-
 Sern asked, very low.
 
 "Do all of us go in."
@@ -79,8 +77,6 @@ Sern asked, very low.
 This time, before Zahir could answer, Aka spoke first.
 
 "No."
-
-The air on the courtyard's inner side went still, very slightly.
 
 Aka's face was still quiet.
 But this time there was a clear line inside that quiet. They could not all go in together. They should not all see the same thing. As if who came in, and how far, was one of the most important rules in here right now.
@@ -92,8 +88,6 @@ Only after Aka had looked once at the ember in Sion's hand and once at the hull 
 "If I let everyone in, it gets crowded again,"
 she said.
 "When it gets crowded, the playing dead latches on again."
-
-The sentence was short, but everything about how the whole of Hazran had run until now was in it.
 
 Too many hands.
 Too many prices.
@@ -108,9 +102,8 @@ she said.
 
 Aka gave a short nod.
 
-"The hand that holds the ember,"
-she said, looking toward Sion.
-"The hand that sees what's dead and what's not."
+"The hand that holds the ember. The hand that sees what's dead and what's not."
+She said it looking toward Sion.
 
 This time her gaze went to Han Jiwoo.
 
@@ -157,7 +150,7 @@ Ater looked from Zahir to Aka and back.
 
 He must have wanted to go in too. If it was a problem tangled up with paths and approval, cut sequences and the seal's interference, he might well have thought he was the one who ought to look. But here and now, living grammar came before records. Ater steadied his breath very slowly, like a man accepting that difference.
 
-"Only two?"
+"Is it only the two of them?"
 he asked quietly.
 
 This time it was not Aka who answered, but Nahira.
@@ -212,7 +205,7 @@ Zahir looked at her and spoke, low.
 
 Seorin's face set at once.
 
-But Aka laid one quiet line on top of his.
+Then Aka laid one quiet line on top of his.
 
 "If you don't wait, they can't get out."
 
@@ -232,21 +225,10 @@ A chill went down Sion's back, too. Being told to wait wasn't consideration. It 
 
 Once those words fell, even Seorin couldn't take it up right away.
 
-These weren't words of exclusion; they were words that divided, under the rules of this inside, the ones who were needed from the ones who had to wait.
-
 Sion looked at the ember in his hand, then back at Aka.
 
 Aka explained no further.
 Instead she turned and walked ahead of them into the deeper section behind the hull.
-
-The moment he saw that, Sion knew.
-
-This wasn't opening a door for them.
-Aka had always been this way.
-She did not open the same door for everyone.
-Instead, only to the hands that could follow all the way, she showed as far as the next threshold.
-
-And now that threshold was finally opening.
 
 ---
 

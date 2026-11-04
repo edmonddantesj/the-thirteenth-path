@@ -20,7 +20,7 @@ Kael parla le premier, à voix basse.
 
 « On se rapproche. »
 
-Ce n'était pas une impression, c'était un relevé de distance. L'écart entre les deux appareils était maintenant très court. Encore un peu, et l'on pourrait faire passer quelqu'un de l'un à l'autre ; mais trop près, et ils risquaient de s'accrocher et de s'effondrer ensemble.
+L'écart entre les deux appareils était maintenant très court. Encore un peu, et l'on pourrait faire passer quelqu'un de l'un à l'autre ; mais trop près, et ils risquaient de s'accrocher et de s'effondrer ensemble.
 
 Sern dit aussitôt :
 
@@ -52,7 +52,6 @@ Mais déjà Sern ajoutait à voix basse :
 
 « La déplacer la ferait vaciller. »
 
-C'était exact.
 La vraie braise n'avait rien d'éclatant, mais elle était vivante. Changer de main maintenant, ce n'était pas simplement passer un objet ; cela pouvait ébranler sa réaction une fois de plus. Changer d'avis ici sans raison, c'était risquer, comme les équipes trompées par les fausses, de tuer le vrai de ses propres mains.
 
 Han Jiwoo trancha brièvement :
@@ -105,8 +104,6 @@ Kael répondit avec beaucoup de calme :
 
 « Fuir ensemble, c'est toujours comme ça. »
 
-Que cette conversation aboutisse si vite parut à Sion d'autant plus étrange. Et pourtant, ce n'était pas étrange. En ce moment, tous les quatre bougeaient avec une tête plus proche de la survie que de l'explication.
-
 Depuis les gradins aussi, le changement se lisait.
 
 En voyant les deux appareils se coller un instant, puis réajuster leur écart, Luhai fronça aussitôt les sourcils.
@@ -125,7 +122,6 @@ Ater se tourna aussitôt vers elle.
 La réponse de Seorin vint sans attendre.
 « Mais la main qui tient le vrai va glisser de plus en plus du côté qu'on ne voit pas. »
 
-Elle avait raison.
 Si la main qui tenait le vrai restait toujours bien visible, tout Hazran se jetterait dessus.
 Aussi, à partir de maintenant, l'essentiel n'était pas d'aller vite, mais **de rendre flou, ne serait-ce qu'un instant, qui portait le vrai**.
 

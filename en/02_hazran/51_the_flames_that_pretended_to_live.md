@@ -63,8 +63,6 @@ Han Jiwoo spoke low.
 
 "Good."
 
-It was not cruelty; it was confirmation that Sion had been right.
-
 That one word made Sion quieter instead.
 
 In this stretch his one pair of eyes was not just a helper reading the way; it decided who got fooled and who did not.
@@ -220,8 +218,6 @@ Han Jiwoo answered by bringing the skiff lower.
 The dark-red glider drove inward at almost the same moment, and from the north the glider Kael and Sern rode was closing in half a beat behind, on a steadier line.
 
 Three surviving teams were, at last, on the verge of colliding in front of nearly the same ember candidate.
-
-And Sion knew.
 
 From here on, the rules of this race alone might not be enough to settle it.
 

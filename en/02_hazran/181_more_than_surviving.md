@@ -73,13 +73,13 @@ One by one, the children gathered near him again.
 
 They were all careful. One child stopped three steps away, and another stood behind that child's back. A third came all the way to Han Jiwoo's side and sat. None of them pushed.
 
-No one looked toward where the three had been lying on the floor. One child started to turn that way, then turned back.
+No one looked toward where the five had been lying on the floor. One child started to turn that way, then turned back.
 
 One child, with the dust on their hand, very carefully drew the faded short mouth line again. The finger went along the line twice. Another started to trace a slightly rounded corner of an eye beside it with a finger, but stopped when Han Jiwoo caught their wrist.
 
 Han Jiwoo's face was neither smiling nor crying.
 
-"Leave one for later."
+"Keep it to one line."
 
 Her voice was low.
 

@@ -1,6 +1,6 @@
 # Capítulo 99 — El instante justo antes de que algo finalmente se rompa
 
-Junto a la raya corta que había trazado en la tablilla, Sion trazó la quinta raya.
+Sion miró la raya corta que había trazado en la tablilla.
 
 Había pasado una hora.
 

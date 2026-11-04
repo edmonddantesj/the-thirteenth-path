@@ -114,7 +114,7 @@ Seorin asked.
 
 "Up there."
 
-Seorin looked at the Hazran people: eight of them, the scattered kind. She gripped her hilt once and let it go.
+Seorin looked at the eight Hazran people. They were exactly the scattered ones the other side cared about. She gripped her hilt once and let it go.
 
 "Then we'd better move before they come looking."
 
@@ -142,7 +142,7 @@ The two hung side by side on the wall. One of dots, one of lines. Aka looked at 
 
 "They're the same thing."
 
-No one said they weren't. When the old man touched one line on his plate with a finger, the old machine touched one blurred dot. Then both took their hands away.
+When the old man touched one line on his plate with a finger, the old machine touched one blurred dot. Then both took their hands away.
 
 ---
 

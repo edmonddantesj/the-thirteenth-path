@@ -42,7 +42,7 @@ Parmi eux, l'enfant au tournevis demanda tout bas :
 
 « Eux aussi… ils avaient mal ? »
 
-Luhai ouvrit la bouche, puis la referma. Il aurait suffi de dire qu'on allait se couper les mains, mais il ne le dit pas. Les yeux sur les débris, sur celui dont il venait lui-même de briser le genou, sur la main tendue vers le mur, il expira bas.
+Luhai ouvrit la bouche, puis la referma. Les yeux sur les débris, sur celui dont il venait lui-même de briser le genou, sur la main tendue vers le mur, il expira bas.
 
 « Pas trop près. »
 
@@ -184,9 +184,6 @@ La première répondit.
 « L'autre camp ne peut pas l'entendre. Ça date d'avant sa fabrication. »
 
 Le grésillement fut bref.
-Androïdes : rythme ébranlable. Brièvement.
-Robots de Serakion : arrêt impossible. Seulement retard, erreur, mauvaise lecture du chemin.
-Base : modèles ratés. Les modèles achevés peuvent être plus difficiles.
 C'était tout.
 
 « C'est tout ? »
@@ -240,9 +237,9 @@ Le vieil homme de Hazran tenait sa plaque, au dos de laquelle un trait était tr
 La lampe jaune clignota, et le souffle de la couche cachée se comprima de nouveau. La première se posta à l'entrée de la ligne grise, la seconde à côté d'elle, appuyée au mur, et la machine du côté du mur derrière. Luhai raffermit sa prise sur la barre de fer tordue, se tourna vers les enfants et compta.
 
 Trois.
-Quatre, avec le petit enfant.
+Avec le petit enfant.
 
-Il ne recompta pas les quatre.
+Il ne recompta pas.
 
 L'enfant aux yeux baissés vint à côté de lui et regarda la main de Luhai, serrée sur la barre tordue.
 

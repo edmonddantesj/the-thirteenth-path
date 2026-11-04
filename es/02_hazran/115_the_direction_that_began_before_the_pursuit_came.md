@@ -4,15 +4,11 @@ Seorin fue la primera en hablar.
 
 —¿Por qué hay tanto silencio?
 
-El aire dentro del casco se detuvo un compás.
-
 Solo al oírla se dio cuenta Sion de que eso no lo había estado contando. Había contado el agua, había contado a la gente, no había podido contar el tiempo; pero lo que se les hubiera pegado detrás no lo había contado nadie.
 
 —Con lo lejos que hemos salido, ya tendrían que habernos mordido.
 Lo dijo Seorin.
 —Muerden demasiado poco.
-
-Sion supo enseguida que aquello era exacto.
 
 Hasta que el interior de Hazran se derrumbó entero, el otro lado no había retrocedido ni una vez. Cada vez que despegaba una nave iban a por el pasaje, y no se detuvieron ni siquiera cuando la última línea quedó sepultada.
 
@@ -39,7 +35,7 @@ A Sion esa distinción le pareció muy de Kael. Ese hombre, incluso en el mercad
 
 Sern alzó la cabeza del panel.
 
-—Aun si no pudieran seguirnos, ya nos habrían alcanzado hace tiempo.
+—Si hubieran podido seguirnos, ya nos habrían alcanzado hace tiempo.
 Lo dijo él.
 —El silencio es más extraño.
 
@@ -134,7 +130,7 @@ No había forma de saber si se había ensanchado o si siempre había sido así. 
 
 Sion trazó con la uña una raya corta en ese punto.
 
-Quedaba a un brazo de distancia de la raya que había trazado junto al panel el día anterior.
+Quedaba a un brazo de distancia de la marca que había dejado trazada junto al panel el día anterior.
 
 —¿Por qué la marcas?
 Lo preguntó Luhai.
@@ -260,7 +256,7 @@ Han Jiwoo avanzó medio palmo más antes de apartar la mano.
 
 No dijo nada. Sion tampoco preguntó.
 
-Sion volvió a sacar la uña y trazó una segunda raya en ese punto. A medio palmo de la primera.
+Sion volvió a sacar la uña y trazó una segunda raya en ese punto. A medio palmo de la primera que había trazado hoy.
 
 Ahora había algo que medir.
 

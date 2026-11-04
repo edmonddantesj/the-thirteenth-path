@@ -42,7 +42,7 @@ One of the children, the one with the screwdriver, asked very quietly.
 
 "Were they… hurting too?"
 
-Luhai opened his mouth and closed it. "You'll cut your hand" would have ended it, but he didn't say that. He looked at the wrecks, at the one whose knee he had just broken and the hand stretched toward the wall, and let out a low breath.
+Luhai opened his mouth and closed it. He looked at the wrecks, at the one whose knee he had just broken and the hand stretched toward the wall, and let out a low breath.
 
 "Don't go near them."
 
@@ -184,9 +184,6 @@ The first said.
 "Their side cannot hear this. It is from before they were made."
 
 The static was short.
-Androids: beat can be shaken. Briefly.
-Serakion robots: cannot be stopped. Delay, error, path misreading only.
-Based on rejects. Finished units may be harder.
 That was all.
 
 "That's all?"
@@ -240,9 +237,9 @@ The old Hazran man was holding his plate, one line scratched on its back. He loo
 The yellow lamp flickered, and the hidden level's breathing was held down again. The first stood at the mouth of the gray route, the second beside it with a hand on the wall, the wall-side machine behind. Luhai shifted his grip on the bent iron bar, turned toward the children and counted.
 
 Three.
-Four, with the small child.
+The small child included.
 
-He didn't count the four again.
+He didn't count again.
 
 The child who looks down came up beside him and looked at Luhai's hand on the bent iron bar.
 

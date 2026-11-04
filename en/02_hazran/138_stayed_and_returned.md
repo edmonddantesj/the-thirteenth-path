@@ -148,11 +148,11 @@ The old machine tidying the supplies inside spoke very low.
 
 Before it answered, the first machine looked at Han Jiwoo's hands pressing the cloth, and then at the old machine.
 
-"Now."
+"Now?"
 
 "Now."
 
-The old machine answered.
+The old machine went on.
 
 "We need the number lost to decide what comes next."
 
@@ -165,8 +165,6 @@ The first machine's optical eyes went cold. The light that had been uneven turne
 It kept its voice low.
 
 "We go out, and you stay."
-
-The air froze thin.
 
 The old machine didn't answer; it took out one more cloth and pushed it toward Han Jiwoo. The first machine said nothing more either and pointed to the back of the injured person's shoulder, and Han Jiwoo pressed there.
 
@@ -190,7 +188,7 @@ The machine moved its optical eyes to Han Jiwoo's hands.
 
 Han Jiwoo didn't stop her hands through any of it. She pressed on the wounds to slow the flow, watched the breathing around the ribs, took the supplies the inside machine handed her, and pressed where the outside machine told her. Her right hand and her left hand did different work.
 
-Beside her, Sern was watching his coat soak through with blood. He didn't pull it out, and he didn't write it on his record panel; he only watched.
+Beside her, Sern was watching his own coat, spread beneath the wounded, soak through with blood. He didn't pull it out, and he didn't write it on his record panel; he only watched.
 
 Sion had been holding the water canister, and he poured whenever Han Jiwoo held out her hands. Three times.
 

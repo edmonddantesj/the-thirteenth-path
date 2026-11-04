@@ -267,11 +267,7 @@ The next line of the Serakion legion, standing at the mouth of the route, was ou
 
 Sern said.
 
-"It began before they halted."
-
-Ater spoke from above.
-
-"They came having seen it. What became of the front line."
+"It began before they halted." Ater spoke from above. "They came having seen it. What became of the front line."
 
 "They see that and still come?"
 

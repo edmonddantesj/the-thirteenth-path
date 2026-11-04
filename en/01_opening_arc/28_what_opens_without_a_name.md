@@ -228,8 +228,6 @@ Han Jiwoo added,
 
 "But I don't think we've got time to stand around admiring it."
 
-She was right.
-
 Under the auxiliary footplate Kael was holding up, metal burst again. The bracing wouldn't last forever. The two lines and the piece of approval line they had now might be all they would get.
 
 Sern spoke firmly.

@@ -1,250 +1,229 @@
 # Capítulo 196 — Separarlos
 
-Apenas entró al piso siguiente,
-Sion sintió que la sensación bajo los pies ya había cambiado.
+Apenas entraron en el estrato siguiente, el suelo cambió bajo sus pies.
 
-El suelo parecía uno solo, como continuado.
-Pero en el instante en que dio unos pasos hacia adentro,
-el tacto de pisar cambió mínimamente.
+A la vista, el suelo era de una sola pieza, pero unos pasos más adentro, bajo el pie izquierdo de Sion estaba firme y bajo el derecho cedía muy levemente. Se detuvo, cambió de pie y volvió a pisar, y esta vez fue al revés: la izquierda cedía y la derecha estaba firme.
 
-Bajo el pie izquierdo estaba más duro,
-y bajo el derecho empujaba muy leve.
+Los que venían detrás se pararon a la vez.
 
-Aunque caminaban en una sola fila,
-el pasillo ya los hacía pisar a cada uno un sitio distinto.
+—¿Qué pasa?
 
-Sion se detuvo al momento.
+Lo preguntó Seorin.
 
-Los que venían detrás también se pararon a la vez.
+—El suelo es distinto.
 
-Seorin bajó la mirada un instante a la línea del suelo y dijo bajo.
+Lo dijo Sion.
+
+—En cada pie.
+
+Seorin bajó la vista a la línea del suelo, pero no se veían ni líneas ni casillas. Movió un pie a un lado y cedió; lo devolvió a su sitio y estaba firme.
 
 —Nos separa.
 
-Sern al momento dobló la rodilla y tocó cerca del suelo.
+Lo dijo ella en voz baja.
 
-—Las líneas de reacción salen por separado. Velocidad, peso, calor, zancada. Aunque entremos juntos, hace que no nos lean juntos.
+Sern dobló la rodilla, acercó la palma al suelo y la retiró; a diferencia de la pared, no apareció la silueta de la mano.
 
-Han Jiwoo miró atrás.
+—Las líneas de reacción aparecen por separado. Velocidad, peso, calor, zancada. Aunque entremos juntos, hace que no nos lea juntos.
 
-La fila que creía que se movía junta
-ya estaba mínimamente descuadrada.
+—¿Cómo?
 
-Uno medio paso hacia adentro,
-otro afuera,
-otro muy poco tarde.
+—Porque cada persona pisa de manera distinta.
 
-Esa diferencia aún era pequeña.
-Pero este piso era justo el sitio que quería agrandar esa pequeña diferencia.
+Lo dijo Sern.
 
-Kael revisó las ranuras estrechas y las líneas de plegado a ambos lados del pasillo y dijo bajo.
+—Mi zancada y la de Kael son distintas. Con eso, los de allá nos cuentan por separado a Kael y a mí.
 
-—Con que uno solo se atrase, lo cortan.
+Han Jiwoo miró atrás. Eran nueve en una fila, una fila que ella creía que había venido junta, pero esa fila estaba descuadrada. Sern iba medio paso hacia dentro, Kael hacia fuera, y las dos máquinas viejas, con sus pies pesados, iban un poco atrasadas. Al bajar la vista a sus propios pies, vio que había medio palmo de diferencia junto al pie del último androide.
 
-—Sí —respondió Seorin corto—. Aquí no bloquean el camino, hacen que no podamos movernos juntos.
+—Ya nos hemos separado.
 
-Las dos máquinas de atrás intercambiaron un ruido bajísimo.
+Lo dijo ella.
 
-Una miraba hacia la línea de reacción del androide de adelante,
-la otra hacia la línea de referencia del robot de Serakion de atrás.
+—Todavía poco. Este es un sitio que agranda ese poco.
 
-Una máquina vieja dijo bajo.
+Kael repasó las ranuras y las líneas de plegado de ambos lados del pasillo: había nueve ranuras, tantas como personas. Las contó dos veces, de principio a fin.
 
-—Si sacudimos al androide. La gente se parte.
+—Con que uno solo se retrase, lo cortan.
 
-La otra retomó al momento.
+—Sí.
 
-—El robot cierra atrás. Corta desde el lado dividido.
+Seorin respondió, breve.
 
-Seorin tomó aire corto.
+—Aquí no se trata de bloquear el camino. Es un estrato que hace que no podamos movernos juntos.
 
-La clave de este piso era justo eso.
+Las dos máquinas de atrás intercambiaron ruido; una miraba la línea de reacción de los androides de delante, y la otra, la línea de referencia de los robots de detrás.
 
-No abrir un hueco,
-sino no separarse.
+Una de las máquinas viejas habló en voz baja.
 
-Antes de que Serakion partiera la fila en varias reacciones,
-este lado debía mantener el mismo compás hasta el final.
+—Si sacudimos androide. Gente se separa.
 
-—Cambiamos la disposición —dijo Seorin enseguida—. Sion adelante. Sern justo al lado. Han Jiwoo, sujeta el flujo de atrás. Kael, la línea de plegado exterior. Ater, mira la línea de disposición interior. Avisa qué orden separa primero a la gente. Las máquinas, sacudan primero al androide y enreden el compás con que el robot de atrás cierra siguiéndolo.
+La otra lo retomó.
 
-Ater alzó la cabeza corto.
+—Robot cierra detrás. Corta primero lo separado.
 
-—Sí. La disposición interior sigue imitando el orden de aprobación. El criterio para cortar a la gente también quiere fijar antes el orden que la reacción.
+—Si sacuden, nos separamos, ¿y si no sacuden?
 
-Ella miró un instante al último androide.
+Lo preguntó Sion.
 
-—Tú hasta el final atrás. Que nos lean a todos juntos y cruza al último.
+—Si no sacudimos, vienen sin más.
 
-El último androide recibió esas palabras sin decir nada.
+Seorin tomó aire, breve. No era un estrato donde hubiera que abrir una brecha, sino uno donde había que no separarse. Miró a los nueve, uno por uno.
 
-Era lo correcto.
+—Cambiamos la disposición.
 
-Si él se movía muy rápido,
-Serakion lo tomaría como nuevo criterio
-y partiría a los demás más rápido para leerlos.
+Lo dijo ella.
 
-La luz interior del pasillo se esparció fina.
+—Sion, delante. Sern, justo a su lado. Han Jiwoo, sujeta el flujo de atrás. Kael, la línea de plegado exterior. Ater, mira la línea de disposición interior. Avisa qué orden separa primero a la gente. Las máquinas, todavía no sacudan.
 
-Y pronto,
-las paredes de ambos lados se abrieron
-y salieron dos androides y dos robots de Serakion.
+La gente cambió de puesto. Sion pasó delante y Sern se puso a su lado; los hombros se tocaban, pero esta vez Sern no retrocedió. Mientras Han Jiwoo iba al final de la fila, Kael se pegó a la pared exterior y Ater a la interior.
 
-Esta vez la disposición era descarada desde el inicio.
+En la pared interior, adonde Ater alzó la cabeza para mirar, las líneas por donde corría la luz fluían de arriba abajo, siguiendo un orden.
 
-Los androides partían el compás adelante,
-y los robots de Serakion estaban puestos para cerrar atrás la línea partida.
+—Sí. La disposición interior sigue imitando el orden de aprobación. También el criterio para cortar a la gente intenta fijar el orden antes que la reacción.
 
-Sern dijo al momento.
+—¿Qué orden?
 
-—Adelante, separación. Atrás, corte.
+Lo preguntó Han Jiwoo.
 
-—Vamos —dijo Seorin corto.
+—A quien se lee primero, se lo corta primero.
 
-El primer ruido rozó el suelo.
+Lo dijo Ater.
 
-El paso de uno de los androides de adelante se sacudió medio compás.
+—No a quien se lee tarde. En casa era al revés.
 
-Entonces el otro androide, queriendo rellenar ese hueco,
-empezó a leer partida la línea central de Sion y Sern.
+Mientras una de las máquinas viejas miraba hacia Ater, su ojo óptico bajó siguiendo las líneas de la pared interior.
 
-Justo en ese momento,
-Han Jiwoo ajustó la velocidad desde atrás.
+—Entonces nos leen primero a nosotras.
 
-Para que nadie saltara disparado,
-ni quedara solo tarde,
-sujetó el flujo de atrás con señas cortas y paso acompasado.
+Seorin miró a esa máquina.
 
-Kael, apenas vio el ángulo en que se cerraba la línea de plegado exterior,
-metió el pie en la ranura lateral.
+—¿Y si las cortan?
 
-No la bloqueó del todo.
-Pero la línea que iba a cerrarse no logró plegarse al ángulo exacto,
-y se corrió un poco hacia afuera.
+—Antes de que corten, nos apartamos.
 
-Por eso el hueco que iba a abrirse entre Sion y Sern
-no se cortó del todo hasta el final.
+La máquina vieja respondió.
 
-Ater miró primero la pared interior y dijo.
+La otra lo retomó.
 
-—La segunda línea de disposición se cierra primero. Si cortan ahora, los de atrás quedan fuera de la aprobación.
+—El compás para apartarse lo sabemos nosotras. Un compás más viejo que eso.
 
-Sern gritó.
+Seorin no respondió enseguida; miró los pies pesados de las dos máquinas, asintió una vez y miró al último androide.
 
-—¡Todavía es una sola fila! ¡Viene otra vez!
+—Tú, atrás hasta el final. Que nos lean a todos juntos, y cruzas el último.
 
-Con esas palabras, a la vez, el robot de Serakion de atrás rehizo la prioridad.
+Sin decir nada, recibió esas palabras y fue detrás de Han Jiwoo, al final de todo. Han Jiwoo volvió la vista atrás.
 
-Ahora, más que el androide sacudido en sí,
-leía primero quién se había atrasado por ese temblor
-y quería cortar desde ahí.
+—Quédate ahí. Te veo.
 
-Seorin dijo bajo.
+Lo dijo ella.
 
-—El segundo. Enrédalos juntos.
+Ahí estaba.
 
-Los ruidos de las dos máquinas de atrás entraron cruzados.
+La luz del interior del pasillo se esparció, fina, y las paredes de ambos lados se abrieron. Eran dos androides y dos robots de Serakion, pero la disposición era distinta: los androides, delante y separados entre sí; los robots, detrás, cada uno con su placa de cierre en alto.
 
-Uno atrasó el eje de mirada del androide,
-el otro torció mínimamente el criterio con que el robot de Serakion cerraba la línea de atrás.
+Sern habló al instante.
 
-Como resultado,
-la línea de luz que en condiciones normales debía bajar a cortar entre Sion y Sern
-se corrió medio hombre hacia afuera.
+—Los de delante separan. Los de detrás cortan.
 
-Fue muy poco.
-Pero con eso alcanzó.
+—Vamos.
 
-Sion tomó primero la línea central.
+Seorin habló con brevedad.
 
-Sern, justo al lado, leía solo el próximo momento de recálculo.
+Las dos máquinas viejas salieron de la fila y se pusieron por delante de Sion. El suelo leyó primero esos pies pesados: solo bajo los pies de las dos máquinas cedió, y bajo los de los otros siete siguió igual.
 
-Han Jiwoo sujetaba el flujo de atrás sin que se cortara,
-y Kael torció una vez más la segunda línea de plegado.
+Las superficies de la cara de los dos androides de delante se volvieron hacia las dos máquinas. También la placa de cierre de los robots de detrás subió hacia las dos máquinas, el lado que había sido leído primero.
 
-En ese momento se movió el último androide.
+Pegado a la pared exterior, Kael miró el ángulo de esa placa: la línea de plegado, las bisagras y la trayectoria de caída.
 
-Tampoco esta vez fue primero.
+—Cae hacia delante. Un palmo.
 
-Desde el fondo de la fila que fue leída junta hasta el final,
-entró aprovechando el instante en que Serakion,
-ya cortando y leyendo a los de adelante,
-sujetaba menos exacto el último orden.
+Lo dijo él en voz baja.
 
-Entonces la alineación se partió una vez más.
+—Si se apartan, que sea a un lado. No hacia delante.
 
-La gente que primero querían separar,
-el flujo que sujeta esa separación hasta el final,
-y el androide que entra el último.
+Han Jiwoo hacía señas breves desde atrás y contaba los pasos sin decirlos en voz alta.
 
-Mientras esos tres se solapaban,
-la junta del pasillo no logró cerrarse del todo al final.
+Uno.
+Dos.
 
-—¡Ahora!
-llegó la voz de Sern.
+Los siete avanzaron en una sola fila, pisando la sombra de las dos máquinas, sin que nadie se adelantara, sin que nadie se quedara atrás. Cuando ella acompasó sus pies al compás de Sern, los pies del último androide llegaron detrás de ella al mismo compás.
 
-Sion y Seorin,
-Sern y Han Jiwoo,
-Kael,
-y hasta el último androide
-se metieron en una sola fila a punto de cortarse hacia el interior del siguiente tramo.
+En la pared interior, donde miraba Ater, todas las líneas por donde corría la luz se habían agolpado hacia delante.
 
-La luz que se cerraba rozó al pasar los cuellos y la punta de los brazos de atrás.
+—Todo ha ido hacia las máquinas. A nosotros todavía no nos han leído.
 
-Fue de verdad un hueco que no dejaba respirar largo ni una vez.
+La placa de cierre empezó a bajar sobre las cabezas de las dos máquinas.
 
-Pero dentro de ese instante,
-la «sensación de moverse juntos» que este piso quería cortar
-tampoco se cortó del todo al final.
+Una de las máquinas viejas lanzó un ruido muy bajo, no hacia los androides sino hacia sus propios pies, y la otra recogió el mismo sonido.
+Las dos se apartaron a la vez medio paso a un lado. Hacia donde había dicho Kael.
+La placa bajó sobre el suelo vacío, un palmo por delante.
+El sonido resonó largo.
 
-Después de pasar hacia adentro,
-nadie retomó la palabra enseguida.
+El suelo empezó a leer de nuevo, pero el sitio cortado estaba vacío, sin nada que leer. Los labios de Sern se movieron.
 
-Primero había que ordenar el aliento.
+Medio.
 
-El pasillo ya se estaba realineando.
-La reacción descuadrada de hacía un momento,
-y el compás sujetado,
-Serakion pronto los borraría de nuevo a su modo.
+Nadie dijo «ahora». Todos estaban yendo ya.
 
-Pero aun así,
-lo de hacía un momento fue claro.
+Sion, Seorin, Sern, Han Jiwoo, Kael, Ater, las dos máquinas viejas. Y el último androide.
+En una sola fila a punto de cortarse, se metieron a empujones en el tramo siguiente.
 
-Este piso no era un piso que bloquea el camino,
-sino un piso que parte a la gente en reacciones distintas
-para que no se muevan juntos.
+El pie de Kael se enganchó en el borde del suelo que se partía y se le torció el tobillo, pero sacó a la fuerza el pie atrapado y pasó. En el instante en que el último pie de la fila cruzó la juntura, el suelo de debajo cedió, y el pie del último androide resbaló medio palmo hacia el lado que se partía.
 
-Y este lado
-cruzó otro piso más
-por el modo de no permitir esa separación hasta el final.
+Han Jiwoo estiró la mano hacia atrás sin volverse. Lo que agarró no fue un brazo sino un nudo, y lo apretó con fuerza y tiró.
+El último androide pasó. El suelo se cerró a su espalda.
 
-Seorin recobró el aliento y dijo.
+Las dos máquinas viejas volvieron la vista hacia donde había caído la placa: un palmo por delante, como había dicho Kael. Una de ellas inclinó una vez la cabeza hacia Kael, pero Kael, agarrándose el tobillo, hizo como que no la veía.
 
-—El próximo será peor. Porque ya no solo reducen el hueco, van a querer volvernos a cada uno por separado.
+No hubo hueco ni para una respiración larga.
 
-Sion miró más adentro.
+Después de pasar al interior, nadie fue capaz de seguir hablando; primero recuperaron el aliento a bocanadas. Mientras Sern se apoyaba en la pared con el panel de registro contra el pecho, Kael giraba despacio el tobillo torcido sin cambiar de cara. Sion se miró la palma que se había raspado con la arista de la pared: la sangre se había secado.
 
-Cuanto más arriba,
-Serakion se volvía más asfixiante.
-Se volvía más tupido.
-Odiaba más descaradamente la conexión de lo vivo.
+El pasillo se realineó, y se borró la reacción descuadrada, y se borró el compás sujetado. Sern lo contó: dos compases.
 
-Por eso se ahondaba poco a poco más la sensación
-de que lo que esperaba al llegar al final,
-más que un centro enorme,
-quizá fuera algo que estuvo vacío demasiado tiempo.
+—Se ha borrado.
 
-Pero aún
-no era momento de comprobarlo.
+Lo dijo él.
 
-Lo único que había que hacer ahora
-era cruzar otro piso más.
+—También que vinimos en una sola fila.
 
-Seorin dio el primer paso.
+—Nosotros lo sabemos.
 
-Los demás también,
-esta vez siguieron detrás
-prolongando el compás que no se había cortado.
+Lo dijo Han Jiwoo.
+
+Sern asintió y escribió una línea en el panel de registro.
+Nueve.
+
+Seorin recobró el aliento y habló.
+
+—El siguiente será peor. Ya no solo va a acortar las brechas: va a intentar separarnos a cada uno.
+
+—Ahora también intentó separarnos.
+
+Lo dijo Sion.
+
+—Ahora, con los pies. Lo siguiente, no lo sé. Con otra cosa que no sean los pies.
+
+Sion miró más adentro: el pasillo se ensanchaba y el techo subía. La luz venía de arriba, y él la miró largo rato.
+
+Ater también miró esa luz.
+
+—Arriba está más cerca.
+
+Lo dijo él.
+
+—La luz que vio Aka.
+
+Han Jiwoo se volvió y vio que el último androide también miraba esa luz; el ojo óptico parpadeó y volvió. Ella le ató una vez más el nudo, que no se había soltado.
+
+—¿Por qué?
+
+Lo preguntó Sion.
+
+—Porque sí.
+
+Seorin echó a andar primero, y los demás la siguieron formando una sola fila, con el compás sin cortar. El suelo cedía de forma distinta bajo cada pie, pero nadie se detuvo.
 
 ---
 

@@ -31,8 +31,6 @@ Zahir went on.
 he said.
 "If yours is the hand that's going to hold the real thing, you have to carry it out to the end."
 
-The moment that sentence dropped, Sion felt even more clearly that what this man meant to bring out was not a simple deal. Here, whether it was goods or a person's name, everything was dragged in the end to the question of "who can carry the real thing."
-
 Ater asked quietly.
 
 "Is it a test?"
@@ -93,7 +91,7 @@ Seorin asked at once.
 
 "How?"
 
-Zahir looked once toward Nahira and Aka, once toward Luhai and the Etherite, and last, once more toward Sion and Kael. Like a man reconfirming, with just those three short glances, that the value set on this board had split three ways.
+Zahir looked once toward Nahira and Aka, once toward Luhai and the Etherite, and last, once more toward Sion and Kael.
 
 "The Hazran way,"
 he said.
@@ -109,8 +107,6 @@ Ater asked, very carefully.
 
 "Does Aka go onto that board as well?"
 
-At that question, the air in the room stopped, very slightly.
-
 Harun's eyes sank cold first, and Nahira's expression, if anything, was wiped even blanker. Aka was still quiet, but in that moment Sion saw her gaze waver, very faintly, for the first time. Not so much fear as the discomfort of someone who had already known that was possible.
 
 Zahir didn't answer right away.
@@ -118,8 +114,6 @@ Zahir didn't answer right away.
 Instead he spoke very slowly.
 
 "I decide about Aka."
-
-That one line was enough.
 
 Aka did not argue. Instead she kept her head where it had been when she asked Zahir where the board would be. She neither lowered it nor raised it further.
 
@@ -148,8 +142,6 @@ Even so, Zahir did not raise his voice.
 "It might not,"
 he said.
 "That's why we watch the board."
-
-It sounded less like a threat than like certainty. Whatever anyone said, this man meant to confirm the end on the board.
 
 In the middle of that exchange, Luhai gave a small click of his tongue.
 

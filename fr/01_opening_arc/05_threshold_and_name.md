@@ -139,7 +139,6 @@ Cette fois, Sion leva la tête et le regarda droit dans les yeux.
 « Quelqu'un était dedans.
 Et pas il y a longtemps. »
 
-Sur la rambarde d'en haut, l'air s'arrêta un instant.
 Sern réagit avant Ater.
 
 « Pourquoi en jugez-vous ainsi ? »
@@ -201,7 +200,6 @@ Ater les regarda un instant tour à tour, puis dit très bas :
 
 « Pour l'instant, l'intérieur passe avant les mots. »
 
-Cette seule phrase remit un peu d'ordre dans l'air.
 C'étaient les mots de quelqu'un qui mettait son autorité en avant, mais au moins ceux d'un homme qui n'avait pas l'intention de faire traîner une dispute inutile.
 
 Sion regarda un moment la porte, puis Ater, puis de nouveau la porte.

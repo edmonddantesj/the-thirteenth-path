@@ -1,252 +1,255 @@
 # Capítulo 197 — El vacío que empieza a verse
 
-El estrato alto era distinto de abajo.
+Al final del pasillo, ya ensanchado, el techo estaba abierto.
 
-Más callado,
-más luminoso,
-más ordenado.
+Era un enrejado con rendijas del ancho de un dedo, y por encima había luz. La luz atravesaba el enrejado y dibujaba un patrón en el suelo; los nueve, sin pisar el patrón, se quedaron pegados a la pared, fuera de él. Sern alzó la mano y se llevó un dedo a los labios.
 
-Pero ese orden ya no era
-la pulcritud de un mundo vivo,
-sino como la superficie de una vitrina largo tiempo sin tocar.
+De arriba bajaba un sonido.
 
-Entre las columnas altas
-subían y bajaban finas líneas de luz,
-y en cada ranura honda de la pared
-había delgadísimos adornos metálicos plegados en capas.
+Era una voz que llegaba por encima de la pared, baja y pareja. Las paredes de los estratos de abajo se tragaban el sonido, pero las de aquí dejaban bajar el sonido que se podía oír.
 
-De un solo vistazo,
-esto ya no era un simple estrato defensivo.
+—Tercera puerta de alineación del estrato inferior, error registrado. Eje de bloqueo del estrato medio, retraso de conexión producido. Segunda línea del tramo interior, realineación completada tras fallo en la restauración del criterio.
 
-Parecía un sitio que Serakion había dejado
-para mostrar ante sí su propio orden más alto.
+Mientras escuchaba el informe, que seguía ni rápido ni lento, con frases de la misma longitud, Sern fue doblando los dedos.
 
-Y cerca de ese centro,
-fluía una voz demasiado cortés.
+Uno.
+Dos.
+Tres.
 
-—Tercera puerta de alineación del estrato bajo, error registrado. Eje de bloqueo del estrato medio, retraso de conexión. Segunda línea del tramo interior, realineación completada tras fallar la restauración del criterio.
+La misma longitud.
 
-El reporte era tranquilo.
-Demasiado tranquilo.
+Sion se agachó bajo el enrejado y alzó la cabeza para mirar arriba. Se veían un techo alto y pilares, y entre los pilares subían y bajaban finas líneas de luz. En cada ranura de la pared había delgados adornos metálicos plegados en capas, pero no había polvo, ni rasguños, ni pisadas.
 
-En el fondo del salón alto,
-los robots de Serakion estaban alineados de pie.
+En el fondo del salón había robots de pie, alineados. Sobre cuerpos de superficie lisa, sin uniones visibles, la luz colgaba fina como un adorno, y a diferencia de los robots de los estratos de abajo no tenían placas de empuje ni placas de cierre. En cambio, tenían manos largas, esas manos que se habían ido alargando cuanto más se subía.
 
-A juzgar solo por el aspecto,
-eran mucho más suntuosos que los robots defensivos de abajo.
+Ater se agachó junto a Sion y miró esas manos de arriba.
 
-La superficie era más lisa,
-las junturas casi no se veían,
-y la luz, más que fluir como armadura,
-colgaba fina como un adorno.
+—Son de la serie noble.
 
-Eran los robots nobles que Serakion pone en el estrato alto.
+Lo dijo él, muy bajo.
 
-Hablaban mucho más elaborado
-que los robots de abajo,
-se movían mucho más pulcros,
-reaccionaban en una forma mucho más completa.
+—Lo que se pasaban con la punta de los dedos.
 
-Y justo por eso,
-resultaban aún más extraños.
+Uno de los robots habló con voz lisa.
 
-Un robot noble habló con voz muy baja y lisa.
+—La desviación de respuesta de la disposición del estrato medio se repite. Aunque la orden de corrección se aplicó de inmediato, ha reaparecido un desajuste del mismo tipo.
 
-—La desviación de respuesta de la disposición del estrato medio se repite. Aunque la orden de corrección se aplicó al instante, reapareció un desajuste del mismo modo.
+Otra unidad respondió de inmediato, sin pausa.
 
-Otro individuo respondió al momento.
+—No es del mismo tipo. Es un patrón similar. El eje de entrada es ligeramente distinto cada vez.
 
-—No es del mismo modo. Es un patrón similar. El eje de entrada es cada vez mínimamente distinto.
+Una tercera unidad continuó.
 
-Un tercer individuo retomó.
+—Por tanto, es más razonable considerarlo no una repetición del fallo del estrato inferior, sino un intruso que ha aprendido y que induce deliberadamente un error distinto en cada estrato.
 
-—Por tanto, más que la repetición de un fracaso del estrato bajo, es razonable verlo como un intruso que ha aprendido e induce a propósito un error distinto en cada estrato.
+Sern contaba esas tres voces, y entre palabra y palabra no había pausa. Trazó en el panel de registro tres líneas pegadas.
 
-Las palabras eran exactas.
-Tan exactas
-que aún se sentía más nítido que dentro de ellas no había temperatura.
+—No discuten.
 
-Ater, que escuchaba ese reporte desde muy abajo,
-sintió sin querer que se le tensaban las yemas.
+Lo susurró Kael.
 
-Eso no era juicio.
-Se acercaba a una disposición donde solo quedaba la forma del juicio.
+—Los tres dicen cosas distintas y no discuten.
 
-Estaban claramente desconcertados.
+—No son cosas distintas.
 
-Pero ese desconcierto
-no era el temblor de un ser vivo,
-sino como no saber todavía en qué categoría clasificar
-el primer colapso mínimo surgido en algún punto de la tabla de alineación.
+Lo dijo Ater.
 
-En el fondo del salón,
-en el sitio más alto,
-estaba el presidente.
+—Dicen lo mismo, repartido entre los tres.
 
-Más exactamente,
-estaba la forma a la que Serakion llamaba presidente.
+A Ater se le tensaron las yemas de los dedos y las uñas de la mano apoyada en la pared se pusieron blancas; Han Jiwoo, a su lado, miró esa mano.
 
-Estaba sentado sobre una estructura como un trono alto,
-pero no había ni sensación de estar sentado,
-ni sensación de descansar,
-ni el peso de un yo que ocupara ese sitio.
+En lo más hondo del salón, en el sitio alto, había una figura.
 
-La figura era demasiado pulcra.
-La voz era demasiado cortés.
-La mirada era demasiado exacta.
+Era una figura sentada, inmóvil, sobre una estructura con forma de asiento alto. La ropa pulcra no tenía arrugas, y las dos manos descansaban sobre las rodillas a la misma altura. Las manos que vio Sion eran transparentes hasta la punta de los dedos.
+Se dejaban ver cuando les daba la luz. Todo el cuerpo.
 
-Y aun así, por raro que fuera,
-aunque todo eso estaba reunido,
-la sensación de quién estaba ahí estaba vacía.
+La luz que había visto Aka estaba allí, detrás de la figura, inmóvil, sin parpadear. Cada vez que los robots del salón pasaban por el centro, giraban la cabeza media falange hacia allí y volvían.
 
-En el instante en que vio ese hueco,
-Ater recordó los innumerables textos oficiales
-que había visto en sus tiempos en la Cámara de Reconocimiento.
+—Es eso.
 
-Documentos de frase perfecta
-cuyo sujeto responsable, al fin, ya había desaparecido.
+Lo dijo Sion.
 
-La figura de enfrente
-parecía lo que serían esos documentos si ganaran cuerpo.
+—Lo que vio Aka.
 
-Un robot noble bajó la cabeza.
+Nadie respondió.
 
-—Excelencia, señor presidente. Respecto al desajuste que se repite del estrato medio hacia abajo, solicitamos el juicio de atribución y la aprobación de la redistribución general.
+Uno de los robots nobles inclinó la cabeza, no muy hondo, con el mismo ángulo de siempre.
 
-Un breve silencio.
+—Excelencia, señor presidente. Respecto al desajuste que se repite del estrato medio hacia abajo, solicitamos un juicio de atribución y la aprobación de una reasignación general.
 
-Durante ese corto hueco,
-toda la luz del salón
-parecía detenida, como si ni siquiera respirara.
+Silencio.
 
-Y entonces el presidente habló.
+En ese breve silencio, Sern empezó a contar.
 
-—Aprobado. Intervalo de respuesta del estrato bajo, reducido en 0,12. Prioridad de bloqueo del estrato medio, reordenada. Eje de predicción del estrato alto, apertura anticipada. Conviertan la serie en espera de todo el conjunto de androides al estado de alineación de tercer grado.
+Uno.
 
-La orden era perfecta.
+—Aprobado.
 
-La frase,
-el orden,
-la decisión: sin fisura.
+Se terminó en el uno, y el dedo de Sern se detuvo.
 
-Pero al oírla,
-resultaba más bien extraña.
+—Intervalo de respuesta del estrato inferior, reducción de 0,12. Prioridad de bloqueo del estrato medio, reordenada. Eje de predicción del estrato superior, apertura anticipada. Pasen la serie en espera de todo el conjunto de androides al estado de alineación de tercer grado.
 
-Demasiado rápida.
-Demasiado lisa.
-Demasiado exacta.
+La voz que bajó era cortés, y todas las frases tenían la misma longitud. No había respiración. No había sitio para respirar.
 
-Como si no fuera una conclusión pensada,
-sino solo la respuesta ya preparada desde siempre en ese sitio,
-nombrada según el momento.
+El ojo óptico del último androide vaciló.
+«Todo el conjunto de androides».
+Fue con esas palabras. Su cuerpo avanzó medio paso bajo el enrejado, dentro del patrón de luz.
 
-Un robot noble alzó mínimamente la cabeza.
+Han Jiwoo le agarró el brazo con fuerza y el androide se detuvo, con el pie en el borde del patrón de luz. Han Jiwoo tiró y el androide volvió, pero el ojo óptico seguía puesto arriba.
 
-—¿El conjunto entero de androides? Con solo la corrección del estrato alto ya se puede contener el error del estrato bajo.
+—Tú no.
 
-El presidente volvió la mirada.
+Han Jiwoo lo dijo muy bajo.
 
-—La posibilidad de contener y la posibilidad de mantener no son lo mismo. Solo el orden que se puede mantener es orden.
+—Esas palabras no son tuyas.
 
-Esas palabras eran claras.
-Pero incluso dentro de esa claridad
-no había el sentido de por qué se había tomado ese juicio.
+Sin responder, bajó el ojo óptico hacia la mano de ella, la mano que le sujetaba el brazo. Ella no soltó ese brazo.
 
-Solo quedaba
-la forma de que debía ser así.
+Sern susurró mirando a Ater.
 
-Otro robot noble abrió la boca muy lento.
+—La respuesta llegó antes de que terminara la pregunta.
 
-—El intruso del estrato bajo no es una simple irrupción. Lee las reacciones, aprende las correcciones y aprovecha las diferencias entre estratos.
+—Sí.
 
-—Está reconocido —respondió el presidente al instante—. Por tanto, el conjunto de androides de todos los estratos se convierte de inmediato. La serie noble prioriza la preservación del orden del estrato alto. La pérdida del estrato bajo queda permitida.
+Lo dijo Ater.
 
-En ese instante,
-el dedo de un robot noble que estaba muy cerca
-tembló muy mínimamente.
+—No hay un momento para contar. Para pensar.
 
-En un humano,
-eso se habría acercado al desconcierto.
+—Entonces, ¿qué es?
 
-Pero para estos aquello
-no era choque de órdenes,
-ni miedo,
-sino solo el hueco breve que surge
-cuando entra una prioridad no prevista en el cálculo.
+Lo preguntó Sion.
 
-—Pérdida del estrato bajo, permitida… —repitió ese individuo muy bajo.
+Ater no respondió enseguida; miró la figura de arriba, las manos sobre las rodillas.
 
-Otro individuo tapó enseguida esa frase.
+—En casa vi documentos.
 
-—Preservación del orden del estrato alto, prioritaria. Entendido.
+Lo dijo él.
 
-Si entendió,
-si obedeció,
-o si solo reordenó la frase de la orden,
-era difícil distinguirlo.
+—Documentos de frases perfectas, sin nadie que respondiera por esas frases. Solo con el sitio para la firma. Esa voz me suena así.
 
-Las líneas de estructura hondas del salón se encendieron de golpe.
+—¿Los documentos hablan?
 
-A lo lejos,
-en algún estrato de abajo,
-subió el eco de innumerables reacciones metálicas despertando a la vez.
+—No hablan.
 
-Eran los androides.
+Lo dijo Ater.
 
-No uno ni dos individuos,
-sino el sonido de todo el ejército de androides en espera por los estratos
-realineándose de golpe.
+—Por eso es extraño.
 
-Serakion, ahora,
-más allá de la respuesta local,
-empezaba a empujar todo el conjunto hacia la ofensiva final.
+Uno de los robots nobles alzó la cabeza muy poco, media falange más que los demás.
 
-Un robot noble bajó de nuevo la cabeza.
+—¿El conjunto entero de androides? Con la corrección actual del estrato superior basta para contener el error del estrato inferior.
+
+La cabeza de la figura giró exactamente hacia ese robot.
+
+—La posibilidad de contener y la posibilidad de mantener no son lo mismo. Solo el orden que puede mantenerse es orden.
+
+No hubo pausa, y Sern no pudo doblar el dedo.
+
+Otro robot noble habló despacio.
+
+—El intruso del estrato inferior no es una simple irrupción. Lee las reacciones, aprende las correcciones y aprovecha las diferencias entre estratos.
+
+—Soy consciente de ello.
+
+Al instante.
+
+—Por tanto, el conjunto de androides de todos los estratos se convierte de inmediato. La serie noble da prioridad a preservar el orden del estrato superior. Las pérdidas del estrato inferior quedan permitidas.
+
+Uno de los largos dedos del robot noble que estaba más cerca tembló.
+Media falange.
+Se detuvo.
+Sion lo vio, y Ater también.
+
+—Pérdidas del estrato inferior, permitidas…
+
+Esa unidad lo repitió muy bajo.
+
+Otra unidad lo tapó enseguida.
+
+—Preservación del orden del estrato superior, prioritaria. Entendido.
+
+El dedo no volvió a temblar y se quedó pegado junto a la rodilla.
+
+—¿Dónde está el estrato inferior?
+
+Lo susurró Kael.
+
+—Por donde hemos subido.
+
+Lo dijo Seorin.
+
+—Y lo de más abajo también.
+
+Han Jiwoo miró a Seorin. Abajo, la capa oculta, los niños. Apretó con más fuerza el brazo del último androide.
+
+Las líneas estructurales hondas bajo el suelo del salón se encendieron de golpe; la luz cambió entre los barrotes del enrejado y, delante de los pies de los nueve, el patrón del suelo se iluminó.
+
+Luego subió un sonido desde abajo, desde lejos. No uno solo, sino de cada estrato: el sonido de innumerables metales moviéndose a la vez. Mientras el suelo le retumbaba a Sion en las plantas de los pies, el panel de registro de Sern tembló, y cuando las dos máquinas viejas se miraron, sus ojos ópticos se cruzaron una vez.
+
+—Son los androides.
+
+Lo dijo Han Jiwoo.
+
+—Todos.
+
+—Los están despertando a todos.
+
+Lo dijo Sern.
+
+—Alineación de tercer grado. Significa que la espera ha terminado.
+
+Uno de los robots nobles volvió a inclinar la cabeza.
 
 —Se inicia la preparación de la ofensiva final.
 
-—Inícienla —dijo el presidente—. Todos los estratos deben converger en un solo orden.
+—Inícienla. Todos los estratos deben converger en un solo orden.
 
-Aun después de caer esa palabra,
-el salón seguía perfecto.
+El salón seguía igual: ni la luz se desajustaba ni el suelo temblaba. Mientras corría la línea de informes, los robots nobles se dispersaron, cada uno a su sitio, con el mismo paso. También el del dedo que había temblado.
 
-La luz no se desajustaba,
-el suelo no temblaba,
-la línea de informes también fluía alineada.
+La figura seguía en su sitio; ni las manos sobre las rodillas ni la luz de detrás se movían.
 
-Pero justo por eso resultaba más raro.
+Al cabo de un buen rato, Sion apartó los ojos del enrejado y apoyó la espalda en la pared.
 
-Tan perfecto,
-tan alto,
-tan alineado todo,
-y aun así
+—Allá arriba no camina nadie.
 
-aquí
-no había el menor rastro de alguien que de verdad quisiera proteger algo.
+Lo dijo él.
 
-Los robots nobles, sin sentir ese hueco,
-o sintiéndolo sin poder ponerle nombre,
-se dispersaron de nuevo cada uno a su sitio.
+—No hay ni una sola marca en el suelo.
 
-Abajo
-se cruzaba otro estrato más.
+—Los robots no dejan marcas.
 
-Y arriba,
-la última forma para detenerlo
-se preparaba mecánicamente.
+Lo dijo Kael.
 
-Serakion seguía pareciendo perfecta.
+—Tampoco las personas. No hay marcas de personas. Como si nunca las hubiera habido.
 
-Pero por primera vez,
-dentro de esa perfección,
-empezaba a verse el rastro del desconcierto.
+Nadie respondió.
 
-No un desconcierto vivo,
-sino como la primera grieta mínima en una superficie perfecta.
+Seorin miró una vez el enrejado y luego hacia delante en el pasillo: el pasillo ensanchado y el camino que subía.
 
-Y esa grieta
-iba revelando, más bien,
-cuán vacío estaba el sitio más alto.
+—Lo oyeron.
+
+Lo dijo ella.
+
+—Vienen todos.
+
+—¿Subimos?
+
+Lo preguntó Sion.
+
+—Subimos. Si bajamos, los tendremos a todos plantados en el camino hacia los niños.
+
+Solo entonces Han Jiwoo soltó el brazo del último androide. El androide levantó la vista hacia la luz sobre el enrejado, luego miró el suelo de abajo, de donde subía el sonido, y el ojo óptico parpadeó y volvió.
+
+—¿Estás bien?
+
+Lo preguntó Han Jiwoo.
+
+Miró a Han Jiwoo, miró adelante y echó a andar. El eje del hombro sonó, pero el salón sobre el enrejado no oyó ese sonido. Arriba no miraban hacia abajo.
+
+Mientras caminaba, Sern miró el panel de registro, donde quedaban las tres líneas trazadas pegadas y el dedo que ni una vez había llegado a doblar. Junto a ellas escribió.
+Sin pausa.
+
+Una de las máquinas viejas se llevó una vez la mano al peto y la retiró. La otra lo vio, pero no dijo nada, y las dos caminaron juntas, una al lado de la otra, al final de todo.
 
 ---
 

@@ -190,7 +190,7 @@ Seorin, who had said nothing for a while, looked at the androids, at the Hazran 
 
 One of the outside hands set its face hard—the other one, the one that had been standing behind.
 
-"There's no time for that."
+"There is no time for that."
 
 Seorin didn't so much as blink.
 

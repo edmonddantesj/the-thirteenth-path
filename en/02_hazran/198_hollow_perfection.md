@@ -1,4 +1,4 @@
-# Episode 198. Hollow Perfection
+# Episode 198. The Horror of Perfect Preparation
 
 As they set foot on the next level, the air was heavy.
 
@@ -65,7 +65,7 @@ Kael asked.
 
 "I didn't count. Count them and you freeze."
 
-Kael looked at the grooves and counted, only his lips moving, and stopped at twenty. There was another groove after that, and he stopped there.
+Kael looked at the grooves and counted, only his lips moving, and stopped at twenty. There was another groove after that, but he counted no further.
 
 Han Jiwoo was looking too, and her gaze rested a long time on one face with nothing on it. She looked at the last android's face, at the faint lines a child had drawn, then looked back at that other face.
 Nothing.
@@ -77,7 +77,7 @@ The last android looked at that hand, at the inner pocket, and then pointed a fi
 
 Han Jiwoo said.
 
-"It's not yours. It's from the one before you."
+"It's not yours. It's from the one who went before."
 
 He drew his finger back.
 

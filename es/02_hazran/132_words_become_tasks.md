@@ -1,217 +1,232 @@
-# Capítulo 132 — Las palabras se vuelven tarea
-
-Tras decir qué habían traído hasta aquí sin perderlo,
-el grupo de Sion y la gente de Hazran
-sintieron por primera vez que dentro de aquel estrato viejo empezaba a haber un sitio para ellos.
-
-Aún no podía decirse que los hubieran aceptado.
-La sensación de bienvenida lo era todavía menos.
-
-Pero al menos,
-ya nadie los dejaba solo en el estado de forasteros del todo desconocidos.
-
-Eso, más que confianza,
-estaba más cerca de una prueba.
-
-De la clase que dice: veamos qué parte asume de verdad el que ha sobrevivido.
+# Capítulo 132 — Las palabras se vuelven trabajo
 
 El espacio interior estaba más atareado que por la mañana.
 
-Las curas de los heridos seguían su curso,
-el orden de las provisiones aún no había terminado,
-y la comprobación de qué corredor era seguro por ahora también seguía yendo y viniendo.
+Mientras seguían las curas de los heridos, el orden de las provisiones tampoco terminaba, y las comprobaciones sobre qué corredor sería seguro por ahora iban y venían.
 
-Pero había una cosa distinta al día anterior.
+Había una cosa distinta al día anterior. El grupo de Sion ya no estaba de pie fuera de ese flujo.
 
-Ya el grupo de Sion no estaba de pie fuera de ese flujo.
+La máquina vieja no soltaba órdenes a raudales; de pie junto al pilar, decía solo unas pocas palabras breves.
 
-La máquina vieja no era de las que sueltan órdenes directas.
-Pero, por extraño que pareciera,
-las pocas frases breves que lanzaba
-decidían la dirección de todo el espacio.
+—Los que puedan moverse, primero agua y telas. Los que sepan usar las manos, a ordenar piezas. Junto a los niños ponemos a quien no se haya derrumbado en toda la noche.
 
-—Los que puedan moverse, primero agua y telas.
-—Los que sepan usar las manos, a ordenar piezas.
-—Junto a los niños, a quien no se haya derrumbado en toda la noche.
+La gente se movió. Mientras la anciana iba hacia la caja de telas y la persona que había venido sola levantaba un bidón, la mujer que vino con dos niños se quedó donde estaba. Era de las que no se habían derrumbado en toda la noche.
 
-Aquellas frases eran muy secas,
-pero Sion sintió que en ellas estaba, tal cual, el modo en que esta comunidad veía a la gente.
+A Han Jiwoo la llamaron adonde se acumulaban las reparaciones y los refuerzos de urgencia.
 
-No el que lo hace bien,
-sino el que ahora puede aguantar.
+Nadie la llamó: una de las máquinas viejas vino hasta ella con una caja de piezas y se la dejó delante. Esa fue la llamada.
 
-Ese criterio era humilde,
-pero justo por eso parecía un modo de sobrevivir más tiempo.
+La máquina abrió la caja para mostrársela y habló.
 
-A Han Jiwoo la llamaron enseguida adonde se acumulaban reparaciones y refuerzos de urgencia.
+—Según este criterio, esto ya es descarte.
 
-Equipo del todo roto había poco,
-pero equipo que había que seguir usando a la fuerza había mucho.
+Han Jiwoo miró dentro de la caja. Una docena y pico de piezas de formatos distintos, unas con remiendos provisionales superpuestos, otras oxidadas, otras dobladas.
 
-Una máquina vieja abrió una caja de piezas y la mostró.
-
-—Con este criterio, esto ya es para descartar.
-
-Han Jiwoo miró una vez dentro de la caja
-y respondió bajo.
+Ella respondió en voz baja.
 
 —Entonces, de ahora en adelante, el criterio es el mío.
 
-Aquella frase fue corta,
-pero un humano que estaba cerca se rio por lo bajo sin querer.
+Una humana que estaba cerca soltó una risa breve. Era la mujer del rostro cansado, y después de reírse se apretó la boca con el dorso de la mano. Eran músculos que hacía mucho que no usaba.
 
-Han Jiwoo se puso manos a la obra enseguida.
+Han Jiwoo se puso manos a la obra enseguida. Tomó una doblada e intentó enderezarla, y como no se enderezaba la dejó al lado; a una oxidada le raspó el óxido con la uña, vio que por debajo estaba sana y la puso delante. Al repartirlas así en dos, al lado y delante, resultó que delante había más.
 
-Los formatos de las piezas eran un desastre,
-había remiendos provisionales superpuestos,
-cosas que en un entorno normal ya se habrían tirado hacía tiempo.
+La máquina vieja miró los dos montones.
 
-Pero ella, por extraño que pareciera,
-ante aquel desorden se volvió, más bien, más serena.
+—¿Esas también las usa?
 
-Intentar salvar algo una vez más antes de desecharlo del todo.
+La máquina señaló con la punta del dedo el montón de delante.
 
-Lo que ella misma había dicho ayer,
-hoy le volvía enseguida como trabajo de manos.
+—Las uso.
 
-Luhai al principio se pegó al transporte de provisiones,
-pero pronto lo llamaron más a menudo a sujetar gente.
+Han Jiwoo respondió.
 
-Cuando un niño asustado intentaba de pronto salir corriendo,
-cuando un herido que veía visiones por el dolor intentaba levantarse de su sitio,
-quién iba a pegarse en silencio a su lado y no soltarlo hasta el final,
-la gente de aquel estrato viejo lo reconocía más rápido de lo que cabía esperar.
+—Y las de al lado, todavía no lo sé.
 
-A Luhai esa mirada le resultaba un poco incómoda.
+La máquina tomó una del montón de al lado, la acercó a su ojo óptico para examinarla y luego la devolvió exactamente al sitio donde Han Jiwoo la había puesto.
 
-—¿Por qué me llaman siempre a mí? —refunfuñó él en voz baja.
+Otra máquina trajo una caja más y la dejó en el suelo.
 
-Una mujer humana que estaba cerca respondió con indiferencia.
+—Esto también.
+
+Han Jiwoo abrió la caja y encontró dentro bidones agrietados. Miró al hombre que estaba apoyado en la pared, con una tela enrollada en la pierna.
+
+—Esto.
+
+Han Jiwoo levantó uno de los bidones para que lo viera.
+
+El hombre la miró, se miró la pierna y luego se levantó y fue hacia ella cojeando. Tomó el bidón y siguió la grieta con el dedo.
+
+—Se puede remendar.
+
+Eso dijo el hombre.
+
+—¿Tienes fuego?
+
+Cuando Han Jiwoo miró a la máquina vieja, la máquina señaló hacia el interior, y el hombre fue hacia allá cojeando, abrazado al bidón.
+
+Luhai, al principio, se sumó al transporte de provisiones.
+
+Había movido dos cajas e iba a levantar la tercera cuando alguien le tiró de la manga. Era un niño de Hazran, y otro niño corría hacia el corredor.
+
+Luhai soltó la caja, corrió y atrapó al niño en la boca del corredor. El niño pataleó, pero Luhai no lo soltó hasta el final y volvió con él en brazos: la caja seguía donde estaba. Dejó al niño en el suelo y levantó la caja.
+
+Después de eso lo llamaron más a menudo para sujetar a la gente.
+
+El niño se le agarró a la pierna y no se despegaba, así que Luhai se lo cargó a la espalda y levantó la caja. La caja pesaba, y el niño era ligero. No soltó ninguno de los dos.
+
+Cuando una persona herida que veía visiones por el dolor intentaba levantarse, cuando un niño asustado se metía a gatas en un rincón, la gente de este estrato reconocía enseguida quién se quedaría en silencio a su lado y no lo perdería hasta el final. La tercera vez nadie lo llamó, y Luhai fue primero.
+
+—¿Por qué me llaman siempre a mí?
+
+Después de la cuarta vez, lo refunfuñó en voz baja.
+
+Una humana que estaba cerca respondió con indiferencia. Era la mujer del rostro cansado.
 
 —Porque no dejas de mirar.
 
 Luhai frunció el ceño.
 
-La mujer añadió:
+—¿El qué?
 
-—Por miedo a que se te escape.
+—A la gente.
 
-Aquella frase no era burla, sino observación.
-Por eso Luhai no pudo replicar más.
+La mujer, doblando una tela, añadió algo más.
 
-Aka al principio parecía no pertenecer a ningún sitio.
+—Por si se te escapa.
 
-Pero, más bien por eso,
-unas cuantas máquinas de aquel estrato viejo la observaban más a menudo.
+Luhai no pudo decir nada más. Se dio cuenta de que incluso ahora estaba mirando hacia el corredor y apartó la vista, pero los ojos se le volvieron hacia allí.
 
-Aka miraba más los huecos tapados y las estructuras selladas hacía tiempo
-que los corredores abiertos.
+Aka, al principio, parecía no pertenecer a ningún sitio.
 
-Sion lo vio,
-y supo que lo que ella había dicho ayer aún no se había desvanecido dentro de aquel espacio.
+No cargaba agua ni tocaba las piezas: caminaba a lo largo de las paredes. Ante los corredores abiertos no se detenía, pero ante las brechas tapadas sí se detenía, y ante los sitios sellados hacía tiempo se detenía más.
 
-Reconozco lo que está falseado.
-También lo que se ha tenido cerrado mucho tiempo.
+Dos máquinas no la seguían, pero observaban los sitios donde se detenía.
 
-Una máquina vieja por fin le preguntó a Aka en voz baja.
+Una máquina vieja le preguntó a Aka en voz baja.
 
 —¿Lo sigue viendo ahora?
 
-Aka señaló un punto de la pared.
+Aka señaló una parte de la pared. Era un punto tapado, pero tenía menos óxido que los demás.
 
-—Ahí el camino no está muerto.
-—Finge estar muerto.
+—Ahí el camino no está muerto. Finge estar muerto.
 
-Ante aquellas palabras,
-dos máquinas de alrededor alzaron la mirada a la vez.
+Las dos máquinas de alrededor alzaron a la vez los ojos ópticos y se miraron. Cuando una dio medio paso hacia esa pared y se detuvo, la otra la sujetó del brazo.
 
-Fue una reacción de verdad mínima,
-pero Sion intuyó que en aquel estrato eso tenía bastante peso.
+La máquina vieja miró a Aka.
 
-Sern se pegó al lado de ordenar el flujo de señales.
-Ater volvió a revisar las estructuras con riesgo de derrumbe y los sitios defendibles,
-y Kael, de modo natural, fue a parar a lo más duro.
+—¿Desde cuándo lo ve?
 
-Nadie se lo había mandado,
-pero al final, en el sitio donde había que cargar lo pesado,
-en el sitio donde había que ponerse primero ante un corredor peligroso,
-en el sitio donde el relevo de la noche quedaba vacío, estaba Kael.
+—Desde que entramos. Solo que no lo dije.
 
-Sion, al verlo,
-sintió que la parte de cada uno no es algo que nace solo porque alguien la asigne.
+La punta de su dedo seguía señalando esa pared.
 
-Hay personas
-que ya están, ellas mismas, inclinadas hacia su parte.
+La máquina vieja miró esa pared largo rato.
 
-Sin saberlo ellas mismas.
+Sion también miró la pared, pero le pareció igual que las demás. Miró el óxido del punto que Aka había señalado y vio que había poco; eso era todo lo que sabía.
 
-Y al final,
-también a Sion le llegó una tarea.
+Sern se sumó a ordenar el flujo de señales, junto a la máquina que les había abierto el camino. Los dos se sentaron con un panel de registro entre ambos y, mientras Sern trazaba líneas y la máquina marcaba puntos, no hablaron.
 
-La máquina vieja y la mujer humana que el día anterior le había hablado con la cara cansada
-lo llamaron aparte.
+Ater volvió a revisar las estructuras con riesgo de derrumbe y los puntos que podían contenerse. Golpeó los pilares uno por uno y empujó las paredes con la mano, y delante de las paredes que cedían apiló cajas. Tres sitios.
 
-No era ni muy adentro,
-ni del todo afuera: un corredor intermedio.
+Seorin lo vio y preguntó.
 
-La mujer humana habló primero.
+—¿Tres sitios?
+
+—El cuarto no se arregla con cajas.
+
+Eso respondió Ater.
+
+—¿Entonces?
+
+—Se cubre con una persona.
+
+—¿Quién?
+
+—Yo.
+
+Seorin no preguntó más y miró el cuarto sitio que Ater había dicho. Era la boca de una salida oscura.
+
+Kael fue a lo más duro.
+
+Nadie se lo había mandado, pero en el sitio donde había que cargar lo pesado, en el sitio donde había que ponerse primero ante un corredor peligroso, en el sitio donde el relevo quedaba vacío, ahí estaba Kael. Cada vez que Han Jiwoo levantaba la cabeza, Kael estaba en otro sitio. Todos eran sitios pesados.
+
+Al final, a Sion le llegó su trabajo.
+
+La máquina vieja y la mujer del rostro cansado lo llamaron aparte. Un corredor intermedio, ni muy adentro ni afuera: un sitio con una sola lámpara.
+
+La mujer habló primero.
 
 —Tú eres de los que miran.
 
 Sion no respondió enseguida.
 
-La máquina vieja siguió:
+La máquina vieja siguió.
 
-—Está más cerca de los que leen cuándo una persona aguanta,
-cuándo se derrumba,
-cuándo se mueve a la fuerza.
+—Está más cerca de los que leen cuándo una persona aguanta, cuándo se derrumba y cuándo se mueve a la fuerza.
 
-Sion escuchó aquellas palabras en silencio.
+Sion, mientras escuchaba esas palabras, se puso la mano sobre el bolsillo. Había algo que Seorin le había dicho en Hazran.
 
-Eran ciertas,
-y también incómodas.
+Tú miras a la gente.
 
-Porque había visto esas cosas demasiadas veces.
-Y porque el que ve esas cosas
-a menudo es el último en descansar.
+—¿Cómo lo sabe?
 
-La mujer humana desplegó un viejo tablero colgado en la pared.
+Sion se lo preguntó a la mujer.
 
-Sobre él se superponían un esquema dibujado a grandes rasgos,
-la posición de la gente recién llegada
-y las marcas de las zonas de riesgo.
+—Ayer vi adónde mirabas. Cuando contábamos. Todos miraban la placa, y tú mirabas a la gente.
 
-—Desde esta noche —dijo ella—, míralo tú una vez.
-—Quién está ahora a punto de derrumbarse.
+Sion bajó la mano que había puesto sobre el bolsillo.
 
-Un silencio breve.
+La mujer desplegó una vieja tablilla de puntos que colgaba de la pared: un esquema dibujado a grandes rasgos, la posición de los recién llegados y las marcas de las zonas de riesgo se superponían en tres capas.
 
-Aquellas palabras no querían decir que le encargaran vigilar.
-Estaban más cerca, más bien, de encargarle los ojos que no dejan escapar a quien va a apagarse primero.
+—Desde esta noche, míralo tú una vez. Quién está ahora a punto de derrumbarse.
 
-Sion miró largo aquel tablero.
+En la tablilla que Sion miraba desde arriba había un punto en el sitio de cada persona, y junto a los puntos no había nada. No había nombres. Buscó su propio sitio y allí también había un punto.
 
-El sentido, en Hazran, de saber qué era lo que no se iría hasta el final.
-Eso, al llegar aquí,
-esta vez se estaba volviendo otra forma de responsabilidad.
-
-Él preguntó muy bajo.
+Lo preguntó él, muy bajo.
 
 —¿Basta con mirar?
 
-La máquina vieja respondió:
+La máquina vieja respondió.
 
-—No.
-—Hay que hablar primero.
+—No. Hay que hablar primero.
 
-Aquella sola frase
-fijó con exactitud la parte que le tocaba a Sion.
+—¿A quién?
 
-Aquel día, el estrato viejo
-no les dio por primera vez un sitio, sin más.
+—A quien esté vigilando.
 
-Empezó a convertir lo que habían dejado dicho
-en trabajo que de verdad había que asumir.
+La máquina vieja miró a la mujer. La mujer asintió.
+
+—Dímelo a mí. Si yo no te oigo, a esa de ahí.
+
+Ella señaló a la máquina vieja.
+
+—Si no te oye ninguna de las dos, despiértanos.
+
+La tablilla que Sion recibió era de metal y pesaba. Se la puso bajo el brazo y se quedó de pie en el corredor intermedio.
+
+La mujer ya se volvía para irse cuando habló.
+
+—Tú también eres un punto.
+
+—Lo sé.
+
+—¿Quién te mira a ti?
+
+Sion no supo responder. La mujer se fue sin esperar la respuesta.
+
+La máquina vieja se quedó un compás más.
+
+—Eso también se lo preguntaré mañana.
+
+Eso dijo la máquina.
+
+Mientras se daba la vuelta y se alejaba, la rodilla le sonaba a cada paso.
+
+Sion desplegó la tablilla, volvió a mirar su propio punto y luego contó uno por uno los puntos de la gente que había entrado con él.
+
+Quince. Dieciséis, contándose él.
+
+Sin plegar la tablilla, se quedó de pie en el corredor de una sola lámpara, sosteniéndola.
 
 ---
 

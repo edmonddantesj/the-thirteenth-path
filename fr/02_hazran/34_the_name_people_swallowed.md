@@ -123,7 +123,7 @@ Sion acquiesça.
 
 « Et Ater ? »
 
-« S'il sort un mot faux entre les deux, il coupe. »
+« S'il sort un mot faux entre nous deux, il coupe. »
 Ce fut la réponse de Seorin.
 
 Kael, sans rien demander, parcourait déjà du regard les stands alentour et les mains des gens. Qui touchait la marchandise lui-même, qui parlait seulement et s'effaçait, qui n'était pas le patron ici mais faisait semblant de l'être. Des yeux de quelqu'un pour qui un marché n'avait rien de nouveau.
@@ -194,7 +194,7 @@ L'instant d'après, une autre main plaqua la bouche de l'enfant.
 
 C'était une voix basse et rude.
 
-Les regards convergèrent un instant vers un seul point, puis se dispersèrent comme si rien ne s'était passé. Tout le monde fit semblant de n'avoir rien entendu, beaucoup trop vite. C'était justement la réaction la plus sûre.
+Les regards convergèrent un instant vers un seul point, puis se dispersèrent comme si rien ne s'était passé. Tout le monde fit semblant de n'avoir rien entendu, beaucoup trop vite.
 
 Dans ce bref silence, Sion sut.
 

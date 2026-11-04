@@ -215,7 +215,7 @@ He said.
 
 "The light Aka saw."
 
-When Han Jiwoo looked back, the last android was looking at the light too; his optical eye blinked, then came back. She retied his knot, which had not come loose, once more.
+When Han Jiwoo looked back, the last android was looking at the light too; his optical eye blinked, then came back. She tied his knot, which had not come loose, one more time.
 
 "Why?"
 

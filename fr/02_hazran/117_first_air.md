@@ -1,221 +1,214 @@
-# Chapitre 117 — Le premier air
+# Chapitre 117 — L'air arrivé en premier
 
-Une fois le choc passé,
-ce qui restait à l'intérieur du vaisseau n'était pas une célébration mais une vérification.
+Une fois le choc passé, ce qui resta à bord du vaisseau ne fut pas une clameur de joie, mais une vérification.
 
-Personne n’a qualifié ce qui vient de se passer de miracle.
-La situation n'était pas assez confortable pour ça,
-et ils n'avaient pas assez compris pour ça.
+Personne n'appela miracle ce qui venait de se passer. Pendant que Han Jiwoo réexaminait d'abord l'état de la coque, Sern lisait la surveillance extérieure et les traces résiduelles, et Kael et Luhai passaient au peigne fin les coursives intérieures, au cas où il resterait une zone touchée par le choc.
 
-Tout le monde s’est déplacé dans la direction opposée.
+Tandis que Luhai collait sa lampe torche contre un joint de la paroi, au bout de la coursive, pour l'examiner de près, Kael avançait en pressant le sol du pied, dalle après dalle. De retour, tous deux se contentèrent de secouer la tête, sans un mot.
 
-Jiwoo commença à revérifier l'état de la coque.
-Sern a relu la surveillance extérieure et les traces résiduelles.
-Kael et Luhai ont d'abord balayé les couloirs intérieurs à la recherche d'éventuelles zones d'impact.
+Contre la paroi, au fond de la coursive, les gens de Hazran étaient assis serrés les uns contre les autres. C'étaient les seize, moins le groupe, et même une fois le choc passé, aucun ne s'était levé. Un vieil homme leva les yeux vers Luhai.
 
-C'était une habitude chez les gens qui survivent.
-Plus quelque chose est surprenant,
-plus vous vérifiez en premier.
+« On est où, ici ? »
 
-Mais plus c'était étrange, plus ils vérifiaient,
-c'est que ce vaisseau avait moins l'air d'avoir tendu et tenu
-et plus comme s'il s'était *aligné précisément une fois et était revenu*.
+« Je ne sais pas. Pas encore. »
 
-Jiwoo regarda longuement le panneau ouvert,
-dit alors, très bas.
+Luhai répondit ainsi, posa une gourde et s'en alla.
+
+Au lieu de prendre la gourde, l'homme la poussa vers l'enfant assis à côté de lui. L'enfant en but la moitié et la repoussa vers lui ; alors seulement, l'homme but.
+
+Kael, qui passait à côté, s'arrêta.
+
+« Vous n'êtes pas blessé ? »
+
+L'homme secoua la tête, et Kael posa une fois la main sur la tête de l'enfant avant de passer son chemin. Alors la femme d'à côté posa elle aussi la main sur la tête de son enfant, et l'homme assis derrière posa la main, une fois, sur chacun des siens.
+
+Han Jiwoo scruta longuement l'intérieur du panneau ouvert. La lampe torche entre les dents, elle souleva des câbles à deux mains, les relâcha, en souleva d'autres ailleurs, et recommença ainsi un long moment avant de retirer enfin la lampe de sa bouche.
 
 « Les dégâts n'ont pas augmenté. »
 
-Kael se tourna.
+Kael se retourna.
 
-« N'est-ce pas bon ? »
+« C'est bien, non ? »
 
-Jiwoo ne pouvait pas hocher la tête tout de suite.
+Les mains toujours dans le panneau, Han Jiwoo ne put pas acquiescer tout de suite.
 
-« Moins bon et plus… »
-dit-elle à voix basse.
-« C'est plus étrange qu'il soit intact après une réaction comme celle-là. »
+« Bien, c'est pas le mot… »
 
-C'était précis.
+Elle parla à voix basse.
 
-Après un mouvement comme celui-là,
-au moins une partie de cette coque de fortune aurait dû crier davantage.
-Mais à cet instant, le vaisseau sentit
-comme s'il avait retrouvé sa place dans un calme inquiétant.
+« Qu'il soit intact après une réaction pareille, c'est encore plus bizarre. »
 
-Sion a entendu ces mots
-mais sentit autre chose.
+Elle passa la main sur la jointure entre les tôles de la coque raccordées à Hazran. Quelques jours plus tôt, il suffisait d'y poser la main pour que l'endroit résonne ; à présent, il ne résonnait plus. Elle frappa deux coups, le son revint égal, et alors seulement elle retira la main.
 
-Un sentiment qui n'était pas encore fermé.
-La direction résiduelle à partir du moment où le vaisseau a pris la cale pour la première fois.
+Sion entendait ce son, mais, adossé à la paroi, il restait tourné de l'autre côté. Il avait les yeux fermés, face à la direction exacte que le vaisseau avait saisie le premier, un peu plus tôt.
 
-Cela n'avait pas disparu.
-Au contraire, de très loin,
-cela a continué comme un léger air.
+C'était encore là. Très loin, comme un air ténu.
 
-Pas une odeur.
-Pas une lumière.
-Mais clairement,
-un grain différent de celui de Hazran.
+Ce n'était ni une odeur ni une lumière, et ce n'était pas non plus comme Hazran. L'air de Hazran avait toujours charrié de la poussière, de la sueur et de l'huile ; ici, rien ne s'y mêlait.
 
-Trop froid.
-Trop lisse.
-Trop commandé.
-C’était comme si quelque chose n’avait pas été touché par des mains humaines.
+Sans s'en rendre compte, Sion fronça légèrement les sourcils en rouvrant les yeux. Seorin le remarqua la première.
 
-Sion fronça légèrement les sourcils sans le vouloir.
+« Tu sens quelque chose ? »
 
-Seorin l'a vu en premier.
+Sion hésita un instant, puis parla.
 
-« Tu ressens quelque chose ? »
+« On n'est pas encore arrivés. C'est comme si l'air arrivait seul, en premier. »
 
-Sion hésita brièvement, puis parla.
+Luhai fronça les sourcils.
 
-« Nous ne sommes pas encore arrivés. »
-dit-il, bas.
-« Mais on dirait que seul l'air est arrivé en premier. »
+« L'air ? »
 
-Luhai plissa les sourcils.
+Sion décolla son dos de la paroi et alla vers le hublot. Dehors, c'était encore noir. Il se tint devant sans y poser la main.
 
-« Air? »
+« Rien à voir avec Hazran. On dirait un endroit où des gens vivent… mais pas un endroit fait à la mesure des gens. »
 
-Sion savait que ses paroles semblaient étranges, mais il continua.
+Luhai voulut dire quelque chose, puis se tut. Kael le regarda, mais Luhai ne haussa même pas les épaules.
 
-« Complètement différent d'Hazran. »
-« Cela ressemble à un endroit où les gens vivent… mais pas à un endroit façonné pour les gens. »
+Seorin vint se placer à côté de Sion.
 
-Ces mots ne pouvaient pas expliquer avec précision,
-mais bizarrement, tout le monde pouvait les comprendre.
+« Comme à Hazran ? »
 
-Aka regarda directement Sion cette fois.
+« Non. »
 
-Elle ne dit rien pendant un moment,
-puis parla très bas.
+Sion répondit sans quitter le hublot des yeux.
+
+« Là-bas, il y avait quelque chose. Maintenant… »
+
+Il s'interrompit.
+
+« Je sens qu'il n'y a rien. »
+
+Seorin ne demanda rien de plus et regarda le visage de Sion qui se reflétait dans le hublot.
+
+Cette fois, Aka tourna aussitôt les yeux vers Sion. Elle qui n'avait rien dit depuis un moment parla tout bas.
 
 « C'est peut-être un endroit ordonné. »
 
-Seorin a répondu.
+Seorin lui renvoya la question.
 
 « Dans le bon sens ? »
 
-Aka ne répondit pas immédiatement.
+Aka ne répondit pas tout de suite et baissa les yeux sur sa main. Elle ouvrit la paume, la referma, et alors seulement parla lentement.
 
-« Un endroit trop ordonné »
-dit-elle lentement,
-« On se sent parfois plus proche de manipuler des êtres vivants que d'être vivant. »
+« Les endroits trop ordonnés, des fois, ils sont moins du côté du vivant que du côté de ce qui manipule le vivant. »
 
-L’air à l’intérieur de la coque s’est refroidi pendant un instant.
+Le silence se fit dans la coque. Dans le panneau, la main de Han Jiwoo s'immobilisa ; Kael regarda Aka, mais Aka ne regardait que le dehors, derrière le hublot. Personne ne lui demanda d'expliquer jusqu'au bout ce qu'elle voulait dire.
 
-Personne ne lui a demandé de s’expliquer complètement.
-Mais tout le monde pouvait le dire immédiatement
-que la phrase était étrangement inconfortable.
+Pendant ce temps, Sern lisait toujours les relevés. Son doigt, qui descendait ligne après ligne sur le panneau d'enregistrement, s'arrêta sur une ligne, remonta, puis s'arrêta de nouveau sur la même.
 
-Sern lisait les tableaux tout le temps.
-Et au bout d'un moment,
-il parla pour la première fois, bref.
+« La ligne de référence extérieure a changé. »
 
-« Les lignes de référence extérieures ont changé. »
+Han Jiwoo se retourna.
 
-Jiwoo se tourna.
+« Ça veut dire quoi ? »
 
-« Ça veut dire quoi. »
+Sern parla en faisant défiler le panneau d'enregistrement.
 
-Sern parla en faisant défiler l'écran.
+« Ce n'est pas le bruit que nous lisions dans la zone orbitale où nous nous trouvions. L'intervalle du bruit de fond est différent, et les vides que laisse le réseau de relais le sont aussi. »
 
-« Ce n'est pas le bruit que nous lisions dans la zone orbitale où nous nous trouvions auparavant. »
-« Les intervalles statiques d'arrière-plan sont différents, et les lacunes laissées par les réseaux relais le sont aussi. »
+Il tourna le panneau d'enregistrement pour le montrer, et Han Jiwoo retira les mains du panneau pour venir regarder. L'écart entre les deux lignes n'était pas le même. La ligne du haut était irrégulière, celle du bas se poursuivait régulière ; elle la suivit du doigt, et c'était ainsi jusqu'au bout.
 
-Ce n'était pas une déclaration d'arrivée.
-Mais cela signifiait au moins une chose.
+Depuis la coursive, Ater posa une question.
 
-Le chemin que le vaisseau venait de suivre
-n'était pas simplement une technique pour interrompre le suivi.
-Il y avait une possibilité que cela les ait poussés vers quelque chose comme l’entrée d’une zone réellement différente.
+« De quel côté se trouve la nouvelle ligne de référence ? »
+
+« Elle est vers l'intérieur. »
+
+Sern répondit.
+
+« C'est le côté où nous entrons. »
+
+Ater hocha la tête et tourna les yeux vers une tôle de la paroi de la coursive qui s'était desserrée. Il tenta de la repousser du pied pour la remettre en place, mais elle ne tint pas ; il tira alors la caisse voisine et la dressa devant.
 
 Kael parla à voix basse.
 
-« Alors nous nous rapprochons vraiment ? »
+« Alors on s'est vraiment rapprochés ? »
 
-Personne ne pourrait facilement répondre oui.
+Personne ne répondit. Sern ramena le panneau d'enregistrement vers lui, et Seorin, à côté de Sion, se tourna vers le hublot. Dehors, c'était toujours noir.
 
-Que ce soit plus proche.
-Que ce soit entré sous un angle.
-On ne sait toujours pas s'il s'est glissé dans une couche entièrement différente.
+Luhai, adossé à la paroi et silencieux depuis longtemps, alluma et éteignit sa lampe torche plusieurs fois, puis marmonna très bas.
 
-Mais au moins
-c'était différent du vide juste après avoir quitté Hazran.
-Le sentiment commençait à se former que quelque chose de vraiment différent les attendait.
+« Hazran, on en a été arrachés, mais ce vaisseau, on dirait qu'il a toujours fréquenté ce genre d'endroits. »
 
-Luhai s'appuya contre le mur et ne dit rien pendant un long moment.
-Puis il marmonna très bas.
+À ces mots, Han Jiwoo se retourna vers le panneau. Ni elle, ni Sern, ni Seorin, ni Sion ne le contredirent.
 
-« Nous avons été arrachés à Hazran »
-« Mais ce vaisseau semble avoir l'habitude de voyager dans des endroits comme celui-ci. »
+Han Jiwoo prit le couvercle du panneau, mais le reposa sans le fermer. Elle laissa l'intérieur à découvert.
 
-Cette phrase était dure,
-ce qui l'a fait s'attarder plus longtemps.
+Sion alla vers la paroi, à deux empans du panneau. C'était l'endroit des deux traits tracés à l'ongle, et une plaque de métal rapportée s'y était soulevée d'un demi-empan. Il la détacha du bout des doigts. C'était la plaque où étaient tracés les deux traits.
 
-Jiwoo ne pouvait pas discuter.
-Sern non plus.
-Ou Seorin.
-Ou Sion.
+Il ne traça pas de troisième trait. Il effleura une fois les deux traits du bout du doigt et mit la plaque dans sa poche.
 
-Parce que tout le monde ressentait la même chose depuis un moment.
+Aka scruta une fois encore le point condensé à l'intérieur du panneau. Elle s'en approcha pour regarder, mais n'y toucha pas.
 
-Ce vaisseau ne s'était pas simplement enfui.
-Il est peut-être plus proche de la vérité qu'il ait commencé à retracer,
-à l'ancienne, aucun d'eux ne le savait,
-les endroits où il pourrait initialement aller.
+« C'est encore loin. »
 
-Aka regarda une fois de plus le point condensé à l'intérieur du panneau.
-et dit, très bas.
+Quand Sion la regarda, Aka continua.
 
-« Encore loin. »
+« Mais maintenant, on passe par là où c'est pas. »
 
-Sion la regarda.
+Sern leva très légèrement les yeux. Il retira le doigt du panneau d'enregistrement, regarda Aka, revint au panneau d'enregistrement et effaça une ligne.
 
-Aka continua.
+Han Jiwoo le vit.
 
-« Mais maintenant, nous traversons là où ce n'est pas le cas. »
+« T'as effacé quoi ? »
 
-Sern leva très légèrement les yeux.
-C'était une phrase qu'il pouvait comprendre à sa manière aussi.
+« C'était une hypothèse erronée. »
 
-La réponse est encore loin.
-Mais des directions qui ne peuvent être exclues sont apparues.
-Et c'était déjà
-une étape différente du vide.
+Sern répondit.
 
-Sion relâcha sa main de la balustrade et inspira lentement.
+« J'avais noté que nous avions rompu la poursuite. »
 
-Cet air était encore loin.
-Mais maintenant, clairement,
-cela ne ressemblait plus au monde étrange au-delà de Hazran.
-C'était comme si l'air d'un ordre différent les attendait.
+Han Jiwoo regarda de nouveau l'intérieur du panneau.
 
-Froid.
-Ordonné.
-Beau, mais étrangement inconfortable.
+Devant le hublot, Sion inspira lentement. Sans même y poser la main, il savait que le hublot était froid. À côté de lui, Seorin y posa la main : l'empreinte de sa paume resta un instant, puis s'effaça.
 
-Toujours invisible,
-mais on a déjà l'impression d'être dans un monde qui trierait les gens plutôt que de les accueillir.
+« Ça doit pas être un bon endroit. »
 
-dit Sion à voix basse, sans le vouloir.
+Sion parla à voix basse.
 
-« Je ne pense pas que ce soit un bon endroit. »
+Luhai répondit, sans même parvenir à un rire bref.
 
-Luhai répondit sans parvenir à sourire.
+« Si c'était un bon endroit, ça aurait pas appelé des gens comme nous. »
 
-« Si c'était bien, cela n'aurait pas appelé des gens comme nous. »
+Personne à bord du vaisseau ne rit.
 
-Ce n'était pas une blague.
+Kael éteignit sa lampe torche, et Han Jiwoo se rassit devant le panneau. Le doigt de Sern se remit à descendre le long du panneau d'enregistrement, et Aka s'écarta du hublot pour s'adosser à la paroi.
 
-Personne à l’intérieur du vaisseau n’a ri.
+Ater ne bougea pas de sa place, du côté de la coursive, où il se tenait depuis le début. Il ne regardait pas le hublot mais les gens, les gens de Hazran. Le vieil homme remarqua ce regard et baissa la tête, mais Ater ne baissa pas la tête et ne détourna pas non plus les yeux.
 
-La planète des machines n'était toujours pas visible.
-Mais l'air de ce monde
-était déjà arrivé le premier,
-pénétrant lentement dans leurs poumons.
+Le bruit de la coque changea.
+
+La première à s'en apercevoir fut Han Jiwoo. Elle retira les mains du panneau et colla l'oreille contre la paroi.
+
+« Le bruit a changé. »
+
+Kael ralluma sa lampe torche.
+
+« C'est pire ? »
+
+« Non. »
+
+Han Jiwoo décolla l'oreille.
+
+« C'est régulier. Ce vaisseau n'a jamais été aussi régulier. »
+
+Même après s'être écartée de la paroi, elle la regarda encore une fois.
+
+Luhai posa la paume sur le sol, sous ses pieds.
+
+« C'est vrai. »
+
+Il ne retira pas la main.
+
+« En quittant Hazran, j'avais la plante des pieds qui fourmillait. »
+
+Kael aussi s'accroupit et posa la main sur le sol, et tous deux restèrent ainsi un moment. Le vieil homme de Hazran qui les observait posa à son tour la paume sur le sol, et l'enfant fit de même. Personne ne parla.
+
+La planète des machines n'était pas encore visible, et dehors, derrière le hublot, c'était noir.
+
+Sion referma les yeux. Cet air était là. Un peu plus proche que tout à l'heure.
+
+Il ne rouvrit pas les yeux.
 
 ---
 

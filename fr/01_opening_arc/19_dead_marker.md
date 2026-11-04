@@ -105,7 +105,6 @@ Le regard de Han Jiwoo changea aussitôt.
 
 « Silence, tout le monde. »
 
-L'air de la cabine retomba d'un coup.
 Sion effaça son sourire, et Seorin avait déjà porté la main vers le coffre. Sern calculait ensemble la fréquence du voyant et la décélération du vaisseau, et Ater, sans un mot, regardait les vagues images rémanentes sur le tableau de bord.
 
 Han Jiwoo tapota deux fois un côté du panneau, et le dispositif d'écoute extérieur de la coque s'ouvrit très légèrement.
@@ -270,7 +269,7 @@ Quatre. Quatre. Trois.
 
 Personne ne savait qui en avait pris un. Seulement, on n'avait rien posé à la place, et c'est pour cela que ce qui restait continuait de pleurer par trois.
 
-En écoutant ce son, Sion comprit, avec retard, que le fragment qu'il avait tenu en main aujourd'hui pleurait lui aussi de cette façon.
+En écoutant ce son, Sion comprit, avec retard, que le fragment qu'il avait tenu en main à R-12 pleurait lui aussi de cette façon.
 
 Ça sonne juste, mais il en manque un.
 

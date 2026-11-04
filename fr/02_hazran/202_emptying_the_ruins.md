@@ -13,7 +13,6 @@ Seorin fut la première à avancer. Sans hâte, une marche après l'autre, comme
 
 « On remet en ordre. »
 
-Ces mots brefs sonnaient plus las qu'un ordre d'engager le combat.
 Sern ne les nota pas ; il regarda le mur.
 
 « Les connexions supérieures subsistent encore. Elles ne sont pas tout à fait mortes. Des lignes d'ordre demeurent. »
@@ -46,7 +45,7 @@ Seorin avait répondu.
 
 « Autant qu'on en a montés. »
 
-Kael retira son pied de la ligne de pliure, et sa cheville se tordit.
+Kael retirait son pied de la ligne de pliure quand sa cheville se tordit.
 
 Han Jiwoo regarda en bas par-dessus la rambarde : trois androïdes s'y tenaient, mais pas au même rythme.
 L'un regardait sa main.
@@ -60,9 +59,11 @@ Han Jiwoo dit très bas :
 Le dernier androïde regarda les trois. Puis sa propre main, et celui qui avait la main sur le visage.
 Sa main ne monta pas jusqu'à son visage. Cela, c'était déjà fait une fois.
 
+Han Jiwoo parla.
+
 « Pour toi aussi, c'était une première, hein ? »
 
-Le regard du dernier androïde descendit sur sa main. Cette main se ferma, se rouvrit, puis vint toucher les lignes de son visage.
+Le regard du dernier androïde descendit sur sa main. De cette main qu'il avait fermée puis rouverte, il toucha enfin les lignes de son visage.
 
 Une section plus bas dans l'escalier, les plaques de deux robots de Serakion effondrés gisaient au sol, et quelques androïdes s'étaient arrêtés à côté.
 Autrefois, à cette distance, l'ordre serait venu en premier ; mais personne ne bougea le premier.
@@ -229,7 +230,7 @@ Il dit très bas :
 
 « On y va. »
 
-C'était bref. Seorin descendit la première, et les autres suivirent en file.
+Seorin descendit la première, et les autres suivirent en file.
 Tout au bout, les deux androïdes nouvellement éveillés s'y joignirent avec un temps de retard, chacun à son propre rythme.
 Quand Han Jiwoo se retourna, ils étaient là.
 Sans qu'elle ralentisse, ils continuaient de suivre.

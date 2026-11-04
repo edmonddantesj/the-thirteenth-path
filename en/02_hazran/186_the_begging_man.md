@@ -70,7 +70,7 @@ The two old machines turned their heads that way at once. Sern lifted his eyes f
 
 Out of the dark of the upper-level junction on the right, a person stumbled into view, nearly falling.
 
-It was the man who had been rescued a few days earlier.
+It was the man who had vanished from his place by the wall a few days earlier.
 
 His clothes were the same ones he had worn a few days ago, leaning against the wall. The tears were the same too, and there were no new ones.
 

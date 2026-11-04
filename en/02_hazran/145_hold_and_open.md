@@ -64,7 +64,7 @@ Ater asked from beside him.
 
 Kael answered briefly.
 
-"A big one. Stopping troops means you mean to fight. Cutting the flow means you mean to scatter them."
+"A big one. Stopping troops means you mean to fight. Cutting the flow means you mean to split them off from each other."
 
 Ater looked at the bulkhead's pattern and its lines.
 
@@ -120,7 +120,7 @@ Han Jiwoo asked the second.
 
 "Three. One came out."
 
-The open bulkhead Han Jiwoo saw had its pattern joined up again, but behind it, two had been shut in. She didn't look away.
+The open bulkhead Han Jiwoo saw had its pattern joined up again, but behind it, the remaining two were trapped. She didn't look away.
 
 "The one who came out?"
 
@@ -146,7 +146,7 @@ The first paused a beat before answering.
 
 "Depends."
 
-Kael looked at the bulkhead again, then at the width of his own shoulders. His were the eyes of someone counting how many could get past if he stood in front of that bulkhead.
+Kael looked at the bulkhead again, then at the width of his own shoulders. His eyes went between the bulkhead and his shoulders once more.
 
 Watching Kael's back, the second spoke.
 

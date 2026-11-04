@@ -195,13 +195,7 @@ A dot. She paused a moment and, the stone still in her hand, looked at Sion outs
 
 Sion raised his head.
 
-"The Hazran people, the people in here, and the ones who'll break first from watching it."
-
-Seorin said, low.
-
-"From now on, watch that too."
-
-Sion nodded without a word and looked at the man without a younger brother beside him. While the man watched the entrance, Sion stayed where he was, beside him.
+Then he nodded without a word and looked at the man without a younger brother beside him. While the man watched the entrance, Sion stayed where he was, beside him.
 
 Seorin pressed one more dot outside the square, on the entrance side.
 

@@ -6,7 +6,7 @@ Breath, once it had been torn open, did not settle easily.
 Behind them, far off, metal was still striking metal and someone was still closing routes, the sounds tangled together, and the perimeter lights on the port's upper level were going out one by one. Getting out alive had not ended anything. It felt closer to having come out alive and dropped somewhere deeper.
 
 Sion stopped for a moment in the shade under the maintenance bridge.
-He made as if he were catching his breath, but really he was checking again how far the three of them would follow. The Approval Bureau man in the black coat, and his aide. Both of them still looked far too intact, and that made it more irritating.
+He made as if he were catching his breath, but really he was checking again how far the two of them would follow. The Approval Bureau man in the black coat, and his aide. Both of them still looked far too intact, and that made it more irritating.
 
 Seorin's face said she had read it too.
 
@@ -166,7 +166,7 @@ Seorin did not let the opening pass, and cut in.
 
 "Bet it was meant for both of you."
 
-Seorin snickered low. Both of them were insufferable, just insufferable in different ways.
+Then she snickered low. Both of them were insufferable, just insufferable in different ways.
 
 Even through that quick back-and-forth, Sern kept reading the cabin door, the hull vibration, the approach signals outside.
 Then he said,
@@ -185,7 +185,6 @@ The first to say that uncomfortable fact out loud was, surprisingly, Ater.
 "Just now… we would not have gotten out without you."
 
 Sion didn't answer right away.
-It was strangely honest, and that grated on him more.
 
 A few beats later, he made himself speak too.
 
@@ -199,7 +198,7 @@ Sern took it with an indifferent face.
 
 "It is not quite a reconciliation."
 
-"Yeah. I can see that much."
+"Yeah. I can see that much," Seorin replied.
 
 A short silence.
 
@@ -250,7 +249,6 @@ Only then did Sion speak.
 
 "Elia Vern."
 
-When the name came out, the air in the cabin shifted thin once more.
 Sern had never heard the name, but from how the three who knew it reacted, he could read that it was no simple personal name.
 
 "Is she someone who can be trusted?"
@@ -258,8 +256,6 @@ Sern had never heard the name, but from how the three who knew it reacted, he co
 At Ater's question, Sion shook his head immediately.
 
 "No."
-
-The answer came so fast that it was all the more accurate.
 
 "Then why go?"
 

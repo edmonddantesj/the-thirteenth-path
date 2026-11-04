@@ -73,8 +73,6 @@ Luhai le saltó al instante.
 
 —¿Y quiere decir que el listo eres tú?
 
-El aire del callejón se detuvo un instante muy breve.
-
 El comerciante se puso lívido, y algunos de los que miraban apartaron la vista del todo. Hasta en la capa exterior de Hazran, una boca así podía llevar un precio alto. La clase de boca que divierte si sobrevive y que se rompe en el acto si da con quien no debe.
 
 Aun así, Nasim no retiró la sonrisa.
@@ -157,8 +155,6 @@ Nasim ladeó la cabeza muy poco.
 Lo contestó él.
 —Si no miras el precio, ¿qué vas a mirar?
 
-No le faltaba razón, y por eso resultaba más desagradable.
-
 Al final de ese breve cruce, Sion volvió a pensar en el nombre de Aka. Era muy probable que también Aka circulara aquí de la misma manera. No como un nombre, sino como un precio; no como un rumor, sino como algo que se administra. La sensación de que la eterita y Aka podían estar bajo la misma línea se volvía cada vez más espesa.
 
 Luhai seguía sujeto por la mano de Kael, pero la boca no se le detenía.
@@ -184,7 +180,7 @@ La mano de Kael volvió a apretar un poquito más.
 —¿Sabes algo?
 Cuando Sion lo preguntó, Luhai no respondió enseguida. Esta vez calculó de verdad. Hasta dónde tenía que hablar para que lo vendieran menos, hasta dónde tenía que callar para sobrevivir más tiempo. Era el silencio propio de un chico de cabeza rápida.
 
-Pero Nasim puso sus palabras encima de ese silencio antes que él.
+Nasim puso sus palabras encima de ese silencio antes que él.
 
 —No te agarres mucho tiempo a ese nombre aquí afuera.
 Lo dijo con suavidad.
@@ -206,7 +202,6 @@ La gente retrocedió un paso más, el comerciante agachó del todo la cabeza y a
 Nasim murmuró muy bajo.
 
 —Ahora sí viene la mano que cuenta de verdad.
-Lo dijo así.
 
 Sion no preguntó qué quería decir.
 

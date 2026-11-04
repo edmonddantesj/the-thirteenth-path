@@ -52,8 +52,6 @@ Y la voz del otro lado de la esquina volvió.
 
 —Lo sé.
 
-Con esas dos palabras, el aire cambió.
-
 El que huía tampoco ignoraba su propia situación. Quería decir que lo sabía todo: que el fragmento más grande era inestable, que no podía salir a salvo antes de dejar atrás el siguiente discriminador, y hasta que los que venían tras él no eran simples rastreadores.
 
 Ater preguntó muy bajo.
@@ -76,8 +74,6 @@ Seorin preguntó enseguida.
 Sern respondió.
 —Solo hay una respiración.
 
-Con esa frase, la presencia del otro lado de la esquina se volvió un poco más nítida.
-
 Sion habló muy despacio.
 
 —No eres del Imperio, y tampoco de la Alianza.
@@ -86,9 +82,7 @@ Desde el otro lado de la esquina se escapó un aliento parecido a una risa corta
 
 —Si fuera de esos dos, ya habría empezado por dispararle a la gente.
 
-Seorin, que se había quedado del lado del casco, seguramente también cambió de expresión con esa sola frase corta.
-
-Esa sola frase corta bastaba. El otro no había venido a pelear directamente. Su objetivo seguía estando más cerca de recuperar algo y salir. Aun así, no podían confiarse. Un solo error, y se convertía en enemigo en el acto.
+El otro no había venido a pelear directamente. Su objetivo seguía estando más cerca de recuperar algo y salir. Aun así, no podían confiarse. Un solo error, y se convertía en enemigo en el acto.
 
 Sion preguntó.
 
@@ -126,7 +120,7 @@ Sern lo entendió al instante.
 
 La mano de Sion fue sola hasta el bolsillo de recuperación. Allí estaba la esquirla del tamaño de una uña que había recogido debajo de la ranura.
 
-Lo había dejado sabiendo que estaba roto. No había sido por no saberlo.
+Lo había dejado sabiendo que estaba roto.
 
 —Eso lo recogimos nosotros —dijo Sion.
 
@@ -137,8 +131,6 @@ Lo había dejado sabiendo que estaba roto. No había sido por no saberlo.
 —Porque para sacar también eso me hacía falta una mano más.
 
 Al oírlo, Sern levantó la mirada.
-
-Una mano más. Eso quería decir que, si hubiera habido una persona más, no lo habría tirado.
 
 Sion no pudo lanzarse con más prisa. Lo importante ahora no era atraparlo en sí. Era confirmar qué sabía esa mano, hasta dónde había leído y por qué había pasado sola por aquella estructura antes que nadie.
 
@@ -193,7 +185,7 @@ Ater se quedó un momento sin responder.
 
 Esta vez el otro lado de la esquina se quedó callado mucho más tiempo.
 
-Sion, a su lado, miró a Ater. Lo que acababa de hacer aquel hombre era decir primero de qué lado estaba. Si el otro, al oírlo, se echaba atrás, la conversación terminaba ahí.
+Sion, a su lado, miró a Ater. Si el otro, al oírlo, se echaba atrás, la conversación terminaba ahí.
 
 —…¿Eres de la Cámara de Reconocimiento?
 
@@ -215,9 +207,9 @@ Seorin soltó el aire muy despacio.
 
 —Por fin esto empieza a parecer una conversación.
 
-La presencia del otro lado de la esquina no respondió a eso.
+La presencia del otro lado de la esquina no dijo nada más.
 
-En su lugar, al instante siguiente, el borde de la placa más grande que sostenía se dejó ver un momento con algo más de nitidez en la oscuridad. No era una entrega completa. Tampoco una amenaza. Solo parecía decir que el otro tampoco pensaba cortar del todo aquella conversación.
+En su lugar, al instante siguiente, el borde de la placa más grande que sostenía se dejó ver un momento con algo más de nitidez en la oscuridad. Parecía que el otro tampoco pensaba cortar aquella conversación.
 
 Pero justo entonces, más adentro de la estructura, una reacción de discriminación se apagó de golpe.
 
@@ -225,7 +217,7 @@ Sern habló casi al mismo tiempo.
 
 —Es ahora.
 
-Nadie necesitó volver a explicar qué quería decir. Si no tomaban una decisión ya, podían perder las tres cosas a la vez: el fragmento, la conversación y el camino.
+Si no tomaban una decisión ya, podían perder las tres cosas a la vez: el fragmento, la conversación y el camino.
 
 En ese momento, la línea de recuperación que Sion llevaba a la cintura dio un tirón.
 
@@ -233,7 +225,7 @@ Uno.
 
 Dos tirones querían decir que saliera, y tres, que se cortaba; así que uno era una señal que no estaba en lo acordado.
 
-Sion abrió el canal, en voz muy baja.
+Sion preguntó por el canal, en voz muy baja.
 
 —¿Qué pasa?
 

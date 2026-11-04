@@ -31,8 +31,6 @@ Zahir poursuivit.
 Il poursuivit :
 « Une main qui veut tenir le vrai doit le porter jusqu'au bout, jusqu'à la sortie. »
 
-À l'instant où cette phrase tomba, Sion sentit plus nettement encore que ce que cet homme s'apprêtait à proposer n'était pas un simple échange. Ici, qu'il s'agît d'un objet ou du nom d'une personne, tout finissait ramené à la même question : “qui est capable d'assumer le vrai”.
-
 Ater demanda calmement.
 
 « Un test ? »
@@ -93,7 +91,7 @@ Seorin demanda aussitôt.
 
 « De quelle manière ? »
 
-Zahir regarda une fois du côté de Nahira et d'Aka, une fois du côté de Luhai et de l'éthérite, et une dernière fois du côté de Sion et de Kael. Comme un homme qui, par ces trois brefs regards, vérifiait de nouveau que les valeurs entrées dans la partie se divisaient en trois.
+Zahir regarda une fois du côté de Nahira et d'Aka, une fois du côté de Luhai et de l'éthérite, et une dernière fois du côté de Sion et de Kael.
 
 « À la manière de Hazran. »
 Il poursuivit :
@@ -109,8 +107,6 @@ Ater demanda avec beaucoup de précaution.
 
 « Aka aussi entre dans cette partie ? »
 
-À cette question, l'air de la pièce se figea, très imperceptiblement.
-
 Le regard de Haroun se refroidit le premier, et l'expression de Nahira s'effaça au contraire davantage. Aka restait silencieuse, mais à cet instant Sion vit son regard vaciller, très faiblement, pour la première fois. Moins de la peur qu'un vacillement proche du malaise de quelqu'un qui connaissait déjà cette possibilité.
 
 Zahir ne répondit pas tout de suite.
@@ -118,8 +114,6 @@ Zahir ne répondit pas tout de suite.
 À la place, il dit très lentement :
 
 « Aka, c'est moi qui en décide. »
-
-Ces seuls mots suffisaient.
 
 Aka ne protesta pas. À la place, elle gardait la tête telle qu'elle l'avait relevée tout à l'heure, en demandant à Zahir où se tiendrait la partie. Elle ne la baissa pas, ne la releva pas davantage.
 
@@ -148,8 +142,6 @@ Zahir, malgré tout, n'éleva pas la voix.
 « Peut-être pas, en effet. »
 Il poursuivit :
 « C'est pour ça qu'on regarde la partie. »
-
-Ces mots sonnaient moins comme une menace que comme une certitude. Quoi que l'on dise, cet homme comptait vérifier la fin sur la partie elle-même.
 
 Au milieu de cet échange, Luhai claqua discrètement la langue.
 

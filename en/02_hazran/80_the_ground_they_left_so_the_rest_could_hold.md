@@ -44,7 +44,7 @@ The unit that had lost its angle moved aside on its own.
 
 Sion stopped breathing there.
 
-Yesterday it hadn't been like that. Yesterday the one that lost its angle had just been dragged along until the back stepped over it. Today the front got out of the way first. The back came straight into the place it had left, and coming in took not even one step.
+Earlier it hadn't been like that. Earlier the one that lost its angle had just been dragged along until the back stepped over it. This time the front got out of the way first. The back came straight into the place it had left, and coming in took not even one step.
 
 Sern said one thing, low, and went down below.
 
@@ -56,9 +56,9 @@ Ater did not go down.
 
 At those words Sion looked not outside but at this side.
 
-"Then what about yesterday?"
+"Then what about earlier?"
 
-"Yesterday?"
+"Earlier?"
 
 "The thing about the two on the right being on the same axis."
 
@@ -82,9 +82,9 @@ Ater paused there once.
 
 To Sion, that did not sound like comfort.
 
-What they had read yesterday worked less today. Tomorrow it wouldn't work. Every time the other side went through Hazran once, one of the things Hazran could use was gone.
+What they had read earlier worked less now. Next time it wouldn't work. Every time the other side went through Hazran once, one of the things Hazran could use was gone.
 
-Sion took out the calculation he had made yesterday.
+Sion took out the calculation he had made earlier.
 
 Read it once and you could take down three, and the other side filled that in with two or three steps. Keep earning two or three steps at a time and it would pile up, at least—that was what he had thought.
 
@@ -120,7 +120,7 @@ His voice was different from usual.
 
 Sion knew how strange a thing that was to say.
 
-The man who read price best in this city was telling them to throw price away. Until yesterday morning, this man had looked at heat-venting cord gone up to four for one and worked out what was coming.
+The man who read price best in this city was telling them to throw price away. As recently as the morning before last, this man had looked at heat-venting cord gone up to four for one and worked out what was coming.
 
 But because it was strange, it was right.
 
@@ -174,13 +174,13 @@ Someone passing threw a single cloth over them. The motion was fast. Covering it
 
 Sion recognized the cloth as heat-shield cloth. It had come out of the storehouse they had just abandoned.
 
-Then Sion remembered yesterday.
+Then Sion remembered earlier.
 
-Yesterday Luhai had counted on his fingers at the entrance. Fourteen going out, and thirteen came in. Sion hadn't seen that one. He had known only by the number.
+Earlier Luhai had counted on his fingers at the entrance. Fourteen going out, and thirteen came in. Sion hadn't seen that one. He had known only by the number.
 
-Today he saw.
+This time he saw.
 
-That one yesterday must have gone like this too. It had gone like this where Sion wasn't looking, and for as long as Luhai kept his fingers up and waited, they hadn't come.
+That one earlier must have gone like this too. It had gone like this where Sion wasn't looking, and for as long as Luhai kept his fingers up and waited, they hadn't come.
 
 Luhai was counting even now.
 

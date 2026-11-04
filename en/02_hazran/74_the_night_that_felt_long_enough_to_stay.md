@@ -53,8 +53,6 @@ Sion held on to that for a moment.
 Han Jiwoo said, turning the bonding plate over.
 "It's making it hold a long time on things that don't quite fit. It's always like that."
 
-To Sion, that sounded strangely like reassurance.
-
 Not enough. That also meant it was not over yet. It also meant it was not a completely wrong road.
 
 Aka came out a little later.
@@ -97,8 +95,6 @@ Then, a beat later, she asked. Her voice was exactly the same as before.
 
 "Still don't remember where your Kael is from?"
 
-The air stopped for just a moment.
-
 Sion did not catch at once where that question had come from. He only knew that Seorin was asking the same thing a second time. The first had been on the ship, and that time too Seorin had used this voice.
 
 Kael did not take his hand off the metal plate on his knee.
@@ -113,9 +109,9 @@ Sern had listened quietly to that short exchange, then wore the face of someone 
 
 Only Sion knew that something had passed between the two of them, and he still did not know what it was.
 
-Seorin left the three of them talking behind her and suddenly looked toward the far end of the market.
+Seorin went a few more steps and suddenly looked toward the far end of the market.
 
-It had grown darker there than before. But it was not a completely dead stretch. If anything, small lights not seen by day were alive here and there. Toward the arena under repair, the return-line section Harun would still be working on, the outskirts where the patrol ships of Zahir's people drifted slowly back and forth.
+It had grown darker there than before. Still, it was not a completely dead stretch. If anything, small lights not seen by day were alive here and there. Toward the arena under repair, the return-line section Harun would still be working on, the outskirts where the patrol ships of Zahir's people drifted slowly back and forth.
 
 Hazran seemed less a place that slept than a place that held on, at night, in a different way.
 
@@ -134,8 +130,6 @@ It was strange. No danger was upon them yet. But he could not be fully at ease.
 It was less fear than closer to a sense that this night was beautiful, and would be remembered longer for it.
 
 Beautiful nights rarely last long.
-
-The thought brushed past, but Sion did not bother to say it aloud.
 
 Luhai was turning a skewer of dried fruit he had picked up who knew where, and Kael was spreading out the pieces on his knees again, working out what to use first and what to put off till later. Han Jiwoo had sat right down on the ground and kept touching the edge of the bonding plate with her fingertips, and Aka stood a little apart, outside all those people.
 
@@ -218,10 +212,6 @@ beside him the people who would leave with him,
 and a Hazran night he had not yet seen all of.
 
 The cord at his wrist tightened a little. It was where Seorin had pulled it once more, earlier.
-
-Just for tonight, it really felt as though he could stay a little longer.
-
-And so it was all the more a night that did not feel like it would end easily.
 
 ---
 

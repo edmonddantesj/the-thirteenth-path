@@ -34,13 +34,13 @@ Sion lo dijo en voz baja.
 
 Cuando terminó la línea que corría bajo las estructuras muertas, volvió a aparecer la ancha superficie de enlace que se pegaba a la capa exterior del patio central de Hazran. Era el mismo lugar que la línea de salida que habían visto antes de empezar la carrera y, sin embargo, ahora se veía completamente distinto. Las carpas rojas estaban medio volcadas, parte de la baranda de la tribuna se había derrumbado y la gente ya no estaba de pie como simples espectadores. Unos se habían echado atrás, otros seguían mirando hacia dentro y otros calculaban de qué lado se pondrían después.
 
-Y en medio de todo, Zahir seguía de pie.
+Y en medio de todo, de pie, estaba Zahir.
 
 Esta vez no estaba sentado.
 
 A Sion eso le pareció, de forma extraña, todavía más grande. Hasta entonces Zahir siempre había sido el hombre que, sentado en su sitio, veía rodar hacia él las apuestas. Pero ahora estaba levantado. Como alguien que, al menos esa última escena —quién volvía hasta delante de él con lo verdadero—, no pensaba recibirla sentado.
 
-Nasim estaba medio paso detrás de él, y Harún, más a un lado. Nahira tapaba a medias a Aka, Luhai había bajado hasta el pie de la baranda e iba casi inclinado hacia dentro, y Seorin y Ater ya no tenían cara de espectadores, sino de estar listos para volver a entrar en la partida.
+Nasim estaba medio paso detrás de él, y Harún, más a un lado. En la tribuna, Nahira tapaba a medias a Aka, Luhai había bajado hasta el pie de la baranda e iba casi inclinado hacia dentro, y Seorin y Ater ya no tenían cara de espectadores, sino de estar listos para volver a entrar en la partida.
 
 En el instante en que los dos aparatos llegaron ante el centro, el ruido de la multitud se alzó una vez con fuerza y se apagó solo.
 
@@ -120,8 +120,6 @@ Zahir apartó la mirada de la brasa y la alzó hasta la cara de Sion.
 Lo dijo Zahir.
 —¿Quién ha estropeado la partida?
 
-Esta vez el aire del patio se detuvo con un sentido distinto al de antes.
-
 Aquello ya no era solo cuestión del ajuste de cuentas de la carrera.
 La mano que llevaba lo verdadero había vuelto viva, y entonces también había que ajustar cuentas sobre quién había roto las reglas.
 
@@ -161,7 +159,7 @@ Las palabras ya habían salido.
 
 Zahir giró la cabeza por primera vez.
 
-Apartó los ojos de la brasa que Sion tenía en la mano y miró hacia la tribuna. Miró, entre los que estaban allí, hacia un lado que hasta entonces Zahir no había mirado.
+Apartó los ojos de la brasa que Sion tenía en la mano y miró hacia la tribuna. Miró hacia un lado al que, hasta entonces, no había dirigido ni una sola mirada.
 
 —¿De quién es esa niña?
 
@@ -173,7 +171,7 @@ Zahir preguntó sin mirar a Nasim.
 
 —¿Se le puede preguntar a la niña?
 
-Había dicho «¿se puede preguntar?», no «¿me permitirían preguntarle?». Sion captó la diferencia. El que estaba más alto en el patio acababa de poner a una niña sobre la partida.
+Tenía forma de pregunta, pero no era una petición de permiso. Sion captó la diferencia. El que estaba más alto en el patio acababa de poner a una niña sobre la partida.
 
 La sonrisa de Nasim desapareció del todo.
 
@@ -208,14 +206,6 @@ Sion se miró la mano.
 La brasa estaba igual que antes. No había crecido ni se había hecho más pequeña.
 
 En aquella ciudad, era lo único cuyo precio no había cambiado.
-
-En ese momento, Sion lo supo.
-
-A partir de aquí,
-ya no era la escena en que demostraban haber vuelto vivos,
-sino la escena en que se decidía con la sangre de quién se saldaría ese resultado de haber vuelto vivos.
-
-Y en medio de todo, en su propia mano, estaba lo verdadero.
 
 ---
 

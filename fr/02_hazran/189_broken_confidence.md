@@ -1,162 +1,317 @@
 # Chapitre 189 — La certitude qui s'effondre
 
-Serakion restait plus rapide,
-plus lisse,
-et disposait de plus d'individus.
+Serakion restait plus rapide, plus lisse et plus nombreux.
 
-Mais à mesure que le deuxième combat s'enfonçait,
-Sion fut gagné par une étrange certitude.
+Les lignes de rétablissement revenaient par le chemin le plus court, et les lignes de chute se recalaient à la hauteur la plus basse. Chaque place vide, l'unité la plus proche la comblait. Trois fois, quatre fois, de la même manière.
 
-Ce qui s'usait en premier, à présent,
-ce n'était pas seulement l'endurance de leur camp.
+Sern traçait un trait à chaque fois sur le panneau d'enregistrement, et les traits s'alignaient, tous de la même longueur.
 
-La manière même dont Serakion croyait en son propre ordre
-commençait, peu à peu, à grincer.
+« C'est la même chose. »
 
-C'était le genre de fissure presque invisible de l'extérieur.
+Il parla.
 
-Les lumières d'annonce restaient nettes,
-les couloirs restaient trop propres,
-et les mouvements de la légion restaient bien plus précis que ceux des humains.
+« La cinquième aussi a pris le chemin le plus court. »
 
-Mais c'était justement à cause de cette précision
-que de plus en plus de choses devenaient lisibles.
+« Et la sixième ? »
 
-Les lignes de rétablissement revenaient toujours par le chemin le plus court,
-les lignes de chute reprenaient toujours la hauteur la plus efficace,
-et la disposition des individus s'alignait toujours de façon à combler au plus vite l'endroit où une perte avait eu lieu.
+Seorin posa la question.
 
-Autrement dit, Serakion répétait “la méthode qui marche le mieux”.
+« Elle n'est pas encore venue. »
 
-Et leur camp
-commença à dévorer justement cette répétition.
+« Dis-le quand elle vient. »
 
-Seorin n'éleva pas la voix une seule fois.
-Pendant tout ce combat, sa voix resta basse et brève.
+Sern ne quitta pas des yeux le panneau d'enregistrement. Han Jiwoo y jeta un regard par-dessus : il y avait cinq traits de la même longueur, et elle regarda ses cinq doigts.
 
-Et c'était pour cela qu'elle faisait plus peur.
+Seorin ne criait pas. Pendant tout ce combat, sa voix était restée basse, et brève.
 
-Elle ne mesurait pas ses forces de front contre Serakion ;
-les choix que Serakion jugeait les plus sûrs,
-elle les faisait échouer, un par un, sans relâche.
+« Pas touche à la deuxième ligne. »
 
-« Touchez pas à la deuxième ligne. »
 Elle parla bas.
-« Prenez la troisième quand elle revient. »
 
-À première écoute, ces mots pouvaient sembler étranges.
-Pourquoi ne pas frapper tout de suite l'ennemi qu'on avait sous les yeux,
-et attendre plutôt la ligne qui arrivait derrière pour réparer ?
+« La troisième qui revient, on l'attrape. »
 
-Mais Sion, désormais, pouvait comprendre.
+Depuis l'axe droit, Luhai la regarda.
 
-Seorin n'affrontait pas la légion :
-elle affrontait “l'habitude de correction” de Serakion.
+« Je l'ai juste devant moi. »
 
-Si leur camp laissait exprès une partie de la première ligne debout,
-Serakion chercherait forcément à combler la brèche de la manière la plus efficace.
-Et c'était cette efficacité même
-qui devenait à présent un piège.
+« Ce que tu as devant toi, laisse-le comme appât. Eux, ils comblent toujours les vides. Attrape ce qui vient combler. »
 
-Ater, posté au bord du passage supérieur, envoya un signal bref et sec.
+Luhai garda sa barre de fer baissée et attendit ; la deuxième ligne était juste devant lui, mais il ne frappa pas.
 
-« Ils arrivent. »
-« Même angle. »
+Une unité de la deuxième ligne le regarda de ses yeux optiques, puis regarda la barre de fer baissée de Luhai. Elle s'approcha d'un demi-pas, puis, comme Luhai ne reculait pas, s'arrêta. Derrière Luhai, ce n'était pas vide. Une vieille machine s'y tenait. Les yeux optiques de l'unité allèrent à cette machine, puis revinrent à sa propre ligne.
 
-À peine ces mots tombés,
-trois individus de la légion de Serakion descendirent du bout du passage supérieur vers le couloir d'en bas.
-L'intervalle entre eux était presque parfaitement identique.
-Les trois pieds touchant le sol ne firent qu'un seul bruit.
+« Qu'est-ce qu'il y a ? »
 
-Un mouvement aligné au point d'en être beau.
-C'est justement pour cela que Sion eut la chair de poule.
+Luhai parla bas.
 
-Serakion ne pouvait renoncer à son esthétique, jusqu'au bout.
-Même à l'instant où tout se brisait,
-le classement, l'alignement et l'ordre restaient impossibles à abandonner.
+« Pourquoi elle vient pas ? »
 
-Et cette fois,
-cela devint tel quel une faiblesse.
+« Parce que derrière toi, ce n'est pas vide. »
 
-Sion, exprès, avec un demi-temps de retard, toucha une ligne de jointure entre le mur et le sol,
-et une jointure de plaque de chute, au-dessus de leurs têtes, se tordit en grinçant.
+Kael parla depuis la gauche.
 
-À cause de ce petit décalage,
-deux des trois individus qui descendaient alignés
-posèrent le pied en même temps sur la même case du sol.
+« Eux, ils ne vont que là où c'est vide. »
 
-Ce fut un instant.
+Luhai regarda la vieille machine derrière lui. Il ne bougea pas d'un demi-pas.
 
-Mais deux anciennes machines attendaient cet instant.
+Au bord du passage supérieur, Ater envoya un signal bref et sec.
 
-L'une fit d'abord céder la jambe du dessous,
-l'autre poussa vers le couloir latéral l'individu que la collision avait déséquilibré.
+« Ils arrivent. Sous le même angle. »
 
-Autrement dit,
-leur camp ne s'acharnait pas à briser d'un coup l'ordre parfait de Serakion.
-À la place, il ne touchait, encore et encore, que “l'instant où l'ordre se fie trop à lui-même”.
+Trois unités descendirent du bout du passage supérieur, à intervalles égaux. Trois pieds touchèrent le sol, et il n'y eut qu'un seul bruit.
 
-C'était bien plus efficace.
+À ce bruit, Sion sentit sa nuque se tendre. Les épaules des trois unités étaient à la même hauteur, et leurs yeux optiques regardaient devant elles sous le même angle.
 
-Han Jiwoo, depuis l'axe en retrait, lisait toujours l'écart de réaction entre le dernier androïde et la légion.
+D'en haut, Ater baissa les yeux sur les trois.
 
-Elle se tenait si loin derrière qu'on l'aurait presque crue hors du champ de bataille,
-mais en réalité, elle était entrée dans ce combat plus profondément que quiconque.
+« Si elles descendent sous le même angle, elles se placent dans la même case. »
+
+Il parla.
+
+« Si le sol était plus étroit… »
+
+« Le sol reste comme il est. »
+
+Kael parla.
+
+« Il suffit qu'il ait l'air étroit. »
+
+Sion regarda la ligne de jointure de la plaque de chute. La case de sol en dessous était celle où les trois allaient se poser ; il attendit donc un demi-temps.
+
+Avec un demi-temps de retard, il bougea exprès. Il posa la pointe de sa lame sur une ligne de jointure entre le mur et le sol et appuya ; au-dessus de leurs têtes, une jointure de plaque de chute se tordit en grinçant. Elle ne tomba pas : elle s'arrêta, tordue.
+
+Des trois unités qui descendaient, deux posèrent le pied en même temps sur la même case. Les pieds se heurtèrent, et l'une des unités fut repoussée d'un demi-pas.
+
+Deux vieilles machines attendaient là.
+L'une fit plier, tout en bas, la jambe de l'unité repoussée.
+L'autre poussa dans le couloir latéral l'unité qui avait perdu l'équilibre.
+Une épaule racla le mur, avec un long bruit de métal.
+
+La troisième unité resta seule. Arrêtée, elle regarda de côté, et ses yeux optiques s'attardèrent sur les deux places vides.
+Un temps.
+Puis elle regarda devant elle et marcha seule. Trois bruits de pas n'en faisaient plus qu'un.
+
+Han Jiwoo regarda cette unité qui marchait seule. Une unité qui ne s'arrêtait pas, même après avoir regardé de côté.
+
+« Celle-là ne vacille pas. »
+
+Elle parla.
+
+« Même seule. »
+
+« Elle ne sait pas qu'elle est seule. »
+
+Sern parla.
+
+« Elle marche comme si la ligne était là. Elle n'a pas encore compté que la ligne avait disparu. »
+
+« Et si elle compte ? »
+
+« Si elle compte, elle s'arrête. Tout à l'heure, l'une d'elles l'a fait. »
+
+Han Jiwoo suivit l'unité des yeux jusqu'à ce qu'elle tourne l'angle, mais l'unité ne s'arrêta pas.
+
+Quand Luhai vit cette chose marcher seule, sa barre de fer se leva.
+
+« Pas encore. »
+
+Seorin parla.
+
+La barre de fer s'abaissa.
+
+Han Jiwoo se tenait près du panneau mural, sur l'axe en retrait. Les yeux sur l'écart entre le dernier androïde et la légion, elle comptait sur ses doigts.
+
+Première réaction.
+Deux.
+Deuxième réaction.
+Trois.
 
 « Là, ça ne se voit pas. »
+
 Elle parla bas.
+
 « Je regarde la deuxième réaction. »
 
-Ces mots comptaient.
+Le dernier androïde ne hocha pas la tête, ne bougea pas non plus, et attendit.
 
-La première réaction, Serakion pouvait la cacher.
-Mais la deuxième,
-c'est-à-dire la façon dont l'ordre ébranlé cherchait à se rétablir,
-restait encore impossible à dissimuler.
+« C'est quoi, la deuxième ? »
 
-Et le dernier androïde
-commençait désormais à lire jusqu'à cette deuxième réaction.
+Luhai posa la question.
 
-Il ne tenait jamais longtemps une ligne de face.
-Il attirait une fois les regards,
-et, au moment où la légion de Serakion s'apprêtait à se réorganiser autour de lui,
-il s'écartait sur le côté.
+« Comment ils reviennent après avoir été secoués. La première, ils la cachent. La deuxième, ils ne savent pas encore la cacher. »
 
-Ce qui restait alors,
-c'était l'instant où la ligne qui aurait dû être parfaitement comblée
-se chevauchait maladroitement.
+Luhai regarda la légion : la ligne ébranlée revenait par le chemin le plus court.
 
-À chacun de ces instants,
-chacun des axes du plan de Seorin y plantait sa lame.
+« C'est quoi, le chemin court ? »
 
-Sion en sentait désormais nettement la prise dans sa main.
+« Là. »
 
-Et ce combat
-se déroulait dans un calme étrange.
+Du menton, Han Jiwoo désigna la ligne droite entre les deux murs.
 
-Il y avait plus de brefs sons métalliques que de cris,
-les instants où l'alignement se déformait frappaient plus fort que les explosions,
-et l'issue se jouait moins sur la somme des forces que sur “qui lirait le premier la prochaine ligne de correction”.
+« Quand ils reviennent, ils marchent toujours sur cette ligne. Ils n'en sont pas sortis une seule fois. »
 
-C'est alors que,
-au loin, un individu qui faisait face au dernier androïde
-s'arrêta très brièvement.
+Pendant que Luhai regardait la ligne, une unité revint dessus et y posa exactement le pied.
 
-Avant, on y aurait vu un simple écart de réaction.
-Mais cette fois, c'était différent.
+« C'est vrai. »
 
-La ligne de rétablissement qui devait suivre derrière,
-à cause de l'arrêt de ce seul individu, prit du retard sur toute sa longueur.
+« Je l'ai vu trois fois. Là, c'est la quatrième. »
+
+Le dernier androïde s'avança et se plaça devant une ligne. La ligne se reforma autour de cette présence, les épaules réglées sur les siennes.
+À cet instant, l'androïde s'écarta sur le côté.
+Quand la ligne voulut s'écarter à sa suite, la place qui aurait dû être comblée à la perfection se doubla. Deux sur une même place.
+Les plaques d'épaule se heurtèrent.
+
+Sur l'axe gauche, Kael coupa le panneau voisin de la place doublée, et la lumière de la ligne de circulation ralentit. Les deux unités superposées se poussèrent l'une l'autre dans cette lumière ralentie, puis s'arrêtèrent toutes deux.
+
+Sion y enfonça sa lame. Pas dans une unité : dans la ligne de jointure du mur, derrière.
+Le mur recula d'un demi-empan, et les deux unités basculèrent dans ce demi-empan.
+Elles tombèrent.
+
+« Ça se sent dans la main, hein ? »
+
+Luhai parla.
+
+Sion ne répondit pas ; il retira sa lame, puis regarda sa paume humide de sueur.
+
+« Change de lame. »
+
+Kael parla.
+
+« La pointe est partie. »
+
+Sion regarda la pointe : le tranchant avait perdu une dent. Il ne changea pas de lame ; il tourna le côté ébréché vers l'intérieur et la reprit en main.
+
+« Je garde celle-ci. Ma main la connaît. »
+
+Kael n'ajouta rien.
+
+Le combat était silencieux, sans cris. Un bref son métallique, puis un autre. Par-dessus le bruit des lignes qui se chevauchaient et des pas qui se décalaient, le son de guidage passa.
+« Rétablissement de l'alignement. »
+La même voix.
+
+Les deux hommes de Hazran revinrent et redressèrent le panneau mural, mais leurs bras tremblaient. Han Jiwoo les regarda tous les deux.
+
+« L'homme ? »
+
+« Dans la brèche. »
+
+L'un d'eux répondit.
+
+« Une vieille machine l'a pris en charge. »
+
+Han Jiwoo hocha la tête et se glissa d'un demi-pas derrière le panneau mural.
+
+« Est-ce qu'il parle ? »
+
+« Non. »
+
+L'homme de Hazran répondit.
+
+« Il ne veut regarder que le mur. C'est pour ça que la vieille machine l'a assis là où il ne voit pas le mur. »
+
+Han Jiwoo ne demanda rien de plus et regarda son propre poignet. C'était la main qui avait pris le pouls de l'homme. De cette main, elle saisit le panneau mural.
+
+C'est alors qu'une des unités qui faisaient face au dernier androïde s'arrêta.
+
+À deux pas, très brièvement. Les yeux optiques posés sur les lignes pâlies du visage de l'androïde, elle ne parvenait pas à décoller les pieds du sol.
+
+Avant, cela n'aurait été qu'un écart de réaction, mais cette fois, c'était différent. Derrière cette unité suivait une ligne de rétablissement, et cette ligne de rétablissement toucha le dos de l'unité et s'arrêta. L'arrière s'arrêtant, toute une ligne prit du retard.
+
+Un temps.
+Deux.
 
 Sern le dit presque dans un souffle.
 
 « La ligne de correction perd confiance. »
 
-Sous les pieds de l'individu qui s'était arrêté,
-une lumière de limite au sol manqua le moment de s'allumer.
+« Ça veut dire quoi ? »
 
-Puis, avec un temps de retard,
-elle s'alluma toute seule.
+Seorin posa la question.
+
+« Quand l'avant s'arrêtait, l'arrière poussait et passait. Maintenant, l'arrière s'est arrêté aussi. »
+
+Sern parla.
+
+« Elle ne fait plus confiance à l'avant. »
+
+« C'est quoi, l'avant ? »
+
+Luhai posa la question.
+
+« L'unité de devant. Quand elle s'arrête, le chemin suivant est celui qui vient après elle. Maintenant, l'unité de devant s'est arrêtée, et pourtant celles d'après ne prennent pas ce chemin. »
+
+Sern traça un trait court sur le panneau d'enregistrement.
+
+« Elle a compté que l'avant pouvait se tromper. C'est la première fois. »
+
+Seorin regarda ce trait, plus court que les autres.
+
+Le dernier androïde ne bougeait pas. Han Jiwoo regardait ce dos, planté devant l'unité arrêtée à deux pas, et qui n'entrait pas.
+
+« N'entre pas. »
+
+L'androïde n'entra pas.
+
+Les yeux optiques de l'unité arrêtée étaient posés sur le visage de l'androïde, sur les lignes pâlies qu'un enfant avait dessinées. Le visage de cette unité, lui, n'avait rien : une surface lisse, rien de plus. Même hauteur, même largeur d'épaules, les deux se faisaient face à deux pas d'écart ; mais d'un seul côté l'épaule tombait, et d'un seul côté l'épaule portait un nœud.
+
+Sern compta sur ses doigts, sans le dire à voix haute.
+
+Trois.
+Quatre.
+
+L'unité ne bougeait pas.
+
+Cinq.
+
+Sous les pieds de l'unité arrêtée, une lumière de délimitation au sol devait s'allumer.
+Elle ne s'alluma pas.
+Tandis que les lumières de délimitation voisines s'allumaient en ligne, cet endroit seul restait sombre.
+
+Avec un temps de retard, elle s'alluma toute seule.
+
+La lumière que Sion voyait s'était détachée de la ligne pour s'allumer seule. Il relâcha la main qui tenait sa lame.
+
+Des traits que Sern avait tracés sur le panneau d'enregistrement, l'un était plus court que les autres.
+
+« C'est la première fois. »
+
+Il parla.
+
+« Ce n'était pas le chemin le plus court. »
+
+« Alors, elle est venue par où ? »
+
+« Elle n'est pas venue. »
+
+Sern parla.
+
+« Elle s'est allumée là où l'unité s'est arrêtée. Ce n'est pas un chemin. C'est une place. »
+
+Han Jiwoo regarda la lumière allumée toute seule. Le dernier androïde vit aussi l'unité qui se tenait dessus, immobile.
+Un temps.
+Puis l'androïde se retourna et revint vers Han Jiwoo ; l'axe d'épaule fit un bruit.
+
+« Pourquoi l'androïde n'est pas entré ? »
+
+Luhai posa la question.
+
+« J'ai dit de ne pas entrer. »
+
+Han Jiwoo répondit.
+
+« Ça t'a écoutée ? »
+
+« Je ne sais pas. L'androïde n'est pas entré. »
+
+La lumière que Seorin regardait était toujours allumée. Allumée plus tard que ses voisines, elle s'éteindrait plus tard qu'elles.
+
+« On continue. »
+
+Luhai leva sa barre de fer, et cette fois Seorin ne l'arrêta pas.
+La barre de fer entra dans le genou.
+L'unité plia.
+
+La lumière allumée toute seule brillait encore. Luhai revint sans marcher dessus.
 
 ---
 

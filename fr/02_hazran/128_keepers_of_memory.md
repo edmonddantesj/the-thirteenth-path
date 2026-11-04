@@ -1,203 +1,194 @@
-# Chapitre 128 — Les gardiens de la mémoire
+# Chapitre 128 — Ceux qui portent la mémoire
 
-Après l'apparition de l'ancienne machine,
-l’air ambiant devint sensiblement plus calme.
+Après l'apparition de la vieille machine, tout devint silencieux autour d'eux.
 
-Personne n’imposait le silence.
-Mais les êtres qui étaient dans cet espace depuis longtemps
-semblait habitué à ne pas ajouter de son avant que cette machine ne parle.
+Personne n'avait ordonné le silence. Les êtres qui se trouvaient depuis longtemps dans cet espace n'ajoutaient aucun bruit avant que cette machine ait pris la parole. On n'entendait que l'eau qui bouillait à l'intérieur.
 
-Sion l'a vu et a tout de suite compris.
+La vieille machine regarda un moment les nouveaux venus, puis déplaça lentement son regard.
 
-Il ne s'agit pas simplement d'une vieille machine.
-Au sein de cette communauté,
-il est plus proche du côté qui détient lui-même le temps pour le compte des autres.
+Les blessés, les vieux, les enfants, ceux qui tenaient à rester debout jusqu'au bout.
 
-La vieille machine a observé les nouveaux arrivants pendant un moment,
-puis déplaça lentement son regard.
+Parmi ceux qui voulaient rester debout, il y avait le vieil homme de Hazran. Pendant qu'il se tenait debout, le dos détaché du mur, ses genoux tremblaient ; il ne s'assit pas pour autant.
 
-Les blessés.
-Les personnes âgées.
-Enfants.
-Et ceux qui essaient encore de rester debout.
+La vieille machine reprit la parole.
 
-Ce regard ne contenait aucune des lectures vues dans le Serakion ci-dessus.
-Mais ce n’était pas non plus un regard vide.
+« Les pièces médicales ne sont pas abondantes. Les soins nécessaires maintenant passent tout de même en premier. »
 
-Au contraire, pour avoir vu trop de cas pendant trop longtemps,
-c'était plus proche d'un regard qui ne nomme pas les choses facilement.
+À ces mots, quelques autres machines qui se trouvaient à l'intérieur se mirent aussitôt en mouvement.
 
-La machine parla à nouveau.
+Dans le calme, sans qu'aucune machine élève la voix, l'une ouvrit une caisse d'où sortit du tissu, une autre apporta des bols d'eau. Une troisième s'agenouilla devant l'homme blessé, et son genou fit un bruit.
 
-« Les pièces médicales ne sont pas abondantes. »
-« Mais le traitement nécessaire passe désormais en premier. »
+Les blessés avec les blessés, du côté du mur ; les enfants et les vieux, vers le fond, du côté chaud ; ceux qui pouvaient marcher, du côté où l'on portait les caisses.
 
-Avec ces mots,
-plusieurs autres machines plus profondément à l’intérieur se sont déplacées en même temps.
+Luhai vit la scène et regarda Seorin ; voyant Seorin secouer la tête, il se tut.
 
-Étonnamment calme.
-Personne n'a élevé la voix,
-pourtant, l'espace a commencé à se réorganiser très rapidement.
+On fit signe au vieil homme de Hazran d'aller vers le fond, mais il n'y alla pas et resta collé au mur. La machine ne refit pas le geste ; à la place, elle posa un bol d'eau devant les pieds de l'homme et s'en alla. Bien plus tard, l'homme le prit.
 
-Mais c’était différent de l’arrangement du Serakion ci-dessus.
+Cela ressemblait à la même répartition, mais quelque chose différait. Là-haut, les machines se tenaient devant les gens et leur indiquaient le chemin ; ici, les machines venaient vers les gens, une caisse dans les bras. Si les gens ne bougeaient pas, c'étaient les machines qui bougeaient.
 
-Ce n'était pas une classification pour séparer les gens.
-Il s’agissait d’une organisation d’urgence pour empêcher quiconque de mourir ou de se briser en ce moment.
+Les mains des machines en mouvement, telles que Han Jiwoo les vit, étaient grossières. L'une avait quatre doigts, une autre un poignet qui se pliait à l'envers. Les pièces ne correspondaient pas, et les angles différaient. Une de ces mains laissa échapper le tissu deux fois, et le saisit à la troisième. Une fois le tissu pris, en le posant sur la jambe de l'homme blessé, elle ne le lâcha pas.
 
-Blessé avec blessé.
-Enfants et personnes âgées dans un espace plus chaud un peu plus profond.
-Ceux qui sont capables de marcher ont été invités à aider à transporter des fournitures et à soutenir les autres.
+Un enfant eut peur en voyant le tissu de soin et se cacha derrière le pan de vêtement d'un adulte.
 
-Les fonctions étaient divisées.
-Mais les valeurs, elles, ne furent pas hiérarchisées.
+Une des machines de l'intérieur arrêta ses mains et, très lentement, s'abaissa sur les genoux jusqu'à la hauteur des yeux de l'enfant ; son genou fit un bruit pendant ce temps.
 
-Sion a tout de suite senti cette différence.
+La machine ne prononça aucun mot pour apaiser ; elle ouvrit sa main devant l'enfant, le dos tourné vers le haut.
 
-Même si cela ressemblait au même classement,
-le Serakion d'en haut avait essayé de fixer les gens dans son propre ordre.
-Ici, on regardait d'abord qui risquait de s'éteindre le premier
-et l'on retenait les cas urgents.
+Un dos de main en métal couvert d'éraflures, des articulations usées, des raccords dont la couleur s'était entièrement effacée à force d'usage. Le bout d'un des doigts manquait.
 
-Jiwoo semblait le remarquer aussi,
-regardant longuement les mains des machines en mouvement.
+En voyant cette main, l'enfant cessa de pleurer. La main de l'enfant quitta le pan de vêtement de l'adulte et s'approcha du dos de la main de la machine, sans le toucher. La machine ne bougeant pas la main, l'enfant toucha d'un doigt une éraflure du dos de la main ; même alors, la machine resta immobile.
 
-Les machines ci-dessus avaient des mains parfaitement entraînées jusqu'au bout des doigts.
-Mais ce côté-ci était différent.
+« Ça fait mal ? »
 
-Rugueux.
-La familiarité avant l’efficacité.
-Certains avaient des angles du bout des doigts légèrement décalés parce que les pièces ne correspondaient pas.
+L'enfant posa la question.
 
-Mais bizarrement,
-cela les rendait plus prudents lorsqu'ils touchaient les gens.
+La machine ne répondit pas ; elle retourna sa main, paume vers le haut. La paume aussi avait des éraflures, et l'enfant toucha celles-là aussi.
 
-Quand un enfant a vu un tissu de traitement et a eu peur,
-une vieille machine arrêta sa main et descendit très lentement jusqu'à la hauteur des genoux.
+L'adulte saisit l'épaule de l'enfant. Sans tirer. Juste en la tenant.
 
-Il n'offrait pas de mots apaisants.
-Au lieu de cela, il a permis à l’enfant de voir sa main en premier.
+Aka observa la scène, puis murmura :
 
-Une main en métal rayé.
-Joints usés.
-Connecteurs dont la couleur s'était estompée suite à une longue utilisation.
+« Ici, on ne cache rien. »
 
-L'enfant qui a vu ça a arrêté de pleurer.
+Impossible de savoir si la vieille machine avait entendu. Un peu plus tard, la machine qui leur avait ouvert le chemin la première dit très bas :
 
-Aka regarda la scène et murmura, petit.
+« Cacher fait encore plus peur. »
 
-« Ce côté ne se cache pas. »
+Luhai eut un petit ricanement en entendant cela.
 
-Il n'était pas clair si l'ancienne machine entendait.
-Mais un instant plus tard,
-dit la machine qui avait ouvert le chemin en premier, très bas.
+« Bizarre. Moins c'est en bon état, moins ça fait peur. »
 
-« Se cacher leur fait encore plus peur. »
+Cette fois, ce fut Han Jiwoo qui répondit.
 
-Luhai renifla légèrement en entendant cela.
+« Elles ne font pas semblant d'être en bon état. »
 
-« Étrange. »
-« Moins intact et moins effrayant. »
+Luhai regarda Han Jiwoo, mais elle regardait la main de la machine. L'enfant touchait encore le dos de cette main.
 
-Cette fois, Jiwoo répondit.
+Pendant un bref silence, le bruit de l'eau qui bouillait s'amplifia. À l'intérieur, quelqu'un posa un bol.
 
-« Parce qu'ils ne prétendent pas être intacts. »
+La femme au visage fatigué sortit avec des bols d'eau et les posa d'abord devant les enfants de Hazran, puis devant les vieux, puis devant les blessés. Elle n'en posa pas devant le groupe de Sion ; Seorin le vit et ne dit rien.
 
-Après cette seule ligne,
-un bref silence s'écoula.
+La femme regarda Seorin.
 
-Et dans ce court silence,
-Sion ressentit une sensation supplémentaire clarifiant le fossé entre le haut et le bas à Serakion.
+« Vous, vous marchez. »
 
-Ci-dessus se trouve un monde qui prétend être complet.
-Voilà un monde qui ne cache pas être brisé.
+« Je sais. »
 
-Cette différence,
-en ce moment, il sauvait les gens.
+Seorin répondit.
 
-Un instant plus tard,
-la vieille machine tourna à nouveau son regard vers le groupe de Sion.
+La femme hocha la tête et retourna à l'intérieur.
 
-« Ce n'est pas un endroit pour rester longtemps. »
-« C'est plutôt un endroit qui demeure pour transmettre la mémoire
-et rendre le prochain échec moins lourd. »
+Un peu plus tard, la vieille machine tourna de nouveau son regard vers le groupe de Sion.
 
-Sion se répétait ces paroles.
+« Ce n'est pas un lieu où l'on tient longtemps. C'est plutôt un lieu qui demeure pour transmettre la mémoire, et rendre le prochain échec moins grand. »
 
-*Transmettre la mémoire.*
+Sion répéta ces mots sans un son.
 
-Aka a réagi en premier.
+Aka réagit la première.
 
 « À qui ? »
 
-L’œil optique de la vieille machine tremblait très légèrement.
+L'œil optique de la vieille machine trembla très légèrement, et sa lumière inégale devint une fois de plus inégale.
 
 « À ceux qui ne sont pas encore en panne. »
 
-Cette réponse était étrangement froide.
-Mais à l'intérieur il y avait à la fois la résignation et la volonté
-que seul un être qui a tenu longtemps peut porter.
+Aka regarda les trois traces de soudure sous le cou de la vieille machine.
 
-Jiwoo regarda cette machine plus longtemps sans s’en rendre compte.
+Han Jiwoo regarda longtemps cette machine. Les pièces d'un autre modèle aux articulations, l'œil optique inégal, les trois traces. Elle posa la main sur sa sacoche à outils, puis la retira.
 
-Ce n’était pas une arme vivante ni une machine de gestion.
-Plutôt,
-c'était plus proche d'un être qui avait enduré au-delà de sa propre fonction
-pour se souvenir des noms, des échecs et des chemins qui ne cessent de disparaître.
+Sern demanda à voix basse :
 
-demanda Sern à voix basse.
+« Est-ce vous qui administrez cet endroit ? »
 
-« Est-ce que c'est vous qui dirigez cet endroit ? »
+La vieille machine secoua aussitôt la tête, mais il lui fallut du temps pour que sa tête pivote.
 
-La vieille machine secoua aussitôt la tête.
+« Nous ne l'administrons pas. Nous le maintenons. »
 
-« Nous ne le gérons pas. »
-« Nous le maintenons. »
+Sern nota les deux mots côte à côte sur le panneau d'enregistrement, et Ater, regardant le panneau d'enregistrement, considéra l'écart entre les deux mots.
 
-Un court silence.
+« Quelle est la différence ? »
 
-La différence entre ces deux mots
-cela ressemblait à l'ensemble de cette communauté.
+Ater posa la question. Il s'adressait à la vieille machine.
 
-Gérer signifie l'ordre.
-Maintenir signifie ralentir l’effondrement.
+« Administrer fait croître. »
 
-Et cet endroit
-était clairement ce dernier.
+La vieille machine répondit.
 
-Deux humains sont sortis du plus profond de l’intérieur avec une caisse de fournitures.
-Deux autres machines prirent sans un mot une part du poids.
+« Maintenir fait moins décroître. »
 
-Le mouvement était naturel.
-Mais cela ressemblait moins à une coopération pratique
-et plutôt un accord à peine trouvé après un long inconfort.
+Ater hocha une fois la tête à ces mots.
 
-En regardant cela, Sion sentit pour la première fois
-que cet endroit n'était pas simplement le lieu où s'étaient rassemblés ceux qui se cachaient.
+Deux humains sortirent du fond avec une caisse de provisions ; deux autres machines, sans un mot, en prirent une part du poids. Un humain à un bout, une machine à l'autre. La caisse pencha. Le côté de la machine était plus bas. La machine leva les bras. La caisse redevint à plat. Ils avancèrent ainsi, à quatre.
 
-Ce n’est pas un lieu de combat uniquement.
-C'est une structure à l'intérieur d'un monde qui ne cesse de s'effondrer,
-où la mémoire, le but et l'enregistrement des échecs
-se transmettent, très lentement.
+Kael, qui regardait, alla soulever une caisse, et une machine en prit l'autre côté. Kael regarda la machine. La machine regarda Kael. Ils soulevèrent à deux. La caisse pencha, le côté de Kael plus haut, et Kael baissa les bras.
 
-Les hommes et les machines,
-ne se faisant jamais entièrement confiance,
-tout en s’accrochant à quelque chose qui ne doit pas, en fin de compte, être rompu.
+Luhai, voyant cela, y alla lui aussi, mais il n'y avait plus de caisse à porter. Il resta un instant les mains vides, puis revint.
 
-La vieille machine regarda une dernière fois le groupe de Sion et parla.
+« Tout est déjà porté. »
 
-« Les questions viennent plus tard. »
-« Il faut d'abord compter le nombre de ce qui a été perdu. »
+Il le dit.
 
-Ces mots étaient impitoyablement calmes.
-Mais personne ne pouvait contester.
+Personne ne rit ; seul le coin des lèvres de Han Jiwoo bougea un peu.
 
-Après être entrés à Serakion,
-ils ont appris pour la première fois.
+Seorin vint se placer à côté de Sern.
 
-Au centre de cette ancienne couche
-ne se trouvaient pas ceux qui criaient qu'ils changeraient le monde,
-mais d'abord ceux qui restaient…
-pour ne pas oublier à quel point le monde s'était brisé.
+« Des deux sorties, laquelle monte ? »
+
+« Je ne sais pas. »
+
+« Demande. »
+
+Sern posa la question à la machine qui leur avait ouvert le chemin, et la machine désigna le côté sombre.
+
+« Celle-là monte. Le côté éclairé va plus loin à l'intérieur. »
+
+Seorin regarda le côté sombre.
+
+« C'est bloqué ? »
+
+« Nous ne bloquons pas. Nous surveillons. »
+
+Seorin ne posa pas d'autre question ; pendant ce temps, Ater alla se poster à l'entrée du côté sombre. Personne ne le lui avait demandé.
+
+La vieille machine regarda une dernière fois le groupe de Sion et dit :
+
+« Les questions viendront plus tard. Pour l'instant, il faut d'abord compter combien on a perdu. »
+
+À ces mots, le vieil homme de Hazran se laissa tomber à genoux. Ses jambes, qui le tenaient debout, ne tenaient plus. Assis, il déplia ses doigts. C'était la main qui avait cessé de compter tout à l'heure.
+
+La vieille machine, faisant résonner son genou à chaque pas, alla jusque devant l'homme, s'arrêta et s'abaissa sur les genoux, si bien que ses yeux furent à la hauteur de ceux de l'homme.
+
+L'homme leva la tête et regarda l'œil optique inégal de la vieille machine.
+
+« Faut-il d'abord dire les noms ? »
+
+L'homme posa la question.
+
+« Non. C'est le nombre d'abord. Les noms, eux, restent après. »
+
+L'homme regarda ses doigts.
+Cinq.
+L'autre main.
+Dix.
+Il les replia, les déplia.
+
+Sion regarda ces doigts et pensa à la plaque de métal dans sa poche. Deux traits. Il ne la sortit pas.
+
+Ce que tenait la femme au visage fatigué, sortie du fond, c'était une mince plaque de métal couverte de rayures. À l'horizontale, à la verticale, en diagonale. Elle posa la plaque à côté de la vieille machine. Juste devant l'homme.
+
+« Trace ici. Si tu le dis, tu l'oublies. »
+
+Son ongle tapota l'une des rayures sur la plaque.
+
+L'homme regarda la plaque : il y avait des centaines de rayures. Il sortit le tournevis de sa poche. C'était celui que Han Jiwoo lui avait donné. Puis il posa la pointe du tournevis sur la plaque.
+
+Han Jiwoo, qui regardait, serra la main.
+
+L'homme traça le premier trait. La pointe du tournevis grinça en raclant le métal. Ce son, tel que l'entendit Han Jiwoo, était le même que celui de Sion grattant sa plaque à Hazran.
+
+L'homme traça le deuxième trait.
+
+La vieille machine resta là, les genoux abaissés. Elle ne se releva pas ; tant que les traits se multipliaient, elle resta là.
 
 ---
 

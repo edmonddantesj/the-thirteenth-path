@@ -203,17 +203,6 @@ Aka said.
 
 Han Jiwoo let out a short breath and lowered her hands again.
 
-They said little. But both of them knew.
-
-That whoever bought what outside,
-whoever came back with what information,
-however anyone saw Hazran before coming back,
-in the end everything would be tested once more when it was joined together again in here.
-
-Hazran showed each person something different.
-
-But all those different pieces were, strangely, gathering little by little toward saving the same ship.
-
 ---
 
 <sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Reading and link-sharing only. Reproduction, redistribution, adaptation, commercial use, and use for AI/ML training, datasets, or model-building are prohibited without explicit written permission. See <a href="../../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

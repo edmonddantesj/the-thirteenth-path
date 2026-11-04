@@ -27,8 +27,6 @@ Lo dijo Sion.
 
 —Esa era de un solo uso desde el principio.
 
-Sion supo que esa respuesta no era un consuelo. Ater no estaba usando ahora la manera de decir suavemente una mala noticia. Quería decir que no había tiempo para eso.
-
 Han Jiwoo se incorporó junto a la pared exterior del casco.
 
 —Si le dan aquí, se acabó.
@@ -65,7 +63,7 @@ Alzó un poco la barbilla hacia el ruido de afuera.
 
 Al oírlo, Sion entendió por qué estaba tan enfadada.
 
-Han Jiwoo era unas manos que salvan aparatos moribundos. El primer día que cayeron en Hazran eligió el más honestamente averiado, y mientras despegaba con sus propias manos las piezas que ella misma había puesto, dijo que al barco no le dolía. Y ahora venía caminando hacia ella una cosa hecha dando por supuesto que se rompería.
+Han Jiwoo era unas manos que salvan aparatos moribundos. También en la carrera había elegido el más honestamente averiado, y mientras despegaba con sus propias manos las piezas que ella misma había puesto, dijo que al barco no le dolía. Y ahora venía caminando hacia ella una cosa hecha dando por supuesto que se rompería.
 
 —A eso tampoco le duele.
 Lo dijo Sion.
@@ -219,7 +217,7 @@ Lo preguntó Sion.
 
 Al oírlo, Sion volvió a mirar hacia Aka.
 
-Aka no decía nada. Pero la mano le había bajado todavía más que antes.
+Aka no decía nada. En cambio, la mano le había bajado todavía más que antes.
 
 Sion miró esa mano un buen rato.
 

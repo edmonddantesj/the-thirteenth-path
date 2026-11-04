@@ -2,212 +2,226 @@
 
 Los preparativos de partida avanzaron rápido.
 
-Nadie creía tener margen,
-nadie creía poder retener más tiempo este breve descanso.
+Mientras se revisaban otra vez los corredores, Ater separó las rutas recién bloqueadas de las brechas que todavía se podían usar. Tres rutas bloqueadas, dos brechas utilizables. Tocó esas cinco en la pared con un dedo.
 
-Serakion, sin duda, volverá.
-No dejará este fracaso tal como está.
-Y la próxima vez,
-se moverá contando también con el hecho de que en algún punto de este estrato viejo
-quedó un androide con voluntad.
+—¿Cuál de las dos?
 
-Eso lo sabían todos.
+Lo preguntó Seorin.
 
-Por eso se revisó otra vez la línea de movimiento,
-Seorin reconfirmó corto y filoso el papel de cada grupo,
-Ater recortó rápido las rutas recién cerradas y los huecos aún usables,
-y Sern, combinando el daño, el tiempo y el personal que podía moverse,
-rehízo un orden de ejecución más apretado que antes.
+—La izquierda. La derecha la vieron los de allá la última vez.
 
-Pero, aun en medio de eso,
-las miradas volvían una y otra vez hacia el último androide.
+—¿Y la izquierda no la vieron?
 
-Él seguía dentro de un sector tranquilo.
+—La habrán visto. Tarde.
 
-Han Jiwoo revisaba el último dispositivo de fijación,
-una máquina vieja dejaba a su lado un fragmento de pieza recién traído,
-y los niños se esforzaban por estar allí sin hacer demasiado ruido.
+Seorin eligió la izquierda.
 
-Esa escena parecía extrañamente en paz.
+Sern volvió a anotar en una cara del panel de registro el daño, el tiempo y el número de personas que podían moverse, y la cara quedó más apretada que antes. En el renglón donde anotaba el número de personas, la mano se le detuvo una vez, y solo anotó después de volver a contar.
 
-Y por eso mismo,
-Sion sintió con más nitidez que este tiempo iba a terminar antes.
+—¿Por qué te paras?
 
-Cuanto más quieres estar juntos,
-menos puedes retenerlo mucho tiempo.
+Lo preguntó Seorin.
 
-Uno de los niños, en cuclillas junto al último androide,
-dijo con una voz muy pequeña.
+—Me faltaba uno.
 
-—¿Y no puede quedarse ya?
+Lo dijo Sern.
 
-Nadie respondió enseguida.
+—Al volver a contar, cuadraba. Me había equivocado yo.
 
-Esa pregunta clavó el punto exacto que todos evitaban.
+—¿A quién dejaste fuera?
 
-Por qué hay que llevárselo.
-Por qué no pueden estar juntos.
-Por qué hay que mover otra vez hacia el peligro a un ser que apenas sobrevivió.
+—A ese androide.
 
-Han Jiwoo tardó un buen rato en abrir la boca.
+Lo dijo Sern.
 
-Ella, más que nadie,
-no quería devolver ahora a este ser al campo de batalla.
+—No sabía si correspondía al renglón de las personas.
 
-Hasta hacía nada había pensado la palabra «doler» con demasiada naturalidad,
-y ya sabía que movía las manos, incluso al repararlo, para no asustarlo.
+Seorin no respondió y volvió a confirmar, breve, el papel de cada grupo. Era una sola palabra por grupo, y aun así nadie preguntó nada.
 
-Y aun así,
-no podía evitar lo que había que decir.
+La gente de Hazran repartía agua y telas. Las telas estaban separadas entre las manchadas de sangre y las limpias, y las limpias eran menos. La mujer del rostro cansado le tendió una limpia a Han Jiwoo.
 
-—Si se queda aquí… —dijo ella muy bajo—. La próxima vez vendrá primero hacia ustedes.
+—El hombro.
 
-El niño parpadeó.
-No tenía del todo cara de haberlo entendido.
+Lo dijo ella.
 
-Pero qué clase de tristeza era esa,
-hasta un niño muy pequeño parecía poder saberlo.
+Lo que Han Jiwoo recibió fue la tela del tercer nudo.
 
-Han Jiwoo miró una vez al último androide,
-y volvió a mirar al niño.
+Aun en medio de todo eso, las cabezas de la gente se volvían una y otra vez hacia el último androide.
 
-—Va a venir a buscarlo. Y entonces aquí también se vuelve peligroso.
+Seguía dentro del sector tranquilo. Para comprobar el último dispositivo de fijación, Han Jiwoo tiró uno a uno de los tres nudos, pero no se soltó ninguno. Una máquina vieja dejó a su lado un fragmento de pieza recién traído; era el tercero. Han Jiwoo tomó el fragmento y lo encajó por dentro del eje del hombro, y entró.
 
-Esas palabras podrían haber sonado demasiado frías,
-pero, por extraño que parezca, nadie las oyó así.
+—¿De dónde lo ha sacado?
 
-No eran palabras que empujaban afuera,
-sino palabras de tener que arrancarse el propio lado para proteger.
+—De los de allá.
 
-Al niño se le enrojecieron enseguida los ojos.
+Lo dijo la máquina.
 
-—Pero… —dijo el niño con esfuerzo—. Si estar juntos es bueno.
+—De donde cayeron.
 
-Ante esas palabras,
-varias personas de la sala giraron directamente la cara.
+Han Jiwoo detuvo las manos y miró el fragmento, pero lo dejó encajado.
 
-Por ser demasiado ciertas,
-dolían aún más.
+—Encaja. Es el mismo cuerpo.
 
-Sion, en ese instante,
-pensó que la despedida llega, de por sí, de este modo.
+Los niños, a su lado, bajaban la voz. Uno tiró de la manga de otro para que la bajara más, y el niño del que había tirado cerró la boca.
 
-Estar juntos es bueno.
-Por eso quieren estar juntos.
-Pero justo por eso,
-no se puede dejar que el peligro venga hacia donde están juntos.
+Uno de los niños se puso en cuclillas junto al último androide y habló con una voz muy pequeña.
 
-El último androide parecía estar oyendo esas palabras.
+—¿Y no se puede quedar ya?
 
-El ojo óptico seguía débil,
-y el cuerpo aún no lograba recomponerse del todo.
+Nadie pudo responder enseguida.
 
-Pero cuando el niño lo miraba aguantando el llanto,
-él también movió muy lento la mirada hacia allí.
+El ojo óptico del androide se volvió despacio hacia el niño y luego regresó a Han Jiwoo. Han Jiwoo no pudo sostener ese ojo óptico y miró el dispositivo de fijación.
 
-Y por un buen rato,
-de verdad por un buen rato, se quedó así.
+La mano de Sern se detuvo sobre el panel de registro, y Ater despegó el dedo de la pared. Seorin miró a ese niño desde lejos. La mano de la mujer de Hazran que repartía el agua se detuvo, y un poco de agua se derramó en el suelo.
 
-Qué pasó dentro de esa pausa,
-nadie podía decirlo con exactitud.
+Han Jiwoo pasó un buen rato sin poder abrir la boca. La mano que apretaba el dispositivo de fijación hizo fuerza, y uno de los nudos se apretó un poco más. Solo después de aflojar esa mano giró el cuerpo hacia el niño.
 
-Pero Sion, por extraño que parezca,
-no lograba quitarse la sensación de que ese ser estaba eligiendo ahora su sitio.
+—Si se queda aquí…
 
-Si quería quedarse aquí.
-O si tenía que partir.
+Lo dijo muy bajo.
 
-Aún no se podía llamar a eso «pensamiento»,
-pero, al menos, sobre qué no puede dejar a su espalda
-era un ser que ya había aprendido demasiado.
+—La próxima vez vendrán primero hacia ustedes.
+
+El niño parpadeó, miró a Han Jiwoo y luego al androide. El ojo óptico del androide estaba mirando al niño.
+
+Han Jiwoo miró una vez al último androide y volvió a mirar al niño.
+
+—Van a venir a buscar a ese. Y entonces aquí también se vuelve peligroso.
+
+—¿Por qué buscan a ese?
+
+—Porque ese era de los de allá. Los de allá no se enteran de que perdieron algo suyo. Si cuentan, se enteran. Y estarán contando.
+
+El niño miró la cara del androide.
+
+Al niño se le enrojecieron los ojos.
+
+—Pero…
+
+Lo dijo el niño, a duras penas.
+
+—Es que juntos se está bien.
+
+Algunas personas de la sala apartaron la cara. Una mujer de Hazran se apretó los ojos con el dorso de la mano. Luhai, mirando al techo, reacomodó la barra de hierro en la mano, y Sern miró el panel de registro pero no anotó. Luhai bajó los ojos del techo.
+
+—Lo que dicen los niños es lo más cierto. Por eso todavía menos se les puede conceder.
+
+Volvió a mirar al techo.
+
+Sion, sin apartar la cara, miró la mano del niño. Estaba puesta cerca de la rodilla del androide, pero no la tocaba. En la punta de los dedos todavía quedaba tierra.
+
+El ojo óptico del último androide se desplazó despacio hacia el niño.
+
+Y se quedó así un buen rato, de verdad un buen rato. El niño también recibió esa mirada sin moverse. Entre los dos, Han Jiwoo contuvo el aliento.
+
+La máquina vieja que estaba en la entrada del sector dio un paso hacia dentro y se detuvo. El ojo óptico de esa máquina, la misma que le había puesto la tela encima, apuntaba a los dedos del niño, donde quedaba tierra. La máquina se miró la mano. No había tierra.
 
 Seorin se acercó en silencio.
 
-Bajó un poco el cuerpo, como poniéndose a la altura del niño,
-y dijo corto.
+Bajó un poco el cuerpo, como para ponerse a la altura de los ojos del niño, y habló corto.
 
-—Sé que es bueno estar juntos. Pero por eso mismo nos lo llevamos.
+—Ya sé que juntos se está bien. Pero por eso mismo viene con nosotros.
 
-Esas palabras fueron asombrosamente exactas.
+El niño miró a Seorin, pero Seorin no apartó los ojos. Después de ver cómo la mano del niño tocaba una vez la rodilla del androide y se separaba, Seorin se levantó.
 
-No «lo dejo porque lo quiero»,
-sino
-«me lo llevo porque lo quiero».
+Los niños no pudieron contener el llanto, pero ninguno se aferró ni se tiró al suelo. Un niño, llorando, tomó la mano de otro, y ese niño tomó la mano de otro más. Los tres miraban al androide con las manos tomadas. El cuarto niño abrazaba la pierna de una mujer de Hazran, con la cara vuelta hacia el androide.
 
-Para que el peligro no vuelva aquí.
-Para no dejar un blanco junto a lo que hay que proteger.
-Y, a la vez,
-porque ese ser ya no podía quedar fuera de la próxima lucha.
+Aka, sin decir nada, se puso detrás de esos cuatro. Un niño le agarró la manga, y Aka lo dejó estar.
 
-Los niños no aguantaron el llanto.
+—Yo me quedo.
 
-Pero, por extraño que parezca,
-no fueron por el lado de agarrarse y tirarse al suelo ni de patalear rogando que no.
+Se lo dijo ella a los niños.
 
-Eso quizá,
-más que por entenderlo,
-sea porque eran niños que ya habían visto una vez la escena de perder.
+—Aquí.
 
-Que retener ahora quizá no fuera amor,
-sino atar otra vez el peligro al lado:
-eran rostros que lo intuían, aunque fuera de forma vaga.
+Los niños oyeron esas palabras sin apartar los ojos del androide.
 
-Uno de los niños, que desde antes estaba pegado al último androide,
-por última vez le tocó de nuevo esa tenue línea de boca con la punta del dedo, como oprimiéndola.
+Uno de los niños, el que desde antes estaba pegado al último androide, tocó por última vez, una vez más, esa tenue línea de boca con la punta del dedo, como apretándola. El dedo se quedó sobre la línea. Antes de retirarlo, apretó una vez más.
 
 —Vuelve.
 
-Esas palabras parecían a la vez un ruego,
-a la vez una orden,
-a la vez una plegaria.
+El ojo óptico del último androide tembló de forma mínima. La línea de boca se iluminó una vez bajo el dedo. El niño retiró la mano. El brillo se quedó.
 
-El ojo óptico del último androide tembló mínimamente.
+Un compás.
 
-Y poco después,
-él movió el cuerpo por sí mismo.
+Volvió.
 
-Antes de que Han Jiwoo tendiera la mano para sostenerlo del brazo,
-él se apoyó en la pared y se levantó despacio.
+Al mirarse el dedo, el niño vio que la tierra había pasado a la línea, pero no la limpió.
 
-No era una postura completa.
-Era un equilibrio inestable, como si la rodilla fuera a doblarse otra vez en cualquier momento.
+Poco después, el último androide movió el cuerpo por sí mismo.
 
-Pero, aun así,
-él miró una vez hacia los niños,
-y luego giró el cuerpo hacia el grupo de Sion y Seorin.
+Han Jiwoo tendió la mano para darle apoyo. Antes de que esa mano llegara, el androide se apoyó en la pared y se levantó despacio.
 
-En ese instante,
-todos en la sala sintieron lo mismo.
+No usó la mano del lado del hombro torcido; empujó la pared con la otra mano y enderezó el cuerpo. La rodilla se dobló una vez. La mano apoyada en la pared hizo fuerza. Los dedos arañaron la superficie. Volvió a quedar de pie. Ya de pie, la línea de boca que había dibujado el niño quedaba por encima de los ojos del niño, y el niño levantó la cabeza para mirarla.
 
-Esto no era que se lo llevaran a rastras.
+La mano tendida de Han Jiwoo se quedó en el aire. La retiró despacio y la apretó con la otra mano.
 
-Él aún no puede hablar,
-y quizá aún no lo entienda del todo.
-Pero este movimiento, al menos,
-sin duda se acercaba a algo elegido por su propia voluntad.
+El androide miró una vez hacia los niños. Miró uno por uno a los tres que estaban de pie con las manos tomadas, al cuarto que abrazaba la pierna y al niño que le había tocado la línea de boca, y después giró el cuerpo hacia el grupo de Sion y hacia Seorin.
 
-Querer estar juntos,
-y por eso partir juntos.
+El giro le llevó tres pasos. A cada paso, el hombro torcido se balanceaba y los tres nudos se tensaban y se aflojaban, pero no se agarró el hombro.
 
-Esa elección contradictoria,
-al contrario, se sentía demasiado exacta.
+Sion contó esos tres pasos y luego miró su hoja. Era una hoja nueva, sin melladuras, que le había dado un hombre de Hazran. La empuñó, pero todavía no se le hacía a la mano.
 
-Han Jiwoo, viendo esa escena, al final cerró y abrió los ojos,
-y murmuró muy bajo.
+Después de girarse, el último androide miró a Seorin. Seorin asintió una vez, pero el androide no asintió: se quedó de pie en su sitio, con los dos pies clavados en el suelo.
 
-—Está bien.
+—Estaría bien que asintiera.
 
-A quién se lo había dicho,
-ni ella misma lo sabría.
+Lo dijo Luhai.
 
-Pero Sion creía poder entenderlo.
+—No lo va a hacer.
 
-Eran palabras dichas a ese ser,
-a los niños,
-y a toda la próxima batalla que ahora empezaría.
+Lo dijo Han Jiwoo.
 
-Él se había vuelto ahora de ellos,
-y por eso mismo no podía, al final, quedarse solo junto a ellos.
+—Estar de pie es asentir. Para ese.
+
+Han Jiwoo cerró los ojos, los abrió y murmuró muy bajo.
+
+—Ya entiendo.
+
+—¿Qué?
+
+Lo preguntó Seorin.
+
+—Se puso de pie por su cuenta, ¿no?
+
+Lo dijo Han Jiwoo.
+
+—Sin que nadie le diera apoyo. Entonces es que va.
+
+Seorin asintió.
+
+Han Jiwoo recogió del suelo las herramientas una a una y las metió en los bolsillos. Dos destornilladores, unas pinzas, un rollo de tela sobrante. Como antes había dado dos a un niño y al anciano, en los bolsillos quedaban dos huecos vacíos, y en esos huecos metió la tela. Después de meter lo último, apretó una vez por encima del bolsillo interior.
+
+Se levantó y se puso al lado del androide. Era una distancia a la que llegaba con solo tender una mano. No la tendió.
+
+Los niños miraban a los dos. El niño que le había tocado la línea de boca levantó la mano; no la agitaba, solo la tenía levantada.
+
+El ojo óptico del último androide se detuvo en esa mano.
+
+Seorin se dio la vuelta.
+
+—Nos vamos.
+
+Dos máquinas viejas se movieron primero hacia el corredor. Al pasar por la entrada del sector, una se volvió a mirar hacia los niños, y la otra le empujó el hombro. Mientras Ater las seguía, Sern cerró el panel de registro. Luhai miró una vez hacia los niños y echó a andar.
+
+Dos hombres de Hazran, cada uno con un panel de la pared, se pegaron detrás. El hombre sin hermano menor era uno de ellos. La mujer del rostro cansado le puso una tela en la mano, y él la tomó y la llevó junto con el panel de la pared.
+
+El último androide dio un paso. La rodilla aguantó.
+El segundo paso también aguantó.
+Al tercer paso, algo sonó en el hombro.
+La marcha no se cortó.
+
+Han Jiwoo caminaba a su lado a la misma velocidad. Medio paso por detrás, en el sitio desde donde se le veía la espalda.
+
+La mano del niño seguía levantada.
+
+Hasta pasar la entrada del sector y doblar la esquina, Han Jiwoo no miró atrás, pero el androide se volvió a mirar una vez. La mano seguía levantada. Al doblar la esquina, la mano dejó de verse, y entonces miró al frente.
+
+Medio paso por detrás, Han Jiwoo le miraba la espalda.
+
+Tres nudos.
+
+Los contó. No se había soltado ninguno.
 
 ---
 

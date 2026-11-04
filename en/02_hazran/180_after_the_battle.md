@@ -14,7 +14,7 @@ The short mouth line the child had traced over earlier was faintly lit. One opti
 
 Sion was watching from a little way off.
 
-Three lay on the floor. The smiling mouth, the round eyes and the narrow eyes were all dark. Sion looked at the three in turn, then at the one who was kneeling.
+Five lay on the floor. The smiling mouth, the round eyes, the narrow eyes, the scowling mouth and the crooked mouth were all dark. Sion looked at the five in turn, then at the one who was kneeling.
 
 Ater came back from the mouth of the route.
 
@@ -24,9 +24,9 @@ Seorin nodded.
 
 "We go out through that."
 
-Ater said nothing more and went back toward the mouth. On the way he passed the three on the floor, and his pace did not slow. His eyes went to them.
+Ater said nothing more and crossed the room. He passed the five on the floor, and his pace did not slow. His eyes went to them.
 
-Luhai came back from the mouth of the route. Passing among the fallen enemy units, he never once looked down at them, but in front of the three on this side his steps slowed, and he stopped in front of the round eyes. He crouched and looked at the arms, frozen spread open. He did not touch them. Then he got up and came over.
+Luhai came back from the mouth of the route. Passing among the fallen enemy units, he never once looked down at them, but in front of the five on this side his steps slowed, and he stopped in front of the round eyes. He crouched and looked at the arms, frozen spread open. He did not touch them. Then he got up and came over.
 
 Seorin, back from clearing the rear, watched the last android for a while without a word. Her arms weren't folded; both hands hung at her sides. They clenched once and opened.
 
@@ -34,13 +34,13 @@ Ater ran his eyes over the broken routes and the marks of the fighting, then spo
 
 "Next time it comes bigger."
 
-No one argued. Seorin nodded once. One of the old machines turned and stood facing the mouth of the route, and it did not move from there.
+Seorin nodded once. One of the old machines turned and stood facing the mouth of the route, and it did not move from there.
 
 Sern spoke very quietly.
 
 "This must be recorded. Not only the pattern of the battle. The conditions of the change must be written down as well."
 
-He opened the record panel. There was a line he had struck through earlier, and he began writing beneath it. Partway, he looked once toward the children. Partway, he looked once at the three on the floor. Partway, he looked once at the place where the old machine had gone down. Each time, a line was added.
+He opened the record panel. There was a line he had struck through earlier, and he began writing beneath it. Partway, he looked once toward the children. Partway, he looked once at the five on the floor. Partway, he looked once at the place where the old machine had gone down. Each time, a line was added.
 
 Ater looked down at the record panel.
 
@@ -60,7 +60,7 @@ Two old machines went to that place. Two Serakion units lay there, and a body be
 
 The two worked their own free of that mass, and it took a long time. The arms wrapped around the others would not come loose until they bent one joint back. At the sound of the bending, a child covered their ears.
 
-The two lifted the body. One took the shoulders and one the legs, carried it to the wall and set it down beside the three on the floor, in a row with the three. Having set it down, both stayed standing there.
+The two lifted the body. One took the shoulders and one the legs, carried it to the wall and set it down beside the five on the floor, in a row with the five. Having set it down, both stayed standing there.
 
 The last android's optical eye followed the two, from the place where it had gone down to the wall, until they set it down. The hand braced on the floor moved a little that way, one finger's width. It stopped there. Han Jiwoo looked at that hand.
 
@@ -78,7 +78,7 @@ Luhai nodded, then went over to the two old machines and stood beside them. He s
 
 Han Jiwoo heard it and did not raise her head.
 
-She got up, went over to the three on the floor and crouched in front of the smiling mouth. Its chest plate was crushed so that the inside showed, and a small piece broken off from it lay on the floor: half a palm across, a piece of the surface the mouth line had once run across. She picked it up and held it for a long time.
+She got up, went over to the five on the floor and crouched in front of the smiling mouth. Its chest plate was crushed so that the inside showed, and a small piece broken off from it lay on the floor: half a palm across, a piece of the surface the mouth line had once run across. She picked it up and held it for a long time.
 
 Then she put it in the inside pocket of her clothes. After that she pressed once over it.
 
@@ -148,7 +148,7 @@ The man slid down the wall and sat. Once he was sitting, he looked at his hand; 
 
 "It's all right."
 
-Sion said. He sat down next to the man. Sitting, he looked at the four on the floor. Three, and one. The man looked that way too, and the two of them stayed like that for a while.
+Sion said. He sat down next to the man. Sitting, he looked at the six on the floor. The five, and the one old machine laid out in a row beside them. The man looked that way too, and the two of them stayed like that for a while.
 
 "You can stay here."
 

@@ -1,124 +1,332 @@
 # Chapitre 191 — La première porte
 
-Lorsque la structure plus profonde menant au centre apparut pour la première fois, Sion sentit d'instinct que la nature du combat devait changer à partir de là.
+La première porte ne ressemblait pas à une porte.
 
-Et la première porte était bien plus serakionienne qu'il ne l'aurait cru.
+Au bout du couloir gris, c'était un mur identique aux autres.
+Quand la lumière de guidage changea, le mur se replia sans bruit, s'ouvrit, puis se referma.
+De nouveau un mur.
 
-Ce n'était ni une immense barrière, ni une porte de blocage évidente.
+Le groupe se colla à l'ombre d'un angle, à dix pas. Sur le sol, devant le mur, trois lignes de lumières de délimitation changeaient lentement de couleur, tour à tour.
+Sion compta ce rythme. Première ligne, deux, trois, de nouveau la première.
 
-Au bout du couloir gris, un pan de mur lisse, parfaitement mêlé à la surface, se pliait et s'ouvrait très silencieusement au moment où la lumière d'annonce changeait, puis se refermait.
+Dès qu'il vit ce mur, Sern parla bas.
 
-De loin, il était difficile d'y voir une porte.
+« C'est une porte d'alignement. Elle reclasse ce qui doit passer, puis elle s'ouvre. »
 
-On aurait plutôt dit une surface par laquelle ce monde décidait poliment s'il laisserait passer quelqu'un ou non.
+« Elle laisse passer quoi ? »
 
-Le groupe se colla dans l'ombre d'un angle, à une dizaine de pas de ce mur. Sur le sol, devant le mur, s'étendaient trois lignes de lumière d'alerte, qui changeaient de couleur tour à tour, très lentement.
+Sion posa la question.
 
-Sern dit bas dès qu'il vit la structure :
+« Pour l'instant, rien. Si nous entrons, elle nous comptera. Pour savoir si nous sommes à bloquer ou à admettre. »
 
-« Une porte d'alignement. Elle s'ouvre selon la reclassification des sujets admis. »
+« Il y a des choses à admettre ? »
 
-C'était une porte que Serakion ouvrait et fermait en recalculant en temps réel ce qu'il fallait laisser passer et ce qu'il fallait bloquer.
+« Il y en a. »
 
-Même en voyant cela, Seorin ne se pressa pas.
+Sern parla.
 
-Elle ne regardait pas la porte, mais l'habitude de Serakion qui bougeait derrière elle.
+« Les enfants qui montaient sont sans doute passés par ici. »
 
-« Ne la brisez pas, » dit-elle bas. « Faites-la ouvrir de travers. »
+Sion regarda les trois lignes de lumières de délimitation. Il n'y avait pas de marquage d'empreintes, seulement les lignes.
 
-Sion sentit son dos se glacer.
+Han Jiwoo aussi regarda ces lignes. Trois pas d'enfant, deux des siens.
 
-Ater lut aussitôt la lumière de circulation supérieure et le flux des rails.
+« Les enfants, comment est-ce qu'elle les a comptés ? »
 
-« Trois mesures d'ouverture. Je peux créer une fausse ligne de passage. »
+Elle parla.
 
-Sern reprit immédiatement le calcul de l'intervalle entre l'axe gauche et l'axe droit.
+« Elle les a comptés comme des sujets à admettre. »
 
-« La première ligne doit être volontairement lente. Il faut que la deuxième ligne entre d'abord dans le calcul d'alignement. »
+Sern parla.
 
-Le plan était clair.
+« Ils avaient le bout des doigts transparent. C'était sans doute le critère. »
 
-Ils feraient semblant d'entrer de face. Serakion tenterait de les classer selon la méthode de blocage la plus efficace. Et à cet instant précis, le dernier androïde déplacerait une valeur de réaction depuis un autre axe.
+Han Jiwoo regarda le bout de ses propres doigts. La corne et l'huile s'y étaient incrustées.
+Elle serra le poing.
 
-Alors la porte lirait mal, pendant une mesure, ce qu'elle devait bloquer et ce qu'elle devait laisser passer.
+Seorin ne regardait pas la porte, mais ce qu'il y avait derrière. Sous le mur, un filet lumineux coulait une fois et s'arrêtait, coulait encore et s'arrêtait.
 
-Sion et les autres groupes dévoreraient cette erreur.
+« Pas de casse. »
 
-Le premier mouvement commença bientôt.
+Elle parla bas.
 
-L'axe gauche entra une demi-mesure en avance par un chemin volontairement visible. La lumière d'annonce de Serakion changea très légèrement de couleur, et sous la surface de la porte d'alignement de fins filets lumineux glissèrent comme une onde.
+« Qu'elle s'ouvre de travers. »
 
-La porte calculait.
+Sion sentit son dos se glacer. Sa main se crispa sur la lame.
 
-À cet instant, le dernier androïde apparut brièvement sur la ligne latérale.
+Ater regarda la lumière de circulation du haut et les rails. La lumière coula trois fois, puis s'arrêta.
+Il déplia trois doigts.
 
-Ni de face, ni à découvert.
+« Trois temps d'ouverture. Je peux créer une fausse ligne de passage. »
 
-Exactement à l'endroit où la porte serait forcée de réintroduire dans son calcul la question de savoir si cet être devait passer ou être bloqué.
+« Comment ? »
 
-Son œil optique trembla.
+« Si la gauche se montre d'abord, la porte la compte comme à bloquer. Si la droite entre pendant ce temps, elle recompte. Entre les deux comptes, il y a un temps. »
 
-Les lignes lumineuses qui coulaient sous la porte se décalèrent très faiblement.
+Sern enchaîna et traça deux traits sur le panneau d'enregistrement.
 
-Le signal bref de Han Jiwoo vola depuis sa position en retrait.
+« La première ligne doit être lente, exprès. Il faut que la deuxième ligne tombe d'abord dans le calcul. »
+
+Seorin hocha la tête et résuma brièvement.
+
+« On fait semblant d'aller de face. Pendant qu'ils choisissent quoi bloquer, l'androïde se montre une fois sur le côté. Alors la porte recompte ce qu'elle doit bloquer. Dans ce temps-là, Sion entre. »
+
+« La porte compte l'androïde comme quoi ? »
+
+Sion posa la question.
+
+« Je ne sais pas. »
+
+Seorin répondit.
+
+« Eux non plus. Alors ils recomptent. »
+
+« Recompter, ça prend combien de temps ? »
+
+Sion posa la question.
+
+« Un temps. »
+
+Ater répondit.
+
+« La durée pendant laquelle la lumière coule puis s'arrête. C'est là-dedans qu'il faut entrer. »
+
+Sion regarda les dix pas jusqu'à la porte.
+Dix pas en un temps.
+
+« Impossible. »
+
+« Fais cinq pas d'avance. »
+
+Seorin parla.
+
+« Pendant qu'ils comptent la gauche. Quand ils comptent la gauche, ils ne regardent pas le centre. »
+
+Sion regarda l'endroit, à cinq pas, devant la deuxième ligne de lumières de délimitation.
+
+À côté de Han Jiwoo, le dernier androïde entendit ces mots. L'axe d'épaule fit un bruit.
+L'œil optique se porta sur le mur par où ses semblables avaient dû passer.
+
+Han Jiwoo regarda l'androïde.
+
+« Montre-toi, c'est tout. N'entre pas. »
+
+Pas de hochement de tête. Elle prit cela pour un acquiescement.
+
+« Pourquoi l'androïde ne hoche jamais la tête ? »
+
+Kael posa la question à Han Jiwoo.
+
+« Jamais. »
+
+Han Jiwoo répondit.
+
+« Pas une seule fois. Mais ce qu'on demande, c'est fait. »
+
+« C'est mieux. Mieux que hocher la tête et ne rien faire. »
+
+Han Jiwoo ne répondit pas.
+
+Kael se plaça sur l'axe gauche avec une vieille machine. À droite, il n'y avait qu'une vieille machine.
+La place de Luhai était vide. Kael regarda cette place vide.
+
+« À droite, toute seule, ça ira ? »
+
+« Cela ira. »
+
+La vieille machine parla.
+
+« Il suffit d'avoir un demi-temps de retard. Le retard, je peux le faire sans renfort. »
+
+« Si Luhai était là… »
+
+Sion parla.
+
+« Il n'est pas là. »
+
+Seorin parla.
+
+« Il est en bas. Là-bas aussi, ce sont des bras. »
+
+Sion regarda la vieille machine de droite. Il regarda ses pieds lourds.
+Des pieds faits pour avoir un demi-temps de retard.
+
+Le premier mouvement fut lancé.
+
+Sion fit d'abord, lentement, les cinq pas. Devant la deuxième ligne de lumières de délimitation.
+La lumière ne le compta pas.
+Pas encore.
+
+L'axe gauche s'engagea avec un demi-pas d'avance par le chemin visible. Le pied de Kael toucha la première ligne de lumières de délimitation.
+La lumière de guidage changea de couleur. Sous la surface de la porte, les filets lumineux coulèrent vers la gauche, puis s'arrêtèrent.
+La porte comptait.
+
+Sern replia un doigt.
+
+La lumière resta à gauche. Elle compta le pied de Kael et celui de la vieille machine : une personne et une machine.
+La lumière tremblait au-dessus des deux.
+
+À bloquer.
+À bloquer.
+
+Pendant qu'on le comptait, Kael ne bougea pas.
+
+Le dernier androïde sortit de la ligne latérale. Pas de face, et pas tout à fait à découvert.
+Une épaule et le nœud, les lignes pâles du visage.
+L'androïde se posta à l'endroit qu'atteindraient les filets lumineux de la porte.
+
+Un temps.
+
+Sous la porte, les filets lumineux s'arrêtèrent. Le sens de leur cours vacilla.
+
+Gauche.
+Côté.
+Gauche.
+
+La porte ne parvenait pas à décider.
+
+Han Jiwoo, en retrait, donna le signal.
 
 « Maintenant. »
 
-À ce seul mot, l'axe de récupération droit avança d'une demi-mesure par rapport au rythme où il aurait dû entrer plus tard.
+La vieille machine de l'axe droit entra. Elle avança d'un demi-temps le moment où elle aurait dû entrer en retard.
+Le pied lourd toucha la troisième ligne de lumières de délimitation.
 
-Serakion tenta de traiter les trois entrées à la fois.
+La porte compta les trois d'un coup.
 
-Intrusion à gauche.
+Gauche.
+Côté.
+Droite.
 
-Réaction de l'androïde doté de volonté sur la ligne latérale.
+Les filets lumineux s'arrêtèrent, partagés en trois.
 
-Déplacement trop rapide à droite.
+La porte d'alignement s'ouvrit.
 
-Et à cet instant, la porte d'alignement s'ouvrit mal.
+De travers.
 
-Ce ne fut qu'un instant.
+Au centre. Là où tout aurait dû rester fermé, non comme un blocage mais comme un passage, sur la largeur d'épaules d'une personne.
 
-L'ouverture centrale qui aurait dû rester fermée s'ouvrit non comme un blocage, mais comme une ligne de passage. Juste la largeur des épaules d'une personne.
+« Entre ! »
 
-« Entrez ! » lança Seorin, courte et forte.
+Seorin le lança, bref et fort.
 
-Le corps de Sion partit avant même sa pensée.
+Sion partit. Le corps avant la pensée, glissant presque dans la brèche ouverte.
+Le bord du mur qui se repliait lui frôla les deux épaules. C'était froid.
 
-Il se glissa presque dans l'ouverture. Le bord du mur qui se repliait lui frôla froidement les deux épaules.
+À l'intérieur.
 
-Une ancienne machine de l'axe gauche entra derrière lui et, avant que la porte ne se referme, tordit d'abord un axe de soutien intérieur.
-
+La vieille machine de l'axe gauche le suivit avant que la porte ne se referme. Elle saisit un axe de soutien intérieur et le tordit.
 Le métal grinça.
 
-La porte d'alignement tenta de se refermer, mais un point de son axe interne était déjà décalé.
+La porte voulut se refermer. L'axe intérieur était décalé d'un point.
+Elle se ferma à moitié, puis s'arrêta. La lumière de guidage, qui cherchait à corriger, trembla une fois, puis encore.
+La porte restait à moitié ouverte.
 
-La lumière d'annonce de Serakion trembla poliment une fois de plus.
+Sion posa le pied sur le sol intérieur et se retourna. Une porte à moitié ouverte, de travers.
+En dessous, les filets lumineux, toujours partagés en trois, ne parvenaient pas à couler.
 
-Une lumière qui voulait corriger l'erreur.
+Le coin de ses lèvres se releva. Il le réprima et raffermit sa prise sur la lame.
 
-Mais il était déjà trop tard.
+Dans le couloir intérieur, il n'y avait pas de lumières de délimitation. Les murs étaient plus proches, et la lumière venait d'en haut.
+Il s'adossa au mur. C'était froid. Il respira.
 
-Dès que Sion atterrit sur le sol intérieur, il se retourna.
+De l'autre côté de la porte, le son de guidage arriva.
+« Recalcul de l'alignement. »
+C'étaient des mots qu'il entendait pour la première fois.
 
-La première porte qui, un instant plus tôt, paraissait inviolable, restait maintenant à moitié mal ouverte, incapable de reprendre sa propre structure.
+Seorin entra. Sern, le panneau d'enregistrement serré contre la poitrine, puis Ater, descendu d'en haut, puis Kael.
+La vieille machine de l'axe droit passa la dernière. Son épaule se coinça dans la porte, et elle n'entra qu'en se tordant.
 
-La scène était si réjouissante que Sion faillit rire.
+Han Jiwoo se plaça devant la porte. Le dernier androïde retenait encore, depuis la ligne latérale, le regard de la légion.
+Les yeux optiques de deux unités du côté de Serakion étaient tournés non vers la porte, mais vers l'androïde.
 
-Seorin et les autres axes glissèrent à leur tour vers l'intérieur dans l'ordre prévu. Ater lisait déjà la façon dont les lignes de rétablissement supérieures convergeaient, et Sern calculait à la fois le nombre de personnes entrées et la vitesse de fermeture.
+« Viens, maintenant. »
 
-Le dernier androïde, lui, tenait encore le regard de la légion de Serakion juste avant le seuil.
+Han Jiwoo parla.
 
-Il ne remplaçait toujours personne.
+L'androïde vint. De la ligne latérale à la porte, un demi-temps.
+Quand les yeux optiques des deux unités, à sa suite, atteignirent la porte, c'était trop tard.
+L'androïde entra, puis Han Jiwoo.
 
-Mais il existait exactement autant qu'il le fallait pour que la porte s'ouvre mal.
+Derrière, la porte voulut se refermer, mais ne se ferma pas. L'axe intérieur décalé, à moitié.
 
-Ils en avaient franchi une.
+Les deux unités arrivèrent devant la porte. L'une glissa l'épaule dans l'entrebâillement, puis se coinça sur l'axe décalé.
+Elle se retira, recommença. Se coinça encore.
+Les deux se regardèrent, puis regardèrent la porte. Elles n'entrèrent pas et restèrent dehors.
 
-Ils en avaient fait tomber une.
+« Elles n'entrent pas ? »
 
-Et, vraiment, ils étaient montés à l'étape suivante.
+Sion posa la question.
 
-La première porte était tombée non parce qu'ils l'avaient brisée, mais parce que Serakion l'avait ouverte de travers.
+« Elles ne peuvent pas entrer. »
+
+Sern parla.
+
+« La porte ne sait même plus compter ce qui est de son côté. Une porte qui se trompe se trompe des deux côtés. »
+
+Sern écrivit sur le panneau d'enregistrement.
+
+« Cela fait une. »
+
+Il parla.
+
+« Nous sommes neuf à être entrés. Il lui faut deux temps pour se fermer. Elle ne s'est pas fermée. »
+
+« Et si elle ne se ferme pas ? »
+
+« L'arrière nous suivra. »
+
+Sern parla.
+
+« Mais comme elle n'est qu'à moitié ouverte, ce sera un par un. Ils ne pourront pas venir en ligne. »
+
+Seorin regarda l'entrebâillement, large d'une personne.
+
+« Un par un, ça suffit. On y va. »
+
+« On la laisse derrière nous ? »
+
+Han Jiwoo posa la question, les yeux sur la porte à moitié ouverte.
+
+« On ne peut pas la fermer. »
+
+Seorin répondit.
+
+« Si on la ferme, ils recomptent. Si on la laisse ouverte, ils restent dans l'erreur. »
+
+« Dans l'erreur. »
+
+« Les laisser dans l'erreur, c'est notre travail. Aujourd'hui. »
+
+Han Jiwoo regarda encore une fois la lumière partagée qui ne parvenait pas à couler.
+
+Sion aussi regarda encore une fois la porte. Rien de cassé, pas une éraflure.
+La porte se tenait là, d'elle-même, dans l'erreur.
+Il se détourna.
+
+Le dernier androïde regarda la porte. La porte par où ses semblables avaient dû passer, la porte qui n'avait pas su compter l'androïde.
+Han Jiwoo regarda cette épaule. Le nœud était toujours là.
+
+« On y va. »
+
+L'androïde suivit. L'axe d'épaule fit un bruit.
+Le couloir, de ce côté de la porte, ne renvoya pas ce bruit. Les murs l'avalèrent.
+
+Sern regarda ce mur. Il était pareil à ceux de l'étage d'en dessous.
+Il compta. Neuf, une porte.
+Le nombre des portes restantes, il ne le savait pas.
+
+« Il y en a encore combien ? »
+
+Sion posa la question.
+
+« Je ne le sais pas. »
+
+Sern parla.
+
+« Nous allons jusqu'à la lumière qu'Aka a vue. C'est là que cela finit. »
+
+Sion leva les yeux. La lumière du plafond était encore loin.
 
 ---
 

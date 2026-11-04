@@ -27,8 +27,6 @@ C'était Sion.
 
 « Celles-là, de toute façon, ne servaient qu'une fois. »
 
-Sion savait que cette réponse n'était pas un réconfort. Ater ne prenait pas la peine, en ce moment, d'adoucir les mauvaises nouvelles. Cela voulait dire qu'il n'en avait pas le temps.
-
 Han Jiwoo se redressa du côté de la paroi extérieure de la coque.
 
 « Si ça frappe ici, c'est fini. »
@@ -65,7 +63,7 @@ Elle leva un peu le menton vers le bruit du dehors.
 
 En l'écoutant, Sion comprit pourquoi elle était à ce point en colère.
 
-Han Jiwoo, c'étaient des mains qui ramenaient à la vie les engins mourants. Dès le premier jour où ils étaient tombés à Hazran, elle avait choisi l'engin le plus honnêtement en panne, et en arrachant de ses propres mains la pièce qu'elle y avait fixée, elle avait dit que le vaisseau n'avait pas mal. Et devant elle, à présent, marchait un objet fabriqué en partant du principe qu'il se briserait lui-même.
+Han Jiwoo, c'étaient des mains qui ramenaient à la vie les engins mourants. Pendant la course déjà, elle avait choisi l'engin le plus honnêtement en panne, et en arrachant de ses propres mains la pièce qu'elle y avait fixée, elle avait dit que le vaisseau n'avait pas mal. Et devant elle, à présent, marchait un objet fabriqué en partant du principe qu'il se briserait lui-même.
 
 « Ça non plus, ça n'a pas mal. »
 C'était Sion.

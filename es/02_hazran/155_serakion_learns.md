@@ -1,237 +1,273 @@
-# Capítulo 155 — Serakion también aprende
+# Capítulo 155 — Serakion aprende
 
-La huella que dejó el primer rescate
-apareció antes de lo esperado.
+El rastro que había dejado el primer rescate salió a la luz enseguida.
 
-El día que salieron a revisar de nuevo la siguiente línea de movimiento,
-Kael fue el primero en notar que no había cambiado el camino, sino el intervalo.
+El día que salieron a comprobar la siguiente línea de movimiento, los cinco volvieron a pasar por la brecha. Mientras la máquina vieja apoyaba en la ranura unos dedos que no temblaban, Sion marcó en la tablilla de puntos. Fuera, tercera vez.
 
-Antes pasaban tres o cuatro niños
-en un compás corto y parejo.
+Kael, el primero en arrimar el ojo a la rendija frente a la zona de espera, se dio cuenta de que lo que había cambiado no era el camino, sino los intervalos.
 
-Pero esta vez era distinto.
+Antes, tres o cuatro niños pasaban con un compás corto y parejo, pero esta vez era distinto.
 
-El intervalo entre filas se había vuelto levemente irregular,
-las paradas justo antes de la línea de relevo tampoco eran uniformes,
-y entre dos máquinas que parecían ir a la misma velocidad
-se veía hasta la huella de tiempos de reacción puestos distintos a propósito.
+El intervalo dentro de la fila variaba: tres en el lote de delante, dos en el siguiente, cinco en el otro. La pausa justo antes de la línea de relevo también variaba: larga, corta, larga. También el tiempo de reacción entre dos máquinas era distinto: una levantaba la mano y, un compás después, la otra la levantaba.
 
-Serakion no hizo sonar una alarma grande.
-En vez de eso, aprendió exactamente dónde había nacido la primera grieta,
-y desde esa rendija lo corrigió en silencio.
+Serakion no hizo sonar ninguna alarma: solo aprendió dónde se había producido la primera grieta y empezó a corregir desde ese punto.
 
-Kael dijo muy bajo.
+Kael habló muy bajo.
 
-—Más rápido de lo previsto.
+—Más rápido de lo que esperaba.
 
-La primera mano de recuperación respondió.
+La primera mano de recogida respondió.
 
-—Aquí siempre es así.
-—Más que el ruido grande,
-lo temible es a partir de la segunda vez.
+—Aquí siempre es así. Más que el ruido fuerte, lo que da miedo es a partir de la segunda vez.
 
-Esas palabras sonaban como una verdad que explicaba toda Serakion.
+—¿Y la tercera?
 
-Este mundo no corrige exhibiendo el error en grande.
-En vez de eso, para que el mismo desajuste no vuelva a salir,
-corrige el compás de forma más cortés y más silenciosa.
+Lo preguntó Kael.
 
-Por eso la segunda vez es más difícil.
+Mientras la primera no respondía, la segunda se miró la pierna, y Han Jiwoo también miró esa pierna.
 
-Han Jiwoo miró hacia los niños.
-Y enseguida se le endureció el rostro.
+—Ábrela antes de la tercera.
 
-No eran los mismos niños de antes.
-Claro que no se habían cambiado todas las caras.
-Pero la disposición era distinta.
+—Ahora no se puede.
 
-Junto al niño lento ya no ponían al rápido,
-junto a la mano que resiste mezclaban a uno ya habituado,
-y entre medias se intercalaban incluso humanos tan callados
-que más bien parecían cumplir un papel de vigilancia.
+Lo dijo la segunda.
 
-Serakion ya no subía a los niños sin más,
-sino que los reordenaba para que sus desajustes se compensaran entre sí.
+—Hace ruido.
 
-Han Jiwoo dijo bajo.
+Han Jiwoo volvió a guardar el destornillador.
+
+Kael miró el centro del techo, la línea de unión que había sostenido. Esa línea había cambiado: a su lado había aparecido otra línea nueva. El centro se había vuelto dos.
+
+—Le pusieron una más. Al lado del centro.
+
+La segunda miró esa línea.
+
+—La última vez no estaba.
+
+—Porque la última vez la sostuve yo. La pusieron al lado de donde sostuve.
+
+Se miró el hombro, pero con un solo hombro no podía sostener dos.
+
+—¿Y si sostiene las dos?
+
+Lo preguntó Ater.
+
+—No puedo.
+
+Lo dijo Kael.
+
+—Mientras sostengo una, baja la otra.
+
+—¿Entonces?
+
+—Entonces, en vez de sostener, hay que hacer otra cosa.
+
+De las dos líneas que miró Ater, la nueva era más fina.
+
+Al mirar hacia los niños, a Han Jiwoo se le endureció la cara.
+
+La disposición era distinta. Junto al niño lento no había un niño rápido. Junto al niño lento había otro niño lento. Junto a un niño de dedos blanquecinos había un niño de dedos transparentes, un niño conocido.
+
+Y, de trecho en trecho, entre los niños había intercalado un adulto demasiado callado. El adulto miraba solo al frente y, cuando los niños se tambaleaban, se detenía, y los niños lo miraban y se detenían.
+
+Han Jiwoo habló en voz baja.
 
 —Hasta a los niños los mezclaron.
 
-La segunda mano de recuperación respondió muy corta.
+La segunda mano de recogida respondió muy breve.
 
-—Porque una vez se escapó.
+—Porque una vez se escaparon.
 
-Esas palabras eran secas,
-pero dentro había una rabia clara.
+—¿Y ese adulto qué es?
 
-Serakion usa a la gente como material incluso desde el fracaso.
-Quién llegó tarde,
-quién fue rápido,
-quién siguió la mano,
-quién conservaba aún su propio compás.
+—No lo sé. Antes no estaba.
 
-Lo lee,
-y la próxima vez los dispone de modo que se aten unos a otros con más firmeza.
+—¿Es vigilancia?
 
-Ater miró largo esa nueva disposición y dijo bajo.
+La segunda miró a ese adulto que solo miraba al frente. Tenía un distintivo en el cuello, y la punta de los dedos transparente.
+
+—No es vigilancia. Es la referencia. Para que se ajusten mirándolo a él.
+
+Han Jiwoo miró a ese adulto. Debajo de aquella cara que solo miraba al frente, las manos del adulto temblaban muy levemente. Ella miró esas manos.
+
+—Ese tampoco encaja.
+
+—Finge encajar. Ponen de referencia a quien mejor finge encajar.
+
+Ater miró a ese adulto.
+
+—Esas manos las conozco.
+
+Lo dijo en voz baja.
+
+—¿De dónde?
+
+—De la mesa. Delante de mi padre.
+
+Han Jiwoo lo miró, pero Ater no apartaba los ojos de las manos del adulto.
+
+—Manos que tiemblan y fingen no temblar. Si se hace mucho tiempo, de verdad dejan de temblar.
+
+—¿Y él?
+
+—Todavía tiembla.
+
+Ater miró largo rato esa nueva disposición.
+
+Las máquinas de guía de arriba, y la posición de los humanos entre ellas. Las máquinas aminoraban para ajustarse al paso de los niños más a menudo que antes, y sus voces también eran más bajas. Entre la parada y el movimiento se había abierto un intervalo que antes no existía.
 
 —Ahora es más descarado.
 
-Han Jiwoo lo miró.
+Lo dijo en voz baja.
 
-Ater recorrió con la mirada las máquinas de guía de arriba y la posición de los humanos entre ellas, y siguió.
+Han Jiwoo lo miró, pero Ater siguió hablando sin apartar los ojos.
 
-—Se volvió más amable que antes.
-—Esa es la cara que sale no cuando todo va bien,
-sino cuando el control se ha vuelto más tupido.
+—Se ha vuelto más amable que antes. Esa cara no aparece cuando las cosas van bien, sino cuando el control se ha vuelto más apretado.
 
-Esas palabras eran exactas.
+—¿Cómo lo sabes?
 
-Las máquinas de arriba hablaban más suave que antes,
-fingían más a menudo seguir el paso de los niños,
-y hasta el amortiguamiento entre parar y avanzar se había vuelto más natural.
+—Así era mi casa.
 
-Pero justo por eso
-asfixiaba todavía más.
+Lo dijo Ater.
 
-El aumento de cortesía no era consideración,
-sino algo más cercano a una técnica nueva para suturar la primera grieta.
+—Cada vez que yo vacilaba, mi padre se volvía más callado.
 
-Serakion no aferraba a los niños con más rudeza.
-Al contrario, hacía que se movieran con más suavidad,
-con más naturalidad,
-y que fuera más difícil escapar.
+Han Jiwoo no preguntó más.
 
-Kael leyó esa estructura y casi enseguida sacó una conclusión.
+Una máquina puso la mano sobre el hombro de un niño y, sin empujar, la dejó ahí un compás. Antes era medio compás. Cuando el niño echó a andar, la máquina retiró la mano, y también retirarla le llevó un compás.
 
-—Así no se puede.
+Kael leyó esa estructura. Las dos líneas del techo, el adulto de referencia, la mano que duraba un compás más.
 
-La primera mano de recuperación preguntó.
+—Del mismo modo no va a funcionar.
 
-—¿Cómo cambia?
+La primera mano de recogida preguntó.
 
-Kael no respondió por un momento.
+—¿Cómo lo cambiamos?
 
-No miraba la fila de arriba,
-sino una máquina auxiliar que se movía fuera de esa fila.
+Kael no respondió enseguida: miró no la fila, sino lo que había fuera de la fila. En la esquina del sector había una máquina auxiliar en la que antes no se reparaba. No se movía ni hacía nada, y la luz de su cara no miraba a una persona tras otra, sino a toda la fila.
 
-Antes era de las que se notaban menos.
-Pero ahora, justo por ser tan natural,
-era de las que se ven aún más tarde, su sola existencia.
+—Eso es nuevo.
 
-—No hay que sacudir afuera —dijo bajo—. Ahora hay que partir desde adentro.
+—No.
+
+La segunda respondió.
+
+—Ya estaba antes. Solo que no estaba ahí.
+
+—¿Y dónde estaba?
+
+—Donde no se veía.
+
+Kael miró esa máquina. Ahora estaba donde se veía, puesta ahí para que la vieran.
+
+—No hay que sacudir afuera.
+
+Lo dijo en voz baja.
+
+—Ahora hay que partirlo desde dentro.
 
 Un breve silencio.
 
-Ater fue el primero en entender el sentido.
+Ater fue el primero en entender.
 
-—¿Quiere decir que, en vez de sacudir la fila entera,
-hay que partir primero el compás desde dentro?
+—¿Quiere decir que, en vez de sacudir toda la fila, hay que partir primero el compás desde dentro?
 
 Kael asintió.
 
-—Si creas confusión afuera,
-ahora la suturan enseguida.
-—Pero si dentro ya nace otra velocidad,
-por un momento ni ellos saben qué ajustar primero.
+—Si creamos confusión desde fuera, ahora lo suturan enseguida. Pero si dentro ya hay otra velocidad, por un momento ni ellos sabrán qué ajustar primero.
 
-Esas palabras eran peligrosas,
-pero lo que hacía falta ahora era justo esa clase de idea.
+—¿Quién, desde dentro?
 
-En el primer rescate, la mano de fuera abrió la rendija.
-Del segundo en adelante,
-quizá hubiera que usar también el tiempo de la gente que sigue dentro.
+Lo preguntó Han Jiwoo.
 
-Han Jiwoo volvió a mirar a los niños.
+—La gente que está dentro. No nosotros.
 
-Era mucho más difícil que antes.
-Quién reaccionaría primero,
-quién seguiría,
-quién crearía la confusión: era más difícil de leer.
+Han Jiwoo miró a la gente de la fila, los niños, el adulto y las manos que temblaban, y luego volvió a mirar a los niños.
 
-Pero aun en medio de eso,
-había cosas que se desajustaban muy levemente.
+Con el adulto en medio, era más difícil que antes. Quién reaccionaría primero, quién lo seguiría.
 
-Algún niño seguía moviendo el pie antes que la mano,
-algún niño seguía mirando al lado antes de mirar hacia arriba,
-y a algún niño, cuanto más amable era la guía que recibía,
-más se le tensaba el cuerpo.
+Aun así, había cosas que se desajustaban muy levemente. A un niño se le adelantaban los pies a las manos, y se detenía antes que el adulto. Otro, antes de mirar arriba, miraba a un lado: las manos temblorosas del adulto. Otro, cuando una máquina le puso la mano en el hombro, se quedó rígido un compás. Siguió rígido aun después de que la mano se apartara.
 
-Serakion se había vuelto más listo.
-Pero eso también quería decir
-que la gente aún no se había endurecido del todo en mero material.
-
-Han Jiwoo dijo muy bajo.
+Han Jiwoo habló muy bajo.
 
 —Todavía queda algo.
 
-Esta vez nadie preguntó qué quería decir.
+Nadie preguntó qué quería decir.
 
-Lo que quedaba eran los niños.
-Lo que quedaba era su propio compás.
-Lo que quedaba podía ser también el tiempo que recuerda a Hazran.
-
-Y quizá,
-el hecho de que una vez una mano hubiera entrado desde afuera
-también quedara ahora en algún punto de adentro.
-
-La segunda mano de recuperación preguntó bajo.
+La segunda preguntó en voz baja.
 
 —¿A quién miramos primero esta vez?
 
-La pregunta era sencilla,
-pero el peso que cargaba dentro era mayor que antes.
+En ese momento, un niño muy pequeño que estaba al final de la fila giró la cabeza de lado durante un instante. No hacia el adulto ni hacia la máquina: hacia el sitio vacío que tenía detrás. Luego miró al frente como si no hubiera pasado nada. La máquina no le puso la mano en el hombro. No lo había visto.
 
-Ahora ya no se trataba de elegir tres como al principio.
-Dentro de la Serakion que había cambiado tras el primer rescate,
-había que releer quién todavía podía ser una grieta.
+A Han Jiwoo, al verlo, le cambió la mirada. Ater también miró hacia allí casi a la vez.
 
-Y entonces,
-un niño muy pequeño que estaba al final de la fila
-giró la cabeza de lado en verdad como un instante.
+Kael vio la reacción de los dos y habló muy bajo.
 
-Ese movimiento era tan corto
-que de primeras podía parecer un hábito sin sentido.
+—Lo viste.
 
-Pero Han Jiwoo, en cuanto lo vio, cambió de mirada.
-Ater miró hacia allí casi a la vez.
+Han Jiwoo ni respondió ni apartó la mirada.
 
-Kael leyó la reacción de los dos y dijo muy bajo.
+Ese niño volvía a estar dentro del compás que le daba Serakion. Los pies sobre las huellas, las manos a los lados, la cabeza al frente. No parecía el mismo niño que había girado la cabeza hacía un momento.
 
-—Lo vieron.
+La segunda le miró los pies a ese niño.
 
-Han Jiwoo no respondió.
-Pero no apartó la vista.
+—Los pies no se movieron.
 
-Ese niño ya había vuelto, como si nada,
-al compás que Serakion le había dado.
+—Solo la cabeza.
 
-Justo por eso era más peligroso,
-y más importante.
+Lo dijo Han Jiwoo.
 
-Ahora el segundo rescate
-no se hará con fuerza como el primero.
-Tiene que ser más callado,
-hay que partir desde más adentro,
-y hay que leer con más precisión quién sostiene aún el tiempo del lado humano.
+—Es el primero que mueve solo la cabeza.
 
-Serakion ya aprendió una vez.
+—¿Y antes?
 
-Pero el grupo de reconocimiento,
-las manos de recuperación,
-y quizá también los niños que quedan dentro,
-ya tampoco eran los mismos de antes.
+—Antes eran primero los pies. En todos.
 
-El día que volvieron de regreso,
-nadie pensó que esta vez fuera más fácil.
+La segunda volvió a mirar a ese niño. Los pies sobre las huellas, la cabeza al frente.
 
-Al contrario, todos lo sabían.
+—¿Es ese?
 
-La primera grieta había sido romper el compás de Serakion.
+Lo preguntó la segunda.
 
-Pero del segundo en adelante,
-contra un mundo que había vuelto a aprender ese compás,
-había que demostrar que el tiempo del lado humano aún no estaba del todo muerto.
+—No lo sé. Pero ese miró atrás.
+
+—¿Qué hay detrás?
+
+Han Jiwoo miró detrás del niño: el sitio vacío y la pared.
+
+—Nada. Por eso miró.
+
+Cuando se encendió la línea luminosa de guía, la fila se formó. Primero se colocó el adulto, y los niños, mirando al adulto, se colocaron. Cuando la pared se abrió, el adulto pasó primero y los niños pasaron detrás.
+El niño pequeño fue el último.
+Antes de pasar, no giró la cabeza.
+Han Jiwoo esperó a que la girara.
+No la giró.
+La pared se cerró.
+
+—No miró.
+
+Lo dijo Han Jiwoo.
+
+—Sí miró.
+
+Lo dijo Ater.
+
+—Antes.
+
+Han Jiwoo miró la pared cerrada.
+
+Cuando la primera levantó la mano, los cinco se apartaron de la rendija. En el camino de bajada nadie habló, y solo se oía el ruido de la pierna de la segunda. Kael giró el hombro una vez. Dos líneas. Extendió dos dedos.
+
+Del lado de dentro de la brecha, Sion sostenía la tablilla de puntos. Junto a los puntos de los cinco: fuera, tercera vez. Al lado, un poco más arriba, trazó una pequeña muesca, y Kael miró esa muesca.
+
+—¿Qué es eso?
+
+—¿No dijiste que eran dos líneas?
+
+Lo dijo Sion.
+
+Kael no preguntó más.
 
 ---
 

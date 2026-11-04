@@ -62,7 +62,7 @@ But Sion saw something in that movement.
 
 It was slow.
 
-Not by much. Half a beat, maybe. But Sern had never once been half a beat late until now. It had been days since the blade opened his side, and in all that time it had never shown. Now it showed.
+Not by much. Half a beat, maybe. But Sern had never once been half a beat late until now. The blade had opened his side only that morning, and since then it had never once shown. Now it showed.
 
 Ater saw it too.
 

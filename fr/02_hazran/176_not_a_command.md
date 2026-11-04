@@ -1,124 +1,181 @@
 # Chapitre 176 — Ce qui n'était pas un ordre
 
-Le fait que le dernier androïde changeait n'était plus quelque chose que Sion seul percevait.
+L'être à la bouche souriante, celui aux yeux ronds, celui aux yeux étroits, la bouche renfrognée et la bouche tordue étaient désormais à terre. Il ne restait qu'un seul être : un corps presque brisé, et la trace d'un visage pas encore tout à fait éteint.
 
-Les gens repoussés vers l'arrière, Han Jiwoo tenant les enfants contre elle, et les anciennes machines qui regardaient le champ de bataille en silence voyaient tous ce changement.
+À chacun de ses mouvements revenait, un à un, un geste qu'avaient eu les cinq couchés au sol.
 
-Mais personne ne pouvait l'appeler facilement de l'espoir.
+Les bras ouverts, tenus jusqu'au bout sans se refermer : c'était ce qu'avaient fait les yeux ronds, à la fin.
+La main qui saisissait les deux bras de l'adversaire pour les tordre en arrière : c'était celle de la bouche souriante.
+Le regard qui allait d'abord aux petits mouvements, derrière soi : c'était celui du premier tombé.
 
-Car trop de choses avaient déjà disparu pour en payer le prix.
+Sion les reconnut un à un. Chaque fois, il regardait une fois les cinq au sol.
 
-L'être à la bouche souriante, celui aux yeux ronds, celui à la bouche courte n'étaient plus là.
+Sern regardait aussi. Sur le panneau d'enregistrement, il avait noté quatre lignes. À côté de la quatrième, il ajouta une petite marque. D'en haut, Ater baissa les yeux vers le panneau d'enregistrement.
 
-Il ne restait qu'un seul corps presque brisé, et la trace d'un visage qui ne s'était pas encore tout à fait éteint.
+« Est-ce la même chose ? »
 
-Mais c'est justement pour cela que, chaque fois qu'il bougeait, on aurait dit que les manières des êtres disparus demeuraient avec lui.
+Ater posa la question.
 
-Par instants, il y avait un mouvement qui déviait sur le côté pour bloquer. À d'autres, une résistance qui fixait le corps jusqu'au bout pour couvrir l'arrière. À d'autres encore, un regard qui détectait d'abord le moindre mouvement derrière lui.
+« Ce n'est pas la même chose. »
 
-En le voyant, Sion ne pouvait se défaire de l'idée que cet être ne combattait pas simplement seul.
+Sern répondit.
 
-Il était seul, mais ne semblait pas seul.
+« Cela vient du même endroit. »
 
-La légion de Serakion continuait à entrer.
+Ater reporta les yeux sur l'entrée.
 
-Désormais, elle poussait les individus comme pour écraser le passage autour de ce dernier androïde.
+La Légion de Serakion continuait d'affluer. La disposition visait désormais à écraser le passage autour du seul dernier androïde, jusqu'à le faire céder.
 
-De face. Par la gauche. Par l'ouverture supérieure.
+De face.
+Par la gauche.
+La brèche du haut.
 
-Ce n'était plus une disposition qu'une seule direction pouvait contenir.
+Ater regarda d'abord la brèche du haut.
 
-Mais il tint encore, autrement.
+« La brèche du haut s'est ouverte. »
 
-Il ne coupa pas aussitôt l'individu qui venait de face. Il recula volontairement d'un demi-pas pour ouvrir un espace.
+Sern lui répondit, les yeux sur l'entrée.
 
-Quand deux individus latéraux s'y engouffrèrent ensemble, il utilisa son propre corps comme axe pour emmêler d'un coup les trois directions d'entrée.
+« La troisième ligne fait le tour par là. »
 
-Le choc éclata, et les trois soldats de Serakion se bloquèrent un instant en se poussant les uns les autres.
+Seorin leva la tête. La brèche du haut était sombre, on n'y voyait rien. Elle leva la main vers l'arrière.
 
-Dans cette courte faille, il brisa d'abord le centre de l'individu le plus en arrière.
+« Vous deux. Élargissez encore la brèche de l'arrière. »
 
-Ater regarda la scène le souffle retenu.
+Deux vieilles machines appuyèrent l'épaule contre le panneau mural de l'arrière, et le panneau mural recula en grinçant jusqu'à laisser passer deux personnes de front.
 
-Ce n'était plus une déformation accidentelle. C'était un apprentissage net. Un choix net.
+Ce n'était pas une disposition qu'on pouvait tenir en ne bloquant qu'une direction.
 
-Sern tenait toujours sa tablette, mais il finit par ne rien écrire.
+Une fois encore, le dernier androïde tint d'une manière un peu différente.
 
-Ce n'était pas qu'il n'y avait rien à consigner. C'était que le changement sous ses yeux devançait les mots qu'il avait l'habitude de manier.
+L'unité qui arrivait de face ne fut pas tranchée tout de suite : un pas en arrière ouvrit un espace. L'espace ouvert avait la largeur de deux personnes. Deux unités du flanc s'y engouffrèrent ensemble.
 
-Han Jiwoo se tenait parmi les enfants en larmes, avec le visage de quelqu'un qui finit par regarder même lorsqu'il voudrait détourner les yeux.
+Le corps du dernier androïde servit d'axe, et les trajectoires d'entrée des trois s'emmêlèrent d'un coup. L'épaule de la première unité heurta la poitrine de la deuxième, et le pied de celle-ci se prit dans celui de la troisième.
 
-Elle comprenait.
+Le choc éclata, et les trois unités de Serakion, se poussant et s'écrasant les unes les autres, s'immobilisèrent un instant.
 
-Ce qui faisait bouger cet être n'était pas un ordre placé par Serakion.
+Dans cette brève ouverture, ce fut d'abord le centre de l'unité la plus en arrière qui fut brisé. Les deux de devant laissées telles quelles, la main passa derrière elles. L'unité de derrière s'effondra, et les deux de devant basculèrent par-dessus.
 
-Ce n'était plus la précision de l'obéissance. Cela penchait plutôt vers quelque chose de trop personnel.
+Les deux à terre tentèrent de se relever. D'un pied, l'androïde tira une des unités ennemies repoussées tout à l'heure au bord du couloir et la plaça devant elles.
+Le pied de la première, qui se relevait, se prit dans ce corps.
+Dans l'intervalle, le cou de la deuxième fut brisé.
+La première fut brisée là où elle s'était prise.
 
-Ce qu'on ne peut pas laisser derrière soi. Ce que le corps a retenu avant même de savoir qu'il faut le protéger. La direction laissée jusqu'au bout par les compagnons disparus.
+Ater regarda la scène, le souffle suspendu. Ses doigts, agrippés au bord du passage, blanchirent.
 
-Ces choses semblaient demeurer quelque part dans ce corps sous forme d'image.
+Sern tenait le panneau d'enregistrement. Il commença une ligne, s'arrêta, et barra d'un trait ce qu'il avait écrit. Sans rien réécrire, il baissa la main qui tenait le panneau d'enregistrement.
 
-Un enfant cessa de sangloter et murmura très bas :
+À l'arrière, Luhai souleva un enfant. L'enfant se débattait.
 
-« Il… il nous regarde encore. »
+« J'y vais pas. Je veux regarder. »
 
-Han Jiwoo ne put pas répondre.
+« Regarde en avançant. »
 
-À la place, elle leva les yeux vers le dernier androïde.
+Luhai cala l'enfant autrement, de façon que son visage soit tourné vers le champ de bataille.
 
-C'était vrai.
+« Je te porte. Regarde en avançant. »
 
-Même en combattant, chaque fois qu'il trouvait une faille, il regardait très brièvement en arrière.
+L'enfant cessa de se débattre et, regardant l'androïde par-dessus l'épaule de Luhai, passa la brèche de l'arrière. Même la brèche passée, Luhai ne posa pas l'enfant.
 
-Y avait-il quelqu'un à aider ? Tous étaient-ils encore vivants ? L'arrière tenait-il toujours ?
+Han Jiwoo, debout parmi les enfants en pleurs, regardait le champ de bataille. Elle était restée dans la posture de quelqu'un qui avait voulu tourner la tête sans y parvenir. Un enfant lui tira la main. Elle donna sa main à l'enfant, mais pas ses yeux.
 
-Ces vérifications devenaient de plus en plus rapides. Il y avait de moins en moins d'hésitation.
+Un enfant cessa de sangloter et murmura tout bas.
 
-Comme si ce qui avait commencé par instinct se solidifiait peu à peu en volonté.
+« Celui-là… nous regarde encore. »
 
-Un soldat de Serakion tomba d'un élément de structure supérieur, droit vers le bas.
+Han Jiwoo ne put pas répondre ; à la place, elle leva seulement les yeux vers le dernier androïde.
 
-Même Sion pensa que c'était trop tard, mais le dernier androïde pivota en soulevant le corps comme par réflexe.
+En plein combat, à chaque ouverture, le dernier androïde jetait un très bref regard en arrière. Une fois après avoir renversé une unité, une fois avant que la suivante n'entre dans le passage. L'intervalle se raccourcissait. Au début, toute la tête se tournait ; maintenant, seul l'œil optique allait et revenait.
 
-Le mouvement fut si rapide qu'il était fini avant que les enfants puissent crier.
+Han Jiwoo parla, la main de l'enfant dans la sienne.
 
-L'individu qui tombait alla s'écraser contre le mur, la taille à moitié brisée, et le contrecoup tordit fortement l'axe d'épaule qui restait au dernier androïde.
+« Oui. »
 
-Un bruit de métal raclé se fit entendre. Un œil optique vacilla comme s'il allait s'éteindre.
+L'enfant leva les yeux vers elle. Elle ne regardait pas l'enfant.
 
-Mais il ne s'arrêta pas.
+« Les yeux sur nous. »
 
-À cet instant, Sion sentit clairement que cet être s'usait lui-même pour bouger.
+À côté, la femme de Hazran qui entourait les épaules d'un autre enfant regardait elle aussi le champ de bataille. Sa main serra une fois l'épaule de l'enfant.
 
-Pas seulement les pièces qui restaient, mais quelque chose comme un sens encore présent, brûlé pour avancer.
+Sion regardait du côté des gens, comme Seorin le lui avait dit. Les yeux de tous ceux qui se tenaient contre le mur allaient au même endroit. Personne ne partait du côté opposé à l'entrée, et l'homme dont Sion avait saisi la manche tout à l'heure restait debout devant la brèche. Par-delà le dos de cet homme, Sion vit ses doigts, appuyés au mur, gratter la paroi.
 
-C'est pourquoi cela faisait encore plus mal.
+Une unité de Serakion se laissa tomber tout droit depuis la structure du haut.
 
-C'était un éveil, mais un éveil trop tardif.
+Ater cria.
 
-Ce changement avait été poussé jusqu'ici seulement après avoir sauvé quelqu'un, perdu quelqu'un, et vu quelqu'un disparaître à sa place.
+« En haut ! »
 
-Plusieurs Hazraniens ne pouvaient même plus pleurer. Les enfants ne faisaient qu'avaler leur souffle entre deux sanglots.
+Quand Sion la vit, ce corps était déjà au-dessus des têtes.
 
-Plus personne ne pouvait voir cet être comme « cette chose ».
+Le dernier androïde pivota comme pour soulever son propre corps. Son épaule reçut le flanc de l'unité qui tombait et en dévia la course. Le mouvement fut fini avant même que les enfants aient pu crier.
 
-C'était trop évident.
+L'unité qui tombait alla s'écraser contre le mur d'à côté, la taille à moitié brisée, et le contrecoup tordit fortement l'axe d'épaule qui restait au dernier androïde. Il y eut un bruit de métal qui grinçait. Un des yeux optiques vacilla, sur le point de s'éteindre.
 
-Alors le dernier androïde regarda très brièvement en arrière.
+Pas d'arrêt pour autant.
 
-Au bout de son regard se trouvaient l'enfant en larmes et Han Jiwoo, qui le tenait contre elle sans cesser de lever la tête.
+L'épaule tordue laissée telle quelle, le corps se tournait vers l'unité suivante quand une pièce se détacha de l'épaule. Pas un regard vers le bas pour elle.
 
-Étrangement, ce court arrêt avait désormais un poids différent de celui du début.
+La pièce roula sur le sol vers l'arrière et s'arrêta devant les pieds de Han Jiwoo. Elle se contenta de la regarder, sans la ramasser ni l'écarter du pied. Elle la laissa là.
 
-Il ne pouvait toujours pas parler. Il ne savait sans doute pas encore tout ce qui se passait en lui.
+Parmi les gens de Hazran, certains ne pouvaient même plus pleurer, et les enfants ne faisaient qu'avaler leur souffle entre deux sanglots. Un homme détacha du mur la main qu'il y appuyait et se couvrit la bouche.
 
-Mais au moins une chose devenait de plus en plus nette.
+Ater longea le passage du haut jusque sous la brèche supérieure. La brèche avait la largeur d'une personne, et au bord pendait une plaque desserrée. Il donna un coup de pied dans la plaque, qui tomba à l'intérieur de la brèche et resta coincée en biais ; un second coup, et elle s'arrêta en bouchant à moitié la brèche.
 
-Ce qui lui restait n'était pas un ordre.
+L'unité suivante tenta de descendre par là et se prit dans la plaque. D'un pied, Ater la poussa et la fit tomber. En tombant, le bras de l'unité lui frôla la cheville, mais il ne retira pas le pied. Elle tomba non du côté des enfants, mais du côté du tas.
 
-C'était la forme de ce qu'il n'avait pas pu laisser derrière lui.
+Sern le vit et parla.
 
-Et Sion comprit, précisément pour cette raison, que ce combat n'était pas encore fini.
+« Le haut est fermé. »
+
+« Ce ne sera pas la seule. »
+
+Ater répondit. Debout près de la plaque, sans quitter des yeux la brèche du haut, il maintenait la plaque d'une main. Chaque fois que la plaque tremblait, sa main appuyait plus fort.
+
+Seorin leva les yeux vers lui.
+
+« Reste là. »
+
+Ater ne répondit pas, et resta là.
+
+En bas, Sern leva les yeux.
+
+« La deuxième ligne fait le tour de votre côté. »
+
+« Je sais. »
+
+Ater répondit sans lâcher la plaque. Sern leva le panneau d'enregistrement et l'inclina vers Ater, mais Ater ne baissa pas les yeux.
+
+À ce moment, le dernier androïde jeta un très bref regard en arrière.
+
+Au bout de ce regard se trouvaient un enfant en larmes et Han Jiwoo qui, tout en serrant l'enfant contre elle, gardait la tête levée jusqu'au bout.
+
+L'arrêt fut plus long qu'au début. Au début, seul l'œil optique était allé et revenu ; cette fois, la tête s'était tournée, et était restée tournée un temps.
+
+Han Jiwoo reçut ce regard. Elle ne lâcha pas l'enfant qu'elle tenait. Elle n'acquiesça pas, ne leva pas la main. Elle ne détourna pas les yeux.
+
+Le dernier androïde regarda de nouveau devant.
+
+Pendant ce temps, une unité de Serakion était arrivée à dix pas. Le front était dégagé. De là, on pouvait la trancher sur-le-champ.
+
+Le coup ne partit pas.
+
+D'abord, un pas de côté, entre cette unité et la direction où se trouvait l'enfant quand le regard s'était tourné en arrière. Ensuite seulement, le choc fut reçu.
+
+La réception eut un temps de retard. De ce temps-là, le plastron s'enfonça plus profond.
+
+Sion vit ce pas.
+
+Seorin le vit aussi. La main qui serrait sa ceinture se desserra.
+
+La main de Sern se remit à bouger sur le panneau d'enregistrement. Cette fois, il n'effaça pas.
+
+D'en haut, Ater baissa les yeux et demanda.
+
+« Qu'avez-vous noté ? »
+
+Sern ne leva pas le panneau d'enregistrement pour le montrer.
+
+« C'est un pas. »
 
 ---
 

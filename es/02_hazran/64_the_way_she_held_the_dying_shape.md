@@ -46,8 +46,6 @@ Aka asintió con un gesto breve.
 Lo dijo ella.
 —Solo se parece en la forma.
 
-A Sion esa frase le sonó como una explicación de Hazran entera.
-
 Lo que solo se parece por fuera.
 Lo que finge ser una puerta.
 Las luces que fingen estar vivas.
@@ -203,8 +201,6 @@ En cambio, habló muy bajo.
 Lo dijo ella.
 —Hacer que se mueva es lo siguiente.
 
-Sion pronto entendió por qué esas palabras le entraban, de un modo extraño, con más fuerza.
-
 Lo que se podía hacer en este interior llegaba hasta sujetarlo para que no muriera.
 Elevarse de verdad,
 tomar el camino
@@ -226,14 +222,6 @@ En cambio, miró una vez la oscuridad más profunda detrás del casco, miró otr
 —Antes de salir afuera.
 Lo dijo ella.
 —Primero hay que ver una cosa más.
-
-Sion supo que aquello no era una simple explicación añadida.
-
-Quería decir que dentro de este interior había todavía algo más adentro,
-que antes que la manera de salvar el casco
-quedaba algo que mostraría por qué este camino aún no había muerto del todo.
-
-Y ahora Aka, por primera vez, estaba pensando en mostrarles también el siguiente umbral.
 
 ---
 

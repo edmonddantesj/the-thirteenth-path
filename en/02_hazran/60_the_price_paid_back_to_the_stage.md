@@ -34,13 +34,13 @@ Sion said, low.
 
 As the line under the dead structures ended, a wide joining surface came into view, closing back onto the outer tier of Hazran's central courtyard. It was the same place as the starting line they had seen before the race, yet now it looked completely different. The red awnings were half overturned, part of the spectator railing had collapsed, and the people no longer stood like onlookers. Some had pulled back, some were still watching the inside, and some were weighing which side to join next.
 
-And in the middle of it, Zahir was still standing.
+And in the middle of it, Zahir was standing.
 
 This time he was not sitting.
 
 To Sion, that somehow made him seem larger. Until now Zahir had always been the man who sat in his place and watched the stakes roll toward him. But now he was on his feet. Like a man who would not take that last scene—who came back before him holding the real thing—sitting down.
 
-Nasim was half a step behind him, and Harun stood farther to the side. Nahira was still half-blocking Aka from the front, Luhai had come down to the foot of the railing and was leaning nearly inward, and Seorin and Ater were no longer spectators; their faces were ready to step back into the board.
+Nasim was half a step behind him, and Harun stood farther to the side. Over by the stands, Nahira was still half-blocking Aka from the front, Luhai had come down to the foot of the railing and was leaning nearly inward, and Seorin and Ater were no longer spectators; their faces were ready to step back into the board.
 
 The moment the two craft reached the front of the center, the crowd's noise surged once, loud, then died out on its own.
 
@@ -120,8 +120,6 @@ Zahir was the first to lift his gaze, from the ember to Sion's face.
 he said.
 "Who ruined the board?"
 
-This time the air in the courtyard stopped for a different reason than before.
-
 This was no longer just a matter of settling the race.
 The hand holding the real thing had come back alive, and that meant who had broken the rules had to be settled now too.
 
@@ -161,7 +159,7 @@ It had already been said.
 
 For the first time, Zahir turned his head.
 
-He took his eyes off the ember in Sion's hand and looked toward the stands. Toward a part of them, among the people there, that Zahir had not looked at until then.
+He took his eyes off the ember in Sion's hand and looked toward the stands. Toward the part of them he had not once turned his eyes to until then.
 
 "Whose child is that?"
 
@@ -173,7 +171,7 @@ Zahir asked without looking at Nasim.
 
 "Can the child be asked?"
 
-He had said *can the child be asked*, not *may I ask her*. Sion caught the difference. The highest person in the courtyard had just put a child on the board.
+It was shaped like a question, but it was not asking permission. Sion caught the difference. The highest person in the courtyard had just put a child on the board.
 
 Nasim's smile was gone entirely.
 
@@ -208,14 +206,6 @@ Sion looked into his own hand.
 The ember was the same as before. It had neither grown nor shrunk.
 
 In this city, it was the one thing whose price had not changed.
-
-In that moment Sion knew.
-
-From here on,
-this was not the scene where they proved they had come back alive,
-but the scene that decided whose blood would pay to settle that return.
-
-And in the middle of it, the real thing was in his hand.
 
 ---
 

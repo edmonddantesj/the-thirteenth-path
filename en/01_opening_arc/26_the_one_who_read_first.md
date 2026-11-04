@@ -20,7 +20,7 @@ Han Jiwoo came in right after her.
 
 Sion didn't let that slide past.
 
-At this very moment, the two left behind were holding on to the same scene in different ways. Seorin was watching for the moment to cut, and Han Jiwoo was calculating whether the hull they would return to was still alive. However long this site held was already the time limit on the conversation.
+At this very moment, the two left behind were holding on to the same scene in different ways. Seorin was watching for the moment to cut, and Han Jiwoo was calculating whether the hull they would return to was still alive.
 
 At last, a single footstep sounded beyond the corner.
 
@@ -30,7 +30,7 @@ And behind it, a face came into view.
 
 He was younger than expected. A thin shade, the kind that settles on someone who hasn't slept in a long time, lay over pale skin, and a short old scar ran under the left line of his jaw. His eyes were tired but not clouded. If anything, like someone who had survived by looking at one thing for far too long, his gaze was strangely straight.
 
-He did not come all the way. He stopped on the line where light and dark divided and lowered the hand holding the larger fragment a little. It wasn't a stance of giving it up, and it wasn't a readiness to bolt either. It was a distance at which neither side meant to kill the other.
+He did not come all the way. He stopped on the line where light and dark divided and lowered the hand holding the larger fragment a little. It was a distance at which neither side meant to kill the other.
 
 Sion spoke first.
 
@@ -107,7 +107,7 @@ Seorin cut in, cold.
 
 "So you do know what we want."
 
-Watching that short exchange, Sion was sure. Hiding who he was wasn't the man's aim. He'd simply been outside the record so long that there was no name left to give, or none that meant anything. What mattered wasn't the name but the position. This was a hand that had held out a long time beyond the world's official map, on the edge of an erased path.
+Watching that short exchange, Sion was sure. This was a hand that had held out a long time beyond the world's official map, on the edge of an erased path.
 
 Sion asked slowly.
 
@@ -119,9 +119,7 @@ This time the man laughed right away. A very short, tired laugh.
 He tightened his grip on the fragment a little.
 "And with this kind of thing, it's usually the ones chasing it with you who disappear first."
 
-At that one short line, Sion's face set, just a little.
-
-It was information. Not a passing feeling, but information that this man had done the same thing at least once before and had lost someone then. That was why he was alone now, and why, even holding the larger fragment, he couldn't just hand it over blindly.
+At that, Sion's face set, just a little.
 
 Sern seemed to have read it too; his voice went lower.
 
@@ -152,7 +150,7 @@ This time the man really did laugh a little.
 he said, low.
 "I'm seeing if you're alive."
 
-At that moment a judgment response deep in the structure flickered briefly again. Everyone's eyes went to it at once. The response was weak, unsteady, as if about to cut out. It meant that any later, and the conversation, the fragment, all of it could close together.
+At that moment a judgment response deep in the structure flickered briefly again. Everyone's eyes went to it at once. The response was weak, unsteady, as if about to cut out.
 
 The man spoke first.
 
@@ -163,8 +161,6 @@ Instead of answering, Sion looked at the fragment in his hand.
 "So."
 
 The man hesitated for a moment. It was very short, but it was there. And the hesitation was closer to calculation than to fear. Carry it out alone and he wouldn't get far. Fight here and both sides die. But hand it over now and he hadn't finished reading them yet. Once that calculation had run through, he finally held the larger fragment out, very slightly.
-
-It wasn't a stance of handing it over entirely. But at least it was no longer the posture of someone meaning to keep it to himself and run.
 
 "I couldn't read it to the end,"
 he said, low.
@@ -202,7 +198,7 @@ At that, Sion was briefly aware of Seorin's end of the channel.
 
 What the man had just asked for was exactly the authority Seorin, back on the ship, already held.
 
-The moment those words fell, Sion knew the man had, for the first time, shifted his weight from the fragment toward people. It wasn't cooperation yet. Even less was it trust. But at the very least, he had taken one step back from keeping the holding and the path all to himself.
+The moment those words fell, Sion knew the man had, for the first time, shifted his weight from the fragment toward people.
 
 Ater asked, very low.
 
@@ -222,11 +218,6 @@ Over the close-range channel, Seorin spoke quietly.
 "Good. Now it finally feels like a start."
 
 No one denied it.
-
-The corner and the judgment unit, the dying response and the larger fragment, and a man who had seen the order cut away before the name.
-Now, between these five and that one man, there was at least one thing in common.
-
-Every one of them already knew they couldn't go any further from here alone.
 
 ---
 

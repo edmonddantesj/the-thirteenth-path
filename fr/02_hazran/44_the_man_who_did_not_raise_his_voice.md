@@ -150,8 +150,6 @@ Cette fois, Aka secoua brièvement la tête.
 Elle poursuivit :
 « Mais tant qu'on croit que c'est une porte, on ne va pas jusqu'au bout. »
 
-Sion sentit ces mots s'enfoncer plus lourdement que les précédents. Elles ne s'étaient pas trompées d'entrée. Mais à croire la mauvaise chose, on n'allait pas jusqu'au bout. C'étaient des mots qui donnaient à la fois l'espoir et la coupure.
-
 Ater demanda calmement.
 
 « Alors comment faut-il y aller ? »
@@ -163,8 +161,6 @@ Aka ne répondit pas tout de suite.
 « Il faut d'abord détacher ça. »
 Elle poursuivit :
 « Le simulacre et l'emplacement. »
-
-Sion sentit que cette phrase, sans être encore une explication complète, indiquait au moins clairement la tâche suivante. Il fallait détacher le simulacre de l'emplacement tranché. Sinon, on n'atteindrait jamais l'endroit où la vraie porte s'était trouvée.
 
 Nassim parla très doucement.
 
@@ -214,7 +210,7 @@ C'était à Aka qu'elle parlait.
 
 Aka ne bougea pas.
 
-Nahira l'appela de nouveau. Cette fois, sans le nom. Elle tendit seulement un peu la main.
+Nahira l'appela de nouveau. Cette fois, sans un mot. Elle tendit seulement un peu la main.
 
 Aka regarda cette main. Puis elle tourna la tête vers Zahir.
 
@@ -243,8 +239,6 @@ Zahir parla bas.
 Haroun leva brièvement les yeux.
 
 « Ouvre. »
-
-Ce seul mot changea une fois de plus l'air de la pièce.
 
 Sion comprit alors seulement qu'il avait mal vu quelque chose.
 

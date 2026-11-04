@@ -152,7 +152,7 @@ Han Jiwoo lo recogió como de pasada.
 
 —Aquí siempre empieza cuando se acaba, ¿no?
 
-Sion pensó que tenía razón. Hazran siempre había sido así. En cuanto parecía que habías conseguido algo, a partir de ahí empezaba a ponerse el precio de verdad.
+Hazran siempre había sido así. En cuanto parecía que habías conseguido algo, a partir de ahí empezaba a ponerse el precio de verdad.
 
 Zahir habló despacio.
 
@@ -202,7 +202,7 @@ Entonces aquello se parecía menos a un destino que al derecho a pasar a lo sigu
 
 Sion volvió a mirarse la mano.
 
-Durante días la había llevado pensando que era una llave. Había creído que, si la cogía, algo se abriría, y por eso no se atrevía a abrir la mano, por miedo a que se la quitaran.
+Durante toda la carrera la había llevado pensando que era una llave. Había creído que, si la cogía, algo se abriría, y por eso no se atrevía a abrir la mano, por miedo a que se la quitaran.
 
 No era una llave. Era un pase.
 
@@ -251,8 +251,6 @@ Eso dijo Zahir.
 Luego añadió, breve.
 
 —La recompensa se ajusta dentro.
-
-Con esa sola frase, el aire del patio volvió a cambiar.
 
 Sion entendió que aquello tenía dos sentidos.
 

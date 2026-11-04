@@ -20,7 +20,7 @@ Kael habló primero, en voz baja.
 
 —Nos estamos pegando.
 
-No era un comentario, sino un parte de distancia. El hueco entre los dos aparatos se había vuelto muy corto. Un poco más cerca y podrían pasar a una persona de uno a otro; demasiado cerca, en cambio, y podían engancharse y caer juntos.
+El hueco entre los dos aparatos se había vuelto muy corto. Un poco más cerca y podrían pasar a una persona de uno a otro; demasiado cerca, en cambio, y podían engancharse y caer juntos.
 
 Sern habló enseguida.
 
@@ -52,7 +52,6 @@ Antes incluso, Sern añadió en voz baja.
 
 —Si la pasan, se sacude.
 
-Era exacto.
 La brasa verdadera no era vistosa, pero estaba viva. Cambiarla ahora de mano no era solo pasar un objeto: podía ser sacudir la reacción una vez más. Si aquí cambiaban de criterio sin necesidad, podían acabar matando lo verdadero con sus propias manos, como los equipos a los que habían engañado las falsas.
 
 Han Jiwoo zanjó, breve.
@@ -105,8 +104,6 @@ Kael respondió con toda calma.
 
 —Huir juntos siempre es así.
 
-A Sion le parecía todavía más raro que aquella conversación se resolviera tan rápido. Pero tampoco era raro. Ahora los cuatro se movían con una cabeza más cerca de sobrevivir que de explicar.
-
 En las gradas también se leía el cambio.
 
 Luhai vio abajo cómo los dos aparatos se acercaban un momento y luego volvían a ajustar la distancia, y frunció la cara enseguida.
@@ -125,7 +122,6 @@ Ater la miró enseguida.
 Seorin respondió así.
 —Pero la mano que lleva lo verdadero se va a ir yendo hacia donde no se la ve.
 
-Tenía razón.
 Si la mano que tenía lo verdadero seguía viéndose con claridad, todo Hazran se le echaría encima.
 Por eso, a partir de ahora, lo importante no era tanto la rapidez como **enturbiar, aunque fuera un momento, quién llevaba lo verdadero**.
 

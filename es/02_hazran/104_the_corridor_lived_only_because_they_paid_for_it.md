@@ -182,7 +182,7 @@ Sion esperó lo que diría a continuación.
 
 Zahir no habló. Tenía cara de estar esperando a que hablara Sion.
 
-Allí mismo, Sion sintió que algo se le enganchaba. No era de hoy: era algo que había oído hacía unos días.
+Allí mismo, Sion sintió que algo se le enganchaba. Era algo que había oído hacía un rato.
 
 Le vino a la memoria alguien que, bajo la rampa, movía medio palmo una plancha de metal.
 

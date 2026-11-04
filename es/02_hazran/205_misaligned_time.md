@@ -1,660 +1,182 @@
 # Capítulo 205 — El tiempo desalineado
 
-Después de que Serakion se callara,
-no todo se calmó enseguida.
+Aun después de que Serakion quedara en silencio, las manos no descansaron.
 
-Al contrario.
+Retiraron placas caídas, recogieron los restos de las líneas de clasificación apagadas y arrancaron los ejes de fijación mal clavados.
+La gente usaba las manos.
+Las máquinas sostenían.
+Los androides iban deteniendo, uno por uno, los dispositivos de alineación que quedaban.
+Hablaban poco. Sin que nadie lo mandara, cada uno hacía lo que tenía delante.
 
-Lo que había estado reprimido demasiado tiempo
-solo tras derrumbarse el orden
-volvió por fin a su peso original.
+Al sector que ordenaba la gente de Hazran habían llegado humanos bajados de los estratos de arriba. Gente que había estado atada en el interior de Serakion, gente con un distintivo en el cuello y la punta de los dedos transparente, se sentaba contra la pared, unos pocos cada vez. Cuando la gente de la capa oculta les llevó agua, las manos que la recibían temblaban.
 
-Quién se hirió.
-Quién sobrevivió.
-Quién volvió demasiado tarde.
-Y
-quién estuvo justo al lado
-sin que al final lo reconocieran y pasara de largo.
+Primero se armó un pequeño revuelo. Creyeron que alguien se había herido, pero no.
 
-Esas cosas
-ya no se postergaban más.
+La primera en detenerse fue Han Jiwoo.
 
-En varios sectores del interior de Serakion
-seguían retirando placas caídas,
-apartando restos de líneas de clasificación apagadas,
-arrancando ejes de fijación mal clavados.
+Miraba hacia un pasaje derrumbado, y dejó despacio el trozo de metal que tenía en la mano. Delante del pasaje, entre los restos y el polvo, había un niño con un distintivo en el cuello y la punta de los dedos transparente. No se miraba los pies, sino que miraba a un lado; giró los pies hacia aquí y los volvió a dejar como estaban.
 
-La gente ponía las manos,
-las máquinas hacían de apoyo,
-los androides detenían uno a uno los dispositivos de alineación que aún quedaban.
+La boca de Han Jiwoo se abrió como un aliento.
 
-Se hablaba poco.
+—Ese niño…
 
-Pero entre esas pocas palabras
-corría ya sin duda
-un aliento distinto del de antes.
+Varios alzaron la cabeza.
 
-No porque alguien lo ordenara,
-sino el aliento de moverse sabiendo cada uno qué hacer de su lado.
-
-En eso,
-en un sector que ordenaban los sobrevivientes de Hazran,
-surgió primero un pequeño alboroto.
-
-Al principio
-creyeron que alguien se había herido.
-
-Pero no.
-
-La que se detuvo antes que eso
-fue Han Jiwoo.
-
-Ella, mirando hacia un corredor derrumbado,
-de pronto dejó el trozo de metal que tenía en la mano.
-
-Al principio nadie
-captó por qué miraba así hacia allá.
-
-Pero Han Jiwoo
-no era de las que recuerdan aquel rostro por un número.
-
-Era de las que recuerdan
-quién empujó primero a otro hacia arriba,
-quién mandó al final a otro antes que a sí,
-y con qué ojos, al último,
-dejó su espalda al volverse.
-
-Muy bajo,
-casi como para sí, murmuró.
-
-—Ese muchacho…
-
-Ante un corredor algo apartado,
-entre restos y polvo, detenido,
-estaba aquel muchacho de Hazran
-que había salvado a otro primero
-y volvía él,
-por quien todos esperaron al final creyendo que regresaría.
-
-A esa sola frase
-varios alrededor alzaron la cabeza a la vez.
-
-Un joven que estaba junto a una columna caída
-se quedó helado en el sitio.
-
-Sin lograr soltar
-el trozo de metal roto que tenía en la mano,
-y sin lograr apretarlo tampoco,
-siguió el final de esa mirada y se volvió.
-
-Y ante un corredor algo apartado
-vio otro rostro detenido.
+Un joven que estaba junto a un pilar derrumbado se quedó rígido en el sitio. No era de la capa oculta sino de los que habían bajado de arriba, y no podía ni soltar ni apretar más el trozo de metal que tenía en la mano. Siguió la mirada de Han Jiwoo hasta el final, vio al niño y después vio al hombre que, junto al niño, se había detenido al levantar unos restos.
+El hombre sin hermano menor.
 
 —…¿Hermano?
 
-Esa sola frase
-salió demasiado tarde,
-demasiado cuidadosa,
-partiendo entre la gente.
+Esa palabra se abrió paso entre la gente, tarde, con cuidado.
 
-Ninguno de los dos
-logró moverse al principio.
+Ninguno de los dos pudo moverse enseguida. Cuando el hombre sin hermano menor soltó los restos, se le vaciaron las manos, y una de ellas, por costumbre, tanteó el sitio vacío a su lado. Detuvo la mano y miró al joven.
 
-Un rostro que durante tanto tiempo
-creyeron muerto,
-al aparecer vivo ante los ojos,
-hace que la realidad llegue más tarde que la alegría.
+Unos pasos.
+Esos pocos pasos.
 
-Alrededor quedó raramente callado.
-
-Entre esos dos
-había solo unos pasos de distancia,
-pero cruzar esa corta distancia
-llevó demasiado tiempo.
-
-El menor se movió primero.
-
+El hermano menor se movió primero.
 Un paso.
 Otro paso.
+No se sabía si caminaba o corría.
 
-Y desde cierto momento,
-sin saber si caminaba o corría,
-acortó la distancia.
+El hermano mayor, sin poder hablar, apenas alzó los dos brazos. Cuando el menor se echó en ellos como si chocara, el cuerpo del mayor se sacudió una vez con fuerza. El mayor le agarró la espalda y aun así no pudo decir nada. El menor tampoco lloró, pero le temblaban los hombros.
 
-El mayor al final no logró hablar primero.
-
-En cambio, solo al último instante,
-dejó caer lo que tenía en la mano
-y alzó apenas los dos brazos.
-
-El menor se abrazó a ese pecho casi como chocando.
-
-Solo entonces el cuerpo del mayor
-se sacudió una vez grande.
-
-Aun sujetando la espalda del menor,
-un rato no dijo nada.
-
-No porque no lo creyera.
-
-Sino porque en el momento de creer,
-todo el tiempo que había aguantado
-parecía a punto de derrumbarse de golpe.
-
-El menor tampoco lloró.
-
-Pero los hombros le temblaban sin parar.
-
-El mayor tragó apenas el aliento una vez,
-y con la garganta quebrada dijo muy bajo.
+El hermano mayor tragó aire con la garganta quebrada.
 
 —Estabas vivo.
 
-Él era el hermano que siempre
-recontaba si faltaba algún número.
+Su mano estaba en la espalda del hermano, pero no entrelazó los dedos.
 
-Quién no había vuelto,
-quién había quedado vacío al final,
-contándolos por dentro una y otra vez, aguantando.
+Un poco apartado, Luhai desvió la mirada y, como si nada, empujó un resto con la punta del pie.
 
-Pero al menos por ahora,
-ya no tenía que volver a poner ese rostro
-en la cuenta de los perdidos.
+—Los que sobreviven siempre se encuentran así, tardísimo.
 
-Esa sola frase
-decía en cambio muchas más cosas.
+Nadie dijo nada. Mientras la primera mano de recogida miraba a esos dos, sus ojos ópticos se quedaron ahí.
 
-Dónde estabas.
-Por qué vienes ahora.
-Te creí muerto.
-Y menos mal que seguiste vivo.
+Algo más lejos, la mujer que vino con dos niños se detuvo con el bidón en las manos, como a punto de desplomarse. El bidón se inclinó y se derramó un poco de agua, pero ella no se dio cuenta. Donde dio un paso estaba el niño de delante del pasaje, el niño que Han Jiwoo había visto, el niño que miraba a un lado.
 
-Todo eso estaba en esa corta frase.
-
-Algo apartado,
-Luhai, que miraba esa escena,
-desvió sin más la vista una vez.
-
-Él no era de los que
-eligen bien las buenas palabras en un momento así.
-
-Así que, sin más,
-empujando con la punta del pie un resto apilado alrededor,
-murmuró como quien no le da importancia.
-
-—Los que sobreviven siempre
-se encuentran así, con mucho retraso.
-
-Fue un refunfuño,
-pero nadie le replicó al oírlo.
-
-Porque todos sentían algo parecido.
-
-Y ese reencuentro
-no terminó ahí.
-
-Una mujer de Hazran
-que desde antes cuidaba a otros niños,
-algo apartada,
-de pronto se detuvo como si fuera a derrumbarse en el sitio.
-
-Al principio, quién la había llamado siquiera
-nadie lo captó.
-
-Ella, casi soltando el bidón de agua que llevaba en la mano,
-apenas dio un paso adelante.
-
-Entre las caras cubiertas de polvo
-había unos ojos demasiado familiares.
-
-Aquel niño también,
-con cara de no creerlo al principio,
-la miró alzando la vista.
-
-La mujer, con manos temblorosas,
-le sujetó la mejilla a ese niño.
-
+Cuando el niño la miró desde abajo con cara de no poder creerlo, la mujer le tomó las mejillas con manos temblorosas.
 Una vez.
-Y otra vez.
+Y otra.
+Se las acarició una y otra vez.
+Después lo abrazó. Se le quebró el aliento.
 
-Como comprobando si era real,
-acarició esa carita una y otra vez.
+El niño también sollozaba bajito y no podía soltar el cuello de la ropa de su madre. Los dos niños que estaban detrás se acercaron, y fueron tres. Los brazos de la mujer no alcanzaban a abrazar a los tres, pero aun así lo intentaba.
 
-Y al fin
-abrazó a ese niño contra su propio pecho
-y por primera vez derrumbó el aliento.
+Han Jiwoo miró a esos tres. El niño que en el tercer rescate había empujado y se había quedado atrás, el niño que le había dado una mirada a Han Jiwoo, estaba ahora en brazos de su madre. Han Jiwoo no fue; con la espalda contra la pared, se apretó el bolsillo interior. No cerró los ojos.
 
-Ella era la que, ante los otros niños,
-nunca lloró hasta el final.
+El último androide, de pie a su lado, miró a esos tres.
 
-Limpiando al que se hería,
-durmiendo al que temblaba,
-dando su propia parte
-a los que reclamaban comida con hambre,
-nunca se derrumbó al final.
+La mano se le fue hacia delante con forma de mano que empuja, y se detuvo.
 
-Pero justo
-en el momento de abrazar de nuevo a su propio hijo
-soltó todo el aliento contenido.
+—Sí. El niño que empujó. Por su empujón llegó el otro. Y él se quedó.
 
-Más que llanto,
-era algo cercano al sonido de un cuerpo
-que aguantó largo tiempo
-y descubrió tarde
-que ya no hacía falta aguantar más.
+Lo dijo Han Jiwoo.
 
-Aquel niño también,
-sollozando pequeño,
-no soltaba el cuello de la ropa de su madre.
+Sin emitir ningún sonido, el último androide se miró el hombro, el lado caído.
 
-Al verlo,
-entre las otras personas
-también empezó a extenderse de a poco lo mismo.
+En un sector lejano, uno de los que habían bajado de arriba encontró a su hermana. Otro llamó tres veces el nombre de un compañero, y cuando a la tercera llegó la respuesta, el que llamaba sonrió con cara de aturdido. En un pasaje, dos personas estaban de pie agarradas de los hombros, sin poder hablar, y los que acarreaban restos los rodeaban al pasar. Nadie les dijo que se apartaran.
 
-Un humano que había escapado de Serakion
-halló a su hermana en un sector lejano,
-y otro,
-tras llamar tres veces el nombre de un compañero
-que creía muerto,
-al fin rió apenas.
+Sion estaba junto al anciano de Hazran. El hombre, que sostenía la placa con dieciséis trazos, le dio la vuelta, miró largo rato el único trazo del reverso y, apoyando la uña, trazó una línea transversal sobre él. No lo borraba: le añadía una línea al trazo. Volvió la placa a su cara delantera e hizo un trazo junto a los dieciséis.
 
-Alguien reencontró a un amigo,
-alguien a un primo,
-alguien reconoció a un viejo vecino
-que sobrevivió con la cara medio cambiada.
+Diecisiete.
 
-No todos los reencuentros
-llegaron solo con llanto.
+—Era un solo niño, ¿verdad?
 
-Alguno,
-de tan atónito, rió primero,
-alguno
-terminó con una sola frase de que estaba vivo,
-alguno
-se quedó largo rato sujetándose mutuamente los hombros
-sin poder decir nada.
+Lo dijo Sion.
 
-Pero esas escenas cortas y pequeñas
-empezaron a suceder una tras otra
-por todo el interior de Serakion.
+—Era uno.
 
-Como si toda esta ruina
-al fin, tarde,
-devolviera uno por uno a su sitio
-los nombres que llegaron con retraso.
+Lo dijo el anciano.
 
-Dentro de Serakion
-no solo se reencontraron hermanos y familias.
+—De treinta y seis, nueve.
 
-Los humanos largo tiempo atados bajo el lavado de cerebro,
-los robots nobles endurecidos como función
-bajo un sistema de órdenes hueco,
-y las máquinas hechas para seguir la alineación
-antes que su propio juicio,
-también empezaron de a poco a mirarse de nuevo.
+Se apoyó la placa contra el pecho.
 
-Ese cambio no llegó como una gran confesión dramática.
+En el borde de una sala derrumbada, un robot noble levantaba solo, con sus largas manos, un armazón metálico. Debajo, dos humanos liberados del lavado de cerebro, con un distintivo en el cuello y la punta de los dedos transparente, sacaban a rastras esquirlas de dispositivos apagados. Ni agradecimiento ni disculpa: no había palabras. El robot no soltó el armazón, en la misma postura, hasta que los dos salieron, hasta que se retiraron todos los restos. Los brazos no le temblaban. Los brazos de un robot no tiemblan.
+Aun así, no lo soltó.
 
-Al contrario, tan pequeño
-que casi se pasaba si no se sujetaba escena por escena.
-
-Un robot noble
-estaba detenido al borde de una sala derrumbada.
-
-Antes
-habría sido un ser que ni siquiera ponía la mano
-en algo tan simple como llamar a alguien.
-
-Pero ahora él,
-solo y callado,
-alzaba un armazón metálico
-que había quedado bajo el material del techo roto.
-
-Debajo,
-dos humanos liberados del lavado de cerebro
-sacaban uno a uno fragmentos de dispositivos apagados.
-
-Entre ellos
-no había gracias,
-ni disculpa,
-ni explicación.
-
-Aún no era la etapa de poder decir esas palabras.
-
-Pero aquel robot noble
-no soltó el armazón hasta el final.
-
-Hasta que los dos humanos salieran
-y retiraran todos los restos,
-aguantó callado en la misma postura.
-
-No lejos,
-tres máquinas
-estaban inclinadas ante un eje de elevación averiado.
-
-En su origen
-era una línea auxiliar dejada solo para el paso al estrato alto.
-
-Ahora lo revivían
-para poder subir gente y materiales de los sectores de abajo.
-
-Al lado,
-un humano que antes seguía la disciplina de Serakion
-como recitándola
-pasaba las herramientas en silencio.
-
-Como le temblaba la mano,
-perdió el tornillo dos veces,
-pero las máquinas no lo apuraron.
-
-Solo recogían de nuevo el tornillo caído
-y lo dejaban cerca de su mano.
-
-Ese humano, al tercer intento,
-apenas con voz pequeña dijo al fin.
+No muy lejos, la primera, la segunda y la máquina del lado de la pared, tendidas boca abajo ante un eje de elevación averiado, modificaban una línea auxiliar de paso del estrato superior para que pudiera subir a la gente y los materiales de los sectores de abajo. A su lado, un humano bajado de arriba les pasaba herramientas, pero le temblaban las manos y dejó caer un tornillo dos veces. Las máquinas no lo apuraron; la segunda giró el cuerpo sobre la pierna estirada, recogió el tornillo y se lo dejó cerca de la mano. A la tercera, el humano habló en voz baja.
 
 —…Perdón.
 
-Una máquina detuvo un momento la mano.
+La primera detuvo las manos y volvió a comprobar el estado del eje; luego apartó un poco el cuerpo y le dejó sitio para que siguiera allí. Si lo había aceptado, o si aún no. El humano se quedó en ese sitio y tomó el siguiente tornillo, y esta vez no se le cayó.
 
-Y luego, sin decir nada,
-tras comprobar de nuevo el estado del eje ajustado,
-se hizo un poco a un lado
-y le dejó un sitio para que él pudiera seguir de pie ahí.
+Han Jiwoo miró esas escenas: el brazo que no soltaba el armazón, el hombro que dejaba sitio.
 
-Si aceptó la disculpa,
-o aún no,
-eso nadie lo explicó.
+Kael, arrastrando el tobillo, iba y venía entre los sectores ordenando el recorrido de la reparación. Colocaba a la gente y tapaba primero los tramos con riesgo de derrumbe, para que el camino por donde pasarían los niños y el espacio donde se moverían los androides no se solaparan. Cuando se ausentaba se notaba enseguida, y el flujo del lado que retiraba placas se enredó dos veces, pero las dos veces fue él quien primero alargó la mano y volvió a poner el orden.
 
-Pero aun así,
-al menos el sentido de que podía quedarse en ese sitio
-se transmitió con claridad.
+Luhai lo vio y lo soltó de pasada.
 
-Han Jiwoo
-seguía mirando esas escenas
-desde un sitio no muy lejano.
-
-Más que quién dijo qué palabra,
-miraba antes quién no se retiró del lado de quién.
-
-Los momentos en que la mano queda antes que la palabra.
-Los momentos en que se elige aguantar antes que explicar.
-Eso quizá
-era lo más cercano a una verdadera recuperación
-dentro de Serakion ahora.
-
-Kael, ordenando los recorridos de la reparación,
-iba y venía sin parar entre los sectores derrumbados.
-
-Él ubicaba a la gente,
-tapaba primero los tramos fáciles de derrumbar,
-y ordenaba que el paso de los niños
-y el espacio donde se movían los androides
-no se cruzaran.
-
-No se ponía al frente de forma llamativa,
-pero el sitio del que él faltaba se notaba enseguida.
-
-Dos veces
-el flujo del lado que retiraba placas caídas casi se enreda,
-y las dos veces Kael tendió primero la mano
-y volvió a ordenar la secuencia.
-
-Luhai lo vio y soltó.
-
-—Así que sin ti
-siempre se enreda una fila en algún lado.
-
-Kael no lo recibió con gran cosa.
+—Por eso digo que, si no estás tú, algo se enreda siempre por algún lado.
 
 —Basta con que no se enrede.
 
-Sern, al oír esas palabras,
-asintió muy corto.
+Lo dijo Kael.
+
+Sern asintió brevemente ante esas palabras.
 
 —Así es.
 
-El diálogo de esos dos
-era tan corto que casi se pasa,
-pero, raro, esa cortedad
-le sentaba bien a este sitio ahora.
+Ater había reunido a un lado los restos de paneles de registro y los trozos de distintivos de aprobación bajados del estrato superior y los revisaba uno a uno; de vez en cuando, la mano se le detenía sobre un distintivo roto. Mirándolo desde arriba, habló muy en voz baja.
 
-Aún no había fuerza para hablar largo.
-En cambio, el lado en que cada uno
-no soltaba su papel
-era más de fiar.
+—Ya no pueden aprobar nada.
 
-Ater juntaba a un lado
-los restos de tablas de registro bajados del estrato alto
-y trozos de marcas de aprobación.
+Aka, que estaba al lado, se volvió hacia él, pero Ater no alzó la vista.
 
-Comprobándolos uno a uno,
-de tanto en tanto detenía muy brevemente la mano.
+—Y aun así, estas cosas duran mucho. Del modo en que las manos de la gente se encogen antes que su propio juicio.
 
-La mayoría de esas marcas
-ya no tenían ningún poder.
+Aka, con los labios apretados, no le replicó; poco después habló en voz baja.
 
-Pero un tiempo,
-por esos trozos innumerables seres
-fueron empujados, cortados y clasificados
-antes que su propia voluntad.
+—Por eso habrá que sujetar más tiempo. Hasta que dejen de encogerse.
 
-Ater, mirando una marca rota,
-dijo muy callado.
+Ater asintió muy levemente y dejó el distintivo con la parte rota hacia abajo.
 
-—Ahora ya no puede aprobar nada.
+El último androide y los demás androides tampoco hablaban.
+Si alguien se metía bajo una placa peligrosa, eran los primeros en cerrarle el paso.
+Al levantar restos pesados, sostenían el otro lado sin decir nada.
+Cuando se acercaban los niños, aflojaban muy poco el ángulo del cuerpo.
 
-Esas palabras,
-sin ir dirigidas a nadie,
-raro, detuvieron un poco el aire alrededor.
+Solo Luhai rezongó hasta el final. Cuando un androide se plantó ante un pasaje derrumbado para señalar con su propio cuerpo el tramo peligroso, Luhai habló entre suspiros.
 
-Aka, que estaba al lado,
-se giró lento hacia allá.
+—¿Te morirías por hablar un poco?
 
-Ater, sin alzar la vista,
-siguió hablando.
+Ese androide giró la cabeza hacia un lado que no era el de Luhai y señaló con el dedo una grieta hundida bajo los pies de los niños.
 
-—Y aun así, estas cosas quedan largo tiempo. En la forma en que la mano de la gente se encoge antes que su propio juicio.
+Luhai chasqueó la lengua y agitó la mano hacia los niños.
 
-Aka, al oír esas palabras,
-cerró los labios un momento.
+—Por ahí no, por aquí. …Ah, de verdad.
 
-No lo rebatió.
+El androide no bajó el dedo hasta que todos los niños pasaron.
 
-En cambio,
-solo un poco después dijo bajo.
+Cuando el día cambió una vez más, en un rincón de un sector destrozado se hizo un sitio donde los niños pudieran descansar.
 
-—Por eso habrá que sostener más tiempo. Hasta que no se encoja.
+Los hermanos de Hazran tardaron en separarse. Los dos tenían los ojos hechos un desastre, pero nadie se burló. El menor, agarrado a la manga de su hermano, se rió bajito.
 
-Ater solo entonces
-asintió mínimo.
+—De verdad que estás viejo.
 
-No lejos,
-el último androide seguía sin hablar.
+El mayor respondió con la cara entre el llanto y la risa.
 
-Los otros androides igual.
+—Tú tampoco es que estés gran cosa.
 
-Ellos, también ahora,
-se movían sin ninguna explicación.
+Unos cuantos alrededor rieron bajito, poco, y esa risa resonó largo rato en la capa oculta.
 
-Pero, raro,
-ahora ese silencio
-se sentía mucho menos lejano que antes.
+Sion, oyendo esa risa, recorrió despacio con la mirada los sitios vacíos, lo que no había vuelto. El sitio donde habían estado las dos máquinas viejas no estaba aquí, sino arriba. Soltó el aire.
 
-Cuando alguien se metía bajo una placa peligrosa,
-se ponían primero delante,
-cuando había que alzar restos pesados,
-sostenían callados el otro extremo,
-cuando los niños se acercaban,
-no se endurecían como antes,
-sino que aflojaban muy poco el ángulo del cuerpo.
+Al final de su mirada, el niño que primero había puesto líneas en la cara del último androide rondaba otra vez a su lado, también hoy. Sin hablarle, se quedó un buen rato al lado; luego alzó la vista hacia el dorso de la mano del androide y se sacudió el polvo de las propias manos. El último androide no se movió, y no se fue.
+El niño tampoco se fue.
 
-Con eso bastaba.
+Aka, desde lejos, miró a los dos, bajó despacio los párpados y los volvió a abrir.
 
-Al menos ahora,
-había cosas que se reconocían
-aunque no se tradujeran del todo a palabras qué sentimiento eran.
+Desde lejos llegó la voz de Luhai.
 
-Claro que solo Luhai
-lo refunfuñaba hasta el final.
+—Ahí no lo apiles así. Si se cae, otra vez desde el principio.
 
-Cuando un androide
-se detuvo ante un corredor derrumbado
-y solo tapando el tramo peligroso con su propio cuerpo
-avisó de él,
-Luhai, con voz mezclada de suspiro, dijo.
+Rezongos, el golpe del metal contra el metal.
+Los susurros de los niños, el roce de una máquina al mover una placa.
+Y entre todo eso, un aliento que pasaba.
 
-—¿Qué te cuesta decir algo?
-
-Pero justo ese androide,
-como si oyera esas palabras,
-giró un momento la cabeza,
-y señaló primero,
-no hacia Luhai,
-sino el hueco derrumbado bajo los pies de los niños.
-
-Luhai solo entonces
-chasqueó una vez la lengua
-y agitó la mano hacia los niños.
-
-—Ahí no, por acá. …Ah, en serio.
-
-Pero el refunfuño que venía detrás
-ya era casi una costumbre.
-
-No había nadie que no lo supiera.
-
-El día cambió una vez más,
-y el interior de Serakion, de a poco,
-empezó a pasar de la forma de una ruina
-a la forma de una vida.
-
-En un rincón de un sector roto
-se hizo un sitio para que los niños descansaran un momento,
-y en otro rincón
-también surgió un sitio para separar
-las piezas que se podían salvar
-de los restos que había que desechar.
-
-Algunos robots nobles
-seguían guardando distancia como si aún fueran extraños,
-pero ahora al menos
-ya no estaban de pie solo guardando su posición como antes.
-
-Los humanos liberados del lavado de cerebro,
-aunque aún no asumían del todo lo que hicieron con sus manos,
-tampoco por eso volvían a cerrar los ojos
-y meterse en la orden.
-
-Las máquinas, a esos humanos,
-ni los perdonaban con facilidad,
-ni los echaban del todo.
-
-En cambio ponían la tarea a hacer juntos.
-
-Eso parecía la distancia más exacta
-que se podía ahora.
-
-Los hermanos de Hazran
-solo se separaron un poco tarde, al fin.
-
-Ambos tenían los ojos hechos un desastre,
-pero, justo, nadie los molestó por ello.
-
-El menor, sujetando la manga del mayor,
-rió pequeño.
-
-—De verdad envejeciste.
-
-El mayor, con cara de reír llorando,
-le devolvió casi igual.
-
-—Tú tampoco estás mejor.
-
-Ante esa corta frase
-varios alrededor rieron pequeño.
-
-Una risa muy pequeña
-y corta.
-
-Pero eso, dentro de Serakion,
-resonó raramente largo.
-
-Sion, al oír esa risa,
-miró muy lento alrededor.
-
-Aún se había perdido demasiado.
-
-Aún había mucho que no había vuelto.
-
-Y la mayoría de los que estaban aquí
-ni siquiera habían ordenado del todo
-el derrumbe que les quedó dentro.
-
-Pero aun así
-ahora ya sabía.
-
-Que lo que viene tras derrumbar la ilusión
-no es una liberación dada de forma automática,
-sino este tiempo de volver a soportarse así unos a otros
-como personas, como máquinas, como seres.
-
-Sion exhaló callado.
-
-Al final de su mirada,
-aquel niño que primero le puso una línea en la cara
-al último androide
-hoy también rondaba a su lado.
-
-No le hablaba.
-
-En cambio, tras quedarse largo al lado,
-alzaba un momento la vista al dorso de su mano,
-y luego se sacudía otra vez el polvo de su propia mano.
-
-El último androide no se movía.
-
-Pero no se iba.
-
-Aquel niño tampoco se iba.
-
-Entre ambos
-algo aún sin nombre
-crecía callado.
-
-Aka, mirando esa escena de lejos,
-bajó muy lento los párpados.
-
-Aún hacía falta más tiempo.
-
-Pero ahora ya sabía.
-
-Que sujetar
-no es el único modo de tener cerca.
-
-Y que irse
-tampoco es lo mismo que abandonar.
-
-Solo los seres que llegan a saber eso
-podrán cruzar bien el próximo camino.
-
-De lejos volvió a oírse la voz de Luhai.
-
-—Ahí no apiles así. Si se derrumba, otra vez desde el principio.
-
-El sonido de un refunfuño,
-el sonido de metal chocando,
-el sonido de niños susurrando bajo,
-el roce de una máquina moviendo una placa caída,
-y, pasando entre todo eso,
-un aliento muy callado.
-
-Serakion aún no había revivido del todo.
-
-Pero sin duda,
-ahora, no desde la cima de un sistema muerto,
-sino dentro de las manos de los seres que quieren volver a vivir,
-de a poco se iba volviendo otro sitio.
+El anciano de Hazran apoyó la placa contra la pared, con los diecisiete trazos a la vista y el reverso, donde un trazo tenía encima una línea transversal, mirando a la pared. Cuando apartó la mano de la placa, la placa se sostuvo sola.
 
 ---
 

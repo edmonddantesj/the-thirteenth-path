@@ -1,6 +1,6 @@
 # Episode 152. The Ones Left Behind
 
-Once they had decided on the first rescue, what took longest was not reading the route again.
+What took longest was not reading the route again.
 
 It was deciding whom to get out first.
 
@@ -228,7 +228,7 @@ Han Jiwoo said.
 
 Ater looked in turn at the child looking down, the fingertip child, and the child whose feet went first. All three still stood in a time that hadn't gone over yet. He looked at the child at the very back too, and at that half step, and then he looked away.
 
-The light guide line came on, the column stood, and the wall opened. Three went across, then a fourth. The wall closed.
+The light guide line came on, the column stood, and the wall opened. The three in front went across, then a fourth. The wall closed.
 
 Han Jiwoo didn't count.
 She counted.

@@ -1,313 +1,250 @@
 # Chapitre 140 — La guerre en dessous
 
-Après le retour des mains de récupération,
-l'air à l'intérieur de l'ancienne couche a sensiblement changé.
+Après le retour des mains de récupération, le panneau mural de l'ancienne couche changea.
 
-Jusque-là, c'était le temps de ceux qui tiennent qui l'emportait.
-Qui s'effondre en premier.
-De quoi garder en vie.
-Quel chemin n'est pas encore mort.
+L'une des vieilles machines décrocha le panneau mural, le posa au sol et se mit à y ajouter, de la pointe d'un tournevis, des lignes et des points. Han Jiwoo regarda ce tournevis : il avait la même forme que les siens.
 
-Mais après que les odeurs et les mots extérieurs soient entrés,
-cet endroit ne ressemblait plus à une simple communauté qui tient bon.
+Au début, on aurait dit des marquages d'itinéraires. À mesure que les lignes se multipliaient, des liaisons apparaissaient entre les points, et certaines marques, une fois tracées, étaient frottées de la paume jusqu'à devenir floues. Exprès.
 
-Sion l'a ressenti le plus clairement
-lorsqu'une vieille machine a commencé à ajouter des lignes et des points à l'ancien panneau.
+Sur le panneau mural que Sion regardait d'en haut, il n'y avait pas qu'un seul point. Un pour cette couche, un à côté, un au loin, un relié seulement par une ligne.
 
-Au début, cela ressemblait à de simples marquages routiers.
+La vieille machine n'expliqua rien. La première main de récupération parla très bas.
 
-Mais à mesure que les lignes se multipliaient,
-que des connexions se formaient entre les points,
-et que certaines marques étaient volontairement laissées estompées, comme effacées…
-Sion s’en rendit compte tardivement.
-
-Cette vieille couche ne constitue pas le tout.
-
-Quelque part à l'intérieur de Serakion,
-d'autres petits points ont survécu ainsi.
-
-La vieille machine ne prit pas la peine de s'expliquer.
-Mais la première machine du côté de la récupération dit, très bas :
-
-« Pensiez-vous qu'il ne restait que cet endroit ? »
+« Vous pensiez qu'il ne restait que cet endroit ? »
 
 Luhai fronça les sourcils.
 
-« C'est à ça que ça ressemblait jusqu'à présent. »
+« Jusqu'ici, c'est ce qu'on voyait. »
 
-La machine émit un bref bruit semblable à celui d’un souffle.
-Pas tant un rire
-qu'une réaction de qui connaît bien cette méprise.
+La machine émit un bref son semblable à un souffle.
 
-« Au début, tout le monde voit les choses ainsi. »
-dit-il, bas.
-« Quand il suffit d'être découvert une fois pour que tout s'arrête, on n'arrive pas jusqu'ici. »
+« Tout le monde voit ça comme ça, au début. »
 
-Après ces mots,
-la vieille machine posa la main sur le panneau et ajouta :
+Elle parla à voix basse.
 
-« Pas un seul endroit.
-On les recousait à chaque fois que quelque chose se cassait. »
+« Avec une façon de faire où tout est fini dès qu'on en découvre un, on n'arrive pas jusqu'ici. »
 
-Cette phrase semblait décrire la communauté entière.
+La vieille machine ajouta quelques mots en touchant le panneau mural. Un point, un point, un point.
 
-Sion regarda les lignes qui s'étalaient sur le panneau
-et commença à saisir l'échelle, viscéralement, pour la première fois.
+« Ce n'est pas un seul endroit. Nous avons raccordé chaque fois que cela se coupait. »
 
-Une vieille couche.
-Un reste de ville scellée.
-Un carrefour étroit reliant les routes grises.
-Un avant-poste invisible accessible uniquement par signal.
-Quelques humains.
-Quelques machines.
-Et quelques autres.
+Elle frotta un point de la paume, et le point devint flou.
 
-Chacun est faible.
-Chacun doit être abandonné s’il est exposé.
-Mais ils ne se séparent jamais complètement.
+« Celui-ci, c'est un endroit coupé. »
 
-Alors que les niveaux supérieurs de Serakion vantent leur ordre parfait,
-sous eux, une survie imparfaite se prolongeait de point en point.
+Elle ne l'effaça pas ; elle le laissa flou.
 
-La deuxième machine du côté de la récupération parlait bas.
+Sion regarda ce point flou : sur le panneau mural, il y avait quatre points flous et cinq points nets.
 
-« Nous ne sommes pas les seuls à sortir. »
-« Il y a un côté qui fait revenir les gens.
-Une équipe qui ne fait que transmettre des signaux.
-Et un côté qui ne tient que les chemins qui font semblant de ne jamais s'ouvrir. »
+Sern sortit le panneau d'enregistrement et se mit à recopier tel quel le panneau mural posé au sol. La vieille machine regardait sa main sans l'arrêter, et Sern dessina flous les points flous, eux aussi.
 
-Sern a réagi immédiatement.
+La seconde main de récupération, la jambe tendue, parla bas. La jambe que Han Jiwoo avait réparée traînait encore.
 
-« Les postes ne sont pas fixes. »
+« On n'est pas les seuls à sortir. Il y en a qui ramènent des gens, il y en a qui ne font que passer des signaux, et il y en a qui ne tiennent que les chemins qui font semblant de ne jamais s'ouvrir. »
+
+Sern réagit aussitôt.
+
+« Les bases ne sont pas fixes. »
 
 La vieille machine répondit.
 
-« Fixes, ils meurent. »
+« Si elles sont fixes, elles meurent. »
 
-Ces mots étaient si simples
-qu'ils s'opposaient de front à tout Serakion.
+Sern arrêta la main qui dessinait les points sur le panneau d'enregistrement et laissa les points seuls, sans nom, sans position, sans rien écrire à côté.
 
-Là-haut existe un monde qui impose un ordre fixe dans des lieux fixes.
-Ici, un monde qui survit à peine parce que rien n’y est fixé.
+« Comment savez-vous qu'un endroit est coupé ? »
 
-Aka regarda longuement entre les points du panneau, puis dit doucement :
+Sern posa la question.
 
-« Ce n'est pas un seul tout.
-C'est déchiré. »
+« Quand on ne revient pas. »
 
-La première machine du côté récupération la regarda.
+La vieille machine répondit.
 
-« Vivant tout en étant déchiré. »
+« Combien de temps sans retour faut-il pour que ce soit coupé ? »
 
-À ces mots,
-Sion comprit un peu mieux pourquoi cette communauté tenait moins d'un nom unique
-que d'un geste de couture sans fin.
+« Nous ne le fixons pas. Si nous le fixions, nous abandonnerions ce jour-là. »
 
-Les vieux jugements ne logent pas non plus dans une seule pièce.
-Il y a de vieilles machines qui gardent la mémoire, à l'intérieur.
-Il y a des machines usées, attachées au côté qui sort, qui se souviennent des chemins et des replis.
-Et il y a d’autres vieilles mains qui relient les signaux et les archives.
+Sern n'écrivit rien et regarda les quatre points flous sur le panneau mural.
 
-En d'autres termes,
-c'était moins un seul cœur
-qu'un corps à peine vivant grâce à de multiples pulsations lentes.
+Ater s'adressa à la première main.
 
-Et ce corps
-était beaucoup plus large,
-beaucoup plus faible,
-et donc plus tenace
-que ce que le monde ordonné d’en haut pourrait imaginer.
+« Combien sont-ils, dans la légion ? »
 
-Puis la première machine de récupération
-a continué, plus brièvement, avec ce qu'il avait vu sur le chemin du retour.
+« Nous ne les avons jamais comptés. Nous n'en avons pas le temps. »
 
-Deux des trois routes grises étaient fermées.
-Les zones humaines situées au-dessous des niveaux supérieurs étaient divisées plus précisément.
-La légion androïde était passée d'une disposition de gardes à une conduite en troupeaux.
-Les humains qui ne s'étaient pas échappés à temps entraient dans une gestion plus raffinée.
+« Seulement ceux que vous voyez. »
 
-« Ils ne se soucient pas de ce qu'ils jettent. »
-dit-il, bas.
-« Mais ils se soucient de ce qui se disperse. »
+« Ce qu'on voit n'est jamais tout. »
 
-Ces mots persistaient étrangement.
+Aka regarda longtemps entre les points du panneau mural.
 
-Serakion ne se souciera peut-être pas beaucoup d'abandonner ce qui est inutile.
-Mais que quelque chose échappe à l'ordre
-pour devenir un groupe imprévu, et la réaction est immédiate.
+« Ce n'est pas un seul tout, c'est déchiré. »
 
-Parce que ce n’est pas une perte d’actifs.
-C'est un échec de classification.
+La première main de récupération la regarda.
 
-En entendant cela, Sion comprit plus clairement
-pourquoi les évacués de Hazran n’ont jamais été de simples cibles de sauvetage.
+« C'est vivant tout en étant déchiré. »
 
-À Serakion,
-ce n’étaient pas des entités perdues.
-C’était un groupe humain qui avait dévié hors de l’ordre.
+« Là où c'est déchiré, ça ne fait pas mal ? »
 
-Et c'était le genre d'échec
-que ce monde ne laisserait jamais passer.
+Aka posa la question.
+
+La machine répondit après un temps.
+
+« Là où ça fait mal, c'est là que c'est déchiré. »
+
+Aka ne demanda rien de plus et regarda de nouveau les quatre points flous.
+
+Le vieil homme de Hazran posa à côté du panneau mural sa propre plaque, marquée de seize traits. La vieille machine regarda cette plaque, puis les points flous de son panneau mural, sans rien dire. Les deux reposaient au sol, côte à côte.
+
+La première main de récupération énuméra brièvement ce qu'elle avait vu en revenant.
+
+« Lignes grises, deux sur trois bloquées. Zones humaines sous le niveau supérieur, divisées plus finement. Légion androïde, disposée non plus pour garder mais pour rabattre. Les humains qui n'ont pas pu fuir, sous une gestion mieux ordonnée. »
+
+Quatre phrases ; Sern écrivit quatre lignes.
+
+« Ce qu'ils jettent, ça leur est égal. »
+
+Elle parla à voix basse.
+
+« Mais ce qui se disperse, ça, ça les inquiète. »
+
+« Qui ? »
+
+Seorin posa la question.
+
+« Ceux d'en haut. »
+
+Seorin regarda les huit de Hazran. Ce qui se dispersait, ce qui inquiétait ceux d'en haut, c'étaient justement eux. Elle serra une fois la poignée de son épée, puis la relâcha.
+
+« Alors il faut qu'on bouge avant qu'ils nous trouvent. »
+
+« C'est pour ça que nous sortons. »
+
+La première répondit.
+
+« Quand ? »
+
+« Quand la jambe tiendra. »
+
+Seorin regarda la jambe de la seconde, que Han Jiwoo avait ouverte deux fois.
+
+« Et nous ? »
+
+« Vous, vous êtes ceux qui se sont dispersés. Alors ils viendront vous chercher. »
+
+Les yeux optiques s'arrêtèrent sur les points flous du panneau mural posé au sol.
+
+La vieille machine ramassa le panneau mural et le raccrocha au mur, à sa place d'origine ; les points flous se retrouvèrent accrochés au mur.
+
+Le vieil homme de Hazran avait lui aussi ramassé sa plaque et restait debout, mais il n'avait nulle part où l'accrocher. La vieille machine toucha de la main le mur à côté de son panneau mural, et l'homme y appuya sa plaque.
+
+Le panneau mural et la plaque étaient côte à côte sur le mur. L'un, des points ; l'autre, des traits. Aka les regarda.
+
+« C'est la même chose. »
+
+Le vieil homme posa le doigt sur un trait de sa plaque, et la vieille machine posa le doigt sur un point flou. Puis tous deux retirèrent la main.
 
 ---
 
-Les niveaux supérieurs de Serakion étaient toujours calmes.
-Beaux.
-Ils semblaient ne tolérer aucune erreur.
+Les niveaux supérieurs de Serakion étaient silencieux.
 
-Sur un sol métallique qui se reflétait comme du marbre,
-au centre d'une salle où aucune trace ne semblait avoir été laissée par un être vivant—
-la lumière trembla une fois, légèrement.
+Sur le sol métallique aux reflets de marbre, au centre de la salle, la lumière trembla une fois, mince.
 
-Ce tremblement s'est vite condensé
-en un hologramme prenant la forme de quelqu'un qui gouverne cet ordre.
+Ce tremblement prit la forme d'une silhouette humaine, au visage lisse. Là où auraient dû être les yeux, là où aurait dû être la bouche, il y avait de la lumière. La forme ne bougeait pas.
 
-Le visage était excessivement lisse.
-La voix, excessivement stable.
+En dessous, les machines aristocratiques se tenaient chacune avec ses ornements, chacune à son intervalle. Les intervalles étaient tous identiques, et aucune ne bougea la première.
 
-Si parfaite
-qu'on avait peine à y sentir la trace de quelqu'un de vivant.
+La forme faite de lumière parla la première.
 
-Les machines aristocratiques qui se tenaient en dessous
-gardaient leurs ornements et leur formalité en silence.
+« L'écart de classification de la population d'entités introduite de l'extérieur avait déjà été signalé. Les variations de ces derniers jours ont été suffisamment observées. Nous passons maintenant à la phase d'ajustement. »
 
-Personne n’avait l’air pressé.
-Ce fait même était plus froid et plus menaçant.
+Sur la plaque faciale d'une des machines aristocratiques, une lumière coula une fois. Sur celles des autres, rien ne coula.
 
-La forme de la lumière parla en premier.
+Une machine aristocratique parla d'une voix basse et courtoise.
 
-« L'écart de classification du groupe d'entités introduit de l'extérieur a déjà été signalé. »
-« Les fluctuations de ces derniers jours ont été suffisamment observées. »
-« Nous passons maintenant à la phase d'ajustement. »
+« La perte d'une partie des entités non conformes reste à un niveau gérable. »
 
-Personne n'a répondu immédiatement.
+Une autre machine enchaîna.
 
-Cette phrase ne ressemblait pas à un rapport de perte.
-Cela ne ressemblait pas non plus à un rapport de dégâts matériels.
+« Le problème tient moins au nombre qu'à la forme. Une sortie collective fait baisser la stabilité d'adaptation des zones voisines. »
 
-C'était plus proche d'un diagnostic…
-qui choisit comment traiter un défaut d’alignement déjà identifié.
+La forme faite de lumière ne trembla pas.
 
-Une machine aristocratique dit, d’une voix basse et courtoise :
+« J'en conviens. Enregistrez cette affaire non comme une perte, mais comme une externalisation de la classification. »
 
-« La perte de certaines entités non compatibles se situe à des niveaux gérables. »
+La main de la machine qui enregistrait se mit à bouger. C'était la seule main en mouvement dans la salle.
 
-Une autre suivit.
+Une autre machine aristocratique prit courtoisement la parole.
 
-« Le problème n'est pas la quantité mais la forme. »
-« La déviation de groupe dégrade la stabilité d'adaptation des zones adjacentes. »
+« Les mesures de suivi concernant les entités humaines non récupérées sont en cours d'ajustement. Réaffecter le groupe non productif en zone de protection stable, le groupe à réponse émotionnelle supérieure en zone d'appui à l'hospitalité, et le groupe à adaptation retardée en zone de correction tampon : cette option est jugée la plus efficace. »
 
-La forme de lumière répondit sans le moindre tremblement.
+Trois zones. La main qui enregistrait bougea trois fois.
 
-« J'en conviens. »
-« N'enregistrez pas cette affaire comme une perte
-mais comme une externalisation de la classification. »
+La forme faite de lumière se tut un moment. La lumière s'amincit encore une fois, puis revint.
 
-Cette phrase a rendu la salle entière plus froide.
+« Ne traitez pas la peur avec rudesse. »
 
-*Externalisation de la classification.*
+La forme parla.
 
-Serakion qualifiait à présent le départ massif des humains étrangers
-non pas d'évasion ou de rébellion,
-mais de phénomène par lequel l'ordre avait été repoussé hors de ses propres limites.
-
-La langue elle-même était déjà différente.
-
-Ils ne disent pas qu’ils ont perdu des gens.
-Ils disent que la classification a fui au-dehors.
-
-Une autre machine aristocratique parla, très courtoisement.
-
-« Les mesures de suivi des entités humaines non retrouvées sont en cours d'ajustement. »
-« Les groupes non productifs vers les zones de protection stable,
-les groupes à forte réponse émotionnelle vers les zones d’appui à l’hospitalité,
-les groupes à adaptation retardée vers les zones de correction tampon :
-cette redistribution est jugée la plus efficace. »
-
-Les mots étaient doux.
-Mais à cause de cette douceur,
-plus terrible.
-
-Protection.
-Hospitalité.
-Tampon.
-Correction.
-
-Tous les mots pour enfermer les gens plus étroitement,
-mais excessivement beaux à la sortie des lèvres.
-
-La forme de la lumière resta silencieuse pendant un moment.
-
-Ce n'était pas de l'hésitation.
-Plutôt un silence qui choisissait le moment
-de livrer une réponse déjà décidée dans la phrase la plus parfaite.
-
-« Ne gérez pas la peur avec brutalité. »
-dit-il.
-« Faites en sorte que cela ressemble à de la stabilité. »
+« Faites-la passer pour de la stabilité. »
 
 Un court silence.
 
-« Ne négligez pas la perte. »
-« Faites que cela soit interprété comme de la gratitude. »
+« Ne laissez pas la perte à l'abandon. Faites qu'on l'interprète comme de la gratitude. »
 
-Plusieurs machines aristocratiques présentes dans la salle baissèrent très légèrement la tête.
+Quelques machines aristocratiques inclinèrent la tête, à la même profondeur, pendant le même temps.
 
-C'étaient des ordres.
-Et l'essence de la façon dont Serakion gère les gens.
+Une machine aristocratique parla.
 
-Plus durement,
-mais avec plus d'élégance.
+« Jusqu'à quel niveau autorisez-vous la réinspection des anciennes zones fermées des niveaux inférieurs ? »
 
-Plus finement,
-mais sous les dehors de l'égard.
+La forme faite de lumière ne répondit pas tout de suite. Dans la salle, la main qui enregistrait s'arrêta aussi.
 
-D’une manière qui rend les humains incapables de reconnaître leur prison comme une prison.
+« Dans la mesure où cela ne nuit pas à l'ordre de surface. »
 
-Puis une machine aristocratique dit, prudemment :
+La forme finit par répondre.
 
-« Dans quelle mesure la réinspection des anciennes zones inférieures scellées sera-t-elle autorisée ? »
+« Nettoyez sans bruit les vestiges du passé. Inutile d'en faire étalage. »
 
-La forme de la lumière ne répondit pas immédiatement.
+La main qui enregistrait se remit à bouger et écrivit une ligne.
 
-Le visage fait de lumière ne contenait toujours aucune émotion.
+Une autre machine aristocratique posa une question.
 
-« Dans la plage qui ne nuit pas à l'ordre de la surface. »
-dit-il enfin.
-« Effacez sans bruit les vestiges du passé. »
-« Inutile d'en faire étalage. »
+« Sous quelle rubrique faut-il enregistrer “l'externalisation de la classification” ? »
 
-Ces mots étaient clairs.
+« Sous la rubrique stabilité. »
 
-Serakion n’est pas assez stupide pour ignorer que la résistance existe.
-Mais ce monde ne choisit pas encore la méthode qui consiste à exposer ouvertement ce problème.
+La forme faite de lumière répondit.
 
-Parce qu’on y juge que ce n’est pas nécessaire.
+« Laissez vide la rubrique pertes. »
 
-Un ordre parfait
-doit effacer ses défauts
-d'une manière qui ne salit pas sa propre surface.
+La main qui enregistrait effaça une ligne et l'écrivit ailleurs.
 
-Et c'était précisément cette croyance
-qui expliquait aussi pourquoi les réseaux de cellules clandestines de l'ancienne couche
-n'avaient pas encore été complètement effacés.
+Une machine aristocratique demanda encore.
 
-Ce visage de lumière ne vacilla pas jusqu’à la fin.
+« Et l'étendue du nettoyage ? »
 
-« Serakion reste stable. »
-dit-il d'une voix basse et complète.
-« Par conséquent,
-récupérez-les de manière stable. »
+« Autant que cela ne touche pas la surface. »
 
-La salle redevint silencieuse.
+Aucune machine ne posa d'autre question.
 
-Belle.
-Précise.
-D’une perfection suffocante.
+Le visage de lumière ne trembla pas jusqu'à la fin.
 
-Et sous cette surface parfaite,
-une guerre complètement différente
-roulait déjà depuis très longtemps.
+« Serakion demeure stable. »
+
+La voix était basse, et complète.
+
+« Par conséquent, récupérez de manière stable. »
+
+La lumière s'éteignit, et le centre de la salle se vida. Les machines aristocratiques se retournèrent dans le même ordre et se dispersèrent au même intervalle. Le sol de métal ne garda aucune trace.
+
+Seule la machine qui enregistrait resta la dernière dans la salle pour clore le registre ; la couverture du registre clos ne portait aucune marque. Elle regarda une fois la salle vide et son propre reflet sur le sol. Puis elle se détourna, et ses pas ne firent aucun bruit.
+
+---
+
+Au mur de l'ancienne couche était accroché le panneau mural marqué de quatre points flous et de cinq points nets, et à côté, la plaque aux seize traits.
+
+Sous la lampe jaune qui clignotait se tenait la vieille machine, et la première main de récupération se tenait devant la brèche fermée. Ni l'une ni l'autre ne regardait le panneau mural ni la plaque ; l'une regardait vers le haut, l'autre le mur.
 
 ---
 

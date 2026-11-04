@@ -186,8 +186,6 @@ Luhai parla sans quitter le tableau des yeux.
 
 « Si seule cette ligne-là descend, c'est que quelque chose est en train de sortir par là. »
 
-L'air de l'atelier se figea un instant.
-
 Cette fois, Sion n'était pas le seul à l'avoir senti. Ater, Kael, Seorin, Nassim, Haroun aussi. Tous avaient senti que le mot « registres » était tombé avec une tout autre texture que l'excuse d'un petit voleur.
 
 Nassim sourit très lentement.
@@ -222,7 +220,7 @@ Seorin demanda à voix basse :
 
 « Et donc ? »
 
-Cette fois, Nassim ne répondit pas avant Haroun. Il jeta seulement un très bref regard de côté. Ce regard voulait dire que celui qui tranchait en dernier était déjà désigné.
+Cette fois, Nassim ne répondit pas avant Haroun. Il jeta seulement un très bref regard de côté.
 
 Haroun dit :
 
@@ -266,8 +264,6 @@ Elia avait écrit les deux côte à côte. Les écrire côte à côte, c'était 
 Sur la même ligne, un lieu et une personne, côte à côte.
 
 Pourquoi le même poids, il ne le savait pas encore. Mais aujourd'hui, au moins, il savait où se trouvait ce qu'il ne savait pas.
-
-Que le chemin vers ce nom ne pouvait, au bout du compte, que traverser le cœur même du lieu où les valeurs se pesaient.
 
 ---
 

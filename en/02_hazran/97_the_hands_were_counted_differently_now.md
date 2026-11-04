@@ -165,7 +165,7 @@ The plate was still standing in its place. Sion hadn't seen when he let go of it
 
 Sion didn't know what to say.
 
-He had come into Hazran with this man. They had stood on the field together, ridden the glider together, and Sion had seen the top plate of his craft torn away. But right now none of that was any use. What was needed now was one pair of hands to stand on the left, and the only person here who could take his hands off what he held was this man.
+He had come into Hazran with this man. They had stood on the field together, ridden the glider together, and Sion had seen the underside of his craft take a beating. But right now none of that was any use. What was needed now was one pair of hands to stand on the left, and the only person here who could take his hands off what he held was this man.
 
 "How many are there over there?"
 

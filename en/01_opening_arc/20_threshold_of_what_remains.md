@@ -20,7 +20,7 @@ A low burst of static passed once over the close-range sealed channel.
 
 Every time the metal layers of the structure's outer wall and the hull overlapped, the local channel Han Jiwoo had set up picked up small dropouts like that. It was not a channel that reached far. Briefly linking the people who stayed with the ship and the people who would go outside, just as now, was the most it could do.
 
-Han Jiwoo's voice came in.
+Han Jiwoo's voice came in over the channel from the cockpit.
 
 "Bring the hull in any closer and we scrape."
 
@@ -120,8 +120,6 @@ Seorin spoke.
 "Which means pull up any old way and you're dead."
 This time it was Sion, not Han Jiwoo, who answered.
 
-When that was said, the air inside the hull changed again.
-
 Han Jiwoo took one hand off the controls and said.
 
 "Then here's how we go. I hold the ship's angle, Sion reads the traces first. Sern, work out the structural sequence. Ater, figure out what approach logic that thing originally ran on. Seorin, if anything odd shows up, cut it right away."
@@ -158,7 +156,7 @@ Ater did not answer.
 
 Sern did not ask again either. It was the third time today he had gone without an answer, and all three had pointed the same way.
 
-The moment those words were said, Sion saw a very faint scratch on the underside of the structure, something like a pattern. It might have been a Myojok mark, or something older than that. It was too worn to be sure, but at least one thing was clear.
+In that silence Sion saw a very faint scratch on the underside of the structure, something like a pattern. It might have been a Myojok mark, or something older than that. It was too worn to be sure, but at least one thing was clear.
 
 This was not an abandoned path.
 It was a path left behind pretending to be abandoned.
@@ -173,7 +171,7 @@ Sion turned.
 
 "Why'd you let go?"
 
-"Can't do this with just my hands."
+"Can't do this with the stick."
 
 Han Jiwoo pulled two old handles up out of the wall beside the pilot's seat. They were not part of the proper control system but manual shafts that pushed directly on the hydraulics. They were not original equipment in their original place; someone had fitted them later.
 

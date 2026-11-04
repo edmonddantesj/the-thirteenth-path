@@ -16,8 +16,6 @@ the merchant shouted, his voice cracking.
 someone spat from the side, half a sneer.
 "You laid it out without even knowing it was real."
 
-That one remark turned the air of the market's outer layer over even more roughly.
-
 From that short exchange alone, Sion could tell that what the small runner had in its hand was not just something that would fetch money. A real one mixed in with the fakes. No one had checked it openly, but a few had already caught on, and that was why the commotion was growing.
 
 And Kael moved first.
@@ -34,8 +32,6 @@ It was the reaction of someone putting his own body in the way before somebody g
 Seorin spoke briefly.
 
 "Sion."
-
-That one word was enough.
 
 Sion turned at once toward the alley too. Ater went after him. Even while running, Ater swept his eyes over the metal pieces scattered on the ground and the response in the dust. If what the runner had in hand was real Etherite, at the very least its grain of response might differ from dead iron powder.
 
@@ -141,8 +137,6 @@ This time Ater spoke.
 he said, low.
 "At the very least, that piece is not from the same batch as the things laid out there."
 
-The moment those words fell, the air around them changed once again.
-
 No one said *real* first, but it was the air of everyone starting to think the same thing. In Hazran, that kind of moment was the most dangerous. The moment when something still belonged to no one, and at the same time everyone started putting a price on it.
 
 Luhai seemed to read that change faster than anyone. Even held in Kael's hand, his eyes kept measuring the side path, the frame overhead, people's hands. He was scared, yes, but he was a kid whose arithmetic ran first even while he was scared.
@@ -163,8 +157,6 @@ Sion said.
 "It was playing dead too hard among the fakes,"
 Luhai said, catching his breath.
 "Then it's usually one of two things. It's real, or somebody hid it there on purpose."
-
-It sounded like bragging, but it didn't sound like complete nonsense either.
 
 Even after hearing that answer, Kael did not let go. He only eased his grip a little from before. The change was so slight that only Sion could see it, but it was clear. It meant Kael, too, was not seeing this kid as just a petty thief.
 

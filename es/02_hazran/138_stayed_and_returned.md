@@ -1,209 +1,240 @@
 # Capítulo 138 — Las manos que se quedaron y las que volvieron
 
-En cuanto tendieron en el suelo al humano que habían traído a cuestas,
-cambió el aire mismo de aquel espacio.
+Cuando tendieron en el suelo al humano que habían traído a cuestas, el umbral quedó vacío.
 
-La atmósfera de hacía un instante, la de leerse mutuamente el umbral y la identidad, se disolvió,
-y todas las miradas fueron de inmediato al cuerpo de aquella persona.
+Todas las miradas fueron al cuerpo de aquella persona.
 
-La respiración estaba ahí.
-Pero era superficial.
-Cada vez que las costillas se le movían, algo llegaba tarde por detrás.
+Respiraba, pero de forma superficial. Cada vez que se le agitaban las costillas, algo en algún sitio llegaba con retraso, y era el lado izquierdo. Primero subía el derecho, y solo un compás después subía el izquierdo.
 
-Han Jiwoo, apenas se arrodilló, puso las manos,
-y las dos máquinas de dentro que entraron después sacaron enseguida el instrumental.
+Han Jiwoo estaba de rodillas, con las manos sobre el pecho. Dos máquinas de dentro trajeron paños, agua y material de curas en algo parecido a una pequeña caja de metal. Una de las máquinas abrió la caja, pero dentro había poco.
 
-En ese instante,
-la primera máquina que había regresado dijo muy corto.
+Luhai volvió corriendo con un bidón de agua y lo dejó junto a Han Jiwoo; ya se apartaba cuando regresó y sujetó las piernas de la persona herida. Nadie se lo había pedido.
 
-—No le administres primero el analgésico.
-—Le deprime aún más la respiración.
+La máquina que había vuelto primero habló, muy breve.
 
-Han Jiwoo, por reflejo, la miró de reojo.
+—No le administres primero el analgésico. Se le debilita más la respiración.
 
-No tenía cara de que le gustara que la mandaran.
+Han Jiwoo miró de reojo hacia allí, pero no detuvo las manos. Volvió a dejar dentro de la caja lo que estaba a punto de sacar.
 
-Pero la mano ya no se detenía.
-En vez de filtrar aquellas palabras, volvió a mirar el subir y bajar del pecho del herido y dijo bajo.
+—Dime con más precisión dónde sangra.
 
-—Dime con precisión dónde sangra.
+La máquina respondió sin pararse ni un compás.
 
-Aquella máquina respondió sin descansar un solo compás.
+—Dos abajo a la izquierda. Una detrás del hombro. Las costillas, es probable que estén fisuradas por dentro.
 
-—Dos abajo a la izquierda.
-Una detrás del hombro.
-Las costillas, alta probabilidad de fisura interna.
+Han Jiwoo le rasgó más la ropa: abajo a la izquierda había dos, y detrás del hombro, una. Sin volver a mirar a la máquina, apretó el paño.
 
-Frases cortas, rápidas, sin sobras.
+La máquina vieja que pasaba el material desde dentro vaciló, y el paño que tenía en la mano se quedó parado en el aire. Un compás después, lo entregó.
 
-Una máquina vieja que pasaba instrumental desde dentro se trabó mínimamente.
+Había dos clases de manos sobre un mismo cuerpo. Las manos de la máquina de dentro doblaban los paños y los pasaban; las de la máquina que había vuelto señalaban dónde estaban las heridas. Las manos de Han Jiwoo se movían entre unas y otras. Recibía, apretaba, recibía.
 
-No era rechazo,
-sino más bien una reacción de reconfirmar la diferencia de velocidad.
+Sion miró aquellas tres manos, una tras otra. Las suyas estaban vacías. Levantó el bidón de agua y lo acercó adonde Han Jiwoo pudiera alcanzarlo.
 
-Las manos que se quedan aguantando miran con cuidado y largo.
-Las que salen y vuelven hablan corto y rápido.
+Cuando Kael llegó con una caja, Han Jiwoo habló sin mirar.
 
-Las dos eran del bando que quiere salvar,
-pero el modo de sujetar a la persona era distinto.
+—Súbele las piernas.
 
-Sion, viendo aquella escena,
-sintió que, dentro de una misma comunidad,
-el sentido del tiempo podía ser así de distinto.
+Mientras Kael metía la caja bajo los pies de la persona herida, Luhai le levantó las piernas y luego se las bajó sobre la caja. Al rostro de la persona herida le volvió un poco de color.
 
-Dentro se fabrica tiempo para aguantar mucho.
-Fuera se sujeta a la fuerza el tiempo de lo que está por apagarse.
+Kael ya no tenía nada más que hacer, pero se quedó allí, de pie a su lado. Ater vino y se puso junto a él, y los dos quedaron de pie a los pies de la persona herida. Era el sitio de quien cierra el paso. No venía nada, y aun así lo estaban cerrando.
 
-El herido dejó escapar un gemido bajo.
-Ante aquel pequeño sonido,
-la segunda máquina que había cruzado el umbral bajó el cuerpo al instante.
+La persona herida dejó escapar un gemido bajo.
 
-Parecía más pesada,
-y de hecho cojeaba mínimamente de una pierna,
-pero el punto donde tocaba la muñeca del herido lo sostenía con una estabilidad asombrosa.
+Ante ese sonido, la segunda máquina bajó el cuerpo. Como no podía doblar la pierna que arrastraba, la dejó estirada e inclinó solo el torso; metió la mano bajo el brazo de la persona herida y lo sostuvo para que la muñeca no tocara el suelo. Era un cuerpo pesado, pero la mano que lo sostenía no temblaba.
 
-Sion, al verlo, se sorprendió un poco.
+Sion miró aquella mano. La pierna estaba abierta, pero la mano no temblaba.
 
-Había pensado que sería el lado tosco y brusco,
-pero, a la hora de tocar el cuerpo de una persona, había también un lado más delicado.
-
-Aka, al verlo, dijo muy bajo.
+Aka, al verlo, habló muy bajo.
 
 —Has tocado a muchos.
 
-La primera máquina que había regresado respondió corto.
+La máquina que había vuelto primero respondió, breve.
 
-—Si no, se mueren.
+—De lo contrario, mueren.
 
-Aquellas palabras, más que una explicación,
-parecían un hecho ya vivido decenas de veces.
+—¿Cuántos?
 
-Luhai estaba apoyado cerca de la puerta, mirando aquel cuadro.
+—No los cuento.
 
-Y entonces murmuró bajo.
+Aka asintió. Era la misma respuesta de antes.
 
-—Qué distintos son.
+Luhai, que seguía sujetando las piernas de la persona herida, se quedó mirando la escena y luego murmuró en voz baja.
 
-Aquellas palabras no iban dirigidas a nadie,
-pero la mujer humana que observaba al grupo de Sion desde el día antes las recogió en su lugar.
+—¿Cómo pueden ser tan distintos?
 
-—Nosotros aprendimos dentro a derrumbarnos tarde —dijo ella—.
-Ellos aprendieron fuera a no morir.
+Fue la mujer del rostro cansado, la que observaba al grupo de Sion desde el día anterior, quien recogió la pregunta. Venía de calentar agua, y habló mientras dejaba el cuenco junto a Han Jiwoo.
 
-Aquella sola frase
-explicaba casi del todo las dos clases de máquinas que ahora estaban allí.
+—Nosotros aprendimos dentro a derrumbarnos tarde, y ellos aprendieron fuera a no morir.
 
-Han Jiwoo, rasgando la ropa del herido para revisar de nuevo la herida, se tragó una maldición.
+Luhai miró a la mujer.
 
-—¿Corriste por ahí cargando con esto?
+—¿Y eso es distinto?
 
-Esta vez fue la segunda máquina la que abrió la boca por primera vez.
-La voz era más baja y más gastada que la de la primera.
+—Lo es. No morir es rápido, y derrumbarse tarde es lento.
 
-—A medio camino lo perdí una vez.
-Lo volví a agarrar.
+Del cuenco subió un poco de vapor.
 
-Aquellas palabras no eran jactancia.
-Tampoco excusa.
+Ella no dijo nada más y se retiró. Desde donde se había retirado, siguió mirando.
 
-Parecían, sin más, algo que había pasado.
+Han Jiwoo, que rasgaba más la ropa de la persona herida para revisar las heridas, se tragó una maldición en voz baja.
 
-Y justo por eso,
-Sion lo sintió más nítido.
+—¿Corriste por ahí con esto a cuestas?
 
-Aquellas manos de fuera no hablan de salvar humanos como si fuera una misión.
-Si se les escapa, lo vuelven a agarrar;
-si no muere, lo traen consigo;
-y cuando se rompen, vuelven a salir.
+La segunda máquina volvió a abrir la boca. Era una voz más baja que la de la primera, y más gastada.
 
-Curiosamente, eso
-resultaba más difícil de creer y, a la vez, más real.
+—A medio camino lo perdí una vez. Lo volví a agarrar.
 
-En ese momento, una de las máquinas viejas que ordenaba el instrumental desde dentro dijo muy bajo.
+Las manos de Han Jiwoo se detuvieron. Un compás después, volvieron a moverse.
+
+—¿Dónde lo perdiste?
+
+—En la escalera.
+
+—¿Hacia dónde cayó?
+
+—Encima de mí.
+
+La segunda máquina se miró la pierna, la articulación abierta.
+
+Han Jiwoo también miró esa pierna, y luego las costillas de la persona herida. El lado izquierdo.
+
+—Así que por eso el izquierdo.
+
+—Por eso es el izquierdo.
+
+Han Jiwoo retiró el paño empapado de sangre y puso uno nuevo en el mismo sitio.
+
+Seorin, que miraba desde el umbral, le preguntó a la primera máquina sin entrar.
+
+—¿De dónde sacaste a esa persona?
+
+—De arriba.
+
+—¿De dónde de arriba?
+
+—Luego.
+
+—Tienes muchos «luego».
+
+—Es que ahora esa persona va primero.
+
+Seorin asintió. Aun así, no se apartó del umbral.
+
+Cuando un niño intentó salir del fondo del pasaje, la anciana lo sujetó por el hombro.
+
+—No mires.
+
+El niño miró por debajo del brazo de la anciana. La anciana no lo tapó más.
+
+—¿Se muere?
+
+Lo preguntó el niño.
+
+—Todavía no. Todavía no se muere.
+
+El niño oyó ese «todavía» y, por debajo del brazo de la anciana, siguió mirando cómo se movían las manos de Han Jiwoo.
+
+Han Jiwoo vio esos ojos.
+
+—Agua.
+
+Se lo dijo al niño.
+
+Mientras el niño se escurría de debajo del brazo de la anciana, traía con las dos manos el bidón de agua y lo dejaba junto a Han Jiwoo, la anciana no lo retuvo. Cuando volvió y se metió de nuevo bajo el brazo de la anciana, el niño tenía las manos mojadas.
+
+La máquina vieja que ordenaba el material dentro habló muy bajo.
 
 —¿Hasta dónde llegaron esta vez?
 
-La primera máquina, antes de responder, miró un momento las manos de Han Jiwoo.
+La primera máquina, antes de responder, miró las manos de Han Jiwoo que apretaban el paño, y después miró a la máquina vieja.
 
-Como si calculara que ahora no era el momento de hablar de eso.
+—¿Ahora?
 
-Pero la máquina vieja no cedió.
+—Ahora.
 
-—Hay que saber lo perdido para decidir lo siguiente.
+La máquina vieja continuó.
 
-Un silencio breve.
+—Hay que saber cuánto se perdió para decidir lo siguiente.
 
-Ante aquellas palabras,
-la mirada de la primera máquina que había regresado se enfrió un poco.
+Un breve silencio.
 
-—Lo siguiente siempre está decidido —dijo bajo—.
-Nosotros salimos,
-y ustedes se quedan.
+Los ojos ópticos de la primera máquina se enfriaron. La luz, que había sido irregular, se volvió pareja.
 
-El aire se heló muy fino.
+—Lo siguiente siempre lo tienen decidido.
 
-No eran palabras tan grandes como para llamarlas un choque frontal.
-Pero la fricción acumulada durante mucho tiempo
-se revelaba, justamente, más nítida en frases tan cortas.
+Lo dijo en voz baja.
 
-El lado que se queda aguantando,
-y el lado que sale y se desgasta.
+—Nosotros salimos, y ustedes se quedan.
 
-Las dos saben por qué necesitan a la otra.
-Y, en esa misma medida,
-saben también por qué se exasperan.
+La máquina vieja no respondió; sacó otro paño y lo empujó hacia Han Jiwoo. La primera máquina tampoco dijo nada más y señaló detrás del hombro de la persona herida, y Han Jiwoo apretó ahí.
 
-Aka, mirándolas a una y a otra, dijo bajo.
+Las dos miraban a la persona herida, y ninguna miraba a la otra.
 
-—Las dos se necesitan,
-pero qué poco se fían la una de la otra.
+Aka las miró a una y a otra, y habló bajito.
 
-Ante aquellas palabras,
-la primera máquina que había regresado miró a Aka.
+—Ninguna de las dos puede estar sin la otra, y qué poco se creen lo que se dicen.
 
-Y soltó un sonido de risa muy breve.
+La primera máquina miró a Aka y soltó un sonido muy breve, como una risa.
 
-—Ves rápido.
+—Para ver, eres rápida.
 
-Aquellas palabras parecían un elogio,
-y parecían también cautela.
+—También hay cosas en las que soy lenta.
 
-Han Jiwoo, en todo ese rato, no detuvo las manos.
-Presionaba la herida para frenar el flujo,
-vigilaba la respiración de las costillas,
-y enlazaba el instrumental que pasaba la máquina de dentro con la información de campo que daba la máquina de fuera.
+—¿Cuáles?
 
-En aquel instante, al menos,
-la mano que se había quedado aguantando y la mano que había salido y vuelto
-estaban pegadas exactamente al mismo sitio
-para salvar a una misma persona.
+—Hablar.
 
-A Sion le pareció que aquella escena, curiosamente, iba a quedarse mucho tiempo.
+La máquina llevó los ojos ópticos a las manos de Han Jiwoo.
 
-Esta comunidad rodaría, seguramente, así.
-Siempre exasperándose un poco la una con la otra,
-sin llegar a ser del todo iguales,
-y aun así, en el momento decisivo, sujetando un mismo cuerpo.
+Han Jiwoo, en todo ese rato, no detuvo las manos. Apretaba la herida para frenar el flujo, vigilaba la respiración del lado de las costillas, tomaba el material que le pasaba la máquina de dentro y apretaba en el sitio que le indicaba la máquina de fuera. La mano derecha y la izquierda hacían trabajos distintos.
 
-Y, quizá,
-justo gracias a esa superposición torpe, era posible que aún no se hubiera acabado.
+A su lado, Sern miraba cómo se empapaba de sangre su propia chaqueta, que había tendido bajo la persona herida. No la retiró ni lo anotó en el panel de registro: solo miraba.
 
-Poco después,
-la respiración del herido empezó a cuadrar, aunque fuera mínimamente, mejor que antes.
+Sion sostenía el bidón y vertía agua cada vez que Han Jiwoo tendía las manos. Tres veces.
 
-Han Jiwoo exhaló corto,
-y la primera máquina que había regresado también aflojó muy poco la fuerza de los hombros.
+La respiración de la persona herida cambió. El lado izquierdo siguió al derecho. Lo que llegaba un compás tarde pasó a llegar medio compás tarde.
 
-Enseguida se volvió de nuevo hacia la rendija.
+Han Jiwoo soltó una breve exhalación, pero no apartó las manos.
 
-Fuera aún tenía cara de no haber terminado.
+Los hombros de la primera máquina bajaron muy poco. Enseguida se volvió hacia la brecha. Era el punto gastado del muro cerrado. Se quedó un buen rato mirando ese punto.
 
-Pero dentro ya, ahora,
-parecía haber dejado de ser un sitio que pudiera ignorar del todo al pasar.
+La segunda máquina seguía sosteniendo la muñeca de la persona herida y no la soltaba. Su propia pierna seguía estirada.
 
-El umbral quedó así,
-como el lugar donde manos distintas, por primera vez ante una misma vida,
-ajustaron aunque fuera un solo compás del mismo ritmo.
+La máquina vieja se puso junto a la pierna de la segunda máquina y la miró desde arriba.
+
+—Eso también hay que arreglarlo.
+
+—Esta persona primero.
+
+—De esta persona se encargan aquellas manos.
+
+La máquina vieja señaló a Han Jiwoo.
+
+La segunda máquina giró la cabeza para mirar a Han Jiwoo, pero Han Jiwoo miraba a la persona herida.
+
+—Después.
+
+Lo dijo Han Jiwoo sin mirar.
+
+—Esa pierna te la arreglo después.
+
+La segunda máquina asintió. La mano que sostenía la muñeca siguió igual.
+
+La mujer del rostro cansado volvió con más agua caliente. La dejó junto a Han Jiwoo, y después dejó también un cuenco junto a la primera máquina. La máquina no usaba agua, y la mujer lo sabía cuando lo dejó. La máquina miró el cuenco.
+
+—Gracias.
+
+—Pero si no bebes.
+
+—Aun así.
+
+La mujer volvió a retirarse.
+
+Luhai soltó las piernas de la persona herida y se miró las manos. Tenían sangre, pero sin limpiárselas miró la chaqueta de Sern empapada de sangre, y luego se quitó su propia chaqueta y la extendió sobre las piernas de la persona herida.
+
+El umbral estaba cerrado. Delante de él, personas y máquinas estaban sentadas, mezcladas, con una persona en medio.
+
+La persona herida abrió los ojos. Miraba la lámpara amarilla del techo, y la lámpara parpadeó. Los ojos se le cerraron y se le abrieron con ella.
 
 ---
 

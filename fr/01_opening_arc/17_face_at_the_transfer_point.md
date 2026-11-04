@@ -26,7 +26,6 @@ Seorin fit la grimace.
 
 « Dans un coin pareil, c'est une bonne nouvelle. »
 
-Ça sonnait comme une plaisanterie, mais ce n'en était pas tout à fait une.
 Un point de jonction extérieur, comme son nom l'indiquait, tenait moins du port vivant que d'un lieu où des routes incapables de mourir se raccordaient de force. Que le courant n'ait pas complètement lâché, c'était déjà une demi-réussite.
 
 Quand le sas s'ouvrit, un air froid s'engouffra dans l'étroite cabine.
@@ -154,11 +153,11 @@ Sern demanda calmement :
 
 Han Jiwoo, alors seulement, regarda Sern en face.
 
-« Oui. Mais le trajet sera pas de tout repos. »
+« Oui. Mais on pourra pas y aller directement. »
 Elle désigna du menton le vaisseau au fond de la salle.
-« Moi, mon métier, c'est de lire les balises mortes en les raccordant à du matériel encore vivant. Sur ce tronçon, sans ça, impossible de faire la jonction. »
-Elle continua :
 « Parmi les routes qui entrent dans l'amas stellaire extérieur, deux sont déjà mortes, et sur la troisième, quelqu'un tâtonne derrière nous depuis tout à l'heure. Alors il faut faire un détour plus à l'extérieur que prévu. »
+Elle ajouta :
+« Là-bas, plus à l'extérieur, c'est un tronçon où il faut lire les balises mortes en les raccordant à du matériel encore vivant pour faire la jonction. Et ça, c'est mon métier. »
 
 Ater demanda à voix basse :
 
@@ -212,7 +211,6 @@ Seorin fut la première à avancer.
 
 « Bon. Alors on monte. »
 
-Ater sentit que ces quelques mots sonnaient, étrangement, plus solides que toutes les instructions données jusque-là.
 Seorin faisait toujours ainsi. Dès que l'atmosphère se relâchait ou qu'une brèche s'ouvrait entre les avis, elle taillait juste la longueur nécessaire et poussait vers l'avant.
 
 Juste avant d'embarquer, Sion frôla Han Jiwoo et dit à voix basse :
@@ -226,7 +224,6 @@ Puis elle ajouta, tout bas :
 « Alors survis pour payer. »
 
 Sion ne répondit pas.
-Mais ces quelques mots lui restèrent accrochés dans un coin de la poitrine, étrangement plus lourds que la coque.
 
 Devant la rampe, Han Jiwoo compta les têtes.
 

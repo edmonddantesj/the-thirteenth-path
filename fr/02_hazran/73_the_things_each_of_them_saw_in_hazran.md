@@ -203,17 +203,6 @@ Aka poursuivit :
 
 Han Jiwoo souffla brièvement et rabaissa les mains.
 
-Elles parlaient peu. Mais toutes deux le savaient.
-
-Peu importe qui rapporterait quoi du dehors,
-qui ramènerait quelle information,
-et comment chacun reviendrait après avoir vu Hazran :
-au bout du compte, au moment de tout raccorder ici, à l'intérieur, chaque chose serait mise à l'épreuve une fois de plus.
-
-Hazran montrait à chacun autre chose.
-
-Et pourtant, tous ces fragments différents se rassemblaient peu à peu, étrangement, vers un même but : sauver le même vaisseau.
-
 ---
 
 <sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Lecture et partage de liens uniquement. La reproduction, la redistribution, l’adaptation, l’usage commercial et l’utilisation pour l’entraînement d’IA/ML, la constitution de jeux de données ou la construction de modèles sont interdits sans autorisation écrite explicite. Voir <a href="../../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

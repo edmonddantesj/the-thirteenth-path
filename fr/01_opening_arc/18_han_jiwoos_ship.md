@@ -62,7 +62,7 @@ Seorin demanda :
 
 « Pas faux. »
 
-Yona attendit le bruit de l'anneau d'accostage qui se libérait complètement, puis regarda Han Jiwoo.
+Yona attendit le bruit des anneaux d'accostage qui se libéraient un à un, puis regarda Han Jiwoo.
 
 « À partir d'ici, c'est ton tronçon. »
 
@@ -225,8 +225,6 @@ C'est alors que Han Jiwoo dit soudain :
 
 « Cette fois, t'as apporté quoi, exactement ? »
 
-L'air de la cabine changea, très légèrement.
-
 Sion ne répondit pas tout de suite.
 Jusqu'où dévoiler ici l'histoire du fragment, que dire devant Ater et Sern, où Seorin couperait-elle. Dans ce court silence, chacun fit tourner ses calculs une fois.
 
@@ -273,7 +271,6 @@ Elle dit très lentement :
 « Alors c'est un nom mort. »
 
 Personne ne répondit tout de suite.
-Mais l'absence de réponse était déjà une réponse suffisante.
 
 Dehors, un long frottement glissa contre la coque.
 Le vaisseau quittait déjà le point de jonction, et le chemin du retour, derrière, s'assombrissait de nouveau.
@@ -286,7 +283,6 @@ Alors à partir de maintenant, faudra aller encore plus discrètement. »
 « Si le nom est un nom mort, la raison pour laquelle on est traqués change aussi. Ceux qui viendront nous chercher voudront pas seulement attraper une personne : ils viendront aussi bloquer les routes que ce nom peut ouvrir. »
 
 Sion souffla doucement à ces mots.
-L'explication n'était pas terminée, mais, du moins, l'essentiel pour l'instant avait été transmis.
 
 Le vaisseau s'éloigna de plus en plus vers le dehors.
 Une route hors des voies officielles, un détour qui se prolongeait de balise morte en balise morte, des connexions qui ne survivaient plus que sous forme de vestiges, à la place des noms.

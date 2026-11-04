@@ -18,7 +18,7 @@ Seorin n'arrêta pas ses mains.
 
 « Si. »
 
-Sion allait protester, puis se retint. Elle avait raison. Dans cette file, il n'y avait plus que là qu'on pouvait gagner du temps.
+Sion allait protester, puis se retint. Dans cette file, il n'y avait plus que là qu'on pouvait gagner du temps.
 
 « Et si on supprime les deux pas, il se passe quoi ? »
 

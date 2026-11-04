@@ -207,10 +207,6 @@ Han Jiwoo soltó una risa corta.
 Lo dijo ella.
 —Entonces volvamos a entrar.
 
-A Sion esas palabras le gustaron de un modo casi extraño.
-
-Porque no sonaban a alguien que huye, sino a alguien que vuelve vivo con lo verdadero en la mano.
-
 Y en ese preciso instante, los dos aparatos empezaron a cambiar de dirección por completo.
 
 Ya no hacia la línea que huía fuera de Hazran, sino hacia la línea que volvía, con lo verdadero en la mano, al centro de la partida.

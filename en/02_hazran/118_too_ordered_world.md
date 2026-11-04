@@ -138,12 +138,6 @@ Aka looked out the viewport for a long time, then spoke, very low.
 
 Sion slowly turned to look at her.
 
-Aka went on.
-
-"More like a place that handles them."
-
-After those words fell, no one could speak right away.
-
 The adult who had been holding the child set the child down, and the child raised a hand to be lifted up again. The adult didn't lift the child again, but took hold of that hand.
 
 Sern lifted his eyes from the record panel.
@@ -194,8 +188,6 @@ Ater let that go unanswered and, still watching through the viewport, spoke brie
 
 "Do we go in?"
 
-The question was short.
-
 Seorin looked at Ater, but Ater was looking at the viewport. Han Jiwoo's hand stopped on the helm, and Sern lifted his eyes from the record panel.
 
 Sion's voice was very low.
@@ -234,7 +226,7 @@ Even after the child took the hand away from the viewport, the print stayed. Han
 
 She spoke. No one had tried to wipe it away, and still she said so.
 
-Beside Kael as he pulled his sleeve back down, Luhai rubbed his oily hands on his trousers, but the oil didn't come off. Sern lifted his eyes from the record panel and looked at the viewport. It was the first time.
+Beside Kael as he pulled his sleeve back down, Luhai rubbed his oily hands on his trousers, but the oil didn't come off. Sern lifted his eyes from the record panel and looked at the viewport.
 
 The planet of machines filled the whole viewport.
 

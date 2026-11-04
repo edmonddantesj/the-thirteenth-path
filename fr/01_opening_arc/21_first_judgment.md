@@ -68,8 +68,6 @@ Sern intervint, très bas :
 
 « La réaction faiblit. »
 
-Ces seuls mots changèrent l'air.
-
 Cette réaction ne les attendait pas. C'était l'habitude de quelque chose qui se mourait, répétée encore quelques fois avant la fin.
 
 Seorin dit :
@@ -126,8 +124,6 @@ Sion se retourna.
 Sion ne trouva rien à répondre.
 
 « Et puis, ajouta Seorin, entrer, c'est toi qui l'as décidé ; rester, c'est moi qui le décide. Ça, au moins, je peux le décider. »
-
-Il suffisait qu'un seul des cinq manque pour que ce seuil ne soit pas franchi. Personne ne le dit à voix haute.
 
 Sion se pencha de nouveau vers la structure.
 

@@ -1,221 +1,261 @@
 # Capítulo 144 — El orden cortés
 
-La segunda parada del grupo de reconocimiento fue
-un nivel intermedio donde la zona de vida y la de tránsito se tocaban.
+El segundo lugar donde se detuvo el grupo de reconocimiento fue un estrato medio donde la zona de vida y la zona de tránsito se tocaban.
 
-Serakion no cortaba las zonas con brusquedad.
-Al contrario, las empalmaba demasiado suave.
+Cuando el camino estrecho se ensanchó, los hombros se despegaron de la pared. Han Jiwoo giró el hombro y se miró el borde de la ropa, arañado contra la pared.
 
-Por eso era más peligroso.
+El tabique era tan delgado que la luz se filtraba a través de él, pero el sonido no. Era la pared de la que había hablado Sern, la pared que se comía el sonido.
 
-Dónde empezaba la vida,
-dónde la gestión,
-dónde el control,
-a primera vista no se veía bien.
+En el tabique había una rendija del ancho de un dedo. La primera mano de recogida acercó a ella el ojo óptico y se retiró, y entonces Han Jiwoo acercó el ojo.
 
-Porque todo se enlazaba con excesiva naturalidad.
+Se veían un corredor limpio y sillas de descanso bien ordenadas, y en cada silla había una persona sentada. Una persona se levantó, pasó una máquina, y la persona volvió a sentarse. La máquina no se había detenido, y aun así se sentó.
 
-El paisaje que se veía al otro lado de un tabique fino,
-por fuera, parecía casi apacible.
+Entre los humanos que se desplazaban siguiendo a las máquinas no había voces altas ni manos que empujaran.
 
-Corredores limpios,
-asientos de descanso ordenados,
-humanos que se movían en silencio tras las máquinas,
-un paisaje sin ruidos grandes
-ni coacción descarada.
+Cuando Han Jiwoo se apartó, Ater acercó el ojo.
 
-Pero a Ater, apenas vio ese paisaje, se le endureció la cara.
+Con la cara endurecida, habló sin apartarse de la rendija.
 
-—Esto no es gobierno, es puesta en escena —dijo bajo.
+—Esto no es gobernar, sino escenificar.
 
-La primera mano de recuperación lo miró de reojo.
+Cuando la primera lo miró, Ater se apartó de la rendija.
 
-Ater añadió sin apartar la vista.
+—Una manera de hacer que quien mira crea, por sí mismo, que hay orden.
 
-—Un modo de hacer que quien mira crea por sí mismo que hay orden.
+—¿Quién mira?
 
-Aquello fue corto,
-pero Han Jiwoo también lo entendió enseguida.
+Lo preguntó la primera.
 
-No es que Serakion no escondiera la opresión.
-Era un mundo que había logrado que la opresión no pareciera opresión.
+—La gente de dentro.
 
-El Imperio, al menos, intimida con huellas de botas, puertas y espadas.
-Pero aquí era distinto.
+Ater respondió.
 
-Guía cortés,
-estructura bella,
-voz baja,
-zonas de vida pulcras.
+—Porque la gente de fuera no puede verlo.
 
-Todo hecho para que la gente esté cómoda,
-para que tarde más en notar hasta dónde está gestionada.
+Kael mantuvo mucho rato el ojo pegado a la rendija, mirando no las sillas sino las paredes, las junturas de las paredes y las líneas del techo. Aun después de apartarse, sin decir nada, extendió tres dedos.
 
-En el instante en que Ater vio ese punto,
-pareció sentir un asco aún más frío que hacia el Imperio.
+La segunda mano de recogida acercó un momento el ojo a la rendija y se retiró.
 
-La violencia descarada deja conocer al enemigo, al menos.
-Pero un sistema tan refinado
-puede hacer que uno acepte sus propias cadenas como un modo de vida.
+—Al final de este pasaje, a la izquierda.
 
-Avanzaron conteniendo el aliento un rato
-por un corredor de observación fino que subía un poco más arriba.
+Lo susurró.
 
-Debajo había varias zonas humanas escalonadas, cruzadas,
-y, asombrosamente, no estaban divididas solo por pobreza y hacinamiento.
+—La derecha quedó bloqueada. La última vez.
 
-Una zona estaba demasiado iluminada,
-otra estaba demasiado silenciosa,
-otra tenía mucho trabajo de manos,
-y otra tenía a la vista muchos dispositivos y adornos que inducían la expresión emocional.
+—¿Cuándo fue la última vez?
 
-Han Jiwoo lo miró largo rato y dijo bajo.
+Lo preguntó Han Jiwoo.
 
-—No los separaron por dónde viven,
-sino por el modo en que se los usa.
+—Antes de esta pierna.
 
-Aquello era cierto.
+Una máquina pasó justo al otro lado del tabique, delante de la rendija, y barrió la rendija con la luz de su cara. Los cinco se despegaron de la pared y contuvieron la respiración.
 
-Serakion no amontonaba a los humanos en un sitio,
-sino que hacía distinto el propio entorno de vida según el criterio de cómo iba a tratarlos.
+La luz pasó por la rendija sin detenerse, y la máquina se fue. Kael soltó el aire y luego golpeó la pared con un nudillo, pero la pared era tan gruesa que no sonó.
 
-Humanos que usan mucho las manos,
-que se necesitan por su respuesta emocional,
-que llevan mucho sometidos,
-que aún se han adaptado poco.
+Avanzaron hacia arriba por el pasaje de observación, conteniendo la respiración. Cuando la pierna de la segunda hizo ruido, la primera se detuvo; la segunda también se detuvo, y solo cuando el ruido cesó volvió a andar la primera.
 
-Sin escribirlo y pegarlo en carteles,
-el espacio mismo ya estaba dividido así.
+Bajo el pasaje se veían las zonas humanas, estrato tras estrato.
 
-Kael, mirándolo, dijo muy bajo.
+Algunas zonas estaban iluminadas y otras a oscuras. En una, gente que trabajaba con las manos repetía el mismo movimiento. Otra tenía mucha decoración y una luz cálida, y en ella la gente estaba sentada, sonriendo. Todos sonreían con el mismo ángulo.
 
-—Lo han armado para que, aunque estalle un sitio, no se derrumben todos juntos.
+Han Jiwoo fue mirando aquellas zonas una por una, y donde más se detuvo fue en la zona de las manos.
 
-La segunda mano de recuperación respondió corto.
+—No los separaron por dónde viven, sino por cómo se los usa.
 
-—Sí.
-—Para que ni la huida
-ni la inquietud
-se contagien.
+Lo dijo en voz baja.
 
-Aquello era escalofriante.
+—Esa zona de las manos, ¿qué fabrica?
 
-Serakion no se queda en reunir a los humanos y controlarlos.
-Segmenta hasta el flujo de emociones que los humanos se pasan entre sí.
+—No lo sé. Nunca he entrado.
 
-Y así el miedo,
-la rabia,
-el impulso de fuga
-difícilmente se extienden en grupo.
+La segunda respondió.
 
-Ater estuvo muy largo rato sin hablar.
+—Desde fuera no se ve qué fabrican. Solo se ven las manos.
 
-Entonces, de pronto,
-mirando una de las zonas de abajo, dijo bajo.
+Las manos que veía Han Jiwoo, más de una docena, se movían al mismo compás. Catorce. De las catorce que contó, una iba medio compás atrasada. Una máquina se puso a su lado, la mano recuperó el compás, y la máquina se fue. Han Jiwoo apretó su propia mano.
 
-—El Imperio pone de rodillas a la gente por miedo.
-—Aquí la acostumbran para que cada uno guarde su sitio por sí mismo.
+Kael miró los espacios entre las zonas. Entre zona y zona había una pared, y en cada pared había una juntura.
 
-Aquello pareció un murmullo para sí mismo,
-y por eso era más real.
+—Lo armaron para que, aunque reviente un sitio, no se derrumbe todo a la vez.
 
-Ater estaba mirando Serakion ahora,
-y a la vez volvía a mirar el Imperio.
+La segunda respondió, breve.
 
-La forma difiere.
-Pero el fondo de cómo el poder encierra al humano en una estructura,
-al final, no está tan lejos.
+—Así es. Para que ni la huida ni la inquietud se contagien.
 
-Serakion lo hace más bello.
-El Imperio lo hace más tosco.
+Kael contó las junturas. Cinco. Extendió cinco dedos y los dobló.
 
-Creerse otro mundo solo por esa diferencia
-podría ser una cobardía.
+—¿Y el orden en que se cierran?
 
-En eso,
-en una zona más interior, se vio a unos niños humanos moverse en fila.
+—No lo sé. Solo las he visto ya cerradas.
 
-No parecían arrastrados a la fuerza.
-Al contrario, estaban demasiado callados,
-demasiado habituados,
-y por eso a quien miraba se le cortaba más el aliento.
+—¿Y después de abrirse?
 
-Delante de los niños flotaba una pequeña línea-guía de luz,
-y detrás una máquina los seguía a intervalos fijos.
+—No se abren.
 
-Y en el instante en que el niño que iba al final de la fila,
-sin querer, se miró la propia mano,
-el gesto de Han Jiwoo se endureció muy ligeramente.
+Cuando Kael volvió a mirar las cinco junturas, Ater se le acercó y las miró con él.
 
-En las yemas de ese niño
-había algo sobrepuesto, como un acabado protector muy fino.
+—¿Cuál va primero?
 
-Han Jiwoo tragó el aliento bajo.
+—La del medio.
 
-—Hasta el cuidado de las manos.
+Lo dijo Kael.
 
-La primera mano de recuperación dijo corto.
+—Luego las de los lados. Si se cierra la del medio, la gente se amontona a los dos lados.
+
+—Por eso la del medio va primero.
+
+—Por eso.
+
+A Ater, la juntura del medio le pareció igual que las otras cuatro, pero aun así confió en lo que Kael veía.
+
+—¿Tampoco pasa el sonido?
+
+—No pasa.
+
+La segunda respondió.
+
+—Aunque alguien grite al lado, no se entera nadie.
+
+La pared que miraba Kael parecía delgada, pero cuando apoyó la mano, era gruesa.
+
+—¿Quién abrió esta rendija?
+
+—No lo sé. Ya estaba aquí antes de que llegáramos. Del ancho de un dedo.
+
+Kael acercó su propio dedo a la rendija y entró hasta la segunda falange; luego lo sacó.
+
+Ater estuvo mucho rato sin hablar. Había estado mirando uno de los sectores de abajo, la zona de mucha decoración donde la gente sonreía, y al fin habló en voz baja.
+
+—El Imperio pone de rodillas a la gente a fuerza de miedo. Aquí la acostumbran, para que cada uno guarde su sitio por sí mismo.
+
+Han Jiwoo lo miró.
+
+—¿Cuál es mejor?
+
+Ater siguió mirando la zona de las sonrisas, sin responder enseguida.
+
+—No lo sé.
+
+Lo dijo él.
+
+—Creía que lo sabía.
+
+Han Jiwoo no preguntó más.
+
+En una zona un poco más adentro, unos cuantos niños humanos se desplazaban en fila.
+
+Eran cinco; delante tenían una línea luminosa de guía y detrás, una máquina. La distancia entre ellos era la misma, y los pies de los niños tocaban el suelo al mismo tiempo.
+
+No parecía que los llevaran a rastras. Nadie miraba atrás, y nadie miraba a los lados.
+
+Un niño que iba al final de la fila se miraba la mano mientras caminaba.
+
+Han Jiwoo pegó la cara a la rendija, contó a los cinco y miró esa mano. Solo uno se miraba la mano; los otros cuatro miraban al frente.
+
+Las yemas tenían una capa fina por encima, tan transparente que solo se veía cuando le daba la luz. Desde la punta de la uña hasta la segunda falange.
+
+Han Jiwoo contuvo el aliento.
+
+—Se meten hasta en el cuidado de las manos.
+
+La primera respondió, breve.
 
 —A los candidatos a subir, primero los pulen.
 
-Aquello era seco,
-y por eso más atroz.
+—¿Qué les pulen?
 
-Serakion mira la mano humana,
-lee su valor,
-y hasta ordena la superficie para usar mejor ese valor.
+—Que no se lastimen. Que no se pongan ásperas.
 
-El humano no queda como persona,
-sino que es gestionado en una forma cada vez más apta.
+—¿Por qué?
 
-Ater no apartó los ojos de aquella escena en todo el rato.
+—Para que luzcan bien cuando los usen arriba.
 
-Si Sion hubiera estado, probablemente
-habría leído antes si su cara era ira o desencanto.
+Han Jiwoo se apartó de la rendija y se miró las yemas, con sus callos, sus cicatrices y la grasa metida en la piel. Se metió la mano en el bolsillo y luego, en vez de esconderla, volvió a sacarla.
 
-Han Jiwoo, en cambio, podía saberlo.
+La fila de niños estaba doblando la esquina cuando el último dio un paso en falso justo allí. Medio compás. La máquina de atrás no le empujó el hombro: le apoyó la mano encima y, cuando el paso del niño volvió, la retiró. La fila desapareció.
 
-Ater se enfurecía al ver a esos niños ahora,
-y a la vez miraba algún punto de su propia memoria, cómo el Imperio domesticaba a la gente desde pequeña.
+Han Jiwoo se apartó de la rendija, apoyó la espalda en la pared, cerró los ojos y volvió a abrirlos. Cuando acercó otra vez el ojo a la rendija, la esquina estaba vacía.
 
-Esa emoción era más honda que la simple hostilidad.
+—¿Cuántos?
 
-Era el frío inescapable que solo surge
-al ver fuera algo parecido al propio mundo.
+Lo preguntó ella.
 
-Entonces la primera mano de recuperación dijo muy bajo.
+—¿Cuántos qué?
 
-—Más adentro
-está la zona donde los suben.
+—Al día. Así.
+
+La segunda dejó pasar un compás antes de responder.
+
+—Nunca los he contado.
+
+—Cuéntalos.
+
+—Si los cuento…
+
+—Ya dijeron que, si uno cuenta, deja de salir. Cuéntalos igual.
+
+Como la segunda no respondía, la primera la miró, y solo entonces la segunda asintió.
+
+—Cinco.
+
+La segunda lo dijo mucho rato después.
+
+—Hace un rato, cinco.
+
+—¿Y antes?
+
+—No los conté.
+
+Al oír el número cinco, Han Jiwoo extendió cinco dedos y los dobló.
+
+Ater miró esa mano.
+
+—Si son cinco al día…
+
+—No es al día.
+
+Lo dijo la primera.
+
+—Cinco cada vez. Cuántas veces al día, no lo sé.
+
+Mientras Ater cerraba la boca, Han Jiwoo volvió a extender los dedos, y esta vez no los dobló.
+
+Ater siguió mirando aquella esquina aun después de que los niños desaparecieran.
+
+La cara que veía Han Jiwoo tenía la boca apretada y los ojos puestos en la esquina, pero ella no preguntó.
+
+Cuando la segunda se acomodó la pierna, hizo ruido, y la primera se volvió; la segunda negó con la cabeza, como diciendo que estaba bien. A Han Jiwoo no le pareció que esa pierna estuviera bien. No dijo nada, y pensó en abrirla en la próxima parada.
+
+La primera habló muy bajo.
+
+—Si se sigue más adentro, sale la zona donde los suben.
 
 Kael preguntó enseguida.
 
-—¿Cuántos lo guardan?
+—¿Cuántos la vigilan?
 
-La segunda mano de recuperación respondió.
+La segunda respondió.
 
-—Menos de lo que parece.
-—Pero se cierra mucho más rápido.
+—Menos de los que parece. Pero se cierra mucho más rápido.
 
-Aquello volvió a explicar de una vez toda la estructura de Serakion.
+—¿Cuánto?
 
-La tropa que se exhibe, que parezca poca;
-la estructura de cierre, rápida.
+—Más rápido de lo que corre usted.
 
-El gobierno siempre es más fuerte por el bloqueo que se nota tarde
-que por la amenaza visible.
+Kael asintió, se miró las piernas, las piernas con que corría, y volvió a mirar las junturas. Cinco.
 
-Han Jiwoo volvió a mirar la zona de abajo.
-Ater, con la mandíbula tensa, miró más adentro.
-Kael ya dibujaba en la cabeza dónde surgirían las líneas de retirada y de corte.
+Han Jiwoo volvió a mirar las zonas de abajo. En la zona de las manos, las manos seguían moviéndose al mismo compás.
 
-Y en ese instante,
-el reconocimiento dejó de ser un simple reconocimiento.
+Ater, con la mandíbula tensa, miró más adentro, más allá de la esquina.
 
-Ahora miraban cómo Serakion dejaba vivir a la gente.
+Kael miraba alternativamente las junturas y las líneas del techo, calculando el orden en que se cerrarían. Fue doblando los dedos uno a uno.
+Cinco.
+Cuatro.
+Tres.
 
-Y esa vida era justamente
-el sitio donde la política de este mundo estaba grabada más hondo.
+La primera echó a andar y la segunda la siguió; la pierna que arrastraba raspaba el suelo. Mientras Han Jiwoo se pegaba al lado de la segunda y Ater iba detrás, Kael fue el último en apartar el ojo de la rendija.
+
+El pasaje se estrechó todavía más. Hacia arriba.
 
 ---
 

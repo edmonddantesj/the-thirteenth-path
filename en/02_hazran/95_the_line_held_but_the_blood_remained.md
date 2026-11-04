@@ -60,7 +60,7 @@ Sion lowered his hand.
 
 Instead of answering, Sern brought a hand to his own side.
 
-Cloth was wound there. Wound over a cut from a few days ago, and that spot was wet again now too.
+Cloth was wound there. Wound over the cut from that morning, and that spot was wet again now too.
 
 "Don't."
 

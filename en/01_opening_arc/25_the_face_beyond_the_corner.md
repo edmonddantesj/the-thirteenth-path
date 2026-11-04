@@ -52,8 +52,6 @@ And the voice from beyond the corner came again.
 
 "I know."
 
-With that one word, the air changed.
-
 The one running was not blind to their own situation either. It meant they knew all of it: that the larger fragment was unstable, that they could not get out safely before passing the next judgment unit, even that the ones who had chased them here were not mere pursuers.
 
 Ater asked, very low,
@@ -76,8 +74,6 @@ Seorin asked at once.
 Sern answered.
 "There is only one breath."
 
-With that one remark, the presence beyond the corner grew a little clearer.
-
 Sion said, very slowly,
 
 "Not the Empire, and not the Alliance either."
@@ -86,9 +82,7 @@ From beyond the corner came a short breath, like a laugh.
 
 "If it were either of those, they'd have shot the people first by now."
 
-Seorin, left on the ship, would have changed expression at that one short remark too.
-
-That one short remark was enough. The other side had not come here to fight. The aim was still closer to recovery and getting out. That was no reason to relax, though. One wrong move and they would be an enemy on the spot.
+The other side had not come here to fight. The aim was still closer to recovery and getting out. That was no reason to relax, though. One wrong move and they would be an enemy on the spot.
 
 Sion asked.
 
@@ -126,7 +120,7 @@ Sern understood at once.
 
 Sion's hand went to his retrieval pocket on its own. The fingernail-sized crumb he'd picked up under the slot was in there.
 
-They had left it knowing it was broken. Not out of ignorance.
+They had left it knowing it was broken.
 
 "We picked that up," Sion said.
 
@@ -137,8 +131,6 @@ They had left it knowing it was broken. Not out of ignorance.
 "To carry that out too, I'd have needed one more hand."
 
 At that, Sern looked up.
-
-One more hand. Meaning that with one more person, it would not have been thrown away.
 
 Sion couldn't lunge in any more hastily. What mattered now wasn't the catching itself. It was finding out what that hand knew, how far it had read, and why it had walked through this structure first, alone.
 
@@ -193,7 +185,7 @@ For a moment, Ater did not answer.
 
 This time the far side of the corner stayed silent much longer.
 
-Sion looked at Ater beside him. The man had just said, first, which side he was on. If the other one heard that and backed away, the conversation ended there.
+Sion looked at Ater beside him. If the other one heard that and backed away, the conversation ended there.
 
 "…You're Approval Bureau?"
 
@@ -215,9 +207,9 @@ Seorin let out a breath, very slowly.
 
 "Now we're finally talking."
 
-The presence beyond the corner didn't answer that.
+The presence beyond the corner said nothing more.
 
-Instead, the next moment, the edge of the larger plate in those hands showed a little more clearly in the dark, just for an instant. Not a handover. Not a threat, either. It only seemed to mean that the other side had no intention of cutting this conversation off completely.
+Instead, the next moment, the edge of the larger plate in those hands showed a little more clearly in the dark, just for an instant. It looked as though the other side had no intention of cutting this conversation off either.
 
 But right then, deeper inside the structure, a judgment response went out abruptly.
 
@@ -225,7 +217,7 @@ Sern spoke almost at the same moment.
 
 "It is now."
 
-No one needed it explained again what that meant. If they didn't decide now, they could lose all three together: the fragment, the conversation, and the path.
+If they didn't decide now, they could lose all three together: the fragment, the conversation, and the path.
 
 Then the retrieval line at Sion's waist was tugged once.
 
@@ -233,7 +225,7 @@ Once.
 
 Twice meant get out and three times meant cut, so once was a signal that wasn't part of the agreement.
 
-Sion opened the channel, very low.
+Sion asked into the channel, very low.
 
 "What."
 

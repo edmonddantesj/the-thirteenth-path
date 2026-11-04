@@ -6,8 +6,6 @@ Les ombres des engins, longuement couchées sur le sable rouge, commencèrent à
 
 La zone des débris d'épaves.
 
-Sion le sut au premier coup d'œil.
-
 Ici, ce n'était pas celui qui ne ralentissait pas qui gagnait : c'était celui qui savait où tuer sa vitesse qui survivait.
 
 Han Jiwoo avait dû lire la même chose. Ses mains, qui avaient poussé à fond sur la piste, pressèrent très brièvement l'engin juste avant l'entrée de la zone des débris. Le nez de l'esquif s'abaissa un peu et la hauteur des plaques de sustentation baissa d'un cran. La vitesse restait élevée, mais une tension tout autre que celle de l'instant d'avant s'était installée.
@@ -38,7 +36,7 @@ Une plaque qu'on ne voyait pas s'enfonça, et le nez de l'engin de tête se plan
 
 Han Jiwoo frôla l'extérieur de la scène et dit, très bref :
 
-« Bien. »
+« C'est bon. »
 
 Ce seul mot redressa plus fermement les épaules de Sion.
 
@@ -61,11 +59,7 @@ Sern se contenta d'une réponse brève.
 
 « Ici, celui qui ne se déchire pas va plus loin que celui qui est rapide. »
 
-Derrière, les équipes qui avaient tout juste survécu aux collisions de la piste se faisaient de nouveau trier en masse à l'entrée de la zone des débris. Plus un engin était rapide, plus il sous-estimait ce tronçon et s'y plantait profond. À l'inverse, les engins trop lents ne trouvaient pas leur place avant que les brèches ouvertes se referment. Sion comprenait enfin avec le corps pourquoi cette course avait besoin d'un deuxième tronçon.
-
-Si la piste rouge avait trié les gens par la vitesse,
-ici, on regardait en même temps le sens qui lit le chemin
-et jusqu'où l'engin pouvait tenir.
+Derrière, les équipes qui avaient tout juste survécu aux collisions de la piste se faisaient de nouveau trier en masse à l'entrée de la zone des débris. Plus un engin était rapide, plus il sous-estimait ce tronçon et s'y plantait profond. À l'inverse, les engins trop lents ne trouvaient pas leur place avant que les brèches ouvertes se referment.
 
 Devant Han Jiwoo, trois voies s'ouvrirent à la fois.
 
@@ -93,7 +87,7 @@ L'esquif ressortit en tournant, presque en glissant de côté, et abandonna d'un
 
 Derrière, un grand fracas de collision.
 
-Quelqu'un qui forçait l'entrée de la brèche basse du centre s'y planta à moitié avec la plaque du dessous, et une équipe qui le suivait racla l'ossature supérieure et rebondit telle quelle. Des éclats de métal s'éparpillèrent dans l'air nocturne, et du côté du public, cette fois encore, acclamations et jurons éclatèrent ensemble.
+Quelqu'un qui forçait l'entrée de la brèche basse du centre s'y planta à moitié avec la plaque du dessous, et une équipe qui le suivait racla l'ossature supérieure et rebondit telle quelle. Des éclats de métal s'éparpillèrent dans l'air nocturne, et d'un côté des gradins, quelqu'un jeta par terre le bidon de mise qu'il tenait.
 
 Luhai, toujours suspendu au bout de la rambarde de la tente, regardait en bas ; il en resta carrément bouche bée.
 
@@ -104,18 +98,16 @@ Ater répondit sans détourner le regard.
 
 « Ils l'ont sans doute fait pour que seuls ceux qui lisent survivent. »
 
-Seorin ne dit pas un mot. Mais Sion, même de loin, le savait. Son regard ne quittait pas le point où le pilotage de Han Jiwoo et les indications de Sion s'emboîtaient.
+Seorin ne dit pas un mot. Sa main, serrée sur la rambarde, se tordait chaque fois qu'en bas l'esquif de Han Jiwoo virait.
 
-Aka restait silencieuse.
-
-Mais depuis qu'ils étaient entrés dans la zone des épaves, elle regardait plus longtemps de ce côté-ci que vers le tronçon de la couche thermique. Comme un œil qui départageait, non la vraie et la fausse braise, mais le vrai chemin et la brèche qui se fait passer pour un chemin.
+Aka ne regardait pas vers la couche thermique, mais vers la zone des débris. Pas les brèches effondrées : celles qui ne s'étaient pas encore effondrées.
 
 Au nord, Kael et Sern étaient remontés jusque juste derrière le groupe de tête.
 
 L'engin rouge sombre des champions de l'an dernier gardait toujours la tête, mais la place suivante était déjà un enchevêtrement. L'une des équipes des téméraires de passage, qui avait miraculeusement survécu à la piste, s'était ici fait arracher la moitié de la coque, et une équipe de contrebandiers, coincée dans une brèche étroite, bouchait du même coup le chemin de l'équipe suivante.
 
 « Les deux de devant vont bientôt mourir ensemble. »
-Sern l'avait dit.
+Ce fut Sern.
 
 « Et alors ? »
 
@@ -137,9 +129,6 @@ L'engin qu'on croyait lent mordit, pour cet instant au moins, la ligne la plus c
 
 En voyant cela de loin, Sion faillit rire sans le vouloir.
 
-Ces deux-là n'avaient rien de spectaculaire.
-Mais sur ce genre de tronçon, c'était justement ce genre-là qui faisait le plus peur.
-
 Une fois au milieu de la zone des débris, le nombre d'équipes survivantes avait nettement diminué.
 
 Sur les douze, la moitié avait déjà été repoussée en arrière ou s'était arrêtée, et celles qui restaient n'étaient pas toutes intactes.
@@ -150,19 +139,12 @@ une autre était encore rapide, mais on ne savait pas si elle encaisserait un ch
 
 L'esquif de Han Jiwoo non plus n'était pas intact. La réaction de la plaque de sustentation droite était encore plus lente que tout à l'heure, et sous la coque, le métal continuait de grincer finement. Mais rien de vital n'avait encore lâché. Han Jiwoo, en personne qui connaissait cet état, ne forçait pas davantage et ne ménageait rien inutilement.
 
-« Au tronçon d'après, il en mourra davantage. »
+« Au tronçon d'après, la plaque de sustentation mourra encore plus. »
 Elle l'avait dit simplement.
 
-Sion comprit aussitôt.
+Sion baissa les yeux sur la plaque de sustentation droite. Elle se soulevait encore un demi-temps plus tard que tout à l'heure.
 
-Ce n'était pas l'engin qui l'inquiétait : elle parlait des gens.
-Une fois dans la zone des braises de la couche thermique, la vitesse et la lecture du chemin ne suffiraient plus.
-
-Il faudrait choisir le vrai.
-
-Et ce serait sans doute le tronçon où des yeux comme les siens, ceux d'Aka, ceux de Sern, seraient le plus profondément engagés.
-
-C'est à ce moment précis.
+Ce fut à ce moment précis.
 
 Devant les yeux de Sion, dans l'ombre derrière l'ossature suivante, la queue de l'engin rouge sombre brilla un instant.
 
@@ -200,8 +182,6 @@ Han Jiwoo s'enfonça sur la ligne du dessous et dit, très bref :
 
 « Bien. »
 
-Sion sentit ce seul mot entrer en lui, cette fois, plus brûlant.
-
 La fin de la zone des débris approchait.
 
 Au-delà de l'obscurité, devant, on voyait l'air lui-même onduler peu à peu.
@@ -217,24 +197,14 @@ Han Jiwoo dit à voix basse :
 
 Sion ne répondit pas tout de suite.
 
-À la place, il regarda une fois encore l'air qui ondulait devant.
+À la place, il regarda une fois encore l'air qui ondulait devant. Puis il dit brièvement :
 
-Sur la piste rouge, les mains de Han Jiwoo étaient passées d'abord,
-dans la zone des débris d'épaves, ils avaient sauvé le chemin à deux,
-et maintenant, à partir du tronçon suivant,
-c'était l'œil qui départage le vrai de l'imitation qui devait passer devant.
+« Je ne lâcherai pas. »
 
-Sion dit brièvement :
+Han Jiwoo appuya encore une fois sur l'engin.
+La hauteur des plaques de sustentation baissa encore d'un cran.
 
-« Je ne la lâcherai pas. »
-
-À cet instant, les engins survivants franchirent presque ensemble la dernière courbe de la zone des débris et commencèrent à s'égailler en longue file vers l'entrée de la zone des braises de la couche thermique.
-
-Derrière, le fracas du métal et les jurons étaient encore vivants,
-devant, l'air brûlant et des lumières troubles commençaient à onduler,
-et du côté de la cour centrale, les mises et les cris enflaient encore.
-
-La course de la braise se tenait désormais devant la vraie épreuve.
+La dernière courbe de la zone des débris était juste devant.
 
 ---
 

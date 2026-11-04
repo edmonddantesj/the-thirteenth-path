@@ -28,7 +28,7 @@ Kael was the one who asked.
 
 Han Jiwoo had no answer.
 
-Sion knew what that silence was. What Han Jiwoo had said yesterday had come straight back. Without a name, you can't hand it over to whoever comes next. Right now Han Jiwoo couldn't hand over what she had just been through, not even with her own hands.
+Sion knew what that silence was. What Han Jiwoo had said earlier had come straight back. Without a name, you can't hand it over to whoever comes next. Right now Han Jiwoo couldn't hand over what she had just been through, not even with her own hands.
 
 Sion steadied his breathing, still holding the railing.
 
@@ -76,8 +76,6 @@ Ater asked.
 "No,"
 Sern said.
 "If we had shaken them, there would be traces."
-
-That was more ominous.
 
 Shaking them off would make sense. Fooling them would make sense too. That it couldn't be explained meant this ship had moved somewhere outside pursuit and evasion altogether.
 
@@ -129,7 +127,7 @@ It was the smallest sentence the people here could barely agree on, because none
 
 Hearing that, Sion looked toward the floor.
 
-The eight Hazran people were against the wall. They had leaned when the ship leaned, and even after the quiet came they hadn't said a word.
+The eight Hazran people sat propped against the wall. They had leaned when the ship leaned, and even after the quiet came they hadn't said a word.
 
 One of them slowly stood and walked up to the empty floor in front of that panel.
 
@@ -149,7 +147,7 @@ These people knew more about this ship than his side did. But they had no intent
 
 Sion went over to Aka.
 
-"Yesterday you said that if you name it, that's the end of it."
+"Earlier you said that if you name it, that's the end of it."
 
 Aka kept her eyes on that spot.
 
@@ -169,7 +167,7 @@ Aka hadn't said what that thing was. She had said only what it had done. A name 
 
 So they were words that didn't close it yet.
 
-Only then did Sion see that it was the same way Han Jiwoo had left the empty line on her list yesterday. Leaving it blank, writing not yet, saying only what it did. All three were ways of not ending it.
+Only then did Sion see that it was the same way Han Jiwoo had left the empty line on her list earlier. Leaving it blank, writing not yet, saying only what it did. All three were ways of not ending it.
 
 The shabby outer skin, the seams where it had been pieced together, the broken frame.
 
@@ -179,7 +177,7 @@ Beneath it lay an older order no one knew yet, and just now that order had moved
 
 ---
 
-On the Empire pursuit ship, the same sentences went back and forth for a while.
+Between the commander's office on the Empire flagship and the pursuit ship, the same sentences went back and forth for a while.
 
 "Recheck the last trajectory."
 
@@ -215,7 +213,7 @@ the commander said.
 
 The records officer corrected the entry.
 
-It was the same record where, days ago, the same hand had written *Unknown* in place of a head count. This time the same word went in on the ship's side too.
+It was the same record where, the day before, the same hand had written *Unknown* in place of a head count. This time the same word went in on the ship's side too.
 
 At the same hour, it was much the same on the Alliance surveillance net.
 
@@ -239,7 +237,7 @@ It wasn't a report of a mistake. It was closer to notice of a revised judgment.
 
 "From now on, don't classify by the shape you see."
 
-Then Kanus picked up again the page she had pushed aside days before.
+Then Kanus picked up again the page she had pushed aside the day before.
 
 The page listing the dead and the lost. The page she had called a finished number.
 
@@ -280,6 +278,14 @@ All sixteen of them were still in here. Outside could not be seen, behind them w
 But one thing was different from before.
 
 Until now this ship had been something that went only when people pushed it. Not anymore.
+
+That was when Sion saw it.
+
+Deep inside the hull, in a crack in the wall no one had touched, a small light was floating. It was the size of a fingernail.
+
+It was a light like hot earth. Like the ground of Hazran at midday.
+
+The light wasn't still. It leaned forward, very slightly. Toward where the planet of machines lay.
 
 Hazran had closed.
 

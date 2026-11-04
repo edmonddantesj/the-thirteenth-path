@@ -1,197 +1,200 @@
 # Capítulo 146 — Pulidos para subir
 
-Cuando la fila de espera de los que suben empezó a moverse,
-el grupo de reconocimiento la siguió pegado a su flujo con mucho más cuidado que antes.
+Cuando la fila empezó a moverse siguiendo la línea luminosa de guía, el grupo de reconocimiento también se movió.
 
-A partir de ahí, leer el camino ya no bastaba.
+Con una pared de por medio, mientras la fila avanzaba por el camino interior del sector, los cinco iban por el estrecho pasaje de observación que había detrás de esa pared. En la misma dirección, a la misma velocidad.
 
-Había que ver en qué orden subía Serakion de verdad a los humanos,
-y qué les tocaba antes de eso.
+La primera ajustaba el paso al de la fila: si la fila se detenía, se detenía; si la fila avanzaba, avanzaba. Los pasos de aquel lado tapaban los de este.
 
-La primera mano de recuperación se detenía más a menudo,
-y la segunda mano de recuperación vigilaba más a menudo la retaguardia.
+—No pierdan el compás.
 
-La tropa visible no era mucha,
-pero a esas alturas todos lo sabían ya.
+La primera lo dijo muy bajo.
 
-Que Serakion parecía de pocos al principio,
-y que, cuando de verdad cerraba, cerraba en un instante.
+—Si aquello se para y nosotros seguimos, se nos oye.
 
-Por eso el grupo, en vez de moverse rápido,
-tenía que elegir con más precisión el momento de detenerse.
+La segunda venía la última, con la pierna que arrastraba, y cada vez que la fila se detenía, esa pierna se paraba un compás tarde. La primera no esperaba ese compás. No podía esperarlo.
 
-Lo primero que vieron
-fue un sector intermedio donde se quedaban los humanos justo antes de ser subidos.
+Han Jiwoo se pegó al lado de la segunda y le sujetó el codo. Cada vez que se detenían, le apretaba ese codo, y la pierna de la segunda se paraba a la vez.
 
-Por fuera parecía casi una enfermería o una sala de espera.
+En la pared se abrían aquí y allá rendijas del ancho de un dedo o de una palma. Las miraban al pasar; nadie se detenía a mirar. Kael midió con pasos la distancia entre rendija y rendija. Una cada siete pasos.
 
-La luz era suave,
-la temperatura constante,
-y los humanos que se movían tras las máquinas tampoco parecían, por fuera, especialmente tensos.
+Una vez la fila se detuvo sin aviso y a Ater le quedó un pie en el aire. No lo bajó hasta que la fila volvió a avanzar, y la punta del pie le temblaba. Kael le sostuvo el hombro con un solo dedo, y solo cuando la fila siguió bajó Ater el pie.
 
-Pero a Han Jiwoo, en el instante en que vio ese sector,
-se le endureció la cara casi por instinto.
+Al doblar la fila, la luz al otro lado de la pared se volvió más suave. Han Jiwoo apoyó el dorso de la mano en una rendija al pasar: estaba a la misma temperatura que su cuerpo. Apartó la mano.
 
-—Esto no es un sitio para descansar —dijo ella en voz baja.
-—Es un sitio donde los pulen.
+Entonces la fila se detuvo, y los cinco se detuvieron también.
 
-Esas palabras eran ciertas.
+Al otro lado de la rendija del ancho de una palma había algo parecido a una sala de hospital. Había doce humanos sentados, y la gente que venía en la fila fue a sentarse en los sitios libres entre ellos.
 
-Allí los humanos no estaban simplemente descansando.
+Una máquina que pasaba entre ellos se detuvo ante una persona, le levantó la mano, le miró el dorso, le miró la palma y se la bajó. La siguiente persona.
 
-Las manos se las ordenaban,
-a la piel se le añadía un acabado protector,
-la postura se corregía,
-y a algunos humanos les habían puesto líneas-guía finas que les hacían repetir el mismo gesto una y otra vez.
+A Han Jiwoo se le endureció la cara.
 
-Antes de subir a un humano,
-Serakion le ponía la mano una vez más,
-para que ese humano pareciera más apto,
-se usara de forma más estable,
-se gestionara de forma más bella.
+—Esto no es un sitio para descansar.
 
-Han Jiwoo miró largo rato una estructura de abajo, parecida a una mesa de trabajo.
+Lo dijo en voz baja.
 
-Allí había una altura hecha para apoyar bien la mano de una persona,
-un aparato que probaba el movimiento de los dedos,
-instrumentos auxiliares muy finos que retocaban el dorso y la muñeca.
+—Es donde los pulen.
 
-Nada de aquello era brusco.
-Al contrario, era demasiado delicado.
+Una máquina le aplicó a una persona, con un pincel fino, algo transparente en las yemas. Desde la punta de la uña hasta la segunda falange, igual que las yemas del niño que habían visto antes.
 
-Y por eso resultaba más desagradable.
+Otra máquina puso un pequeño molde delante de una persona, y la persona metió los dedos en el molde e hizo el mismo movimiento diez veces. La máquina retiró el molde y puso uno un poco más pequeño; la persona metió los dedos, pero no entraron. Se le atascó el cuarto dedo.
 
-—Finge arreglar a la gente —dijo Han Jiwoo casi masticando las palabras.
-—Pero no la arregla,
-ajusta su utilidad de forma más bonita.
+Mientras la máquina anotaba algo, la persona se miraba el dedo atascado.
 
-La primera mano de recuperación no rebatió aquello.
-En cambio, dijo muy bajo.
+—¿Qué es eso?
 
-—Aquí no se salva lo roto.
-—Se hace más vistoso lo aprovechable.
+Lo preguntó Han Jiwoo.
 
-Esa sola frase clavó con demasiada exactitud toda la sensación de lo que hay bajo el nivel superior de Serakion.
+—Medir.
 
-Salvar.
-Recuperar.
-Proteger.
+La primera respondió.
 
-Este mundo usa esas palabras.
-Pero lo que hace de verdad
-se parece más a ordenar de forma más apta lo que ya ha juzgado valioso.
+—Cada uno va adonde le corresponde según el molde que le encaja.
 
-Ater contempló aquel sector sin decir nada durante mucho tiempo.
+—¿Y si no encaja?
 
-Luego, al ver a un lado a dos humanos caminar bajo la guía de una máquina
-con idéntica longitud de paso y velocidad, dijo en voz baja.
+—Otro molde.
 
-—Hasta el modo de vida lo ajustan de antemano.
+—¿Y si no encaja ninguno?
 
-Esas palabras eran frías.
+Mientras la primera no respondía, Han Jiwoo bajó la vista a su propio cuarto dedo: era grueso, y le pareció que se atascaría. Cerró la mano.
 
-Han Jiwoo lo miró un instante.
+La máquina volvió a plantarse ante la persona del cuarto dedo atascado, y esta vez no había molde. La máquina tendió la mano, y la persona se levantó. Hacia donde se dirigió la persona era el lado contrario al que había venido la fila: una puerta al fondo del sector. Era el lado que llevaba hacia abajo.
 
-Ater siguió mirando hacia abajo y añadió.
+—El pasaje ancho.
 
-—Hasta cómo hay que vivir tras subir,
-se lo meten antes en el cuerpo.
+La segunda lo dijo en un soplo.
 
-Aquello no era simple educación de modales.
-Era política.
+—Van por ahí.
 
-Serakion quizá no fuera un mundo que trasladaba de estrato,
-sino que fabricaba de antemano el cuerpo apto al estrato y lo subía.
+Se abrió la puerta y salieron la máquina y la persona; Han Jiwoo, moviendo solo la cabeza, las siguió con la vista de rendija en rendija. Las dos doblaron. Hacia aquí.
 
-Entonces el humano que subía iba ya, medio,
-ajustado al orden de arriba.
+La primera levantó la mano, y los cinco se pegaron a la pared.
 
-El Imperio también domestica a la gente.
-Pero eso suele ir hacia la lealtad y la obediencia.
+Se acercaron dos ruidos de pasos, uno regular y otro irregular. A una pared de distancia, a un palmo.
 
-Serakion da un paso más allá.
-No solo la obediencia,
-sino que hace interiorizar bellamente la propia aptitud.
+Delante de los ojos de Han Jiwoo, por la rendija del ancho de un dedo, pasó una manga. Vio las yemas cubiertas de transparente y el cuarto dedo que se había atascado: la mano temblaba. La mano de la máquina posada en ese hombro no empujaba.
 
-Ater, en el instante en que vio esa diferencia,
-pareció sentir más bien un desencanto más hondo.
+Cuando la mano de Han Jiwoo fue hacia la pared, la primera le agarró la muñeca con fuerza, y Han Jiwoo no tocó la pared.
 
-Más refinado
-no significa menos cruel.
-Puede ser, al contrario, una crueldad más acabada.
+Cuando la pierna de la segunda quiso moverse, Han Jiwoo, con la otra mano, le apretó la rodilla antes de que la articulación hiciera ruido. La rodilla se quedó apretada.
 
-Kael, mientras tanto, apenas había hablado,
-y seguía mirando las vías exteriores del sector y los puntos de cierre.
+Los pasos se alejaron hacia abajo; cuando los irregulares se detuvieron una vez, los regulares esperaron. Volvieron a andar, y enseguida dejaron de oírse.
 
-Este sector intermedio parecía apacible por fuera,
-pero en realidad tenía una estructura que cerraba mucho más tupida que antes.
+Aun después de que la primera le soltara la muñeca, a Han Jiwoo le quedaron en ella las marcas de los dedos, pero nadie dijo nada.
 
-Las entradas parecían dos,
-pero una era una línea-guía que empujaba a la gente más adentro,
-y por la que de verdad se podía salir solo había una.
+Han Jiwoo apartó la mano de la rodilla de la segunda y se puso en cuclillas. Mientras abría la articulación con el destornillador y le daba dos vueltas, no levantó la cabeza; luego la cerró.
 
-Y además esa única,
-si bajaba una señal de un poco más arriba,
-estaba hecha para partirse en tres tramos y plegarse por orden.
+—Esa persona. ¿Estará al día siguiente?
 
-Kael dijo en voz baja.
+—No lo sé.
 
-—Este lado no está hecho para extraer,
-sino para entregar.
+Lo dijo la segunda.
 
-La segunda mano de recuperación reaccionó corto.
+—A los que bajaron no los he vuelto a ver.
 
-—Sí.
-—Por eso, si tocas algo aquí, casi todo se acaba.
+Han Jiwoo volvió a mirar por la rendija hacia la sala. Había una mesa de trabajo a la altura justa para apoyar las manos, un dispositivo que observaba el movimiento de los dedos y un fino aparato auxiliar que masajeaba las muñecas. Todo pequeño, todo silencioso.
 
-Aquellas palabras no eran un simple aviso.
+—Hacen como que curan a la gente.
 
-El rescate no es algo que se logre con valor.
-Ante una estructura diseñada así,
-el valor a destiempo hace perder a la gente más rápido.
+Han Jiwoo lo dijo casi mascando las palabras.
 
-Han Jiwoo, aun oyendo aquello, no apartó la vista.
+—Pero no los curan: ajustan su utilidad para que quede más bonita.
 
-Miró largo rato a un humano pequeño al que le ordenaban las manos allí abajo.
+La primera no lo rebatió y habló muy bajo.
 
-Aquel niño, por fuera, era asombrosamente manso.
-Pero las yemas las tenía endurecidas, mínimamente.
+—Aquí no se salva lo roto. Es más bien el sitio donde lo útil se vuelve más vistoso.
 
-Era una mano que aguantaba a la fuerza.
+—¿Y lo roto?
 
-—La memoria sigue ahí —dijo Han Jiwoo muy bajo.
+—Abajo. Aquí no viene.
 
-La primera mano de recuperación preguntó.
+El ojo óptico se fue hacia la puerta del fondo del sector.
 
-—¿Qué?
+Han Jiwoo se apartó de la rendija, apoyó la espalda en la pared y se miró la mano que empuñaba el destornillador. Una mano que salva lo roto. Una mano que aquí no viene.
 
-Han Jiwoo respondió.
+Al otro lado de la rendija del lado de la fila, la que miraba Ater, en un rincón de la sala, dos humanos caminaban bajo la guía de una máquina, con el mismo largo de paso y a la misma velocidad. Cuando una de las personas se adelantó medio paso, la máquina se plantó delante y la persona se detuvo. Cuando la máquina se apartó, la persona volvió a caminar, a la misma velocidad.
 
-—Que el cuerpo se acostumbre
-y que la mano se tranquilice son cosas distintas.
+—Hasta cómo hay que vivir después de subir se lo meten antes en el cuerpo.
 
-Esa frase volvió todo este reconocimiento más hondo.
+Ater lo dijo y, un buen rato después, añadió algo más.
 
-Serakion puede hacer el cuerpo humano cada vez más apto.
-Pero quizá no por eso pueda ordenar del todo la memoria de las yemas.
+—El Imperio lo mete después de subir. A golpes.
 
-Era una sensación ligada también a si, más adelante, de verdad se podría sacar a alguien.
+Cuando la persona que se había adelantado medio paso volvió a adelantarse medio paso, la máquina volvió a plantarse delante.
 
-Ater volvió a mirar hacia abajo,
-Kael redibujó en la cabeza el orden de cierre,
-y Han Jiwoo miraba la mano de cada persona, una por una.
+—¿Hasta cuántas veces se planta?
 
-Y en ese instante,
-el grupo de reconocimiento supo algo más.
+Lo preguntó Han Jiwoo.
 
-Subir en Serakion
-no es simplemente mudarse a un lugar mejor.
+—No lo sé.
 
-Significaba pasar primero, para ajustarse a un orden más alto,
-por un proceso que volvía a moldear el cuerpo, las manos y la vida de la persona.
+La segunda respondió.
 
-Y cuanto más bello era ese moldeado,
-más atroz se volvía este mundo.
+—A quien se le plantó delante más de tres veces, al día siguiente ya no estaba.
+
+Han Jiwoo miró a esa persona y extendió dos dedos. Iban dos veces.
+
+Más abajo, un pequeño humano estaba sentado muy quieto mientras le arreglaban las manos. Aunque la máquina le acercaba el pincel a las yemas, la mano del niño no se movía: no era docilidad, era rigidez. Tenía blancas las puntas de los dedos.
+
+—Eso es apretar.
+
+Han Jiwoo lo dijo muy bajo.
+
+—Una mano acostumbrada no aprieta.
+
+La primera miró esa mano mucho rato, y luego se miró las yemas, empapadas de grasa, con las articulaciones gastadas.
+
+—¿Entonces?
+
+—Entonces todavía es una mano. No una cosa.
+
+Cuando la máquina retiró el pincel, el niño se frotó las yemas con la otra mano y, como no se quitaba, se las frotó una vez más. Se detuvo porque la máquina le tomó la mano, y cuando la máquina se la soltó, el niño apoyó la mano en la rodilla. Tenía blancas las puntas de los dedos.
+
+La persona adulta sentada al lado miró esa mano; también tenía transparentes las yemas. Fue a poner su mano sobre la del niño, pero como la máquina estaba mirando, desistió.
+
+—¿Esa persona es la madre del niño?
+
+—No lo sé.
+
+La primera respondió.
+
+—Aquí esas cosas no se preguntan.
+
+—¿Por qué?
+
+—Si se pregunta, los separan.
+
+—¿Cómo lo sabes?
+
+—He visto a gente que separaron. Abajo. A los dos.
+
+La mano de la persona adulta, tal como la veía Han Jiwoo, reposaba sobre la rodilla, junto a la mano del niño, sin tocarla.
+
+Cuando la línea luminosa de guía volvió a encenderse, la gente ya pulida se levantó primero, toda al mismo tiempo. Los cinco volvieron a moverse al compás de aquel lado. Esta vez la pierna de la segunda no se retrasó.
+
+Había dos caminos de entrada; uno se curvaba hacia dentro, de modo que, al entrar, uno acababa metiéndose más. La fila fue por el otro, un camino recto con tres líneas de unión en el techo a intervalos iguales. Kael contaba esas líneas en cada rendija por la que pasaban.
+
+—Este lado no está pensado para sacar gente, sino para entregarla.
+
+Lo dijo mientras caminaba.
+
+—Es aquí.
+
+Lo dijo la segunda.
+
+—Donde entraron tres y salió uno.
+
+Kael asintió, miró la del medio de las tres líneas de unión y dobló un dedo.
+
+Delante de la fila se abrió la pared, en el sitio donde no se veía ninguna juntura. La gente fue entrando uno a uno, al mismo compás, pero el pasaje de observación terminaba allí. Hasta ahí podían seguirlos los cinco.
+
+La pared se cerró sin ruido; donde había estado la fila solo quedó la línea luminosa de guía, y poco después también se apagó.
+
+Han Jiwoo apoyó la palma en la pared cerrada: tenía la misma tibieza que su cuerpo. No apartó la mano.
+
+Solo cuando la primera señaló un pasaje estrecho que seguía hacia arriba, Han Jiwoo apartó la mano. En la palma le quedaba la tibieza de la pared.
 
 ---
 

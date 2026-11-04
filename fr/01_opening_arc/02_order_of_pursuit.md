@@ -30,7 +30,7 @@ Ater referma l'écran sans bruit.
 
 La Chambre de Reconnaissance impériale avait toujours cru en la séquence. Ce qu'on ouvre, ce qu'on ferme, ce qu'on efface, ce qu'on conserve. Son ordre naissait de la séquence. Aussi un dossier à la séquence déréglée était-il pire qu'une simple erreur.
 
-« Barek. Préparez une ligne d'accès au terrain. »
+« Barek. Cette ligne de récupération, remontez-la à rebours. »
 
 Sern inclina la tête.
 
@@ -88,7 +88,7 @@ Ater ne nia ni ne confirma. Il dit seulement, très bas :
 
 « Il semble qu'une main qui n'est pas en ordre s'en soit mêlée. »
 
-Sern ne demanda rien de plus. Il se tourna de nouveau vers le terminal. Il était rare que Son Excellence dise “pas en ordre”. Et quand une telle expression apparaissait, les choses dérivaient d'ordinaire dans une direction plus fastidieuse qu'un scellement.
+Sern ne demanda rien de plus. Il se tourna de nouveau vers le terminal. Quand Son Excellence laissait tomber les mots “pas en ordre”, les choses dérivaient d'ordinaire dans une direction plus fastidieuse qu'un scellement.
 
 Il rappela la liste d'accès extérieurs qu'il gardait à part, hors de la ligne d'approbation.
 Il n'y avait pas qu'un seul chemin pour entrer dans la cité portuaire neutre. Ligne diplomatique officielle, ligne d'approbation logistique impériale, navette civile de correspondance sous contrat, et jusqu'aux routes grises qui ne laissaient aucune trace dans les registres. La question était de savoir lequel avait bougé en premier.
@@ -113,10 +113,10 @@ Ater se retourna vers lui.
 
 « Sur l'absence. »
 
-La réponse de Sern était brève, et n'en était que plus précise.
+La réponse de Sern était brève.
 
 « Les documents ont été bousculés à ce point, et il n'y a aucune trace d'autorisation de déplacement officielle.
-Le délai d'approbation se compte en sept heures, et dans l'intervalle le terrain se referme trois fois. Qui le sait n'attend pas. »
+De ce côté-là, le délai d'approbation se compte toujours en sept heures, et dans l'intervalle le terrain se referme trois fois. Qui le sait n'attend pas. »
 
 Le regard d'Ater s'abaissa un instant.
 C'était une expression où le déplaisir et l'intérêt se superposaient en une couche très mince.
@@ -140,9 +140,11 @@ Ater rajusta le pan de son manteau.
 
 « Le plus vite possible, sans se faire remarquer. »
 
-Sern ne demanda rien de plus.
+Sern se contenta d'incliner la tête.
 Agir au nom des Valkar, mais réduire au minimum l'ombre des Valkar.
 Cela suffisait à faire comprendre que cette affaire n'était pas comme les autres.
+
+---
 
 L'intérieur de la benne était plus étroit encore qu'on ne l'aurait cru.
 
@@ -351,16 +353,10 @@ Seorin demanda, très bas :
 
 « On ouvre ? »
 
-Sion posa la main sur le panneau de la porte.
+Au lieu de répondre, Sion posa la main sur le panneau de la porte.
 Le contact froid du métal toucha sa paume.
 
-« Faut ouvrir. »
-
-« Pourquoi ? »
-
-Écoutant les voix derrière la porte, Sion répondit :
-
-« Parce qu'il faut savoir maintenant si ce qu'on poursuit, c'est un objet ou une personne. »
+Derrière la porte, les voix se coupèrent net.
 
 À cet instant, toute la benne fut secouée d'un grand coup.
 Au loin, un long signal d'entrée au port retentit, grave.

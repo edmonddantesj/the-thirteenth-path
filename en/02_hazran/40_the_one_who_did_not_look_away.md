@@ -38,7 +38,7 @@ Seorin answered shortly.
 Nasim said.
 "And a hand that sorts out the real thing."
 
-It made Sion more uneasy that it came out so easily. This man wasn't someone who didn't hide names; he was someone who priced a hidden name by who brought it out, and where.
+This man wasn't someone who didn't hide names; he was someone who priced a hidden name by who brought it out, and where.
 
 Harun heard the exchange and didn't step in. Instead he stood by the entrance, guarding the space between outside and inside at the same time. Not like someone who started fights, but like someone who decided how far a fight could spread inward.
 
@@ -142,8 +142,6 @@ But the next moment her gaze went very briefly back and forth between the fragme
 
 "Neither of them should be here."
 
-The air inside went very quiet.
-
 Nasim's smile stopped too, Harun didn't move any further, and Nahira, if anything, wiped her face even blanker.
 
 Sion felt that one remark go deeper than he had expected.
@@ -204,9 +202,7 @@ Nahira didn't back down.
 she said, low.
 "Drag her, and she shuts her mouth."
 
-To Sion, that sounded like the words of someone who knew Aka very well.
-
-Someone who had watched her a long time in here. Someone who knew when Aka spoke and when she shut her mouth.
+Nahira was someone who had watched her a long time in here. Someone who knew when Aka spoke and when she shut her mouth.
 
 Aka was still looking not at Sion's group, but at the things they had brought.
 

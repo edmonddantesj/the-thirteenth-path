@@ -53,8 +53,6 @@ Sion se quedó un momento con aquellas palabras.
 Lo dijo Han Jiwoo, dando la vuelta a la placa de unión.
 —Es hacer que aguante mucho tiempo con lo que encaja peor. Siempre es así.
 
-A Sion aquello, por raro que fuera, le sonó a alivio.
-
 Faltaba. Eso también quería decir que todavía no era el final. Y quería decir que no era un camino del todo equivocado.
 
 Aka también salió un poco después.
@@ -97,8 +95,6 @@ Luego, un compás después, preguntó. Con la misma voz de antes.
 
 —¿Todavía no te acuerdas de qué Kael eres?
 
-El aire se detuvo un instante muy breve.
-
 Sion no entendió enseguida de dónde venía aquella pregunta. Solo supo que Seorin preguntaba lo mismo por segunda vez. La primera había sido dentro de la nave, y también entonces Seorin había usado esa voz.
 
 Kael no apartó la mano de la plancha de metal que tenía sobre las rodillas.
@@ -113,7 +109,7 @@ Sern había escuchado en silencio aquel ir y venir corto, y puso cara de estar c
 
 Solo Sion supo que entre aquellos dos había pasado algo, y seguía sin saber qué.
 
-Seorin dejó atrás la conversación de los tres y, de pronto, miró hacia el extremo del mercado.
+Seorin dio unos pasos más y, de pronto, miró hacia el extremo del mercado.
 
 Aquel lado estaba más oscuro que hacía un rato. Pero no era un tramo del todo muerto. Al contrario, pequeñas luces que de día no se veían seguían vivas aquí y allá. El lado de la arena en reconstrucción, el sector de la línea de retorno que Harún seguiría tocando todavía, las afueras por donde la nave de patrulla de la gente de Zahir iba y venía despacio.
 
@@ -134,8 +130,6 @@ Era extraño. Todavía no había ningún peligro encima. Pero tampoco estaba del
 Más que miedo, se parecía a la sensación de que esta noche, por bonita, iba a recordarse más tiempo.
 
 Las noches hermosas, por lo general, no duran mucho.
-
-Aquel pensamiento le pasó rozando, pero Sion no se molestó en decirlo en voz alta.
 
 Luhai, sin que se supiera de dónde lo había sacado, ya andaba dándole vueltas a un pincho de fruta seca, y Kael volvía a extender los trozos de las rodillas calculando qué usar primero y qué dejar para más adelante. Han Jiwoo se había sentado directamente en el suelo y seguía tocando con la yema de los dedos el canto de la placa de unión, y Aka estaba de pie, un poco apartada, fuera de aquel grupo.
 
@@ -218,10 +212,6 @@ a su lado, la gente con la que partiría,
 y la noche de Hazran, que aún no había terminado de ver.
 
 El cordón de la muñeca le apretó un poco. Era el punto que Seorin había vuelto a tensar antes.
-
-Esta noche, al menos, de verdad parecía posible quedarse un poco más.
-
-Y por eso mismo era una noche que no parecía que fuera a terminar fácilmente.
 
 ---
 

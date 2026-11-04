@@ -1,67 +1,74 @@
-# Capítulo 119 — El mundo que primero leyó y luego dejó entrar
+# Capítulo 119 — Leer, y luego dejar entrar
 
-Cuanto más se acercaban,
-ese mundo no se volvía más hermoso.
+Cuanto más se acercaban, aquel mundo no se volvía más hermoso. Se volvía más exacto.
 
-Al contrario, se volvía más exacto.
+A medida que se acortaba la distancia, se veían el intervalo entre estrato y estrato, el ángulo de la luz reflejada, la curvatura de las estructuras enlazadas, hasta la anchura de los espacios vacíos. Todo era igual; no había un solo punto distinto.
 
-Visto de lejos, lo primero que se veía era la belleza de las vetas plateadas y de la estructura fría.
-Pero a medida que la distancia se reducía,
-se hacía más nítido que esa belleza no era un simple paisaje,
-sino un arreglo minuciosamente calculado.
+Delante del ojo de buey, Sion se puso a contar esos intervalos y lo dejó al llegar a cinco; los cinco eran iguales.
 
-El intervalo entre capa y capa,
-el ángulo de la luz reflejada,
-la curvatura de las estructuras enlazadas,
-hasta el ancho del espacio vacío.
+Detrás, un niño le preguntó a un adulto.
 
-No quedaba un solo punto en desorden.
+—¿Cuántos son esos?
 
-Al mirarlo, Sion no pensó primero en lo obstinadamente que ese mundo se había ido puliendo a sí mismo,
-sino en qué habría seguido cortando en ese proceso.
+Como el adulto no respondía, Sern respondió en su lugar.
 
-Un mundo demasiado ordenado
-suele ser un mundo que no permitió demasiado.
+—Solo los visibles son ciento treinta y dos.
 
-Han Jiwoo, sin detener la mano que tocaba el timón, dijo en voz baja.
+El niño abrió la boca, y el adulto se la hizo cerrar.
+
+Han Jiwoo, sin dejar de mover la mano sobre el timón, habló en voz baja.
 
 —La disposición de afuera nos está mirando.
 
-Kael preguntó mirando por la ventana:
+Kael preguntó mirando afuera.
 
-—¿Emplazamientos?
+—¿Artillería?
 
-Han Jiwoo negó de inmediato con la cabeza.
+Han Jiwoo negó enseguida con la cabeza.
 
-—Aún no —dijo ella—. Pero mucho menos son simples estructuras.
+—Todavía no. Pero mucho menos son simples estructuras.
 
-Sern recibió los valores enseguida.
+Sern tomó el dato al instante.
 
-—El intervalo de observación está cambiando —dijo él—. Cuanto más nos acercamos, su alineación también se mueve mínimamente con nosotros.
+—El intervalo de observación está cambiando.
 
-Un breve silencio.
+Lo dijo Sern.
 
-Luhai endureció el rostro.
+—A medida que nos acercamos, su alineación también nos sigue de forma mínima.
 
-—Entonces nos está mirando.
+Superpuso dos líneas del panel de registro para mostrárselas. Una era la velocidad de este lado y la otra el ángulo del otro, y las dos se doblaban con la misma forma.
 
-Sern respondió breve, también esta vez.
+Tras un breve silencio, Luhai endureció el rostro.
 
-—Sí.
-—Nos está leyendo.
+—Entonces, nos está mirando.
 
-Solo con esas dos frases,
-el aire dentro del casco volvió a cambiar una vez más.
+Sern respondió corto también esta vez.
 
-Hasta ahora habían estado más bien del lado que miraba ese mundo.
-Pero al cruzar cierta línea,
-ese mundo también empezó a mirar hacia este lado al mismo tiempo.
+—Sí. Nos está leyendo.
 
-Aka, mirando por la ventana, dijo muy bajo:
+La mano de Han Jiwoo resbaló una vez sobre el timón; se la secó en el pantalón y volvió a agarrarlo.
+
+—¿Y qué es lo que lee?
+
+Luhai lo preguntó.
+
+—El tamaño. La velocidad. El peso.
+
+Sern respondió.
+
+—Lo que viene después, no lo sé.
+
+Luhai bajó la vista hacia su propio cuerpo.
+
+—¿También lo que va dentro?
+
+Mientras Sern, sin responder, miraba solo el panel de registro, Luhai se apartó un paso más del ojo de buey.
+
+Aka habló muy bajo, mirando afuera.
 
 —No es una bienvenida.
 
-Seorin preguntó:
+Seorin preguntó.
 
 —¿Entonces?
 
@@ -69,251 +76,201 @@ Aka respondió solo mucho después.
 
 —Clasificación.
 
-Esa palabra fue corta,
-y por eso se clavó más fría.
+Mientras Kael movía los labios repitiendo esa palabra sin emitir sonido, Luhai se apartó otro paso del ojo de buey.
 
-Ese mundo todavía no había disparado,
-ni advertido,
-ni bloqueado.
+Aquel mundo todavía no había disparado, ni advertido, ni bloqueado. Las estructuras plateadas solo cambiaban un poco de ángulo, y al cambiarlo no hacían ruido. Al otro lado del ojo de buey era imposible oírlo, y aun así Han Jiwoo aguzó el oído.
 
-Pero no por eso estaba en silencio.
+Ater miró largo rato entre las estructuras de afuera y habló, corto.
 
-Al contrario,
-estaba tan quieto que resultaba más claro.
+—¿Quiere decir que entremos?
 
-Ese mundo no estaba eligiendo en ese momento si atacarlos o no,
-sino juzgando primero como qué definirlos.
+Han Jiwoo respondió en voz baja.
 
-Ater miró largamente por entre las estructuras de afuera
-y dijo corto:
+—No nos bloquea, pero tampoco nos recibe.
 
-—¿Nos invita a entrar?
-
-Han Jiwoo respondió bajo:
-
-—Ni nos bloquea,
-ni nos recibe.
-
-Sern siguió:
+Sern siguió.
 
 —Se parece más a un encauzamiento.
 
 Kael frunció el entrecejo.
 
-—¿En buen sentido?
+—¿En el buen sentido?
 
-Esta vez nadie respondió de inmediato.
+Esta vez nadie supo responder enseguida; Sern miró el panel de registro, Han Jiwoo el timón, Seorin el ojo de buey.
 
-Podía ser una buena inducción.
-Podía ser una mala inducción.
-Pero al menos una cosa estaba clara.
+Luhai habló en voz baja.
 
-Incluso la ruta que este lado sentía que elegía
-podía ya estar dentro del rango que ese mundo había permitido.
-Y lo más desagradable
-era que ese mundo no mostraba especial agitación ante la entrada misma de este lado.
+—Es la forma que más odio.
 
-Como si llegar hasta aquí
-ya estuviera dentro del rango previsto.
+Seorin soltó el aire, muy corto.
 
-Luhai dijo bajo:
+—Más que la de quien viene buscando pelea.
 
-—La forma que más detesto.
+Ella lo añadió mirando afuera.
 
-Seorin soltó el aliento muy corto.
+—Aquí, qué raro, solo el lado por donde se entra es demasiado liso.
 
-—Más que la que busca pelea —añadió ella mirando por la ventana—. Aquí, qué raro, solo el lado por el que se entra es demasiado liso.
+Miró su propia cara reflejada en el ojo de buey; detrás pasó una estructura plateada, y luego le pasó también por encima de la cara. Se apartó medio paso del ojo de buey.
 
-Eso también era cierto.
+Cuando unas cuantas estructuras plateadas que flotaban delante de la nave torcieron el ángulo de forma mínima, Sern lo notó enseguida.
 
-La hostilidad puede leerse como hostilidad.
-Pero esto de ahora
-era una forma de inquietar al otro más hondo,
-volviendo imposible definir de inmediato si era hostilidad u hospitalidad.
+—Línea de entrada fijada.
 
-Unas cuantas estructuras plateadas que flotaban delante de la nave
-torcieron el ángulo muy mínimamente.
+Lo dijo en voz baja.
 
-Un cambio tan leve que parecía que apenas se habían movido.
-Pero Sern lo captó enseguida.
-
-—Línea de entrada fijada —dijo él bajo.
-
-Han Jiwoo preguntó de inmediato:
+Han Jiwoo preguntó enseguida.
 
 —¿Y la línea de salida?
 
-Sern respondió solo después de leer un poco más los valores.
+Sern leyó las cifras un momento más antes de responder.
 
-—Aún no se ve.
+—Todavía no se ve.
 
-Han Jiwoo se mordió el labio.
+Mordiéndose el labio, Han Jiwoo giró un poco el timón a la izquierda. El casco giró con él, las estructuras del otro lado del ojo de buey giraron también en la misma medida, y ella devolvió el timón a su sitio.
 
-Ahora la elección era simple.
-No podían volver atrás.
-No podían detenerse.
-Y ese mundo ya había fijado
-un umbral por el que tendrían que pasar.
-
-A partir de ahí,
-el hecho mismo de no ser bloqueados resultaba, más bien, más incómodo.
-
-El camino por el que pasaba la nave ya estaba despejado,
-y las estructuras plateadas se abrían con precisión, como si hasta su ancho lo hubieran calculado.
-
-Era ancho.
-Lo bastante ancho.
-Pero, qué raro,
-no había sensación de libertad.
-
-Al contrario.
-
-Ese camino no se sentía abierto,
-sino predeterminado.
-
-Han Jiwoo, sujetando el timón, dijo bajo:
+El camino por donde pasaba la nave ya estaba despejado. Las estructuras plateadas, como si hubieran calculado hasta esa anchura, se abrían dejando dos palmos a cada lado del casco, y Han Jiwoo miró esos dos palmos.
 
 —Esto no es una guía.
 
-Kael preguntó a su lado:
+Kael preguntó a su lado.
 
 —¿Entonces?
 
-Han Jiwoo respondió mirando por la ventana:
+Han Jiwoo respondió mirando afuera.
 
-—La forma de pasar está decidida.
+—Está decidido cómo hay que pasar.
 
-Sern, leyendo los valores sin parar, dijo muy corto:
+Sern, que seguía leyendo las cifras, habló muy corto.
 
-—Si nos salimos, nos detectarán de inmediato.
+—Si nos salimos, nos atraparán enseguida.
 
-Ater preguntó mirando por la ventana:
+Ater preguntó sin dejar de mirar afuera.
 
-—¿Es seguro?
+—¿Está seguro?
 
-Sern respondió breve, también esta vez.
+Sern respondió corto también esta vez.
 
-—Sí.
-—Está demasiado ordenado.
+—Sí. Está demasiado ordenado.
 
-Sion, mirando afuera,
-se dio cuenta de que la belleza de ese mundo ya no se sentía como un paisaje.
+Ater asintió, se apartó del ojo de buey y miró a la gente del lado del pasillo. La gente de Hazran seguía de pie a la entrada del pasillo.
 
-Cuanto más se acercaban,
-aquello no parecía objeto de admiración,
-sino una línea de referencia que medía todo el movimiento de ellos.
+—Sería mejor sentarlos.
 
-Cada vez que pasaban por entre las estructuras plateadas,
-era como si unos ojos invisibles leyeran, por turno, la longitud y el peso del casco,
-la velocidad y el equilibrio,
-hasta la clase de vida que llevaban dentro.
+Se lo dijo a Seorin.
 
-Seorin habló sin esconder esa repugnancia:
+—Si están de pie cuando nos atrapen, se harán daño.
 
-—Aquí, hasta pasar requiere permiso.
+Seorin se volvió hacia la gente.
 
-Aka guardó silencio un buen rato.
+—Siéntense.
 
-No era que sintiera este mundo simplemente como algo aterrador.
-Más bien estaba incómoda de una manera más extraña.
+Esta vez el anciano se sentó primero, después el niño, después los demás. Mientras las cabezas bajaban por debajo del ojo de buey, solo un niño, con las rodillas levantadas, alzaba la vista hacia el ojo de buey.
 
-Tan liso,
-que no había rendijas.
-Sin rendijas,
-no quedaba margen para que el lado vivo se hiciera, aunque fuera por error, un lugar propio.
+Mientras Ater volvía a mirar el ojo de buey, Sion también miró afuera. Cada vez que pasaban entre las estructuras plateadas, la sombra del casco pasaba por encima de su superficie, y por donde pasaba la sombra no quedaba nada. Alzó la mano cerca del ojo de buey y la bajó.
 
-Ella, mirando por la ventana, dijo muy bajo:
+Seorin habló.
 
-—No es un lugar amable.
-—Es un lugar cortés.
+—Aquí hasta para pasar hace falta permiso.
+
+Aka tenía la frente cerca del ojo de buey, sin llegar a tocarlo, y estuvo un rato sin decir nada.
+
+Mirando afuera, habló muy bajo.
+
+—No es un lugar amable. Es un lugar cortés.
 
 Sion la miró despacio.
 
-Aka siguió hablando:
+Aka siguió.
 
-—Ser cortés
-no siempre significa ver al otro como a una persona.
+—Ser cortés no siempre significa ver al otro como a una persona.
 
-Poco después,
-en un punto lejano por delante de la nave,
-unas bandas de luz finas y largas se encendieron por turno.
+Luhai fue a decir algo y se calló, y Kael le dio un golpe en el brazo; Luhai no le apartó la mano.
 
-Al principio parecían luces de ruta.
-Pero, al mirar de cerca,
-no eran simples luces guía,
-sino que se encendían una a una a un ritmo fijo,
-más cerca de una señal que notificaba sin palabras la velocidad y el intervalo que este lado debía seguir.
+Poco después, en un punto lejano por delante de la nave, unas bandas de luz finas y largas se fueron encendiendo por turno.
 
-Sern dijo bajo:
+Una.
+Después otra.
+Al mismo intervalo.
 
-—Entró un límite de velocidad.
+Han Jiwoo lo supo sin necesidad de contar el intervalo. Bajo el timón, el velocímetro parpadeaba al mismo compás que ese intervalo.
 
-Han Jiwoo arrugó el ceño.
+Sern habló en voz baja.
 
-—¿Está enviando una señal?
+—Ha entrado un límite de velocidad.
 
-—No abiertamente —dijo Sern—. Pero lo ha ajustado.
+Han Jiwoo frunció el ceño.
 
-En ese instante,
-hacia el interior de una enorme estructura anular que flotaba lejos, por fuera de la ventana,
-se vio un pasaje que se abría con suavidad.
+—¿Está mandando una señal?
 
-Se abrió como una máquina,
-pero, qué raro, parecía más la entrada de una sala de recepción que una puerta.
+—No abiertamente.
 
-Curvas excesivamente ordenadas,
-una superficie metálica innecesariamente hermosa,
-una proporción que hacía que el lado que entraba se sintiera mísero por sí mismo.
+Lo dijo Sern.
 
-Kael dijo bajo:
+—Pero lo han ajustado.
+
+Como Han Jiwoo no reducía la velocidad, una banda de delante se apagó, y solo cuando ella redujo volvió a encenderse. Abrió una vez la mano sobre el timón y lo volvió a agarrar.
+
+—Hazlo otra vez.
+
+Lo dijo Seorin.
+
+Han Jiwoo aceleró. Se apagaron dos bandas. Redujo. Se encendieron las dos.
+
+—La segunda vez son dos.
+
+Lo dijo Han Jiwoo.
+
+—La tercera no la hago.
+
+Seorin asintió, y Sern anotó un dos en el panel de registro.
+
+En ese instante, dentro de una enorme estructura anular que flotaba lejos, al otro lado del ojo de buey, se abrió un pasaje.
+
+Se abrió sin ruido, y la superficie metálica del hueco abierto era una curva lisa hasta el fondo. La entrada era ancha y el interior estrecho, una estrechez ajustada a la anchura del casco.
+
+Kael habló en voz baja.
 
 —¿Eso es la entrada?
 
-Han Jiwoo respondió sin soltar el timón:
+Han Jiwoo respondió sin soltar el timón.
 
-—Más que una entrada… —tragó aire en corto—. Parece una forma de recibir.
+—Más que una entrada…
+
+Tragó un poco de aire.
+
+—Parece una manera de recibir.
 
 La nave se deslizó despacio hacia el interior de esa estructura anular.
 
-Casi no hubo vibración.
-Tampoco hubo impacto.
+No hubo vibración, ni impacto. Han Jiwoo apoyó la mano en la pared y tampoco notó resonancia. En Hazran este barco nunca había estado tan callado, y ella apartó la mano.
 
-Pero por eso resultaba más inquietante.
+El niño de la entrada del pasillo apretó la mano de un adulto, y el adulto le devolvió el apretón.
 
-Como si todo el desplazamiento áspero hecho hasta aquí hubiera sido mentira,
-desde el instante en que entraban dentro de ese mundo
-el movimiento se volvió demasiado liso, como si desde el principio hubieran estado incluidos en este orden.
+Y entonces, por primera vez, el grupo oyó una voz baja y refinada que vagaba por dentro de aquel mundo.
 
-Y entonces,
-por primera vez oyeron una voz baja y refinada que vagaba dentro de ese mundo.
-
-No se sabía de inmediato si era un mensaje dirigido a ellos directamente.
-Estaba tan lejos,
-tan ordenado,
-que sonaba más bien como un tono de aviso al que le habían raspado toda emoción.
-
-Pero una sola palabra resultaba clara de un modo extraño.
+Era una voz lejana, sin altibajos, y solo una palabra se oía nítida.
 
 —Serakion…
 
 Un breve silencio.
 
-Sion alzó los ojos muy despacio.
+Mientras Sion alzaba los ojos muy despacio, la mano de Han Jiwoo se detuvo sobre el timón. Cuando el dedo de Sern se detuvo sobre el panel de registro, Seorin se apartó del ojo de buey y se dio la vuelta.
 
-Era casi como si este mundo frío,
-ordenado,
-hermoso pero sin consideración,
-solo ahora, muy tarde, hubiera puesto delante un nombre propio.
-
-Aka, con una voz que apenas se alcanzaba a oír, repitió una vez ese nombre:
+Aka repitió una vez ese nombre, con una voz que apenas se oía.
 
 —Serakion.
 
-En ese instante,
-ese nombre no sonó como un saludo de bienvenida.
+Ese sonido quedó dentro del casco, nada más; la voz de fuera no volvió.
 
-Más bien estaba más cerca de un mensaje que, al que ya había entrado,
-solo le informaba en voz baja dónde estaba ahora.
+Cuando las luces del casco se reflejaron en la superficie metálica del interior del pasaje, en cada punto reflejado se reflejaban también las marcas de soldadura del casco. La nave nunca había visto su propia forma reflejada con tanta nitidez. Han Jiwoo miró esa forma reflejada y vio todas las chapas añadidas.
+
+El niño sentado bajo el ojo de buey tiró de la manga de un adulto.
+
+—¿Es un nombre?
+
+El adulto solo le tomó la mano y no respondió.
+
+La nave siguió entrando.
 
 ---
 

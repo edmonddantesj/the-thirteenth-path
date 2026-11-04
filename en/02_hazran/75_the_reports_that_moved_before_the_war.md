@@ -115,7 +115,7 @@ Those same few days earlier, the Alliance's report ship was far noisier than the
 
 Doors opened loudly, it showed at once who was blaming whom, and reports always came in together with someone's irritation.
 
-The ones who had lost Sion's party at Hazran were no different.
+The ones who had lost Sion's party just outside Hazran were no different.
 
 "They got away."
 
@@ -181,8 +181,6 @@ The reporter lowered his voice further.
 
 "And part of the android legion may be let loose with them."
 
-The air in the room stopped again, this time with a different meaning.
-
 The Alliance hates the Empire. But hatred aside, it knows well what the Empire's android legion means.
 
 Hands that make others bleed instead of bleeding themselves.
@@ -246,7 +244,7 @@ Then she added,
 
 ---
 
-When that order came down, nothing had yet befallen Hazran.
+Days had passed since that order came down, and up to this night, nothing had yet befallen Hazran.
 
 The scrap market had its lamps lit, people were laughing under the evening light, and Sion's party was holding on to the short breath they had finally gotten after days.
 

@@ -228,8 +228,6 @@ Han Jiwoo ajouta :
 
 « Sauf qu'on n'aura pas le temps de s'extasier longtemps, je crois. »
 
-C'était vrai.
-
 Sous le plancher auxiliaire que Kael soutenait, un autre craquement de métal éclata. L'étai ne tiendrait pas éternellement. Les deux lignes et le morceau de ligne d'approbation qu'ils venaient d'obtenir seraient peut-être tout ce qu'ils auraient.
 
 Sern dit d'un ton ferme :

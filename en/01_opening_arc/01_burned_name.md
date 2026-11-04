@@ -82,7 +82,7 @@ Sion closed the pad and muttered under his breath.
 
 Beside him, someone pressed a fingertip to the edge of the pad.
 
-"Don't put it away."
+"Don't file it as a transfer."
 
 Seorin Kael was standing beside Sion; he couldn't have said when she'd arrived. A little dock dust had settled even on the ends of her short-tied hair, and as always her expression was tired while her eyes were perfectly clear.
 
@@ -146,7 +146,7 @@ Seorin pulled on her gloves first and said,
 
 "Yeah." Sion ran a finger along the side of the metal box, then stopped. "So why retrieval first?"
 
-He lifted the box a little and tipped it to the light. The outer identification stamp had been ground off, and the spot where the original code should have been was wiped smooth. The trouble was that the smoothness looked too new. Not old wear, but a surface scrubbed away recently and in a hurry.
+He lifted the box a little and tipped it to the light. The outer identification stamp had been ground off, and the spot where the original code should have been was wiped smooth. The trouble was that the smoothness looked too new.
 
 Seorin came close and looked in with him.
 
@@ -154,7 +154,7 @@ Seorin came close and looked in with him.
 
 "Yeah. And in a hurry."
 
-This time Sion picked up one of the crushed storage capsules. On its side, apart from the cracks from the retrieval impact, there was one more line, drawn thin and long. It looked like the trace of a security seal forced open. The grain of it said someone hadn't retrieved the record inside whole, but had pulled it loose in a hurry and closed the leftover shell back up.
+This time Sion picked up one of the crushed storage capsules. On its side, apart from the cracks from the retrieval impact, there was one more line, drawn thin and long. It looked like the trace of a security seal forced open.
 
 Seorin swore briefly.
 
@@ -182,7 +182,7 @@ Seorin handed the piece to him and said in a low voice,
 
 "Nobody burned it to get rid of it. They got rid of it, then burned it."
 
-Sion took the piece without a word. It felt light and rough against his fingertips, yet strangely it felt like an object hiding far too much.
+Sion took the piece without a word.
 
 On the other side of the dock, the sound of a retrieval crane moving rang dully. A noise he would normally have let pass, but at that moment it sounded, for no good reason, like an interruption.
 
@@ -238,9 +238,7 @@ Kasern was still smiling, but this time there was nothing soft in it at all.
 
 "That's far enough."
 
-The light above the dock flickered once. Far off, the sound of metal boxes being stacked rang dully. Through that brief noise, Sion understood it all the more clearly.
-
-This wasn't an object that had to be hidden; it was an object someone had already checked one more time, and taken fright at.
+The light above the dock flickered once. Far off, the sound of metal boxes being stacked rang dully.
 
 Even after Kasern turned away, nobody spoke right away. Seorin was the first, muttering low.
 
@@ -341,7 +339,7 @@ Tell her to delete it, and Seorin was the kind who would write it bigger.
 
 Sion pressed send.
 
-When he pressed the send button, an approval-pending notice came up. Small gray text ran along the bottom of the screen.
+An approval-pending notice came up. Small gray text ran along the bottom of the screen.
 
 **Estimated wait time: 7 hours 40 minutes**
 

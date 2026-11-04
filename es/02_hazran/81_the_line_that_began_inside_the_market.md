@@ -130,7 +130,7 @@ Sion vio rodar lo que había apartado de una patada.
 
 No sabía qué llevaba dentro. Tampoco cuánto valía. Ni por qué aquella mujer lo había cargado hasta aquí.
 
-Lo que Nasim había dicho ayer, hoy lo había dicho él.
+Lo que Nasim había dicho antes, esta vez lo había dicho él.
 
 Al oírlo, era lo correcto. Dicho con su propia boca, aun siendo correcto, se le atragantaba.
 

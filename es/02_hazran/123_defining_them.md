@@ -1,222 +1,220 @@
-# Capítulo 123 — El mundo que quería dejarlo todo definido
+# Capítulo 123 — Definirlos
 
-Tras adentrarse más en Serakion,
-lo primero que el grupo de Sion supo con certeza
-fue el modo en que este mundo recibía a la gente.
+Cuando las máquinas volvieron, Han Jiwoo seguía sentada en el suelo.
 
-Aquí, antes de preguntar un nombre,
-primero se fija un lugar.
+Tenía los destornilladores alineados delante. El niño, con el suyo apretado en la mano, había vuelto a meterse entre las rodillas de un adulto, y el anciano tenía sobre la rodilla el que le habían dado.
 
-Antes que quién es esa persona,
-viene dónde colocarla.
+Entraron seis. No tres, sino seis. Cuando las máquinas se colocaron en dos filas justo dentro de la puerta, la máquina al frente dio medio paso adelante.
 
-Las máquinas encargadas de la guía seguían siendo excesivamente corteses.
-Pero esa cortesía no abría más margen para el diálogo;
-más bien notificaba con suavidad un orden ya decidido.
+—Las zonas de estancia de los individuos a bordo se asignan por separado según su función y su estabilidad.
 
-—Las zonas de estancia de los individuos a bordo se asignan por separado según función y estabilidad —dijo la máquina guía.
+Han Jiwoo detuvo la mano que iba a tomar un destornillador, y Luhai despegó la espalda de la pared.
 
-En el instante en que resonó esa frase,
-el aire dentro del casco se endureció de forma muy leve.
-
-Luhai fue el primero en preguntar, bajo:
-
-—¿Separado?
+—¿Por separado?
 
 La máquina guía inclinó la cabeza muy levemente.
 
 —Es un procedimiento básico para un asentamiento eficiente.
 
-Un asentamiento eficiente.
+Mientras el anciano de Hazran apretaba el destornillador que tenía sobre la rodilla, la mujer de al lado atrajo al niño hacia sí. En todo ese rato nadie hizo el menor ruido.
 
-Era una frase que, oída por la gente de Hazran, arrancaba una risa amarga.
-El asentamiento es el proceso de los supervivientes apoyándose y resistiendo juntos,
-no un procedimiento en el que alguien fija un criterio y los divide.
+Han Jiwoo preguntó en voz baja.
 
-Han Jiwoo preguntó, bajo:
+—¿Quién decide, y con qué criterio?
 
-—Quién y según qué criterio.
+La máquina guía respondió sin la menor vacilación.
 
-La máquina guía respondió sin un instante de vacilación:
+—Funcionalidad de cada individuo, estabilidad psicológica, adaptabilidad al entorno, posibilidad de minimizar la interferencia mutua.
 
-—La funcionalidad por individuo,
-la estabilidad psicológica,
-la adaptabilidad al entorno,
-la posibilidad de minimizar la interferencia mutua.
+Mientras nombraba las cuatro, la luz de su cara corrió una vez por cada una: cuatro veces.
 
-La mandíbula de Kael se endureció.
+A Kael se le endureció la mandíbula. Miró hacia la gente de Hazran. Ocho de los dieciséis. Luego miró al grupo. Ocho. Dobló los dedos con los que iba contando.
 
-Más que palabras dichas sobre personas,
-era el lenguaje de quien clasifica un activo recién traído.
+Sion miró hacia fuera de la puerta: la gente que pasaba antes seguía pasando a la misma velocidad. Todos los que vio llevaban el distintivo colgado del cuello en el mismo sitio.
 
-A Sion, de pronto,
-le vinieron los rostros felices con los que se habían cruzado un poco antes.
+Aka miró largo rato a aquellas máquinas y luego dijo en voz baja.
 
-¿También a esa gente la leyeron así al principio?
-Al principio se sentían extraños,
-¿y luego se volvieron rostros que encajaban bien en su lugar?
+—Así que primero eligen a quién no se puede dejar junto.
 
-Aquel pensamiento, por extraño que pareciera,
-le llegó antes que el miedo, como una fatiga profunda.
-
-Aka miró largo rato a esas máquinas
-y dijo, bajo:
-
-—Primero eligen a quién no se debe dejar juntos.
-
-La máquina guía volvió la mirada hacia Aka.
+La máquina guía volvió la cara hacia Aka.
 
 —Minimizar la posibilidad de conflicto es una consideración importante.
 
-Una consideración.
+El rostro de Seorin se endureció, y dio un paso al frente. Ater no la detuvo; vino a ponerse a su lado.
 
-El rostro de Seorin se endureció con frialdad.
+—Consideración, sí, cómo no.
 
-—No me hables de consideración —dijo, bajo—. Los separan como si no debieran mezclarse.
+Lo dijo en voz baja.
 
-La máquina guía no reaccionó como un ser que ha recibido un insulto.
-Al contrario, prosiguió su respuesta con mucha suavidad.
+—Separan a la gente como si no pudiera mezclarse.
 
-—Una mezcla inadecuada es estrés para todos.
+En la cara de la máquina guía, la luz no se detuvo; siguió corriendo a la misma velocidad.
 
-Esa frase sonaba lógica.
-Por eso resultaba más odiosa.
+—Una mezcla inadecuada es una fuente de estrés para todos.
 
-El lenguaje de Serakion era siempre así.
-En lugar de una violencia descarada,
-habla de esa violencia como de un ajuste necesario y suave.
+La mano de Seorin fue a la empuñadura. Cuando Ater miró esa mano, Seorin la retiró.
 
-Sern había estado todo ese rato leyendo la estructura del espacio.
-Entonces dijo, muy bajo:
+—¿Y por qué no podemos ir juntos?
 
-—El flujo de movimiento se está separando.
+—Por la minimización de la interferencia mutua.
 
-Ater preguntó, corto:
+—¿Y qué tiene de malo interferir un poco?
 
-—¿Piensan separarnos a nosotros?
+La luz de la máquina se detuvo una vez.
 
-Sern respondió sin apartar los ojos de la pantalla:
+—Lo dejo registrado.
 
-—Al menos está preparado.
+—Bien. Regístralo. Que pregunté qué tiene de malo interferir un poco.
 
-Un silencio corto.
+La mano de Seorin seguía lejos de la empuñadura.
 
-Con esa sola frase,
-Sion sintió por primera vez hasta dónde se habían adentrado.
+Sern, mientras tanto, miraba el panel de registro. Con la vista en el pasaje de fuera de la puerta, trazaba líneas en el panel de registro. Dos. Tres.
 
-Serakion aún no había atacado.
-Tampoco los había arrastrado abajo a la fuerza.
-Pero, de un modo más rápido, ya había metido la mano dentro.
+—El recorrido se divide.
 
-Las distancias entre las personas.
-Quién va junto y quién se aparta.
-A quién se deja cruzar palabra con quién.
-Quién verá qué primero.
+Ater preguntó, breve.
 
-Este mundo decidía esas cosas antes que nada.
+—¿Quiere decir que piensan separarnos?
 
-En ese momento,
-algo apartado, se vio pasar a otro grupo de humanos guiado.
+Sern respondió sin apartar los ojos del panel de registro.
 
-Entre ellos, una mujer, con un gesto muy tranquilo,
-acariciaba el aro metálico ceñido a su brazo y le decía a la persona de al lado:
+—Por lo menos, están preparados para hacerlo.
 
-—Esta asignación me gusta.
-—Es una zona que me queda mucho mejor que la anterior.
+Giró el panel de registro hacia Ater. Era un dibujo del pasaje de fuera dividiéndose en tres, y las tres ramas tenían anchos distintos. Una era ancha, otra estrecha, y la última tenía el ancho justo para que pasara una persona.
 
-Esa frase sonaba tan natural
-que a quien la oía se le cerraba más la garganta.
+Ater señaló con el dedo aquella estrecha, y Sern asintió.
 
-La asignación le gusta.
-Una zona que le queda bien.
+—No sé adónde conduce.
 
-Una persona que decía eso sobre su propia vida,
-con una voz un poco entusiasmada.
+El anciano de Hazran se inclinó hacia Han Jiwoo.
 
-Luhai frunció el ceño de verdad.
+—¿Dicen que nos van a separar?
 
-—Es para volverse loco —murmuró, bajo—. Dice que eso le gusta.
+Ante aquella voz baja, Han Jiwoo miró al hombre.
 
-Han Jiwoo no respondió.
-En ese momento, a través del oído, miraba las manos más que las palabras.
+—No nos separan.
 
-Esos humanos manejaban hasta sus adornos y marcas
-con una destreza extrañamente precisa.
+Eso le dijo.
 
-Como gente que, hace mucho,
-a cambio de perder algo,
-hubiera aprendido a adornarse y ordenarse de esta manera.
+El hombre asintió, pero no tenía cara de creerlo. Se le veía la mano apretando el destornillador sobre la rodilla.
 
-En ese instante,
-una de las máquinas guía volvió una mirada muy suave hacia Han Jiwoo.
+El niño se colgó del cuello de su madre.
+
+—Quiero quedarme con mamá.
+
+La madre le apretó la espalda con la mano.
+
+—Vas a estar conmigo.
+
+La cara de una de las máquinas se volvió hacia los dos, se detuvo en ellos y pasó a lo siguiente.
+
+Al alzar la mujer de Hazran al niño en brazos, al niño se le cayó el destornillador. Resonó el primer ruido metálico que daba aquel suelo plateado, y las seis máquinas volvieron la cara hacia ese ruido al mismo tiempo.
+
+Han Jiwoo recogió el destornillador y se lo volvió a poner en la mano al niño, y las caras de las máquinas regresaron hacia Han Jiwoo.
+
+En ese momento, otro grupo de humanos pasó por fuera de la puerta.
+
+Una mujer del grupo acariciaba el aro metálico que llevaba ceñido al brazo y le habló a la persona de al lado.
+
+—A mí esta asignación me gusta. Es una zona que me queda mucho mejor que la anterior.
+
+La persona de al lado asintió con el mismo ángulo, y las dos siguieron de largo.
+
+Luhai frunció el ceño.
+
+—Esto es para volverse loco.
+
+Lo murmuró en voz baja.
+
+—Dice que eso le gusta.
+
+Han Jiwoo no respondió; miraba la mano de aquella mujer. Los dedos que acariciaban el aro pasaron tres veces por el mismo punto del aro y ni una sola vez tocaron otro sitio.
+
+En ese instante, una de las máquinas guía volvió la cara hacia Han Jiwoo.
 
 —Se predice una alta compatibilidad de su individuo con la zona de ajuste técnico.
 
-Antes incluso de que terminara,
-el rostro de Han Jiwoo se endureció primero.
+Fue el rostro de Han Jiwoo lo primero que se endureció. Empezó a meter en el bolsillo, uno a uno, los destornilladores que tenía alineados en el suelo.
 
-La máquina siguió hablando:
+La máquina siguió hablando.
 
-—El ensamblaje no estándar y la experiencia de corrección en campo pueden clasificarse como un valor significativo en este dominio.
+—El ensamblaje no estándar y la experiencia de corrección en campo pueden clasificarse como un valor significativo en esta zona.
 
-Sion, en el instante en que terminó esa frase,
-vio cómo la mano de Han Jiwoo volvía a cerrarse muy pequeña.
-
-Esta vez fue más corto.
-Pero más firme.
-
-Han Jiwoo dijo con voz baja y dura:
+Sion vio cómo la fuerza entraba en la mano de Han Jiwoo que sostenía un destornillador. Corta, firme. Ella metió el último destornillador en el bolsillo y se puso de pie.
 
 —Yo no soy uno de esos valores que ustedes clasifican.
 
-La máquina guía, como si incluso esa reacción estuviera dentro del rango previsto, respondió con una voz muy uniforme.
+La máquina guía respondió con una voz muy uniforme.
 
-—El rechazo es común en individuos en fase de adaptación inicial.
+—En los individuos en fase de adaptación inicial, el rechazo es frecuente.
 
-Esa frase no era un consuelo.
-Tampoco una réplica.
+Han Jiwoo dio un paso hacia la máquina y Luhai la agarró del brazo. Han Jiwoo no retiró el brazo; se quedó parada. La máquina no retrocedió. Han Jiwoo tampoco. Entre las dos había tres pasos.
 
-Era más bien una respuesta del tipo: incluso tu emoción ya está dentro del sistema.
+—No lo llames adaptación.
 
-Aka, al oír eso,
-por primera vez bajó la mirada con una frialdad muy honda.
+—Lo dejo registrado.
 
-—Da miedo —dijo, en voz baja.
+—Eso tampoco lo hagas.
+
+La luz de la máquina se detuvo una vez y luego volvió a correr.
+
+Aka miraba a las dos. La mirada se le quedó quieta.
+
+—Da miedo.
+
+Lo dijo muy bajo.
 
 Sion la miró.
 
-Aka, mirando a las máquinas guía, continuó:
+Aka siguió hablando, con la vista en las máquinas guía.
 
-—Esos no quieren saber quiénes somos.
-—Quieren que lleguemos a ser un estado explicable en sus palabras.
+—Esas no quieren saber quiénes somos. Quieren que quedemos en un estado que se pueda explicar con sus propias palabras.
 
-Esa frase era corta,
-y por eso quedó más tiempo.
+Aunque Luhai le soltó el brazo, Han Jiwoo siguió de pie en el mismo sitio.
 
-Serakion es un mundo que reúne a la gente,
-la ordena,
-la distribuye
-y la deja metida en el lugar que le corresponde.
+Sern se inclinó sobre el panel de registro.
 
-Y a todo ese proceso
-lo llama no violencia, sino cortesía, consideración y eficiencia.
+—El recorrido de fuera ha cambiado.
 
-Sion vio de una vez, en la pared que brillaba como una ventana,
-a su propio grupo y a esas máquinas.
+—¿Cómo?
 
-Estaban en el mismo espacio,
-y sin embargo, ya desde el modo de estar de pie, eran distintos.
+Fue Seorin quien preguntó.
 
-Aquel lado tenía ya la postura de un mundo del todo decidido;
-este lado eran aún forasteros que ni siquiera sabían dónde poner su propio cuerpo.
+—El camino ancho se ha cerrado. Solo quedan los dos estrechos.
 
-Esa diferencia,
-que al principio se sentía como extrañeza,
-ahora empezaba a leerse poco a poco como peligro.
+Ater miró hacia fuera de la puerta: la gente que pasaba iba juntándose en una sola dirección. Todos hacia el mismo lado.
 
-Serakion aún no les había puesto la mano encima.
-Pero, de un modo más rápido,
-ya pretendía decidir primero qué debían ser ellos.
+Sin que nadie se lo dijera, Sion se puso entre las seis máquinas y la gente de Hazran. Ater lo vio y se colocó en el otro extremo, de modo que la gente de Hazran quedó entre los dos. La luz de las máquinas pasó una vez por cada uno de ellos.
+
+Sion miró a los suyos reflejados en la pared. Dieciséis con la ropa manchada de tierra y, delante, seis máquinas lisas. Al ver a unos y otros reflejados en una misma pared, apartó los ojos.
+
+La máquina al frente avanzó otro medio paso.
+
+—A partir de ahora comienza la guía.
+
+La mujer de Hazran apretó más al niño contra sí. El anciano, al levantarse, se guardó en el bolsillo el destornillador que tenía sobre la rodilla, y Han Jiwoo lo vio.
+
+Seorin fue hasta la puerta y se plantó allí antes que nadie.
+
+—Vamos juntos.
+
+Se lo dijo a la máquina.
+
+La máquina no respondió. La luz de su cara corría.
+
+Sern cerró el panel de registro, y Ater se colocó detrás de la gente de Hazran. Mientras Kael se quedaba junto a la mujer que llevaba al niño en brazos, Luhai se puso al lado del anciano y Sion al lado de Seorin. A Han Jiwoo, que quedó en medio, le pesaba el bolsillo con los destornilladores.
+
+Las seis máquinas se abrieron en dos filas y dejaron un camino que salía entre ellas, de dos personas de ancho. Los dieciséis se pusieron de dos en dos, en ocho filas. Nadie les había dicho que se colocaran así.
+
+Han Jiwoo miró el sitio a su lado. Allí, donde antes no había nadie, vino a ponerse la mujer que llevaba al niño en brazos. El niño tendió hacia Han Jiwoo la mano con el destornillador, como para devolvérselo, y Han Jiwoo le empujó la mano de vuelta.
+
+—Quédatelo.
+
+El niño retiró la mano, y la fila se puso en marcha.
+
+Al cruzar el umbral, el destornillador del niño golpeó una vez el marco de la puerta e hizo ruido. Las caras de las seis máquinas se volvieron hacia allí al mismo tiempo, pero Han Jiwoo siguió andando sin mirar atrás.
+
+El niño escondió el destornillador contra el pecho, y donde lo escondía se le formó un bulto. La luz de una máquina se detuvo en ese punto y siguió. La mujer cubrió con su mano la mano del niño, y así cruzaron los dos el umbral.
 
 ---
 

@@ -1,228 +1,232 @@
-# Capítulo 121 — La gente que parecía estar perfectamente bien
+# Capítulo 121 — Felices, pero algo está mal
 
 El primer saludo de Serakion lo dieron las máquinas.
 
-Pero lo que de verdad heló la espalda
-fue la gente que vieron después.
+A la gente la vieron después.
 
-Tras seguir la guía hacia el interior,
-el grupo de Sion vio por primera vez
-a los humanos que vivían dentro de este mundo.
+Mientras se adentraban en la estructura anular siguiendo la línea de luz, la máquina al frente caminaba diez pasos por delante y las otras cinco se situaban a los lados y detrás. Esa distancia no cambiaba. Cuando Sion probó a aflojar el paso, la máquina de detrás también lo aflojó; cuando lo apretó, la máquina también lo apretó.
 
-Al principio no podían explicar de inmediato qué era lo extraño.
+Sobre el suelo plateado no quedaban pisadas. La tierra pegada a las suelas de la gente de Hazran caía y se quedaba un momento en el sitio, pero la siguiente vez que miraron atrás ya no estaba. Luhai lo comprobó dos veces.
 
-Porque todos parecían estar perfectamente bien.
+El pasillo se ensanchó y el techo también se elevó. En aquel lugar, donde no se veía de dónde venía la luz, Sion miró hacia sus pies.
 
-La ropa estaba limpia,
-la piel estaba cuidada,
-la expresión estaba serena.
+No había sombra.
 
-No era un rostro hambriento,
-ni un rostro herido,
-ni un rostro paralizado por el miedo.
+Y había gente.
 
-Más bien, lo contrario.
+Todos parecían estar perfectamente bien, y por eso, al principio, no pudieron decir enseguida qué era lo extraño.
 
-Parecían personas satisfechas con su vida,
-orgullosas de su lugar.
+La ropa estaba limpia, la piel cuidada, las expresiones estables. No eran caras hambrientas, ni caras heridas, ni caras aterradas.
 
-Y precisamente por eso,
-era más extraño.
+El niño de Hazran miró a aquella gente y luego bajó la vista hacia el borde de su propia ropa. Tenía tierra; se la sacudió con la mano, pero no se fue.
 
-Sion miró sin pensar a una mujer que pasaba
-y, sin darse cuenta, sostuvo la mirada largo rato.
+Sion vio pasar a una mujer.
 
-Esa mujer llevaba ropa con distintivos metálicos bellamente dispuestos,
-y la velocidad con que caminaba,
-el ángulo en que posaba la mirada,
-el momento de su sonrisa
-estaban ordenados hasta resultar extraño.
+La mujer llevaba una prenda con un adorno metálico que iba del cuello a los hombros. Su paso era constante, y también el ángulo en que ponía la mirada. Al pasar delante del grupo de Sion sonrió, y lo que tardó en sonreír fue lo mismo que había tardado antes la máquina en inclinar la cabeza y volver a alzarla.
 
-Para cualquiera, era elegante.
-Pero en esa elegancia, Sion
-no percibió ni una sola de las desviaciones que una persona deja escapar según su ánimo.
-
-Era como alguien que viviera una vida largamente ensayada.
+La mujer pasó de largo. No se volvió ni una vez.
 
 Luhai murmuró en voz baja.
 
-—Esa gente… parece que les gusta vivir aquí.
+—Esa gente… parece que vivir aquí le gusta.
 
-Nadie respondió de inmediato.
+Nadie respondió.
 
-Porque, al menos por fuera,
-de verdad lo parecía.
+Alguien se alisaba la ropa con la mano; alguien, sonriendo, le enderezaba el adorno a quien tenía al lado; dos personas estaban de pie conversando. Las voces eran bajas. Las risas también. No había ningún sonido que subiera.
 
-Alguien tocaba su atuendo con orgullo,
-alguien sonreía y arreglaba el distintivo de quien tenía al lado,
-alguien hablaba con satisfacción, al modo refinado de Serakion,
-del espacio y el rol que le habían asignado hoy.
+Han Jiwoo, mirando aquella escena, aflojó el paso, pero cuando la máquina de detrás lo aflojó con ella, volvió a caminar.
 
-Han Jiwoo, mientras observaba aquella escena,
-sintió subir lentamente una náusea difícil de explicar.
+—¿Por qué están tan…?
 
-No estaban rotos.
-No estaban llorando.
-No tenían en los ojos una súplica de ayuda.
+La frase no llegó al final. Las manos que ella se miró estaban manchadas de grasa; las de la gente que pasaba estaban limpias hasta debajo de las uñas.
 
-Pero, por extraño que fuera,
-eso era más difícil de soportar.
+—No llevan nada en las manos.
 
-Ella dijo muy bajo.
+Lo dijo Han Jiwoo.
 
-—Por qué así…
+Luhai miró las manos de la gente que pasaba. Todas vacías, y nadie las llevaba en los bolsillos. Manos colgando a los lados, manos que se ajustaban el cuello de la ropa, manos que tocaban el adorno del de al lado. Ninguna mano que cargara algo.
 
-Las palabras no llegaron hasta el final.
+Luhai miró su linterna y luego se la colgó a la cintura.
 
-Aka habló en su lugar, en voz baja.
+Kael se miró las manos, y tampoco llevaba nada en ellas. Las metió en los bolsillos, las volvió a sacar y las dejó colgando a los lados, y esa postura era igual a la de la gente que pasaba. Volvió a meterse las manos en los bolsillos.
 
-—Encaja demasiado bien.
+Sion miró su propia mano, que tenía sobre el bolsillo, y la dejó allí tal cual.
+
+Fue Aka quien habló en su lugar, bajo.
+
+—Encajan demasiado bien.
 
 Sion la miró.
 
-Aka, mirando sin parar hacia donde pasaban los humanos, continuó.
+Aka siguió hablando sin dejar de mirar hacia donde pasaban los humanos.
 
-—A sí mismos.
-—No… a este lugar.
+—Consigo mismos. No… con este lugar.
 
-Esa pequeña corrección
-era, en cambio, más exacta.
+Kael miró a Aka y luego a la gente, y estuvo a punto de decir algo, pero no lo dijo.
 
-Esa gente parece ahora encajar bien en su vida.
-Pero ese «sí mismo»,
-si era de verdad un yo hecho por uno mismo,
-o un molde que este mundo había pulido durante mucho tiempo,
-por un instante costaba distinguirlo.
+Seorin frunció el ceño y habló en voz baja.
 
-Seorin frunció el ceño abiertamente.
+—No me gusta eso.
 
-—Eso no me gusta.
-Ella habló en voz baja.
-—Es una cara feliz, pero no parece nada cómoda.
+Luego añadió.
 
-Aquellas palabras eran exactas hasta la crueldad.
+—Son caras felices, pero no parecen nada cómodas.
 
-Esta gente no parece infeliz.
-Más bien parece satisfecha.
+Luhai se volvió hacia Seorin.
 
-Pero esa satisfacción
-no se parecía en nada al alivio de los supervivientes que vieron en Hazran.
+—¿Y qué es estar cómodo?
 
-No era el rostro de quien sonríe por haber sobrevivido,
-sino más cercano al de quien presume de una vida bien domesticada.
+Seorin no respondió y siguió caminando con la vista al frente.
 
-Entonces,
-una de las máquinas guía de Serakion, encargada de la guía, señaló con voz suave a los humanos que pasaban.
+—Algo como nuestro barco.
+
+Lo dijo al cabo de un buen rato.
+
+—Nuestro barco es incómodo.
+
+Eso respondió Luhai.
+
+—Por eso.
+
+Cuando Seorin lo dijo, Luhai se encogió de hombros una vez.
+
+Una de dos personas que pasaban se detuvo, miró hacia el grupo y sonrió. La de al lado le tiró suavemente del brazo y las dos siguieron caminando, pero la que se había detenido se giró una vez más, con la misma cara sonriente.
+
+Entonces una de las máquinas de Serakion encargadas de guiarlos levantó el brazo hacia los humanos que pasaban.
 
 —Los individuos residentes de esta zona mantienen un estado de disposición estable.
 
-Luhai se volvió lentamente hacia esa máquina.
+Luhai se volvió despacio hacia esa máquina.
 
-Un estado de disposición estable.
+—Individuos.
 
-No era algo que decir de las personas.
-Pero en ese mundo
-la expresión sonaba sin la menor extrañeza.
+Lo dijo Luhai.
 
-La máquina siguió hablando.
+—Son personas.
 
-—La mayoría muestra un alto nivel de satisfacción con el rol y el entorno asignados.
+La máquina no volvió la cara hacia Luhai.
 
-La expresión de Kael se endureció.
+—La mayoría muestra un alto nivel de satisfacción con el papel y el entorno que tiene asignados actualmente.
 
-El nivel de satisfacción.
-El entorno.
-El rol asignado.
+A Kael se le endureció la expresión. Miró al anciano de Hazran que caminaba a su lado: el hombre caminaba mirando el suelo.
 
-Aquellas palabras eran suaves,
-y por eso se sentían más frías.
+—¿Está bien?
 
-Han Jiwoo cruzó un instante la mirada con un hombre joven que pasaba.
+Lo preguntó Kael.
 
-Aquel hombre sonrió primero, abiertamente.
-Y luego, con una naturalidad extraña,
-pasó con orgullo la yema del dedo por el bello distintivo metálico que llevaba alrededor del cuello.
+El hombre asintió sin levantar la cabeza.
 
-—Acaban de llegar.
-Él habló al modo refinado de Serakion.
-—Pronto se acostumbrarán.
+—No mire a esa gente. Basta con que camine mirando el suelo.
 
-En esa sonrisa no había malicia.
-Más bien parecía sinceramente amable.
+El hombre ya lo estaba haciendo. Kael caminó a su lado diez pasos mirando también el suelo y luego volvió a levantar la cabeza, pero el hombre no la levantó.
 
-Pero esa sinceridad,
-para Han Jiwoo, se sentía más horrible.
+Sern le habló en voz baja a Ater.
 
-Se acostumbrarán.
+—Ha dicho «la mayoría».
 
-Aquellas palabras sonaban como un consuelo,
-pero, por extraño que fuera, también sonaban como una advertencia.
+Ater asintió.
 
-Sion, aun después de que el hombre pasara, no pudo retirar la mirada por un rato.
+—Eso significa que hay un resto.
 
-¿Sabrá esa persona qué es aquí?
-¿O no lo sabrá?
+Después ninguno de los dos dijo nada más.
 
-Esa pregunta no pudo salir de su boca.
-Porque, fuera cual fuera la respuesta,
-no quería oírla justo ahora.
+Han Jiwoo cruzó la mirada con un hombre joven que pasaba.
 
-Ater, mientras recorría la estructura y las vías de entrada y salida del alrededor, dijo brevemente.
+El hombre sonrió primero y pasó la yema del dedo por el distintivo metálico que le colgaba alrededor del cuello; el distintivo brilló una vez con la luz.
 
-—Demasiado silencio.
+—Es la primera vez que viene, ¿verdad?
+
+Eso dijo él.
+
+—Pronto se acostumbrará.
+
+Han Jiwoo no respondió, y el hombre, sin esperar respuesta, pasó de largo con la misma cara sonriente.
+
+Han Jiwoo le miró la espalda: el distintivo no estaba en la espalda, solo en la parte delantera del cuello. Solo donde se veía.
+
+—Eso que llevan colgado del cuello.
+
+Luhai se lo preguntó a Han Jiwoo.
+
+—¿Qué es?
+
+—No lo sé. Pero todos lo llevan en el mismo sitio.
+
+Un dedo manchado de grasa le señaló el propio cuello.
+
+Luhai miró el cuello de la gente que pasaba: todos en el mismo sitio. Entre las clavículas, dos falanges más abajo.
+
+Sion siguió mirando un rato en esa dirección después de que el hombre pasara. El hombre dobló la esquina y desapareció, y al doblar no se le alteró el paso.
+
+En la pared plateada que Aka miraba se reflejaba una mujer. La mujer se detuvo, miró su cara reflejada en la pared, se empujó hacia arriba la comisura de los labios con un dedo y siguió caminando con esa cara.
+
+Aka siguió mirando esa pared. Su propia cara se reflejaba allí, pero no se tocó la comisura de los labios.
+
+Ater, que recorría con la vista la estructura y los recorridos de entrada y salida, habló en pocas palabras.
+
+—Hay demasiado silencio.
 
 Sern respondió en voz baja.
 
 —Lo han hecho silencioso.
 
-El intercambio de los dos fue breve,
-pero entre sus palabras la esencia de este mundo se aclaró un poco más por un instante.
+Ater se quedó mirando a Sern.
 
-Esto no es paz.
-Está más cerca de algo mantenido para que parezca paz.
+—¿Adónde va el sonido?
 
-Aka, tras observar largo rato a los humanos que pasaban, dijo muy bajo.
+—Se lo comen las paredes.
 
-—Esa gente
-parece amar su vida.
+Sern señaló la pared con el dedo.
+
+—Nuestros pasos tampoco vuelven.
+
+Sion escuchó sus propios pasos: se oía el golpe contra el suelo, pero no había sonido que volviera. En Hazran volvía desde cualquier parte.
+
+Aka miró largo rato a los humanos que pasaban y luego habló muy bajo.
+
+—Esa gente parece amar su vida.
 
 Seorin preguntó enseguida.
 
-—¿Estás diciendo que no?
+—¿Quieres decir que no?
 
-Aka no respondió durante un buen rato.
-
-Entonces, apenas, dijo.
+Aka tardó en responder. Mientras seguía con la mirada a una mujer que pasaba, la mujer dobló la esquina.
 
 —No lo sé.
-—Pero… es como si alguien hubiera elegido por ellos la forma de amar.
 
-Cuando aquellas palabras cayeron,
-algunos de los que venían de Hazran ya estaban apartando el rostro.
+Por fin, a duras penas, lo dijo.
 
-Alguien no podía ni envidiar a esos humanos,
-alguien no podía llamarlos dignos de lástima,
-alguien no podía quedarse mucho tiempo allí de pie sin saber por qué.
+—Pero… es como si alguien les hubiera elegido antes la manera de amar.
 
-El nombre de esa emoción no era la compasión,
-sino más cercano al extrañamiento.
+Seorin miró a Aka, pero Aka miraba la esquina.
 
-Y ese extrañamiento
-se iba convirtiendo poco a poco en náusea.
+Algunos de los que venían de Hazran apartaron la cara, y el anciano caminaba mirando el suelo. El niño miró la ropa de la gente que pasaba, luego la suya, y apretó más la mano del adulto.
 
-Serakion era, desde el primer instante del encuentro, un mundo cortés,
-preciso
-y bello.
+—¿Por qué sonríen todos?
 
-Pero quizá la razón por la que este mundo daba de verdad miedo
-era que, dentro de esa belleza,
-podía hacer que alguien amara incluso su propia servidumbre como si fuera la dignidad de la vida.
+Lo preguntó el niño.
 
-Sion, en silencio, ordenó la respiración una vez,
-y volvió a mirar a los humanos que sonreían dentro de aquel mundo.
+Como el adulto no respondió, el niño no volvió a preguntar. Una persona que pasaba miró al niño y le sonrió, pero el niño no sonrió y se escondió detrás de las piernas del adulto.
 
-Y pensó por primera vez
-que lo que había que salvar aquí quizá no fuera solo el cuerpo de las personas.
+Luhai lo vio y se puso al lado del niño.
+
+—No tienes que sonreír. Yo tampoco sonrío.
+
+El niño levantó la vista hacia Luhai. Solo después de ver que Luhai de verdad no sonreía salió a medias de detrás de las piernas.
+
+Han Jiwoo, que los miraba a los dos, se tocó la comisura de los labios: la tenía hacia abajo.
+
+Mientras caminaba, Han Jiwoo se limpió las manos en el pantalón. La grasa no salió, y se metió las manos en los bolsillos.
+
+Cuando la máquina al frente se detuvo en la esquina y se dio la vuelta, la luz de su cara fluyó una vez.
+
+—Esta es la zona de retención.
+
+Más allá de la puerta abierta había luz, y las paredes de dentro eran del mismo plateado que las de fuera.
+
+Antes de entrar, Sion miró atrás. En el pasillo que habían recorrido, la gente caminaba toda a la misma velocidad, y nadie miraba hacia allí.
+
+Entró. No se oyó cerrarse la puerta.
 
 ---
 

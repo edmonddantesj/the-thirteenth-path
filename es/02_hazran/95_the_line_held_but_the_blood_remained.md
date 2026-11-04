@@ -60,7 +60,7 @@ Sion bajó la mano.
 
 En lugar de responder, Sern se llevó la mano al costado.
 
-Allí llevaba enrollada una tela. Se la había puesto sobre un corte de hacía unos días, y ahora ese sitio también volvía a estar empapado.
+Allí llevaba enrollada una tela. Se la había puesto sobre el corte de esa mañana, y ahora ese sitio también volvía a estar empapado.
 
 —Eso no.
 

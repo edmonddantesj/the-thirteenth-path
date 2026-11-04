@@ -46,22 +46,12 @@ Vista de cerca, era la única parte donde la veta aún no se había cortado del 
 Lo dijo ella.
 —Lo primero que tiene que aguantar no es lo que más se va a mover, sino lo que más tiempo va a tardar en derrumbarse.
 
-A Sion le pareció haber oído eso en alguna parte.
-
-Unos días antes, Harún, al repartir a la gente en tres grupos, había reforzado primero las vías de salida. Cuando le preguntaron por qué hacía eso primero, dijo que, si se dejaba para después, habría que hacerlo donde ya estuviera bloqueado.
-
-Era lo mismo. Que lo que parece más urgente no es lo primero que hay que hacer.
-
-A Sion le pareció raro que quien arregla barcos y quien defiende una ciudad dijeran lo mismo. Luego se corrigió: no era raro. Las dos eran manos que habían visto derrumbarse cosas durante mucho tiempo.
-
 Sion, al oír aquello, miró a Aka.
 
 Aka miraba a Han Jiwoo más que al casco.
 Y habló muy bajo.
 
 —Ahora sí que sabes ver.
-
-Aquello sonó tanto a elogio como a confirmación.
 
 Sion tomó aire una vez, sin saber bien por qué.
 
@@ -196,8 +186,6 @@ Olvidar también era un trabajo. Había ido soltando por orden lo que no usaba, 
 Pero no había podido borrarlo todo.
 
 Sion no sabía si eso era un consuelo o no. Si se hubiera borrado todo, no habrían llegado hasta aquí, y sin llegar hasta aquí, tampoco existiría todo este esfuerzo.
-
-Aquella frase le golpeó el pecho a Sion con una fuerza extraña.
 
 Que el camino no había muerto del todo, que quedaba un punto enfriado, y la sensación de que la brasa recordaba algo: todo era una sola cosa.
 

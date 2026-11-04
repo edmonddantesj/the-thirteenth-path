@@ -1,132 +1,284 @@
 # Chapitre 192 — La cage parfaite
 
-Après avoir franchi la première porte, la structure intérieure changea visiblement.
+Passé la première porte, le couloir changea.
 
-Le couloir devint plus silencieux, les surfaces plus lisses, la lumière plus basse et plus contenue.
+Il était plus silencieux, plus lisse, la lumière plus basse ; aux murs, pas une éraflure, au sol, pas un grain de poussière. Sion avait beau poser le pied, il n'entendait même pas ses propres pas.
 
-Comme si Serakion, après avoir vacillé une fois à l'extérieur, avait décidé de ne plus commettre d'erreur à partir des endroits vraiment importants.
+La deuxième porte restait invisible.
 
-C'est pourquoi cet intérieur donna encore plus de frissons à Sion.
+Le couloir s'élargit brusquement, au point qu'il n'y avait plus où se cacher. Le sol était découpé jusqu'au bout en cases serrées, larges de deux paumes, et les parois, de part et d'autre, frémissaient très faiblement, comme une respiration.
 
-À l'extérieur, c'était encore un champ de bataille. Il y avait des traces de rupture, et l'on pouvait forcer un chemin.
+Sion posa la main sur la paroi : elle était tiède. Quand il retira la main, la paroi s'éclaira à la forme de sa main, puis s'éteignit lentement.
 
-À partir d'ici, c'était différent.
+Sern le vit et parla très bas.
 
-La deuxième porte était moins évidente que la première.
+« C'est une chambre de classification. »
 
-Il n'y avait ni grande plaque de blocage, ni dispositif d'alignement visible.
+« Pas une porte ? »
 
-Là, le couloir s'élargissait soudain. Et plus il s'élargissait, moins il restait d'endroits où se cacher.
+« Ce n'est pas une porte. »
 
-Le sol était finement divisé en cases de la taille de deux paumes, et les deux murs entiers semblaient vivre très faiblement, lisant en silence la chaleur, le mouvement et le poids qui entraient.
+Sern reprit.
 
-Sern dit très bas en voyant cela :
+« Une mauvaise entrée ne referme rien : elle vous fait transférer ailleurs. La personne elle-même. »
 
-« Une chambre de classification. »
+« Où ça ? »
 
-Si l'on y entrait mal, la porte ne se fermerait pas.
+« Je l'ignore. Ce peut être en haut comme en bas : là où Serakion en décide. »
 
-La personne elle-même serait rangée ailleurs.
+Sion baissa les yeux sur la case encore éteinte sous ses pieds, sans lever le pied pour autant.
 
-C'était une idée très serakionienne.
+« Les enfants aussi sont passés par là ? »
 
-Classer avant de tuer. Définir la place avant de briser.
+Han Jiwoo demanda.
 
-Et cette méthode était si polie qu'elle en devenait plus violente.
+« Ils y sont sûrement passés. »
 
-Ater lut les lignes supérieures et dit bas :
+Sern répondit.
 
-« Le but n'est pas de créer un chemin vivant. C'est de diviser parfaitement. »
+« C'est sans doute ici que se séparaient les enfants qui iraient en haut et ceux qui iraient en bas. En marchant. »
 
-Seorin observa longtemps les faibles lumières qui coulaient dans les murs et le sol, puis dit brièvement :
+La case dans laquelle Han Jiwoo regarda faisait deux paumes de large, la largeur d'un pied d'enfant ; elle ne marcha pas dessus.
 
-« Ne cherchez pas le chemin. Faites fermer la cage à l'excès. »
+Ater leva les yeux vers le haut de la paroi : sous le plafond, trois lignes de lumière couraient chacune dans une direction différente.
 
-Sern prit tout de suite la suite du calcul.
+« Le but n'est pas de créer un chemin vivant. »
 
-« Il faut trois entrées. Deux humaines, une mécanique, une réaction androïde. »
+Il parlait bas.
 
-Encore une fois, le dernier androïde était central.
+« Le but est de diviser parfaitement. »
 
-Il était la contradiction que la classification de Serakion détestait le plus.
+Après un temps, il ajouta.
 
-Semblable à une arme mais pas une arme, semblable à un type ordre mais ne bougeant pas par ordre, facteur de danger et en même temps erreur née hors du système.
+« Une Maison divise devant la porte. Ici, la division se fait en marchant. »
 
-Seorin découpa les axes.
+« C'est en marchant que se décide où l'on va. La personne elle-même ne le sait pas. »
 
-Sion et une ancienne machine à gauche.
+« Et toi, tu le savais ? »
 
-Ater et un autre axe sur la réaction supérieure.
+C'était Han Jiwoo.
 
-Han Jiwoo et le dernier androïde ne perceraient pas de face, mais toucheraient seulement la ligne que la chambre de classification serait forcée de lire en premier.
+« Je ne le savais pas. »
 
-Dès que le plan fut posé, les mouvements commencèrent presque en même temps.
+Ater répondit.
 
-Sion fit exprès d'entrer à une vitesse qui ressemblait à celle d'un intrus ordinaire.
+« Je l'ai su une fois devant la porte. Ici, il n'y a même pas de porte. »
 
-Ni trop vite, ni trop caché.
+Seorin observait depuis un long moment les lumières de guidage des parois et du sol quand la lumière de la paroi descendit vers le sol ; une case que personne n'avait foulée s'alluma, puis s'éteignit.
 
-Une case s'alluma faiblement sous ses pieds. Au deuxième pas, la case voisine.
+« Ne pas chercher de chemin. »
 
-L'ancienne machine entra une demi-mesure après lui. Chaque case que touchaient ses pieds lourds s'allumait un peu plus fort.
+Elle l'avait dit brièvement.
 
-Du côté d'Ater, la réaction thermique supérieure fut volontairement renvoyée une fois, tandis que le dernier androïde se tint sur la ligne latérale, sans se montrer entièrement, exactement à l'endroit où il allait tout juste être lu.
+« Faire fermer la cage à l'excès. »
 
-À cet instant, la lumière de la chambre se répandit en fines lignes dans tout le couloir.
+Sern enchaîna aussitôt et traça trois lignes sur le panneau d'enregistrement.
 
-Les filets lumineux sous les murs se divisèrent en trois branches, et les lignes au sol commencèrent à couler dans des directions différentes comme pour indiquer des passages distincts.
+« Il nous faut trois entrées : deux humains, une machine, une réaction d'androïde. »
 
+« Pourquoi trois ? »
+
+Sion avait posé la question.
+
+« Il y a trois lignes. »
+
+Sern montra le haut.
+
+« Si nous les faisons compter toutes les trois à la fois, toutes les trois chercheront à fermer. Jusqu'à manquer de cases à fermer. »
+
+Le dernier androïde regarda les trois lignes de la paroi, puis, une à une, les directions qu'elles indiquaient.
+
+En haut.
+Sur le côté.
+En bas.
+
+L'androïde ne se rangea d'aucun côté.
+
+Seorin redécoupa les axes.
+
+« Sion, une vieille machine. À gauche. Ater. En haut. Jiwoo et l'androïde, de face. Sans entrer. Ne toucher que la ligne qui se lit en premier. »
+
+« Laquelle se lit en premier ? »
+
+C'était Han Jiwoo.
+
+« Celle du milieu. »
+
+Kael répondit.
+
+« C'est toujours le milieu. »
+
+La rangée du milieu, parmi les cases qu'il regardait, était éteinte, et pourtant un peu plus claire que les autres.
+
+« Pourquoi le milieu ? »
+
+Sion avait demandé.
+
+« Parce que les gens vont au milieu. »
+
+Kael répondit encore.
+
+« La seconde l'a dit. En bas. En haut, c'est pareil. »
+
+Les yeux sur la rangée du milieu, Sion sentit ses pieds vouloir y aller d'eux-mêmes ; il se plaça exprès sur le côté.
+
+« Et toi ? »
+
+Seorin s'adressait à Kael.
+
+« Dehors. L'angle de fermeture. »
+
+Kael répondit.
+
+« Il faut voir par où les cases commencent à se fermer. Si c'est par là où il y a des gens, ça ne va pas. »
+
+Pendant que Seorin hochait la tête, une vieille machine vint se placer à côté de Sion.
+
+« Je marcherai dessus avant vous. »
+
+« Pourquoi ? »
+
+« À cause du poids. Ce qui est lourd est lu en premier. »
+
+« Alors c'est toi qu'on déplacera en premier. »
+
+C'était Sion.
+
+« Si l'on me déplace, je soutiendrai là où j'arriverai. En bas comme en haut. »
+
+Sion la regarda en face : l'œil optique de la machine ne vacilla pas le moins du monde.
+
+« On marche ensemble. Un demi-temps après moi. »
+
+Le mouvement commença.
+
+Sion entra d'une case, d'un pas ordinaire, ni rapide ni dissimulé. La case sous son pied s'alluma faiblement ; au deuxième pas, ce fut la case voisine, et il attendit sans poser le troisième.
+
+La vieille machine entra un demi-temps plus tard ; sous ses pieds lourds, les cases s'allumèrent plus fort, et deux à la fois, parce que ses pieds étaient grands. Quand la paroi lut ce poids, sa lumière descendit de ce côté.
+
+En haut, Ater posa ses deux paumes sur la paroi, puis les retira. La paroi s'éclaira de deux formes de main.
+Il se déplaça de deux pas et les reposa. Deux encore.
+La ligne en haut de la paroi oscilla en suivant ces formes de main, vers le haut, sur le côté.
+
+Le dernier androïde se tint de face, sur la rangée du milieu, juste devant la première case, sans y entrer, à l'endroit même où la lecture allait commencer ; Han Jiwoo se plaça à côté, un pas en arrière.
+
+« Là. Ne va pas plus loin. »
+
+L'androïde s'arrêta. Personne n'avait marché dessus, et pourtant la case du milieu s'alluma.
+Pour compter l'androïde.
+
+La lumière de la chambre de classification se répandit, mince, dans tout le couloir, et les filets lumineux au bas des parois se divisèrent en trois branches. Les lignes au sol devinrent trois elles aussi et coulèrent dans des directions différentes : l'une vers Sion, l'une vers Ater, l'une vers le milieu.
 Serakion classait.
 
-Sion le vit.
+Sion vit que la ligne de guidage de gauche et la ligne de blocage frontale cherchaient toutes deux à occuper la même case. C'était la case juste à côté de son pied ; les deux lignes s'y superposèrent et s'y figèrent.
 
-La ligne de guidage gauche et la ligne de blocage frontale tentèrent un instant d'occuper la même case.
+« Maintenant ! »
 
-« Maintenant ! » dit Sern presque en criant.
+Sern cria.
 
-À ce mot, le dernier androïde apparut très brièvement sur la ligne latérale.
+Le dernier androïde avança d'un demi-pas sur la première case, et l'œil optique, avec la ligne pâle du visage, passa au-dessus de la case.
+La case lut l'androïde.
 
-La réaction de son œil optique.
+Allumée.
+Éteinte.
+Allumée de nouveau.
 
-Les traits pâles de son visage.
+Impossible de décider à quel titre compter.
 
-Et cet être que Serakion ne parvenait pas à classer jusqu'au bout.
+La chambre de classification commença à se fermer.
 
-Quand cette entrée finale arriva, la chambre tenta de fermer trop de cases à la fois.
+Les cases se fermèrent du côté de Sion, du côté d'Ater, au milieu, toutes à la fois, beaucoup trop.
+Les cases qui se fermaient heurtaient d'autres cases qui se fermaient ; les lumières se superposaient, et là où elles se superposaient, tout devenait blanc.
 
-Alors, au contraire, un passage central qui devait mener à l'intérieur se libéra.
+Sous les pieds de Sion, la case voulut se fermer, et la lumière lui monta jusqu'aux chevilles.
+Il retira le pied.
+La case voisine.
+Là aussi, la lumière monta.
+La vieille machine lui saisit le bras et le tira dans sa propre case ; la lumière s'arrêta aux chevilles de la machine. C'était trop lourd pour qu'elle monte plus haut.
 
-Les cases au sol de ce passage s'éteignirent toutes à la fois. C'était un sol qui ne lisait plus rien.
+Alors, au milieu, un passage se libéra.
 
-En voulant fermer la cage parfaite, le système venait d'ouvrir lui-même un chemin vivant.
+C'était le passage qui menait le plus loin à l'intérieur ; ses cases s'éteignirent toutes à la fois, et un sol qui ne lisait plus rien, une bande sombre, s'étira jusqu'au bout.
 
-Seorin ne manqua pas cet instant.
+Kael le vit depuis l'extérieur et parla.
+
+« Ça se ferme par l'extérieur. Le milieu se vide. »
+
+Seorin regarda la bande sombre et parla.
 
 « On prend l'intérieur. »
 
-Sion et l'ancienne machine s'engouffrèrent presque ensemble sur les cases éteintes. Pour la première fois, le sol sous leurs pieds était silencieux.
+Sion et la vieille machine posèrent le pied en même temps sur les cases éteintes : sous eux, rien ne s'alluma, tout resta silencieux. Sion baissa un instant les yeux sur ses pieds, posés sur les cases sombres, puis se mit à courir ; sous ses pieds qui couraient, rien ne s'alluma non plus.
 
-Ater emmêla davantage la ligne de guidage supérieure, et Seorin porta une attaque retardée d'une demi-mesure pour empêcher la légion qui suivait de se reclassifier de la même manière.
+Une case.
+Deux cases.
+Trois.
 
-Les murs de Serakion tremblèrent très bas.
+Il cessa de compter : la bande sombre restait sombre jusqu'au mur, jusqu'au bout.
 
-Les lumières d'annonce restaient polies, mais dans cette politesse se mêlait désormais quelque chose comme une hâte infime.
+Ater posa ses deux paumes sur la paroi et tordit encore une fois la ligne de guidage du haut ; la ligne partit de ce côté. Pendant ce temps, Seorin frappa du dos de son épée les deux unités qui suivaient de face, pour les retarder d'un demi-temps ; debout sur des cases allumées, toutes deux furent lues comme des unités du camp de Serakion, et les cases se refermèrent sur elles. Les deux unités se retrouvèrent enfermées dans les cases, dans la cage de leur propre camp.
 
-En les regardant, Sion comprit combien cette perfection détestait ce qui vit.
+Han Jiwoo tira le dernier androïde par le bras.
 
-Un chemin vivant est toujours imprévisible.
+« Maintenant. »
 
-Quelqu'un arrive en retard, quelqu'un tremble, quelqu'un retient, quelqu'un fait même un mauvais choix.
+L'androïde leva le pied de la première case ; la case s'éteignit sans avoir achevé son compte.
 
-Serakion ne supporte rien de tout cela.
+Quand l'androïde entra dans la bande sombre, un bruit monta de l'axe d'épaule, mais le sol sombre ne lut pas non plus ce bruit. Tandis que Han Jiwoo se collait derrière, Kael entra de l'extérieur et Ater descendit d'en haut ; Sern fut le dernier.
 
-D'où cette division sans fin, ce rangement sans fin, cette volonté sans fin de fabriquer une cage plus parfaite.
+Les parois frémirent très bas, puis la lumière de guidage vint.
+« Reprise de la classification. »
+C'était poli, mais plus rapide qu'avant, et les silences entre les mots étaient plus courts.
 
-Et c'est précisément à cause de cette obsession que la deuxième porte finit elle aussi par tomber.
+Sion courut jusqu'au bout de la bande sombre en entendant cette voix ; la paroi du fond se replia pour s'ouvrir, et il entra.
 
-Quand Sion se retourna, dans la chambre de classification que le groupe venait de quitter, les filets lumineux se divisaient toujours en trois branches.
+Il se retourna.
 
-Ils divisaient les cases vides, une à une, poliment.
+Dans la chambre de classification, les filets lumineux restaient divisés en trois branches et répartissaient poliment, une à une, les cases vides où il n'y avait personne. Les deux unités de Serakion se tenaient immobiles dans les cases allumées.
+C'était leur place.
+
+Sern écrivit sur le panneau d'enregistrement.
+
+« Cela fait deux. »
+
+Il poursuivit.
+
+« Deux unités de leur camp sont enfermées dans leurs propres cases. »
+
+« On les sort de là ? »
+
+Kael l'avait dit sans même sourire.
+
+« C'est impossible. »
+
+Sern répondit.
+
+« Leur camp ne les en sortira pas. Leur place est fixée. »
+
+« Et elle est où, cette place ? »
+
+« Je l'ignore. C'est une numérotation de leur camp. »
+
+Sern continua.
+
+« Pour un humain, ce serait en haut ou en bas. Celles-là appartiennent à leur camp : même leur camp ne doit pas savoir où les envoyer. »
+
+Kael regarda les deux unités immobiles dans les cases allumées.
+
+« Alors elles restent plantées là ? »
+
+« Elles y resteront jusqu'à ce que ce soit décidé. »
+
+Han Jiwoo regardait les deux unités, ces surfaces sans visage dans les cases allumées, sans détourner les yeux. Le dernier androïde les regarda aussi ; l'œil optique s'y attarda un long moment.
+
+Un temps.
+Deux.
+
+« On y va. »
+
+C'était Seorin.
+
+L'androïde regarda encore un temps, puis se détourna ; un bruit monta de l'axe d'épaule. Le couloir intérieur ne renvoya pas ce bruit.
 
 ---
 

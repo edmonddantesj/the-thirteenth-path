@@ -34,8 +34,6 @@ Luhai shrugged.
 
 "I don't own it, but I can be somebody who likes it, right?"
 
-He tossed it off lightly, but oddly it did not sound like empty words.
-
 Sion turned that over, and in the end he asked.
 
 "What's so good about it."
@@ -141,19 +139,17 @@ Luhai shrugged.
 
 Seorin glanced at him.
 
-"Big talk for somebody who's had one day here."
+"Big talk for a kid."
 
 Luhai did not laugh right away this time. He spoke a little more quietly instead.
 
-"Some things you see better because it's only been a day,"
+"Some things you see better because you're a kid,"
 he said.
 "People from outside all see this place as filthy and loud and dangerous. But even in a place like that, there's stuff nobody threw away, stuff they kept to the end."
 
 He looked at a tent at the end of the alley, where half-broken pieces of glass hung like candles.
 
 "I like places like that."
-
-He meant it far more than anyone would have expected.
 
 The moment he heard it, Sion thought he understood a little why Luhai was proud of this place.
 

@@ -2,7 +2,7 @@
 
 La décision de partir pour l'Empire fut prise plus vite que prévu.
 
-Mais le fait qu'elle fût prise ne voulait pas dire qu'ils pouvaient partir aussitôt.
+Le fait qu'elle fût prise ne voulait pas dire pour autant qu'ils pouvaient partir aussitôt.
 
 Dans le vaisseau, il y eut d'abord une direction. Puis un silence très court, inconfortable.
 
@@ -94,23 +94,7 @@ Luhai eut l'air profondément déçu.
 
 Ensuite, il regarda Serakion.
 
-« Serakion, est-ce que tu… »
-
 Serakion soutint silencieusement son regard.
-
-Luhai acquiesça aussitôt pour lui-même.
-
-« Ah, c'est vrai. Tu ne peux pas parler. »
-
-Puis il fit immédiatement un geste.
-
-« Alors essaie juste de toucher. Comme ça… comme ça, non ? »
-
-Serakion ne bougea pas.
-
-Luhai traça tout seul diverses choses dans l'air avec ses doigts, puis finit par abandonner.
-
-« Hm. Pas ça non plus. »
 
 Vint ensuite Jiwoo.
 
@@ -156,7 +140,7 @@ Luhai réfléchit brièvement, puis se frappa encore le genou.
 
 Cette fois, personne ne répondit.
 
-Mais Luhai prit ce silence pour un accord.
+Luhai prit ce silence pour un accord.
 
 « Je le savais. »
 
@@ -224,7 +208,7 @@ Sous le plancher du vaisseau, un tremblement se répandit comme si des lignes lo
 
 Une fois. Puis encore.
 
-Quelque part dans une ligne d'énergie restée immobile comme la mort, le son de quelque chose qui se reconnectait très faiblement.
+Quelque part dans une ligne d'énergie jusque-là assoupie, le son de quelque chose qui se reconnectait très faiblement.
 
 Aka fut la première à retenir son souffle.
 
@@ -288,7 +272,7 @@ Le vaisseau partit ainsi.
 
 Quel mot de Luhai exactement avait reçu une réponse, s'il avait vraiment été la clé, ou si quelque chose d'inconnu de tous s'était simplement réveillé à ce moment-là, Luhai lui-même ne le saurait sans doute jamais.
 
-Mais avant que la ligne de départ ne se stabilise complètement, un court poste passa sous la fenêtre latérale.
+Après un temps de navigation, alors qu'approchait la ligne d'entrée du périmètre, un court poste passa sous la fenêtre latérale.
 
 Moins une station qu'un petit poste d'attente d'approbation accroché au périmètre extérieur de l'Empire.
 

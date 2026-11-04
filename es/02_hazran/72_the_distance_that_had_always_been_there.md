@@ -69,7 +69,7 @@ Aquella frase corta, por raro que fuera, se le quedó mucho tiempo.
 
 Solo entonces Sion la miró.
 
-Seorin caminaba mirando al frente. La cara indiferente de siempre. Pero aquella indiferencia parecía decir mejor que nada cuánto tiempo llevaba a su lado viendo todas esas caras.
+Seorin caminaba mirando al frente. La cara indiferente de siempre. Aquella indiferencia parecía decir mejor que nada cuánto tiempo llevaba a su lado viendo todas esas caras.
 
 A un lado del callejón había una tienda pequeña hecha superponiendo varias capas de tela fina. Cada vez que el viento la rozaba, entre las telas temblaban muy levemente trozos de vidrio e hilos de metal. Dentro colgaban finos cordones térmicos para atarse a la muñeca, retazos de tela aislante del calor, fundas para odres de agua y pequeños abalorios que a primera vista parecían inútiles, pero llevaban encima la huella de haberse llevado mucho tiempo.
 
@@ -233,10 +233,6 @@ El cordón fino de la muñeca no era gran cosa. Ni era caro, ni era raro, ni era
 No: una de esas cosas no era cierta. Acababa de oír que, sin él, la muñeca se cuece.
 
 Y en el bolsillo de Seorin había uno de medio año.
-
-Por raro que fuera, tuvo la sensación de que aquellos dos iban a quedarle más tiempo que todo el bazar de esta tarde.
-
-Como una distancia que siempre había estado ahí y que solo ahora se veía.
 
 ---
 

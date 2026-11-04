@@ -112,7 +112,7 @@ Elia enchaîna aussitôt.
 « Si tu embarques quelqu'un qui n'est venu qu'à moitié, c'est lui qui trahit le premier en route. »
 
 À ces mots, Seorin jeta un bref regard à Sion.
-Sion fit mine de ne rien remarquer, mais tous deux le savaient. Ces mots ne s'adressaient pas qu'à Ater. Ils voulaient dire que, dans cette pièce, quiconque garderait la moitié de son cœur en retrait, c'était fini.
+Sion fit mine de ne rien remarquer, mais tous deux le savaient. Ces mots ne s'adressaient pas qu'à Ater.
 
 Sern prit calmement la parole.
 
@@ -133,8 +133,6 @@ Sern ne montra aucune expression particulière, même à cette remarque.
 Sion décroisa les bras et demanda :
 
 « Alors, qui porte le fragment ? »
-
-Ce n'était pas une question à prendre à la légère.
 
 Le fragment resté là où l'Archiviste était mort.
 Le résidu où survivait le nom de Jun Aster.

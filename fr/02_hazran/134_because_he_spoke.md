@@ -1,210 +1,250 @@
-# Chapitre 134 — Parce qu’il avait parlé
+# Chapitre 134 — Parce qu'il avait parlé
 
-Quand le matin arriva,
-avant de confirmer que la nuit était bien passée,
-Sion vérifia d'abord si les marques qu'il avait faites pendant la nuit étaient toujours là.
+Quand le matin vint, Sion vérifia d'abord ce qu'il avait marqué pendant la nuit.
 
-Le jeune homme qui était sur le point de s'effondrer contre le mur
-n'avait toujours pas l'air bien, mais au moins il n'était pas seul.
+En dépliant la planchette à points, il vit cinq points. Deux personnes, deux machines, et Kael.
 
-La femme qui avait failli tomber à côté des enfants
-avait réussi à fermer brièvement les yeux et se relevait.
-Mais cette fois, quelqu’un était assis à côté d’elle.
+Le jeune homme adossé au mur n'avait pas encore bonne mine, mais à côté de lui se trouvait toujours la personne restée assise là toute la nuit. Aucun des deux ne dormait, aucun des deux ne parlait. La main de l'homme avait quitté le sol à côté de lui et reposait sur ses genoux.
 
-Et la machine qui avait hésité lors de l'organisation du signal
-gardait un œil optique ouvert pendant l'entretien du matin,
-et continuait malgré tout de transmettre ses données.
+La femme qui avait failli s'effondrer près des enfants avait fermé les yeux, ne fût-ce qu'un peu, puis s'était relevée et pliait de nouveau du tissu. Ses mains, qui dépliaient et repliaient, ne tremblaient pas. À côté d'elle était assise la femme au visage fatigué, un enfant sur les genoux.
 
-Rien n’a été entièrement réparé.
-Mais au moins
-rien ne s'était aggravé pendant la nuit.
+La machine qui s'était figée en plein tri des signaux gardait un œil optique ouvert et recevait sur le genou la main d'une autre machine. C'était un entretien ; tout en le recevant, elle faisait défiler l'écran de son autre main.
 
-Sion le vit et se sentit étrangement plus fatigué.
+La machine à l'articulation déboîtée se tenait devant Han Jiwoo. Accroupie, Han Jiwoo ouvrait le genou dont l'axe était sorti d'une demi-phalange.
 
-Plus que le soulagement de voir que tout avait tenu,
-ce furent les scènes qui auraient tourné autrement, s'il avait été juste un peu en retard, qui lui revinrent en premier.
+Kael dormait, adossé au mur. C'était l'endroit où Sion avait pris la relève pendant la nuit, et Sion venait de céder la place à Sern.
 
-Mais c'est précisément pour cela que
-les gens de cette vieille couche semblaient eux aussi avoir lu la différence entre la nuit et le matin.
+Tout n'allait pas parfaitement bien. Simplement, rien ne s'était brisé davantage pendant la nuit.
 
-Personne n'a dit merci en premier.
-Cela n’a jamais été un endroit où ces mots sont faciles.
+Sion replia la planchette et la cala sous son bras. La fatigue lui gagnait les épaules, mais il ne les fit pas rouler.
 
-Au lieu de cela,
-le regard des gens avait très légèrement changé.
+Personne ne dit merci le premier. Ce n'était pas un endroit où l'on offrait facilement ce genre de mot.
 
-Du regard qu'on pose sur un parfait inconnu
-à celui, au moins, qu'on pose sur *quelqu'un qui sait s'y prendre*.
+Mais le regard des gens avait changé. Les yeux qui, la veille, ne le suivaient pas le suivaient quand Sion passait. Quelqu'un hocha très légèrement la tête, mais Sion ne rendit pas le signe et continua de marcher.
 
-Sion sentait que la différence était en réalité plus lourde.
+Alors que le rangement du matin battait son plein, la femme au visage fatigué s'approcha.
 
-Parce que les attentes entraînent toujours des responsabilités.
+Elle se plaça à côté de Sion et tendit la main pour demander la planchette ; Sion la lui donna. Du doigt, elle toucha un à un les cinq points notés pendant la nuit.
 
-Lors du nettoyage du matin,
-la femme humaine qui l'avait appelé la veille s'approcha à nouveau.
-
-Elle resta un moment à côté de Sion,
-elle regarda une fois les marques qu'il avait faites pendant la nuit et parla à voix basse.
-
-« Deux d'entre eux sont allés moins loin. »
+« Y en a deux qui sont allés moins loin. »
 
 Sion la regarda.
 
-La femme ajouta, sans croiser son regard :
+La femme ajouta sans croiser son regard.
 
-« Si tu n'avais pas parlé hier soir,
-ce matin, l'un aurait vraiment éclaté,
-et l'autre se serait complètement fermé. »
+« Si t'avais rien dit hier soir, ce matin, l'un aurait vraiment explosé, et l'autre se serait complètement fermé. »
 
-Ce n’était pas un éloge.
-Mais justement pour cela,
-cela ressemblait à une reconnaissance plus juste.
+« Lequel ? »
 
-demanda Sion à voix basse, après un long moment.
+Les cinq points sur la planchette n'avaient pas bougé.
 
-« Le côté machine aussi ? »
+« Ça, t'as pas besoin de le savoir. »
+
+La femme lui rendit la planchette.
+
+« Puisque ça a pas explosé. »
+
+Elle regarda Sion. Pour la première fois, elle croisa son regard.
+
+« Ce soir, on regarde à deux. »
+
+« Avec qui ? »
+
+« Avec moi. »
+
+« Qui me regarde, moi ? »
+
+La femme resta un instant sans parler.
+
+« Moi. Et toi, tu me regardes. »
+
+Sion hocha la tête. La femme n'en dit pas plus.
+
+Ce n'est que longtemps après que Sion demanda à voix basse :
+
+« Les machines aussi ? »
 
 La femme hocha brièvement la tête.
 
-« Quand les gens s'effondrent, ça se voit. »
-« Eux, on s'en aperçoit plus tard. »
+« Les gens, quand ils cèdent, ça se voit. Elles, on s'en aperçoit plus tard. »
 
-Ces paroles ramenèrent Sion aux scènes de la nuit.
+Du menton, elle désigna le genou que Han Jiwoo était en train d'ouvrir.
 
-La machine qui marchait avec un joint glissé.
-La machine dont la vision s'était éteinte un instant et qui avait simplement continué son chemin.
+« Ça, si t'avais rien dit, ça aurait plié en marchant aujourd'hui. »
 
-Cette ancienne couche ressemblait à un endroit où il y a moins de mensonges, c'était vrai.
-Mais cela ne voulait pas dire qu’elle était totalement honnête.
-Cela voulait plutôt dire qu'on n'y faisait pas semblant d'être complet dans le même sens.
+Sion regarda le genou : la main de Han Jiwoo y enfonçait l'axe, non pas d'un coup, mais en poussant un peu puis en s'arrêtant, encore et encore.
 
-Ici, on ne ment pas sur l'éternité.
-Au lieu de cela,
-ils mentent sur leur capacité à tenir un peu plus longtemps.
+« Et si ça plie en marchant ? »
 
-Aka surveillait également les couloirs bloqués ce matin-là.
+« Elle se relève pas. Pas ce corps-là. »
 
-Sion lui jeta un bref coup d'œil,
-puis remarqua que deux machines qui se déplaçaient à proximité
-étaient en fait en train d'ouvrir et de vérifier une section de mur indiquée par Aka.
+« Alors ? »
 
-Ce qui, la veille encore, n'avait suscité qu'une réaction
-devenait aujourd’hui une véritable vérification.
+« Alors elle reste là. Jusqu'à ce qu'une autre machine l'emporte. »
 
-Aka semblait le voir aussi.
-Elle dit, tout bas.
+« Et si on l'emporte ? »
 
-« Maintenant, ils écoutent. »
+« Elle devient des pièces. »
 
-Cette seule phrase contenait, étrangement,
-une fatigue plus profonde que la joie.
+La femme le dit sans regarder Sion.
 
-La fatigue que seul peut porter celui qui voit toujours en premier,
-qu'on ne croit jamais tout de suite,
-et qu'on vérifie toujours un peu trop tard.
+Sion regarda la main de Han Jiwoo. L'axe entra jusqu'au bout.
 
-Le côté de Jiwoo était similaire.
+La femme partit sans rien ajouter.
 
-Une partie de l'équipement qu'elle avait maintenu en vie toute la nuit
-ne pouvait pas être dit en état normal, mais tiendrait au moins un jour de plus.
+Ce matin-là encore, Aka regardait du côté du couloir bouché.
 
-Une vieille machine le constata et dit, très brièvement :
+Quand Sion regarda vers elle, deux machines, tout près, ouvraient la partie du mur qu'Aka avait désignée, l'endroit où la rouille était moindre. L'une suivait la ligne de jointure du bout du doigt, pendant que l'autre regardait derrière elle.
 
-« Vous avez reporté le point d'élimination. »
+Jusqu'à la veille, elles ne faisaient que regarder ; aujourd'hui, elles y mettaient la main.
 
-Jiwoo s'essuya le front avec le dos de sa main et répondit.
+Aka le vit aussi et dit tout bas :
 
-« Ça a toujours été le travail. »
+« Maintenant, elles écoutent. »
 
-Mais juste après ces mots,
-son expression se resserra, très légèrement.
+Sion la regarda. Aka avait les épaules basses, et ne quittait pas le mur des yeux.
 
-*Point d'élimination.*
+« Elles écoutent tard. »
 
-Que ce soit dans le Serakion ci-dessus
-ou dans cette ancienne couche,
-ce monde fonctionne en fin de compte en décidant quand conserver quoi plus longtemps.
+Elle ajouta.
 
-Mais ici, au moins,
-ils ont cherché le point qui pouvait être différé avant celui du rejet.
+« Toujours. »
 
-Cette différence semblait être ce qui retenait encore Jiwoo ici.
+Sion ne répondit pas.
 
-Luhai avait l'air fatigué depuis le matin.
-Mais bizarrement,
-le côté des enfants avait commencé à le chercher en premier.
+Une machine arrêta sa main au bout de la ligne de jointure et regarda l'autre ; toutes deux regardèrent ensemble cet endroit.
 
-Du jour au lendemain,
-leurs corps semblaient s'être rappelés qui était la personne qui resterait jusqu'au bout.
+Han Jiwoo referma le genou, et la machine le déplia.
 
-Luhai fit semblant de ne pas le remarquer et marmonna.
+Un pas. Pas de bruit. Deux pas. Rien.
 
-« Ce n'est pas mon truc. »
+La machine s'arrêta, baissa les yeux sur son propre genou, puis regarda Han Jiwoo.
 
-Un humain à proximité répondit avec désinvolture.
+« Marche un peu. »
 
-« Les gens dont c'est vraiment le truc ne disent jamais ça. »
+C'était Han Jiwoo.
 
-Seorin regarda la scène et laissa échapper un ricanement à peine audible.
-Kael se trouvait déjà dans une soute qui semblait sur le point de s'effondrer.
-Sern apportait de nouveaux changements aux flux de signaux qu'il avait organisés toute la nuit.
+La machine fit cinq pas en appuyant bien sur le sol, puis revint. Aucun bruit.
 
-Et Sion sut
-que sa part avait véritablement commencé.
+« Encore. »
 
-La nuit précédente tenait plutôt de l’épreuve.
-Mais depuis ce matin,
-ce qu'il avait dit en premier
-était en fait utilisé pour laisser quelqu'un se reposer,
-déplacer quelqu'un,
-ouvrir une machine,
-pour inspecter un couloir.
+La machine fit dix pas, puis revint. Au demi-tour, le genou hésita une fois.
 
-Les mots changeaient les jugements.
+« J'ai vu. Ça, ce sera pour demain. »
 
-C'était bien plus lourd que prévu.
+Le doigt de Han Jiwoo tapota l'endroit du genou qui avait hésité.
 
-Un peu plus tard,
-la vieille machine l'a rappelé.
+La machine hocha la tête. Un hochement qui avait compris le mot « demain » ; Han Jiwoo, après avoir vu ce hochement, ramassa ses outils et les mit dans sa sacoche.
 
-Il avait l'air plus fatigué que la veille.
-Un œil optique était plus flou qu’hier.
+Une des vieilles machines vit cela et dit, très brièvement :
 
-Mais la voix était toujours sèche.
+« Vous avez repoussé l'heure de la mise au rebut. »
+
+Han Jiwoo répondit en s'essuyant le front du dos de la main.
+
+« C'est justement ça, mon travail. »
+
+Juste après ces mots, sa main s'arrêta, le dos encore posé contre son front.
+
+L'heure de la mise au rebut.
+
+Elle baissa la main et rangea ses outils un à un dans la sacoche ; ses mains les rangeaient plus lentement que d'habitude.
+
+Comme la machine réparée restait encore devant elle, Han Jiwoo leva les yeux.
+
+« Va. »
+
+La machine se retourna et s'en alla sans bruit. Han Jiwoo regarda son dos jusqu'au bout.
+
+Luhai avait l'air fatigué dès le matin.
+
+L'enfant qui avait couru vers le couloir la veille s'accrochait à sa jambe ; Luhai avait beau secouer la jambe, l'enfant ne lâchait pas. Pendant ce temps, un autre enfant vint s'accrocher à l'autre jambe.
+
+Luhai resta debout, un enfant à chaque jambe.
+
+« C'est pas dans ma nature, ça. »
+
+Une humaine tout près répondit d'un ton détaché. C'était la vieille femme.
+
+« Ceux qui ont ça dans leur nature, d'habitude, le disent pas comme ça. »
+
+Luhai regarda la vieille femme, mais elle ne le regardait pas et continuait de plier du tissu comme avant.
+
+Sans lâcher sa jambe, l'enfant leva les yeux.
+
+« T'es là aujourd'hui aussi ? »
+
+« Je suis là. »
+
+Luhai répondit.
+
+« Et demain ? »
+
+Luhai ne sut pas répondre tout de suite. La vieille femme arrêta les mains qui pliaient le tissu.
+
+« Pour demain, tu demanderas demain. »
+
+C'était Luhai.
+
+L'enfant serra sa jambe encore plus fort.
+
+Seorin, qui regardait la scène, eut malgré elle un petit ricanement, puis referma la bouche.
+
+Réveillé, Kael décolla son dos du mur, se leva et alla devant le compartiment de charge qui menaçait de s'effondrer, là où il s'était tenu la veille. En regardant son dos, Sion déplia la planchette et regarda le point de Kael. Il n'effaça pas ce point.
+
+Pendant que Sern ajoutait les points nouvellement changés sur le flux de signaux qu'il avait mis en ordre toute la nuit, la machine qui avait ouvert le chemin marquait des points à côté de lui. Leurs points tombèrent au même endroit. Sern le vit, et la machine aussi.
+
+« Il s'agit du même endroit. »
+
+C'était Sern.
+
+« C'est le même endroit. »
+
+La machine répondit.
+
+« Pour quelle raison ? »
+
+« Parce qu'on a vu la même chose. »
+
+Quand Sern marqua le point suivant en dessous, la machine marqua le sien à sa suite. Au même endroit.
+
+Un peu plus tard, la vieille machine appela Sion près du pilier.
+
+Elle paraissait plus épuisée que pendant la nuit ; l'un de ses yeux optiques était plus trouble que la veille. Son corps debout penchait un peu vers le pilier, sans toutefois le toucher.
 
 « À partir d'aujourd'hui, ne regardez pas seulement les gens. »
 
-Sion l'a regardé.
+Sion la regarda.
 
-La vieille machine continuait, très calmement.
-« Il faut aussi surveiller les effondrements du côté de la machine. »
-« Ici, si on laisse un seul des deux s'effondrer,
-les deux finissent par tomber ensemble. »
+La vieille machine poursuivit calmement.
 
-Ces mots semblaient expliquer toute cette vieille couche en une seule phrase.
+« Il faut aussi surveiller l'effondrement du côté des machines. Ici, si l'on laisse s'effondrer l'un des deux seulement, à la fin, tout s'effondre ensemble. »
 
-Un endroit où les hommes et les machines ne peuvent pas se faire entièrement confiance.
-Mais un endroit où si un seul des deux se brise en premier,
-l'autre ne peut pas tenir non plus.
+Sion déplia la planchette et lui montra les deux points tracés la veille au soir aux places des machines.
 
-Sion hocha la tête, très lentement.
+« Je les ai tracés hier. »
 
-Ses nuits seraient plus longues maintenant.
+L'œil optique de la vieille machine s'attarda longuement sur ces points.
 
-Et probablement,
-lire vraiment cette communauté
-ne consisterait pas seulement à lire les visages humains,
-mais aussi l'usure, les arrêts et le silence des machines.
+« Qui vous a dit de les tracer ? »
 
-La lumière du matin n'a pas correctement atteint cette ancienne couche,
-mais on pouvait au moins dire que l'obscurité s'était très légèrement éclaircie.
+« Personne. »
 
-Et dans cette lumière trouble, Sion pensa,
-pour la première fois :
+« Alors cette planchette est désormais la vôtre. »
 
-Ce n'est pas simplement un lieu de survie.
-Grâce à ceux qui parlent en premier,
-c'est un endroit qui s'effondre un peu moins tard.
+La vieille machine se détourna, se détacha du pilier et fit un pas en avant.
+
+Sion entendit ce bruit. Le genou. Au même endroit que la machine réparée par Han Jiwoo. Il déplia la planchette et chercha la place de la vieille machine, mais il n'y avait pas de point. Aux places des machines, il n'y en avait jamais eu.
+
+Il posa l'ongle à cet endroit, attendit longtemps, puis traça.
+
+Il replia la planchette et regarda du côté de Han Jiwoo. Elle s'asseyait devant la pièce suivante.
+
+La machine réparée était revenue devant elle ; dans sa main, une pièce neuve, de la même norme que celle que Han Jiwoo avait mise dans le tas d'à côté. La machine la posa devant Han Jiwoo, puis, sans rien dire, se retourna et s'en alla sans bruit.
+
+Han Jiwoo prit la pièce, la fit tourner dans sa main, et la posa sur le tas de devant.
+
+Sion marcha vers elle.
 
 ---
 

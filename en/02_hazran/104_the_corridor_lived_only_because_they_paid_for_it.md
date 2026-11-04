@@ -182,7 +182,7 @@ Sion waited for what came next.
 
 Zahir didn't say it. His face was waiting for Sion to say it.
 
-Standing there, Sion felt something catch. Not something from today. Something he'd heard days ago.
+Standing there, Sion felt something catch. Something he'd heard earlier.
 
 He remembered someone below the ramp shifting a metal plate half a hand's width.
 

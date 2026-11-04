@@ -69,7 +69,7 @@ Ces quelques mots restèrent étrangement longtemps.
 
 Alors seulement, Sion la regarda.
 
-Seorin marchait les yeux devant elle. Son visage indifférent, comme toujours. Mais cette indifférence même semblait mieux dire depuis combien de temps elle voyait, à côté de lui, toutes ces expressions-là.
+Seorin marchait les yeux devant elle. Son visage indifférent, comme toujours. Cette indifférence même semblait mieux dire depuis combien de temps elle voyait, à côté de lui, toutes ces expressions-là.
 
 D'un côté de la ruelle se trouvait une petite boutique faite de plusieurs couches de tissu fin superposées. Chaque fois que le vent passait, des éclats de verre et des fils métalliques frémissaient très faiblement entre les toiles. À l'intérieur pendaient de minces cordons thermiques à nouer au poignet, des morceaux de toile isolante, des housses de gourde, et de petits ornements qui semblaient inutiles au premier regard mais portaient la trace d'avoir été longtemps portés sur soi.
 
@@ -233,10 +233,6 @@ Le mince cordon à son poignet n'était pas grand-chose. Pas cher, pas rare, et 
 Non, une de ces choses était fausse. Il venait d'entendre que, sans lui, le poignet cuisait.
 
 Et dans la poche de Seorin, il y en avait un, bon pour six mois.
-
-Étrangement, il eut le sentiment que ces deux-là lui resteraient plus longtemps que tout le bazar de ce soir.
-
-Comme une distance qui avait toujours été là, et qu'il ne voyait que maintenant.
 
 ---
 

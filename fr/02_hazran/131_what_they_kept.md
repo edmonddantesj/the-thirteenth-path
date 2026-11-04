@@ -1,272 +1,248 @@
-# Chapitre 131 — Ce qu'ils gardèrent
+# Chapitre 131 — Ce qu'ils ont protégé
 
-Le lendemain,
-l'air de cette couche ancienne était plus calme que la veille,
-mais un peu plus vif.
+Le lendemain, cette vieille couche était plus calme que la veille.
 
-Les pleurs avaient diminué.
-Les gémissements aussi.
-En revanche, la façon dont les gens se regardaient avait changé.
+Les pleurs avaient diminué, les gémissements aussi. La lampe qui avait clignoté toute la nuit était encore allumée ; quelqu'un avait posé un bol d'eau en dessous, et la lumière se reflétait dans l'eau.
 
-Tous portaient à présent le visage de ceux qui savaient
-que cet endroit n'était pas un simple refuge d'un jour.
+Dans un vaste secteur du fond, le groupe de Sion, les gens venus de Hazran, et les humains et les machines qui vivaient depuis longtemps dans cette couche se réunirent de nouveau.
 
-Les survivants restent.
-Ceux qui restent finissent par devoir dire leur part.
+Tout le monde s'assit le long des murs, si bien que le milieu resta vide. Personne ne se tint au milieu.
 
-C'était la manière de faire de cet espace.
+La vieille machine s'était arrêtée un peu à l'écart, à côté d'un pilier. Les regards passaient tour à tour de ce côté ; sans les soutenir, elle regardait le sol tout du long.
 
-Dans une vaste section intérieure,
-le groupe de Sion, les gens de Hazran,
-ainsi que les humains et les machines installés dans cette couche depuis longtemps
-se retrouvèrent de nouveau.
+Elle parla la première.
 
-Personne n'appela cela une réunion,
-mais c'en était clairement une.
+« Nous sommes venus entendre ce dont nous avons parlé hier. Ce que chacun de vous a apporté jusqu'ici sans le perdre. »
 
-La vieille machine se tenait encore légèrement en retrait,
-comme si elle cherchait à ne pas paraître au centre.
+Un bref silence.
 
-Pourtant, étrangement,
-chaque regard finissait par passer par elle une fois.
+Le vieil homme de Hazran retourna la plaque de métal posée sur ses genoux. Les onze traits passèrent dessous, la face vide vint dessus, et il posa la main sur cette face vide.
 
-Elle parla la première :
+Sion posa la main sur sa poche. La plaque qui s'y trouvait portait deux traits.
 
-« Je viens entendre ce qui a été dit hier.
-Ce que chacun de vous a apporté jusqu'ici sans le perdre. »
+Le premier à ouvrir la bouche fut ce vieil homme.
 
-Un court silence.
+Il hésita longtemps, puis parla presque en s'excusant.
 
-Personne ne put répondre tout de suite.
+« Je sais encore cultiver la terre. »
 
-Parce que tous sentaient
-que la question ne portait pas simplement sur des savoir-faire ou des fournitures.
+Après l'avoir dit, il baissa la tête, et la main posée sur la plaque se ferma.
 
-C'était une question plus inconfortable.
+Dans l'espace devenu silencieux, Luhai voulut dire quelque chose, puis se tut.
 
-Ce qu'on n'avait jamais abandonné, jusqu'au bout.
-Ce qu'on avait réussi à ne pas lâcher.
-Ce qu'on avait emporté jusqu'ici pour qu'il ne disparaisse pas.
-
-Sion trouva que cette question ressemblait étrangement
-à la sensation qui était restée en lui au moment de quitter Hazran.
-
-Rien n'était demeuré tout à fait intact.
-Mais il n'était pas non plus venu les mains vides.
-
-Le premier à parler
-fut un vieil homme de Hazran.
-
-Il hésita longtemps,
-puis dit, presque en s'excusant :
-
-« Je sais encore cultiver. »
-
-Après ces mots,
-l'espace devint étrangement plus silencieux.
-
-Ce n'était pas un grand savoir.
-Ce n'était rien qui pût aider au combat dans l'immédiat.
-
-Mais la vieille machine hocha la tête sans hésiter — très légèrement.
+La vieille machine hocha très légèrement la tête. Sa tête mit du temps à descendre et à remonter.
 
 « Cela aussi, c'est quelque chose que vous avez gardé. »
 
-Cette seule phrase
-déplaça le grain de l'air.
+Tandis que l'homme relevait la tête pour regarder la vieille machine, sa main sur la plaque se desserra.
 
-Ce qu'on demandait ici n'était pas l'exceptionnel.
-C'était plutôt un inventaire large de ce qui pouvait encore être maintenu en vie.
+Ensuite, la femme venue avec deux enfants parla à voix basse. Un enfant sur ses genoux, l'autre à côté d'elle.
 
-Puis une femme qui avait amené deux enfants parla à voix basse :
+« Je sais endormir les enfants. Même quand ils n'arrêtent pas de pleurer, je sais comment les faire reprendre leur souffle sans qu'ils aient peur. »
 
-« Je sais endormir les enfants.
-Même quand ils n'arrêtent pas de pleurer…
-comment les laisser reprendre leur souffle sans les effrayer. »
+L'enfant sur ses genoux lui prit la main.
 
 La vieille machine répondit brièvement :
 
 « C'est nécessaire. »
 
-Après cela,
-les mots se mirent à venir un à un.
+À ces mots, la femme au visage fatigué leva la tête et regarda la femme venue avec deux enfants. Quand leurs yeux se croisèrent, la femme au visage fatigué fut la première à hocher légèrement la tête.
 
-« Je peux colmater une gourde fêlée. »
-« Les machines, je n'y connais rien, mais le câblage, un peu. »
-« Je n'ai pas oublié comment lire le vent du désert. »
-« Je sais par où saisir un blessé quand on le déplace. »
+Après cela, les paroles commencèrent à venir une à une.
 
-Des mots sans éclat.
-Mais précisément pour cela,
-le genre de mots qui pouvaient tenir plus longtemps.
+« Une gourde fêlée, je sais la colmater. »
 
-Jiwoo écoutait, et comprit peu à peu
-que cette question ne mesurait pas la valeur des gens.
-C'était une manière de retrouver, à tâtons, les fonctions et les sens qui n'avaient pas disparu.
+C'était l'homme à la jambe bandée de linge, adossé au mur.
 
-Mais en même temps,
-c'était une question qu'elle ne pouvait pas laisser passer à la légère.
+« Les machines, je n'y connais rien, mais remettre de l'ordre dans un câblage, je sais un peu. »
 
-Parce que quand son tour viendrait,
-elle savait déjà ce qu'elle dirait.
+C'était le jeune homme qui avait passé la nuit le dos au mur. Le linge enroulé sur le dos de sa main était neuf ; après avoir parlé, il ferma les yeux.
 
-Le regard de la vieille machine se tourna finalement vers Jiwoo.
+« Lire le vent du désert, je ne l'ai pas encore oublié. »
 
-Jiwoo ne dit rien pendant un moment.
+C'était la vieille femme que Luhai avait poussée jusqu'ici. À ces mots, Luhai la regarda.
 
-Elle baissa les yeux sur ses propres mains.
+« Je sais où il faut tenir une personne blessée quand on la déplace. »
 
-Des mains qu'elle avait réparées un nombre incalculable de fois.
-Agrippées de force.
-Posées sur ce qui allait casser en disant *tiens bon*.
+C'était la personne venue seule : hier, une main avait couvert cette bouche, mais pas aujourd'hui.
 
-Puis elle dit, à voix basse :
+À chaque parole, la vieille machine hochait la tête avec la même profondeur. La terre, la gourde, le vent, les blessés : tous avec la même profondeur.
 
-« Avant d'abandonner complètement quelque chose de cassé,
-je connais le côté qui essaie de le ramener une fois encore. »
+Adossé au mur, le jeune dit tout bas, alors que personne ne lui avait rien demandé :
 
-Les mots étaient courts,
-mais ils restèrent, étrangement, plus longtemps que les autres.
+« … Moi, je ne sais pas encore. »
 
-La vieille machine l'observa longuement, puis dit :
+La vieille machine regarda de ce côté.
 
-« Ici, c'est moins une compétence qu'une attitude. »
+« Cela aussi, nous le gardons. »
 
-Jiwoo plissa légèrement les yeux.
+Le jeune releva la tête.
 
-Ni éloge.
-Ni recrutement.
-Ni classement.
+« Ne pas savoir ? »
 
-Mais pas le genre de chose qu'on pouvait laisser glisser non plus.
+« Avoir dit que vous ne savez pas. »
 
-C'était plus proche
-de la façon dont les êtres restés ici longtemps se reconnaissaient entre eux.
+Comme le jeune n'ajoutait rien, la femme au visage fatigué lui donna une petite tape sur le genou.
 
-Luhai, debout à côté de Jiwoo,
-marqua une très brève hésitation quand son tour arriva.
+La vieille machine regarda la machine qui avait ouvert le chemin.
 
-Il eut d'abord l'air de vouloir tourner la chose en plaisanterie.
-Mais cette fois, il ne le put pas.
+« Les machines parlent aussi. »
 
-Après un long moment, il lâcha :
+La machine qui avait ouvert le chemin répondit après un temps :
 
-« Poursuivre quelqu'un jusqu'au bout pour ne pas le perdre — ça, je sais faire. »
+« Savoir emprunter la voix d'un autre. »
 
-Un court silence.
+Luhai regarda cette machine, et les gens de Hazran aussi. C'était la machine qui les avait tirés de là avec cette voix.
 
-Luhai ajouta, comme pour combler :
+« Ce que vous avez emprunté, l'avez-vous rendu ? »
 
-« Je ne sais pas si je suis doué,
-mais en tout cas, j'essaie de ne pas lâcher. »
+La vieille machine posa la question.
 
-Cette fois, un souffle très ténu vint du côté des humains.
-Pas un rire.
-Plutôt la réaction de ceux qui avaient compris
-à quel point ce genre de capacité était rare.
+« Je l'ai rendu. »
 
-Aka ne dit rien pendant un long moment, même quand son tour arriva.
+La vieille machine hocha la tête. Avec la même profondeur.
 
-Sion pensa qu'elle ne répondrait peut-être pas du tout.
+Sern notait ce qui se disait, une ligne chaque fois, sur son panneau d'enregistrement. Quand Han Jiwoo y jeta un œil, ce n'étaient que des lignes, sans ordre, sans taille, sans aucune marque à côté de ce qui était écrit.
 
-Mais Aka regarda tour à tour les vieilles structures, les gens,
-et les machines qui demeuraient ici,
-puis dit très doucement :
+Le regard de la vieille machine vint vers Han Jiwoo.
 
-« Ce qui est faussé, je le repère. »
+Un instant, Han Jiwoo ne dit rien et baissa les yeux sur ses mains. Des mains qui avaient enroulé des linges la veille, des mains dont la sacoche à outils manquait de deux tournevis.
+
+Elle dit à voix basse :
+
+« Avant de jeter tout à fait ce qui est cassé, je sais essayer de le faire revivre une fois de plus. »
+
+Après l'avoir dit, elle posa les mains sur ses genoux.
+
+La vieille machine la regarda longtemps. L'œil optique irrégulier s'attarda sur ses mains.
+
+« Ici, c'est plus proche d'une attitude que d'un savoir-faire. »
+
+Han Jiwoo plissa un peu les yeux.
+
+« Tu veux dire que c'est mal ? »
+
+« Non. C'est quelque chose qui dure. »
+
+Han Jiwoo ne demanda rien de plus. Elle retourna les mains posées sur ses genoux, paumes vers le haut, et regarda ses paumes.
+
+À côté d'elle, Luhai dit à voix basse :
+
+« Une attitude, à ce qu'il paraît. »
+
+« Tais-toi. »
+
+Han Jiwoo le dit sans quitter ses paumes des yeux.
+
+Luhai se tut, mais les coins de sa bouche restaient relevés.
+
+La machine qui avait ouvert le chemin regardait ces mains, puis toucha la trace sous son cou.
+
+Luhai, debout à côté de Han Jiwoo, prit son temps quand vint son tour. Les coins de sa bouche montèrent une fois, puis redescendirent.
+
+Ce n'est qu'au bout d'un long moment qu'il lâcha :
+
+« Courir après quelqu'un jusqu'au bout pour ne pas le perdre, ça, je sais faire. »
+
+Un bref silence.
+
+Luhai ajouta, sans que ce soit nécessaire :
+
+« Je sais pas si je suis doué, mais en tout cas, j'essaie de ne pas lâcher. »
+
+À ces mots, la vieille femme regarda Luhai, puis baissa les yeux sur son propre poignet. C'était la main que Luhai, la veille, avait gardée sans la lâcher en la poussant.
+
+Le tout petit souffle venu du côté des humains était celui de la femme au visage fatigué, et ce n'était pas un rire. Elle regarda Luhai une fois et baissa les yeux.
+
+Même quand son tour vint, Aka resta un moment sans rien dire.
+
+Elle regarda les vieilles structures, les gens, puis, une à une, les machines restées ici. Les machines soutinrent ce regard, et l'une d'elles se détourna un peu.
+
+Aka dit très doucement :
+
+« Les endroits faux, je les reconnais. »
 
 Personne ne parla tout de suite.
 
-Aka ajouta, un instant plus tard :
+Un peu plus tard, Aka ajouta :
 
-« Et ce qui est fermé depuis longtemps aussi. »
+« Ceux qu'on a fermés longtemps aussi. »
 
-Au moment où ces mots tombèrent,
-le regard de plusieurs machines installées là depuis longtemps
-changea — très légèrement.
+Les yeux optiques de quelques machines présentes depuis longtemps dans cet espace bougèrent. Elles se regardèrent entre elles, puis revinrent à Aka. La vieille machine ne bougea pas, mais sa lumière irrégulière s'attarda longtemps sur Aka.
 
-Sion ne le manqua pas.
+Sion vit cette lumière. Elle resta plus longtemps que sur quiconque.
 
-Ces mots, au moins ici,
-n'étaient pas de ceux qu'on pouvait laisser passer.
-
-Sern dit brièvement :
+Sern parla brièvement :
 
 « Je lis les flux. »
 
-Seorin baissa les yeux un instant,
-puis parla d'un ton posé :
+Il ne leva pas son panneau d'enregistrement pour le montrer ; il le laissa sur ses genoux.
 
-« Ce qui ne doit pas se mélanger —
-je sais le tenir séparé jusqu'au bout. »
+Seorin baissa un instant les yeux, mais sa main n'alla pas vers la poignée de son épée ; les deux mains posées sur les genoux, elle dit :
 
-Pas de mots flamboyants.
-Mais dans cette seule phrase,
-le temps passé à diviser et à retenir les gens, les fournitures et les émotions
-pour empêcher un espace de s'effondrer — tout cela était là, tel quel.
+« Ce qui ne doit pas se mélanger, je sais le garder séparé jusqu'au bout. »
 
-Ater dit :
+Pendant que la vieille machine hochait la tête, la femme au visage fatigué regarda longuement Seorin.
 
-« Je vois d'abord quelles positions tiennent et lesquelles cèdent. »
+Ater prit la parole.
 
-Kael réfléchit longuement,
-puis dit très bas :
+« Je regarde d'abord les endroits qui tiendront et ceux qui céderont. »
 
-« Quand quelqu'un doit tenir jusqu'au bout,
-je peux prendre le côté qui ne cède pas en premier. »
+En parlant, il jeta un regard vers l'issue sombre où il s'était tenu la veille.
 
-Les mots étaient secs, à la manière de Kael.
-Mais Sion les trouva étrangement tristes.
+Kael réfléchit longtemps, serrant et ouvrant ses grandes mains.
 
-Quelqu'un devait être celui qui tient le plus longtemps,
-et Kael avait toujours été celui-là.
+« Quand il faut rester debout jusqu'au bout, je peux être celui qui ne s'effondre pas le premier. »
 
-Enfin, le regard se posa sur Sion.
+Après avoir parlé, il ne regarda personne ; il regarda le sol. Les mains que voyait Han Jiwoo étaient celles qui avaient enroulé les linges la veille.
 
-Sion ne put parler tout de suite.
+« Et toi, tu ne t'effondres pas ? »
 
-La responsabilité.
-La dette.
-Un chemin inachevé.
+Kael releva la tête.
 
-Tout cela était vrai,
-mais le dire tel quel en ce lieu — cela ne semblait pas tout à fait atteindre sa cible.
+« Si je m'effondre, je te le dirai. »
 
-Il n'ouvrit la bouche qu'après un long moment :
+« Avant. »
 
-« Quand il est temps de partir,
-je sais reconnaître ce qui ne partira pas. »
+« … Avant. »
 
-Les mots tombèrent,
-et un court silence s'écoula.
+Han Jiwoo hocha la tête. Kael regarda de nouveau le sol, les mains serrées.
 
-Sion trouva un peu étrange, après coup, ce qu'il venait de dire.
-Mais il ne se corrigea pas.
+Pour finir, les regards se posèrent sur Sion.
 
-Parce que ce qu'il avait tenu jusqu'au dernier moment à Hazran,
-c'était en définitive ce sens-là.
+Sion ne put parler tout de suite ; de la main posée sur sa poche, il appuya sur la plaque de métal. Deux traits. En dessous, rien.
 
-Savoir quand rester.
-Savoir quand partir.
-Et savoir combien de choses s'effondraient quand on se trompait entre les deux.
+Ce n'est qu'au bout d'un long moment qu'il ouvrit la bouche.
 
-La vieille machine ne dit rien pendant un moment.
+« Quand il faut partir, savoir que je ne partirai pas, ça, je le sais. »
 
-Puis, très bas :
+Après l'avoir dit, il entendit ce qu'il venait de dire. Il ne le corrigea pas.
 
-« C'est souvent
-ce qui s'apprend en dernier. »
+Un court silence.
 
-Après cette seule phrase,
-Sion sentit que cette couche ancienne s'était rapprochée d'eux un peu plus que la veille au soir.
+Les yeux sur Sion, le vieil homme de Hazran retourna sa plaque. Les onze traits revinrent dessus.
 
-On ne pouvait pas encore appeler cela de la confiance.
-Mais au moins,
-le fait que personne n'était venu les mains vides — cela, c'était confirmé.
+La vieille machine resta un moment sans rien dire, puis dit très bas :
 
-Et cette confirmation
-ressemblait au premier seuil
-à partir duquel on pouvait décider ce qui serait confié ensuite.
+« C'est souvent ce qui s'apprend en dernier. »
+
+Personne ne répondit.
+
+Une ligne pour chaque personne qui avait parlé : Sern écrivit la dernière sur son panneau d'enregistrement. Il ne compta pas les lignes, et laissa le panneau d'enregistrement ouvert sur ses genoux.
+
+La vieille machine se détacha du pilier et fit un pas en avant.
+
+« À partir d'aujourd'hui, nous nous en servons. »
+
+Elle l'annonça.
+
+Quand le vieil homme se leva, sa plaque à la main, la femme venue avec deux enfants prit un enfant dans ses bras. Luhai tendit la main à la vieille femme, qui la saisit et se leva.
+
+Han Jiwoo, restée assise jusque-là à regarder ses paumes, regarda sa sacoche à outils.
+
+Kael passa devant elle et alla vers l'endroit où étaient posées les choses lourdes. Le dos qu'elle voyait était celui de quelqu'un qui avait promis de le dire avant.
+
+Elle aussi prit une chose lourde et se leva.
 
 ---
 

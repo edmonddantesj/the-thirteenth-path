@@ -72,7 +72,7 @@ Harun nodded once.
 
 That answer closed Sion's throat.
 
-This man had just spent six hours under the stones, and the first thing he asked on coming out was how many trips were left, and the moment he heard, he started calculating.
+This man had just spent four or five hours under the stones, and the first thing he asked on coming out was how many trips were left, and the moment he heard, he started calculating.
 
 "What did you knock with?"
 
@@ -102,7 +102,7 @@ Sion looked at that hand a long time.
 
 That was the third time today Sion had heard that.
 
-This man had kept his own rule alone under the stones for six hours. Which meant he hadn't even known whether anyone was coming. He hadn't known, and he'd kept knocking.
+This man had kept his own rule alone under the stones for four or five hours. Which meant he hadn't even known whether anyone was coming. He hadn't known, and he'd kept knocking.
 
 "Drink some water."
 
@@ -261,7 +261,7 @@ Sion ran.
 
 This time he reached him.
 
-He grabbed Harun's shoulder and dragged him out, and he was lighter than Sion expected. This was a man who had been under the stones for six hours without water.
+He grabbed Harun's shoulder and dragged him out, and he was lighter than Sion expected. This was a man who had been under the stones for four or five hours without water.
 
 "Let go."
 
@@ -293,9 +293,9 @@ Harun was looking that way.
 
 "I said I saw."
 
-Of everything Sion had heard today, those two words were the heaviest.
+Of everything Sion had heard today, those words were the heaviest.
 
-This man had just watched the hands that had dug for him for six hours block the hole in his place. And all he said was that he saw it.
+This man had just watched the hands that had dug for him for four or five hours block the hole in his place. And all he said was that he saw it.
 
 The hole narrowed again. One person's width shrank by half.
 
@@ -333,7 +333,7 @@ That hit Sion square in the chest.
 
 He was right. That ship's door was still open. Because just now this man had paid the price with his own body and wrenched open again what had been about to close.
 
-"Then get one load aboard inside twenty minutes."
+"Then get one load aboard inside twenty minutes," Harun added.
 
 Sion ran for the board.
 

@@ -1,213 +1,169 @@
 # Capítulo 175 — Empezar a cambiar
 
-Que solo quedara un androide
-llegó antes a quienes habían sido empujados atrás y a los niños
-que a cualquiera que estuviera en el centro del campo de batalla.
+Que solo quedara el último androide les llegó, antes que a nadie en medio del campo de batalla, a la gente y a los niños empujados hacia atrás.
 
-Porque hasta entonces, pese a todo,
-aún había varios rostros.
+Hasta entonces, al menos, todavía había varios rostros. Estaba la boca sonriente, estaban los ojos redondos, estaba la expresión torcida.
 
-Había una boca que sonreía,
-había unos ojos redondos,
-había una expresión torcida.
+Ya no. Solo quedaba uno.
 
-Pero ya no.
+El llanto de los niños se detuvo un momento. Un niño solo respiraba, con la boca abierta. Otro no conseguía bajar la mano con la que señalaba hacia donde estaba el androide. Una mujer de Hazran le tomó la mano y se la bajó, pero el niño volvió a levantarla.
 
-Lo que quedaba era uno solo.
+El último androide seguía de pie delante de los niños.
 
-Y eso era tan nítido
-que los niños hasta dejaron un momento de llorar.
+El cuerpo ya estaba roto por varios sitios. Una pierna no fijaba bien el eje, el hombro estaba medio arrancado, y el trazo de la boca corta en el rostro se apagaba y volvía a encenderse una y otra vez.
 
-Una pausa que decía que no podía creerse.
-Una pausa que parecía preguntar si de verdad era el final.
+Ese cuerpo estaba de pie. Una rodilla se dobló una vez y volvió a estirarse. Se quedó estirada.
 
-El último androide seguía de pie ante los niños.
+Con el pie empujó hasta el borde del pasaje a una unidad enemiga caída a sus pies, y el suelo entre los niños y su propio cuerpo quedó despejado. Volvió a plantarse en medio del suelo despejado.
 
-El cuerpo ya estaba roto por varios sitios.
-Una pierna no fijaba bien el eje,
-el hombro estaba medio arrancado,
-y la corta línea de boca del rostro se apagaba y revivía sin parar.
+En la retaguardia, Seorin habló.
 
-Pero, raro,
-parecía a punto de caer y aun así no se derrumbaba.
+—Los heridos primero. El que pueda caminar, por su propio pie.
 
-Sion, al verlo,
-no podía quitarse la idea de que lo que sostenía ahora a ese ser no era solo un impulso mecánico.
+Dos personas de Hazran sujetaron por las axilas, una de cada lado, a un hombre que sangraba. El hombre intentó ponerse de pie por sí solo y se desplomó, y los dos volvieron a sujetarlo. Una de las máquinas viejas ensanchó con el hombro la brecha de la retaguardia, y el panel de la pared retrocedió un palmo más.
 
-Tanto se había cortado ya,
-y aun así algo, al contrario, se volvía más nítido.
+Sern, con el panel de registro en la mano, miraba la boca del corredor.
 
-Era el movimiento.
-Era la mirada.
-Era una direccionalidad que no se detenía.
+—Hasta la tercera fila, el intervalo era el mismo. Ahora vienen de dos en dos.
 
-Aún no sabría qué es el sacrificio.
-Aún no sabría por qué había sobrevivido.
+Ater le respondió desde lo alto.
 
-Pero, pese a todo,
-ese ser seguía mirando primero lo que le quedaba delante.
+—Si vienen de dos en dos, se abren huecos.
 
-Los niños.
-La gente que lloraba.
-Las máquinas viejas que no habían podido retroceder.
+Seorin oyó aquello y, aunque miraba la boca, no dijo nada.
 
-Era como si,
-antes que la comprensión, le hubiera quedado en el cuerpo algo parecido a la responsabilidad.
+La Legión de Serakion no esperaba a nadie.
 
-La legión de Serakion no esperó por esas razones.
+Como para llenar el sitio donde había caído la primera fila, otras unidades entraron empujando en el interior del estrecho corredor. Eran dos. Cuerpos sin rostro, movimientos sin expresión, pasos todos al mismo intervalo.
 
-Como rellenando el sitio de la fila que había caído,
-otras unidades fueron empujadas hacia dentro del corredor estrecho.
+El último androide se detuvo muy brevemente, de cara a ellas.
 
-Cuerpos sin rostro.
-Movimiento sin expresión.
-Una velocidad uniforme, como si solo quedara una voluntad.
+Sion contuvo el aliento.
 
-El último androide se detuvo muy brevemente frente a eso.
+El último androide se movió de un modo un poco distinto.
 
-Sion tragó aire.
+No las recibió de frente tal cual, como antes. Giró el cuerpo a medias y dejó pasar de lado a la primera unidad que entraba. Mientras la unidad desviada se clavaba de hombro en la pared a su espalda y se detenía, metió la mano entre el cuello y el hombro de la segunda unidad, la que venía detrás, y la cortó de un solo golpe.
 
-No podía saber si esa breve detención
-era por avería,
-por duda,
-o un tiempo para elegir algo.
+Antes de que cayera la unidad cortada, ya se había vuelto hacia la primera, la que se había clavado en la pared. Le dobló la rodilla de una patada. Entre los dos movimientos no hubo ningún hueco.
 
-Pero enseguida
-se movió de un modo algo distinto.
+Al empujar de nuevo a las dos caídas hacia el borde del pasaje, quedaron amontonadas encima de la de antes.
 
-Ya no recibió de frente como antes.
-
-Torció el cuerpo a medias,
-desvió hacia un lado a la primera unidad que entraba,
-y seccionó con precisión exacta entre el cuello y el hombro de la segunda unidad que venía detrás.
-
-Fue tan natural
-que a Sion, al contrario, se le puso un momento la piel de gallina.
-
-Eso no era un simple movimiento repetido.
-Era también algo distinto de la pelea de hacía nada.
-
-Era más eficiente,
-más corto,
-más cerca de frenar más con menos fuerza.
-
-Ater, en el instante en que lo vio, dijo muy bajo.
+En el instante en que Ater lo vio, habló muy bajo.
 
 —Está cambiando.
 
-Sern no pudo decir nada.
-Pero su mano se detuvo muy brevemente sobre la tabla de registro.
+Sern no dijo nada. La mano que sostenía el panel de registro se detuvo un instante muy breve y luego anotó una línea corta. Después de anotarla alzó una vez la vista hacia Ater, pero Ater miraba la boca.
 
-Han Jiwoo, al verlo, puso al contrario una cara aún más dolida.
+Seorin giró la cabeza hacia Sion, que tenía la espalda apoyada en el panel de la pared junto a la brecha.
 
-Ella se estaba dando cuenta.
+—Sion. La gente.
 
-De que ese ser ahora no solo sobrevivía,
-sino que, sobreviviendo, aprendía.
+Sion despegó la espalda de la pared, apartó los ojos del campo de batalla y miró hacia la retaguardia.
 
-Cómo habían caído sus compañeros.
-Qué habían frenado primero.
-Qué habían querido mantener hasta el final tras de sí.
+Un hombre de Hazran iba a lo largo de la pared hacia el lado opuesto a la brecha de la retaguardia, no hacia la brecha sino hacia la boca. Sus ojos no estaban en la boca. No estaban en ningún sitio.
 
-Todo eso
-parecía quedar en algún sitio dentro de ese cuerpo.
+Cuando Sion le agarró la manga, el hombre se volvió. Tardó un compás en ver a Sion.
 
-Pero el precio de ese aprendizaje era demasiado alto.
+—No es por aquí.
 
-Un niño dijo entre sollozos.
+Lo dijo Sion. Sin soltarle la manga, lo hizo girar hacia la brecha de la retaguardia. Mientras el hombre caminaba ya vuelto, Sion no lo soltó: caminó tres pasos con él y solo entonces lo soltó. El hombre siguió hacia la brecha.
 
-—Está solo…
+Sion volvió a pegar la espalda a la pared. Esta vez se quedó de cara a la gente.
 
-Esa frase era algo que todos en la sala ya sabían,
-pero al salir de la boca se volvió mucho más cruel.
+Han Jiwoo, con la mano en la espalda del niño que tenía en brazos, miró el campo de batalla hasta el final. Cuando el niño apretó la mano con la que le agarraba la ropa, ella también le apretó la espalda, pero no apartó los ojos del campo de batalla.
 
-Sí.
+Un niño habló entre sollozos.
+
+—Ese está solo…
+
+Una mujer de Hazran fue a taparle la boca con la mano, pero no lo hizo; en lugar de taparla, abrazó al niño más hondo.
+
+—Lo sé.
+
+La mujer lo dijo sobre la cabeza del niño.
+
+—Lo estoy viendo.
+
+El niño despegó la cara del pecho de la mujer y volvió a mirar hacia allí. La mujer no le hizo apartar la cara.
+
 Estaba solo.
 
-Hasta hacía nada tenía al lado rostros distintos,
-y cada uno peleaba a su manera,
-y ahora quedaba solo
-aguantando con un cuerpo el sitio de todos.
+Hasta hacía un momento había rostros distintos a su lado, que peleaban cada uno a su manera, y ahora todos esos sitios estaban vacíos. Un solo cuerpo estaba de pie delante de ese ancho vacío. El ancho era mayor que el cuerpo. Escogió el centro de ese ancho para plantarse.
 
-Una máquina vieja dijo muy bajo desde atrás.
+Una de las máquinas viejas habló muy bajo, desde atrás.
 
-—No retrocede.
+—No se retrocede.
 
-Esa frase no era admiración ni explicación.
-Era una frase casi a punto de ser una constatación.
+Esa máquina lo dijo y dio un paso adelante, pero la otra máquina, la que estaba a su lado, levantó el brazo y la detuvo. Así detenidas, las dos miraban el campo de batalla. El brazo que la detenía no bajó, y la máquina detenida tampoco apartó ese brazo.
 
-De verdad,
-el último androide nunca dio la espalda.
+El último androide no dio la espalda ni una sola vez. Incluso al mirar atrás, el cuerpo seguía de cara al frente; solo la cabeza se volvía y regresaba.
 
-Incluso en el instante en que miraba atrás,
-siempre era para comprobar,
-no para huir.
+Esta vez dos unidades de Serakion entraron a la vez por la izquierda y por la derecha.
 
-Dos unidades de Serakion entraron esta vez a la vez por izquierda y derecha.
+Sern habló.
 
-No cortó una primero.
-Al contrario, retrocedió muy corto un paso,
-y esperó hasta el instante en que el intervalo de las dos se solapaba.
+—Vienen por la izquierda y por la derecha.
 
-Y en el instante en que más se acercaron,
-torció el cuerpo de una vez e hizo que ambas chocaran entre sí.
+El último androide no cortó primero a una de las dos.
+Retrocedió un paso. El pie que retrocedía pisó esquirlas del suelo e hizo ruido.
+La distancia entre las dos se estrechó.
+En el instante en que estuvieron más cerca, giró el cuerpo de golpe e hizo que chocaran la una contra la otra.
 
-Estalló fuerte el sonido del choque.
-A una se le quebró el cuello,
-a la otra le reventó el armazón interno.
+El choque estalló con fuerza. A una se le quebró el cuello; a la otra le reventó el armazón interior. Una esquirla del armazón reventado le pasó rozando junto a la cara y le dejó un arañazo justo al lado del trazo de la boca.
 
-Pero el último androide tampoco quedó intacto.
+El último androide tampoco salió entero. Con el rebote, el eje del hombro que le quedaba se torció del todo, y uno de los ojos ópticos se apagó un instante y volvió a encenderse. Después de encenderse, el foco volvió con un compás de retraso. Adonde miró primero el ojo óptico, con el foco recuperado, no fue la boca, sino los niños, y solo después volvió a la boca.
 
-Por ese retroceso, el eje de hombro que le quedaba se torció del todo,
-y un ojo óptico se apagó corto y volvió a encenderse.
+Los niños contuvieron el aliento a la vez.
 
-Los niños tragaron aire a la vez.
-
-Han Jiwoo, sin darse cuenta, dio un paso adelante.
-Seorin estiró enseguida el brazo y la frenó.
+Han Jiwoo, con el niño en brazos, dio un paso al frente. Seorin estiró enseguida el brazo y la detuvo.
 
 —No.
 
-Fue una frase corta,
-pero llevaba mezclada la desesperación.
+El brazo de Seorin se quedó cruzado delante del pecho de Han Jiwoo, sin bajar. Han Jiwoo no apartó ese brazo, y sin apartarlo, el pie que quería dar un paso más se detuvo. El niño que llevaba en brazos se le abrazó al cuello.
 
-Ese frente ya era un sitio donde nadie podía meterse con facilidad.
+—Jiwoo.
 
-Sion, en ese instante,
-sintió que esta lucha pasaba poco a poco de un mero aguantar a otra cosa.
+Seorin lo dijo una vez más. Esta vez era su nombre.
 
-El último androide aún no entiende el sacrificio.
-Aún no sabe qué se le ha dejado.
+Han Jiwoo miró a Seorin. Seorin miraba el campo de batalla, con el brazo igual.
 
-Pero, pese a todo,
-ya estaba cambiando.
+El brazo de Seorin temblaba. Han Jiwoo lo vio. Seorin no lo miró.
 
-El cuerpo aprendía primero,
-la mirada elegía primero,
-el movimiento se volvía distinto primero.
+Cuando el pie de Han Jiwoo retrocedió medio paso, el brazo de Seorin bajó. La mano que bajó se cerró sobre su propio cinturón.
 
-Ese cambio no era por hermoso.
-Al contrario, era tan triste
-que a Sion le costaba soportar verlo.
+El último androide volvió a mirar al frente.
 
-Sobre la muerte de alguien,
-sobre el rostro que alguien le había dado,
-sobre los niños que lloraban,
-ese ser era empujado demasiado rápido a la siguiente fase.
+El brazo del lado del hombro torcido colgaba. Sin usar ese brazo, recibió a la unidad siguiente con el brazo que le quedaba y con el torso. Al recibirla, el brazo colgante se balanceó, y giró el cuerpo en sentido contrario para que no se le fuera hacia donde estaban los niños, detrás.
 
-Y eso, más que crecimiento,
-se parecía a cómo la pérdida empuja a un ser desde dentro hacia arriba.
+Luhai lo vio y fue a decir algo, pero cerró la boca. Con la boca cerrada tomó aire y luego recogió del suelo un trozo de panel de la pared. No lo lanzó; solo lo sostuvo.
 
-La legión de Serakion seguía entrando.
-Pero ahora nadie en la sala
-podía ver a ese último androide como el mismo ser de cuando lo vio por primera vez.
+Del lado de las máquinas viejas nadie dijo nada. Aun después de bajar el brazo que la detenía, la máquina detenida siguió allí, en su sitio. No avanzó ni retrocedió.
 
-Aún no estaba terminado.
-Pero ya era distinto de antes.
+La Legión de Serakion seguía entrando.
 
-Y Sion,
-por primera vez sintió muy nítido el presagio aciago
-de que ese cambio acabaría llegando mucho más lejos que este campo de batalla.
+Cuando las dos unidades siguientes entraron por la boca del corredor, el último androide ya tenía el cuerpo girado. Era una postura distinta de la que había usado para dejar pasar a las dos primeras, y distinta también de la que había hecho chocar a las dos segundas.
+
+Era la tercera.
+
+Sern anotó en el panel de registro. Esta vez fueron dos líneas.
+
+—Es la sexta fila.
+
+Seorin le respondió.
+
+—La tercera.
+
+Un niño habló entre el llanto.
+
+—Vienen otra vez…
+
+Han Jiwoo apretó la cabeza del niño contra su hombro. Ella no apartó los ojos. A su lado, la mujer de Hazran le secaba con la manga la cara a otro niño, pero por mucho que la secara, se volvía a mojar. La mujer no bajó la manga.
+
+Sion miraba hacia la gente. El hombre al que Sion le había agarrado la manga antes estaba delante de la brecha de la retaguardia, pero no entraba: se había vuelto y miraba el campo de batalla. Sion no fue a agarrarlo otra vez.
+
+En el rostro del último androide, el trazo de la boca corta se apagó una vez.
+Y se encendió.
+Con ese rostro recibió a las dos siguientes.
 
 ---
 

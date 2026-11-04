@@ -8,7 +8,7 @@ Sion Lapis était accroupi au milieu de ces échecs. Les manches de sa veste de 
 
 Il retournait un caisson de stockage à l'étiquette de récupération à moitié arrachée, puis gratta de l'ongle la suie noire restée dans l'angle intérieur.
 
-Des pas entrèrent par le couloir derrière lui. Les oreilles de Sion se tournèrent les premières de ce côté. Son corps, lui, ne bougea pas.
+Des pas entrèrent par le couloir derrière lui. Les oreilles de Sion réagirent les premières au bruit. Son corps, lui, ne bougea pas.
 
 « Hé, Truffe. Ce truc-là, il est déjà tamponné rebut. »
 
@@ -22,7 +22,7 @@ Les pas passèrent sans s'arrêter. Au bout du couloir, une autre voix enchaîna
 
 « Alors c'est réglé. »
 
-Sion ne regarda pas non plus de ce côté-là. Truffe, c'était un mot qu'on vous lançait au visage, il s'éteignait le jour même ; chiffonnier, c'était un mot qu'on écrivait sur les formulaires, il suivait jusqu'à la personne suivante.
+Sion ne regarda pas non plus de ce côté-là. Truffe, c'était un mot qu'on vous lançait au visage, il s'éteignait le jour même ; chiffonnier, c'était un mot qui sortait de la bouche de ceux qui refilaient le travail, il suivait ce travail jusqu'à la personne suivante. Même si, sur les formulaires, on écrivait proprement : inspecteur de rebut.
 
 Il inclina de nouveau le caisson vers la lumière. Les traces de brûlure étaient nombreuses, mais, chose étrange, un seul côté était bien trop propre. Précipité, pour un effacement ; trop voyant, pour un coup de balai bâclé.
 
@@ -48,7 +48,7 @@ Le superviseur tendit vers Sion une mince tablette de transmission. À l'écran 
 
 « C'est pour ça que je te le donne. »
 
-Sion prit la tablette et la parcourut en vitesse. Même en la survolant, deux ou trois points accrochaient. À ce stade, c'était la paperasse qui devenait suspecte avant l'objet récupéré.
+Sion prit la tablette et la parcourut en vitesse. Le champ du point de récupération ne portait qu'une ligne. Cité portuaire neutre, niveau inférieur, sortie d'évacuation des débris d'incendie. Même en la survolant, deux ou trois points accrochaient. À ce stade, c'était la paperasse qui devenait suspecte avant l'objet récupéré.
 
 Sans même baisser la tablette, il demanda :
 
@@ -82,7 +82,7 @@ Sion rabattit la tablette et murmura :
 
 À côté de lui, quelqu'un appuya du bout du doigt sur le coin de la tablette.
 
-« N'accepte pas. »
+« Ne le passe pas en transfert. »
 
 Seorin Kael se tenait près de Sion sans qu'il l'ait vue arriver. Un peu de poussière du dock s'était posée jusque sur les pointes de ses cheveux noués court, et, comme toujours, son visage était fatigué mais ses yeux ne l'étaient pas.
 
@@ -104,7 +104,7 @@ Un instant plus tard, elle haussa un sourcil, à peine.
 
 « Parce qu'il y a qu'ici où le balancer. »
 
-« Voilà. Il suffit d'écrire en une ligne qu'on l'a passé au chiffonnier, et personne ne l'ouvre. » Seorin ne quitta pas la tablette des yeux. « Là-haut, ça s'appelle fermer un dossier. »
+« Voilà. Sur le formulaire, une ligne suffit : transfert en inspection. Tous ceux qui la lisent comprennent que c'est passé chez le chiffonnier, et personne ne l'ouvre. » Seorin ne quitta pas la tablette des yeux. « Là-haut, ça s'appelle fermer un dossier. »
 
 Sion eut un rire bas.
 
@@ -146,7 +146,7 @@ Seorin enfila ses gants la première et dit :
 
 « Justement. » Sion passa le doigt le long du flanc du coffre métallique, puis s'arrêta. « Alors pourquoi récupération prioritaire ? »
 
-Il souleva légèrement le coffre et l'inclina dans la lumière. Le poinçon d'identification extérieur avait été meulé, et l'emplacement où aurait dû figurer le code d'origine était effacé, parfaitement lisse. Le problème, c'était que ce lisse avait l'air trop neuf. Pas une usure ancienne : une surface frottée récemment, à la hâte, pour faire disparaître quelque chose.
+Il souleva légèrement le coffre et l'inclina dans la lumière. Le poinçon d'identification extérieur avait été meulé, et l'emplacement où aurait dû figurer le code d'origine était effacé, parfaitement lisse. Le problème, c'était que ce lisse avait l'air trop neuf.
 
 Seorin s'approcha pour regarder avec lui.
 
@@ -154,7 +154,7 @@ Seorin s'approcha pour regarder avec lui.
 
 « Oui. Et en vitesse. »
 
-Sion prit cette fois une des capsules de stockage écrasées. Sur son flanc, en plus des fissures dues au choc de la récupération, courait une autre ligne, fine et longue. On aurait dit la trace d'un scellé de sécurité ouvert de force. Le grain de la chose donnait l'impression que quelqu'un, au lieu de récupérer l'archive entière, l'avait détachée en hâte avant de refermer la coquille vide.
+Sion prit cette fois une des capsules de stockage écrasées. Sur son flanc, en plus des fissures dues au choc de la récupération, courait une autre ligne, fine et longue. On aurait dit la trace d'un scellé de sécurité ouvert de force.
 
 Seorin jura brièvement.
 
@@ -182,7 +182,7 @@ Seorin lui tendit le fragment et dit à voix basse :
 
 « Personne n'a brûlé ça pour le faire disparaître. On l'a fait disparaître, et ensuite on l'a brûlé. »
 
-Sion prit le fragment sans un mot. Au bout de ses doigts, il était léger et rugueux, et pourtant il lui faisait l'effet, étrangement, d'un objet qui cachait beaucoup trop de choses.
+Sion prit le fragment sans un mot.
 
 De l'autre côté du dock, le bruit sourd d'une grue de récupération en mouvement résonna. Un bruit qu'il aurait laissé passer d'ordinaire, mais qui, à cet instant, sonnait presque comme une gêne.
 
@@ -238,9 +238,7 @@ Kasern souriait toujours, mais cette fois, ce sourire n'avait plus rien de doux.
 
 « Ça s'arrête là. »
 
-L'éclairage au-dessus du dock cligna une fois. Au loin, le bruit sourd de caisses métalliques qu'on empilait résonna. Dans ce bref vacarme, Sion entendit au contraire plus clairement encore.
-
-Ce n'était pas un objet qu'il fallait cacher ; c'était un objet que quelqu'un avait déjà vérifié une fois de plus, et qui lui avait fait peur.
+L'éclairage au-dessus du dock cligna une fois. Au loin, le bruit sourd de caisses métalliques qu'on empilait résonna.
 
 Même après que Kasern eut tourné les talons, personne ne parla tout de suite. Seorin murmura la première :
 
@@ -264,9 +262,9 @@ Seorin eut un rire pareil à un soupir.
 
 « Alors c'est encore pire. »
 
-Sion rouvrit le casier. Ses gestes étaient bien plus rapides que tout à l'heure.
+Sion rouvrit le casier. Ses gestes étaient bien plus rapides que tout à l'heure. Il retourna les fragments un par un. Tous avaient été rongés par le feu jusqu'au bord. Pas un seul n'était brûlé à moitié seulement.
 
-« Faut que j'aille sur place. »
+« Il n'est remonté que ce qui a brûlé jusqu'au bout. Ce qui n'a brûlé qu'à moitié doit encore être là-bas. Faut que j'aille sur place. »
 
 « La cité portuaire neutre ? »
 
@@ -291,11 +289,11 @@ Les navettes officielles de l'Office étaient conçues pour ne pas avoir besoin 
 
 Seorin demanda à côté de lui :
 
-« Tu fais au moins semblant de passer par la voie officielle. »
+« Tu vas attendre l'autorisation ? »
 
-« C'est pas du semblant. C'est laisser une trace. »
+« Non. Mais je dépose quand même la demande. Pour pas me faire accuser de départ non autorisé après. »
 
-Sion répondit, puis ouvrit la fenêtre de demande. Il posa le curseur en haut du champ de saisie, s'arrêta un instant, puis tapa la phrase d'une main exercée.
+Sion ouvrit la fenêtre de demande. Il posa le curseur en haut du champ de saisie, s'arrêta un instant, puis tapa la phrase d'une main exercée.
 
 **Demande de vérification à la source pour dossier en attente de classement. Incohérence du code d'identification et lacunes dans l'itinéraire de récupération. Vérification sur place de la navette de liaison de récupération nécessaire.**
 
@@ -341,7 +339,7 @@ S'il lui demandait de l'effacer, Seorin était du genre à l'écrire en plus gro
 
 Sion appuya sur envoyer.
 
-Quand il pressa le bouton d'envoi, l'indicateur d'attente d'autorisation apparut. En bas de l'écran défilèrent de petits caractères gris.
+L'indicateur d'attente d'autorisation apparut. En bas de l'écran défilèrent de petits caractères gris.
 
 **Temps d'attente estimé : 7 heures 40 minutes**
 
@@ -349,19 +347,19 @@ Seorin claqua la langue en voyant le chiffre.
 
 « D'ici là, le terrain aura été refermé trois fois. »
 
-« C'est pour ça qu'on fait seulement semblant d'attendre. »
+« C'est pour ça qu'on descend ce soir. »
 
-Sion ouvrit la liste des navettes cargo de correspondance extérieure. Trois arrivaient dans la journée, et deux étaient inutilisables.
+Sion ouvrit la liste des navettes cargo de correspondance extérieure. Ce soir, trois vaisseaux descendaient vers la cité portuaire neutre. Pour deux d'entre eux, il fallait un laissez-passer de l'Office.
 
 « Celle du bas. »
 
-Seorin l'avait dit la première.
+Seorin l'avait dit la première. C'était une benne à rebut.
 
-« Oui. » Sion hocha la tête. « Du moment que j'ai déposé une demande de vérification sur place, partir sur une navette de liaison de récupération, ça devient un prétexte. »
+« Oui. » Sion hocha la tête. « Ce caisson aussi a dû remonter par cette ligne. Quelqu'un qui va vérifier à la source et qui redescend par le même vaisseau, ça se tient. »
 
-« Une benne à rebut, une navette de liaison de récupération ? »
+« C'est ce que tu vas écrire sur le formulaire ? »
 
-« Il y a des jours où il suffit de l'écrire sur le formulaire pour que ça le devienne. »
+« Oui. Et c'est vraiment pour ça que j'y vais. »
 
 Seorin regarda un instant le visage de Sion, puis eut un rire bas.
 
@@ -371,15 +369,15 @@ Sion ouvrit les informations de la dernière ligne. Le tonnage déclaré et la c
 
 Dans un coin de l'écran restait un numéro de dock. 18-B.
 
-« Alors, cette fois, on monte juste en douce ? »
+« Alors on monte avant que l'autorisation tombe. »
 
 Ce fut Seorin qui posa la question.
 
-« Non. » Sion ferma le terminal en répondant. « On fait semblant d'attendre, et on part avant. »
+« Oui. » Sion ferma le terminal en répondant. « Si elle tombe, on la recevra là-bas. »
 
-« Il y a une différence ? »
+« Et sinon ? »
 
-« Un peu. Le jour où ils voudront tout nous mettre sur le dos. »
+« J'ai déposé la demande, non ? C'est mieux que de filer en douce. »
 
 Seorin se contenta de ricaner. Un délinquant façon Office. C'était exactement cette odeur-là.
 
@@ -473,9 +471,13 @@ Sion gravit la rampe.
 
 En montant, il ne regarda pas vers le haut. S'il regardait, l'autre saurait qu'il avait vu.
 
-À la place, il appuya encore une fois sur la poche.
+À mi-hauteur, le bruit de chaîne au-dessus de sa tête cessa.
 
-C'était toujours mince. Une chose aussi mince, le superviseur l'avait descendue de ses propres mains.
+À la place, la rambarde grinça une fois. Le bruit de quelqu'un qui porte son poids vers l'avant. C'était aussi le bruit qu'on fait juste avant de sauter.
+
+Le pas de Seorin prit un demi-temps de retard. De là où elle était, elle voyait le haut.
+
+Sion ne ralentit pas. Ralentir, c'était déjà répondre.
 
 ---
 

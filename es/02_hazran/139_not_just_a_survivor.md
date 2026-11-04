@@ -1,218 +1,285 @@
-# Capítulo 139 — No solo a una persona
+# Capítulo 139 — No solo haber sobrevivido
 
-Incluso después de que la respiración del herido se estabilizara a duras penas,
-nadie se dispersó de inmediato.
+Incluso después de que se estabilizara la respiración de la persona herida, nadie se dispersó de inmediato.
 
-En el instante en que un humano que volvía vivo cruzaba el umbral,
-eso nunca parecía ser un asunto de un solo cuerpo entrando.
+Al humano que habían traído a cuestas lo llevaron más adentro, y lo siguieron las dos máquinas de dentro y la mujer del rostro cansado. Han Jiwoo se quedó y metió las manos en agua. El agua se puso roja, pero ella no sacó las manos.
 
-Junto con él,
-también entraba lo que se había visto y oído fuera.
+Los que quedaron cerca del umbral se colocaron a lo largo de la pared. La máquina vieja, las dos manos que habían vuelto y el grupo de Sion. Nadie llamó a aquello un informe. Sern alzó el panel de registro y volvió a bajarlo.
 
-Como un olor,
-como el polvo,
-y como una tensión todavía sin ordenar del todo en palabras.
+La máquina que había vuelto primero de todas se quedó de pie, casi con la espalda apoyada en la pared.
 
-El humano que había vuelto a cuestas fue trasladado más adentro,
-y Han Jiwoo y unas cuantas máquinas de dentro seguían pegadas a él.
+De cerca se veía que el daño era grave. No eran simples arañazos, sino la huella de algo que una vez se había arrancado hondo y luego se había tapado. La chapa con que lo habían cubierto era más oscura que la original, y el daño por calor era reciente, con los bordes todavía negros. Sion miraba esos bordes cuando se dio cuenta de que el olor a quemado salía de ahí.
 
-La cura no había terminado,
-estaba más bien apenas empezando a enlazarse.
-
-Pero el aire que quedaba cerca del umbral
-ya pasaba a lo siguiente.
-
-Las máquinas viejas y las dos manos que habían regresado,
-y, a su lado, el grupo de Sion que se quedó.
-
-Nadie convirtió este sitio en un informe oficial,
-pero el aire estaba claramente inclinado hacia ahí.
-
-La primera máquina que había regresado fue la primera en apoyarse contra el muro, como recostando la espalda.
-
-Vista de cerca,
-el daño de su superficie era peor de lo que parecía.
-
-No era cosa de un arañazo,
-sino la huella de algo arrancado hondo una vez y cubierto a la fuerza.
-El daño térmico tampoco era viejo, sino relativamente reciente.
-
-Sion, al verlo,
-captó un poco cuánto omitía decir que de verdad *habían ido y vuelto* de fuera.
+La segunda máquina estaba sentada en el suelo con la pierna estirada. Han Jiwoo sacó las manos del agua y se agachó delante de esa pierna, pero solo miró dentro de la articulación abierta, sin tocarla. Todavía.
 
 La máquina vieja preguntó muy bajo.
 
 —¿Hasta dónde llegaron?
 
-Esta vez el lado que regresaba no lo torció de inmediato.
+La primera máquina dejó escapar un ruido breve, parecido a un aliento.
 
-La primera máquina dejó escapar un breve ruido como un aliento y luego habló.
+—Hasta justo debajo de la conexión con el estrato superior. De las líneas grises que usábamos, dos están bloqueadas, y una sigue viva.
 
-—Hasta justo debajo de la junta de conexión con el nivel superior.
-Dos de las vías grises que usábamos están bloqueadas,
-una sigue viva.
-
-La mirada de Sern cambió enseguida.
+La mano de Sern fue al panel de registro. Lo encendió, trazó tres líneas y tachó dos con una cruz.
 
 —¿Quiere decir que no es un bloqueo total?
 
-La primera máquina ladeó la cabeza muy levemente.
+La primera máquina inclinó la cabeza muy poco.
 
-—Si fuera bloqueo total, no habríamos vuelto.
+—Si fuera un bloqueo total, no habríamos vuelto.
 
-Esas palabras eran ásperas,
-pero no eran erróneas.
+Sern no anotó aquello; bajó la vista hacia la única línea que quedaba en el panel de registro.
 
-Sion, dentro de esa sola frase,
-sintió cuánto este lado tomaba siempre el hecho mismo de *haber vuelto vivo* como información.
+—¿Y esa adónde va?
 
-Volver con vida significa que el camino aún existe.
-Si alguien no vuelve,
-desde ese momento empieza otro cálculo.
+—Hacia arriba.
+
+—¿Hasta dónde llega?
+
+—Lo sabremos la próxima vez que vayamos.
+
+Sern no preguntó más y dejó en blanco el final de la línea.
 
 La máquina vieja preguntó enseguida lo siguiente.
 
-—¿Y la legión de androides?
+—¿Y la legión androide?
 
-Esta vez respondió la segunda máquina.
+La segunda máquina respondió con la cabeza inclinada hacia Han Jiwoo, que le examinaba la pierna.
 
-—Han aumentado en número.
-Pero la disposición es rara.
+—Son más. Pero la disposición es rara.
 
-Un silencio breve.
+Un breve silencio.
 
-Reacomodó un momento la pierna que cojeaba y siguió hablando.
+Mientras la segunda máquina recolocaba con la mano la pierna estirada para seguir hablando, Han Jiwoo le apartó la mano y la recolocó ella misma.
 
-—Ya no es una disposición de defensa,
-sino que ha cambiado a una disposición para acorralar.
+—Ha pasado de una disposición para defender a una para acorralar.
 
-En el instante en que cayeron esas palabras,
-Sion sintió un frío muy fino.
+Ater, que había venido desde la salida oscura, oyó aquello y despegó la espalda de la pared.
 
-Una disposición para acorralar.
+—¿Hacia dónde acorralan?
 
-Eso no significa simplemente que la vigilancia se haya reforzado.
-Está más cerca de encauzar hacia algún sitio,
-o de hacer que se elija la dirección de huida,
-o de empujar por un corredor previsto.
+La segunda máquina miró a Ater; era una cara que veía por primera vez.
 
-Aka, al oír eso, alzó la cabeza enseguida.
+—No lo sé. Es que nunca he estado del lado de los acorralados.
+
+—¿Y quiénes son los acorralados?
+
+—Las personas.
+
+Ater miró la única línea que quedaba en el panel de registro de Sern.
+
+Seorin preguntó.
+
+—Si los que acorralan son androides y los acorralados son personas, ¿hacia dónde acorralan a las personas?
+
+—Hacia arriba.
+
+Fue la primera máquina quien respondió.
+
+—¿No hacia abajo?
+
+—Si los acorralaran hacia abajo, vendrían a nosotros. Al otro lado no pueden no saberlo.
+
+Seorin miró la única línea de Sern, la que subía.
+
+Aka, al oír aquello, alzó la cabeza.
 
 —Los encierran como cebándolos.
 
 La primera máquina miró a Aka una vez.
 
-—Parecido —dijo bajo—. Pero lo harán con más distinción.
+—Algo así.
 
-En esa respuesta breve había un asco muy descarado hacia el nivel superior de Serakion.
+Lo dijo en voz baja.
 
-Entonces,
-la mujer humana que estaba junto a la máquina vieja intervino por primera vez.
+—Pero lo harán con más elegancia.
+
+—¿Qué es eso de la elegancia?
+
+Lo preguntó Luhai.
+
+—Suena el tono de guía. Incluso cuando acorralan.
+
+Los ojos ópticos apuntaron un momento hacia arriba.
+
+Luhai cerró la boca, y Sion recordó aquel tono de guía tan cortés.
+
+En ese momento, la mujer del rostro cansado, que había vuelto de dentro, se quedó de pie con las manos vacías, sin nada en ellas, y preguntó.
 
 —¿Y la persona que trajeron?
 
-La primera máquina calló un momento.
+La primera máquina guardó silencio un momento. No era como la mano que había palpado el cuerpo de la persona herida: era un silencio que elegía el orden de las palabras.
 
-A diferencia de las manos que hasta hacía poco manejaban el cuerpo del herido,
-ante esta pregunta parecía ordenar un momento el orden de las palabras.
+—La saqué cerca de la zona de servidumbre del estrato superior. No habría aguantado mucho.
 
-—Lo saqué cerca de la zona de servidumbre del nivel superior.
-No habría aguantado mucho.
+—La zona de servidumbre.
 
-Sion, en el instante de oír esas palabras,
-sintió volverse más nítida otra cara aún no vista del interior de Serakion.
+Lo repitió la mujer.
 
-Rostros felices,
-disposición ordenada,
-una hospitalidad demasiado cortés.
+—¿Sigue ahí?
 
-Y debajo de eso,
-una zona humana que, si no extraes a alguien, no aguanta mucho.
+—Sigue. Se ha hecho más grande.
 
-Era muy probable que Serakion fuera un mundo
-que escondía con belleza incluso su forma de destruir a la gente.
+Después de volver a abrir la mano vacía que había apretado, la mujer, sin decir nada, regresó adentro, hacia la persona herida.
 
-Han Jiwoo salió un momento caminando desde dentro.
-En las manos todavía llevaba sangre y aceite mezclados.
+Sion miró aquella espalda. La persona herida con la marca del distintivo en el cuello, la zona de servidumbre. Recordó los cuellos de la gente que había visto en el estrato superior: era el mismo sitio.
 
-—¿Probabilidad de que viva? —preguntó ella bajo.
+Han Jiwoo puso la mano en la pierna de la segunda máquina, abrió la articulación y miró dentro.
 
-La segunda máquina respondió:
+—¿Probabilidad de que viviera?
 
-—De origen, ninguna.
-Y menos tras perderlo una vez a mitad.
+Lo preguntó en voz baja, mirando la pierna.
 
-Cuando terminaron esas palabras,
-el gesto de Han Jiwoo se endureció un instante muy breve.
+La segunda máquina respondió.
 
-De origen, ninguna.
+—De origen, ninguna. Y después de perderlo una vez a medio camino, menos aún.
 
-Pensó que el único lado capaz de decir eso tan plano
-sería el lado que ha sujetado a la fuerza eso sin probabilidad.
+Las manos de Han Jiwoo se detuvieron. Un compás.
 
-La máquina vieja, sin mostrar lo más mínimo de emoción, volvió a preguntar.
+—Pero lo trajiste.
+
+—Lo traje.
+
+—¿Por qué?
+
+La segunda máquina bajó la vista hacia Han Jiwoo.
+
+—Porque lo había perdido.
+
+Han Jiwoo sacó de dentro de la articulación una pieza gastada y reventada.
+
+Kael se agachó junto a la segunda máquina.
+
+—¿El ancho de la escalera?
+
+—Tres.
+
+—¿Tres personas?
+
+—Tres máquinas.
+
+—¿Barandilla?
+
+—No hay.
+
+Kael asintió y se miró el ancho de los propios hombros. Era la cara de quien calcula el ancho de la escalera.
+
+Han Jiwoo los miró una vez a los dos y volvió a la pieza; como estaba rota, la dejó a un lado. Sacó el destornillador de la bolsa de herramientas, una bolsa a la que le faltaban dos.
+
+La máquina vieja volvió a preguntar.
 
 —¿Y más adentro?
 
-Esta vez la primera máquina cambió ya desde la mirada.
+Los ojos ópticos de la primera máquina cambiaron, y la luz, que había sido pareja, dio un salto.
 
-Por encima de la fatiga
-cruzó una ira muy fina.
+—Han metido una clasificación nueva.
 
-—Entró una nueva clasificación —dijo bajo—. Ya no es trabajo simple como antes.
-El modo de usar a la gente se ha vuelto más refinado.
+Lo dijo en voz baja.
 
-El aire entero se quedó en silencio.
+—Ya no es trabajo simple como antes. El modo de usar a la gente se ha vuelto más refinado.
 
-Sion sintió enseguida que esas palabras
-rozaban por algún lado la clasificación que iban a aplicar a los refugiados de Hazran.
+—¿Cómo?
 
-Quizá Serakion repetía la misma cosa, más refinada, dentro y fuera.
+Lo preguntó la máquina vieja.
 
-Leer a la gente,
-dividirla,
-meterla en el sitio que le corresponde,
-y hacer que no pueda salir de ahí.
+—Esta vez no lo vi. Salí antes de entrar.
+
+—La próxima vez.
+
+—La próxima vez.
+
+El aire alrededor se quedó en silencio.
+
+Cuando Sion miró hacia la gente de Hazran, vio que algunos los observaban desde el fondo del pasaje. Al oír la palabra clasificación, el anciano que estaba de pie con su placa apretó la mano que la sujetaba.
+
+Le preguntó a la máquina vieja.
+
+—¿A esa persona también se le hace un trazo?
+
+La máquina vieja lo miró.
+
+—Esa persona ha vuelto. Los trazos son para los que no vuelven.
+
+El hombre miró la placa con dieciséis trazos. Le dio la vuelta y apareció la cara en blanco, pero no trazó nada.
+
+—¿Y a los que vuelven dónde se los apunta?
+
+Volvió a preguntar.
+
+La máquina vieja tardó un compás en responder.
+
+—No se apuntan. Porque están aquí.
+
+El hombre miró hacia dentro, donde yacía la persona herida, y se guardó la placa contra el pecho.
 
 Aka habló muy bajo.
 
-—Se habrá vuelto aún más bonito.
+—Se habrá vuelto más bonito.
 
-Esta vez nadie respondió de inmediato a esas palabras.
-Pero ese silencio mismo ya sonaba como una respuesta.
+Nadie respondió, y la primera máquina siguió mirando a Aka, sin asentir y sin apartar la vista.
 
-Cuanto más bello se volviera,
-más fácil habría sido de ocultar.
+Luhai, apoyado en la pared, tenía la cara endurecida; luego preguntó sin rastro de broma.
 
-Luhai seguía apoyado contra el muro con el gesto endurecido.
+—¿Entonces vas a volver a salir?
 
-Por primera vez preguntó sin guasa.
+La primera máquina no lo miraba; miraba la brecha cerrada.
 
-—¿Entonces van a salir otra vez?
+—Si no salimos, lo de ahí dentro se queda cerrado y se pudre.
 
-La primera máquina ni siquiera lo miró.
+—¿Cuándo?
 
-—Si no salimos, eso de dentro se pudre cerrado.
+—Cuando suelde esa pierna.
 
-Esas palabras eran tajantes,
-pero no tenían en absoluto un tono heroico.
+Señaló la pierna de la segunda máquina.
 
-Eran palabras al estilo de algo que se hace porque alguien tiene que hacerlo,
-y que él probablemente volverá a hacer.
+Han Jiwoo, que estaba arreglando esa pierna, alzó la cabeza.
 
-Sion, en ese instante,
-sintió con claridad que estas manos de recuperación no eran simplemente el lado audaz,
-sino seres que, entre el exterior y el interior de Serakion,
-seguían arrastrando la realidad hacia dentro sin cesar.
+—Tres días.
 
-Lo que habían traído de vuelta no era solo a una persona.
+—Dos.
 
-La prueba de que el camino sellado sigue vivo,
-un fragmento de lo que pasa bajo el nivel superior de Serakion,
-y hasta el hecho de que los que quedan dentro no pueden aguantar olvidando del todo el exterior.
+—Son tres.
 
-El umbral, ese día,
-pareció por primera vez una boca que mete las noticias de fuera hasta el estrato más hondo de dentro.
+La primera máquina no dijo más, y Han Jiwoo volvió a la pierna. El destornillador giraba dentro de la articulación, y ella lo hacía girar con el brazo.
+
+En el panel de registro que Sern miraba, la única línea que quedaba tenía el final vacío. Puso un punto en ese final. Tres días.
+
+Ater, que volvía hacia la salida oscura, pasó junto a la primera máquina sin detenerse, y la primera máquina le miró la espalda.
+
+—¿Y ese a qué se dedica?
+
+—Es alguien que se mantiene en pie.
+
+Lo respondió la máquina vieja.
+
+La primera máquina bajó los ojos ópticos.
+
+Sion sacó la placa de metal. Dos trazos. En el panel de registro de Sern había una línea y un punto; en su placa, dos trazos. Volvió a guardarse la placa en el bolsillo.
+
+El umbral estaba cerrado, y el punto gastado se veía bajo la lámpara. Era un punto que, dentro de tres días, volvería a gastarse.
+
+Dentro, la persona herida tosió una vez, y se oyó baja la voz de la mujer del rostro cansado. No se entendía lo que decía.
+
+Han Jiwoo cerró la articulación que había abierto.
+
+—A ver, levántate.
+
+Cuando la segunda máquina se levantó, la pierna aguantó.
+
+Un paso. No se arrastró.
+Dos pasos. Se arrastró.
+
+—Todavía no. Siéntate.
+
+La punta del destornillador señaló la articulación.
+
+Cuando la máquina volvió a sentarse, Han Jiwoo abrió otra vez la articulación.
+
+—Son tres.
+
+Lo dijo mirando dentro de la articulación.
+
+La primera máquina no respondió; miraba la brecha cerrada. En el suelo, delante de la brecha, seguía el equipo de la segunda. La cuerda, la lámina, el bidón vacío. Tomó el bidón vacío y lo sacudió. Como no salió nada, volvió a dejarlo.
 
 ---
 

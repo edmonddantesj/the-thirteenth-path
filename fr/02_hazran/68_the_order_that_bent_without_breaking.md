@@ -38,7 +38,7 @@ Sern enchaîna aussitôt.
 Il poursuivit à voix basse :
 « Cela ne tourne pas parce qu'il n'y a pas de loi ; cela tourne plus longtemps parce que cela ne ressemble pas à une loi. »
 
-À ces mots, Seorin esquissa un sourire à peine visible. La manière ne lui plaisait pas, mais c'était juste.
+À ces mots, Seorin esquissa un sourire à peine visible.
 
 Haroun se tenait à quelque distance de Zahir.
 
@@ -139,8 +139,6 @@ Zahir poursuivit très bas.
 
 « C'est pour ça que je te punis davantage. »
 
-À ces seuls mots, l'air changea.
-
 Luhai écarquilla les yeux, Kael leva très légèrement le menton. Sern avait le visage de quelqu'un qui savait que ces mots allaient venir.
 
 Zahir dit :
@@ -215,9 +213,9 @@ Il finit par dire, très bas :
 
 « J'accepte. »
 
-C'étaient les mêmes mots que tout à l'heure.
+C'étaient les mêmes mots qu'avant d'entendre quelle serait la peine.
 
-Pourtant, à l'oreille de Seorin, ils ne sonnaient pas pareil. Tout à l'heure, il avait dit qu'il acceptait si l'on estimait qu'il avait franchi la ligne. Maintenant, il disait seulement qu'il acceptait.
+Pourtant, à l'oreille de Seorin, ils ne sonnaient pas comme ceux du tout début. Au tout début, il avait dit qu'il acceptait si l'on estimait qu'il avait franchi la ligne. Maintenant, il disait seulement qu'il acceptait.
 
 Ce qui était tombé entre les deux, c'était la condition.
 
@@ -236,14 +234,6 @@ Ater répondit.
 « Carré, pas exactement… »
 Il poursuivit calmement :
 « … disons que cela tourne à sa manière. »
-
-Seorin trouva que c'était plus juste.
-
-Ce n'était ni l'Empire ni l'Alliance. Mais ce n'était pas pour autant un endroit qui tournait n'importe comment.
-
-Hazran redressait, à la manière de Hazran, un ordre qui avait plié une fois.
-
-Et l'idée que le groupe de Sion n'emporterait pas d'ici seulement du métal ou un vaisseau devint enfin un peu plus nette.
 
 ---
 

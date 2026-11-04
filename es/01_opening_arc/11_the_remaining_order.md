@@ -14,8 +14,6 @@ Solo entonces habló Sern.
 
 —Entonces esto no es cuestión de quién firmó, sino de quién reescribió el orden de las firmas.
 
-La frase sonó asombrosamente tranquila.
-Pero por eso mismo pesaba más.
 En ese momento Sion sintió con un poco más de claridad que aquel hombre callado no daba miedo de la misma manera que él, sino de una manera completamente distinta. Él leía olores; aquel hombre leía estructuras.
 
 Ater no dijo nada.
@@ -222,9 +220,19 @@ Elia volvió a coger la bolsa de galletas.
 
 —Esa es la pregunta que no hiciste antes.
 
-El aire de la sala volvió a posarse una vez más.
+Sion sacó otro fragmento del bolsillo de recuperación, por dentro del abrigo. Lo llevaba encima desde el muelle de la Oficina. Lo dejó junto a la placa de lectura.
 
-Sern, de pie junto a la placa de lectura, seguía mirando aquella sección.
+Elia también lo puso a la luz. No lo miró mucho rato.
+
+—Son de la misma lámina. Se quemaron el mismo día —Elia puso los dos fragmentos uno al lado del otro—. A este se lo comió el fuego entero, y a este solo se le quemaron los bordes.
+
+—Lo que subió al muelle es lo que está quemado del todo —dijo Sion.
+
+—Y lo que se llevó corriendo esa persona es lo que está a medio quemar —dijo Seorin.
+
+—Lo quemado del todo, si lo subes como desecho, se acaba en los papeles —Elia apartó un poco con la yema del dedo el fragmento quemado del todo—. Como quedaba algo a medio quemar, lo persiguieron.
+
+Sern, de pie junto a la placa de lectura, seguía mirando la sección del fragmento del Archivista.
 
 —Excelencia.
 

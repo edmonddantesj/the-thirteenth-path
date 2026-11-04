@@ -1,232 +1,308 @@
-# Capítulo 141 — Empezar antes de estar listos
+# Capítulo 141 — Antes de que nadie estuviera listo
 
 El siguiente movimiento no se decidió al final de una reunión.
 
-Tampoco empezó a rodar después de que alguien se recuperara del todo,
-de que alguien quedara convencido,
-de que alguien dijera todos sus pros y sus contras.
+Empezó por el lado que se derrumbaba primero.
 
-Como siempre,
-empezó por el lado que se derrumba primero.
+El humano que habían recogido habló por fin con claridad cuando el día ya había cambiado del todo.
 
-El humano recuperado habló de verdad por primera vez
-cuando ya había cambiado del todo el día.
+Mientras Han Jiwoo pasaba la noche entera a su lado, las dos máquinas de dentro vigilaban por turnos la respiración y la hemorragia. La segunda mano de recogida se quedó apoyada en una pared y no se fue en ningún momento; con la pierna que Han Jiwoo le había arreglado dos veces estirada, no se levantó: miraba sentada.
 
-Han Jiwoo llevaba toda la noche pegada a él,
-dos máquinas de dentro vigilaban por turnos respiración y hemorragia,
-y la segunda de las manos de recuperación que había cruzado el umbral,
-sin haber podido descansar bien la pierna, se quedó apoyada en un muro
-y al final no se fue hasta el último momento.
+La lámpara amarilla se apagó y se encendió tres veces, y Sern anotó cuántas; a su lado, la máquina que les había abierto el camino miraba el panel de registro.
 
-Sion, mirando aquello,
-sintió que en esta comunidad lo siguiente siempre empieza de un modo parecido.
+—Las señales han aumentado.
 
-No porque alguien lo decida,
-sino porque el lado que no se puede dejar escapar es el que trae lo siguiente.
+Lo dijo la máquina.
 
-El herido no abrió bien los ojos durante un buen rato.
-Pero cuando el alba clareó muy fino,
-entre el aliento partido se filtró por primera vez algo parecido a una palabra.
+—¿Hacia qué lado?
 
-La primera vez nadie la entendió.
+—Arriba.
 
-La segunda, tampoco.
+Sern lo anotó en el panel de registro. Arriba.
 
-A la tercera,
-Han Jiwoo levantó muy rápido la mirada.
+Las dos máquinas de dentro se cambiaron de sitio: una se levantó y la otra se sentó. Cuando la que se sentaba puso la mano sobre el pecho de la persona herida, la que se había levantado miró dónde estaba esa mano, y estaba bien. La que se había levantado se fue, pero Han Jiwoo no cedió su sitio en ningún momento.
 
-—Otra vez —dijo bajo.
+La persona herida pasó largo rato sin poder abrir bien los ojos.
 
-El herido, sin poder abrir los ojos, apenas movió los labios.
+Cuando el alba empezaba a clarear apenas, entre la respiración rota salió un sonido.
 
-—…abajo… no…
+La primera vez nadie lo entendió, y la segunda tampoco. Solo a la tercera levantó Han Jiwoo la cabeza.
 
-La respiración se le cortó una vez.
+—Otra vez.
 
-Han Jiwoo bajó el cuerpo.
-La segunda mano de recuperación, a su lado, despegó la espalda del muro y se acercó.
+Lo dijo en voz baja.
 
-El herido volvió a hablar.
+La persona herida, sin poder abrir los ojos, solo movía los labios.
 
-—abajo… no…
-—arriba… los llevan…
+—…Abajo… no…
 
-Silencio breve.
+La respiración se cortó una vez; Han Jiwoo bajó el cuerpo y acercó la oreja a su boca, y la segunda también despegó la espalda de la pared y se acercó arrastrando la pierna.
 
-Sion sintió enseguida cómo esas palabras cambiaban el aire del cuarto.
+La persona herida volvió a hablar.
 
-Han Jiwoo preguntó primero.
+—Abajo… no… Arriba… los llevan…
+
+Un breve silencio.
+
+Han Jiwoo fue la primera en preguntar.
 
 —¿A quién?
 
-El herido, esta vez, estuvo un buen rato recobrando el aliento,
-y luego habló con una voz casi a punto de cortarse.
+Mientras la persona herida tardaba en recobrar el aliento, Han Jiwoo le puso la mano sobre el pecho: el lado izquierdo subía con medio compás de retraso.
 
-—los niños…
-—los de buenas manos… primero…
+La persona herida habló con una voz que casi se quebraba.
 
-En el instante en que terminó esas palabras,
-la primera mano de recuperación, cerca del umbral, levantó la cabeza.
+—Los niños… los de buenas manos… primero…
 
-Sion no perdió el cambio de aquella mirada.
+La primera mano de recogida, que estaba cerca del umbral, levantó la cabeza.
 
-Antes que sorpresa,
-era la reacción de quien por fin encaja la pieza que venía probando.
+La luz de sus ojos ópticos cambió: lo que se mantenía parejo dio un salto y volvió.
 
-Sern, casi a la vez, dijo bajo.
+Sern habló en voz baja, casi al mismo tiempo.
 
-—Así que esa era la razón del cambio de disposición.
+—Esa era la razón de que cambiara la disposición.
 
-Una máquina vieja preguntó.
+Una de las máquinas viejas preguntó.
 
 —¿Exactamente?
 
-Sern habló como siguiendo el flujo de las señales.
+En el panel de registro que Sern desplegó estaba la única línea que había trazado el día anterior, la que subía.
 
-—¿No dijeron ustedes que había cambiado de una disposición de defensa a una para acorralar?
-—Si no es simple contención,
-sino un traslado de reselección hacia el nivel superior, la explicación cuadra.
+—¿No dijeron que la disposición había pasado de custodiar a acorralar? Si no se trata de una simple contención, sino de un traslado de reselección hacia el estrato superior, la explicación cuadra.
 
-Sion siguió esas palabras en su cabeza.
+Marcó un punto más en la parte alta de la línea.
 
-No es abajo.
-Los llevan arriba.
-Los niños.
-Los de buenas manos.
+La mujer que vino con dos niños oyó aquello y abrazó al niño que tenía en las rodillas. El niño se despertó, y la mujer lo estrechó todavía más; Han Jiwoo lo vio.
 
-Serakion, quizá, ahora no solo encerraba a los humanos abajo,
-sino que volvía a subir arriba primero a los que podía usar de forma más fina.
+La mujer le preguntó en voz baja a Han Jiwoo.
 
-Eso no era simple gestión.
+—¿Qué es eso de los niños de buenas manos?
 
-Era una selección de forma más bonita,
-y una servidumbre de forma más honda.
+Han Jiwoo no pudo responder enseguida.
 
-El herido soltó después dos o tres palabras más,
-pero ya no se enlazaron en frases con sentido.
+—…No lo sé.
 
-Aun así, ya bastaba.
+—Mi niño tiene buenas manos. Las sacó de su padre.
 
-La primera mano de recuperación quiso darse la vuelta casi enseguida.
+Los brazos que sujetaban al niño no se aflojaron ni un poco.
 
-La máquina vieja la llamó bajo.
+Han Jiwoo miró la mano del niño, que dormía agarrando un destornillador. El pulgar arriba, los demás abajo.
+
+—Lo sé. Le enseñé yo.
+
+La mujer no dijo nada más y cubrió la mano del niño con la suya.
+
+La persona herida dejó escapar dos o tres palabras más, pero no llegaron a ser frases. Solo se oyó dos veces más un «súbanlos», y después ya no hubo más que respiración.
+
+Han Jiwoo habló sin apartar la mano del pecho.
+
+—Basta. Duerme.
+
+Los ojos de la persona herida se cerraron, y los ojos cerrados se cerraron una vez más mientras la respiración se alargaba. Han Jiwoo apartó la mano y luego se la miró. Tenía seca la sangre de la persona herida, pero no se la limpió.
+
+La primera se volvió hacia la brecha.
+
+La máquina vieja la llamó en voz baja.
 
 —¿Adónde va?
 
-Aquella máquina respondió sin detenerse siquiera.
+Aquella máquina respondió sin detenerse.
 
 —Hay que comprobarlo antes de que sea tarde.
 
-Silencio breve.
+—La pierna.
 
-El aire de dentro y el de fuera
-volvieron a separarse de nuevo.
+La máquina vieja señaló a la segunda.
 
-Dentro se calcula.
-Salvar al herido,
-mirar la ruta,
-medir si un movimiento precipitado derrumba el todo.
+—Iré sola.
 
-Las manos de fuera son distintas.
-Intentan moverse antes de que el tiempo se ordene en frases.
+—Las manos que fueron solas no volvieron.
 
-Esa diferencia, también esta vez, se mostró enseguida.
+La primera se detuvo donde estaba, pero no miró atrás.
 
 La máquina vieja habló muy bajo.
 
-—Aún no se sabe si esto acaba con solo comprobarlo.
+—Todavía no sabemos si esto es algo que se acaba con solo comprobarlo.
 
-La primera mano de recuperación se volvió por fin.
+Solo entonces miró atrás la primera.
 
-—Si la comprobación también llega tarde, se acabó.
+—Si hasta la comprobación llega tarde, se acabó.
 
-Las palabras fueron cortas,
-pero ahí dentro estaba casi entero el viejo conflicto que carga toda esta organización.
+Las dos estaban frente a frente, entre la brecha y el pilar. Nadie pasó entre ellas.
 
-El lado que se queda
-teme perder más si se mueve ahora,
-y el lado que sale
-siente que, si no se mueve ya, es tarde.
+La segunda intentó levantarse arrastrando la pierna.
 
-Entonces,
-Sion intervino por primera vez.
+—Basta con que vaya yo con ella.
+
+Lo dijo la segunda.
+
+Han Jiwoo respondió sin mirarla.
+
+—¿Con esa pierna?
+
+—Aunque la arrastre, voy.
+
+La segunda siguió hablando mientras se miraba la pierna.
+
+—El camino lo conozco yo. Aunque la pierna no lo conozca.
+
+La mano de Han Jiwoo se detuvo sobre el pecho de la persona herida y, un compás después, volvió a moverse.
+
+—…Entonces voy a tu lado.
+
+La segunda la miró.
+
+—¿Por qué?
+
+—Porque si se arrastra, habrá que arreglarla.
+
+Mientras la segunda seguía de pie, Kael se puso en cuclillas a su lado.
+
+—¿Dónde está la escalera?
+
+—Pasada la segunda bifurcación.
+
+Kael asintió, pero no se levantó.
+
+Sion intervino.
 
 —¿Dónde hay que comprobar?
 
-Todas las miradas fueron un momento hacia él.
+Todas las miradas fueron hacia él, y la primera, con ojos menos extraños que el día anterior, lo miró muy brevemente.
 
-La primera mano de recuperación lo miró muy corto.
+—Los recorridos de reasignación bajo el estrato superior.
 
-Eran ojos menos extraños que antes.
-Pero aún no eran ojos de mirar a un compañero.
+Lo dijo en voz baja.
 
-—La vía de reubicación bajo el nivel superior —dijo bajo—.
-Si se puede sacar primero a los niños
-y a los humanos que usan las manos.
+—Si se puede sacar primero a los niños y a los humanos que trabajan con las manos.
 
-Luhai se tragó una maldición casi por reflejo.
+Luhai se tragó una maldición.
 
-—De verdad lo están haciendo.
+—Lo están haciendo de verdad.
 
-Aka, al contrario, se quedó más callada.
-
-Miró el suelo una vez
-y dijo bajo.
+Aka se quedó aún más callada; miró el suelo una vez y solo entonces habló en voz baja.
 
 —Los eligen de forma bonita.
 
-Esa sola frase
-explicaba con la mayor exactitud toda la información partida que había soltado el herido.
+El anciano de Hazran lo oyó y apretó con fuerza la mano que sostenía la placa.
 
-Los eligen de forma bonita.
-Suben primero
-lo que se usará bien,
-lo que se manejará bien.
+La mujer que vino con dos niños, que había estado mirando la mano pequeña del niño, se la metió dentro de la ropa para esconderla, y Han Jiwoo lo vio.
 
-Y entonces lo que queda abajo
-empieza a parecer lo más desechable.
+Al levantarse de su sitio, la suya era la cara de quien ha pasado la noche entera en vela junto a alguien. Tenía los ojos rojos, pero la mirada era fría.
 
-Serakion siempre será así.
-Hace que la selección más cruel
-parezca la reestructuración más bella.
+—Yo también voy.
 
-En ese momento Han Jiwoo se levantó de su sitio.
+Lo dijo, escueta.
 
-Por haber pasado toda la noche pegada a él, tenía la cara agotada,
-pero la mirada estaba, al contrario, más fría.
+La máquina vieja se opuso enseguida.
 
-—Yo también voy —dijo corto.
+—Usted tiene que quedarse dentro.
 
-La máquina vieja se opuso de inmediato.
+Han Jiwoo se volvió de inmediato hacia la máquina.
 
-—Usted debe quedarse dentro.
+—¿No dicen que suben primero a los niños de buenas manos?
 
-Han Jiwoo miró enseguida hacia ese lado.
+Lo dijo en voz baja.
 
-—Dicen que suben primero a los de buenas manos —dijo bajo—.
-Entonces es justo que yo vea también qué manos eligen allí.
+—Entonces lo justo es que sea yo quien vea qué manos eligen allí.
 
-Esas palabras no eran simple terquedad.
+La máquina vieja no respondió y miró las manos de Han Jiwoo. En las manos que habían estado presionando a la persona herida toda la noche se había secado la sangre.
 
-Han Jiwoo, ahora,
-quizá era la persona que más directamente debía ver
-cómo Serakion lee las manos de la gente,
-cómo las clasifica
-y cómo las convierte en valor.
+—¿Y esa persona?
 
-Sion, al oírlo,
-supo que el siguiente movimiento había empezado de verdad.
+La máquina vieja señaló a la persona herida.
 
-Las manos de recuperación ya pensaban salir,
-dentro la información era demasiado grande para impedirlo,
-y el grupo de Sion pasaba a una fase en que ya no podía quedarse solo en lo más hondo de este viejo estrato.
+—Que la vigilen las manos de dentro. La respiración ya ha vuelto.
 
-Lo siguiente no llega al final de una preparación.
-Siempre llega antes,
-del lado que hay que agarrar antes de que sea tarde.
+Han Jiwoo miró a las dos máquinas de dentro, y las dos asintieron. Una de ellas vino a sentarse en el sitio de Han Jiwoo y le puso la mano sobre el lado izquierdo del pecho. Han Jiwoo miró dónde estaba esa mano, y estaba bien; solo entonces se apartó de su sitio.
 
-Y esta vez también,
-ese comienzo se filtró primero entre el aliento partido de un herido.
+La primera miró a Han Jiwoo despacio, de arriba abajo. La mirada se detuvo en sus manos manchadas de grasa.
+
+Han Jiwoo sostuvo esos ojos hasta el final, y fue la primera la que giró antes la cabeza.
+
+Sern miró el punto de arriba en el panel de registro.
+
+—¿Cuándo saldrán?
+
+—Antes del amanecer.
+
+—Aquí no hay sol.
+
+—Antes de que se apague la lámpara.
+
+Sern miró la lámpara amarilla y lo anotó.
+
+Ater le preguntó a la primera.
+
+—¿Adónde va esa única línea que sube?
+
+—Al lugar adonde los suben.
+
+—¿A personas?
+
+—A personas.
+
+Ater no preguntó más y miró esa línea sobre el panel de registro de Sern. Al final de la línea había un punto, y por encima no había nada.
+
+Kael le preguntó a la segunda.
+
+—¿En qué escalón los perdiste?
+
+—En el tercero desde arriba.
+
+—¿Por qué?
+
+—Es el único que tiene otra altura.
+
+Kael asintió. El tercero. Dobló ese número con los dedos y no volvió a estirarlos.
+
+Luhai se acercó desde donde estaban los niños despiertos.
+
+—Los niños lo han oído.
+
+Lo dijo en voz baja.
+
+—¿El qué?
+
+—Lo de que los suben.
+
+Han Jiwoo miró hacia los niños: uno de ellos se miraba la mano con la que agarraba un destornillador. Con la otra mano se la cubrió y miró a Han Jiwoo, y Han Jiwoo asintió.
+
+Seorin llegó del lado de la salida oscura y abarcó la situación de un vistazo: la persona tendida, los que estaban de pie, la máquina que se había dado la vuelta.
+
+—¿Te vas?
+
+—Me voy.
+
+Fue Han Jiwoo quien respondió.
+
+Seorin miró a la primera y le preguntó.
+
+—¿Cuántos?
+
+—Cuantos menos, mejor.
+
+—¿Cuántos?
+
+—Cinco. Contando a la segunda.
+
+Seorin se limitó a asentir; no preguntó quiénes eran los cuatro.
+
+Sion se puso la mano sobre el bolsillo. Dos trazos. Cuando hay que marcharse, reconocer lo que no se va a marchar. Bajó la mano.
+
+La persona herida respiró, y el lado izquierdo subió con medio compás de retraso. Han Jiwoo miró una vez más la mano de la máquina de dentro que descansaba allí, y se dio la vuelta.
+
+La lámpara amarilla se apagó. No volvió a encenderse.
+
+Un compás.
+
+Se encendió.
+
+—Todavía no.
+
+Lo dijo Sern.
+
+Nadie preguntó.
 
 ---
 

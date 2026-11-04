@@ -207,7 +207,7 @@ Han Jiwoo nodded and stepped half a step in behind the wall panel.
 
 The Hazran man said.
 
-"He just looks at the wall. The old machine sat him down where he can't see the wall."
+"He keeps trying to look only at the wall. So the old machine sat him down where he can't see the wall."
 
 Han Jiwoo didn't ask any more and looked at her own wrist. It was the hand that had held the man's pulse. With that hand she took hold of the wall panel.
 

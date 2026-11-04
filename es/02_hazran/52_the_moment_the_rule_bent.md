@@ -232,8 +232,6 @@ Al mismo tiempo, el aire bajo la capa térmica se torció con fuerza por tercera
 
 Esta vez, varias luces que fingían estar vivas estallaron a la vez hacia arriba y empezaron a hacer jirones la propia línea de entrada que hasta hacía un momento seguía en pie.
 
-Y Sion lo supo.
-
 La regla, justo ahora, había sido la primera en plegarse.
 
 ---

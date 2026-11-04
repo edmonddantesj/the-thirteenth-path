@@ -14,8 +14,6 @@ Sern prit alors la parole.
 
 « Dans ce cas, la question n'est pas de savoir qui a signé, mais qui a réécrit l'ordre des signatures. »
 
-La phrase était d'un calme étonnant.
-Et c'était pour cela qu'elle pesait plus lourd.
 À cet instant, Sion sentit un peu plus nettement que cet homme silencieux n'était pas redoutable d'une manière qui lui ressemblait, mais d'une manière tout autre. Lui lisait les odeurs ; l'autre lisait la structure.
 
 Ater ne dit rien.
@@ -222,9 +220,19 @@ Elia reprit le sachet de biscuits.
 
 « Ça, c'est la question que tu n'as pas posée tout à l'heure. »
 
-L'air de la pièce retomba encore une fois.
+Sion sortit un autre fragment de la poche de récupération, à l'intérieur de sa veste. Il l'avait gardé sur lui depuis les docks de l'Office. Il le posa à côté de la tablette.
 
-Debout près de la tablette, Sern continuait de regarder la section.
+Elia le passa lui aussi à la lumière. Elle ne le regarda pas longtemps.
+
+« C'est la même plaque. Brûlée le même jour. » Elia poussa les deux fragments côte à côte. « Celui-ci, le feu l'a dévoré en entier ; celui-là, il n'a brûlé que sur les bords. »
+
+« Celui qui est remonté jusqu'aux docks, c'est celui qui a brûlé en entier », dit Sion.
+
+« Et celui que cette personne a emporté en courant, c'est le moins brûlé », dit Seorin.
+
+Elia écarta un peu, du bout des doigts, le fragment brûlé en entier. « Un fragment brûlé en entier, tu le passes au rebut et l'affaire se règle sur papier. C'est parce qu'il en restait un moins brûlé qu'on l'a poursuivi. »
+
+Debout près de la tablette, Sern continuait de regarder la section du fragment de l'Archiviste.
 
 « Excellence. »
 

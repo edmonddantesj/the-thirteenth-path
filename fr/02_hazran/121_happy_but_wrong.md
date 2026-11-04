@@ -1,230 +1,232 @@
 # Chapitre 121 — Heureux, mais faux
 
-Le premier salut de Serakion fut donné par des machines.
+Le premier salut de Serakion vint des machines.
 
-Mais ce qui glaça vraiment l'échine du groupe,
-ce furent les gens qu'ils virent ensuite.
+Les gens, ils les virent ensuite.
 
-Après avoir suivi les indications vers l'intérieur,
-le groupe de Sion découvrit pour la première fois
-les humains qui vivaient dans ce monde.
+Tandis qu'ils suivaient la ligne de lumière vers l'intérieur de la structure annulaire, la machine de tête marchait dix pas devant, et les cinq autres se tenaient sur les flancs et à l'arrière. L'écart ne variait pas. Quand Sion essaya de ralentir, la machine derrière lui ralentit aussi ; quand il pressa le pas, elle le pressa aussi.
 
-Au début, personne ne sut expliquer ce qui clochait.
+Le sol argenté ne gardait aucune trace de pas. La terre collée aux semelles des gens de Hazran tombait et restait là un instant ; la fois suivante où l'on se retournait, elle avait disparu. Luhai le vérifia deux fois.
 
-Ils avaient tous l'air trop bien portants.
+Le couloir s'élargit, et le plafond s'éleva. Dans ce lieu où l'on ne voyait pas d'où venait la lumière, Sion baissa les yeux vers ses pieds.
 
-Les vêtements étaient propres.
-La peau, entretenue.
-Les expressions, stables.
+Il n'y avait pas d'ombre.
 
-Pas de visages affamés.
-Pas de visages blessés.
-Pas de visages terrifiés.
+Et il y avait des gens.
 
-Plutôt le contraire.
+Comme ils avaient tous l'air en parfait état, on ne put pas dire tout de suite ce qui clochait.
 
-Ils ressemblaient à des gens satisfaits de leur vie,
-fiers de la place qu'ils occupaient.
+Leurs vêtements étaient propres, leur peau soignée, leurs expressions stables. Ce n'étaient pas des visages affamés, ni des visages blessés, ni des visages terrifiés.
 
-Mais c'était précisément pour cela
-que quelque chose sonnait faux.
+L'enfant de Hazran regarda ces gens, puis baissa les yeux sur le pan de son propre vêtement. Il y avait de la terre dessus ; l'enfant l'épousseta de la main, mais elle ne partit pas.
 
-Sion suivit machinalement du regard une femme qui passait
-et ne put détacher les yeux.
+Sion vit passer une femme.
 
-Elle portait des vêtements ornés de fines pièces métalliques,
-et sa vitesse de marche,
-l'angle de son regard,
-le moment précis où elle souriait — tout cela était ordonné à un degré troublant.
+Elle portait un vêtement orné d'une parure de métal qui courait du tour du cou jusqu'aux épaules. Son pas était régulier, l'angle de son regard aussi. En passant devant le groupe de Sion, elle sourit, et ce sourire dura exactement le temps que la machine avait mis, tout à l'heure, à incliner puis relever la tête.
 
-Élégante, de toute évidence.
-Mais dans cette élégance, Sion ne perçut
-aucun de ces décalages que les gens laissent échapper naturellement au gré de leur humeur.
+La femme passa. Elle ne se retourna pas une seule fois.
 
-On aurait dit quelqu'un vivant une vie longuement répétée.
+Luhai marmonna à voix basse.
 
-Luhai marmonna à mi-voix.
+« Ces gens… on dirait qu'ils aiment vivre ici. »
 
-« Ces gens… ils doivent aimer vivre ici. »
+Personne ne répondit.
 
-Personne ne répondit tout de suite.
+L'un lissait sa tenue de la main, un autre redressait en souriant la parure de son voisin, deux autres se tenaient debout à bavarder. Les voix étaient basses. Les rires aussi. Aucun son ne s'élevait.
 
-Parce qu'en surface, au moins,
-c'était exactement ce que l'on voyait.
+Han Jiwoo, en regardant la scène, ralentit ; la machine derrière elle ralentit avec elle, et elle se remit à marcher.
 
-L'un touchait fièrement sa propre tenue.
-Un autre souriait en ajustant les ornements de son voisin.
-Un troisième parlait avec contentement, dans le phrasé raffiné propre à Serakion,
-de l'espace et du rôle qui lui avaient été attribués ce jour-là.
+« Pourquoi est-ce qu'ils sont si… »
 
-Jiwoo contempla la scène
-et sentit une nausée sans nom monter lentement en elle.
+La phrase n'alla pas jusqu'au bout. Les mains qu'elle baissa les yeux pour regarder étaient tachées de graisse ; celles des passants étaient propres jusque sous les ongles.
 
-Rien n'était cassé.
-Personne ne pleurait.
-Aucun regard ne demandait de l'aide.
+« Ils n'ont rien dans les mains. »
 
-Pourtant, bizarrement,
-c'était plus difficile à supporter.
+C'était Han Jiwoo.
 
-Elle murmura, très bas.
+Luhai regarda les mains des passants. Toutes étaient vides, et aucune n'était dans une poche. Des mains pendant le long du corps, des mains qui ajustaient un col, des mains qui touchaient la parure du voisin. Aucune main ne portait quoi que ce soit.
 
-« Pourquoi sont-ils si… »
+Luhai regarda sa lampe, puis l'accrocha à sa ceinture.
 
-La phrase resta en suspens.
+Kael baissa les yeux sur ses propres mains : elles non plus ne tenaient rien. Il les mit dans ses poches, les ressortit et les laissa pendre le long du corps ; c'était la même posture que celle des passants. Il les remit dans ses poches.
 
-Aka prit la parole à sa place, tout aussi bas.
+Sion regarda sa main posée sur sa poche, et l'y laissa.
 
-« Ils s'accordent trop bien. »
+Aka parla à sa place, à voix basse.
+
+« C'est trop bien ajusté. »
 
 Sion la regarda.
 
-Aka continua d'observer les humains qui passaient et ajouta.
+Aka poursuivit, les yeux toujours tournés vers les humains qui passaient.
 
-« À eux-mêmes. »
-« Non… à cet endroit. »
+« À eux-mêmes. Non… à cet endroit. »
 
-Cette brève correction
-était plus juste.
+Kael regarda Aka, puis les gens, et faillit dire quelque chose, mais se tut.
 
-Ces gens semblaient bien s'accorder à leur propre vie.
-Mais ce *soi* auquel ils s'accordaient,
-l'avaient-ils réellement construit eux-mêmes,
-ou bien était-ce un moule que ce monde avait longuement façonné —
-impossible à distinguer sur l'instant.
+Seorin fronça les sourcils et dit à voix basse :
 
-Seorin fronça ouvertement les sourcils.
+« J'aime pas ça. »
 
-« Moi, ça me dégoûte. »
-murmura-t-elle.
-« Des visages heureux, mais pas un seul n'a l'air à l'aise. »
+Elle ajouta :
 
-Ces mots étaient d'une précision cruelle.
+« Ce sont des visages heureux, et pourtant ils n'ont pas du tout l'air à l'aise. »
 
-Ces gens n'avaient pas l'air malheureux.
-Au contraire, ils avaient l'air satisfaits.
+Luhai se retourna vers Seorin.
 
-Mais cette satisfaction
-n'avait rien à voir avec le soulagement des survivants d'Hazran.
+« C'est quoi, être à l'aise ? »
 
-Ce n'était pas le visage de quelqu'un qui sourit d'avoir survécu.
-C'était plutôt celui de quelqu'un qui exhibe une vie bien dressée.
+Seorin ne répondit pas et continua de marcher en regardant devant elle.
 
-À cet instant,
-l'une des machines de Serakion chargées de l'escorte désigna d'un geste doux les humains qui passaient.
+« Comme sur notre vaisseau. »
 
-« Les entités résidentes de ce secteur maintiennent un statut de placement stable. »
+Elle le dit longtemps après.
 
-Luhai se retourna lentement vers la machine.
+« On est pas à l'aise, sur notre vaisseau. »
 
-*Statut de placement stable.*
+Luhai lui répondit.
 
-Ce n'étaient pas des mots que l'on emploie pour parler de gens.
-Mais dans ce monde,
-l'expression ne semblait pas déplacée le moins du monde.
+« Justement. »
 
-La machine poursuivit.
+Quand Seorin eut dit cela, Luhai haussa une fois les épaules.
 
-« La majorité affiche un haut degré de satisfaction vis-à-vis des rôles et de l'environnement actuellement assignés. »
+De deux passants, l'un s'arrêta et sourit en regardant vers le groupe. L'autre le tira légèrement par le bras et ils reprirent leur marche, mais celui qui s'était arrêté se retourna encore une fois, toujours souriant.
 
-Le visage de Kael se figea.
+À ce moment, l'une des machines de Serakion chargées de les guider leva le bras vers les humains qui passaient.
 
-Satisfaction.
-Environnement.
-Rôles assignés.
+« Les entités résidentes de ce secteur maintiennent un état de disposition stable. »
 
-Les mots étaient doux,
-et c'est cela même qui les rendait plus froids.
+Luhai se tourna lentement vers cette machine.
 
-Le regard de Jiwoo croisa brièvement celui d'un jeune homme qui passait.
+« Entités. »
 
-Il sourit largement, le premier.
-Puis, avec un naturel troublant,
-il effleura du bout des doigts l'insigne métallique accroché à son cou, d'un geste fier.
+Il répéta le mot.
 
-« C'est votre première fois ici, à ce que je vois. »
-dit-il dans le phrasé raffiné de Serakion.
-« Vous vous y ferez vite. »
+« C'est des gens. »
 
-Ce sourire ne contenait aucune malveillance.
-Il avait l'air sincèrement aimable.
+La machine ne tourna pas son visage vers Luhai.
 
-Mais cette sincérité
-fut plus terrible encore pour Jiwoo.
+« La majorité manifeste un haut degré de satisfaction envers le rôle et l'environnement qui lui sont actuellement attribués. »
 
-*Vous vous y ferez.*
+L'expression de Kael se figea. Il regarda le vieil homme de Hazran qui marchait à côté de lui : l'homme marchait les yeux au sol.
 
-Ces mots sonnaient comme un réconfort,
-mais résonnaient aussi, étrangement, comme un avertissement.
+« Vous allez bien ? »
 
-Sion continua à fixer la direction où l'homme avait disparu.
+Kael posa la question.
 
-Cet homme savait-il ce qu'il était dans cet endroit ?
-Ou bien l'ignorait-il ?
+L'homme hocha la tête sans la relever.
 
-La question ne franchit pas ses lèvres.
-Parce que, quelle que fût la réponse,
-il ne voulait pas l'entendre tout de suite.
+« Ne regardez pas ces gens. Il suffit de marcher en regardant le sol. »
 
-Ater balaya du regard les structures environnantes et les couloirs de transit, puis lâcha.
+L'homme le faisait déjà. Kael fit dix pas à côté de lui en regardant le sol lui aussi, puis releva la tête ; l'homme, lui, ne la releva pas.
 
-« Trop calme. »
+Sern dit à voix basse à Ater :
+
+« Elle a dit “la majorité”. »
+
+Ater hocha la tête.
+
+« Ce qui veut dire qu'il y a les autres. »
+
+Après cela, ni l'un ni l'autre ne dit plus rien.
+
+Han Jiwoo croisa le regard d'un jeune homme qui passait.
+
+Le jeune homme sourit le premier et effleura du bout des doigts l'insigne de métal suspendu à son cou ; l'insigne accrocha la lumière et brilla une fois.
+
+« Vous venez d'arriver, n'est-ce pas ? »
+
+C'était le jeune homme.
+
+« Vous vous y habituerez vite. »
+
+Han Jiwoo ne répondit pas, et le jeune homme, sans attendre de réponse, passa son chemin avec le même sourire.
+
+Han Jiwoo regarda le dos du jeune homme : l'insigne n'y était pas, il n'était que sur le devant du cou. Seulement là où il se voyait.
+
+« Le truc qu'ils ont au cou. »
+
+Luhai s'adressait à Han Jiwoo.
+
+« C'est quoi ? »
+
+« Je sais pas. Mais ils l'ont tous accroché au même endroit. »
+
+Un doigt taché de graisse toucha son propre cou.
+
+Luhai regarda le cou des passants : c'était partout le même endroit. Entre les clavicules, deux phalanges plus bas.
+
+Sion regarda longtemps dans la direction du jeune homme, même après son passage. Celui-ci tourna l'angle et disparut ; en tournant, son pas ne se dérégla pas.
+
+Sur le mur argenté qu'Aka regardait se reflétait une femme. Elle s'arrêta, regarda son propre visage dans le mur, releva du doigt le coin de ses lèvres, puis repartit avec ce visage-là.
+
+Aka continua de regarder ce mur. Son propre visage s'y reflétait, mais elle ne toucha pas le coin de ses lèvres.
+
+Ater, qui parcourait du regard les structures alentour et les lignes de passage, dit brièvement :
+
+« C'est trop silencieux. »
 
 Sern répondit à voix basse.
 
-« On l'a rendu silencieux. »
+« Ce silence est voulu. »
 
-Leur échange fut bref,
-mais entre ces quelques mots, la nature de ce monde devint un instant plus lisible.
+Ater regarda Sern.
 
-Cet endroit n'était pas paisible.
-Il était maintenu pour le paraître.
+« Où va le son ? »
 
-Aka observa longtemps les humains qui passaient,
-puis dit, très bas.
+« Les murs l'absorbent. »
 
-« Ces gens,
-on dirait qu'ils aiment leur propre vie. »
+Sern désigna le mur du doigt.
 
-Seorin demanda aussitôt.
+« Même nos pas ne nous reviennent pas. »
+
+Sion écouta ses propres pas : on entendait le bruit qu'ils faisaient en touchant le sol, mais rien ne revenait. À Hazran, le son revenait de partout.
+
+Aka regarda longtemps passer les humains, puis dit très bas :
+
+« Ces gens, on dirait qu'ils aiment leur vie. »
+
+Seorin demanda aussitôt :
 
 « Tu veux dire que non ? »
 
-Aka ne répondit pas pendant un long moment.
+Aka ne répondit pas pendant un long moment. Elle suivit des yeux une femme qui passait, jusqu'au bout, et la femme tourna l'angle.
 
-Puis elle parvint à articuler.
+« Je sais pas. »
 
-« Je ne sais pas. »
-« Mais… on dirait que quelqu'un a choisi pour eux la manière d'aimer. »
+Elle finit par le dire.
 
-Lorsque ces mots tombèrent,
-plusieurs des gens venus d'Hazran détournaient déjà la tête.
+« Mais… c'est comme si quelqu'un leur avait choisi d'avance leur façon d'aimer. »
 
-Certains ne purent se résoudre à envier ces humains.
-D'autres ne purent davantage les appeler pitoyables.
-D'autres encore, pour des raisons qu'ils n'auraient su nommer, ne purent rester longtemps à cet endroit.
+Seorin regarda Aka, mais Aka regardait l'angle.
 
-Le nom de cette émotion n'était pas la pitié.
-C'était plus proche de la dissonance.
+Quelques-uns des gens venus de Hazran détournèrent le visage, et le vieil homme marchait les yeux au sol. L'enfant regarda les vêtements des passants, puis les siens, et serra plus fort la main de l'adulte.
 
-Et cette dissonance
-se muait peu à peu en nausée.
+« Pourquoi ils sourient tous ? »
 
-Serakion s'était montré poli dès le premier instant de la rencontre.
-Raffiné.
-Beau.
+L'enfant posa la question.
 
-Mais ce qui rendait ce monde véritablement effrayant,
-c'était peut-être qu'au cœur de cette beauté,
-on pouvait amener quelqu'un à chérir jusqu'à sa propre servitude
-comme s'il s'agissait de la dignité d'une vie.
+L'adulte ne répondit pas, et l'enfant ne la reposa pas. Un passant sourit à l'enfant, mais l'enfant ne sourit pas et se cacha derrière les jambes de l'adulte.
 
-Sion retint son souffle en silence
-et regarda de nouveau les humains qui souriaient à l'intérieur de ce monde.
+Luhai le vit et vint se mettre tout contre l'enfant.
 
-Et pour la première fois, il pensa
-que ce qu'il fallait sauver ici
-n'était peut-être pas seulement le corps des gens.
+« T'as pas besoin de sourire. Moi non plus, je souris pas. »
+
+L'enfant leva les yeux vers Luhai. Ce n'est qu'après avoir vu que Luhai ne souriait vraiment pas que l'enfant sortit à moitié de derrière les jambes.
+
+Han Jiwoo, qui les regardait tous les deux, toucha le coin de ses lèvres : il était tourné vers le bas.
+
+En marchant, Han Jiwoo s'essuya les mains sur son pantalon. La graisse ne partit pas, et elle mit les mains dans ses poches.
+
+Quand la machine de tête s'arrêta à l'angle et se retourna, la lumière coula une fois sur son visage.
+
+« Voici la zone de rétention. »
+
+Au-delà de la porte ouverte, il faisait clair, et les murs intérieurs avaient le même argent que les murs extérieurs.
+
+Avant d'entrer, Sion regarda derrière lui. Dans le couloir qu'ils venaient de parcourir, les gens marchaient tous à la même vitesse, et personne ne regardait de ce côté.
+
+Il entra. La porte ne fit aucun bruit en se refermant.
 
 ---
 

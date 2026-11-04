@@ -66,7 +66,7 @@ Ater habló en voz baja.
 Sion también respondió en voz baja.
 —Pero ya que entramos hasta aquí, tampoco podemos no pisarlo.
 
-Eso valía igual para los tres que estaban sobre el terreno y para las dos que se habían quedado en el casco. Si tocaban mal aquello, la reacción de discriminación que quedaba se moría, y con ella perdían también la mano que tenía el fragmento más grande. Al revés, si llegaban demasiado tarde, el otro desaparecería por la siguiente línea de escape. A esa distancia, dudar era perder.
+Eso valía igual para los tres que estaban sobre el terreno y para las dos que se habían quedado en el casco. Si tocaban mal aquello, la reacción de discriminación que quedaba se moría, y con ella perdían también la mano que tenía el fragmento más grande. Al revés, si llegaban demasiado tarde, el otro desaparecería por la siguiente línea de escape.
 
 La voz de Han Jiwoo pasó rozando, muy baja, por dentro de la línea de comunicación.
 
@@ -190,8 +190,6 @@ Ater se quedó un momento sin decir nada.
 
 Sion dio un paso más hacia la junta estrecha del interior de la estructura. La placa de metal bajo sus pies era inestable, pero si seguía solo la línea de carga que Sern le había señalado antes, aguantaba. Sern, detrás, no dejaba de vigilar el orden de sus pasos, y Ater leía las marcas de la pared y los patrones de deterioro, atento únicamente a la siguiente línea de escape que podía elegir el otro.
 
-Los movimientos de los tres eran ya mucho menos torpes que al principio. Todavía no se les podía llamar equipo. Pero al menos allí, dentro de aquella estructura estrecha, lo que cada uno tenía que mirar casi coincidía.
-
 Del extremo de la sombra de delante llegó otra vez el roce de un metal.
 
 Esta vez, tras el sonido vino un resplandor muy breve.
@@ -278,7 +276,7 @@ Sern recogió esas palabras enseguida.
 
 —Y ese será el momento en que esté más cerca.
 
-Sion miró a los dos, primero a uno y luego al otro. Uno leía la estructura; el otro, el orden. Los dos hablaban una lengua distinta de la suya y, sin embargo, ahora, por extraño que fuera, todo convergía en la misma respuesta.
+Sion miró a los dos, primero a uno y luego al otro. Leían cosas distintas y llegaban a la misma respuesta.
 
 Sion habló muy bajo.
 

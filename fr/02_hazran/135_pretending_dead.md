@@ -1,229 +1,262 @@
-# Chapitre 135 — Faire semblant d'être mort
+# Chapitre 135 — Le chemin qui fait le mort
 
-La première fois que Sion prit ces mots au sérieux,
-ce ne fut pas à cause d'Aka, mais de Jiwoo.
+C'était bien Aka qui l'avait dit la première.
 
-Aka les avait prononcés la première, oui.
+Ce chemin n'est pas mort. Il fait semblant d'être mort.
 
-*Ce chemin n'est pas mort.*
-*Il fait semblant d'être mort.*
+Après avoir entendu ces mots, Sion regarda ce mur trois fois. Les trois fois, il lui parut pareil aux autres murs, et tout ce qu'il savait, c'était qu'il y avait moins de rouille.
 
-Mais ces mots ressemblaient tellement à Aka
-qu'ils étaient du genre à faire hésiter l'auditeur avant même qu'il ne comprenne.
+Ce fut après avoir réparé le genou de la machine à l'articulation déboîtée que Han Jiwoo vint s'accroupir devant ce mur.
 
-Sion les avait donc gardés dans un coin de son esprit.
+Elle posa sa sacoche à outils à côté d'elle et, du bout des doigts, tâta le bord du métal de haut en bas, puis de nouveau vers le haut, sans rien dire pendant un long moment.
 
-Y avait-il vraiment quelque chose derrière ce mur ?
-Ou bien était-ce un grain que seule Aka savait lire ?
+Les couloirs bouchés de l'ancienne couche se ressemblaient tous. Chaque vieux mur portait des traces de rapiéçage, et les marques de soudure s'y superposaient. Han Jiwoo ne s'attarda longtemps que devant l'un d'eux.
 
-Le doute reprit vie
-quand Jiwoo s'accroupit près de cette paroi et commença à tracer du bout des doigts le bord métallique.
-
-Elle ne dit rien pendant un long moment.
-
-La plupart des couloirs bloqués de l'ancienne couche se ressemblaient.
-Vieux.
-Rapiécés.
-Des marques de soudure superposées un peu partout.
-
-Mais Jiwoo s'arrêta inhabituellement longtemps devant un endroit précis.
+C'était l'endroit que deux machines avaient ouvert pour l'examiner la veille ; aujourd'hui, les machines n'étaient plus là, il ne restait que les traces de leurs mains, des endroits où la poussière avait été essuyée.
 
 Sion s'approcha et demanda à voix basse :
 
 « Qu'est-ce qui est différent ? »
 
-Jiwoo répondit, la main toujours posée sur la surface :
+Han Jiwoo répondit sans retirer sa main.
 
-« Ce n'est pas une main qui a fermé pour de bon. »
+« C'est pas une main qui a fermé pour de bon. »
 
-Sion regarda de nouveau le mur.
-Sous tous les angles, il paraissait scellé.
+Sion regarda de nouveau la paroi : elle était bel et bien bouchée.
 
-Jiwoo poursuivit, tout bas :
+« C'est caché. Pas bouché. »
 
-« C'est dissimulé. »
-« Pas obstrué — dissimulé. »
+Le bout de ses doigts suivit une ligne de jonction et descendit lentement de la hauteur de l'épaule à celle du genou, puis bifurqua sur le côté et dessina un cadre à la taille d'une personne.
 
-En même temps que ces mots,
-son doigt suivit lentement une fine ligne de jonction.
+« Regarde ici. »
 
-En surface, elle semblait figée depuis longtemps,
-mais il restait un grain d'usure, celui que laisse une pression interne régulière.
+Elle désigna de l'ongle un point de la ligne de jonction.
 
-Très léger.
-Mais une fois qu'on le savait,
-la surface ne paraissait plus tout à fait morte.
+Sion regarda l'endroit, mais il lui parut encore pareil au reste.
+
+« C'est usé. Quand ça prend la force de l'intérieur, ça s'use comme ça. Si on pousse du dehors, ça s'use dans l'autre sens. »
+
+L'ongle gratta l'endroit une fois de plus.
+
+Sion regarda encore : la différence n'était pas plus grande qu'une marque d'ongle, mais une fois qu'il l'eut vue, il ne cessa plus de la voir.
 
 Aka dit, à côté d'elle :
 
-« Quelque chose y passe encore. »
+« On y passe encore. »
 
-Jiwoo hocha brièvement la tête.
+Han Jiwoo hocha la tête.
 
-« Oui. »
-« Pas souvent,
-mais ça ne s'est jamais interrompu. »
+« Oui. Pas beaucoup, mais ça s'est jamais arrêté. »
 
-Au moment où ces deux voix se superposèrent,
-Sion accepta véritablement, pour la première fois,
-la possibilité que ce mur ne fût pas une simple zone condamnée.
+« Comment tu le sais ? »
 
-Les machines de l'ancienne couche semblaient ressentir la même chose.
+Sion posa la question.
 
-Deux vieilles machines qui observaient de loin
-échangèrent un regard muet.
+« Quand ça s'arrête, la rouille remonte. »
 
-Leur réaction tenait moins de la surprise
-que du sentiment d'avoir été percées à jour.
+Ses doigts suivirent la ligne de jonction.
 
-Jiwoo plaqua toute sa paume contre le mur, puis dit à voix basse :
+« Ici, elle est pas remontée. Quelqu'un y touche tout le temps. »
 
-« C'est une main qui va vers l'extérieur. »
+Un peu plus loin, les deux vieilles machines qui l'avaient ouvert la veille regardaient de ce côté, puis elles se regardèrent. L'une recula d'un pas, l'autre la retint par le bras, et toutes deux restèrent plantées là.
+
+Aux yeux de Sion, elles avaient la posture de qui vient d'être pris.
+
+L'une des deux regarda du côté de la vieille machine, mais celle-ci n'était pas encore arrivée ; alors ce fut elle qui parla.
+
+« On l'a ouvert hier. »
+
+On ne savait pas bien à qui s'adressaient ces mots.
+
+« Je sais. »
+
+Han Jiwoo répondit sans quitter le mur des yeux.
+
+« Je vois les endroits où la poussière est essuyée. »
+
+« Nous ne l'avons pas essuyée. Nous l'avons touchée. »
+
+Les doigts de la machine se replièrent d'eux-mêmes.
+
+« C'est pareil. Quand on touche, ça s'essuie. »
+
+La machine n'en dit pas plus et regarda sa main : le bout de ses doigts était propre.
+
+Han Jiwoo plaqua toute sa paume contre le mur et resta ainsi un long moment.
+
+« C'est une main qui va dehors. »
 
 Sion la regarda.
 
-« Tu en es sûre ? »
+« Tu es sûre ? »
 
-Jiwoo marqua un temps un peu plus long, cette fois.
+Cette fois, elle laissa passer un temps plus long ; puis elle détacha sa paume du mur et la regarda : il n'y avait presque pas de poussière dessus.
 
-« Ce n'est pas pour la maintenance.
-Pas pour maintenir un scellement.
-Pas une main qui ferme en hâte et rouvre ensuite.
-C'est une main qu'on continue de passer de sorte que, même découverte, les traces restent minimes. »
+« C'est pas pour l'entretien, ni pour garder ça fermé. C'est pas une main qui ferme en vitesse et qui rouvre après, c'est une main qui continue d'y toucher pour que ça se voie moins, même si quelqu'un tombe dessus. »
 
-C'était une tout autre histoire.
+Derrière, Luhai, un enfant sur le dos, entendit ces mots.
 
-Jusque-là, l'ancienne couche
-n'avait ressemblé qu'à un refuge intérieur où les blessés tenaient à peine.
+« Il y a une sortie ? »
 
-Mais si ce chemin était vivant,
-cela signifiait que quelque part ici, des mains sortaient encore et revenaient.
+« Oui. Où elle mène, je sais pas. »
 
-Sion se souvint soudain
-de la machine qui les avait conduits ici pour la première fois.
+La sangle de la sacoche à outils s'enroula une fois autour de sa main.
 
-Portant le visage du Serakion,
-une main qui extrayait les gens avant de s'expliquer.
+Sern vint de ce côté sans son panneau d'enregistrement et mesura à la main le cadre des lignes de jonction. Un empan, deux empans, trois empans. Deux empans en largeur.
 
-Si cette main rejoignait ce chemin,
-alors l'ancienne couche était un lieu qui préservait la mémoire
-et, en même temps, un lieu qui ne s'était pas complètement terré.
+« C'est une largeur d'épaules. »
 
-À cet instant,
-un bruit de friction très bas parvint de l'arrière.
+Il le dit simplement.
 
-Sion se retourna :
-l'une des vieilles machines qui les surveillait depuis la veille
-approchait lentement.
+« Ce n'est pas une largeur d'homme, mais une largeur de machine. »
 
-Elle regarda brièvement le mur,
-puis l'endroit où la main de Jiwoo se posait encore,
-et dit d'un ton sec :
+« Les gens peuvent pas passer ? »
+
+Luhai posa la question.
+
+« Ils passent. De côté. »
+
+Sern tourna son corps de côté pour le montrer.
+
+Luhai regarda ses propres épaules, puis l'enfant sur son dos, puis le mur. Par-dessus son épaule, l'enfant regarda aussi, mais ni l'un ni l'autre ne vit rien.
+
+Sion repensa à la machine qui les avait amenés jusqu'ici la première fois. C'était la main qui leur avait ouvert le chemin sous le visage de Serakion. Cette machine était à présent assise à côté de Sern et marquait des points ; Sion eut beau regarder de ce côté, elle ne leva pas les yeux vers lui et continua de marquer ses points.
+
+Derrière eux, un bruit de friction sourd se fit entendre.
+
+Sion se retourna : la vieille machine approchait lentement. Le grincement d'un genou se rapprochait. Ce n'était pas le genou que Han Jiwoo avait réparé, c'était l'autre.
+
+Elle regarda la paroi, puis l'endroit usé que touchait la main de Han Jiwoo, et dit d'un ton sec :
 
 « Vous savez donc lire cela. »
 
-Jiwoo répondit sans retirer sa main :
+Han Jiwoo répondit sans retirer sa main.
 
-« Moins une lecture
-qu'une façon de cacher qui saute aux yeux. »
+« C'est pas tant que je le lis. C'est la façon de cacher qui me saute aux yeux. »
 
-La vieille machine ne répondit pas tout de suite.
+« Cela ne doit sauter aux yeux de personne. »
 
-Ce n'est qu'après un long silence
-qu'elle dit, très bas :
+« Ça saute qu'aux miens. Ceux d'en haut le voient pas. Ils ont jamais rien réparé, eux. »
 
-« Tout le monde ne connaît pas ce chemin. »
+La vieille machine ne répliqua pas tout de suite. Son œil optique s'arrêta sur la main de Han Jiwoo, sur les cicatrices de ses phalanges.
 
-Cette phrase tenait davantage de l'aveu que du démenti.
+Longtemps après, elle dit, très bas :
 
-Sion ne la laissa pas passer.
+« Ce n'est pas un chemin que tout le monde connaît. »
 
-Aka, les yeux fixés sur le mur, demanda tout bas :
+Sion entendit ces mots. Elle n'avait pas dit non.
 
-« Il mène dehors ? »
+Aka demanda doucement, les yeux sur le mur :
 
-La vieille machine, cette fois non plus, ne répondit pas immédiatement.
+« Ça mène aussi dehors ? »
 
-Plus ce silence se prolongeait,
-plus Sion éprouvait quelque chose qui ressemblait à une certitude.
+La vieille machine ne répondit pas, et le silence s'allongea. L'enfant gigota sur le dos de Luhai, et Luhai remonta l'enfant sur son dos. Pendant ce bruit-là, la vieille machine ne répondait toujours pas.
 
-Ce chemin existe.
-
-Et c'est le genre de chemin
-que seule une partie de l'ancienne couche connaît précisément.
-
-La vieille machine ne parla qu'après un long moment.
+Ce n'est que longtemps après qu'elle prit la parole.
 
 « Il y en a qui reviennent. »
 
-Cette seule phrase suffit.
+Qui, d'où, après avoir fait quoi : elle ne le dit pas.
 
-Qui.
-D'où.
-Ce qu'ils faisaient là-bas — rien de tout cela n'avait encore été dit.
+Han Jiwoo retira sa main du mur.
 
-Mais cette seule ligne
-modifia imperceptiblement l'air de toute l'ancienne couche.
+« Combien ? »
 
-Ce n'est pas simplement un refuge qui ralentit l'effondrement.
-Il y a encore des mains qui sortent et reviennent.
+« Ils sont peu nombreux. »
 
-Jiwoo toucha de nouveau le mur.
+« Tous les combien ? »
 
-Et dit, très bas :
+« Nous ne fixons rien. Ce qui est fixé se fait repérer. »
 
-« Ces mains-là,
-elles doivent être rudes. »
+Han Jiwoo toucha de nouveau le mur et posa un doigt sur l'endroit usé ; alors seulement, elle dit, très bas :
 
-La vieille machine remua alors très légèrement son œil optique.
+« Ces mains-là, elles doivent être rudes. »
 
-« Elles s'usent plus vite
-que celles qui tiennent à l'intérieur. »
+La vieille machine bougea son œil optique, très imperceptiblement.
 
-Ces mots, étrangement,
-frappèrent la poitrine de Sion un peu plus fort.
+« Elles s'usent plus vite que les mains qui tiennent longtemps. »
 
-Il y a des mains qui restent à l'intérieur et gardent la mémoire.
-Et des mains qui sortent et s'usent plus vite.
+« Et qui les répare ? »
 
-Les deux font partie de cette ancienne couche.
+« Nous les réparons quand elles reviennent. »
 
-Ce que le groupe de Sion avait vu jusque-là
-n'en était que la couche la plus profonde.
+« Et si elles reviennent pas ? »
 
-Aka, la main toujours posée sur le mur, murmura :
+La vieille machine ne répondit pas ; pendant ce temps, des deux machines restées derrière, l'une baissa la tête et l'autre non. Han Jiwoo ne reposa pas la question.
+
+Sion regarda ce mur. Il y avait des mains qui restaient à l'intérieur pour retenir la mémoire, et des mains qui sortaient et s'usaient plus vite. Il appuya sur sa poche. Deux traits. Il y avait la main qui trace, et il y avait le trait qu'elle n'avait pas pu tracer.
+
+Aka murmura, sans retirer sa main du mur :
 
 « C'est pour ça que l'odeur était différente. »
 
 Sion la regarda.
 
-Aka poursuivit sans tourner les yeux :
+Aka poursuivit sans même tourner les yeux.
 
-« Ici, ça sent l'endroit qui se cache.
-Là-dedans, ça sent l'endroit où l'on passe. »
+« Ici, ça sentait la cachette. Là, ça sent l'aller-retour. »
 
-Ces mots ne ressemblaient pas à une explication,
-mais ils étaient d'une précision troublante.
+Han Jiwoo reprit brièvement après elle :
 
-Jiwoo enchaîna, brièvement :
+« Oui. C'est pas l'odeur d'un métal qui reste sans bouger. »
 
-« Oui. »
-« Ce n'est pas l'odeur du métal qui reste immobile. »
+Elle approcha le nez du mur sans le toucher, inspira, puis s'écarta.
 
-À cet instant, Sion perçut clairement pour la première fois
-qu'au-delà de cette ancienne couche,
-il existait encore des histoires en mouvement.
+« Ça sent le vent. »
 
-Le Serakion se comportait comme un monde achevé.
-Cet intérieur ressemblait à un monde qui tenait.
+« Le vent ? »
 
-Mais quelque part entre les deux,
-des mains d'une autre vitesse allaient et venaient sans se faire prendre,
-ramenant des gens, des provisions et des nouvelles.
+« De l'air qui bouge. Ce qu'il y a pas, ici. »
 
-Et ce chemin
-n'était pas mort.
-Il faisait semblant d'être mort depuis le début.
+L'enfant sur le dos, Luhai s'avança d'un pas, approcha son visage du mur et inspira.
+
+« Je sens rien. »
+
+Il ne lui resta qu'un peu de poussière au bout du nez.
+
+« T'as jamais réparé de machine, toi. »
+
+Il recula en se frottant le nez. Sur son dos, l'enfant tendit la main vers le mur, mais le bout des doigts ne l'atteignit pas.
+
+Tandis que la vieille machine se tenait immobile devant ce mur, deux vieilles machines vinrent se placer derrière elle. Toutes trois se tinrent dos au mur, face au groupe de Sion.
+
+Ce n'était pas une posture de barrage. C'était une posture de qui se tient là, simplement.
+
+Han Jiwoo ramassa la sacoche à outils qu'elle avait posée au sol et se releva.
+
+« Je vais pas l'ouvrir. »
+
+« Je sais. »
+
+La vieille machine répondit.
+
+« Tu l'ouvres quand, alors ? »
+
+« Quand elles reviendront. »
+
+Han Jiwoo hocha la tête, recula de trois pas et s'arrêta là. C'était la distance que les machines gardaient avec les enfants.
+
+Sion se tint à côté d'elle, Aka aussi, et Luhai, l'enfant sur le dos.
+
+Les quatre regardaient le mur. Les trois regardaient les quatre. Personne ne bougeait.
+
+Sion sortit la plaque de métal. Deux traits. Il regarda l'endroit usé du mur que Han Jiwoo avait touché. La main qui trace et la main qui s'use. Puis il remit la plaque dans sa poche.
+
+Sur le dos de Luhai, l'enfant demanda :
+
+« C'est une porte, ça ? »
+
+« Sais pas. »
+
+« Si c'est une porte, tu l'ouvres ? »
+
+« Je l'ouvre pas. »
+
+L'enfant posa le menton sur l'épaule de Luhai et regarda ce mur.
+
+De l'autre côté du mur, aucun son ne venait, et Han Jiwoo écoutait cette absence de son. Un mur bouché ne faisait aucun bruit. Un mur caché non plus. C'était la même absence de son.
+
+Elle ne bougea pas de sa place, à trois pas. Le bout de ses doigts était sans poussière.
 
 ---
 

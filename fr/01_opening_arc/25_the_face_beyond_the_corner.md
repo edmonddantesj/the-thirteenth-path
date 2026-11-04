@@ -52,8 +52,6 @@ Et la voix, au-delà de l'angle, revint.
 
 « Je sais. »
 
-Ces deux mots changèrent l'air.
-
 Celui qui fuyait n'ignorait rien de sa propre situation. Cela voulait dire qu'il savait tout : que le plus grand fragment était instable, qu'il ne pourrait pas s'en sortir sans risque avant d'avoir passé le discriminateur suivant, et que ceux qui l'avaient suivi jusqu'ici n'étaient pas de simples pisteurs.
 
 Ater demanda très bas :
@@ -76,8 +74,6 @@ Seorin demanda aussitôt :
 Sern confirma.
 « Il n'y a qu'un seul souffle. »
 
-Ces quelques mots rendirent un peu plus nette la présence au-delà de l'angle.
-
 Sion dit très lentement :
 
 « Pas l'Empire, et pas l'Alliance non plus. »
@@ -86,9 +82,7 @@ De l'autre côté de l'angle, un souffle passa, presque un rire bref.
 
 « Avec ces deux-là, on aurait commencé par tirer sur les gens. »
 
-Restée du côté de la coque, Seorin avait dû, elle aussi, changer d'expression à ces quelques mots.
-
-Ces quelques mots suffisaient. L'autre n'était pas venu se battre. Son but restait plutôt de récupérer et de s'éclipser. Ce n'était pas pour autant une raison de se rassurer. Une seule erreur, et il deviendrait aussitôt un ennemi.
+L'autre n'était pas venu se battre. Son but restait plutôt de récupérer et de s'éclipser. Ce n'était pas pour autant une raison de se rassurer. Une seule erreur, et il deviendrait aussitôt un ennemi.
 
 Sion demanda :
 
@@ -126,7 +120,7 @@ Sern comprit aussitôt.
 
 La main de Sion se porta d'elle-même sur sa poche de récupération. Le débris pas plus grand qu'un ongle, ramassé sous la rainure, s'y trouvait.
 
-Il l'avait laissé en sachant qu'il était cassé. Pas par ignorance.
+Il l'avait laissé en sachant qu'il était cassé.
 
 « Ça, on l'a ramassé, dit Sion. »
 
@@ -137,8 +131,6 @@ Il l'avait laissé en sachant qu'il était cassé. Pas par ignorance.
 « Pour emporter ça aussi, il m'aurait fallu une main de plus. »
 
 À ces mots, Sern leva les yeux.
-
-Une main de plus. Cela voulait dire que, s'il y avait eu une personne de plus, il ne l'aurait pas jeté.
 
 Sion ne put pas se jeter en avant plus vite. Ce qui comptait maintenant n'était pas de l'attraper en soi. C'était de savoir ce que cette main savait, jusqu'où elle avait lu, et pourquoi elle avait foulé seule cette structure avant eux.
 
@@ -193,7 +185,7 @@ Ater resta un instant sans répondre.
 
 Cette fois, au-delà de l'angle, le silence dura bien plus longtemps.
 
-À côté de lui, Sion regarda Ater. Cet homme venait de dire d'abord de quel côté il était. Si l'autre, en l'entendant, reculait, la conversation s'arrêterait là.
+À côté de lui, Sion regarda Ater. Si l'autre, en l'entendant, reculait, la conversation s'arrêterait là.
 
 « …La Chambre de Reconnaissance ? »
 
@@ -215,9 +207,9 @@ Seorin expira très lentement.
 
 « Enfin, ça commence à ressembler à une conversation. »
 
-La présence au-delà de l'angle ne répondit pas à ces mots.
+La présence au-delà de l'angle n'en dit pas davantage.
 
-À la place, l'instant d'après, le bord de la plus grande plaque qu'elle tenait se dessina, un très court instant, plus nettement dans l'obscurité. Ce n'était pas une remise complète. Ce n'était pas une menace non plus. Cela semblait seulement dire que l'autre, lui non plus, n'avait pas l'intention de couper tout à fait cet échange.
+À la place, l'instant d'après, le bord de la plus grande plaque qu'elle tenait se dessina, un très court instant, plus nettement dans l'obscurité. L'autre non plus ne semblait pas avoir l'intention de couper cet échange.
 
 Mais à ce moment précis, plus loin au fond de la structure, une réaction du discriminateur s'éteignit brusquement.
 
@@ -225,7 +217,7 @@ Sern parla presque en même temps.
 
 « C'est maintenant. »
 
-Personne n'eut besoin d'expliquer ce que cela voulait dire. S'ils ne décidaient pas maintenant, le fragment, la conversation et le chemin pouvaient leur échapper tous les trois à la fois.
+S'ils ne décidaient pas maintenant, le fragment, la conversation et le chemin pouvaient leur échapper tous les trois à la fois.
 
 C'est alors que la ligne de récupération, à la taille de Sion, fut tirée une fois.
 
@@ -233,7 +225,7 @@ Une seule fois.
 
 Deux tractions voulaient dire sortez, trois voulaient dire je coupe ; une seule, c'était un signal qui ne figurait pas dans l'accord.
 
-Sion ouvrit le canal, très bas.
+Sion demanda très bas, dans le canal :
 
 « Quoi ? »
 

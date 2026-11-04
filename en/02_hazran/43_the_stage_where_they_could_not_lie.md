@@ -164,7 +164,7 @@ Nasim looked her way.
 
 "You're too big to go on a dish."
 
-It sounded like a joke, but nobody laughed.
+Nobody laughed.
 
 Ater asked quietly.
 

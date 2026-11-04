@@ -70,8 +70,6 @@ Zahir respondió breve.
 
 —Adentro.
 
-Esa sola palabra no alcanzaba como explicación, pero, por extraño que fuera, todos pudieron entender que no hablaba de un simple lugar. Un compartimento más profundo. Registros más ocultos. O el sitio donde Aka leía de verdad el camino y la gramática. Lo que les habían mostrado hasta ahora era apenas el umbral; para ver lo que de verdad había que enlazar, tenían que entrar más adentro.
-
 Sern preguntó muy bajo.
 
 —¿Entramos todos?
@@ -79,8 +77,6 @@ Sern preguntó muy bajo.
 Esta vez, antes de que Zahir respondiera, Aka habló primero.
 
 —No.
-
-El aire del fondo del patio se detuvo de forma apenas perceptible.
 
 Aka seguía con la cara tranquila.
 Pero esta vez, dentro de esa calma, había una línea clara. No podían entrar todos juntos. No todos debían ver lo mismo. Como si quién entraba y hasta dónde fuera una de las reglas más importantes de este interior.
@@ -92,8 +88,6 @@ Aka miró una vez la brasa en la mano de Sion y otra el casco que no había muer
 —Si dejas entrar a todos, vuelven a ser muchos.
 Lo dijo ella.
 —Y cuando son muchos, se pega otra vez lo que finge estar muerto.
-
-La frase era corta, pero en ella estaba todo el modo en que Hazran entera había funcionado hasta ahora.
 
 Demasiadas manos.
 Demasiados precios.
@@ -108,9 +102,8 @@ Lo dijo ella.
 
 Aka asintió con un gesto breve.
 
-—La mano que lleva la brasa.
+—La mano que lleva la brasa. La mano que ve si lo muerto está muerto o no.
 Lo dijo mirando hacia Sion.
-—La mano que ve si lo muerto está muerto o no.
 
 Esta vez su mirada fue hacia Han Jiwoo.
 
@@ -200,7 +193,7 @@ Han Jiwoo respondió primero.
 Sion asintió un poco más tarde.
 
 Antes que las palabras le llegó la tensión.
-Pero bajo esa tensión había, por extraño que fuera, la sensación de que por fin tocaba el verdadero umbral de Aka. Hasta ahora habían seguido nombres, rumores y la partida; desde hacía un momento ponían de verdad el pie dentro.
+Bajo esa tensión había, por extraño que fuera, la sensación de que por fin tocaba el verdadero umbral de Aka. Hasta ahora habían seguido nombres, rumores y la partida; desde hacía un momento ponían de verdad el pie dentro.
 
 Seorin preguntó enseguida.
 
@@ -212,7 +205,7 @@ Zahir la miró y dijo en voz baja.
 
 A Seorin se le endureció la cara al instante.
 
-Pero Aka puso, muy en silencio, una frase encima de esa palabra.
+Entonces Aka puso, muy en silencio, una frase encima de esa palabra.
 
 —Si no esperan, no se puede salir.
 
@@ -232,21 +225,10 @@ A Sion también se le enfrió la espalda. Que les dijeran que esperaran no era c
 
 Cuando eso cayó, tampoco Seorin pudo replicar enseguida.
 
-No eran palabras de exclusión, sino palabras que, dentro de las reglas de este interior, separaban a los que hacían falta de los que tenían que esperar.
-
 Sion miró la brasa en su mano y luego volvió a mirar a Aka.
 
 Aka no explicó nada más.
 En cambio, dio media vuelta y fue la primera en adentrarse en el compartimento más profundo, detrás del casco.
-
-En el instante en que lo vio, Sion lo supo.
-
-Esto no era abrirles una puerta.
-Aka siempre había sido así.
-No le abría la misma puerta a cualquiera.
-En cambio, a las manos capaces de seguirla hasta el final, les mostraba hasta el siguiente umbral.
-
-Y ahora, ese umbral por fin se estaba abriendo.
 
 ---
 

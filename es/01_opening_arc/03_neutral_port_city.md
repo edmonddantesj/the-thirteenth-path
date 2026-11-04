@@ -71,7 +71,7 @@ Bajo la capa de amarre exterior había más líneas de guía trazadas a mano que
 De los dos que iban delante, el que cojeaba se volvió una vez a mirar atrás.
 Sion bajó la cabeza de inmediato y se mezcló con un grupo de estibadores que pasaba. Un poco más tarde y, a esa distancia, lo habrían descubierto.
 
-Seorin chasqueó la lengua desde el otro lado.
+Los dos volvieron a juntarse al final de la capa de amarre. Seorin chasqueó la lengua nada más llegar.
 
 —Esos también han perseguido gente antes.
 
@@ -79,7 +79,6 @@ Seorin chasqueó la lengua desde el otro lado.
 
 —Vaya puerto más sano.
 
-Los dos volvieron a juntarse al final de la capa de amarre.
 Los de delante bajaban hacia la pasarela de transbordo del nivel inferior. Al final de ese camino se amontonaban una zona de alojamientos provisionales, tabernas baratas y almacenes que hacían de casas de empeño. Una zona donde la gente desaparecía antes que los registros.
 
 Sion miró en esa dirección y habló en voz baja.

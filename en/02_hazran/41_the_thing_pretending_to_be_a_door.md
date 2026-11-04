@@ -52,7 +52,7 @@ Seorin asked, very low.
 
 "Then what have we been chasing?"
 
-This time Aka looked a little longer at the fragment on Sion's side.
+This time Aka looked a little longer at the fragment inside Sion's jacket.
 
 "A severed place,"
 she said.
@@ -110,7 +110,7 @@ Luhai snapped his hand shut.
 Aka said.
 "That's the problem."
 
-Only then did Sion understand. When two real things were together, they didn't make each other sharper; they rang so hard that nothing could be seen. Aka's eyes hadn't grown keener just now. She had gone blind.
+Aka's eyes hadn't grown keener just now. She had gone blind.
 
 "Far apart,"
 she said.
@@ -138,7 +138,7 @@ Nahira cut him off quietly.
 
 "That's how you live long in Hazran."
 
-Luhai couldn't answer back. This time it wasn't just that his mouth had been stopped; it was the face of someone who knew she wasn't wrong.
+Luhai couldn't answer back.
 
 Sion looked at Aka again.
 

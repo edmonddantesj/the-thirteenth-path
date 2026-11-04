@@ -1,14 +1,8 @@
 # Capítulo 86 — La defensa más allá de la línea del corazón rota
 
-Después de que se cerrara la línea central del mercado, Hazran pareció contener el aliento de verdad por un momento.
+Después de que se cerrara la línea central del mercado, Hazran contuvo el aliento por un momento.
 
-El ruido de todo derrumbándose había sido grande, pero el silencio que vino después fue, de un modo extraño, todavía mayor.
-
-A Sion le daba miedo ese breve silencio. Le parecía que ahora lo sabía con el cuerpo: el silencio que se abre en mitad de una guerra no es un final, se parece más al tiempo en que el siguiente choque vuelve a tomar posición.
-
-Y, en efecto, ese tiempo no fue largo.
-
-Solo que, entretanto, una cosa cambió.
+Entretanto, una cosa cambió.
 
 Empezó a entrar el viento.
 
@@ -66,9 +60,7 @@ Harún tomó la palabra enseguida.
 
 —La primera fila se queda con el pasillo, la segunda los tuerce y la tercera protege a la gente.
 
-Palabras cortas. Pero a la gente de Hazran ahora le bastaba con eso.
-
-El campo de batalla cambió por completo. El mercado, que hasta hacía un momento se plegaba en torno a la sola línea central, ahora se partía en trozos pequeños: los callejones de más allá, por dentro, los pasillos de enlace, los espacios estrechos frente a los compartimentos del casco. El gran flujo había muerto y, en su lugar, habían cobrado vida muchos frentes pequeños.
+El campo de batalla cambió por completo. El mercado, que hasta hacía un momento se plegaba en torno a la sola línea central, ahora se partía en trozos pequeños: los callejones de más allá, por dentro, los pasillos de enlace, los espacios estrechos frente a los compartimentos del casco.
 
 Hazran ya no tenía que aguantar como ciudad entera, sino con los pequeños órganos que le quedaban dentro.
 
@@ -129,7 +121,7 @@ Harún respondió sin detener las manos que levantaban.
 
 —A partir de la segunda, el otro lado ya conoce esta forma.
 
-Sion pensó que esas palabras explicaban toda la ciudad. Hazran nunca había levantado una barricada que aguantara mucho. Levantaba deprisa algo que funcionara una vez y, cuando dejaba de funcionar, levantaba deprisa otra cosa. Como lo hacía solo con lo que no valía nada, no daba pena tirarlo, y como tirarlo no dolía, podía seguir haciendo cosas nuevas.
+Hazran nunca había levantado una barricada que aguantara mucho. Levantaba deprisa algo que funcionara una vez y, cuando dejaba de funcionar, levantaba deprisa otra cosa. Como lo hacía solo con lo que no valía nada, no daba pena tirarlo, y como tirarlo no dolía, podía seguir haciendo cosas nuevas.
 
 El problema era que con la gente no se podía hacer eso.
 
@@ -175,8 +167,6 @@ Nasim se volvió de pronto hacia la gente.
 —¡No pongan esa cara de que todo se acabó!
 Su grito fue cortante.
 —No se acabó. ¡Si se hubiera acabado, no estaríamos corriendo así!
-
-Aquello era casi forzado. Pero, aunque fuera forzado, hacía falta. Los que habían visto derrumbarse algo, con un solo descuido, podían apagarse ahí también por dentro.
 
 Después, Nasim añadió muy bajo, solo hacia Sion.
 

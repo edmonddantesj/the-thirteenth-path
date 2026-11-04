@@ -1,216 +1,276 @@
-# Capítulo 148 — Un lugar que se mueve como el centro
+# Capítulo 148 — Moverse como el centro
 
-Cuanto más adentro,
-cuanto más arriba se entraba,
-más parecía Serakion converger en una sola dirección.
+Cuanto más adentro y más arriba entraban, menos sonido había.
 
-El sonido,
-la luz,
-el paso,
-el momento de detenerse.
+Disminuían los pasos, disminuían las voces, y la luz no temblaba. Solo quedaba el sonido de la pierna de la segunda mano de recogida, que chocaba contra las paredes y volvía; como no había otros sonidos, Han Jiwoo lo contaba.
 
-Este mundo, cuanto más arriba, no es que sea simplemente más lujoso.
-Más bien todo se volvía más parecido.
+El sector siguiente al que llegaron era más amplio y más silencioso que el anterior.
 
-Los seres que se mueven van teniendo el mismo ritmo.
+Había adornos, pero no muchos, colocados a intervalos iguales. La luz era cálida, pero no tenía temperatura. Han Jiwoo acercó el dorso de la mano a la rendija y notó que estaba a la misma temperatura que su cuerpo. Era una luz cálida que no calentaba.
 
-Han Jiwoo lo sintió antes que nada en las manos,
-Ater lo leyó en el modo de vida,
-y Kael lo captó por el lado de que la estructura impone ese ritmo.
+Las máquinas se movían, pero sin gestos grandes, y a los humanos sentados les pasaba lo mismo.
 
-El sector siguiente al que llegaron
-era más amplio y más silencioso que los previos,
-pero, curiosamente, daba más sensación de vacío.
+Ater, en cuanto vio aquel espacio, habló bajo.
 
-Los adornos eran muchos, pero sin exceso,
-la luz era cálida, pero sin calor de cuerpo,
-y las máquinas se movían corteses,
-pero tan exactas que borraban la impresión de que «se está viviendo».
+—Esto no parece un lugar donde se vive, sino un lugar donde la vida ya está ordenada hasta el final.
 
-Ater, al ver ese espacio, dijo bajo.
+—¿Qué es eso de ordenada?
 
-—Esto no es un sitio donde se vive,
-sino donde la vida ya está ordenada hasta el final.
+Lo preguntó Han Jiwoo.
 
-Esas palabras eran exactas.
+—Que no queda nada por hacer.
 
-En los sectores de abajo aún quedaba la fricción de la vida.
-Huellas de uso,
-marcas de reparación,
-rendijas por las que se escapa la emoción,
-apuntalamientos hechos a la fuerza para sostener algo.
+Ater respondió.
 
-Pero aquí casi no había nada de eso.
+—Ni nada que arreglar.
 
-Todo ya estaba puesto en la distancia adecuada y el orden adecuado.
+Al otro lado de la rendija por la que miró Han Jiwoo no había nada que arreglar. Ni grietas en las paredes, ni marcas en el suelo, ni cicatrices en las manos de la gente. Ella se miró las manos.
 
-El humano estaba sentado en silencio,
-la máquina no hacía gestos demasiado grandes,
-nadie tenía prisa,
-nadie se perdía.
+En los sectores de abajo había fricción, como las huellas de uso, las marcas de reparación o las piezas empalmadas a la fuerza, pero aquí no. Mientras los humanos estaban sentados en silencio, las máquinas pasaban. Nadie tenía prisa, y nadie preguntaba el camino.
 
-Justo por eso,
-este lugar daba más miedo que abajo.
+Por un pasaje no muy lejano pasaron humanos y máquinas juntos.
 
-Porque no perderse
-puede significar no tener nunca que elegir el propio camino.
+Eran cuatro humanos y dos máquinas, y la ropa de los humanos, más allá de estar limpia, era distinta en cada uno. Uno llevaba las mangas cortas y se le veían enteras las manos; otro llevaba el cuello ancho y se le veía entera la línea de la cara. Otro solo estaba de pie, sin ningún adorno. El cuarto llevaba dos distintivos en el cuello.
 
-Entonces, por un corredor no lejano,
-se vio pasar a un grupo de humanos y máquinas juntos.
+Han Jiwoo, que los miraba, habló muy bajo.
 
-Estaba mucho más ordenado que el sector previo,
-y la ropa de los humanos, más que simplemente limpia,
-parecía afinada a su papel y a su posición.
+—Ahora hasta la manera de vestir a la gente es distinta.
 
-A uno, para que la mano se viera mejor,
-a otro, para que la línea del rostro se mostrara suave,
-a otro, para que diera sensación de estabilidad solo con estar de pie callado.
+La primera mano de recogida respondió con brevedad.
 
-Han Jiwoo, al ver eso, dijo muy bajo.
+—Porque cuanto más arriba, más clara está la manera de usarlos.
 
-—Ahora hasta el modo de vestir a la gente es distinto.
+—¿Y ese de las mangas cortas?
 
-La primera mano de recuperación respondió corto.
+—Las manos.
 
-—Porque cuanto más arriba,
-el modo de usarlos es más claro.
+—¿Y el del cuello ancho?
 
-Esas palabras eran cortas,
-pero bastaron para enfriar más la cara de Han Jiwoo.
+—La cara.
 
-Serakion no termina en elegir y pulir a la gente.
-Diseña también qué debe parecer esa persona.
+—¿Y el que no lleva nada?
 
-Entonces el humano ya no existe solo con su cuerpo.
-Existe vestido también de la impresión que ese mundo espera.
+La primera tardó un compás en responder.
 
-Ater miraba esa escena,
-y se detuvo al ver a un humano inclinar la cabeza ante una máquina con total naturalidad.
+—Estar de pie.
 
-No era obediencia asustada.
-Tampoco un protocolo entrenado.
+Han Jiwoo miró a aquella persona. Incluso cuando pasaban las máquinas, seguía de pie sin moverse. Se le veía respirar; era lo único que se movía.
 
-Era un gesto tan habituado
-que parecía propio de él.
+—¿Cuánto tiempo lleva de pie?
 
-Ater murmuró bajo.
+—No lo sé. Cada vez que he venido, estaba de pie.
 
-—A este punto, hasta la obediencia se vuelve un hábito de vida.
+—¿Es la misma persona?
 
-Esas palabras sonaban casi como una burla hacia su propio mundo.
+—No lo sé. Es el mismo sitio.
 
-El Imperio muestra la obediencia más en grande.
-Serakion la funde en la vida,
-hasta hacerla parecer un gesto simplemente natural.
+Han Jiwoo miró ese sitio y vio que la marca de huellas del suelo estaba gastada. Era la única marca gastada de aquel lugar.
 
-Cuál de las dos es más cruel,
-Ater parecía estar preguntándoselo ahora de nuevo por dentro.
+—¿Y el relevo?
 
-Kael, mientras tanto, había estado leyendo todo el rato la estructura de cierre del sector de arriba.
+—No lo he visto. He visto que está de pie, pero nunca he visto cuándo se pone.
 
-Y solo al llegar aquí
-parecía haber alcanzado una conclusión más fría que antes.
+Al otro lado de la rendija, aquella persona seguía sin moverse.
 
-—Aquí casi no hace falta cerrar —dijo bajo.
+Las rodillas de aquella persona, tal como las veía Han Jiwoo, no se doblaban, y los tobillos tampoco; solo se movía la respiración.
 
-Han Jiwoo lo miró.
+—¿Y los dos distintivos?
 
-Kael continuó sin apartar la vista.
+—No lo sé. Es la primera vez que veo dos.
 
-—Porque dentro ya se ponen en fila por sí mismos.
-La estructura de cierre es más bien el último seguro.
+Ater miró los dos distintivos colocados uno encima del otro en el cuello de aquella persona; se llevó la mano al propio cuello y la apartó.
 
-Esas palabras ahondaron el terror del nivel superior de Serakion.
+Las puntas de los dedos de esa persona tenían una transparencia más gruesa que las de los demás, y cuando les daba la luz se veía la mano entera.
 
-Abajo hay que cerrar.
-Arriba ya están alineados antes de cerrar.
+—¿Qué hace esa persona?
 
-Así que este orden de arriba
-no parece sostenido por la fuerza,
-y, sin embargo, en realidad es mucho más fuerte.
+—No lo sé.
 
-Porque hasta imaginar desafiar ese orden
-se va reduciendo dentro de la vida misma.
+La primera respondió.
 
-Entonces,
-más adentro del sector, un temblor de luz muy tenue cruzó rozando un muro.
+—Ya le dije que es la primera vez que veo dos.
 
-Unas cuantas máquinas, en cuanto lo vieron,
-se recolocaron con una diferencia ridículamente pequeña.
+Ater siguió mirando aquella mano hasta el final, hasta que la persona dobló la esquina.
 
-Nadie había dado una orden.
-Nadie había reaccionado en grande.
+Un humano inclinó la cabeza ante una máquina.
 
-Pero, sin duda,
-el influjo de algún centro rozó un instante todo ese espacio.
+Fue natural, ni muy profundo ni muy leve. Como la máquina no se detuvo, el humano levantó la cabeza y caminó medio paso por detrás de la máquina.
 
-Han Jiwoo, al verlo, sintió repulsión por instinto.
+Ater, que lo miraba, murmuró bajo.
 
-Ater, al contrario, no perdió esa pequeña reacción y la miró más largo.
+—A estas alturas, hasta la obediencia se vuelve una costumbre de la vida diaria.
 
-—Aunque no se vea, todos ya lo saben y se mueven —dijo bajo.
+—¿Y el Imperio?
 
-La segunda mano de recuperación respondió muy corto.
+Lo preguntó Han Jiwoo.
 
-—Aquí es donde más hay de eso.
+—El Imperio ordena inclinarse.
 
-Esas palabras no eran una explicación.
-Pero bastaban para describir este sector de arriba.
+—¿Y aquí?
 
-El centro no necesita estar a la vista,
-la orden no necesita caer en grande,
-basta con que el orden esté impregnado en la vida.
+—Aquí no lo ordenan.
 
-Entonces, en un lado de una línea de ascenso ordenada,
-tres humanos de aspecto más joven que antes se detuvieron un momento junto con dos máquinas.
+Lo dijo Ater.
 
-Uno de ellos, por un instante,
-perdió el compás al detener su pie.
+—Y aun así se inclinan.
 
-Fue un error mínimo.
-Tan pequeño que casi no se notaba.
+Sin inclinar la cabeza, se apartó de la rendija y apoyó la espalda en la pared; un compás después, volvió a pegar el ojo a la rendija.
 
-Pero la máquina justo al lado no reprendió ese error.
-En cambio, con demasiada suavidad,
-como si siempre hubiera sido así, le devolvió el medio compás.
+Kael observaba la estructura de cierre del sector de arriba.
 
-Esa escena era más atroz.
+Recorría por orden la pared, el techo y el suelo, buscando las junturas y anotándolas. Cuatro. Extendió cuatro dedos y no los dobló.
 
-No porque no hubiera violencia,
-sino porque a este punto parecía que la violencia ya no necesitaba parecer afilada.
+—Aquí casi ni hace falta cerrar.
 
-El orden de arriba de Serakion
-era un mundo que, hasta el más pequeño desajuste,
-lo realineaba cortésmente.
+Lo dijo en voz baja.
 
-Han Jiwoo, al verlo, dijo casi rechinando los dientes.
+Han Jiwoo lo miró, pero Kael, sin apartar la vista, siguió hablando.
 
-—A este punto, hasta la respiración la tendrán acompasada.
+—Ya está hecho para que se pongan en fila solos, desde dentro. La estructura de cierre es más bien un último seguro.
 
-La primera mano de recuperación respondió corto.
+—¿Solo hay cuatro?
+
+—Cuatro. Abajo había más de diez.
+
+—¿Por qué?
+
+—Porque abajo corren. Aquí no corren.
+
+Los cuatro dedos extendidos seguían igual.
+
+Han Jiwoo miró a la gente sentada. Nadie parecía a punto de correr. Estaban sentados.
+
+Más al fondo del sector, la luz tembló una vez, muy tenue, como si rozara la superficie de la pared. Han Jiwoo no lo vio; lo vio Ater.
+
+Algunas máquinas corrigieron la postura de forma mínima. Los hombros, media falange; la cabeza, media falange. Nadie lo había ordenado; solo había pasado la luz. Los humanos también la corrigieron, un compás más tarde que las máquinas y en la misma medida.
+
+Han Jiwoo miró aquellos hombros, le vino el malestar y se le tensó la nuca. No corrigió sus propios hombros. A propósito.
+
+Ater observó largo rato aquella pequeña reacción.
+
+—Aunque no se vea, todos lo saben ya y se mueven en consecuencia.
+
+Lo dijo en voz baja.
+
+La segunda mano de recogida respondió muy corto.
+
+—Aquí eso es lo que más hay.
+
+—¿Qué es esa luz?
+
+—No lo sé.
+
+La segunda respondió.
+
+—Cuando pasa, todos hacen eso. Solo sé eso.
+
+—¿Es el centro?
+
+—El centro no baja hasta aquí.
+
+La segunda miró el techo.
+
+—Solo baja la sombra.
+
+El techo al que alzó la vista Ater era liso, sin nada. Luego se miró los hombros y vio que se le habían enderezado sin darse cuenta. Los volvió a bajar.
+
+Han Jiwoo lo vio.
+
+—Tú también lo has hecho.
+
+—Lo he hecho.
+
+Lo dijo Ater.
+
+—El cuerpo, primero.
+
+Han Jiwoo se miró los hombros: estaban bajos, y los dejó así.
+
+A un lado de la línea de ascenso, bien ordenada, tres humanos pequeños se detuvieron un momento junto con dos máquinas.
+
+Los tres tenían transparentes las puntas de los dedos, y Han Jiwoo se dio cuenta.
+
+Uno de ellos perdió por medio compás el momento de detenerse, y el pie le avanzó una vez más.
+
+La máquina de al lado no le reprochó el error ni lo hizo detenerse; retrasó su propio paso medio compás y lo ajustó al paso del niño. Después los dos se detuvieron a la vez, como si siempre hubiera sido así.
+
+El niño, sin saber que se había equivocado ni que la máquina se había ajustado a él, se quedó de pie mirando al frente.
+
+Han Jiwoo habló casi rechinando los dientes.
+
+—A este paso, hasta la respiración la tendrán ajustada.
+
+La primera mano de recogida respondió con brevedad.
 
 —Casi.
 
-Esa breve respuesta, una sola,
-hundió al grupo de reconocimiento en un silencio más hondo.
+—¿Casi?
 
-Lo que vieron ese día allí arriba
-no era lujo ni ostentación de poder.
+—La respiración todavía no. Si ajustaran también la respiración, ese lado se quedaría sin nada que hacer.
 
-Era algo más temible.
+—¿Y si no tiene nada que hacer?
 
-Un lugar donde la persona acaba viviendo
-acompasando hasta el ritmo de su propio cuerpo a este mundo.
+—Desaparece. Aquí no dejan máquinas de guía que no tengan nada que guiar.
 
-Y un lugar donde, una vez acostumbrada a ese ritmo,
-salir de él se vuelve mucho más difícil que una simple fuga.
+Han Jiwoo vio que los pechos de los tres niños subían y bajaban a compases distintos; era lo único distinto. Se quedó mirando ese compás un buen rato.
 
-El grupo de reconocimiento
-empezaba ya casi a entender ese hecho con el cuerpo.
+Kael dobló despacio los cuatro dedos, uno a uno, y luego se miró el puño.
 
-Y esa misma comprensión
-volvía cada vez más claro por qué el rescate que pronto llegaría
-no acabaría simplemente en abrir una puerta y correr.
+—Aquí no hace falta venir.
+
+Lo dijo él.
+
+—¿Por qué?
+
+—No hay nada que sacar.
+
+Han Jiwoo miró a la gente sentada. La gente que se reía, la persona de pie, los dos distintivos.
+
+—Hay gente.
+
+—La hay.
+
+Kael respondió.
+
+—No hay nadie que vaya a correr.
+
+Han Jiwoo miró a los niños. Los pechos de los tres subían y bajaban a compases distintos.
+
+—¿Y esos?
+
+Kael miró a los niños un buen rato.
+
+—Esos no se quedan aquí. Están de paso.
+
+—¿Hacia dónde?
+
+—Arriba.
+
+Ater seguía mirando el techo. La luz no había vuelto a pasar, pero los hombros de las máquinas seguían enderezados.
+
+Cuando la segunda volvió a acomodar la pierna, hizo ruido. En el sector de arriba nadie oyó aquel ruido. Se lo tragó la pared. Aun así, Han Jiwoo lo oyó. Era el único sonido que no encajaba allí dentro.
+
+La primera levantó la mano y habló bajo.
+
+—Más arriba no se puede ir. Hasta aquí llega el camino.
+
+—¿Porque no hay camino?
+
+Lo preguntó Han Jiwoo.
+
+—Porque el camino se ve. A partir de aquí no hay dónde esconderse. Todas las paredes reflejan.
+
+Han Jiwoo miró la pared lisa, en la que se reflejaban borrosos hasta los cinco que estaban dentro del pasaje de observación, y se apartó de ella.
+
+—¿Y arriba?
+
+Lo preguntó Ater.
+
+—Donde los mandan hacia arriba. Adonde van esos niños.
+
+Mientras Ater miraba, los tres niños echaron a andar de nuevo. Al mismo compás que las máquinas; solo el pecho, a otro compás.
+
+Cuando los cinco se dieron la vuelta y se dirigieron hacia abajo, el sonido de la pierna de la segunda fue delante.
 
 ---
 

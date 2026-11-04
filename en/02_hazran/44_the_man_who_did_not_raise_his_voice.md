@@ -150,8 +150,6 @@ This time Aka gave a short shake of her head.
 she said.
 "But if they keep believing it's a door, they can't go all the way."
 
-Sion felt the words land heavier than before. They hadn't come in the wrong way. But if they kept believing the wrong thing, they couldn't go all the way. The words gave hope and a cut at the same time.
-
 Ater asked quietly.
 
 "Then how should we go?"
@@ -163,8 +161,6 @@ Instead, very briefly, she looked properly at Sion's face for the first time. Th
 "That has to come apart first,"
 she said.
 "The imitation and the place."
-
-Sion felt that the sentence, even if it wasn't a full explanation yet, at least pointed clearly at the next task. The imitation had to be pulled away from the place that had been cut. Otherwise they could never reach the place where the real door had been.
 
 Nasim spoke very softly.
 
@@ -214,7 +210,7 @@ she said to Aka.
 
 Aka didn't move.
 
-Nahira called her again. This time without using her name. She just held out her hand a little.
+Nahira called her again. This time she didn't call with words. She just held out her hand a little.
 
 Aka looked at that hand. Then she turned her head toward Zahir.
 
@@ -243,8 +239,6 @@ Zahir spoke, low.
 Harun raised his eyes briefly.
 
 "Open it."
-
-Those two words changed the air in the room once again.
 
 Only then did Sion realize he had been seeing something wrong.
 

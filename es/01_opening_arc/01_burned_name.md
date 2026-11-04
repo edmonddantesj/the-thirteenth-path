@@ -8,7 +8,7 @@ Sion Lapis estaba acuclillado en medio de aquellos fracasos. Las mangas de su ab
 
 Le estaba dando la vuelta a un cofre de almacenamiento con la etiqueta de recuperación medio arrancada cuando, con la uña, rascó el hollín negro que quedaba en el ángulo interior.
 
-Por el pasillo de atrás entraron unos pasos. Las orejas de Sion se volvieron primero hacia allí. El cuerpo se quedó como estaba.
+Por el pasillo de atrás entraron unos pasos. Las orejas de Sion reaccionaron primero al sonido. El cuerpo se quedó como estaba.
 
 —Eh, Sabueso. Eso ya está marcado para desecho.
 
@@ -22,7 +22,7 @@ Los pasos no se detuvieron y pasaron de largo. Desde el otro extremo del pasillo
 
 —Entonces listo.
 
-Sion tampoco miró hacia allí. «Sabueso» era una palabra que se decía a la cara y se acababa ese mismo día; «trapero» era una palabra que se escribía en los papeles y pasaba hasta el siguiente.
+Sion tampoco miró hacia allí. «Sabueso» era una palabra que se decía a la cara y se acababa ese mismo día; «trapero» salía de la boca de quien se quitaba el trabajo de encima, y seguía a ese trabajo hasta el siguiente. Aunque en los papeles figurara, bien limpio, «inspector de desechos».
 
 Volvió a inclinar el cofre hacia la luz. Las marcas de quemadura eran muchas, pero, curiosamente, un lado estaba demasiado limpio. Para ser algo borrado, era precipitado; para ser algo arrasado de cualquier manera, demasiado descarado.
 
@@ -48,7 +48,7 @@ El supervisor le tendió a Sion un fino panel de transmisión. En la superficie 
 
 —Por eso te lo doy a ti.
 
-Sion tomó el panel y lo repasó por encima. Aun repasándolo por encima, había dos o tres cosas que no cuadraban. A esas alturas, el papeleo resultaba más sospechoso que el objeto recuperado.
+Sion tomó el panel y lo repasó por encima. En la casilla del punto de recuperación había una sola línea. Ciudad portuaria neutral, nivel inferior, salida de escombros del incendio. Aun repasándolo por encima, había dos o tres cosas que no cuadraban. A esas alturas, el papeleo resultaba más sospechoso que el objeto recuperado.
 
 Sion preguntó sin bajar siquiera el panel.
 
@@ -82,7 +82,7 @@ Sion cerró el panel y murmuró por lo bajo.
 
 A su lado, alguien apretó con la yema del dedo el borde del panel.
 
-—No lo guardes.
+—No lo metas como traslado.
 
 Seorin Kael estaba de pie junto a Sion sin que se supiera cuándo había llegado. En las puntas del pelo, recogido corto, también se le había posado algo de polvo del muelle y, como siempre, tenía cara de cansancio pero los ojos bien despiertos.
 
@@ -104,7 +104,7 @@ Un momento después, alzó una ceja de forma casi imperceptible.
 
 —Porque no hay otro sitio donde tirarlo.
 
-—Claro. Con apuntar en una línea que lo pasaron a los traperos, nadie lo abre —dijo Seorin sin apartar los ojos del panel—. Allá arriba, eso es cerrarlo.
+—Claro. En los papeles basta una línea de traslado a inspección. Todo el que la lee entiende que pasó a los traperos, y nadie lo abre —dijo Seorin sin apartar los ojos del panel—. Allá arriba, eso es cerrarlo.
 
 Sion rió por lo bajo.
 
@@ -146,7 +146,7 @@ Seorin habló mientras se ponía los guantes antes que él.
 
 —Ya —dijo Sion, que pasó el dedo por el costado de la caja metálica y se detuvo—. Pero ¿por qué recuperación prioritaria?
 
-Levantó un poco la caja y la inclinó hacia la luz. El troquel de identificación exterior estaba limado, y el lugar donde debía ir el código original estaba borrado, liso. El problema era que esa lisura parecía demasiado nueva. No era un desgaste viejo, sino una superficie frotada hasta borrarla hacía poco y con prisa.
+Levantó un poco la caja y la inclinó hacia la luz. El troquel de identificación exterior estaba limado, y el lugar donde debía ir el código original estaba borrado, liso. El problema era que esa lisura parecía demasiado nueva.
 
 Seorin se acercó a mirar con él.
 
@@ -154,7 +154,7 @@ Seorin se acercó a mirar con él.
 
 —Sí. Y con prisa.
 
-Esta vez Sion tomó una de las cápsulas de almacenamiento abolladas. En el costado de la cápsula, además de la grieta del impacto de la recuperación, había otra línea más, fina y larga. Parecía la marca de un sello de seguridad abierto a la fuerza. Tenía la veta de algo que alguien no había recuperado entero, con el registro dentro, sino que lo había separado a toda prisa y luego había vuelto a cerrar solo la cáscara que quedaba.
+Esta vez Sion tomó una de las cápsulas de almacenamiento abolladas. En el costado de la cápsula, además de la grieta del impacto de la recuperación, había otra línea más, fina y larga. Parecía la marca de un sello de seguridad abierto a la fuerza.
 
 Seorin soltó una palabrota corta.
 
@@ -182,7 +182,7 @@ Seorin le pasó el fragmento y habló en voz baja.
 
 —No es que alguien lo quemara para hacerlo desaparecer. Lo hizo desaparecer y luego lo quemó.
 
-Sion tomó el fragmento sin decir nada. El tacto en las yemas de los dedos era ligero y áspero, pero, curiosamente, lo sentía como un objeto que escondía demasiadas cosas.
+Sion tomó el fragmento sin decir nada.
 
 Al otro lado del muelle resonó sordo el movimiento de una grúa de recuperación. Era un ruido que en otro momento habría pasado sin más, pero en ese instante sonaba casi a estorbo.
 
@@ -238,9 +238,7 @@ Kasern seguía sonriendo, pero esta vez aquella sonrisa no tenía nada de suave.
 
 —Hasta ahí.
 
-La iluminación de arriba del muelle parpadeó una vez. A lo lejos resonó sordo el ruido de cajas metálicas apilándose. Entre aquel breve ruido, Sion lo entendió, al contrario, con más claridad.
-
-Esto no era un objeto que hubiera que esconder, sino un objeto que alguien ya había comprobado una vez más y que le había dado miedo.
+La iluminación de arriba del muelle parpadeó una vez. A lo lejos resonó sordo el ruido de cajas metálicas apilándose.
 
 Después de que Kasern se diera la vuelta, nadie habló enseguida. Seorin fue la primera en murmurar por lo bajo.
 
@@ -264,9 +262,9 @@ Seorin rió como en un suspiro.
 
 —Entonces todavía peor.
 
-Sion volvió a abrir el compartimento. Se movía mucho más deprisa que antes.
+Sion volvió a abrir el compartimento. Se movía mucho más deprisa que antes. Fue dando la vuelta a los fragmentos uno por uno. Todos estaban comidos por el fuego hasta el borde. No había ni uno a medio quemar.
 
-—Tengo que ir al lugar.
+—Solo subieron los quemados. Los que están a medio quemar seguirán allí. Tengo que ir al lugar.
 
 —¿A la ciudad portuaria neutral?
 
@@ -291,11 +289,11 @@ La línea de traslado oficial de la Oficina tenía una estructura que no necesit
 
 Seorin preguntó a su lado.
 
-—Al menos haces como que sacas pasaje en la línea oficial.
+—¿Vas a esperar la aprobación?
 
-—No es hacer como que; es dejar rastro.
+—No. Pero la solicitud la meto igual. Para que luego no me digan que me fui sin permiso.
 
-Sion contestó y abrió la ventana de solicitud. Dejó el cursor en lo alto del campo de entrada, se detuvo un momento y enseguida, con mano acostumbrada, tecleó la frase.
+Sion abrió la ventana de solicitud. Dejó el cursor en lo alto del campo de entrada, se detuvo un momento y enseguida, con mano acostumbrada, tecleó la frase.
 
 **Solicitud de cotejo de origen de asunto en suspenso de clasificación. Discrepancia en el código de identificación y rotura en la ruta de recuperación. Necesaria verificación in situ de la línea de enlace de recuperación.**
 
@@ -341,7 +339,7 @@ Si le decía que lo borrara, Seorin era de las que lo escribirían más grande.
 
 Sion pulsó enviar.
 
-Al pulsar el botón de envío apareció el aviso de espera de aprobación. En la parte inferior de la pantalla corrió una pequeña línea de letras grises.
+Apareció el aviso de espera de aprobación. En la parte inferior de la pantalla corrió una pequeña línea de letras grises.
 
 **Tiempo de espera estimado: 7 horas 40 minutos**
 
@@ -349,19 +347,19 @@ Seorin chasqueó la lengua al ver la cifra.
 
 —Para entonces el lugar se habrá cerrado otras tres veces.
 
-—Por eso solo hago como que espero.
+—Por eso bajamos esta noche.
 
-Sion abrió la lista de líneas de transbordo de carga exterior. Llegaban tres en el día, pero dos no servían.
+Sion abrió la lista de líneas de transbordo de carga exterior. Esa noche bajaban tres naves a la ciudad portuaria neutral. Para dos de ellas hacía falta un pase de embarque de la Oficina.
 
 —La de abajo del todo.
 
-Seorin habló primero.
+Seorin habló primero. Era la nave de recogida de desechos.
 
-—Sí —asintió Sion—. Ya que metí la solicitud de cotejo in situ, salir en la línea de enlace de recuperación sirve de excusa.
+—Sí —asintió Sion—. Esa caja también habrá subido por esta línea. Que el que va a cotejar el origen baje en la misma nave tiene sentido.
 
-—¿Una nave de recogida de desechos es la línea de enlace de recuperación?
+—¿Y así lo vas a poner en los papeles?
 
-—Si lo pones así en los papeles, hay días en que lo es.
+—Así lo pondré. Es justo a lo que voy.
 
 Seorin le miró la cara un momento y rió por lo bajo.
 
@@ -371,15 +369,15 @@ Sion abrió la información de la última línea. El peso de carga registrado y 
 
 En un lado de la pantalla quedaba el número de muelle. 18-B.
 
-—Entonces, ¿esta vez subimos a escondidas y ya?
+—Entonces subimos antes de que salga la aprobación.
 
 Seorin fue quien preguntó.
 
-—No —contestó Sion, cerrando el terminal—. Hacemos como que esperamos y nos vamos antes.
+—Sí —contestó Sion, cerrando el terminal—. Si sale, la recibo allí.
 
-—¿Hay diferencia?
+—¿Y si no sale?
 
-—Un poco, para cuando nos echen el muerto.
+—La solicitud está hecha. Mejor eso que escabullirse a escondidas.
 
 Seorin solo soltó una risa burlona. Un delincuente al estilo de la Oficina. Justo ese era el olor.
 
@@ -473,9 +471,13 @@ Sion subió por la rampa.
 
 Al subir, no miró hacia arriba. Si miraba, los de allí sabrían que los había visto.
 
-En cambio, apretó otra vez el bolsillo por encima.
+A media subida, el ruido de las cadenas sobre su cabeza se detuvo.
 
-Seguía siendo delgado. Algo así de delgado lo había bajado el supervisor con sus propias manos.
+En cambio, la barandilla crujió una vez. Era el ruido de alguien que echaba el peso hacia delante. También era el ruido que se oye justo antes de saltar.
+
+El paso de Seorin se quedó medio tiempo atrás. Desde ahí se veía arriba.
+
+Sion no aflojó el paso. Si lo aflojaba, eso ya sería una respuesta.
 
 ---
 

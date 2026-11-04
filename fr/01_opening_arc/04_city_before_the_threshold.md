@@ -16,7 +16,7 @@ Ater demanda sans détourner les yeux :
 
 « Combien ? »
 
-« Ils devraient être quatre, le port en compte cinq. Une main s'est greffée en route et a intercepté le colis. »
+« Les mains mêlées à l'agitation devraient être quatre, le port en compte cinq. Une main s'est greffée en route et a intercepté le colis. »
 
 « Un tiers. »
 
@@ -69,7 +69,6 @@ Ater baissa un instant les yeux sur l'écran du terminal, puis le referma.
 
 « Ce n'est pas bon. »
 
-Sern ne prit pas la peine de déplier le sens que contenait cette courte phrase.
 Les moments où une personne passait avant les archives étaient toujours dangereux. Une personne s'effaçait plus tard qu'une archive, et ses mouvements étaient bien moins prévisibles.
 
 Les deux hommes traversèrent la passerelle supérieure et s'engagèrent dans l'étroit passage entre le bâtiment administratif du port et la zone de stockage civile.
@@ -154,8 +153,9 @@ Mieux valait les laisser aller jusqu'au même seuil et voir, là-bas, qui tenter
 
 Ater se remit en marche.
 
-Pendant ce temps, en bas,
-Sion venait de déchiffrer le panneau au bout de la ruelle.
+---
+
+En bas, Sion venait de déchiffrer le panneau au bout de la ruelle.
 
 **Passerelle d'accès aux vestiges R-12. Accès extérieur interdit.**
 
@@ -194,9 +194,7 @@ Sion y posa le bout des doigts. Ça ne correspondait pas. C'était plus étroit 
 
 Sion se releva en époussetant la poudre de rouille au bout de ses doigts.
 
-« En plus, il a refermé. Un type qui fuit en vitesse, il referme pas la porte. »
-
-« C'est ici. »
+« En plus, il a refermé. Un type qui fuit en vitesse, il referme pas la porte. C'est ici. »
 
 « T'es sûr ? »
 

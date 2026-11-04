@@ -38,7 +38,7 @@ Seorin said it very quietly.
 
 "Don't know. That's why we're standing here."
 
-Behind them, one of the old machines suddenly raised its head, and the other raised its head the same way, toward below.
+Behind them, one of the old machines suddenly raised its head, and the other turned its head the same way, downward.
 
 Static brushed past. It was a low, short sound mixed into the vibration of the corridor floor, so to human ears it sounded like the wall humming, but the two machines' optical eyes stayed on it.
 
@@ -125,7 +125,7 @@ The same body, a different face.
 
 A beat later, two Serakion robots came out.
 
-Pushing plate and closing plate, joints hidden inside: nothing about them tried to look human. Their layered surfaces pushed the light dully away. They had the same shape as the reject seen in the hidden level, only these had not been cut.
+Pushing plate and closing plate, joints hidden inside: nothing about them tried to look human. Their layered surfaces pushed the light dully away. They had the same shape as the reject that had come out of the hidden level, only these had not been cut.
 
 Seorin spoke briefly.
 

@@ -33,8 +33,6 @@ Dejó la bolsa de galletas sobre el escritorio y siguió.
 
 —No vinieron juntos. Los persiguieron juntos hasta aquí.
 
-Con esas palabras, el aire incómodo que arrastraban desde la cabina volvió a resquebrajarse, finamente.
-
 Seorin fue la primera que estuvo a punto de reírse.
 
 —Lo lees nada más entrar.

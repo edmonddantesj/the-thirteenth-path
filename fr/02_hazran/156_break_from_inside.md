@@ -1,256 +1,242 @@
-# Chapitre 156 — La fissure intérieure
+# Chapitre 156 — Fendre de l'intérieur
 
-Le second sauvetage
-commença plus tard que le premier.
+Le second sauvetage commença plus tard que le premier.
 
-Non par manque de courage.
-Cette fois, le camp qui bougeait en premier
-se rapprochait précisément de la réaction que Serakion attendait.
+Les cinq ne surveillèrent pas ensemble les abords de la ligne de relève : ils se postèrent loin les uns des autres. Kael ne se plaça pas sous les deux lignes du plafond, mais à l'angle juste devant — non pas là où la fermeture commençait, mais là d'où l'on voyait la fermeture.
 
-Après la première fissure,
-Serakion s'était adapté bien plus vite aux perturbations extérieures.
+Ater se tint un pas au-delà de l'entrée du couloir, là où passaient les regards des machines. Han Jiwoo et la seconde main de récupération étaient près de la brèche ; la première main se tenait derrière.
 
-Si l'on secouait la file de la même manière,
-l'alignement se rétablissait désormais presque instantanément.
+Cette fois, Kael ne regardait pas le chemin ; il ne guettait que l'instant où le décalage intérieur deviendrait plus rapide que le colmatage extérieur. Ses cinq doigts, il les tenait tout grands ouverts : il en replierait un à chaque arrêt.
 
-Il fallait donc changer d'approche.
+Ater observait les machines de guidage : laquelle se montrait trop aimable, laquelle regardait la réaction de sa voisine avant celle de l'enfant, laquelle baissait la voix la première quand survenait une anomalie. Il en retint trois de cette manière. La première machine, la deuxième machine, la machine du coin.
 
-Ne pas briser depuis l'extérieur,
-mais créer d'abord, de l'intérieur, un infime décalage.
+Han Jiwoo demanda très bas.
 
-L'équipe de reconnaissance et les mains de récupération ne surveillaient plus les abords de la ligne de relève comme avant.
-Au contraire, elles s'étaient dispersées plus loin encore.
+« Comment tu les choisis ? »
 
-Kael avait de nouveau déchiffré la structure de fermeture,
-mais cette fois, ce qu'il observait n'était pas le chemin — c'était le moment précis où le décalage intérieur deviendrait plus rapide que le colmatage extérieur.
+« Celle qui m'a regardé la première. »
 
-Ater lisait l'attitude et le mouvement des regards des androïdes de guidage en amont.
-Lequel se montrait excessivement aimable.
-Lequel surveillait la réaction de ses pairs avant celle des enfants.
-Lequel, face à une anomalie, baissait d'abord la voix par souci des apparences.
+Ater répondit.
 
-Jiwoo, cette fois, regarda les visages avant les mains.
+« Celle qui m'a regardé la dernière. Et celle qui ne m'a pas regardé. »
 
-Après le premier sauvetage,
-les mains seules ne suffisaient plus.
+« Pourquoi celle qui ne t'a pas regardé ? »
 
-Serakion lisait déjà les réactions des mains
-et avait redistribué les enfants pour que ces réactions s'annulent entre elles.
+« Ne pas regarder, c'est regarder. »
 
-Alors cette fois,
-les mains,
-les pieds,
-les regards,
-le souffle,
-les arrêts.
-Il fallait tout lire en même temps.
+Han Jiwoo regarda la machine du coin : elle ne regardait pas de leur côté.
 
-Ce jour-là, vers la fin de la file,
-le petit enfant qui avait brièvement tourné la tête la veille était de nouveau là.
+Elle regarda les visages avant les mains. Serakion avait lu les mains et avait mêlé les enfants ; les mains seules ne suffisaient plus.
+Alors : les mains, les pieds, le regard, le souffle, les arrêts. Cinq pour chaque enfant.
 
-Plus silencieux qu'avant.
-Feignant mieux l'habitude,
-paraissant mieux intégré au rythme.
+La seconde suivit des yeux ces cinq choses.
 
-Mais Jiwoo le comprit au premier regard.
+« Le souffle, comment le voyez-vous ? »
 
-Ce silence n'était pas celui d'un enfant entièrement absorbé.
-C'était le silence de quelqu'un qui s'efforçait depuis trop longtemps de ne pas dévier.
+« À la poitrine. Si c'est trop loin pour la voir, aux épaules. »
 
-Ceux qui avaient complètement cédé semblaient, paradoxalement, plus naturels.
-Mais cet enfant-là
-se retenait sans cesse pour paraître naturel.
+La seconde regarda les épaules de l'enfant au bout de la file. Tout près se trouvait le petit enfant qui, la veille, avait tourné la tête de côté.
 
-Jiwoo murmura très bas.
+L'enfant se tenait plus tranquille qu'avant. Feignant davantage l'habitude, l'enfant semblait mieux pris dans le rythme. Les pieds exactement sur les empreintes, les mains le long du corps, la tête tournée devant.
 
-« Cette fois, c'est cet enfant en premier. »
+La poitrine de l'enfant, telle que Han Jiwoo la voyait, se soulevait et retombait plus brièvement que celle de l'adulte d'à côté. C'était une poitrine qui retenait son souffle pour paraître naturelle.
+
+« Cette fois, c'est cet enfant d'abord. »
+
+Han Jiwoo parla très bas.
 
 Ater demanda sans déplacer son regard.
 
 « Vous en êtes sûre ? »
 
-Jiwoo répondit.
+Han Jiwoo répondit.
 
-« Non, pas sûr. »
-« Mais il utilise encore son propre intérieur. »
+« Pas sûre, non. Mais cet enfant se sert encore de son propre dedans. »
 
-Tout le monde comprit ce que cela signifiait.
+« À quoi le voyez-vous ? »
 
-Le point de départ du second sauvetage
-ne serait pas d'ébranler la file depuis l'extérieur,
-mais le moment où un seul enfant, qui utilisait encore son corps comme le sien,
-poserait pour la première fois un pas hors du rythme.
+« Au souffle. »
 
-Le problème,
-c'était de savoir qui provoquerait cela, et comment.
+Aux yeux d'Ater aussi, la poitrine de l'enfant battait court.
 
-La seconde main de récupération demanda à voix basse.
+La seconde demanda à voix basse.
 
-« Faut-il intervenir physiquement ? »
+« Faut-il y mettre la main ? »
 
-Kael secoua la tête le premier.
+Depuis l'angle, Kael secoua la tête le premier.
 
 « Pas encore. »
 
-Les yeux plissés, il mesurait l'écart entre les positions dans la file,
-le temps de réaction de l'androïde voisin,
-et le nombre de temps restant avant le prochain arrêt.
+Il comptait les écarts entre les rangs, le temps de réaction des machines, les temps qui restaient avant le prochain arrêt.
 
-« Il faut que ce soit l'enfant qui dévie de lui-même. »
-« Si nous le touchons en premier,
-cette fois ce sera immédiatement lu comme une intervention extérieure. »
+« Il faut d'abord que l'enfant dévie sans aide. Si on touche les premiers, cette fois, ce sera lu tout de suite comme une intervention du dehors. »
 
-Ces mots étaient cruels, mais justes.
+« Et si l'enfant ne dévie pas ? »
 
-Ce sauvetage exigeait que le temps de celui qui restait à l'intérieur
-bouge avant la main de ceux qui sauvaient.
-Ainsi seulement, Serakion pourrait, l'espace d'un temps, confondre le décalage avec un dysfonctionnement interne.
+Han Jiwoo demanda.
 
-Ater dit à voix basse.
+« Alors, rien aujourd'hui. »
 
-« Alors je ne peux même pas créer une secousse visible. »
+Han Jiwoo se tut ; près de la brèche, la seconde changea de posture, tendit la jambe puis la replia.
+
+« Et si ce n'est pas aujourd'hui ? Demain, cet enfant ne sera peut-être plus là-bas. »
+
+Kael répondit depuis l'angle.
+
+« Je sais. »
+
+« Quand même. »
+
+« Quand même. »
+
+Quand la seconde replia de nouveau la jambe, il y eut un tout petit bruit, et Han Jiwoo l'entendit.
+
+Ater parla à voix basse.
+
+« Alors je ne peux pas non plus être le premier à secouer, de façon visible. »
 
 Kael répondit brièvement.
 
-« Cette fois, ce n'est pas toi qui secoues.
-Quand l'autre aura d'abord vacillé, tu devras amplifier cela le plus naturellement possible. »
+« Cette fois, ce n'est pas toi qui secoues. Quand ça vacillera d'abord de leur côté, c'est ça que tu dois amplifier, plus naturellement. »
 
-La commissure des lèvres d'Ater se figea imperceptiblement.
+La commissure des lèvres figée, Ater regarda ses propres pieds. Pousser le décalage d'un autre pour qu'il ait l'air d'une maladresse du quotidien. Il avait vu faire cela dans sa maison. Il l'avait fait, aussi. Il rectifia la position de ses pieds.
 
-Cette fois, c'était plus difficile.
-Il ne s'agissait pas d'imposer son propre rythme,
-mais de prendre le minuscule décalage initié par un autre
-et de le pousser pour qu'il ressemble non pas à un soupçon, mais à une maladresse du quotidien.
+Han Jiwoo regarda ces pieds.
 
-C'était un jeu plus subtil encore que l'entraînement impérial.
+« Tu sais faire ça ? »
 
-Quand la file atteignit le premier arrêt,
-rien ne se produisit.
+« Je sais. »
 
-Au deuxième arrêt non plus,
-l'enfant ne fit rien.
+Ater répondit.
 
-Jiwoo ne changea pas d'expression.
-Mais le bout de ses doigts se raidit un peu plus.
+« C'est ne pas le faire qui était plus difficile. »
 
-Juste avant le troisième arrêt,
-ce fut le moment.
+Han Jiwoo n'insista pas.
 
-Au lieu de lever la tête,
-un petit enfant jeta un regard trop bref vers la gauche.
+La file atteignit le premier arrêt.
 
-On aurait pu n'y voir qu'une erreur insignifiante.
-Un instant si fugace
-qu'il aurait pu passer pour un simple tic.
+Sans incident, l'adulte s'arrêta, puis les enfants. Les pieds du petit enfant étaient sur les empreintes.
 
-Mais dès que Jiwoo le vit, elle retint son souffle,
-et Kael dit en même temps, à voix basse :
+Depuis l'angle, Kael replia un doigt ; Ater regarda cette main, puis ses propres pieds. Il ne bougea pas. La première machine, qui longeait la file à raison d'un temps par enfant, passa devant le petit enfant sans s'arrêter, et les épaules de Han Jiwoo descendirent d'une demi-phalange.
 
-« Maintenant. »
+Deuxième arrêt.
+
+Pendant que personne ne faisait rien, le souffle du petit enfant se raccourcit encore. Han Jiwoo ne changea pas d'expression, mais le bout de ses doigts se raidit.
+
+Au milieu de la file, la main de l'adulte tremblait plus fort qu'avant ; elle s'immobilisa le temps qu'une machine passe à côté, puis, la machine passée, se remit à trembler. Han Jiwoo regarda cette main, puis la poitrine de l'enfant. Deux.
+
+La seconde regarda Han Jiwoo, mais celle-ci ne secoua ni n'inclina la tête.
+
+Juste avant le troisième arrêt.
+
+Au lieu de lever la tête, le petit enfant jeta un bref regard à gauche — pas vers l'adulte, vers le mur, le mur vide. Puis devant.
+
+Au moment même où Han Jiwoo retint son souffle, Kael dit à voix basse :
+
+« À partir de maintenant. »
 
 Ater était déjà en mouvement.
 
-Il ne s'approcha pas ouvertement de la file.
-Au lieu de cela, il entra dans le champ visuel d'un androïde de guidage voisin,
-avec un naturel excessif.
+Il n'alla pas vers la file : il entra, naturellement, dans le champ de vision de la première machine qu'il avait choisie. La machine dut regarder deux choses, la gauche de l'enfant et le pas d'Ater. Un demi-temps.
 
-L'androïde dut traiter simultanément le micro-décalage côté enfant
-et le nouveau mouvement côté Ater.
+Sans élever la voix, en la rendant au contraire plus basse et plus douce, la machine fit un demi-pas vers l'enfant et voulut lui poser la main sur l'épaule.
+« Tout va bien. Regardez devant vous. »
+L'enfant regarda devant. La poitrine s'arrêta. Près de la brèche, Han Jiwoo serra les dents.
 
-Ce demi-temps.
-C'était exactement ce demi-temps qu'il leur fallait.
+À cet instant, le petit enfant, à l'intérieur de la file, rata le rythme pour la seconde fois.
 
-L'androïde n'éleva pas la voix.
-Il tenta au contraire, plus doucement,
-plus bas,
-de rétablir l'alignement.
+Les pieds. Comme sans le faire exprès, un demi-pas avant l'arrêt, avant que la main de la machine ne touche l'épaule. L'épaule où se poser se trouvait un demi-pas plus loin, et la machine s'arrêta, la main levée.
 
-Mais à cet instant précis,
-le petit enfant à l'intérieur de la file rata le rythme une seconde fois.
+Han Jiwoo parla presque dans un souffle.
 
-Les pieds, cette fois.
+« Ça y est. »
 
-Très légèrement,
-comme si ce n'était vraiment pas intentionnel.
-Mais distinctement,
-son propre temps avait devancé le rythme imposé par Serakion.
+La seconde changea de posture : sans toucher la file, son centre de gravité pencha vers la brèche, et sa jambe se souleva du sol d'un demi-empan. Han Jiwoo regarda cette jambe. Ça n'allait pas, mais il fallait que ça aille.
 
-Jiwoo murmura dans un souffle.
+Depuis l'angle, Kael guettait le repli, mais les deux lignes du plafond ne bougeaient pas encore.
 
-« C'est parti. »
+« Il en faut encore une. »
 
-La seconde main de récupération changea aussitôt de posture.
+Il parlait bas.
 
-Elle ne toucha pas encore la file.
-Mais son centre de gravité s'était déjà incliné, non plus vers l'extérieur, mais vers l'interstice du côté des enfants, prête à s'y glisser à tout instant.
+Le décalage d'un seul enfant ne suffisait pas : la main de la machine redescendait déjà, cherchant l'épaule. Un temps, et elle la toucherait. Si elle la touchait, tout serait enseveli.
 
-Kael, lisant la structure de repli, dit à voix basse.
+La seconde se pencha en avant ; sans un mot, Han Jiwoo lui pressa le bras. La seconde s'arrêta, et sa jambe retrouva le sol sans bruit.
 
-« Il en faut encore un. »
+C'est alors que l'adulte juste à côté du petit enfant retarda son épaule.
 
-Une seule fissure ne suffisait pas.
-Cette fois, Serakion aussi avait colmaté vite dès la première brèche.
-Avec le décalage d'un seul enfant,
-le risque était de le voir englouti de nouveau dans un alignement plus aimable encore.
+De très peu. C'était l'adulte qui ne regardait que devant soi, la référence, l'adulte à la main tremblante. Cette épaule, qui avait vu le décalage de l'enfant et tenté à son tour de ralentir le corps, s'arrêta un demi-temps en retard.
 
-C'est alors
-qu'un autre humain, juste à côté de cet enfant,
-ralentit son épaule de façon vraiment infime.
+Le regard de Han Jiwoo vacilla. Pas un seul : deux.
 
-Cela ne ressemblait pas à l'erreur d'un enfant conditionné.
-C'était plutôt
-quelqu'un qui, ayant vu le décalage devant lui,
-avait essayé de ralentir un tout petit peu son propre corps.
+La seconde regarda cet adulte.
 
-Le regard de Jiwoo vacilla.
+« Emmenons-nous aussi l'adulte ? »
 
-Ce n'était pas un seul.
-Déjà deux, à l'intérieur,
-foulaient un temps légèrement différent.
+« Non. »
 
-Ater l'avait remarqué lui aussi.
-D'une voix plus basse et plus posée,
-il lança un mot vers l'androïde de guidage, comme une vérification anodine.
+Kael répondit.
+
+« Il n'y a pas la largeur pour un adulte. »
+
+La seconde regarda l'épaule en retard de l'adulte.
+
+La main de la machine s'immobilisa entre l'épaule de l'enfant et celle de l'adulte. Laquelle d'abord.
+
+Voyant cela, Ater, d'une voix plus basse et plus courtoise encore, lança un mot vers la première machine, comme pour vérifier.
 
 « Cette file, c'est bien la ligne de relève ? »
 
-La question en soi n'avait rien d'étrange.
-Mais à cet instant, cette seule phrase
-scinda une fois de plus les priorités de réaction de l'androïde.
+La question n'avait rien d'étrange. La question de quelqu'un qui venait pour la première fois. La machine reçut la question. Elle devait la recevoir. Les enfants, l'adulte, et maintenant la question du dehors : cela faisait trois.
 
-L'alignement des enfants,
-la question extérieure,
-la réponse de l'androïde voisin.
+Avant que la première machine ne réponde, la deuxième machine regarda la première, et la machine du coin regarda toute la file désordonnée. Par où commencer.
 
-Serakion colmate normalement tout cela très vite.
-Mais à présent,
-deux décalages étaient déjà vivants à l'intérieur.
+La première machine fit un demi-pas vers Ater.
+« Ce secteur n'est pas concerné par le guidage. »
+À cette voix basse et douce, Ater inclina la tête selon l'angle des adultes.
 
-Kael dit à voix basse.
+« Pardon. C'est la première fois. »
 
-« C'est bon. »
+Le visage de la machine s'attarda sur lui.
+Un temps.
+Deux.
+Des temps arrachés à la file.
 
-Au moment où ces mots tombèrent,
-la seconde main de récupération entra.
-Jiwoo bougea presque en même temps.
+Kael parla à voix basse.
 
-Ce sauvetage ne ressemblait pas au premier, où l'on arrachait soudain depuis l'extérieur de la file.
-C'était plutôt une main venue de l'extérieur
-qui rejoignait très tard un rythme déjà altéré de l'intérieur.
+« Maintenant, ça marche. »
 
-C'est pourquoi ce fut plus silencieux,
-et c'est pourquoi ce fut plus dangereux.
+Derrière, la première main parla très bas.
 
-Un instant de retard,
-et tous ces décalages seraient de nouveau ensevelis sous un alignement bienveillant.
-Un instant d'avance,
-et ce serait immédiatement lu comme une intervention extérieure — la mise en alerte précéderait le colmatage.
+« Je compte jusqu'à trois. »
 
-Mais à cet instant,
-les petits temps à l'intérieur de la file étaient déjà vivants.
+« Deux. »
 
-C'est précisément pour cette raison
-que le second sauvetage commençait enfin d'une manière radicalement différente du premier.
+Kael répondit.
+
+« À trois, c'est trop tard. »
+
+« Deux. »
+
+La première reprit.
+
+La seconde entra en traînant la jambe, et Han Jiwoo bougea presque en même temps.
+
+Ce n'était pas arracher depuis l'extérieur de la file : c'étaient les mains du dehors qui rejoignaient, en retard, un rythme déjà changé à l'intérieur. Han Jiwoo se trouvait un demi-pas devant le petit enfant ; la seconde, à côté de l'épaule en retard de l'adulte.
+
+Ce fut plus silencieux que la première fois. Sans tendre encore la main, Han Jiwoo s'abaissa jusqu'à hauteur des yeux de l'enfant. L'enfant la regarda avec les yeux qui avaient regardé à gauche.
+
+Sans ouvrir la bouche, elle ouvrit la main, paume vers le haut. Les yeux de l'enfant allèrent à cette main, puis au visage de Han Jiwoo, puis de nouveau à la main. Contre son flanc, les doigts de l'enfant bougèrent très légèrement.
+
+La main de la machine toucha d'abord l'épaule de l'adulte. La référence d'abord. L'adulte s'arrêta, et la main tremblante s'immobilisa.
+
+L'enfant était toujours un demi-pas en avant, et la main de la machine était sur l'adulte. Un temps.
+
+Kael regarda les deux lignes du plafond : l'ancienne, celle du milieu, avait bougé ; la nouvelle, pas encore.
+
+« Maintenant. »
+
+C'était Kael.
 
 ---
 

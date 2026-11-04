@@ -130,7 +130,7 @@ Sion watched what he had kicked roll away.
 
 He didn't know what was in it. He didn't know what it was worth either. He didn't know why that person had carried it all the way here.
 
-What Nasim had said yesterday, he had said today.
+What Nasim had said earlier, this time he had said himself.
 
 When he heard it, it was the right thing to say. Coming out of his own mouth, it was right and still stuck in his throat.
 

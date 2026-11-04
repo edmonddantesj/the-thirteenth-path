@@ -22,7 +22,7 @@ Y debajo de eso había algo todavía más claro.
 
 La guerra empezó porque nosotros vinimos.
 
-Sion no lo dijo en voz alta y, aun así, vio lo mismo en las caras de al lado. Seorin tenía los labios apretados, y Han Jiwoo apretaba de más la mano con la que agarraba la baranda. Kael no conseguía despegar los pies con los que había vuelto.
+Sion no lo dijo en voz alta y, aun así, vio lo mismo en las caras de al lado. Seorin tenía los labios apretados, y Han Jiwoo apretaba de más la mano con la que agarraba la baranda. Kael no conseguía despegar los pies.
 
 Hasta a Sern y a Ater se les quedaba la mirada enganchada hacia dentro de vez en cuando.
 
@@ -110,7 +110,7 @@ Han Jiwoo siguió tendiendo el brazo desde dentro después de ella.
 
 —La mano.
 
-Las mismas palabras, dieciséis veces. Las dieciséis veces agarró con la misma fuerza.
+Dijo las mismas palabras una y otra vez. Todas las veces agarró con la misma fuerza.
 
 Luhai subía detrás cuando se detuvo a mitad de la rampa.
 
@@ -241,8 +241,6 @@ Nasim le empujó la espalda desde atrás.
 Lo dijo con la voz ronca.
 —El que sube, sube.
 
-Esas palabras eran crueles. Pero si no se decían así, cualquiera miraría atrás. Y si miraba atrás, la despedida se retrasaba un paso. Ahora mismo, Hazran no tenía ese paso.
-
 Sion puso el pie en la rampa.
 
 Por detrás le llegó la voz de Zahir.
@@ -303,7 +301,7 @@ Por primera vez, la cuenta se cortó.
 
 Sion puso la mano en la pared.
 
-No llegó nada. Este barco había estado fuera hasta hacía un momento y ahora Sion estaba dentro, pero a la punta de los dedos no le llegaba nada.
+No llegó nada. Hasta hacía un momento había palpado este barco desde fuera y ahora estaba dentro, pero a la punta de los dedos no le llegaba nada.
 
 Y el barco despegó.
 

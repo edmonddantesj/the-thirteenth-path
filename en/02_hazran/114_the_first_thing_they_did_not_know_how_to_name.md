@@ -57,7 +57,7 @@ Sern did not call it anything at all. He only pointed toward it with his hand.
 
 Ater called it "that location." The Empire's way of speaking came out of him like that.
 
-Six people called the same thing six different ways. No one used the same word, and yet no one failed to understand.
+Five of them pointed to the same thing five different ways. No one used the same word, and yet no one failed to understand.
 
 That was what frightened Sion, if anything.
 

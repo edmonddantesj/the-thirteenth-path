@@ -1,254 +1,297 @@
-# Capítulo 149 — Lo que ya no se puede llamar reconocimiento
+# Capítulo 149 — No solo un reconocimiento
 
-Tras seguir el ritmo del orden de arriba hasta lo más adentro,
-el grupo de reconocimiento por fin vio en directo cómo Serakion entregaba a los niños humanos al nivel superior.
+En el camino de bajada, los cinco volvieron a detenerse delante de la zona de espera.
 
-Hasta entonces, ellos
-habían visto los sectores,
-habían leído el flujo de movimiento,
-habían entendido la diferencia entre las manos, la vida y la jerarquía.
+Era el sector con la marca de huellas por el que habían pasado al subir, y justo entonces se movía la línea de relevo. La primera mano de recogida levantó la mano y los cinco se pegaron a la rendija.
 
-Pero aquel día, por primera vez,
-cómo funcionaba en realidad toda esa estructura, sobre quién y de qué modo,
-entró en su campo de visión de un solo golpe.
+Los niños no se movían muchos a la vez. Se movían de tres en tres, de cuatro en cuatro, con intervalos cortos. Un lote se colocaba sobre las huellas y, cuando se encendía la línea luminosa de guía, se detenía y quedaba alineado. Un tramo sin junturas de la pared del fondo se abría y, cuando los niños pasaban al otro lado, se cerraba. El siguiente lote.
 
-Los niños no se movían muchos a la vez.
+Kael contaba el tiempo que tardaba un lote desde que los tres se colocaban hasta que pasaban. Doblaba los dedos y los estiraba, los doblaba y los estiraba; aquella mano no contaba veces, sino que medía una duración, y la segunda mano de recogida miraba esa mano.
 
-Serakion, como siempre,
-se movía de modo que no pareciera un transporte masivo.
+—¿Cuánto es?
 
-Tres,
-cuatro como mucho.
-Intervalos muy cortos.
-Un flujo silencioso, apenas perceptible.
+—Doce.
 
-Esos pequeños grupos
-se detenían un momento,
-se alineaban,
-eran entregados,
-y desaparecían.
+Lo dijo Kael.
 
-Justo por eso era más atroz.
+—Doce, desde que se colocan hasta que pasan.
 
-No porque el número no fuera grande.
-Por estar repartidos para que se vieran pocos,
-se enturbiaba la sensación de quién desaparecía y con qué frecuencia.
+—¿Y de esos, cuántos sirven?
 
-Serakion administraba incluso la pérdida
-de modo que no se viera de golpe.
+—Uno. Antes de que se abra la pared.
 
-Han Jiwoo estuvo de pie todo el rato viendo ese movimiento, casi como si no respirara.
+La segunda se miró la pierna, la que tendría que moverse en uno de esos doce.
+
+Del otro lado de la pared llegó un tono de guía cortés.
+Era la tercera vez que sonaban palabras como «El siguiente lote». Han Jiwoo contaba esas palabras.
+
+Mientras tanto, ella se quedó de pie como si no respirara.
 
 Los niños eran todos distintos.
 
-Algún niño ya tenía el paso demasiado silencioso,
-a algún niño le habían ajustado hasta la altura a la que levantaba la cabeza,
-algún niño aún tenía las yemas rígidas,
-algún niño seguía antes la velocidad de la máquina de al lado que la de su propio pie.
+Uno caminaba tan callado que el pie no hacía ruido al tocar el suelo. Otro levantaba la cabeza a la misma altura que las máquinas, y otro tenía blancas las puntas de los dedos bajo lo transparente. Otro miraba los pies de la máquina de al lado antes que los suyos. Cuando los pies de la máquina se detenían, los suyos se detenían.
 
-Esas diferencias
-se clavaban, al contrario, con más dolor.
-
-No eran todos los mismos niños.
-Tampoco habían sido amansados todos a la misma velocidad.
-Tampoco habían aguantado todos del mismo modo.
-
-Pero Serakion leía también todas esas diferencias,
-y subía a cada uno arriba a la velocidad que le correspondía.
-
-Han Jiwoo dijo muy bajo.
+Han Jiwoo habló muy bajo.
 
 —Hasta a los niños les leen el tempo por separado.
 
-La primera mano de recuperación respondió.
+La primera mano de recogida contestó.
 
-—Aquí es en lo que mejor son.
+—Aquí es lo que mejor hacen.
 
-Esas palabras eran serenas,
-pero sonaron casi como un sarcasmo hacia sí mismo.
+—¿Cómo lo leen?
 
-Serakion no es un mundo que maneje a los humanos todos a la vez.
-Más bien, el lado más peligroso estaba
-en la capacidad de reconocer la distinta velocidad del derrumbe en cada persona
-y domesticar a cada una de forma individual según eso.
+—No lo sé. Solo veo el resultado de lo leído.
 
-Ater miró largo esa escena,
-y al ver cómo un niño, tras detenerse, volvía a alinearse con total naturalidad, dijo bajo.
+—¿Y cuál es el resultado?
 
-—Ahora lo entendí.
+—Eso.
 
-No estaba claro a quién se lo decía.
-Podía ser a sí mismo.
+La primera señaló con la barbilla al niño del paso callado.
 
-—Por qué todo era tan silencioso hasta este punto —siguió diciendo bajo—. Esto no es un gobierno masivo,
-sino un gobierno fragmentado para que no parezca masivo.
+—El que no hace ruido al pisar. No era así desde el principio.
 
-Esas palabras volvieron a atravesar toda la estructura de Serakion.
+Han Jiwoo miró los pies de ese niño. Tocaban el suelo y no sonaban. Miró al niño de las puntas de los dedos blancas y vio que la máquina de su lado estaba medio paso más cerca que las otras. Las máquinas junto a otros dos niños también estaban a medio paso; solo junto a un niño había un paso entero.
 
-Desde abajo hasta ahora,
-todo se movía con el mismo principio.
+—¿Por qué está tan cerca la de ese niño?
 
-No arrear en grande.
-No derrumbar todo de una vez.
-No cerrar mucho de una vez.
-Tampoco despojar mucho de una vez.
+—Porque todavía no encaja.
 
-Siempre poco a poco,
-con cortesía,
-en unidades manejables.
+La segunda respondió.
 
-Así la resistencia también se retrasa,
-la pérdida también se ve tarde,
-y la ira se corta antes de volverse colectiva.
+—A los que encajan los dejan lejos.
 
-Kael había estado leyendo todo el rato la posición donde se detenían los niños,
-el ángulo con que la máquina de al lado levantaba la mano,
-y el orden con que el muro se abría y se cerraba justo después.
+Han Jiwoo miró aquel medio paso, a aquel niño de medio paso.
 
-Y por fin,
-abrió la boca muy en silencio.
+—O sea, si encajan los dejan lejos, y si no encajan los dejan cerca.
 
-—Lo entendí.
+—Sí.
+
+—Entonces ese que está cerca es uno que todavía no encaja.
+
+La segunda tardó un compás en responder.
+
+—Si se mira así, así es.
+
+Han Jiwoo contó a los niños que estaban dentro del medio paso. Tres de cuatro. Mientras ella se aferraba a esa cifra, la segunda miró a esos tres.
+
+—Aun así, a los tres no podemos llevárnoslos.
+
+—¿Por qué?
+
+—Porque las máquinas cercanas son tres.
+
+Han Jiwoo contó las máquinas. Tres a medio paso, una a un paso.
+
+—Pero son tres de cuatro.
+
+—Por eso no se puede. … Dos se volverán a mirar.
+
+Mientras Han Jiwoo cerraba la boca, Ater también lo oyó.
+
+—Entonces a los niños que tienen cerca también los ve ese lado.
+
+—Los ve.
+
+La segunda respondió.
+
+—Como los ve, los tiene cerca.
+
+Ater no dijo más; miró el medio paso y luego vio cómo un niño se detenía y volvía a quedar alineado.
+
+El niño se detuvo medio compás tarde, la máquina se colocó a su lado y el niño pasó los pies sobre las huellas. Incluso después de que la máquina se retirara, el niño se quedó en aquel sitio sin moverse.
+
+Ater habló bajo.
+
+—Ahora lo entiendo.
+
+No quedaba claro a quién se lo decía.
+
+—Por qué todo estaba tan callado.
+
+Siguió, en voz baja.
+
+—Esto no es un gobierno de masas, sino un gobierno troceado para que no parezca de masas.
+
+—De tres en tres.
+
+Lo dijo Han Jiwoo.
+
+—De tres en tres.
+
+Ater lo repitió.
+
+—Que desaparezcan tres no lo cuenta nadie.
+
+Han Jiwoo contó los lotes que habían pasado.
+Tres.
+Después, tres.
+Después, cuatro.
+Diez.
+No dejó de contar.
+
+—No cuente.
+
+Lo dijo la segunda.
+
+—Cuento. Si nadie cuenta, no cuenta nadie.
+
+Sus labios siguieron contando sin sonido.
+
+La segunda no dijo más; se miró los dedos y dobló uno.
+Uno.
+
+Kael observaba dónde se detenían los niños, el ángulo con que la máquina de al lado levantaba la mano y el orden en que, justo después, se abría y se cerraba la pared.
+
+Se levanta la mano.
+Los niños se colocan.
+Se abre la pared.
+Pasan.
+Se cierra la pared.
+Baja la mano.
+
+En medio. Después de levantar la mano y antes de que se abra la pared, cuando los niños ya están sobre las huellas pero la alineación todavía no ha terminado.
+Un compás, quizá medio.
+
+Entonces habló, en voz muy baja.
+
+—Lo tengo.
 
 Han Jiwoo y Ater lo miraron a la vez.
 
-Kael habló sin apartar la mirada.
+Kael habló sin apartar la vista.
 
-—Por qué hasta ahora no se ha podido sacar a ninguno.
-—Y también dónde sería lo único posible.
+—Por qué no hemos podido sacarlos hasta ahora. Y también el único sitio donde sería posible.
 
-La segunda mano de recuperación reaccionó muy corto.
+La segunda mano de recogida reaccionó muy corto.
 
-—Dónde.
+—¿Dónde?
 
-Kael señaló con la barbilla el tramo corto en que la alineación se aflojaba un instante,
-justo antes de que los niños pasaran al siguiente sector.
+Kael señaló con la barbilla el sitio sobre las huellas, antes de que se abra la pared.
 
-—Ahí.
-—Justo antes de ser entregados, antes de entrar del todo en el compás de arriba.
-—Pero es demasiado corto.
+—Ahí. Justo antes de que los entreguen, antes de que entren del todo en el compás de arriba. Pero es demasiado corto.
 
-Esas pocas palabras cortas
-hicieron, al contrario, que la situación cortara aún más la respiración.
+—¿Cuánto?
 
-Había una posibilidad.
-Pero esa posibilidad
-no era de las que se abren empujando con valor o con fuerza.
+Lo preguntó la primera.
 
-Un desajuste muy corto,
-el instante antes de quedar del todo alineado,
-el último compás en que una persona usa su propio cuerpo como suyo.
+Kael dobló y estiró un dedo una vez.
 
-Si se pierde eso, se acabó.
+—Esto.
 
-Han Jiwoo, aun oyendo esas palabras, no pudo apartar la mirada del lado de los niños.
+La primera miró aquella mano.
 
-Ella vio a un niño
-levantar la cabeza medio compás más tarde que el gesto de la máquina,
-y a otro niño, al contrario, despegar el pie medio compás antes.
+—¿A tres, ahí dentro?
 
-Esos desajustes minúsculos
-quizá eran el tiempo que aún le quedaba al lado de las personas.
+—Ahí dentro.
 
-—Todavía no se han ido del todo —dijo ella casi masticando las palabras.
+La segunda se miró la pierna, la que tendría que moverse ahí dentro.
 
-La primera mano de recuperación no dijo nada.
+Han Jiwoo no apartaba la vista de los niños.
 
-Pero ese silencio no era una negación.
-Era casi como si Han Jiwoo confirmara ahora con sus propios ojos
-lo que él ya llevaba demasiado tiempo viendo.
+Mientras un niño levantaba la cabeza medio compás más tarde que el gesto de la máquina, otro despegaba el pie medio compás antes. La máquina ajustó a los dos: a uno esperándolo y al otro cortándole el paso.
 
-Ater miraba, no abajo,
-sino las máquinas que arriba recibían a los niños.
+—Todavía no han pasado todos.
 
-En sus manos no había impaciencia,
-la voz era baja,
-la actitud, demasiado estable.
+Lo dijo casi masticando las palabras.
 
-Era justo esa estabilidad
-la clase de cosa que más le costaba soportar.
+—Ese que va tarde. Ese que va rápido.
 
-—Esos de allá se comportarán como si fuera buena voluntad —dijo bajo—.
-Por eso pueden robar durante más tiempo.
+La primera mano de recogida no dijo nada. Miró al niño lento, miró al rápido. No asintió, ni apartó los ojos.
 
-Esas palabras endurecieron más a Han Jiwoo,
-y hundieron también más la mirada de Kael.
+Ater observaba a las máquinas que recibían a los niños arriba.
 
-Ahora los tres lo sabían.
+Eran máquinas del otro lado de la pared, que solo se veían cuando se abría; tenían las manos lentas y la voz baja. Aquella mano se posó sobre el hombro de un niño, sin empujarlo.
 
-Lo que hacía Serakion
-era una selección violenta,
-un secuestro elegante,
-un despojo cortés.
+—Ese lado se comportará como si fuera buena voluntad.
 
-Solo que apenas ahora
-lo confirmaban directamente
-en la velocidad, las manos y los pies de los niños que tenían delante.
+Lo dijo en voz baja.
 
-En ese momento, otro grupo de niños fue entregado a la siguiente línea.
+—Por eso puede robar durante más tiempo.
 
-El más pequeño, que iba al final de todos,
-giró la cabeza hacia un lado solo un instante.
+—¿Y no es buena voluntad?
 
-No miró hacia el grupo de reconocimiento.
-Fue solo un movimiento, como si comprobara algo detrás de sí.
+Lo preguntó Han Jiwoo.
 
-Pero ese breve gesto
-extrañamente ya no dejó a Han Jiwoo quedarse quieta.
+—Es buena voluntad.
 
-Hasta el instante antes de desaparecer,
-esos niños aún buscaban a alguien.
+Ater respondió.
 
-Han Jiwoo dijo, bajo y firme.
+—Según el criterio de ese lado.
 
-—Dejemos ya de mirar.
+Mientras Han Jiwoo miraba la mano posada en el hombro, la pared se cerró y la mano también desapareció.
 
-Las dos manos de recuperación la miraron a la vez.
+Kael miró la pared en el sitio que se había abierto, pero no tenía junturas.
 
-Kael también,
-y Ater también,
-la miraron sin decir nada.
+—Esa pared no se puede abrir.
 
-Han Jiwoo, con la mirada puesta en los niños, volvió a hablar.
+Lo dijo él.
 
-—Entender mejor la estructura hacía falta.
-—Pero ya no.
-—Si seguimos mirando,
-mientras entendemos, solo se llevan a los niños.
+—Así que delante de ella.
 
-Esas palabras no eran un estallido emocional.
-Más bien parecían una conclusión que llegaba demasiado tarde.
+—Delante de ella.
+
+Kael miró la marca de huellas: desde ahí hasta la pared había tres pasos.
+
+—En tres pasos.
+
+Según lo veía Han Jiwoo, esos tres pasos eran tres de los suyos y cinco de un niño.
+
+—Cinco pasos en un compás. No se puede.
+
+—¿Y si corro con uno en brazos?
+
+Lo dijo la segunda.
+
+—Tres pasos.
+
+—Con esa pierna, no.
+
+Lo dijo la primera.
+
+La segunda no respondió y se miró la pierna, y Han Jiwoo apretó la bolsa de herramientas.
+
+Otro lote se colocó sobre las huellas.
+
+El niño menudo que iba al final giró la cabeza a un lado una vez. No hacia el grupo de reconocimiento, sino hacia atrás, hacia un sitio donde no había nadie. Una máquina le puso la mano en el hombro y la cabeza del niño volvió al frente. La pared se abrió y el niño pasó.
+
+Han Jiwoo se apartó de la rendija y, al apoyar la espalda en la pared, se le pegó la palma a ella. Estaba fría, a la misma temperatura que las paredes de abajo; las paredes de arriba eran cálidas.
+
+Apartó la mano y habló en voz baja y firme.
+
+—Basta de mirar.
+
+Las dos manos de recogida, y también Kael, y también Ater, la miraron a la vez.
+
+Han Jiwoo, con la espalda contra la pared, volvió a hablar.
+
+—Hacía falta entender más la estructura. Pero ya no. Si seguimos mirando, mientras nosotros entendemos solo pasan los niños.
+
+—Son diez.
+
+Lo añadió ella.
+
+—Mientras estábamos aquí han pasado diez.
 
 Ater cerró los ojos y los abrió.
-Y dijo muy bajo.
 
 —Yo también estoy de acuerdo.
 
-Kael, una última vez,
-grabó en sus ojos el orden de cierre, el punto donde se detenían los niños,
-y el intervalo con que eran entregados.
+Kael miró por última vez el orden de cierre, el punto donde se detenían los niños y el intervalo de las entregas, y dobló y estiró los dedos una vez.
 
-Después dijo corto.
+—Si lo hacemos, hay que hacerlo exacto.
 
-—Si lo hacemos,
-hay que hacerlo con precisión.
+La primera miró por turnos a Han Jiwoo, a Ater y a Kael, y luego miró a la segunda. La segunda asintió con la cabeza, pero la primera no.
 
-Eso no era un permiso ni tampoco un freno.
+—Cuando bajemos.
 
-Significaba que los tres ya habían llegado
-a que esto ya no se podía llamar solo reconocimiento.
+Lo dijo la primera.
 
-Lo que ellos entendieron por último aquel día
-no fue un secreto más profundo de la estructura de Serakion.
+—Aquí no se hace.
 
-Más bien era lo contrario.
+Mientras los cinco se apartaban de la rendija, la pared se abrió y se cerró una vez más. Han Jiwoo no contó. Intentó no contar.
 
-El hecho de que, por haber entendido ya lo suficiente,
-no se podía seguir solo mirando.
-
-Y justo en ese instante,
-el reconocimiento no había terminado,
-pero ya empezaba a pasar a la siguiente fase.
+Once.
 
 ---
 

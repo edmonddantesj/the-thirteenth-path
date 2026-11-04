@@ -30,7 +30,7 @@ Zahir answered without even looking at her.
 
 "As far as I show."
 
-Seorin's face said she didn't like the answer, but she didn't ask again. She already knew that here, inside Hazran, what mattered now wasn't wringing more words out first, but watching how far they would actually show.
+Seorin's face said she didn't like the answer, but she didn't ask again.
 
 The inner passage was quieter than the section they had walked through before the match.
 
@@ -106,6 +106,8 @@ This time Han Jiwoo answered without taking her eyes off it.
 
 "Hands that mistake something like this for junk don't live long enough to get here."
 
+"It's a body we pulled out of the wreck where that child was found." Zahir said it without looking toward Aka.
+
 A short silence.
 
 Only then did Nasim smile, very faintly.
@@ -124,8 +126,6 @@ But strangely, in here, those few steps seemed to mean more than Zahir's words. 
 Then she spoke, low.
 
 "This one doesn't mimic a door yet."
-
-Oddly, the words reached Sion like reassurance.
 
 Not a complete door.
 But at least not a lie.
@@ -215,8 +215,6 @@ Sion asked.
 Zahir answered, very low.
 
 "The resolve to come further inside."
-
-With that one line, it became clear that even this inner space was still only a threshold.
 
 ---
 

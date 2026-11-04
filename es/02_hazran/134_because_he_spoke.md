@@ -1,209 +1,250 @@
-# Capítulo 134 — Porque habló
+# Capítulo 134 — Porque él habló
 
-Cuando llegó la mañana,
-Sion confirmó, antes que el hecho de que la noche hubiera pasado de verdad,
-el hecho de que lo que había marcado de noche seguía allí.
+Cuando llegó la mañana, Sion revisó primero lo que había marcado durante la noche.
 
-El joven que estaba a punto de derrumbarse contra el muro
-aún no tenía buen aspecto, pero al menos no estaba solo.
+Al desplegar la tablilla de puntos vio cinco puntos. Dos personas, dos máquinas, y Kael.
 
-La mujer que había estado a punto de caer junto a los niños
-había vuelto a levantarse tras dormir aunque fuera un poco.
-Y esta vez alguien estaba sentado a su lado.
+El hombre joven que había estado apoyado en la pared todavía no tenía buena cara, pero a su lado seguía la persona que había pasado la noche sentada junto a él. Ninguno de los dos dormía, y ninguno de los dos hablaba. La mano del hombre se había apartado del suelo del sitio de al lado y descansaba sobre su rodilla.
 
-Y la máquina que se trababa al ordenar las señales,
-por la mañana tenía un ojo óptico abierto
-y seguía transmitiendo datos incluso mientras la reparaban.
+La mujer que casi se había desplomado junto a los niños había cerrado los ojos un rato, aunque fuera poco, y se había vuelto a levantar para doblar telas. Las manos que se abrían y se cerraban no temblaban. A su lado estaba sentada la mujer del rostro cansado, con uno de los niños en el regazo.
 
-No es que estuviera del todo bien.
-Pero al menos,
-durante la noche no se había quebrado más.
+La máquina que había vacilado mientras ordenaba señales tenía uno de los ojos ópticos abierto y recibía en la rodilla la mano de otra máquina. Era mantenimiento, pero aun mientras se lo hacían iba pasando la pantalla con la otra mano.
 
-Sion miró aquello y, curiosamente, se sintió más cansado.
+La máquina de la articulación descolocada estaba de pie delante de Han Jiwoo. Han Jiwoo, en cuclillas, le estaba abriendo la rodilla cuyo eje se había salido media falange.
 
-Porque antes que el alivio de ver lo que había aguantado,
-le venían primero las escenas que habrían cambiado de haber tardado un poco.
+Kael dormía apoyado en la pared. Era el sitio donde Sion había hecho el relevo por la noche, y Sion venía de pasarle ese sitio a Sern.
 
-Y precisamente por eso,
-la gente de este estrato viejo también parecía haber leído la diferencia entre la noche y la mañana.
+No es que todo estuviera bien del todo. Pero durante la noche nada se había roto más.
 
-Nadie dio las gracias primero.
-Este no era un sitio donde esas palabras se ofrecieran con facilidad.
+Sion volvió a plegar la tablilla y se la puso bajo el brazo. El cansancio le llegó a los hombros, pero no los movió.
 
-En cambio,
-las miradas de la gente cambiaron un poco.
+Nadie fue el primero en dar las gracias. Aquel no era un sitio donde esas palabras se dijeran con facilidad.
 
-De mirar a un completo desconocido,
-a mirar ahora, al menos, a *alguien que sabe servir*.
+Pero la mirada de la gente había cambiado. Los ojos que ayer no lo seguían ahora seguían a Sion cuando pasaba. Una persona asintió muy levemente, pero Sion no le devolvió el gesto y siguió caminando.
 
-Sion sintió que esa diferencia, más bien, pesaba más.
+En plena faena de la mañana, la mujer del rostro cansado se acercó.
 
-Porque la expectativa siempre trae consigo la responsabilidad.
+Se puso al lado de Sion y tendió la mano pidiendo la tablilla, y Sion se la dio. Ella fue tocando con el dedo, uno por uno, los cinco puntos marcados de noche.
 
-En plena tarea matinal,
-la mujer humana que el día antes lo había llamado se acercó de nuevo.
-
-Se quedó un momento de pie junto a Sion,
-miró una vez la marca que él había dejado de noche y dijo bajo:
-
-—Dos no llegaron a hundirse del todo.
+—Dos no llegaron tan lejos.
 
 Sion la miró.
 
-La mujer, sin cruzar la mirada, añadió:
+La mujer añadió sin cruzar la mirada con él.
 
-—Si anoche no hubieras hablado,
-por la mañana uno habría estallado de verdad,
-y otro se habría cerrado del todo.
+—Si anoche no hubieras hablado, por la mañana uno habría estallado de verdad y el otro se habría cerrado del todo.
 
-Aquellas palabras no eran un elogio.
-Pero precisamente por eso,
-sonaban a un reconocimiento más exacto.
+—¿Cuál de los dos?
 
-Sion, solo un buen rato después, preguntó bajo:
+Los cinco puntos de la tablilla seguían igual.
 
-—¿También del lado de las máquinas?
+—Eso no hace falta que lo sepas.
 
-La mujer asintió corto.
+La mujer le devolvió la tablilla.
 
-—Cuando solo se derrumba una persona, se nota.
-Aquello se descubre más tarde.
+—Porque no estalló nadie.
 
-Esas palabras devolvieron a Sion a las escenas de la noche.
+Ella miró a Sion. Por primera vez le sostuvo la mirada.
 
-La máquina que andaba con una articulación desencajada,
-la máquina que siguió adelante aunque la vista se le apagó un instante.
+—Esta noche vigilamos entre dos.
 
-Era cierto que este estrato viejo parecía un sitio que mentía menos.
-Pero eso no significaba que fuera del todo sincero,
-sino que estaba más cerca de fingir que está completo en otra dirección.
+—¿Con quién?
 
-Aquí no mienten diciendo que son eternos.
-En cambio,
-mienten diciendo que pueden aguantar un poco más.
+—Conmigo.
 
-Aka también esa mañana miraba hacia el corredor sellado.
+—¿Quién me mira a mí?
 
-Sion la miró un momento
-y reparó en que dos máquinas que se movían cerca
-estaban abriendo de verdad parte del muro que Aka había señalado.
+La mujer se quedó un momento sin decir nada.
 
-Lo que hasta el día anterior solo provocaba reacción
-hoy se prolongaba en verificación real.
+—Yo. Y tú me miras a mí.
 
-Aka, como si también lo hubiera visto, dijo muy bajo:
+Sion asintió. La mujer no dijo más.
+
+Solo después de un largo rato, Sion preguntó en voz baja.
+
+—¿Las máquinas también?
+
+La mujer asintió brevemente.
+
+—Cuando una persona se derrumba, se nota. Lo de ellas se descubre más tarde.
+
+Señaló con la barbilla la rodilla que Han Jiwoo estaba abriendo.
+
+—Esa, si no hubieras dicho nada, hoy se habría partido a medio paso.
+
+Sion miró la rodilla: las manos de Han Jiwoo estaban metiendo el eje, no de una vez, sino empujando un poco y parando, una y otra vez.
+
+—¿Y si se parte a medio paso?
+
+—No se levanta. Ese cuerpo no.
+
+—¿Entonces?
+
+—Entonces se queda ahí tal cual. Hasta que otra máquina lo mueva.
+
+—¿Y cuando lo mueven?
+
+—Se vuelve piezas.
+
+La mujer lo dijo sin mirar a Sion.
+
+Sion miró las manos de Han Jiwoo. El eje entró hasta el fondo.
+
+La mujer se fue sin decir más.
+
+Aka, también aquella mañana, miraba hacia el corredor tapado.
+
+Cuando Sion miró hacia ella, cerca de allí dos máquinas estaban abriendo la parte de la pared que Aka había señalado, el punto con menos óxido. Mientras una máquina seguía la línea de juntura con la punta del dedo, la otra miraba desde detrás.
+
+Hasta ayer solo habían mirado, pero hoy le estaban poniendo las manos.
+
+Aka también lo vio y habló muy bajo.
 
 —Ahora sí escuchan.
 
-En esa sola frase había, curiosamente, una fatiga más honda que la alegría.
+Sion la miró. Aka tenía los hombros bajos y no apartaba los ojos de la pared.
 
-La fatiga que solo puede tener quien siempre ve primero,
-nunca es creído enseguida
-y solo se confirma un poco tarde.
+—Escuchan tarde.
 
-Con Han Jiwoo era parecido.
+Ella lo añadió.
 
-Parte del equipo que ella había sujetado toda la noche,
-sin poder llamarse normal, había quedado al menos en estado de aguantar un día más.
+—Siempre.
 
-Una máquina vieja, viéndolo, dijo muy corto:
+Sion no respondió.
+
+Una máquina detuvo la mano al final de la línea de juntura y miró a la otra máquina, y las dos miraron juntas ese punto.
+
+Cuando Han Jiwoo cerró la rodilla, la máquina estiró la pierna.
+
+Un paso. No sonó. Dos pasos. Nada.
+
+La máquina se detuvo, bajó la vista a su propia rodilla y miró a Han Jiwoo.
+
+—Prueba a caminar.
+
+Lo dijo Han Jiwoo.
+
+La máquina pisó el suelo, dio cinco pasos y volvió. No hubo ruido.
+
+—Más.
+
+La máquina dio diez pasos y volvió. Al girar, la rodilla vaciló una vez.
+
+—Lo vi. Eso, mañana.
+
+El dedo de Han Jiwoo dio un toquecito en el punto de la rodilla que había vacilado.
+
+La máquina asintió. Era un asentimiento que había entendido la palabra mañana, y Han Jiwoo, después de ver ese asentimiento, tomó una herramienta y se la guardó en el bolsillo.
+
+Una máquina vieja lo vio y habló muy brevemente.
 
 —Ha aplazado el momento del descarte.
 
-Han Jiwoo, secándose la frente con el dorso de la mano, respondió:
+Han Jiwoo se secó la frente con el dorso de la mano y respondió.
 
 —Eso es justo lo que hago.
 
-Pero justo después de aquellas palabras,
-su gesto se endureció de un modo mínimo.
+Justo después de decirlo, con el dorso todavía en la frente, la mano se le detuvo.
 
 El momento del descarte.
 
-Ya sea en la Serakion de arriba,
-ya sea en este estrato viejo,
-al final este mundo funciona decidiendo qué debe aguantar y hasta cuándo.
+Bajó la mano y fue guardando las herramientas una a una en el bolsillo, pero la mano que las guardaba iba más lenta que de costumbre.
 
-Pero aquí, al menos,
-antes que el momento de tirar buscaban el momento de poder aplazar.
+Como la máquina reparada seguía de pie delante de ella, Han Jiwoo levantó la vista.
 
-Esa diferencia parecía ser lo que aún mantenía a Han Jiwoo de pie en este sitio.
+—Vete.
 
-Luhai tenía cara de cansado desde la mañana.
-Pero, curiosamente,
-del lado de los niños empezó a notarse que lo buscaban a él primero.
+La máquina se dio la vuelta y se fue sin hacer ruido. Han Jiwoo le siguió la espalda con la vista hasta el final.
 
-En una sola noche,
-el cuerpo parecía haber recordado antes quién era el que se quedaba hasta el final.
+Luhai tenía cara de cansancio desde la mañana.
 
-Luhai, fingiendo no verlo, refunfuñó:
+Uno de los niños que ayer había echado a correr hacia el corredor estaba agarrado a su pierna, y aunque Luhai sacudía la pierna, el niño no se soltaba. Mientras tanto, otro niño vino y se le agarró también a la otra pierna.
 
-—Esto no es lo mío.
+Luhai se quedó de pie con los dos niños colgando.
 
-Un humano cercano respondió indiferente:
+—Esto no va conmigo.
 
-—El que sí lo tiene no habla así.
+Una humana cercana respondió con indiferencia. Era la anciana.
 
-Seorin, viendo aquella escena, se rió muy bajo;
-Kael ya estaba ante un compartimento que parecía a punto de venirse abajo;
-Sern superponía los puntos nuevos sobre el flujo de señales que había ordenado de noche.
+—Al que de verdad le va, nunca dice eso.
 
-Y Sion
-supo que ahora sí empezaba de verdad su parte.
+Luhai miró a la anciana, pero la anciana no miró a Luhai; siguió doblando la tela como antes.
 
-La noche anterior había sido casi una prueba.
-Pero desde esta mañana,
-lo que él había dicho primero
-servía de verdad para hacer descansar a alguien,
-para trasladar a alguien,
-para hacer abrir cierta máquina,
-para hacer revisar cierto corredor.
+El niño agarrado a su pierna levantó la vista.
 
-La palabra estaba cambiando las decisiones.
+—¿Hoy también estás?
 
-Y eso era algo mucho más pesado de lo previsto.
+—Estoy.
 
-Poco después,
-la máquina vieja volvió a llamarlo.
+Eso respondió Luhai.
 
-Se la veía más agotada que de noche,
-y uno de sus ojos ópticos estaba más turbio que ayer.
+—¿Y mañana?
 
-Pero su voz seguía seca.
+Luhai no pudo responder enseguida. La anciana detuvo las manos que doblaban la tela.
 
-—A partir de hoy no mire solo a las personas.
+—Lo de mañana, pregúntalo mañana.
+
+Eso dijo Luhai.
+
+El niño se abrazó con más fuerza a su pierna.
+
+Seorin miraba la escena y, sin darse cuenta, dejó escapar un leve bufido de risa y cerró la boca.
+
+Kael, ya despierto, despegó la espalda de la pared, se levantó y fue hasta la bodega de carga que parecía a punto de hundirse, el sitio donde había estado de pie ayer. Sion, que miraba su espalda, desplegó la tablilla y miró el punto de Kael. No lo borró.
+
+Mientras Sern añadía los puntos que habían cambiado sobre el flujo de señales que había ordenado durante la noche, la máquina que les había abierto el camino marcaba puntos a su lado. Los puntos de los dos cayeron en el mismo sitio. Sern lo vio, y la máquina también.
+
+—Es el mismo sitio.
+
+Eso dijo Sern.
+
+—El mismo sitio.
+
+La máquina respondió.
+
+—¿Por qué razón?
+
+—Porque vimos lo mismo.
+
+Cuando Sern marcó el punto siguiente debajo, la máquina también lo marcó. Era el mismo sitio.
+
+Poco después, la máquina vieja llamó a Sion junto al pilar.
+
+Parecía más agotada que por la noche, y uno de sus ojos ópticos estaba más turbio que ayer. Su cuerpo, de pie, se inclinaba un poco hacia el pilar, pero no llegaba a tocarlo.
+
+—Desde hoy, no mire solo a las personas.
 
 Sion la miró.
 
-La máquina vieja continuó con mucha calma:
+La máquina vieja siguió hablando con calma.
 
-—Hay que ver también el colapso del lado de las máquinas.
-Aquí, aunque se deje caer solo a uno de los dos,
-al final caen juntos.
+—También hay que mirar el colapso del lado de las máquinas. Aquí, aunque se deje caer solo a uno de los dos, al final caen juntos.
 
-Aquellas palabras parecían explicar todo este estrato viejo en una sola frase.
+Sion desplegó la tablilla y le mostró los dos puntos que había trazado anoche en el sitio de las máquinas.
 
-Un sitio donde personas y máquinas no se fían del todo unas de otras.
-Pero un sitio donde, si uno de los dos se rompe primero,
-al final el otro tampoco aguanta.
+—Los tracé ayer.
 
-Sion asintió muy despacio.
+El ojo óptico de la máquina vieja se detuvo largo rato en esos puntos.
 
-Ahora su noche se haría más larga.
+—¿Quién le dijo que los trazara?
 
-Y quizá,
-leer de verdad esta comunidad
-estaría más cerca de leer no solo los rostros de la gente,
-sino también el desgaste, las paradas y los silencios de las máquinas.
+—Nadie.
 
-La luz de la mañana no llegaba como es debido a este estrato viejo,
-pero al menos se podía notar que la oscuridad se había aclarado un poco.
+—Entonces esa tablilla ahora es suya.
 
-Y Sion, en aquella luz turbia,
-pensó por primera vez algo así:
+La máquina vieja se dio la vuelta, se apartó del pilar y dio un paso.
 
-Este no es solo un sitio donde se sobrevive.
-Gracias a quienes hablan primero,
-es un sitio que se derrumba un poco menos tarde.
+Sion oyó el ruido. Era la rodilla. El mismo sitio que en la máquina que había reparado Han Jiwoo. Desplegó la tablilla y buscó el sitio de la máquina vieja, pero no había punto. En el sitio de las máquinas, de entrada, no había.
+
+Acercó la uña a ese sitio, se quedó así un largo rato y lo trazó.
+
+Plegó la tablilla y miró hacia Han Jiwoo. Han Jiwoo se estaba sentando delante de la pieza siguiente.
+
+Delante de ella había vuelto la máquina reparada, y la pieza que traía en la mano era una nueva, del mismo formato que las que Han Jiwoo había dejado en el montón de al lado. La máquina la dejó delante de Han Jiwoo y luego, sin decir nada, se dio la vuelta y se fue sin hacer ruido.
+
+Han Jiwoo tomó la pieza, la hizo girar en la mano y la puso en el montón de delante.
+
+Sion caminó hacia allí.
 
 ---
 

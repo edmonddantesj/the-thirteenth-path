@@ -1,174 +1,212 @@
-# Chapitre 187 — Tenir le jugement en deux
+# Chapitre 187 — Le jugement coupé en deux
 
 L'homme tendait toujours la main.
 
-« S'il vous plaît… Je ne peux pas y arriver seul… »
+« Pitié… je ne peux pas y aller seul… »
 
-Sa voix était si désespérée qu'il n'aurait pas été étrange qu'une personne se précipite aussitôt vers lui.
+Les doigts tremblants, l'homme poussa encore une fois le sol de ses genoux et avança.
 
-Et c'était précisément l'endroit que Serakion visait.
+Han Jiwoo fit un pas. Avant que le deuxième ne se pose, la main de Seorin lui saisit le bras.
 
-Han Jiwoo faillit faire un pas. Plus exactement, son corps voulut bouger le premier.
+Elle ne serrait pas fort. Mais elle ne lâchait pas non plus.
 
-Qu'il joue la comédie ou non, il était impossible de nier que ce visage était celui d'un humain détruit par une peur réelle.
+« On coupe en deux. »
 
-Mais à cet instant, la main de Seorin arrêta brièvement son bras.
+Seorin avait parlé bas.
 
-Elle ne la saisit pas fort. Pourtant, cette courte retenue parut d'autant plus froide et précise.
+Han Jiwoo regarda Seorin, mais Seorin regardait l'homme.
 
-« On divise en deux, » dit Seorin à voix basse.
+« Sion, coupe à droite. Ater, le haut. Sern, dès que le passage derrière se ferme, tu le dis. Jiwoo, tu surveilles l'androïde et l'homme, les deux. »
 
-Cela ne voulait pas dire qu'il fallait refuser de croire l'homme, ni l'abandonner.
+Chaque ordre mit une personne en mouvement. Sion se tourna vers la droite, la tête d'Ater se leva vers le haut, et Sern rouvrit le panneau d'enregistrement. La main de Seorin quitta le bras de Han Jiwoo. Sans reprendre le pas qu'elle avait fait, Han Jiwoo regarda tour à tour, de là où elle était, l'homme et l'androïde.
 
-Dès qu'il entendit ces mots, Sion comprit le jugement que Seorin venait de faire.
+Sern parla en regardant derrière.
 
-Sauver l'un. Ne pas tomber dans l'autre.
+« Il reste deux rangs à l'arrière. Ils ne bougent pas encore. »
 
-Ne pas choisir entre les deux, mais bouger en les tenant tous les deux.
+« Dis-le s'ils bougent. »
 
-C'était le mieux qu'il était possible de faire à cet instant.
+Seorin répondit.
 
-« Sion, coupe à droite. Ater, surveille le haut. Sern, dis-le dès que la ligne arrière se ferme. Jiwoo, tu gardes les yeux sur lui et sur l'homme. »
+Sion se jeta dans la brèche de droite.
 
-Les ordres étaient courts. Mais ils étaient si exacts que la respiration de tous se réorganisa d'un coup.
+Le couloir derrière l'homme était lisse ; les panneaux gris comme la lumière de guidage basse étaient impeccablement droits.
 
-Serakion visait toujours la même chose.
+De plus près, on voyait qu'une ligne de plus s'était glissée entre le mur et le sol. Plus fine que les autres jointures, plus droite que les autres jointures.
 
-Forcer à choisir.
+Sion prit sa lame à deux mains. Il planta la pointe dans la jointure et y mit tout son poids.
+Sa paume glissa. Il reprit sa prise.
 
-Sauver ou douter. Repousser ou accueillir.
+Quand il racla brièvement l'interstice de la pointe de sa lame, un bruit de verrouillage sourd retentit aussitôt à l'intérieur.
 
-Et, par ce seul choix, faire s'effondrer tout l'équilibre.
+« C'est ça ! »
 
-Mais cette fois, Seorin refusa le choix lui-même.
+Il l'avait lancé à mi-voix.
 
-Sion se jeta aussitôt dans l'ouverture de droite.
+« C'est le chemin lui-même qui se replie ! »
 
-Le couloir derrière l'homme paraissait toujours lisse de l'extérieur. Les panneaux gris, la lumière d'annonce basse, tout était si propre qu'on aurait pu croire le chemin sans problème.
+Avant même qu'il ait fini, un métal s'emboîta en haut.
 
-Mais en s'approchant, Sion vit une ligne étrangement droite ajoutée entre le mur et le sol.
+Ater parla aussitôt.
 
-Les pièges étaient toujours ainsi. Ils ne restaient pas béants. Ils étaient disposés trop naturellement, au point de faire douter celui qui regardait de son propre jugement.
+« Cela se ferme en haut ! Trois secondes ! »
 
-Quand Sion gratta brièvement cette faille de la pointe de sa lame, un son de verrouillage bas répondit aussitôt à l'intérieur.
+Les deux hommes de Hazran levèrent leurs panneaux muraux au-dessus de leur tête, les bras tremblants.
 
-« C'est ça ! » lança-t-il bas. « Le chemin lui-même se replie ! »
+« Deux ! »
 
-Avant même qu'il ait fini de parler, un élément de métal s'emboîta au-dessus.
+Sern regardait derrière.
 
-Ater réagit immédiatement.
+« Les deux rangs arrière se déplacent. Si nous récupérons l'homme, la ligne principale s'ouvre. »
 
-« Cela se referme par le haut ! Trois secondes ! »
+Le doigt de Sern se posa sur deux endroits du panneau d'enregistrement. L'endroit où se tenait l'homme, et la ligne principale, derrière eux. Entre les deux, le doigt fit une fois l'aller-retour.
 
-Sern lisait déjà l'arrière presque au même moment.
+Le dernier androïde bougea.
 
-« Deux lignes arrière bougent. Si nous récupérons l'homme, la ligne principale s'ouvre. »
+Sans abandonner le front, sans non plus se ruer droit vers l'homme. D'une très brève torsion du corps, l'androïde prit, entre l'homme et la brèche dans son dos, une place de la largeur de ses épaules, et s'y arrêta.
+L'œil optique regarda une fois en haut. Une fois la brèche. Une fois l'homme.
 
-Le calcul était d'une précision à donner froid dans le dos.
+Depuis l'endroit où elle avait fait un pas, Han Jiwoo parla, presque dans un souffle.
 
-Au moment où quelqu'un entrerait en ligne droite pour sauver l'homme, leur front s'écarterait, et la légion de Serakion qui poussait derrière se déverserait par cette faille.
+« Maintenant, à gauche. Une case seulement. »
 
-Ce n'était donc pas un simple piège de sauvetage.
+Au moment où l'androïde se déplaçait d'un demi-pas vers la gauche, un panneau tombé d'en haut frôla l'arrière de son épaule et se planta dans le sol. Il se planta là où l'androïde s'était tenu.
 
-C'était un piège qui déchirait à la fois l'éthique et la tactique.
+La bouche de Han Jiwoo s'ouvrit sans qu'aucun son n'en sorte, puis se referma.
 
-Le dernier androïde bougea alors.
+Les dents serrées, Sion déchira davantage la connexion de la ligne latérale. Dans le mur, la plaque qui allait se replier s'arrêta à moitié pliée, dans un grincement.
 
-Il n'abandonna pas complètement le front, et ne se précipita pas tout droit vers l'homme.
+Une vieille machine saisit deux unités de Serakion qui arrivaient de la ligne principale et les enfonça dans le mur d'en face. Puis elle posa son propre corps sur les deux unités enfoncées et les écrasa.
+Dessous, les deux bougeaient. Le plastron de la machine résonna.
+La machine voisine vint écraser avec elle. Le poids des deux les arrêta.
 
-Il tourna plutôt son corps très brièvement pour accorder d'abord le rythme entre l'homme et le piège.
+« Une ! »
 
-Son mouvement restait étrangement retenu.
+La voix d'Ater tomba d'en haut.
 
-Il ne cherchait pas à sauver au hasard. Son corps lisait ce qui se fermait d'abord, et ce qui s'ouvrait d'abord.
+Au milieu de tout cela, l'homme pleurait.
 
-Depuis sa position en retrait, Han Jiwoo coupa presque un signal avec son souffle.
+« Au secours… pitié, pitié… »
 
-« À gauche maintenant. Une seule section. »
+Il avait la tête si basse que son visage touchait presque le sol, et pourtant sa main tendue restait tendue.
 
-Il avança d'un demi-pas selon ces mots, et ce demi-temps fit passer de justesse un panneau tombé d'en haut derrière son épaule.
+Han Jiwoo regarda cette main, puis le dos du dernier androïde, puis de nouveau cette main.
 
-C'était extrêmement limite.
+Elle parla très bas.
 
-Si Han Jiwoo avait eu une mesure de retard, ou s'il avait encore bougé seulement en ligne droite comme un androïde de type ordre, le piège se serait déjà refermé.
+« Cet homme non plus, il ne faut pas l'abandonner. »
 
-Sion serra les dents et déchira davantage la connexion latérale.
+L'œil optique du dernier androïde trembla très brièvement. Cet œil optique se tourna vers l'homme, puis vers la brèche. Le corps resta entre les deux.
 
-Ce n'était pas un combat pour trancher un ennemi. C'était un combat pour détruire d'avance l'espace que Serakion voulait replier.
+« Maintenant ! »
 
-Une ancienne machine saisit deux soldats de Serakion qui poussaient depuis la ligne principale et les plaqua contre le mur opposé.
+Seorin avait haussé la voix.
 
-C'était pour gagner ces quelques secondes.
+Sion trancha net un des axes de pliage du mur. La plaque qui se repliait à moitié s'immobilisa sur place.
 
-Au milieu de cela, l'homme pleurait presque en s'effondrant.
+Ater fit tomber d'abord la plaque de chute du haut. Tombée deux temps plus tôt qu'elle n'aurait dû, la plaque frappa un sol où il n'y avait personne. Sern plaça les deux vieilles machines devant la brèche de la ligne principale qui allait s'ouvrir derrière, et quand elles se mirent épaule contre épaule, la brèche fut masquée.
 
-« Sauvez-moi… S'il vous plaît, s'il vous plaît… »
+Le dernier androïde, juste avant que la dernière case ne se ferme, se tordit et passa devant l'homme.
 
-La sincérité du son rendait la chose plus terrible.
+Ce n'était pas une course en ligne droite.
+Une poussée d'épaule dans l'angle qui se repliait, pour le tordre. L'épaule tordue.
+Un grincement dans l'épaule.
+Du bras qui restait, une poussée dans le dos de l'homme, pour que son corps ne soit pas aspiré à l'intérieur.
+L'homme roula vers l'extérieur.
 
-Han Jiwoo ne pouvait pas l'ignorer. Mais elle ne pouvait pas non plus foncer droit vers lui.
+Le claquement du métal qui se refermait éclata juste derrière.
 
-Alors, sans quitter le dernier androïde des yeux depuis sa position en retrait, elle dit très bas :
+Le mur refermé était à une paume du dos de l'androïde.
 
-« Il ne faut pas l'abandonner non plus. »
+Sion expulsa son souffle, mais la main qui tenait la lame tremblait encore ; il changea la lame de main.
 
-Cela ressemblait à une demande, et aussi à une confirmation.
+L'homme gisait sur le sol, du côté extérieur, ne faisant que haleter. Son visage touchait le sol, et la main qu'il avait tendue reposait à plat par terre.
 
-L'œil optique du dernier androïde trembla très brièvement.
+Han Jiwoo alla jusqu'à l'homme.
 
-Et à cet instant, Sion comprit.
+Elle s'agenouilla, le prit par l'épaule et le retourna : il respirait. Ses yeux étaient ouverts, mais ne la regardaient pas. Elle lui prit le poignet. Le pouls était rapide. Elle ne le lâcha pas.
 
-Cet être n'apprenait pas seulement ce qu'il fallait protéger. Il apprenait comment ne pas lâcher deux choses à protéger lorsqu'elles se contredisent.
+Les lèvres de l'homme bougèrent.
 
-C'était plus difficile.
+« … C'était ouvert. »
 
-Et c'était aussi beaucoup plus proche de l'humain.
+Han Jiwoo baissa la tête pour écouter.
 
-« Maintenant ! » cria Seorin pour la première fois.
+« La porte… comme elle était ouverte… »
 
-À ce mot, les coupures préparées par chaque groupe s'engrenèrent en même temps.
+« Je sais. Arrête de parler. »
 
-Sion trancha complètement un axe de repli du mur, Ater fit tomber d'avance une plaque supérieure pour décaler le timing du piège, et Sern ferma exactement la faille qui allait s'ouvrir dans la ligne principale avec la position de deux anciennes machines.
+L'homme se tut, et ses yeux se tournèrent vers le mur refermé. Le mur était lisse ; là où s'était ouverte la brèche, il n'y avait plus rien. Quand l'homme se mit à trembler en regardant ce mur, Han Jiwoo, sans lâcher son poignet, lui boucha la vue de son propre corps. Pour qu'il ne voie plus le mur.
 
-Et le dernier androïde, juste avant que la dernière section ne se ferme, tordit son corps et passa devant l'homme.
+Quand Seorin, debout au-dessus d'eux deux, baissa les yeux sur l'homme, Han Jiwoo leva les siens vers elle.
 
-Il n'avait pas couru en ligne droite.
+« Envoie-le à l'arrière. Si on le laisse ici, ils s'en resserviront. »
 
-Il poussa d'abord avec l'épaule pour tordre l'angle du repli, coupa la trajectoire qui aspirait le corps de l'homme, puis, presque en train de s'effondrer, le repoussa vers l'extérieur.
+Han Jiwoo hocha la tête, mais l'homme avait l'air de ne pas avoir entendu.
 
-Le métal se referma aussitôt derrière lui.
+Luhai revint de l'axe droit et s'accroupit devant l'homme. Accroupi, il regarda son visage, puis posa sa barre de fer sur le sol.
 
-Une mesure de plus, et l'homme comme celui qui venait le sauver auraient été pris ensemble.
+« Tu peux marcher ? »
 
-Sion expira enfin.
+Comme l'homme ne répondait pas, Luhai ramassa sa barre de fer, se releva, et regarda les deux hommes de Hazran.
 
-Ils l'avaient sauvé.
+« À l'arrière. Jusqu'à la brèche. »
 
-Ils ne s'étaient pas laissé prendre.
+Les deux hochèrent la tête.
 
-Ils n'avaient lâché ni l'un ni l'autre.
+Le dernier androïde, dos au mur refermé, se tenait entre l'homme et le mur. L'épaule tordue était descendue plus bas que tout à l'heure, mais l'androïde ne la regardait pas. Son œil optique était sur le poignet de l'homme, que tenait Han Jiwoo.
 
-Parce que chacun savait combien cela était difficile, personne ne parla tout de suite.
+Seorin parla bas.
 
-L'homme était étendu sur le sol extérieur, haletant seulement. Il n'avait pas le visage de quelqu'un qui était pleinement revenu à lui, mais pas non plus celui d'un monstre entièrement calculé.
+« On continue. Maintenant, ça va devenir plus retors. »
 
-Serakion avait utilisé précisément cet entre-deux.
+Sern parla en regardant derrière.
 
-Seorin dit bas :
+« Les deux rangs arrière se retirent. »
 
-« On continue. Ça va devenir plus subtil. »
+Seorin regarda de ce côté.
 
-C'était un avertissement.
+« Ils ne se retirent pas. Ils se réorganisent. »
 
-Et, en même temps, la confirmation de ce qui venait de les sauver.
+Pendant que Sern écrivait une ligne sur le panneau d'enregistrement, Ater redescendit du haut. En descendant, il n'épousseta pas la poussière de ses épaules.
 
-La seule bonté n'aurait pas suffi.
+« Toutes les plaques du haut sont tombées. Ils ne pourront plus venir par là. »
 
-Le seul soupçon non plus.
+« Ils viendront par ailleurs. »
 
-Tenir les deux séparés jusqu'au bout, et ne renoncer à aucun des deux.
+Seorin répondit.
 
-C'était cela qui les avait sauvés cette fois.
+« Ils viendront. »
+
+Ater hocha la tête, puis regarda sa cheville. Là où le bras d'une unité qui tombait l'avait frôlée tout à l'heure, il y avait une éraflure de métal, mais elle ne saignait pas. Il passa une fois la main dessus et se releva.
+
+Sion frotta contre son pantalon la paume qui avait tenu la lame, mais la sueur ne partait pas. Il ne rangea pas la lame et la garda à la main.
+
+Sern ajouta :
+
+« Les deux rangs de la ligne principale ont reculé de cinq pas. »
+
+Les deux vieilles machines se retirèrent de devant la brèche. Les deux unités enfoncées restaient collées au mur, et la brèche ne s'ouvrit pas.
+
+Quand Han Jiwoo regarda l'épaule du dernier androïde, un nœud était défait.
+
+« Un nœud s'est défait. »
+
+Han Jiwoo l'avait dit. Puis elle lâcha le poignet de l'homme et se releva.
+
+Elle posa la main sur l'épaule de l'androïde, tira sur le tissu défait et le renoua. Pendant qu'elle nouait, l'œil optique de l'androïde regardait sa main. Le nœud fait, elle tira dessus, mais il ne se défit pas.
+
+Debout à côté du dernier androïde, elle regarda l'épaule descendue. Elle posa la main sur le nœud. La main toucha.
+
+Brièvement.
+
+Puis elle baissa la main et regarda devant elle.
+
+L'homme ne parvenait pas à se relever du sol. Les deux hommes de Hazran le prirent chacun sous un bras.
+
+Le dernier androïde détacha son dos du mur refermé et fit un pas en avant. La jambe droite traîna une fois ; l'androïde la remit en place et posa le deuxième pas. Han Jiwoo suivait à un demi-pas derrière, les yeux sur la poussière collée à ce dos.
+
+Seorin se mit en marche la première.
 
 ---
 

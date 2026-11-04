@@ -54,7 +54,7 @@ L'androïde savait que Sion approchait, mais ne recula pas.
 Avec un temps de retard, il leva la main vers son visage et la posa sur la lumière.
 La main toucha. Comme pour vérifier que c'était à lui.
 
-Tout mot aurait été trop rapide ; Sion ne put rien dire.
+Tout mot lui semblait prématuré ; Sion ne put rien dire.
 Il hocha seulement la tête, lentement, une fois.
 L'androïde regarda longtemps ce mouvement, puis abaissa la main de son visage. Après avoir vu Sion hocher la tête.
 
@@ -176,8 +176,6 @@ Kael parlait, les deux mains appuyées sur la plaque.
 « On le laisse vide. C'est la case d'à côté qui est la vraie. »
 
 Ater répondit.
-
-« C'est la même chose que ce que nous avons vu là-haut. »
 
 « On laisse la place du milieu vide, et c'est celle d'à côté qui est la vraie. »
 

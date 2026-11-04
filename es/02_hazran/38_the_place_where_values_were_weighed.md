@@ -186,8 +186,6 @@ Luhai lo dijo sin apartar los ojos de la tablilla.
 
 —Porque, si solo baja esa línea, es que por ahí se está escapando algo.
 
-El aire del taller se detuvo un momento.
-
 Esta vez no fue solo Sion quien lo sintió. También Ater, Kael, Seorin, Nasim y Harún. Todos sintieron que la expresión «libro de cuentas» había caído con una textura distinta a la de la simple excusa de un ratero.
 
 Nasim sonrió muy despacio.
@@ -222,7 +220,7 @@ Seorin preguntó en voz baja.
 
 —¿Y entonces?
 
-Esta vez, Nasim no respondió antes que Harún. En lugar de eso, miró muy brevemente a un lado. Esa mirada quería decir que ya estaba decidido quién tomaba la decisión final.
+Esta vez, Nasim no respondió antes que Harún. En lugar de eso, miró muy brevemente a un lado.
 
 Harún habló.
 
@@ -266,8 +264,6 @@ Elia los había escrito uno al lado del otro. Escribirlos uno al lado del otro q
 En la misma línea hay, uno junto al otro, un lugar y una persona.
 
 Por qué pesaban lo mismo, todavía no lo sabía. Aun así, hoy había quedado claro dónde estaba lo que no sabía.
-
-Que el camino para encontrar ese nombre no podía sino atravesar el centro mismo del lugar donde se pesaban los valores.
 
 ---
 

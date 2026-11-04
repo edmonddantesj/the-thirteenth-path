@@ -6,7 +6,7 @@ Un souffle une fois lâché ne retombait pas si vite.
 Dans leur dos, on entendait encore, mêlés, des chocs de métal au loin et le bruit de quelqu'un qui fermait un passage ; au-dessus du port, les feux de surveillance s'éteignaient un à un. Être sortis vivants ne voulait pas dire que c'était fini — c'était plutôt la sensation d'être tombés, vivants, un peu plus profond.
 
 Sion s'arrêta un instant dans l'ombre de la passerelle.
-Il faisait mine de reprendre son souffle, mais en réalité il voulait revoir jusqu'où les trois autres le suivaient. L'homme de la Chambre de Reconnaissance en manteau noir, et son second. Tous deux avaient encore l'air beaucoup trop intacts, et cela l'agaçait d'autant plus.
+Il faisait mine de reprendre son souffle, mais en réalité il voulait revoir jusqu'où les deux autres le suivaient. L'homme de la Chambre de Reconnaissance en manteau noir, et son second. Tous deux avaient encore l'air beaucoup trop intacts, et cela l'agaçait d'autant plus.
 
 À son visage, Seorin avait lu la même chose.
 
@@ -166,7 +166,7 @@ Seorin ne laissa pas passer l'ouverture.
 
 « Ça valait pour les deux, je parie. »
 
-Seorin pouffa à voix basse. Insupportables tous les deux, mais pas de la même manière.
+Puis elle pouffa à voix basse. Insupportables tous les deux, mais pas de la même manière.
 
 Même au milieu de ce bref échange de piques, Sern ne cessait de lire la porte de la cabine, les vibrations de la coque, les signaux d'approche au-dehors.
 Puis il prit la parole.
@@ -185,7 +185,6 @@ Ce fait gênant, ce fut contre toute attente Ater qui le formula le premier.
 « Tout à l'heure… sans vous, nous ne nous en serions pas sortis. »
 
 Sion ne répondit pas tout de suite.
-La phrase était étrangement honnête, et c'était justement ce qui l'agaçait.
 
 Quelques battements plus tard, il ouvrit la bouche à contrecœur, lui aussi.
 
@@ -199,7 +198,7 @@ Sern répondit, le visage indifférent.
 
 « Ce n'est pas une réconciliation. »
 
-« Ouais. Ça, je le vois aussi. »
+« Ouais. Ça, je le vois aussi », répliqua Seorin.
 
 Un bref silence.
 
@@ -250,7 +249,6 @@ Alors seulement Sion parla.
 
 « Elia Vern. »
 
-À ce nom, l'air de la cabine changea encore une fois, très légèrement.
 Sern l'entendait pour la première fois, mais à la seule réaction des trois qui le prononçaient, il comprit que ce n'était pas un simple nom de personne.
 
 « Est-ce quelqu'un de fiable ? »
@@ -258,8 +256,6 @@ Sern l'entendait pour la première fois, mais à la seule réaction des trois qu
 À la question d'Ater, Sion secoua aussitôt la tête.
 
 « Non. »
-
-La réponse était venue trop vite, et n'en était que plus exacte.
 
 « Alors pourquoi y aller ? »
 

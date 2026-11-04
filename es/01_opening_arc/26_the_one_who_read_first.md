@@ -20,7 +20,7 @@ Han Jiwoo también respondió enseguida.
 
 Sion no dejó pasar esas palabras.
 
-En ese preciso instante, las dos que se habían quedado atrás también estaban sosteniendo la misma escena, cada una a su manera. Seorin miraba el momento en que habría que cortar, y Han Jiwoo calculaba si el casco al que debían volver seguía con vida. El tiempo que aquel lugar pudiera mantenerse era ya, en sí mismo, el límite de tiempo de la conversación.
+En ese preciso instante, las dos que se habían quedado atrás también estaban sosteniendo la misma escena, cada una a su manera. Seorin miraba el momento en que habría que cortar, y Han Jiwoo calculaba si el casco al que debían volver seguía con vida.
 
 Desde el otro lado de la esquina sonó por fin un paso.
 
@@ -30,7 +30,7 @@ Y detrás apareció la cara.
 
 Era más joven de lo que esperaban. Sobre la piel pálida se extendía la sombra fina propia de quien lleva mucho tiempo sin dormir, y bajo la línea izquierda de la mandíbula pasaba, corta, una cicatriz vieja. La mirada estaba cansada, pero no turbia. Más bien era extrañamente recta, como la de alguien que ha sobrevivido mirando una sola cosa durante demasiado tiempo.
 
-No se acercó del todo. Se detuvo en el límite donde se separaban la luz y la oscuridad y bajó un poco la mano que sostenía el fragmento más grande. No era la postura de quien lo ofrece por completo, pero tampoco la de quien se prepara para huir en el acto. Era la distancia de dos partes que intentan no matarse.
+No se acercó del todo. Se detuvo en el límite donde se separaban la luz y la oscuridad y bajó un poco la mano que sostenía el fragmento más grande. Era la distancia de dos partes que intentan no matarse.
 
 Sion fue el primero en hablar.
 
@@ -107,7 +107,7 @@ Seorin se metió con frialdad.
 
 —Entonces sabes qué es lo que queremos.
 
-Sion, viendo aquel intercambio corto, tuvo la certeza. Aquel hombre no tenía como objetivo esconder quién era. Simplemente llevaba demasiado tiempo fuera de los registros, y estaba más cerca de no tener ningún nombre que dar, o de que darlo ya no significara nada. Lo importante no era el nombre, sino el lugar que ocupaba. Era una mano que había aguantado mucho tiempo fuera del mapa oficial del mundo, en el borde de los caminos borrados.
+Sion, viendo aquel intercambio corto, tuvo la certeza. Aquel hombre era una mano que había aguantado mucho tiempo fuera del mapa oficial del mundo, en el borde de los caminos borrados.
 
 Sion preguntó despacio.
 
@@ -119,9 +119,7 @@ Esta vez el hombre sonrió enseguida. Fue una sonrisa muy corta y cansada.
 Apretó un poco la mano que sujetaba el fragmento.
 —Y en estas cosas, normalmente, los primeros en desaparecer son los que perseguían contigo.
 
-Con esa sola frase corta, la expresión de Sion se endureció apenas.
-
-Aquello era información. No un simple comentario, sino el dato de que aquel hombre ya había hecho lo mismo antes, al menos una vez, y de que entonces había perdido a alguien. Por eso estaba solo ahora, y por eso, aun teniendo en la mano el fragmento más grande, no se atrevía a pasarlo sin más.
+Con esas palabras, la expresión de Sion se endureció apenas.
 
 Sern también pareció leerlo, porque bajó todavía más la voz.
 
@@ -152,7 +150,7 @@ Esta vez el hombre también se rio un poco, de verdad.
 Lo dijo en voz baja.
 —Es ver si están vivos.
 
-En ese momento, dentro de la estructura, una reacción de discriminación volvió a temblar un instante. Todas las miradas se fueron hacia allí a la vez. La reacción era débil, inestable, como a punto de cortarse. Quería decir que, si tardaban más, la conversación y el fragmento podían cerrarse juntos.
+En ese momento, dentro de la estructura, una reacción de discriminación volvió a temblar un instante. Todas las miradas se fueron hacia allí a la vez. La reacción era débil, inestable, como a punto de cortarse.
 
 El hombre fue el primero en hablar.
 
@@ -163,8 +161,6 @@ Sion, en lugar de responder, miró el fragmento que tenía en la mano.
 —¿Y entonces?
 
 El hombre dudó un momento. Fue muy breve, pero estuvo ahí. Y aquella duda se parecía más a un cálculo que al miedo. Si salía con él solo, no llegaría mucho más lejos. Si peleaban allí, morirían los dos. Pero si lo entregaba enseguida, aún no había terminado de leer a los otros. Una vez hecho ese cálculo, por fin adelantó un poco el fragmento más grande.
-
-No era la postura de quien lo entrega por completo. Pero, al menos, tampoco era ya la actitud de quien quiere huir agarrándolo él solo.
 
 —No pude leerlo hasta el final.
 Lo dijo en voz baja.
@@ -202,7 +198,7 @@ Al oírlo, Sion fue consciente por un momento del canal donde estaba Seorin.
 
 Lo que aquel hombre acababa de pedir era exactamente lo mismo que la autoridad que Seorin, que se había quedado en el barco, ya tenía en la mano.
 
-En el momento en que cayeron esas palabras, Sion supo que aquel hombre había pasado por primera vez su peso del fragmento hacia las personas. Todavía no era cooperación. Y mucho menos confianza. Pero al menos era verdad que había dado un paso atrás en eso de quedarse él solo con lo que mantenía vivo y con el camino.
+En el momento en que cayeron esas palabras, Sion supo que aquel hombre había pasado por primera vez su peso del fragmento hacia las personas.
 
 Ater preguntó muy bajo.
 
@@ -222,11 +218,6 @@ Por el canal de proximidad, Seorin habló en voz baja.
 —Bien. Ahora sí que esto parece un comienzo.
 
 Nadie lo negó.
-
-La esquina y el discriminador, la reacción que se moría y el fragmento más grande, y la persona que había visto el orden cortado antes que el nombre.
-Ahora, entre aquellos cinco y aquel hombre había, por lo menos, algo en común.
-
-Todos sabían ya que, solos, no podían avanzar más desde allí.
 
 ---
 

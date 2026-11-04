@@ -2,7 +2,7 @@
 
 Même après que le feu eut pris pour la première fois dans le couplage auxiliaire, le travail à l'intérieur ne s'arrêta pas là. Il ne pouvait pas s'arrêter là.
 
-Pendant que, dehors, le règlement de comptes de Haroun s'achevait et que l'air du marché de récupération retombait une première fois, à l'intérieur, ils avaient passé la nuit presque entière.
+Pendant que, dehors, le règlement de comptes de Haroun s'achevait et que l'air du marché de récupération retombait une première fois, à l'intérieur, ils n'avaient pas pu lâcher prise.
 
 Même après avoir un peu reculé la main qui tenait la braise, Sion ne cessait de repenser à ce frémissement qui venait de courir, bref, à l'intérieur de la coque.
 
@@ -78,8 +78,6 @@ Au lieu de détacher de nouveau le cadre de réception avec précaution, Aka cho
 « On laisse ça. »
 Elle ajouta :
 « Je vais voir si ça refroidit. »
-
-Ces mots pesèrent étrangement sur Sion.
 
 Jusque-là, ils avaient regardé si ça marchait. Maintenant, ils regardaient si ça durait.
 
@@ -167,8 +165,6 @@ Puis, pour la première fois, elle parla comme quelqu'un qui n'irait pas plus lo
 
 « On s'arrête ici. »
 
-Une déclaration courte, mais sans appel.
-
 En l'entendant, plutôt que de sentir que le travail intérieur s'arrêtait, Sion sentit d'abord qu'ils avaient désormais besoin du dehors.
 
 Plus de matériaux, un métal qui convienne mieux, du temps. Et les mains des gens qui vivaient dehors.
@@ -203,7 +199,7 @@ Sion n'aimait pas ça. Il n'aimait pas ça, mais c'était nécessaire.
 
 Et les gens d'ici n'y trouveraient sans doute rien à redire. Rassembler ce qui est cassé et le vendre, c'était la façon de vivre de cet endroit, et Sion l'avait apprise en quelques jours.
 
-À ces mots, Sion faillit esquisser un tout petit sourire.
+En se rappelant ce qu'avait dit Aka, que ce qui n'est pas cassé ne se vend pas, Sion faillit esquisser un tout petit sourire.
 
 Au bout du compte, c'était de nouveau le dehors. Mais cette fois, il n'avait pas besoin de regarder derrière lui.
 
@@ -228,8 +224,6 @@ Compter ce qui diminue et compter ce qu'il faut remplir, ce n'était pas le mêm
 Tous les trois ressortirent.
 
 L'air du dehors était plus rude que celui de l'intérieur, mais il n'avait plus rien de l'impasse d'avant. Ce qu'il y avait à faire était devenu clair.
-
-Hazran n'était plus l'endroit qu'on quitte. C'était devenu celui où l'on reste un peu plus longtemps pour rassembler de quoi sauver ce vaisseau.
 
 ---
 

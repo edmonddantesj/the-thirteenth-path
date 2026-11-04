@@ -177,8 +177,6 @@ Kael said, both hands pressing on the panel.
 
 Ater said.
 
-"The same as what we saw up there."
-
 "Leave the middle seat empty, and the one beside it is the real one."
 
 Kael said.

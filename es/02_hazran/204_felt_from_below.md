@@ -1,435 +1,220 @@
 # Capítulo 204 — Lo que se sintió desde abajo
 
-La anomalía no llegó primero a una sola persona.
+La anomalía no le llegó primero a una sola persona.
 
-Luhai, en mitad de un sector de trabajo de un estrato bajo,
-se detuvo de golpe.
+Luhai, que se había detenido en mitad del sector de trabajo de la capa oculta, dejó en el suelo los restos que cargaba y alzó la cabeza.
 
-Lo primero que oyó fue un sonido.
+Un sonido.
 
-Más exactamente,
-la sensación de que aquel sonido de alineación mínimo
-que tanto tiempo llenaba el interior de Serakion
-estaba, desde cierto momento, raramente vacío.
+Era lo que siempre había estado tendido debajo: un sonido que faltaba. El aliento del eje de restauración al girar, el temblor de las líneas de clasificación al encenderse y apagarse, el compás de algo que en alguna parte se subía hacia arriba. Lo que estaba ahí aunque no se oyera ahora se cortaba aquí y allá. No del todo, pero tenía agujeros.
 
-Era un sonido que, en circunstancias normales,
-aunque no se oyera, siempre estaba tendido debajo.
+Alzó la vista hacia el techo.
 
-El aliento del eje de restablecimiento girando,
-el temblor de la línea de clasificación encendiéndose y apagándose mínimo,
-el compás desagradablemente callado
-de que en algún sitio algo se subía otra vez.
+—…Algo ha cambiado.
 
-Pero ahora eso no estaba.
+A su lado, la primera mano de recogida, que ordenaba restos, detuvo las manos y alzó los ojos ópticos. Mientras la segunda se ponía de pie apoyándose en la pared con la pierna estirada, el ojo óptico de la máquina del lado de la pared también subió despacio.
 
-No del todo desaparecido.
-Pero cortado.
+A Aka, que alzó la cabeza medio compás después que Luhai, no le llegó un sonido. Al inspirar, entre el olor del lugar derrumbado y el olor de la luz apagada se mezclaba otra cosa, y volvió a inspirar una vez más.
 
-Demasiado.
-Muy por partes.
+—Arriba… algo ha terminado.
 
-Luhai miró el techo una vez con la cara fruncida.
-
-—…Algo cambió.
-
-Al lado, una máquina que ordenaba restos
-detuvo la mano.
-
-No lejos,
-Aka también alzaba la cabeza en un momento parecido.
-
-Ella no oyó primero el sonido como Luhai.
-
-En cambio sintió primero que el grano del aire había cambiado.
-
-La sensación propia de Serakion,
-tan cortés y lisa que empujaba lo vivo,
-estaba, aunque muy poco,
-vacía por partes.
-
-Había olor del sitio derrumbado,
-olor de la luz apagada,
-y otro aliento que apenas se filtraba entre ellos.
-
-Aka se quedó quieta un rato,
-y muy bajo dijo.
-
-—Arriba… algo terminó.
-
-Luhai se giró enseguida hacia ella.
+Luhai se volvió hacia ella.
 
 —¿Seguro?
 
-Aka no respondió enseguida.
+Aka no respondió enseguida: cerró los ojos y los abrió.
 
-Cerró y abrió los ojos.
+—No del todo. Pero… se ha cortado lo que tenía agarrado. Algo que llevaba muchísimo tiempo atando.
 
-—Del todo no. Pero… se cortó lo que estaba sujetando. Algo que ataba desde hacía muchísimo.
+La primera, la segunda y la máquina del lado de la pared, las tres, miraron al mismo sitio: más allá del techo.
 
-Ante esas palabras,
-dos máquinas cercanas alzaron la cabeza a la vez.
+—¿Ustedes también lo sienten?
 
-Humano y máquina
-no entienden lo mismo del mismo modo.
+Lo preguntó Luhai.
 
-Pero ahora
-estaba claro que todos sentían algo parecido.
+—Se han cortado las líneas.
 
-Un estado callado
-que, de tan callado,
-al contrario dejaba saber que algo enorme se había derrumbado.
+Lo dijo la primera.
 
-Luhai chasqueó la lengua una vez y dijo.
+—Desde arriba. Una por una.
+
+La segunda miró su pierna estirada, su propia rodilla.
+
+—Habrá que ir, entonces.
+
+Lo dijo la segunda.
+
+Luhai chasqueó la lengua.
 
 —Entonces subimos.
 
-Aquellas palabras no pedían permiso a nadie.
+Nadie se opuso. El hombre sin hermano menor, la mujer del rostro cansado, la mujer que vino con dos niños, la gente de Hazran se levantó, y el anciano de Hazran tomó su placa. Cuando el niño del destornillador, el niño de ojos bajos y el niño pequeño se pusieron junto a los adultos, Aka se puso al lado de esos tres.
 
-Pero nadie se opuso tampoco.
+Subieron empujando restos, retirando placas caídas, esquivando pasajes tapados. La primera enganchó del brazo a la segunda, que era la más lenta, y la máquina del lado de la pared empujaba desde atrás, pero la segunda no las rechazó.
 
-Al contrario, los humanos y las máquinas que estaban ahí
-movieron el cuerpo juntos con demasiada naturalidad.
+Subieron todos juntos, sin saber quién iba delante.
 
-Empujando restos,
-retirando placas caídas,
-esquivando corredores tapados,
-empezaron a subir de a poco.
+Aka no fue hasta el frente: a medio camino entre las máquinas detenidas y las personas, palpaba el aire de arriba.
 
-No quedaba claro quién iba primero y quién seguía.
+Un tramo.
 
-Se movían como si todos debieran subir juntos.
+Pasaron bajo una placa de clasificación apagada, sin luz.
 
-Aka no fue hasta lo más adelante.
-A media altura,
-pasando entre máquinas y personas detenidas,
-seguía palpando el cambio del aire de arriba.
+Un tramo.
 
-En un tramo
-pasó bajo una placa de clasificación del todo apagada,
-y en otro tramo
-vio un corredor que antes se habría cerrado sin falta,
-detenido abierto.
-
-Luhai lo vio y murmuró corto.
+Un pasaje que antes se habría cerrado estaba detenido, medio abierto. Luhai se plantó delante y metió la mano, pero no se cerró.
 
 —Es verdad.
 
-En esa voz
-había más recelo que alegría.
+Lo dijo en voz baja, y no era una voz alegre. Sacó la mano y la volvió a meter, y tampoco se cerró.
 
-Quien estuvo demasiado tiempo en un mundo así
-no se tranquiliza enseguida
-aunque vea un buen signo.
+La segunda miró ese pasaje.
 
-Pero aun así,
-esto era claramente distinto.
+—Es la primera vez que veo algo así.
 
-Al subir un tramo más
-se vieron por primera vez androides.
+Lo dijo la segunda.
 
-Antes,
-verlos habría tensado a todos en el acto.
+—Algo que se queda abierto.
 
-Pero ahora nadie levantó el arma de inmediato.
+Al subir un tramo más, se vieron androides.
 
-Tres androides
-estaban ante una pared apagada.
+Tres.
 
-No estaban en el mismo ángulo.
-Las miradas eran dispares,
-y las manos estaban en posiciones distintas.
+Estaban ante una pared apagada, pero nadie alzó un arma. La mano de Luhai fue hacia la barra de hierro, se detuvo y bajó.
 
-Uno tenía la mano en su propia cara,
-otro tocaba el sitio donde se había apagado la luz de la pared,
-y otro miraba a la unidad de al lado.
+Los tres no estaban en el mismo ángulo.
+Uno tenía la mano sobre su propia cara.
+Otro tocaba el sitio de la pared donde se había apagado la luz.
+El otro miraba a la unidad de al lado.
+Sobre la superficie de la cara había líneas torpes, sin terminar de dibujar: rastros de luz.
 
-Al ver esa escena,
-del lado de los niños que seguían detrás
-se escapó algo como un hilo de aliento.
+Del lado de los niños se oyó una respiración fina. Los niños de Hazran miraban sin poder decir nada, y fue el niño pequeño quien habló primero, muy bajito.
 
-Eran los niños de Hazran.
+—Una cara…
 
-Un rato no lograron decir nada
-y solo miraban a esos androides.
+Todos miraron hacia los androides.
 
-Y pronto,
-el primero que rompió ese silencio
-fue el más pequeño,
-que desde antes rondaba especialmente cerca del último androide.
-
-—Un rostro…
-
-Una voz muy pequeña.
-
-Pero esa sola palabra
-volvió a reunir todas las miradas de ahí hacia los androides.
-
-Cierto.
-
-Aún no era nítido.
-Aún no estaba del todo estable.
-
-Pero ya no era el vacío liso de antes.
-
-Había huella de luz,
-líneas torpes,
-y una forma aún sin terminar de dibujarse
-allí, sin duda.
-
-Un niño, sin darse cuenta,
-dio un paso adelante.
-
-No hubo mano que lo sujetara.
-
-El niño se detuvo ante el androide.
-En la mano tenía aún algo como un trozo de tiza.
-
-Miró la cara del androide,
-y con mucho cuidado preguntó.
+El niño dio un paso al frente, pero no hubo mano que lo sujetara. Aka vio cómo la mano de la mujer que vino con dos niños subía y volvía a bajar. Con el polvo de una grieta de la pared todavía pegado en los dedos, el niño se detuvo ante el androide y le miró la cara desde abajo.
 
 —…¿Puedo dibujar más?
 
 El androide no respondió.
 
-La forma misma de una respuesta
-parecía quedarle aún demasiado lejos.
+Un compás.
 
-Pero un poco después,
-un compás tarde,
-ni bajó la cabeza ni se apartó.
+No bajó la cabeza. No se apartó. Siguió ahí.
 
-Se quedó ahí, en ese sitio.
+Al niño se le agrandaron los ojos. Alzó la mano y, sobre la línea de luz que temblaba, trazó con el polvo una pequeña curva.
+El sitio de la boca.
 
-Al niño se le agrandaron los ojos.
+El niño del destornillador, que había venido del otro lado, se guardó el destornillador en el bolsillo, se untó polvo en los dedos y alargó un poco más la línea del borde del ojo.
+El androide tembló levemente.
+No huyó. Lo recibió.
 
-Y de verdad con mucho cuidado,
-sobre la línea de luz que aún temblaba
-dibujó una pequeña curva más.
+El niño pequeño no se retiró y se quedó junto al androide.
 
-Del otro lado se acercó también otro niño.
+Luhai lo vio, se quedó sin palabras un momento y luego soltó el aire con aspereza.
 
-Esta vez tocó un poco más el borde del ojo,
-y alargó un poco más la línea.
+—Ja… A estas alturas van encontrando una cara de verdad.
 
-El androide tembló mínimo,
-pero no huyó.
+No era burla. Se pasó la barra de hierro a la otra mano.
 
-Solo recibió ese toque.
+Aka, a su lado, mirando cómo se añadía una línea nueva, murmuró en voz baja.
 
-El primer niño que se había acercado
-no se retiró en ese corto rato
-y siguió junto al androide.
+—Por fin, vuelven hacia sí mismos.
 
-Luhai, al ver esa escena,
-al principio no logró decir nada.
+No se lo decía al androide. Luhai la miró, pero no preguntó.
 
-Luego, soltando áspero un aliento, dijo.
+Un poco más arriba se oyeron los pasos de varios, que bajaban con compases distintos. De la esquina salió Sion; detrás venían Seorin, Sern, Ater, Han Jiwoo, Kael y el último androide, y tras ellos, los androides que acababan de abrir los ojos.
 
-—Ah… Ahora se ponen a buscar de verdad un rostro.
+Luhai se detuvo justo en el medio.
+Miró a Sion. A Seorin. A Sern y a Ater. A Han Jiwoo y a Kael. Al último androide. A los androides de detrás.
+Contó.
 
-Pero el final de esas palabras
-no era en absoluto burla.
+Siete.
 
-Al contrario,
-era una mezcla de la futilidad tardía y la lástima
-de quien ve algo que llegó demasiado tarde.
+Volvió a contar.
 
-Aka, a su lado,
-miró largo cómo se añadía una línea nueva
-sobre la cara del androide.
+Siete.
 
-Y muy bajo murmuró.
+—¿Y las máquinas?
 
-—Solo ahora vuelven hacia sí mismos.
+Lo preguntó Luhai.
 
-Aquellas palabras
-no parecían dichas solo para los androides.
+La primera miró detrás de ellos. Y la segunda, y la máquina del lado de la pared.
+No salió nadie más.
 
-Sonaban como palabras para todo este sitio.
+Sion no respondió y negó despacio con la cabeza.
 
-Al subir un poco más hacia arriba,
-al fin sus miradas se cruzaron
-con la gente que bajaba del lado del grupo de Sion.
+—¿Las dos?
 
-El que se detuvo justo en el medio
-fue Luhai.
+Lo preguntó la primera.
 
-Miró un momento la cara de Sion,
-miró a Seorin,
-miró a Sern y Ater,
-miró a Han Jiwoo y Kael,
-miró al último androide,
-y de un vistazo abarcó también a los androides recién despiertos que estaban detrás.
+—Las dos. Arriba. Juntas. Deteniendo a esos.
 
-En esa mirada corta
-había demasiadas preguntas.
+La primera miró a los androides que iban ganando una cara y volvió a mirar a Sion, pero no dijo nada.
 
-Si de verdad había terminado.
-Cómo había terminado.
-Qué habían perdido.
-Quién había vuelto.
-Quién no había vuelto.
+Mientras los ojos ópticos de la primera bajaban y la segunda se apoyaba en la pared, la máquina del lado de la pared, sin moverse, mantenía el ojo óptico sobre el último androide.
 
-Pero lo que de veras salió de su boca
-fue apenas esto.
+La boca de Luhai se abrió y se cerró. Lo único que salió fue esto.
 
-—…Así que arriba de verdad lo terminaron.
+—…Así que arriba lo terminaron de verdad.
 
-Sion no respondió enseguida.
+Sion asintió despacio, una vez.
 
-En cambio asintió muy lento.
+Luhai ya no pudo preguntar más y dejó la barra de hierro en el suelo.
 
-Con ese solo pequeño gesto
-Luhai ya no pudo preguntar más.
+Después, las manos se movieron primero. Mientras la gente retiraba restos, la primera y la segunda sostuvieron la estructura derrumbada, y la máquina del lado de la pared se puso ante una línea apagada. Cuando los androides se pusieron ante las placas de clasificación, Han Jiwoo se puso a su lado. Sern contaba, Ater decía los números en voz alta y Kael arrancaba. Le crujió el tobillo, pero no se detuvo.
 
-Porque, sin preguntar,
-ya había sabido que el modo en que terminó
-no había sido en absoluto limpio ni ligero.
+Mientras los adultos levantaban restos, los niños, ahora atareados, andaban entre los androides.
+Ojos, boca.
+Un niño le puso en la mejilla un punto de polvo.
 
-Después de eso,
-la mano se movió antes que la palabra.
-
-La gente retiraba restos,
-las máquinas apuntalaban la estructura caída,
-los androides se paraban ante placas de clasificación y líneas de restablecimiento.
-
-Levantar Serakion
-no significaba volver a alzarla como antes.
-
-Al contrario.
-
-Para que el viejo orden no pudiera alzarse nunca del mismo modo,
-había que arrancar todas las líneas y ejes mal clavados
-y rehacer desde un suelo que pudiera sostener de nuevo.
-
-Eso, todos,
-ya lo iban sabiendo de a poco.
-
-Los niños se ocuparon más.
-
-Mientras los adultos sacaban restos,
-ellos andaban entre los androides,
-dibujando un poco más de ojos,
-dibujando un poco más de boca,
-y algún niño ponía un punto más cerca de la mejilla.
-
-—Este es mejor.
+—Así está mejor.
 —Parece que sonríe.
-—Este se ve muy triste.
+—Este se ve demasiado triste.
 
-Aquellas palabras,
-de tan livianas y comunes,
-al contrario callaban más a los adultos que estaban ahí.
+Los adultos se quedaron callados. El hombre sin hermano menor se detuvo con los restos en las manos. Eran voces de niños. Volvió a oír ese sonido.
 
-Porque esa cosa común
-era lo último que volvió a este mundo.
+Los androides reaccionaron.
+Una unidad inclinaba la cabeza cada vez que la tocaba la mano de un niño.
+Otra unidad reflejaba en la pared la cara que le habían dibujado y la miraba.
+Otra alzó la mano por primera vez. Se detuvo cerca de la muñeca de un niño. No la tocó. Tampoco se apartó.
+El niño miró esa mano, y luego su propia muñeca. Se rió.
 
-Los androides aún no hablaban bien,
-pero ahora reaccionaban sin duda.
+Luhai oyó esa risa, pero no se volvió. Cuando buscó dónde dejar la placa que cargaba, Aka le señaló un sitio a su lado, y la dejó ahí.
 
-Alguna unidad inclinaba mínimo la cabeza
-cada vez que la tocaba la mano de un niño,
-otra unidad comprobaba de nuevo su cara dibujada
-reflejándola en la pared,
-otra unidad alzó por primera vez la mano
-y se detuvo cerca de la muñeca del niño.
+Sion contempló un rato aquella escena. Era una mano sin la hoja. Con esa mano levantó un trozo de escombro.
 
-No la tocó.
-
-Pero tampoco huyó.
-
-Con eso bastaba.
-
-Sion, mirando ese cuadro,
-un rato no dijo nada.
-
-Si esto era el inicio real de la recuperación,
-quizá debía verse así.
-
-No una declaración grandiosa,
-sino manos que retiran restos juntas.
-Un niño que mira junto a otro un rostro recién nacido.
-Y seres aún torpes
-que se quedan uno al lado del otro
-decididos a no borrarse.
-
-El último androide
-miraba todo ese cuadro desde un sitio algo apartado.
-
-El niño que primero le había puesto una línea en la cara
-se le acercó también esta vez.
-
-Tras vacilar un momento,
-con mucho cuidado preguntó.
+El último androide estaba de pie, un poco apartado. El niño que primero le había puesto líneas en la cara se acercó, vaciló y, plantado delante, alzó la vista.
 
 —Tú… ¿ya tienes nombre?
 
-La pregunta debió de ser inesperada,
-porque varios alrededor miraron a la vez hacia allá.
+Han Jiwoo, Aka, Luhai y unos cuantos más miraron hacia allí.
 
-El último androide vaciló mínimo.
+El último androide titubeó sin responder, pero el niño esperó.
+Despacio, movió la cabeza de un lado a otro. Era la primera vez que negaba con la cabeza.
+El niño asintió y se quedó a su lado. No le preguntó el nombre. Ya lo había preguntado una vez.
 
-Pero ese silencio, raro, tampoco resultó incómodo.
+Aka parpadeó despacio mirando a los dos. No se acercó; miraba.
 
-Porque el hecho de que aún no tuviera nombre
-estaba ahora más cerca de lo natural que de lo extraño.
+Luhai levantó una placa caída.
 
-Aka, mirando esa escena,
-parpadeó muy lento.
+—No se queden ahí pasmados. Ya que sobrevivieron, primero usen las manos.
 
-Aún no.
-
-Pero se sabía
-que ese momento llegaría pronto.
-
-Él, de una figura sin nombre vacía tanto tiempo,
-ahora se iba volviendo de verdad alguien.
-
-Y con Serakion pasaba lo mismo.
-
-Ya no era el planeta de centro hueco,
-sino un sitio que la gente que quedó
-empezaba a volver habitable
-poniendo de nuevo las manos.
-
-Era aún muy pequeño,
-aún muy lento,
-aún con mucha más pérdida.
-
-Pero aun así,
-por primera vez
-empezaba a surgir de a poco la sensación
-de que este sitio podía ser
-no la cima de un sistema muerto,
-sino el suelo de seres que quieren volver a vivir.
-
-Luhai, levantando una placa caída, dijo.
-
-—No se queden ahí parados. Ya que sobrevivieron, usen las manos.
-
-Fueron palabras ásperas.
-
-Pero esta vez nadie las tomó como ásperas.
-
-Al contrario,
-tras esas palabras
-se movieron más manos.
+Se movieron más manos.
 
 Personas.
 Máquinas.
 Androides.
 Niños.
 
-Todos de modo distinto.
+Las maneras eran distintas. Levantaron la misma placa.
+Han Jiwoo de un lado, un androide del otro.
+Se alzó. Con un compás de desfase.
+No la dejaron caer.
 
-Pero ahora
-ya no estaban atados bajo el mismo orden,
-sino que cada uno sumaba una mano distinta
-hacia revivir el mismo sitio.
-
-Eso
-parecía el verdadero nuevo comienzo,
-el primero nacido en la Serakion caída.
+El anciano de Hazran estaba de pie con su placa: dieciséis trazos, y uno en el reverso. Miró el reverso y miró a los androides que iban ganando una cara. No trazó nada; se apoyó la placa contra el pecho.
 
 ---
 

@@ -63,8 +63,6 @@ Han Jiwoo habló en voz baja.
 
 —Bien.
 
-No lo decía por crueldad: era la confirmación de que Sion había acertado.
-
 Ante esa sola palabra, Sion se quedó todavía más callado.
 
 En este tramo, su propio ojo no era un simple auxiliar para leer la ruta: era lo que separaba a quien se dejaba engañar de quien no.
@@ -220,8 +218,6 @@ Han Jiwoo, en lugar de responder, bajó aún más el esquife.
 El planeador rojo oscuro se hundió hacia dentro casi en el mismo instante, y desde el norte el planeador que llevaban Kael y Sern se acercaba por una línea medio tiempo más lenta, pero más estable.
 
 Los tres equipos supervivientes estaban, por fin, a punto de chocar ante casi la misma brasa candidata.
-
-Y Sion lo supo.
 
 A partir de aquí, quizá las reglas de esta carrera no bastaran por sí solas para ponerle fin.
 

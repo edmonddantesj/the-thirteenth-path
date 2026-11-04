@@ -1,6 +1,6 @@
 # Chapitre 99 — L'instant avant que quelque chose ne rompe enfin
 
-À côté de la courte rayure gravée sur le tableau, Sion traça un cinquième trait.
+Sion regarda la courte rayure gravée sur le tableau.
 
 Une heure.
 

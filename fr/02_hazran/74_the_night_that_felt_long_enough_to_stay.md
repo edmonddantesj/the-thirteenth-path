@@ -53,8 +53,6 @@ Sion retint un instant ces mots.
 Han Jiwoo le dit en retournant la plaque d'accouplement.
 « On le fait tenir longtemps avec des pièces qui vont moins bien. C'est toujours comme ça, de toute façon. »
 
-Étrangement, ces mots sonnèrent pour Sion comme un soulagement.
-
 Ça manquait. Mais cela voulait dire aussi que ce n'était pas encore fini. Et aussi que ce n'était pas un chemin entièrement faux.
 
 Aka sortit elle aussi, un peu plus tard.
@@ -97,8 +95,6 @@ Puis, un temps plus tard, elle demanda. Sa voix était exactement la même qu'av
 
 « Kael d'où, tu t'en souviens toujours pas ? »
 
-L'air s'immobilisa un très bref instant.
-
 Sion ne comprit pas tout de suite d'où venait cette question. Il savait seulement que Seorin demandait la même chose pour la deuxième fois. La première, c'était à bord du vaisseau, et Seorin avait déjà cette voix-là.
 
 Kael ne retira pas les mains de la plaque de métal posée sur ses genoux.
@@ -113,7 +109,7 @@ Sern avait écouté en silence ce bref aller-retour, et prit l'air de compter qu
 
 Seul Sion savait que quelque chose était passé entre ces deux-là, et il ne savait toujours pas quoi.
 
-Seorin laissa derrière elle la conversation des trois autres et regarda soudain vers le bout du marché.
+Seorin fit encore quelques pas et regarda soudain vers le bout du marché.
 
 Là-bas, il faisait plus sombre qu'avant. Mais ce n'était pas un secteur tout à fait mort. Au contraire, de petites lumières, invisibles le jour, vivaient çà et là : du côté du terrain en remise en état, le secteur de la ligne de retour où Haroun devait encore travailler, et les abords où passaient lentement les patrouilles des gens de Zahir.
 
@@ -134,8 +130,6 @@ C'était étrange. Aucun danger ne les menaçait encore dans l'immédiat. Et pou
 Ce n'était pas vraiment de la peur ; c'était plus proche de la sensation que cette nuit, parce qu'elle était belle, resterait plus longtemps en mémoire.
 
 Les belles nuits ne durent généralement pas.
-
-Cette pensée lui traversa l'esprit, mais Sion ne prit pas la peine de la dire à voix haute.
 
 Luhai faisait déjà tourner une brochette de fruits secs ramassée on ne savait où, et Kael étalait de nouveau les morceaux posés sur ses genoux pour calculer ce qu'il fallait employer d'abord et ce qu'il fallait remettre à plus tard. Han Jiwoo s'était carrément assise par terre et ne cessait de toucher du bout des doigts le bord de la plaque d'accouplement, et Aka se tenait un peu à l'écart, en dehors de tous ces gens.
 
@@ -218,10 +212,6 @@ Devant lui, il y avait un vaisseau qui n'était pas encore tout à fait revenu �
 et la nuit de Hazran, qu'il n'avait pas encore fini de voir.
 
 Le cordon à son poignet se resserra un peu. C'était là que Seorin l'avait tiré un coup de plus, tout à l'heure.
-
-Cette nuit-là au moins, il semblait vraiment possible de rester un peu plus.
-
-Et c'est pour cela, justement, qu'elle avait l'air d'une nuit qui ne finirait pas facilement.
 
 ---
 

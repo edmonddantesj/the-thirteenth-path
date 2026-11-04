@@ -52,7 +52,7 @@ Seorin preguntó muy bajo.
 
 —¿Entonces qué hemos venido persiguiendo?
 
-Esta vez Aka miró un poco más de rato el fragmento del lado de Sion.
+Esta vez Aka miró un poco más de rato el fragmento que Sion llevaba dentro de la chaqueta.
 
 —El sitio cortado.
 Lo dijo ella.
@@ -110,7 +110,7 @@ Luhai cerró la mano de golpe.
 Lo dijo Aka.
 —Ese es el problema.
 
-Solo entonces lo entendió Sion. Cuando dos cosas verdaderas están juntas, no se vuelven más nítidas entre sí: vibran tan fuerte que no dejan ver nada. Aka no tenía ahora la vista más aguda; estaba cegada.
+Aka no tenía ahora la vista más aguda; estaba cegada.
 
 —Lejos.
 Eso dijo ella.
@@ -138,7 +138,7 @@ Nahira lo cortó sin alzar la voz.
 
 —En Hazran, así es como se vive mucho tiempo.
 
-Luhai no supo qué contestar. Esta vez no era que simplemente le hubieran cerrado la boca: era la cara de quien sabe que esas palabras no son falsas.
+Luhai no supo qué contestar.
 
 Sion volvió a mirar a Aka.
 
@@ -150,7 +150,7 @@ Nahira habló muy bajo.
 
 Un breve silencio.
 
-Sion no supo decidir enseguida si esas palabras iban por el fragmento de eterita, por Aka o por sacar a la luz, aquí y ahora, una verdad más honda. Pero que las tres pudieran ser ciertas era todavía más propio de Hazran.
+Sion no supo decidir enseguida si esas palabras iban por el fragmento de eterita, por Aka o por sacar a la luz, aquí y ahora, una verdad más honda. Que las tres pudieran ser ciertas era todavía más propio de Hazran.
 
 Seorin preguntó.
 

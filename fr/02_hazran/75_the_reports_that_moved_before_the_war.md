@@ -115,7 +115,7 @@ Ces mêmes jours, du côté de l'Alliance, la ligne de rapport était bien plus 
 
 Les portes s'ouvraient avec fracas, on voyait vite qui accusait qui, et les rapports arrivaient toujours accompagnés de l'agacement de quelqu'un.
 
-Il en allait de même pour ceux qui avaient perdu Sion et son groupe à Hazran.
+Il en allait de même pour ceux qui avaient perdu Sion et son groupe devant Hazran.
 
 « Ils nous ont échappé. »
 
@@ -181,8 +181,6 @@ Le rapporteur baissa encore la voix.
 
 « Et il est possible qu'une partie de la légion androïde soit lâchée en même temps. »
 
-Cette fois, l'air de la pièce se figea pour une autre raison.
-
 L'Alliance détestait l'Empire. Mais, détestation mise à part, elle savait fort bien ce que signifiait une légion androïde impériale.
 
 Des mains qui, plutôt que de saigner elles-mêmes, faisaient saigner les autres.
@@ -246,7 +244,7 @@ Puis elle ajouta :
 
 ---
 
-Quand cet ordre tomba, rien n'avait encore frappé Hazran.
+Plusieurs jours avaient passé depuis que cet ordre était tombé, et jusqu'à cette nuit, rien n'avait encore frappé Hazran.
 
 Le marché de récupération gardait ses lampes allumées, les gens riaient sous la lumière du soir, et Sion et son groupe s'accrochaient au bref répit qu'ils avaient fini par obtenir après tant de jours.
 

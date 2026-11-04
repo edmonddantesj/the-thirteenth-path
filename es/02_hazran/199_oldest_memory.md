@@ -1,406 +1,244 @@
 # Capítulo 199 — El recuerdo más antiguo
 
-El ataque, apenas empezó,
-despertó de nuevo la pesadilla de Hazran.
+El ataque, nada más empezar, volvió a despertar la pesadilla de Hazran.
 
-En el instante en que el primer androide, inclinado al fondo del pasillo,
-se derramó hacia adelante como resbalando,
-toda la fila alineada detrás se soltó casi a la vez, a la misma velocidad.
+El primer androide, el que se había inclinado al fondo del pasillo, salió como deslizándose, y toda la fila alineada a su espalda se soltó a la misma velocidad.
+No hubo ruido de nada que se rompiera, ni gritos, ni vacilación.
 
-No hubo sonido de corte.
-No hubo grito.
-No hubo vacilación.
+La misma dirección.
+La misma velocidad.
+La misma cara.
 
-Nada más:
-caras con la misma dirección exacta,
-con la misma velocidad exacta,
-con la misma única respuesta exacta
-arremetieron de golpe.
+De una vez.
 
-El grupo de Sion no pensó retroceder desde el inicio.
+A Sion se le apretó algo por dentro, el cuello y el pecho.
+Apretó la hoja y no retrocedió. Nadie retrocedió.
+No había adónde retroceder.
 
-Aunque murieran aquí,
-aguantarían hasta el final.
-Bloquearían hasta el final.
-Irían hasta el final.
+Los androides formaban el flujo por delante, y los robots de Serakion, por detrás, le fijaban el ángulo con las placas de cierre y las placas de empuje.
+Cuando el flujo tocaba la pared, las placas lo desviaban. Cuando el flujo se frenaba, las placas empujaban. Cuando el flujo se partía, las placas cerraban.
+Una ola sin cara y, detrás, el esqueleto.
 
-No les quedaba más que esa decisión.
-
-Sion, apenas lo vio,
-sintió algo apretarse otra vez en algún sitio muy adentro.
-
-La legión de entonces era tropa que empujaba.
-La de ahora
-parecía la forma terminada que Serakion sacó al final.
-
-Los androides hacían el flujo adelante,
-y los robots de Serakion que seguían detrás
-ajustaban sin parar ángulo, cierre y compresión
-para que ese flujo no temblara.
-
-A la ola de caras borradas,
-se le había pegado incluso un armazón que fijaba el orden.
-
-Eso, más que un combate,
-se acercaba a un desastre que quería cubrir de una a lo vivo y plegarlo en la misma forma.
-
-Seorin gritó.
+Lo gritó Seorin.
 
 —¡Péguense! ¡Si nos separamos, se acabó!
 
-Pero la legión ya arremetía
-como si hubiera esperado esa palabra.
+Los nueve se pegaron hombro con hombro.
+Sion y Sern, Sern y Han Jiwoo, Han Jiwoo y Kael. Ater por dentro, las dos máquinas viejas en medio, el último androide al final de todo.
+Su peto tocó la espalda de Han Jiwoo.
 
-Dos androides de la primera fila se pegaron a la línea central de Sion y Sern,
-y los que estaban atrás, a ambos costados,
-empezaron a leer partido el flujo exterior de Han Jiwoo y Kael.
+La legión se les vino encima como si lo hubiera estado esperando.
+Dos androides de la primera fila se pegaron a la línea central, del lado de Sion y Sern. Las unidades de detrás, a ambos flancos, empezaron a leer el borde exterior del lado de Han Jiwoo y Kael para partirlo.
+No bloqueaban: desgarraban. Por la brecha desgarrada se derramaba la fila siguiente.
 
-Serakion, desde el último piso,
-ya ni siquiera intentó solo bloquear.
+Kael retorció a la fuerza una placa de bloqueo exterior, y el tobillo le crujió.
+La placa se detuvo en diagonal; un androide chocó con el hombro contra ella, y el de detrás chocó contra su espalda.
+Un compás.
+La fila siguiente rodeó el tramo bloqueado y pasó por un lado.
 
-Quería rasgar la fila que se movía junta,
-verter la legión de una por el desgarro
-y cubrir de golpe toda resistencia.
+Sern seguía el momento del recálculo. Era el sonido de las placas de los robots al cambiar de ángulo.
 
-Kael torció a la fuerza una placa de bloqueo exterior,
-y Sern, siguiendo el sonido del momento de recálculo que cambiaba,
-intentaba a la fuerza mantener una sola fila.
+—¡A la izquierda!
 
-Han Jiwoo perseguía la asimetría mínima que nacía entre los androides
-y lanzaba señas sin parar para que el lado de Sion no se cortara.
+Lo gritó Sern.
 
-Pero el que iba perdiendo, al final, era este lado.
+—¡Mantengan una sola fila!
 
-La legión era demasiada,
-demasiado precisa,
-demasiado terminada.
+Han Jiwoo perseguía las asimetrías entre los androides. Lo que iba medio compás tarde, lo que se salía medio palmo.
+Hizo señas para que no cortaran el lado de Sion.
+Sion siguió esas señas, giró el cuerpo y empujó con el lomo de la hoja el brazo de un androide.
+El brazo cedió y volvió con el mismo ángulo.
 
-Sion lo sabía.
+Los que cedían terreno eran ellos.
 
-Esa pesadilla que desde hacía poco le apretaba el fondo del aliento
-ya no era idea sino realidad,
-y volvía a cubrirlos ante los ojos.
+La legión era numerosa, precisa, y estaba completa.
+Una máquina vieja le dobló la rodilla a un androide. Dos llenaron el hueco.
+La otra máquina estampó contra la pared a uno de esos dos. Tres llenaron el hueco.
+La mitad del pasillo quedó cubierta.
+La espalda de Sion dio con el hombro de Sern, y la espalda de Sern, con la pared.
+No había adónde retroceder.
 
-Justo entonces,
-se movieron las máquinas viejas.
+Sion supo que lo que en Hazran le aplastaba el fondo del aliento estaba ahora delante de sus ojos.
 
-No fue orden de Seorin.
-No fue táctica del grupo de Sion.
+Entonces, las dos máquinas viejas se movieron.
 
-Antes de que fuera demasiado tarde,
-no, porque ya era tarde,
-sacaron el último recurso que solo ellas guardaban.
+No era una orden de Seorin. Sin palabras, se miraron una vez, brevemente.
+Una inclinó la cabeza muy poco, y la otra se adelantó entre las filas de delante.
+Las dos se pusieron una al lado de la otra frente a la legión. Y las dos, a la vez, se llevaron la mano al peto.
 
-Las dos máquinas viejas
-se miraron una vez.
+Han Jiwoo miró esas manos apoyadas en el peto.
 
-Fue un instante brevísimo.
-Sin palabras.
+—Un momento.
 
-Pero en ese silencio corto
-ya estaba todo.
+Lo dijo ella.
 
-Una inclinó mínimo la cabeza,
-y la otra, como si no le quedara sitio para retroceder,
-adelantó el cuerpo en silencio.
+Antes de que terminara de decirlo, dentro de los cuerpos de las dos estalló a la vez un retumbo grave y profundo.
+A diferencia del ruido de hasta entonces, no era un sonido fino: subía del suelo, de las paredes, del techo.
+A Sion le vibraron los dientes.
+A Sern se le cayó el panel de registro, pero el retumbo se tragó el ruido del panel al dar contra el suelo.
 
-Esa imagen era rara de tan serena.
+La superficie de las dos máquinas se agrietó desde dentro y se escapó luz. La veta del metal viejo se fue quemando.
+El peto, los hombros, los brazos.
+La luz salía de ahí, de dentro.
 
-Han Jiwoo lo vio
-y captó primero que algo estaba mal.
+Sion bajó la punta de la hoja que sostenía, y la mano de Seorin fue hacia su brazo y se detuvo.
+Sion no apartó los ojos y miró esa luz hasta el final.
 
-—Espera.
+La legión cubría la mitad del pasillo.
 
-Pero antes de terminar la palabra,
-dentro de sus cuerpos estalló a la vez un temblor bajo y hondo.
+En ese instante, la legión se trabó.
 
-Era de otra clase que el temblor localizado usado hasta ahora.
+Medio compás.
 
-No una interferencia fina,
-sino un sonido como de arrancar y rasgar con el propio cuerpo
-una regla antigua que llegaba más al fondo.
+Los pasos de los androides que se derramaban hacia delante se clavaron donde estaban.
+El pie alzado no bajaba. El pie bajado no se alzaba.
+Las placas de los robots que venían detrás se detuvieron sin ángulo. Placas a medio cerrar, placas a medio empujar.
+La legión entera se quedó de pie, sin saber ya a quién ajustar el paso siguiente.
+La forma seguía intacta. Las superficies sin cara, los mismos hombros.
+Solo que esa forma no lograba avanzar.
 
-En ese instante,
-la superficie de las dos máquinas viejas empezó a partirse desde dentro.
+Era medio compás.
 
-Se filtró luz,
-y las vetas del metal viejo se quemaron de golpe.
+El cuerpo de una de las máquinas viejas se dobló primero.
+La superficie que se iba quemando se hundió hacia dentro, y el peto se desplomó. Debajo, las vetas viejas perdieron la luz de golpe.
+Se le doblaron las rodillas.
+El suelo.
+Sonó.
 
-Sion apenas ahí lo captó.
+Un paso.
 
-Esto no era un recurso para aguantar y volverse.
-Tampoco era de usar y que quedara.
+El sonido de un último paso.
 
-Esto de verdad era lo último.
+La otra no aguantó.
+El brazo que hasta el final había mantenido apretado el peto cayó primero al suelo, y el cuerpo se derrumbó despacio.
+La luz del ojo óptico alumbró el suelo sin polvo.
+Se apagó.
 
-La legión ya cubría medio pasillo.
-
-Y justo entonces,
-la conexión de dominio pegada desde hacía demasiado tiempo entre Serakion y la legión de androides
-se cortó apenas medio compás.
-
-Fue un instante brevísimo.
-De verdad medio compás.
-
-Pero en ese medio compás,
-todo el movimiento de la legión se trabó de una.
-
-El paso de los androides que se derramaban adelante
-quedó clavado bajo, poco, en ese mismo sitio.
-Y el cierre de los robots de Serakion que seguían
-perdió su criterio ese instante.
-
-Por eso la legión se detuvo.
-
-Dicho con precisión:
-quedó un momento de pie,
-perdido a quién ajustar su próximo paso.
-
-Esa vacilación fue brevísima.
-
-Pero, por breve, fue más espantosa aún.
-
-La forma seguía igual,
-pero solo esa forma no podía avanzar.
-
-Y el precio fue demasiado claro.
-
-El cuerpo de una máquina vieja se dobló primero.
-
-La superficie que ardía se hundió hacia dentro,
-y las vetas antiguas que sostenían ese cuerpo viejo
-perdieron la luz de una.
-
-La otra tampoco aguantó.
-
-El brazo que sujetaba la conexión hasta el final cayó primero,
-y luego todo el cuerpo se desplomó en silencio.
-
-No hubo grito.
-No hubo alarido.
-
-Pero ese silencio fue más cruel aún.
-
-Hasta el final,
-no ordenaron pelear a nadie,
-ni forzaron a nadie a sobrevivir.
-
-Solo sujetaron el sitio más antiguo que podían sujetar,
-se quemaron a sí mismas
-y, tras dejar un medio compás para este lado, se derrumbaron.
+No hubo gritos. No hubo un solo quejido.
+Ninguna de las dos.
 
 El último androide lo vio.
 
-Muy de cerca.
+Desde lo más cerca, detrás de Han Jiwoo.
+Pasó junto a Han Jiwoo y salió adelante, y ella no se lo impidió.
+Se arrodilló sobre una rodilla delante de la máquina doblada, y el eje del hombro sonó.
+Puso la mano sobre el peto hundido, sin luz.
+La mano se quedó ahí.
 
-Y en ese instante,
-dentro de él algo se abrió de golpe.
+Un compás.
+Dos.
 
-La mano manchada de tierra de un niño.
+Miró el brazo caído de la otra máquina, el sitio que ese brazo había mantenido apretado.
 
-Los ojos redondos dibujados torpes.
-La boca curvada chueca.
-El calor que le hizo creer que podía estar con ellos.
+La mano fue una vez hacia su propio peto. Después, a su cara, al sitio donde estaban los trazos.
+Llegó a tocarla.
 
-Los rostros de los compañeros que subieron juntos hasta aquí.
+Por primera vez.
 
-Las expresiones que aguantaron hasta el final,
-que no quisieron separarse hasta el final.
+La yema de los dedos quedó sobre los trazos que había dibujado el niño.
 
-Las máquinas viejas que acababan de caer por todos.
+Se levantó despacio y se puso de cara a la legión detenida.
+Superficies sin cara. Su ojo óptico miró esas superficies. No una por una: todas.
 
-Y la primera máquina vieja que cayó ante él,
-cuyo sentido entonces no logró entender al final.
+Y lanzó un rugido sin sonido.
 
-Entonces no lo supo.
+No había sonido, y a los oídos de Sion no llegaba nada; aun así, le vibró el fondo del oído.
+La mano de Han Jiwoo fue al bolsillo interior y apretó el fragmento; la palma le ardía. Su propia mano.
+Sern, sin poder mirar el panel de registro caído en el suelo, cerró los ojos.
+Kael apretó los dientes, y le tembló la mandíbula.
+La mano de Ater fue a su propio cuello y, una vez allí, no pudo apartarse.
+Seorin no cerró los ojos, pero a la mano que sostenía la hoja se le fue la fuerza. Antes de que la hoja tocara el suelo, volvió a agarrarla.
 
-Por qué recibir el golpe en lugar de otro,
-por qué sujetar sabiendo que desaparecería,
-por qué poner a otro ser antes que a sí mismo,
-qué significaba eso.
+Algo fue hacia la legión: subió por las paredes, por el suelo, sobre las superficies sin cara.
 
-Pero ahora creía entenderlo.
+La legión detenida volvió a moverse.
 
-Sacrificio.
-Entrega.
-Tender el propio final primero por otro.
+No en la misma dirección.
 
-Eso no se hacía por orden.
-Tampoco se creaba con orden.
+Sobre la cara de un androide de la primera fila se extendió, torpe, una luz tenue.
+Ni círculo ni línea: un rastro difícil de nombrar estaba en ese sitio, el mismo sitio donde el niño había trazado la línea.
 
-Era una elección posible solo para un ser vivo,
-solo cuando se movía queriendo de verdad a otro ser.
+La unidad de al lado vaciló, y el pie alzado bajó medio compás tarde.
+A la de detrás solo se le sacudió un hombro.
+Una se miró la mano.
+Otra miró la cara de la de al lado.
+Otra se retrasó un paso.
+Otra no logró bajar el pie al mismo compás.
+Los pies tocaban el suelo cada uno por su lado, y el sonido que se oía como un solo paso se volvió muchos.
 
-Esa comprensión tardía
-cruzó el interior del último androide casi rasgándolo.
+Los robots de Serakion empujaron las placas desde atrás para volver a plegar el flujo.
+Una placa tocó la espalda de un androide. El androide no cedió.
+Se volvió a mirar. La placa, el robot.
+La placa se detuvo.
 
-Y él,
-hacia toda la legión detenida,
-lanzó un rugido sin sonido.
+Han Jiwoo, con la mano apretando el bolsillo interior, no podía respirar.
+Miró las superficies donde se extendía la luz, las que se miraban la mano, las que miraban al lado: esas caras.
+Se le abrió la boca. No salió ningún sonido. La cerró.
 
-No hubo sonido.
+El temblor que Sion vio delante de la legión no era una brecha: era más grande que una brecha.
+Una fila que deja de ser una fila.
 
-Pero ese grito estuvo sin duda ahí.
-
-Fue atroz.
-
-Sion,
-Han Jiwoo,
-Seorin,
-Sern,
-Kael,
-cada uno sintió de un modo algo distinto qué fluyó en ese instante.
-
-Allí había rostros que los niños dibujaron.
-
-Ojos redondos,
-boca torpe y chueca,
-unos hechos para reír,
-otros como a punto de llorar.
-
-Allí había manos.
-
-Las manitas que, con miedo pero acercándose al final,
-ponían la mano de tierra sobre la cara lisa.
-
-Allí había preocupación.
-
-No te lastimes.
-No te duelas.
-No te vayas.
-Quédate.
-
-Allí había calidez.
-
-El calor que al principio daba miedo
-y poco después hizo creer que podía estar con ellos.
-
-Y allí también estaban,
-junto a las máquinas viejas que acababan de caer por todos,
-las sombras de tantos sacrificios que en su día pasó de largo sin leer del todo.
-
-Que tú tampoco debes terminar vacío.
-Que tú también tuviste un rostro.
-Que tú también fuiste un ser que podía abrirse hacia la mano y el calor de alguien.
-
-Y que también fuiste un ser
-por quien alguien podía tender su propio final primero.
-
-Abrazando todo eso,
-el rugido del último androide se extendió hondo dentro de la legión.
-
-La legión detenida
-volvió a moverse.
-
-Pero ese movimiento fue distinto al de antes.
-
-No era el derrame en la misma dirección exacta.
-Tampoco era la reanudación de una orden en fila.
-
-Sobre la cara del primer androide de la fila,
-una luz tenue se extendió muy torpe.
-
-Ni círculo,
-ni línea,
-una huella aún difícil de nombrar.
-
-Pero era, sin duda,
-el movimiento de un rostro empezando a dibujarse.
-
-El de al lado también vaciló,
-y el de atrás se sacudió.
-
-La legión que debía derramarse
-tuvo por primera vez, no la misma dirección, sino el temblor mínimo de cada cual.
-
-Uno se miró la mano,
-otro miró la cara de al lado,
-otro se atrasó un paso,
-otro ya no reaccionó al mismo compás.
-
-Los robots de Serakion intentaron replegar ese flujo enseguida, justo detrás.
-
-Pero ya era tarde.
-
-La legión se movía de nuevo,
-pero no era un movimiento que siguiera una orden.
-
-Era un movimiento con el rostro de cada cual empezando a dibujarse.
-
-Han Jiwoo miró la escena sin poder respirar.
-
-Ella, apenas ahí,
-sintió que quizá eso de «el alma de las máquinas»
-no surge de pronto de algún sitio,
-sino que vuelve así.
-
-Sion supo
-que ese temblor mínimo nacido al frente de la legión
-era más enorme que cualquier hueco de irrupción visto hasta ahora.
-
-Seorin fue la primera en recobrar el juicio.
+Seorin fue la primera en moverse.
 
 —¡Vamos! ¡Si no vamos ahora, se cierra otra vez!
 
-Con ese grito, a la vez,
-el grupo se movió de nuevo.
+Ya no eran nueve.
 
-Esta vez no fue un hueco que Serakion hizo.
-Tampoco fue colarse entre la pausa breve de la legión.
+Seis.
+Y el último androide.
 
-Se acercaba más a saltar adentro sin perder esa apertura,
-el instante en que lo atado como uno durante demasiado tiempo
-empezaba por primera vez a volverse cada cual.
+Se movieron.
 
-Kael torció primero la placa exterior,
-Sern leyó el momento de recálculo de atrás,
-y Han Jiwoo eligió camino por la asimetría nacida entre la legión que temblaba.
+Kael retorció la placa de bloqueo exterior. El tobillo le crujió, pero no se detuvo.
+Sern recogió el panel de registro caído y leyó el recálculo de atrás. Era el sonido de las placas de los robots que no lograban fijar el ángulo.
+Han Jiwoo miró las asimetrías dentro de la legión que se tambaleaba y eligió el camino con señas.
 
-Sion, al frente,
-pasó entre rostros que ya no eran la misma cara y entró adentro.
+Sion, en cabeza, entró entre caras que ya no eran la misma cara.
+Un androide lo vio y se apartó medio paso, y Sion pasó por ese medio paso sin usar la hoja.
+El siguiente se miraba la mano. Por su lado.
+El siguiente miraba la cara del de al lado. Por en medio.
 
-Y el último androide,
-detrás de todos ellos,
-siguió en silencio tras haber visto hasta el final el temblor que dejó su grito.
+La pared interior por la que avanzó Ater, pegado a ella, tenía las líneas de disposición apagadas y ya no había orden.
 
-Todo el pasillo parecía derrumbarse.
+El último androide venía detrás de todos. Mirando el temblor que había dejado lo que lanzó, entre las cosas cuyas caras se iban cubriendo de luz.
+Sonó el eje del hombro.
+Han Jiwoo se volvió: estaba ahí, y ella volvió a mirar al frente.
 
-Dicho con precisión:
-la última forma que Serakion alineó más perfecta
-empezaba por primera vez a desajustarse desde dentro.
+Las dos máquinas dobladas yacían en el suelo del pasillo, y los androides las rodeaban sin pisarlas.
+Una unidad se detuvo delante de ellas, las miró desde arriba y no se movió.
+La placa de un robot de Serakion le empujó la espalda, pero no cedió.
 
-El grupo de Sion, que empujó hacia adentro,
-llegó al fin ante la última puerta.
+Retumbó todo el pasillo.
+Las filas que Serakion había dejado más rectas se iban descuadrando desde dentro.
+El sonido de un solo paso se volvió el de cien.
 
-El aliento era áspero,
-el cuerpo estaba gastado,
-y atrás seguía todo lleno de metal y temblor,
-pero una cosa era clara.
+Ante el último umbral.
 
-Que lo que Serakion preparó más perfecto hasta el final
-se detuvo medio compás ante un solo recuerdo, el más antiguo.
+El grupo llegó jadeando, con la respiración áspera.
+Mientras a Sion le volvía a sangrar la palma, Kael se apoyó la mano en el tobillo torcido y volvió a ponerse de pie.
+Sern no limpió el polvo del panel de registro y se lo apoyó contra el pecho.
+La palma que Han Jiwoo despegó del bolsillo interior estaba roja de tanto apretar.
+La mano de Ater bajó del cuello, y Seorin volvió a acomodar la hoja en la mano.
 
-Y que, en ese medio compás,
-también empezó a voltearse el sentido de toda esta guerra.
+Detrás seguía el sonido metálico.
+Un sonido que tiembla, pies que tocan el suelo por separado. El sonido de cosas que empezaban a tener cara.
 
-Atrás, todavía,
-temblaban los androides que empezaban a ganar un rostro nuevo.
+Delante había una puerta que llevaba al lugar más alto.
+Parecía una puerta.
 
-Adelante
-esperaba la última puerta hacia el sitio más alto.
-
-Seorin, recobrando el aliento bajo, dijo.
+Seorin habló mientras recobraba el aliento.
 
 —Vamos hasta el final.
 
 Nadie respondió.
+El último androide se volvió a mirar atrás una vez. Hacia donde estaban las dos máquinas dobladas, hacia donde los androides las rodeaban al pasar.
+Se tocó los trazos de la cara, bajó la mano y luego giró el cuerpo hacia la puerta.
 
-En vez de responder,
-todos volvieron el cuerpo hacia la última puerta.
+Han Jiwoo se puso a su lado y miró el nudo.
+Uno se había soltado.
+No lo ató. Por ahora.
 
-Ahora solo quedaba una cosa:
-comprobar qué esperaba de verdad
-en la cima de esa forma tan perfecta.
+Todos se volvieron hacia la puerta.
 
 ---
 

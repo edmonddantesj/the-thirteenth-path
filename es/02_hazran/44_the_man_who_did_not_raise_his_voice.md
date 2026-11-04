@@ -150,8 +150,6 @@ Esta vez Aka negó brevemente con la cabeza.
 Eso dijo ella.
 —Pero si creen que eso es una puerta, no llegan hasta el final.
 
-Sion sintió que esas palabras se le clavaban más pesadas que las de antes. No entraron por error. Pero si creen mal, no llegan hasta el final. Eran palabras que daban esperanza y corte al mismo tiempo.
-
 Ater preguntó con calma.
 
 —Entonces, ¿cómo hay que ir?
@@ -163,8 +161,6 @@ En cambio, por un instante muy breve, miró de verdad la cara de Sion por primer
 —Primero hay que separar eso.
 Eso dijo ella.
 —La imitación y el sitio.
-
-Sion sintió que esa frase, aunque no fuera todavía una explicación completa, señalaba al menos con claridad cuál era el siguiente trabajo. Había que despegar la imitación del sitio cortado. Si no, nunca alcanzarían el sitio donde había estado la puerta verdadera.
 
 Nasim habló con mucha suavidad.
 
@@ -214,7 +210,7 @@ Se lo dijo a Aka.
 
 Aka no se movió.
 
-Nahira la volvió a llamar. Esta vez no usó su nombre. Solo le tendió un poco la mano.
+Nahira la volvió a llamar. Esta vez no la llamó con palabras. Solo le tendió un poco la mano.
 
 Aka miró esa mano. Luego giró la cabeza hacia Zahir.
 
@@ -243,8 +239,6 @@ Zahir habló en voz baja.
 Harún alzó brevemente la mirada.
 
 —Abre.
-
-Esas dos sílabas volvieron a cambiar el aire de la sala.
 
 Solo entonces comprendió Sion que había estado viendo algo mal.
 

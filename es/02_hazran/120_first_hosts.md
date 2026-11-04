@@ -1,44 +1,30 @@
-# Capítulo 120 — La cortesía de Serakion
+# Capítulo 120 — El primer recibimiento
 
-Cuando la nave se detuvo por completo,
-lo primero que se sintió no fue alivio.
+Cuando la nave se detuvo por completo, lo primero que llegó fue el silencio.
 
-Fue quietud.
+Era un silencio distinto del de Hazran. Aquel era el silencio que queda después de un derrumbe; este era un silencio en el que nada se había derrumbado. Ni siquiera se oía el casco al enfriarse, y Han Jiwoo esperó ese sonido, pero no llegó nunca.
 
-Un silencio de una clase del todo distinta a la quietud de Hazran.
+Sin apartar la mano del timón, ella miró largo rato por el ojo de buey.
 
-Allí era la quietud que queda después del derrumbe,
-y aquí era la quietud que queda después de que todo ha sido ordenado en exceso.
+El interior de la estructura anular era tan amplio que habrían cabido diez cascos, y dentro solo estaba aquel barco. El punto donde se había detenido era el centro exacto de esa anchura, y Han Jiwoo nunca había ajustado el timón así. El ángulo en que se inclinaba el casco, el largo del suelo plateado que se veía abajo: todo parecía medido con regla.
 
-Una calma en la que hasta el sonido de respirar
-parecería demasiado áspero dentro de este espacio.
+—No lo paré yo.
 
-Han Jiwoo, sin apartar la mano del timón,
-miró largo rato hacia fuera por la ventana.
+Lo dijo Han Jiwoo.
 
-El interior de la estructura anular era mucho más amplio de lo esperado.
-Pero antes que la sensación de amplitud llegaba
-la incomodidad de que incluso esa amplitud parecía calculada y vaciada por alguien.
+—Lo sé.
 
-El lugar donde se había detenido,
-el ángulo en que se inclinaba el casco,
-el largo del suelo plateado que se veía abajo, todo era exacto hasta resultar extraño.
+Eso respondió Seorin.
 
 Luhai murmuró en voz baja.
 
 —Aquí hasta estacionar da mala espina.
 
-Esa frase debería haber sido graciosa,
-pero nadie pudo reír.
+Nadie se rio, y Kael estuvo a punto de reírse pero no lo hizo: la comisura de los labios le subió y le volvió a bajar.
 
-Porque era cierta.
+Sern, que leía los valores exteriores, habló en pocas palabras.
 
-Aquí, incluso el detenerse
-no se sentía como resultado de una elección propia.
-
-Sern, leyendo los valores exteriores, dijo en pocas palabras.
-
-—Quedamos fijados.
+—Hemos quedado fijados.
 
 Ater preguntó.
 
@@ -46,177 +32,202 @@ Ater preguntó.
 
 Sern leyó un momento más y respondió.
 
-—Físicamente no.
-—Pero si intentamos salir, nos leerán de inmediato.
+—Físicamente, no. Pero si intentamos salir, nos leerán de inmediato.
 
-Aquellas palabras no sonaron como una amenaza.
-Más bien estaban cerca de transmitir secamente un hecho que en este mundo era demasiado obvio.
+Han Jiwoo tiró un poco del timón, pero el casco no se movió; tiró más y siguió igual. Al soltar el timón, vio que tenía las palmas mojadas.
 
-Aka, mirando hacia fuera por la ventana, dijo muy bajo.
+—No se mueve.
 
-—Nos dejaron entrar.
+—No estamos amarrados.
+
+Sern volvió a decirlo.
+
+—Lo que no hay es una ruta que nos reciba.
+
+Han Jiwoo miró a Sern, pero Sern miraba el panel de registro.
+
+Aka, mirando por el ojo de buey, habló muy bajo.
+
+—Nos han dejado entrar.
 
 Sion la miró.
 
 Aka siguió hablando sin apartar los ojos.
 
-—Aún no han dicho nada,
-pero es como si ya nos hubieran metido adentro.
+—Todavía no han dicho nada, pero es como si ya nos hubieran metido dentro.
 
-Esa frase volvió más fría el aire dentro del casco.
+Cuando la gente de Hazran, que estaba sentada a la entrada del pasillo, se puso de pie, Seorin levantó la mano para indicarles que se sentaran. Como no se sentaron, Seorin bajó la mano.
 
-Entonces,
-en lo profundo del interior de la estructura anular,
-haces de luz finos y largos se encendieron una vez más, por turnos.
+Entonces, en lo hondo de la estructura anular, unos haces de luz finos y largos volvieron a encenderse uno tras otro.
 
-Lo que hasta hacía un momento parecían simples señales de guía,
-ahora parecían luces de escenario que fijaban el orden de entrada de alguien.
+Uno a uno.
+Con el mismo intervalo.
 
-Y por entre esa luz,
-máquinas de una forma nunca vista salieron caminando despacio.
+El camino que se formó sobre el suelo plateado terminaba justo debajo de la escotilla de aquel barco.
 
-No parecían armamento.
-Pero tampoco parecían máquinas civiles.
+Y entre esa luz salieron caminando despacio unas máquinas de una forma que nunca habían visto.
 
-Eran demasiado lisas,
-demasiado precisas,
-cada uno de sus movimientos estaba contenido hasta el exceso.
+Eran seis, en tres filas de dos. Sus pies no hacían ruido al tocar el suelo y no se les veía armamento. La superficie no tenía junturas y, al caminar, los brazos no se les balanceaban.
 
-Lo más extraño de todo:
-aunque no exhibían armamento,
-exudaban una sensación de jerarquía más nítida que cualquier arma.
+Sern las contó.
 
-Sion lo supo de inmediato al verlas.
+—Son seis. No portan armamento. Que se vea.
 
-Eso no es una simple guardia.
-Son seres más cercanos al «protocolo» de aquel mundo.
+—Que se vea.
 
-La máquina al frente
-tenía, en términos humanos, una proporción de cuerpo alto y enjuto.
-Pero antes que la sensación de parecerse a un ser vivo llegaba
-la incomodidad de que esa proporción misma parecía elegida para tranquilizar a alguien.
+Ater lo repitió.
 
-Donde debería estar el rostro era demasiado liso,
-y la luz que fluía sobre eso estaba más cerca de un efecto de superficie bien pulida que de una mirada.
+La máquina al frente era delgada y una cabeza más alta que una persona. Donde debería estar la cara, todo era liso. Sobre esa superficie una veta de luz fluía despacio, se detenía y volvía a fluir.
 
-Era hermosa.
-Pero esa belleza no era una belleza hecha para cruzar la mirada con un ser vivo.
+Luhai miró aquella cara lisa y luego apartó los ojos.
 
-Seorin dijo muy bajo.
+—No tiene ojos, pero parece que mira.
 
-—Parece una espada que solo aprendió a sonreír.
+Kael le contestó.
 
-Esa comparación era tan exacta
-que nadie pudo decir otra cosa de inmediato.
+—Será que mira.
 
-Esa máquina al frente inclinó la cabeza muy cortésmente hacia la nave.
+Seorin habló muy bajo.
 
-Y una voz baja y lisa,
-con una pronunciación refinada hasta el exceso, resonó hasta el interior del casco.
+—Parece una hoja que solo aprendió a sonreír.
 
-—Al casco externo que ha tocado Serakion —dijo la voz— le transmitimos un saludo demorado.
+Han Jiwoo miró a Seorin. Seorin miraba por el ojo de buey; al seguirle la mirada, Han Jiwoo vio que la máquina al frente se había detenido exactamente a diez pasos de la escotilla.
+
+La máquina al frente inclinó la cabeza hacia la nave. No fue una inclinación profunda ni ligera, pero el tiempo entre bajarla y volver a alzarla fue largo.
+
+Y una voz baja y lisa resonó hasta dentro del casco. No había pasado por la red de transmisión del casco: Sern miró el panel de registro, pero no había ninguna señal de recepción.
+
+—Al casco exterior que ha alcanzado Serakion.
+
+Así habló aquella voz.
+
+—Le transmitimos un saludo demorado.
 
 Un breve silencio.
 
-Ese nombre,
-ahora ya no como un tono de guía que se oía rozar a lo lejos,
-sino que se oyó claramente, por primera vez, desde la boca de un ser que pertenecía a aquel mundo.
+Los labios de Aka formaron «Serakion», pero no dejó salir ningún sonido.
 
-—Su casco alcanzó el umbral de un modo no previsto.
-—Aun así, el acceso actual ha sido autorizado.
+—Su casco ha alcanzado el umbral de un modo no previsto. Aun así, el acceso actual ha sido autorizado.
 
 Luhai endureció el rostro.
 
-Autorizado.
+—Autorizado.
 
-Solo con esa palabra,
-se tenía la impresión de que casi quedaba dicho qué clase de mundo era este.
-
-No una bienvenida sino una autorización.
-No un encuentro sino un procesamiento.
-
-Han Jiwoo sintió que se le tensaban las yemas de los dedos.
+Han Jiwoo apartó del todo las manos del timón y se las puso sobre las rodillas. Tenía las yemas de los dedos en tensión, así que abrió las manos, pero se le volvieron a cerrar.
 
 La máquina al frente siguió hablando.
 
-—Hasta completar la verificación de estabilidad de su casco y de los individuos a bordo,
-los conduciremos a la zona de acogida designada.
+—Hasta que se complete la verificación de estabilidad de su casco y de los individuos a bordo, los conduciremos a la zona de retención designada.
 
 Kael murmuró muy bajo.
 
-—¿Acogida?
+—¿Retención?
 
-La mirada de Ater se enfrió un momento.
+Los ojos de Ater fueron hacia Sern, pero Sern miraba el panel de registro.
 
-Aquellas palabras eran corteses,
-y por eso resultaban más incómodas.
+—Saben cuántos individuos hay a bordo.
 
-Dentro del «los conduciremos»
-no había ninguna opción.
+Lo dijo Sern.
 
-Sern, leyendo los valores en pocas palabras, dijo casi en un susurro.
+—En el panel de registro aparece dieciséis. Desde el principio.
 
-—Es una frase que no contempla una señal de rechazo.
+Nadie le había dicho dieciséis a este planeta. Cuando Han Jiwoo se volvió hacia la gente de la entrada del pasillo, se miraron unos a otros, y el niño empezó a contar con los dedos extendidos y lo dejó.
 
-Sion, mirando hacia fuera la máquina al frente,
-sintió que entendía un poco más claramente por qué este mundo daba tanto escalofrío.
+Sern leyó los valores un momento y habló, casi en un susurro.
 
-Si fuera hostil, sería más fácil de leer.
-Pero aquí no es así.
+—Una señal de rechazo es una frase que no tienen prevista.
 
-Aquí, muy cortésmente,
-se ofrece una cortesía que incluye incluso el margen para incomodar al otro.
+—Envíala.
 
-Aka dijo muy bajo.
+Lo dijo Seorin.
 
-—No es que tenga consideración.
-—Finge estar completo.
+Mientras Sern pulsaba el panel de registro y esperaba, la máquina de fuera seguía con la cabeza inclinada, sin ninguna reacción.
 
-Esa frase no estaba dirigida a nadie,
-pero, de un modo extraño, sonaba como si apuntara con exactitud a todas aquellas máquinas de adelante.
+—No la recibe.
 
-La máquina al frente, al cabo de un momento,
-retrocedió un paso e hizo hacia un lado un movimiento parecido a un gesto.
+Lo dijo Sern.
 
-Y al mismo tiempo,
-sobre el suelo plateado de fuera de la nave se encendió, largo, un hilo de luz muy delgado.
+—No es que la haya rechazado. Parece como si no supiera que existe una señal así.
 
-Una línea guía demasiado hermosa.
-Una línea que, pese a producir rechazo,
-parecía que si ponías un pie sobre ella la seguirías sin más.
+Aka habló muy bajo.
 
-—Serakion ofrece, a los individuos llegados del exterior —volvió a sonar la voz, queda—, el nivel de trato necesario.
+—No es consideración. Es que finge estar completo.
 
-Esta vez Luhai dejó escapar un aliento parecido a una risa.
+Sion miró la veta de luz que fluía por la cara de la máquina al frente, al otro lado del ojo de buey. Al ponerse la mano sobre el bolsillo, notó el borde de la placa de metal contra la palma.
 
-—«Trato», dice.
+Al cabo de un momento, la máquina al frente dio un paso atrás y levantó un brazo hacia un lado. El tiempo que tardó el brazo en subir fue el mismo que tardó en bajar.
 
-Seorin, mirando hacia fuera por la ventana, dijo muy bajo.
+Al mismo tiempo, sobre el suelo plateado de fuera de la nave, se encendió a lo largo una línea de luz muy fina.
+
+La línea empezaba debajo de la escotilla y se adentraba en la oscuridad de la estructura anular; no se le veía el final. Era lo bastante ancha para que caminaran dos personas una al lado de la otra, y no más.
+
+—Serakion, ante los individuos llegados del exterior.
+
+Aquella voz volvió a sonar, queda.
+
+—Proporciona el nivel necesario de trato de cortesía.
+
+Luhai soltó el aire; era un aliento más cercano a una risa.
+
+—Trato de cortesía, dice.
+
+Seorin, mirando por el ojo de buey, habló muy bajo.
 
 —Esas palabras son las que más miedo dan.
 
-Era cierto.
+Se llevó la mano a la empuñadura de la hoja que llevaba a la cintura, la apartó y ya no volvió a tocarla.
 
-Este mundo, desde el primer instante del encuentro,
-es asombrosamente cortés.
+Han Jiwoo sacó la bolsa de herramientas de debajo del timón y se la colgó a la cintura. Sacó un destornillador, lo sostuvo en la mano y lo volvió a guardar.
 
-Pero esa cortesía no es para poner cómodo al otro.
-Más bien estaba cerca de una manera de confirmar, suave y exactamente,
-que el otro ya está dentro de su propio orden.
+—¿Tenemos que bajar?
 
-Sion inspiró despacio.
+Lo preguntó Kael.
 
-Serakion.
-Incluso después de saber el nombre,
-este mundo no se acercó ni un poco.
+Mientras nadie respondía, Sern se inclinó sobre el panel de registro.
 
-Más bien al contrario.
-En el momento en que se le pegó un nombre,
-solo se volvió más nítido que este orden frío y preciso
-era un espacio con una sociedad real y un dueño real.
+—El aire de fuera del casco es respirable. La temperatura también está ajustada.
 
-Y el primer rostro de aquella sociedad
-resultaba ser, mucho más de lo esperado, alguien que sabe fingir amabilidad.
+—¿Para nosotros?
+
+Lo preguntó Han Jiwoo.
+
+—Está ajustada a las personas.
+
+Eso respondió Sern.
+
+—Es exactamente la temperatura del cuerpo humano.
+
+Han Jiwoo se frotó el brazo. No tenía frío. Por eso se lo frotó.
+
+Ater fue hasta la entrada del pasillo y se plantó delante de la gente de Hazran.
+
+—Bajen ustedes los últimos.
+
+Lo dijo Ater.
+
+—Nosotros iremos delante.
+
+El anciano asintió y tomó de la mano al niño.
+
+Seorin se plantó ante la escotilla y apoyó la mano en la manija, pero no la giró: miró hacia atrás. Mientras Sion se le ponía al lado, Han Jiwoo se ajustó una vez más la bolsa de herramientas y Luhai apagó la linterna. Fuera había luz.
+
+Seorin giró la manija.
+
+Se oyó cómo se abría la puerta. Al oír ese sonido áspero de aquel barco, el primero desde que habían llegado, Han Jiwoo enderezó los hombros.
+
+Cuando entró el aire de fuera, Sion supo que no olía a nada. En el aire de Hazran siempre había algo; aquí no había nada.
+
+La línea de luz esperaba justo debajo de la escotilla.
+
+Seorin bajó primero y pisó el suelo plateado, pero no hizo ruido. Levantó el pie y volvió a apoyarlo, y tampoco.
+
+Sion se puso detrás de ella. Han Jiwoo, detrás de él. Sern, Ater, Kael, Luhai. Cuando Aka se colocó al final del grupo, la gente de Hazran hizo fila detrás.
+
+El niño se paró en el umbral, de la mano de un adulto. Del lado de dentro del umbral estaba el suelo del barco; del lado de fuera, el plateado. El niño miró hacia abajo un buen rato, bajó y se volvió a mirar el barco. Visto desde fuera, el barco era pequeño, y se le veían todas las marcas de soldadura.
+
+El niño, de la mano del adulto, se dio la vuelta. La línea de luz empezaba bajo sus pies. El niño pisó a un lado para no pisar la línea, y el adulto tiró de él hacia la línea.
+
+En la cara de la máquina al frente fluyó una vez una veta de luz.
 
 ---
 

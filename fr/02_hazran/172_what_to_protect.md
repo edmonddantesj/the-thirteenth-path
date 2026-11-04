@@ -2,155 +2,206 @@
 
 Le danger ne vint pas d'abord sous forme de son.
 
-Ce qui arriva en premier fut plutôt la sensation que quelque chose était déjà en train de s'aligner vers eux.
+Ce qui vint en premier, ce fut le sol. Au-delà de la ligne grise, le sol vibrait à intervalles très réguliers. Ce n'étaient pas des pas humains. Ni ceux des vieilles machines. Cette vibration faisait glisser peu à peu le panneau d'enregistrement posé contre le mur.
 
-Ainsi, lorsque les anciennes machines et les androïdes qui venaient de recevoir un visage regardèrent presque en même temps dans la même direction, Sion pensa d'abord qu'il était déjà trop tard, même s'il ne voyait encore rien.
+Tandis que les vieilles machines et les androïdes qui venaient de recevoir un visage regardaient presque en même temps dans la même direction, Sion regardait l'obscurité où l'on ne voyait encore rien.
 
-L'instant suivant, dans l'obscurité au-delà de la ligne grise, le fracas du métal qui s'entrechoquait éclata en série.
+L'instant d'après, dans l'obscurité au-delà de la ligne grise, un fracas de métal contre métal éclata en série.
 
-Puis la première ligne de la légion d'androïdes de Serakion apparut.
+Et bientôt, la première ligne de la légion androïde de Serakion apparut.
 
-Ils n'avaient pas de visage. Pas d'expression. Pas d'arrêt.
+Ils n'avaient pas de visage. Ni expression, ni arrêt.
 
-Ils remplirent l'étroit passage comme de l'eau, avançant vers l'intérieur avec un rythme trop lisse, trop régulier.
+Ils remplissaient l'étroit passage comme de l'eau et poussaient vers l'intérieur, sur un rythme lisse et constant. L'écart d'une épaule à l'autre était partout le même. Les pieds touchaient le sol en un seul bruit.
 
-Leur manière de bouger était si différente de celle des êtres qui, un instant plus tôt, recevaient chacun un visage des mains des enfants, qu'il était difficile de croire qu'ils avaient été fabriqués avec les mêmes corps.
+C'était un mouvement si différent de celui des êtres de ce côté-ci, qui un instant plus tôt recevaient chacun leur visage des mains des enfants, qu'on avait peine à croire qu'ils étaient faits du même corps.
 
-« En arrière ! » cria Seorin la première. « Sortez les enfants d'abord ! »
+« En arrière ! »
 
-Han Jiwoo était déjà en mouvement. Elle poussa par les épaules les deux enfants les plus proches pour les faire reculer, tandis qu'une femme de Hazran attrapait presque contre elle un enfant au bord des larmes pour le passer à la ligne arrière.
+Seorin fut la première à crier.
 
-Mais avant même ce désordre, les androïdes bougèrent.
+« Les enfants d'abord, dehors ! »
 
-Trois androïdes au visage fraîchement reçu s'avancèrent presque en même temps.
+« Par où ? »
 
-Pas exactement de la même manière. L'un pivota le premier, un autre jeta un coup d'œil à son voisin avant de bouger, et un troisième choisit d'abord la place qui bloquerait les enfants.
+Un homme de Hazran cria.
 
-Mais cette différence rendait la chose encore plus évidente.
+« La ligne arrière ! La brèche ! »
 
-Ils ne bougeaient pas sur ordre. Chacun, de son côté, semblait avoir déjà décidé ce qu'il devait protéger en premier.
+Seorin désigna de la main l'endroit où se tenaient les deux vieilles machines.
+
+Han Jiwoo bougeait déjà. Pendant qu'elle poussait par les épaules les deux enfants les plus proches pour les faire se retourner vers l'arrière, une femme de Hazran saisit, en l'étreignant presque, un enfant qui pleurnichait, et l'envoya à la ligne arrière. Luhai coinça sous son bras l'enfant qui dessinait et se mit à courir.
+
+Aka prit deux enfants par la main, un de chaque côté, et partit vers l'arrière. Quand l'un des enfants se retourna, Aka lui remit la tête face à l'avant. Sern, le panneau d'enregistrement à la main, se colla au mur. Il n'écrivit pas.
+
+Sion tira sa lame.
+Pour la première fois.
+
+Plus tôt encore que ce désordre, les androïdes bougèrent.
+
+Les trois androïdes qui avaient reçu un visage s'avancèrent presque en même temps.
+
+Pas exactement de la même façon. L'un pivota le premier, un autre jeta un coup d'œil à l'androïde voisin avant de bouger, et un autre encore choisit d'abord la place qui barrait le passage devant les enfants. Les places qu'ils prirent ne formaient pas une ligne. Chacun prit autant de place que l'enfant de derrière.
 
 Le premier choc fut si rapide que Sion le comprit d'abord au bruit.
 
-Du métal qui se pliait, des cadres qui se fendaient, de la lumière qui éclatait quelque part à l'intérieur.
+Du métal qui se pliait,
+des cadres qui se fendaient,
+le bruit d'une lumière qui éclatait quelque part à l'intérieur.
 
-Un androïde au visage nouveau saisit au cou un individu de Serakion qui entrait en tête et le tordit net.
+L'un des androïdes qui venaient de recevoir un visage saisit au cou une unité de Serakion qui déferlait en première ligne et la tordit jusqu'à la briser. Le corps brisé tomba sous les pieds de l'unité suivante. L'unité suivante passa par-dessus en le piétinant.
 
-En même temps, un autre se plaqua très bas pour projeter contre le mur un ennemi qui glissait vers les enfants.
+Au même instant, un autre, à côté, envoya s'écraser contre le mur un androïde ennemi qui, couché très bas, glissait vers les enfants. Le mur se fissura. Le corps écrasé glissa le long du mur jusqu'en bas.
 
-L'adversaire était bien plus nombreux. Pourtant, pendant les premières secondes, ce côté-ci semblait presque découper le champ de bataille.
+L'adversaire était bien plus nombreux. Pourtant, pendant les toutes premières secondes, la première ligne de la Légion de Serakion ne put avancer d'un seul pas de plus au-delà de l'entrée du passage.
 
-Luhai souffla :
+Luhai souffla presque :
 
-« C'est impossible… »
+« C'est pas possible… »
 
-Ses mots n'avaient rien d'étrange.
+« Si, c'est possible. »
 
-Les êtres qui, un instant plus tôt, tâtonnaient à peine leur propre visage se mouvaient désormais plus vite que des humains, avec plus de résolution que les anciennes machines, comme s'ils savaient ce qu'il fallait bloquer en premier.
+Seorin répondit.
 
-Mais Sion comprit que ce n'était pas parce qu'ils étaient doués au combat.
+« Ils sont devant les gosses. »
 
-Ils ne combattaient pas en poursuivant l'ennemi pour le tuer. Jusqu'au bout, ils coupaient d'abord la ligne par laquelle les adversaires tentaient d'atteindre les enfants et les gens.
+Elle n'en dit pas plus ; elle ramassa un panneau mural et le mit dans les mains d'un homme de Hazran.
 
-Leur objectif était trop simple. Et c'est pour cela qu'il était plus fort.
+Les êtres qui, un instant plus tôt, tâtonnaient encore à peine leur propre visage bougeaient maintenant plus vite que des humains, avec plus de résolution que les vieilles machines.
 
-Ici. Les enfants. Ceux qui leur avaient donné un visage.
+Ils ne poursuivaient pas l'adversaire. Ils n'achevaient pas l'unité ennemie tombée. Chaque fois qu'une ligne se dessinait pour entrer vers les enfants et les gens, ils dressaient leur corps sur cette ligne. Si l'un s'avançait et qu'une brèche s'ouvrait derrière, c'était dans cette brèche que l'androïde revenait.
 
-Ater regarda la ligne supérieure et lança, bas mais net :
+Ater, qui regardait le passage du haut, lança d'une voix basse :
 
-« Ce n'est pas seulement la première ligne ! Il y en a davantage derrière ! »
+« Il n'y a pas que la première ligne ! Il y en a davantage derrière ! »
 
-Sern reculait déjà en calculant les points où le passage se boucherait. Deux anciennes machines commencèrent à ouvrir une brèche vers l'arrière avant même que Seorin ait fini de parler.
+« Combien de lignes ? »
 
-Mais plus vite encore que tout cela, un androïde au visage dessiné se plaça devant l'enfant qui lui avait donné une bouche souriante.
+Seorin posa la question.
+
+« Quatre. Cinq. Je compte. »
+
+« Ne compte pas. Ouvre la brèche derrière. »
+
+Ater frappa du pied l'angle de la structure. Le panneau mural bascula et découvrit une brèche derrière lui. Un second coup de pied l'élargit.
+
+Sern, déjà en train de reculer, regardait les points où le passage allait se boucher. Du coin du panneau d'enregistrement, il toucha deux endroits du mur. Les deux vieilles machines avaient commencé à ouvrir la brèche de la ligne arrière avant même que Seorin ait fini de parler ; quand elles repoussèrent un panneau mural de l'épaule, une largeur de passage pour une personne s'ouvrit.
+
+Plus vite que tous ces mouvements, l'un des androïdes qui avaient reçu un visage se dressa devant l'enfant qui lui avait dessiné les yeux étroits.
 
 Trois androïdes ennemis chargèrent en même temps.
 
-Le premier par l'épaule, le deuxième par le flanc, le troisième presque de tout son corps.
+Le premier de l'épaule,
+le deuxième par le flanc,
+le troisième en se jetant presque de tout son corps.
 
-L'androïde les encaissa tous à la fois.
+L'androïde encaissa tout d'un coup.
 
-Le cadre de son bras gauche se plia vers l'intérieur, sa poitrine se brisa à moitié, et l'une des extrémités de la bouche souriante dessinée par l'enfant clignota sous l'impact.
+Le cadre de son bras gauche se tordit vers l'intérieur, sa poitrine se brisa à moitié, et l'un des traits des yeux étroits que l'enfant lui avait dessinés clignota sous le choc.
 
-Mais son corps ne recula pas.
+Le corps ne recula pas. Ses pieds ne glissèrent pas d'un empan sur le sol.
+De la force qui lui restait, il brisa vers le bas le cou de la première unité,
+enfonça la deuxième contre le mur,
+et entraîna la troisième au sol avec son propre corps.
 
-Avec ce qui lui restait de force, il brisa le cou du premier individu vers le bas, poussa le deuxième contre le mur, et entraîna le troisième au sol avec lui.
+Un enfant, voyant cela, finit par éclater en sanglots.
 
-Un enfant éclata en sanglots.
+Ces pleurs fendirent la pièce plus nettement encore que le bruit du combat. Han Jiwoo retourna cet enfant et lui fit enfouir le visage contre sa poitrine, mais même là, les pleurs ne s'arrêtèrent pas.
 
-Ce cri fendit la pièce plus nettement encore que le bruit de la bataille.
+« C'est le mien… »
 
-À cet instant, Sion comprit sans qu'on ait besoin de lui expliquer pourquoi ce combat était si terrible.
+L'enfant parlait contre sa poitrine.
 
-Les êtres qui venaient tout juste de recevoir un visage et de se tenir au milieu du rire des enfants usaient maintenant leur propre corps sans hésiter pour protéger ces mêmes enfants.
+« Je sais. Ne regarde pas. »
+
+« C'est le mien, je te dis… »
+
+« Je sais. »
+
+Elle appuyait sur l'arrière de la tête de l'enfant, mais ses propres yeux, elle ne les détournait pas.
 
 L'un d'eux détruisit presque coup sur coup quatre androïdes ennemis.
 
-C'était précis. Rapide jusqu'à la cruauté, et d'une stabilité surprenante.
+Le cou.
+Le genou.
+La jointure du plastron.
+Le cou, encore.
 
-Mais cette précision ne venait pas de la jouissance de massacrer. Elle ressemblait à la résolution de quelqu'un qui avait déjà décidé ce qu'il devait protéger.
+Jamais deux fois au même endroit. Une fois l'unité brisée, pas un coup de plus : le corps se tournait aussitôt vers l'unité suivante.
 
-Une ancienne machine murmura très bas :
+Une vieille machine, regardant cela, murmura très bas :
 
-« Ça… »
+« Ça, c'est… »
 
-Mais ses mots n'allèrent pas plus loin.
+Les mots n'allèrent pas jusqu'au bout. La machine d'à côté lui frappa l'épaule.
 
-Car, derrière la légion de Serakion, la ligne suivante entra sans ralentir.
+« Derrière. »
 
-Et sa méthode était différente.
+Les deux retournèrent à la brèche de la ligne arrière et poussèrent de l'épaule le panneau mural ; une largeur d'une personne s'ouvrit, et Seorin y poussa la première personne.
 
-La première ligne était consommée pour ouvrir la voie, puis la seconde se superposait par-dessus.
+À l'arrière de la Légion de Serakion, la ligne suivante déferla sans ralentir.
 
-Sans arrêt, sans récupération, sans hésitation.
+Sa manière était différente.
 
-Ce n'était pas tant un combat qu'une manière d'enfoncer un ordre.
+User la première ligne pour ouvrir la voie, et faire passer la ligne suivante par-dessus. Ni arrêt, ni récupération, ni hésitation. Quand la première ligne tombait, des pieds montaient sur les corps tombés. Sous ces pieds, un œil optique encore allumé fut écrasé et s'éteignit.
 
-Han Jiwoo blêmit à cette vue.
+À cette vue, Han Jiwoo devint blanche.
 
-« Ils lancent une auto-destruction ! »
+« Ils vont se faire sauter — ! »
 
-Avant qu'elle ait fini, deux individus percutèrent en même temps le torse de l'androïde qui tenait l'avant.
+Avant qu'elle ait fini, deux unités percutèrent en même temps le torse de l'androïde qui tenait au tout premier rang. Le bruit fit trembler le mur. Le dos de Sern glissa le long du mur, et la main qui tenait le panneau d'enregistrement racla la paroi.
 
-La lumière éclata, le cadre se plia vers l'intérieur, et l'un des yeux tracés par l'enfant s'éteignit à moitié.
+La lumière éclata,
+le cadre s'écrasa vers l'intérieur,
+et le trait d'un œil que l'enfant venait de dessiner s'éteignit à moitié.
 
-L'enfant hurla.
+L'enfant hurla. Une femme de Hazran serrait cet enfant contre elle, et ne put, elle non plus, ravaler ses sanglots. Luhai n'arrivait même plus à jurer, et Sern faillit lâcher le panneau d'enregistrement qu'il tenait. Le panneau d'enregistrement fit un demi-tour dans sa main avant d'être rattrapé.
 
-La femme de Hazran qui le tenait contre elle ne put retenir ses propres sanglots. Luhai ne parvint même plus à jurer, et Sern faillit lâcher sa tablette pour la première fois.
+« Sern. »
 
-Mais l'androïde ne s'effondra pas.
+C'était Seorin.
 
-Même le corps à moitié brisé, il continua jusqu'au bout à couvrir les enfants derrière lui.
+« La brèche, derrière. Combien sont sortis ? »
+
+Sur le panneau d'enregistrement que regardait Sern, rien n'était écrit. Il regarda la brèche et compta.
+
+« Huit personnes sont sorties. »
+
+« Les enfants ? »
+
+« La moitié d'entre eux est sortie. »
+
+« Le reste, vite. »
+
+Seorin poussa la personne suivante.
+
+Cet androïde ne s'effondra pas. Même le corps à moitié brisé, il continua jusqu'au bout à couvrir d'abord les enfants derrière lui. La lumière qui fuyait de son plastron enfoncé éclairait le visage de l'enfant debout derrière.
 
 Puis, très brièvement, il regarda en arrière.
 
-Sion ne sut pas dire à qui s'adressait ce regard. À l'enfant, aux autres androïdes, ou à tout cet endroit.
+L'un de ses yeux optiques était à demi éteint. L'autre passa, une fois, sur les enfants, sur les autres androïdes, et jusqu'aux gens collés au mur.
 
-Mais une chose était certaine : c'était un regard qui vérifiait jusqu'au dernier instant.
+Puis il regarda de nouveau devant lui.
 
-Avait-il protégé ? Restait-il encore quelqu'un ?
+L'instant suivant, ce corps pencha de nouveau vers l'avant et s'effondra avec une unité ennemie qu'il tenait jusqu'au bout.
 
-L'instant suivant, son corps pencha de nouveau vers l'avant et s'écroula avec l'individu ennemi qu'il tenait jusqu'au bout.
+Il y eut le bruit de l'effondrement. Sion l'entendit. C'était le bruit du métal qui touche le sol, et dedans, il n'y avait aucun bruit pour le trait d'œil encore allumé qui s'éteignait. Seule la lumière s'en alla.
 
-Sion sentit quelque chose se déchirer en lui.
+L'enfant qui avait dessiné les yeux étroits détacha son visage de la poitrine de Han Jiwoo, regarda de ce côté, puis l'y enfouit de nouveau.
 
-Ce n'était pas le son d'une arme qui se brisait. C'était le son d'un être qui venait de recevoir un visage des mains d'enfants, qui avait touché son propre visage pour la première fois, et qui se détruisait devant ceux qui le lui avaient donné.
+La Légion de Serakion déferlait toujours.
 
-Et plus douloureux encore que cette horreur, il y avait le fait que la raison de cet acte était trop claire.
+D'un côté, on avançait au même intervalle ; de l'autre, on tenait, chacun debout à une place différente.
 
-Les enfants qui leur avaient donné un visage. Les gens qui avaient fini par les regarder. Ceux qui leur avaient dit qu'ils n'étaient pas vides.
+Dans la place laissée vide par celui qui était tombé, l'androïde d'à côté se décala d'un demi-pas. C'était une largeur qui cachait d'un seul corps l'enfant de derrière et l'enfant du côté de l'androïde tombé.
 
-Cette raison simple faisait bouger ces corps jusqu'au bout.
+Han Jiwoo regarda cette largeur. Deux enfants, un androïde. Quand elle serra plus fort l'enfant contre sa poitrine, l'enfant ne put plus respirer, et elle relâcha sa force.
 
-La légion de Serakion avançait toujours.
+« Respire. »
 
-Mais désormais, personne dans la pièce ne pouvait voir ce combat comme un simple affrontement entre androïdes.
+L'enfant respira en pleurant.
 
-Un côté avançait comme un ordre.
-
-L'autre tenait par volonté.
-
-Et cette différence était d'autant plus cruelle qu'elle venait de naître trop tard.
+Sion, la lame à la main, regarda le dos de cet androïde. Le pied décalé d'un demi-pas, le pied planté dans le sol.
 
 ---
 

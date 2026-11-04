@@ -2,7 +2,7 @@
 
 Incluso después de que el fuego prendiera por primera vez en la junta auxiliar, el trabajo de adentro no terminó ahí. No podía terminar.
 
-Mientras afuera terminaba el ajuste de cuentas con Harún y el aire del mercado de chatarra se asentaba, adentro se les fue casi la noche entera.
+Mientras afuera terminaba el ajuste de cuentas con Harún y el aire del mercado de chatarra se asentaba, adentro no pudieron apartar las manos del trabajo.
 
 Sion, aun con la brasa de su mano un poco retirada hacia atrás, seguía recordando aquel temblor que, hacía un momento, se había enlazado brevemente dentro del casco.
 
@@ -78,8 +78,6 @@ Aka no volvió a desprender el molde receptor; con cuidado, eligió fijarlo all�
 —Esto se queda.
 Lo dijo ella.
 —Vamos a ver si se enfría.
-
-A Sion esas palabras le pesaron de un modo extraño.
 
 Hasta ahora habían mirado si funcionaba. Ahora mirarían si se mantenía.
 
@@ -167,8 +165,6 @@ Y entonces, por primera vez, habló como alguien que no piensa ir más allá por
 
 —Hasta aquí.
 
-Fue una declaración corta, pero firme.
-
 Al oírlo, Sion sintió, antes que el hecho de que el trabajo de adentro se detenía, que ahora hacía falta el afuera.
 
 Más material, un metal más adecuado, tiempo. Y las manos de la gente que vivía afuera.
@@ -203,7 +199,7 @@ A Sion eso no le gustaba. No le gustaba, pero lo necesitaba.
 
 Y a la gente de aquí ni siquiera le disgustaría. Juntar lo roto y venderlo era la forma de vivir de este sitio, y Sion lo había aprendido en esos días.
 
-Al oír aquello, Sion estuvo a punto de sonreír apenas.
+Sion volvió a pensar en lo que había dicho Aka, «si no se hubiera roto, no lo venderían», y estuvo a punto de sonreír apenas.
 
 Al final, otra vez afuera. Pero esta vez no hacía falta cuidarse las espaldas.
 
@@ -228,8 +224,6 @@ Contar lo que se acaba y contar lo que hay que llenar no eran la misma cuenta.
 Los tres salieron de nuevo afuera.
 
 El aire de afuera era más áspero que el de adentro, pero ya no era tan desolador como antes, porque lo que había que hacer se había vuelto claro.
-
-Hazran ya no era un sitio del que irse. Se había vuelto un lugar donde quedarse un poco más y reunir lo necesario para salvar este barco.
 
 ---
 

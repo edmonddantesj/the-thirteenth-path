@@ -62,7 +62,7 @@ Sion said.
 
 The outside hand looked at the head at the very end for a long time.
 
-"That's an alignment error."
+"That is an alignment error."
 
 "Could be. Or not."
 
@@ -98,7 +98,7 @@ Luhai lifted his head and asked.
 
 The outside hand turned and looked at the middle one, but its head was facing forward again.
 
-"Reflex movement."
+"It is a reflex movement."
 
 The outside hand said.
 
@@ -114,13 +114,13 @@ During Han Jiwoo's brief silence, the little child's hand moved inside hers, and
 
 "We should say we don't know."
 
-No one argued. The outside hand's optical eyes went still once, then looked from the android in the middle to Han Jiwoo in turn. It said nothing.
+The outside hand's optical eyes went still once, then looked from the android in the middle to Han Jiwoo in turn. It said nothing.
 
 The old machine came to the sector entrance again. This time it did not stop; it went in.
 
 As the first held its breath, the second turned its head from the gap toward the sector, and the Hazran people pressed themselves to the wall.
 
-The old machine did not go all the way up to the androids; it stopped in the middle of the sector, five steps away. It stood a moment on one foot, then slowly raised its hand—not to shoulder height, not to waist height, but in between. The palm faced neither up nor down, but sideways. It held its hand there.
+The old machine did not go all the way up to the androids; it stopped in the middle of the sector, five steps away. It stood still a moment, then slowly raised its hand—not to shoulder height, not to waist height, but in between. The palm faced neither up nor down, but sideways. It held its hand there.
 
 There was no sound.
 
@@ -198,7 +198,7 @@ The little child came to the side of the plate, looked at the standing stone, an
 
 The child didn't touch the stone again.
 
-Just then quick footsteps came from the gray route, with the sound of the old machines' feet. What came in was an outside hand that was not usually in the hidden level, come in from outside. It stopped and spoke.
+Just then footsteps came from the gray route, quicker than the old machines' steps. What came in was another outside hand, one that was not usually in the hidden level, come in from outside. It stopped and spoke.
 
 "Movement up top's gotten faster. The guide-line intervals changed, and the beat they block on is different too."
 

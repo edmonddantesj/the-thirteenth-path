@@ -40,8 +40,6 @@ Sern spoke very low.
 
 "Because if it is all over, there is no price left to keep rolling."
 
-It was dry, and that made it sound all the more like Hazran.
-
 Seorin threw her gaze out past the railing.
 
 The work inside still showed no sign of ending.
@@ -87,8 +85,6 @@ Luhai asked.
 Sern looked toward Harun for a moment before he spoke.
 
 "It means that, by his own way of thinking, he still believes he is right."
-
-Seorin felt that it grated on her somehow, and yet it was not wrong.
 
 Harun was hateful. But he was not flat. That made him a more tiring kind of person.
 
@@ -170,7 +166,7 @@ Seorin heard something strange in that.
 
 *This place*, he had said.
 
-The kid was born and raised here. He knew the names of every alley, read the price boards, knew which stall hid what. For a kid like that to say his own home was too good to see for just a day did not add up.
+The kid had grown up here. He knew the names of every alley, read the price boards, knew which stall hid what. For a kid like that to say his own home was too good to see for just a day did not add up.
 
 *Too good to waste* is something people say when they are about to leave.
 
@@ -226,8 +222,6 @@ He carried the mark of having once, somewhere, come to remember things different
 
 She did not ask. Here, not asking seemed to be the courtesy, and Seorin had received that courtesy a few times herself.
 
-His words stayed strangely long.
-
 Seorin looked down past the railing again, without a word.
 
 The arena being repaired, the tents going up again, the market slowly coming back to life. And the people who still had not come out from inside.
@@ -243,8 +237,6 @@ The sun began to slant.
 Somewhere came the sound of tent ropes being untied. It came from one place, and soon from another. It was a sound that had not been there until a while ago.
 
 Seorin did not know what that sound was. She had watched this market all day, and that sound was new.
-
-Instead, the air of a place where they would, at least once before leaving, properly stay was settling in little by little.
 
 ---
 

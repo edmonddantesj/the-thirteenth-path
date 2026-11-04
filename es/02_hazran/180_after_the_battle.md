@@ -1,188 +1,168 @@
-# Capítulo 180 — Lo que se vio tras la batalla
+# Capítulo 180 — Cuando terminó la batalla
 
-Cortada la ola del frente,
-y aun después de que el último androide cayera al fin de rodillas,
-el aire del estrato viejo tardó un buen rato en salir de la batalla.
+Aun después de que se cortara la ola del frente y el último androide cayera de rodillas, la gente del estrato viejo siguió un buen rato dentro del combate.
 
-Alguien seguía pensando que aún vendría otro ataque,
-a alguien solo ahora le fallaban las piernas,
-alguien, abrazando a los niños que apenas habían dejado de llorar,
-aguantaba oír demasiado fuerte el sonido de su propio corazón.
+Alguien no lograba apartar los ojos de la boca del corredor; alguien, apoyado en la pared, sintió que se le aflojaban las piernas y resbaló hasta quedar sentado. Y alguien más, abrazando a un niño que ya había dejado de llorar, escuchaba el latido de su propio corazón.
 
-Pero, aun en medio de todo eso,
-las miradas de la gente volvían una y otra vez al mismo sitio.
+Las manos estaban ocupadas, pero los ojos volvían una y otra vez al mismo sitio.
 
 El último androide.
 
-Aún sin nombre,
-aún sin poder definirse como nada,
-pero ya nadie lo veía como una simple fuerza residual.
+Han Jiwoo seguía sentada a su lado. Había retirado la mano de la superficie junto a la cara, pero las rodillas seguían en el suelo. Donde se le había clavado la esquirla sangraba un poco, y aun así ella no lo miraba.
 
-Han Jiwoo seguía sentada a su lado.
+El trazo de la boca corta que el niño le había repasado hacía un rato seguía encendido, tenue. Uno de los ojos ópticos seguía apagado, y el que quedaba solo hacía temblar su luz a intervalos. Cada vez que temblaba, los ojos de Han Jiwoo iban hacia allí.
 
-Había retirado con cuidado la mano de la superficie junto al rostro,
-pero guardaba un sitio cercano para poder volver a sujetarlo en cualquier momento.
+Sion miraba la escena desde un poco más lejos.
 
-La corta línea de boca que el niño le había retrazado hacía un rato quedaba muy tenue,
-y un ojo óptico, casi apagado, solo agitaba luz a intervalos.
+En el suelo yacían cinco. La boca sonriente, los ojos redondos, los ojos estrechos, la boca fruncida y la boca torcida estaban todos apagados. Sion miró a los cinco uno por uno, y después miró al que estaba de rodillas.
 
-Pero incluso esa reacción débil
-se sentía ahora demasiado grande para todos los que había en la sala.
+Ater volvió de la boca del corredor.
 
-Porque significaba que aún seguía aquí.
+—He bloqueado la boca del corredor. He derribado la parte de arriba. Solo queda la brecha de la retaguardia.
 
-Sion miraba esa escena desde un sitio algo apartado.
+Seorin asintió.
 
-La mirada con que se ve a una persona tras terminar el campo de batalla
-y la mirada con que se ve a un ser que aguantó contigo en mitad del campo eran, sin duda, distintas.
+—Saldremos por ahí.
 
-Hasta hacía nada, él mismo
-estaba viendo cuánto aguantaría ese ser,
-hasta dónde frenaría,
-cómo iría cambiando.
+Ater no dijo nada más y cruzó la sala. Al pasar junto a los cinco del suelo no aflojó el paso. La mirada, en cambio, sí se fue hacia ellos.
 
-Pero ya no era así.
+Luhai volvió de la boca del corredor. Al cruzar entre las unidades enemigas caídas no las había mirado ni una sola vez, pero ante los cinco de este lado el paso se le hizo más lento, y se detuvo frente a los ojos redondos. Se puso en cuclillas y miró el brazo abierto que se había quedado rígido. No lo tocó. Luego se levantó y volvió.
 
-Lo que Sion veía ahora
-era un ser con quien había que enfrentar juntos lo que venía.
+Seorin, al regresar después de ordenar la retaguardia, miró un buen rato al último androide sin decir nada. No se cruzó de brazos; tenía las dos manos caídas a los costados. Esas manos se cerraron una vez y se abrieron.
 
-Esa diferencia pesaba más de lo que había creído.
+Ater recorrió con la mirada el corredor destrozado y los rastros del combate, y habló en voz baja.
 
-Seorin, tras terminar de ordenar la retaguardia y volver,
-miró un buen rato al último androide sin decir nada.
+—La próxima vez vendrán con más fuerza.
 
-Ella no era, de por sí, de las que
-ponen fácil la emoción en la cara en una escena así.
+Seorin asintió una vez. Una máquina vieja se volvió hacia la boca del corredor, se quedó de pie y ya no se movió de allí.
 
-Pero esta vez,
-que mantuviera la mirada tanto tiempo ya decía mucho de por sí.
+Sern habló muy bajo.
 
-Ater, tras repasar la línea de movimiento rota y las huellas del combate, dijo bajo.
+—Hay que registrarlo. No se trata solo de cómo fue el combate. También hay que anotar las condiciones del cambio.
 
-—La próxima vez viene más grande.
+Desplegó el panel de registro. Estaba la línea que había tachado hacía un rato, y empezó a escribir debajo. Mientras escribía, miró una vez hacia los niños. Mientras escribía, miró una vez a los cinco del suelo. Mientras escribía, miró una vez el lugar donde había caído la máquina vieja. Cada vez se añadía una línea.
 
-Ante esas palabras, nadie lo rebatió.
+Ater bajó la vista al panel de registro.
 
-Al contrario, todos lo sabían ya.
+—¿Cuántas son?
 
-Esta fue la primera grieta.
-Serakion, sin duda, aprenderá de este fracaso.
-No permitirá otra vez, así de fácil, un hueco del mismo modo.
+Sern leyó, con la vista en el panel de registro.
 
-Y precisamente por eso,
-qué se había visto aquí, en este sitio, se volvió importante.
+—Están las caras. Las palabras de un niño. Un paso.
 
-Sern dijo muy bajo.
+—¿Son tres?
 
-—Hay que registrarlo. No solo el patrón de combate… también las condiciones del cambio.
+—La cuarta está allí.
 
-Esas palabras no eran un simple informe.
+Sern señaló con el mentón el lugar donde había caído la máquina vieja. Ater miró hacia allí, pero no asintió. Sern no llegó a escribir la cuarta y se quedó con el panel de registro en la mano, mirando aquel lugar.
 
-Qué los había sacudido.
-Qué los había hecho escuchar.
-Qué había empujado al último androide hasta aquí.
+Dos máquinas viejas fueron hasta allí. En ese lugar había dos unidades de Serakion y un cuerpo doblado junto con ellas en un solo amasijo.
 
-Los rostros de los niños.
-La palabra de un niño.
-El sacrificio de las máquinas viejas.
-La disposición que pone primero lo que hay que proteger.
+Las dos separaron de aquel amasijo lo que era de los suyos, y separarlo les llevó mucho rato. Los brazos que rodeaban a las unidades no se soltaban, y solo cedieron después de partir una articulación. Con el chasquido, un niño se tapó los oídos.
 
-Todo eso
-se había vuelto algo que ahora había que considerar sin falta al preparar la próxima batalla.
+Las dos levantaron el cuerpo. Una lo tomó de los hombros y la otra de las piernas; lo llevaron hacia la pared y lo dejaron junto a los cinco del suelo, alineado con los cinco. Después de dejarlo, las dos se quedaron de pie en ese sitio.
 
-Han Jiwoo, aun oyendo esas palabras, no lograba alzar fácil la cabeza.
+El ojo óptico del último androide siguió a esas dos. Desde el lugar donde había caído hasta la pared, hasta el momento de dejarlo. La mano apoyada en el suelo se movió un poco hacia allí, el ancho de un dedo. Ahí se detuvo. Han Jiwoo miró esa mano.
 
-Ella ahora no podía alegrarse,
-ni podía sentir alivio.
+Luhai, que lo estaba mirando, le habló a Seorin.
 
-Sobrevivieron.
-Cierto.
-Pero demasiado se había perdido como precio de esa supervivencia.
+—La de allá… ¿la dejamos ahí?
 
-Ese hecho le quedaba primero en el pecho.
+—Déjala.
 
-Entonces,
-el niño que hacía un rato le había retrazado el rostro
-se acercó con cuidado y se sentó junto a Han Jiwoo.
+Lo dijo Seorin.
 
-Y, mirando al último androide, preguntó muy bajo.
+—Al salir la volvemos a ver.
+
+Luhai asintió y luego fue hacia las dos máquinas viejas y se quedó de pie a su lado. No dijo nada.
+
+Han Jiwoo oyó esas palabras, pero no levantó la cabeza.
+
+Se levantó, fue hacia los cinco del suelo y se puso en cuclillas delante de la boca sonriente. El peto estaba abollado y dejaba ver el interior, y en el suelo había un fragmento pequeño que se había desprendido de dentro. Era del tamaño de media palma: la superficie por donde pasaba el trazo de la boca. Lo recogió y, ya recogido, lo sostuvo un buen rato.
+
+Luego se lo guardó en el bolsillo interior de la ropa. Después de guardarlo, apretó una vez por encima.
+
+Luhai lo vio, pero no dijo nada.
+
+Ella volvió junto al último androide y se sentó otra vez.
+
+En ese momento, el niño que hacía un rato le había repasado la cara se acercó con cuidado y se sentó al lado de Han Jiwoo.
+
+El niño apartó con la mano las esquirlas del suelo y se sentó. Han Jiwoo lo vio y barrió una vez más con la mano el suelo bajo las rodillas del niño.
+
+El niño, mirando al último androide, preguntó muy bajito.
 
 —Ese… ¿tiene que volver a pelear?
 
-Ante esa pregunta,
-el aire de la sala pareció detenerse un momento.
+Las manos de la sala se detuvieron. Un hombre que sostenía el brazo de una persona herida se quedó quieto en esa postura, y la mano de Sern también se detuvo sobre el panel de registro. Seorin miró al niño.
 
 Nadie respondió enseguida.
 
-Porque no era una simple pregunta.
+Han Jiwoo respondió muy bajo, solo después de un buen rato.
 
-La pregunta de si se podía volver a poner a ese ser en el campo de batalla.
-La pregunta de si se le haría usar de nuevo ese cuerpo.
-Y, a la vez,
-la pregunta de si ese ser debía ahora cruzar con nosotros lo que venía.
+—No lo sé.
 
-Han Jiwoo, solo mucho después,
-respondió muy bajo.
+—Pero lo de esta vez ya no puede ser algo que no pasó.
 
-—No lo sé. Pero esto ya no puede ser algo que no pasó.
+Cuando el niño, tras oír eso, miró al androide, el ojo óptico del androide se volvió hacia el niño. El niño levantó la mano y la bajó.
 
-Esas palabras, por extraño que parezca,
-a nadie de la sala le sonaron a la ligera.
+Una mujer de Hazran recogía las cosas que los niños habían dejado atrás. Trozos de tela, un cuenco de agua, el zapato suelto de alguien.
 
-Esto ya no puede ser algo que no pasó.
+Buscó al dueño del zapato mirando los pies de los niños uno a uno, y se lo puso a un niño descalzo. Mientras se lo ponía, el niño seguía mirando al androide. La mujer le apretó una vez el tobillo, lo soltó y le ató el cordón dos veces.
 
-Era cierto.
+Sern volvió a escribir, y Seorin apartó los ojos del niño y miró al último androide.
 
-Ya todos lo habían visto.
-A qué reacciona ese ser.
-Qué quiere proteger.
-Qué perdió y cómo cambió.
+El androide todavía no podía moverse bien. Seguía de rodillas, en la misma postura.
 
-Así que la próxima batalla
-no podía prepararse del mismo modo que antes.
+La mano apoyada en el suelo soltó la esquirla que apretaba. La esquirla sonó al caer al suelo, y el niño se sobresaltó con el ruido. La mano del androide quedó vacía, y esa mano vacía siguió apoyada en el suelo, tal cual.
 
-Sion, pensando en ese hecho, miró al último androide.
+Seorin miró al androide una vez más. Y luego miró a Han Jiwoo.
 
-Él aún no lograba moverse bien,
-y no sabría del todo qué cambio ocurría dentro de sí.
-
-Pero ya,
-su sola existencia estaba cambiando la estrategia de todos.
-
-Dónde poner a cada niño.
-Con quién juntarlo.
-Cómo hacer moverse a las máquinas viejas.
-En qué sitio poner a Han Jiwoo.
-
-En el centro de todas esas preguntas
-había entrado ya ese ser.
-
-Y eso no era una simple reorganización de fuerzas.
-
-Qué protege esta lucha,
-ese sentido mismo se estaba reordenando poco a poco en otra forma.
-
-Seorin, tras mirarlo una vez más,
-dijo corto.
+Fue breve.
 
 —Lo vamos a salvar.
 
-Esas palabras fueron cortas como una orden,
-pero, por extraño que parezca, sonaron como una declaración.
+Cuando Han Jiwoo levantó la cabeza, Seorin ya se había dado la vuelta. De espaldas, levantó una vez la mano, y esa mano señaló hacia la boca del corredor.
 
-Hay que salvarlo.
-No por ser fuerza.
-Sino porque hay que llevar la verdad que dejó esta batalla
-hasta la próxima lucha.
+—Dos de guardia. Por turnos.
 
-Sion, al oír esas palabras, exhaló callado.
+Luhai y un hombre de Hazran fueron hacia allí.
 
-Y, por primera vez,
-sintió nítido que la próxima batalla no sería solo una batalla más grande,
-sino una batalla de un sentido del todo distinto.
+Lo dijo Sern.
 
-Lo que vio en él tras la batalla
-ya había empezado a cambiarlos a todos.
+—El relevo será dentro de media vuelta.
+
+Seorin asintió.
+
+Ater fue a la boca del corredor y se sentó encima del montón de unidades enemigas caídas. Se sentó mirando hacia fuera. A su espalda estaba la sala, pero no se volvió.
+
+Sion fue hacia el hombre que estaba de pie delante de la brecha de la retaguardia. Era el hombre al que hacía un rato había agarrado de la manga.
+
+El hombre seguía de pie, apoyado en la pared. Cuando Sion le puso la mano en el hombro, el hombre se volvió.
+
+—Siéntese.
+
+El hombre se deslizó por la pared hasta quedar sentado. Ya sentado, se miró la mano: las yemas de los dedos habían arañado la pared y sangraban.
+
+—…Lo siento.
+
+—No pasa nada.
+
+Lo dijo Sion. Se sentó también junto al hombre. Sentado, miró a los seis del suelo. Los cinco y, tendida a su lado en la misma fila, una máquina vieja. El hombre también miró hacia allí, y los dos se quedaron así un buen rato.
+
+—Puede quedarse aquí.
+
+Lo dijo Sion. El hombre asintió, pero no despegó la espalda de la pared.
+
+Han Jiwoo apoyó la mano sobre el bolsillo interior y luego la llevó cerca del hombro del último androide. No del lado torcido, sino del que quedaba. No llegó a tocar. La dejó ahí, sin tocar.
+
+Una máquina vieja se dio la vuelta en la boca del corredor, avanzó tres pasos hacia donde estaban Han Jiwoo y el androide y se detuvo. Al bajar el cuerpo hasta la altura del androide arrodillado, sus viejas articulaciones crujieron. Se quedó en esa postura.
+
+Sion miró a los tres. El que estaba de rodillas, Han Jiwoo sentada a su lado y la máquina vieja agachada a tres pasos.
+
+En el panel de registro de Sern se añadió una línea más.
+
+Más allá de la estructura derrumbada, el sonido de la línea de circulación al girar se oía un poco más cerca que antes.
 
 ---
 

@@ -123,7 +123,7 @@ Sion nodded.
 
 "And Ater?"
 
-"If anything wrong comes out between the two, cut it off,"
+"If anything wrong comes out between the two of us, cut it off,"
 Seorin answered.
 
 Kael, without asking anything more, was already running his eyes over the booths around them and the people's hands. Who touched the goods directly, who only talked and then stepped back, who was not the owner here but acted like one. They were the eyes of a man for whom a market was nothing new.
@@ -194,7 +194,7 @@ The very next moment, another hand clamped over the child's mouth.
 
 It was a low, rough voice.
 
-People's eyes gathered on one spot for a moment, then scattered as if nothing had happened. Everyone pretended not to have heard, too quickly. That was the surer reaction.
+People's eyes gathered on one spot for a moment, then scattered as if nothing had happened. Everyone pretended not to have heard, too quickly.
 
 In that short silence, Sion knew.
 

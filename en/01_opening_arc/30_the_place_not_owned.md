@@ -56,8 +56,6 @@ Sion answered.
 
 "Which is why it's even more out."
 
-The line was less a jab than a settling of the matter.
-
 At the end of that exchange, Kael cut in for the first time.
 
 "Elia,"
@@ -158,7 +156,7 @@ Seorin glanced at Sion.
 
 "She'd have known your habits."
 
-It was short, but it was enough. The habit of his hand going to his pocket first whenever he was stuck. If she had slipped it in ahead of time, counting even on a moment like this one, then the lack of explanation was, if anything, just like her.
+The habit of his hand going to his pocket first whenever he was stuck. If she had slipped it in ahead of time, counting even on a moment like this one, then the lack of explanation was, if anything, just like her.
 
 Han Jiwoo looked at the paper once more and said,
 
@@ -271,7 +269,7 @@ Sion put the folded paper back in his inside pocket. Once it was in, he pressed 
 
 Thin.
 
-It had been like that when he first put the fragment in, at the dock. Then it had been one thin thing; now it was one thin thing with a sheet of paper added.
+It had been like that when he first put the fragment in, at the dock. Then it had been one thin thing in the retrieval pocket; now it was one thin thing in his inner pocket with a sheet of paper added.
 
 That was all that had grown.
 

@@ -285,7 +285,7 @@ Only then did Harun look at Sion.
 
 "Don't count that."
 
-Sion had heard those words before. On the first day the man had said the very same thing. That if you counted, you'd also know when the last time would be.
+Sion had heard those words before. Earlier the man had said the very same thing. That if you counted, you'd also know when the last time would be.
 
 Back then he had thought it was about the number of runs.
 

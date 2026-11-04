@@ -39,15 +39,13 @@ En entendant cela, Han Jiwoo jeta pour la première fois un coup d'œil de côt�
 
 « Pas mal. »
 
-C'était bref. Mais Sion l'entendit étrangement fort. Que, dans une partie comme celle-ci, Han Jiwoo accepte aussitôt le calcul d'une autre main, cela voulait dire au moins que la ligne que Sern voyait en ce moment était digne de confiance.
-
 Sion serra plus fermement la braise au creux de sa main.
 
 Les yeux de Sern, l'engin de Kael, le pilotage de Han Jiwoo : tout commençait désormais à se régler sur cette seule braise. Non plus selon un tableau de points tiré de la course, mais selon un dispositif destiné à faire sortir vivante la main qui tenait le vrai.
 
 Derrière, l'engin rouge sombre reprenait sa ligne.
 
-Aguerri, il l'était. Il avait perdu le flot deux fois déjà, et pourtant il n'était pas tout à fait mort. Un panneau de l'engin avait été arraché, l'épaule du passager arrière avait été violemment secouée, mais le pilote avant avait tenu la ligne jusqu'au bout. Seulement, il ne suivait plus avec l'aisance du début. Les équipes portant la braise étaient maintenant deux, et c'était à lui de juger laquelle déchirer d'abord.
+Aguerri, il l'était. Il avait perdu le flot deux fois déjà, et pourtant il n'était pas tout à fait mort. Un panneau de l'engin avait été arraché, l'épaule du passager arrière avait été violemment secouée, mais le pilote avant avait tenu la ligne jusqu'au bout. Seulement, il ne suivait plus avec l'aisance du début. Les équipes qui portaient peut-être la braise étaient maintenant deux, et c'était à lui de juger laquelle déchirer d'abord.
 
 « Ils mordront d'abord l'équipe de Han Jiwoo. »
 Sern l'avait dit à voix basse.
@@ -207,11 +205,6 @@ Pour toute réponse, Sion serra la braise plus profondément contre lui.
 Derrière, l'engin rouge sombre se recollait,
 sur le côté, l'engin de Kael et Sern prenait l'angle pour les rejoindre en bas,
 et plus haut, les mains extérieures à l'arène commençaient à flairer de plus en plus la ligne de sortie.
-
-Et Sion sut.
-
-Ce qui venait n'était pas une simple jonction.
-À partir de maintenant, les deux équipes qui tenaient le vrai devaient décider de la façon de fuir ensemble.
 
 Sion regarda une fois la ligne vide, devant.
 

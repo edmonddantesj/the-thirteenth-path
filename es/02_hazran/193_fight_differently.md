@@ -1,258 +1,255 @@
 # Capítulo 193 — Pelear de otra manera
 
-En el interior de Serakion,
-en el sitio que quedaba tras cruzar la segunda puerta,
-el grupo de Sion se detuvo por primera vez y recobró el aliento un momento.
+En el sitio que quedaba tras cruzar la segunda puerta, el grupo se detuvo.
 
-La luz del fondo del corredor se agitó una vez,
-y enseguida se realineó, como si nada hubiera pasado.
+Sion apoyó la espalda en la pared y respiró largo. Mientras Sern dejaba el panel de registro sobre las rodillas, Ater se miró el arañazo del tobillo y Kael giró el hombro. El nudo del último androide, que Han Jiwoo revisó, seguía en su sitio, y las dos máquinas viejas no se sentaron: se quedaron de pie, mirando hacia el fondo del pasillo.
 
-La siguiente puerta ya esperaba,
-pero el cuerpo pidió primero un compás.
+La luz del pasillo vaciló una vez y volvió a alinearse; era una luz como si no hubiera pasado nada.
+
+—¿Cuánto?
+
+Lo preguntó Seorin.
+
+—Lo justo para un descanso.
+
+Lo dijo Sern.
+
+Han Jiwoo se sentó junto al último androide con la espalda contra la pared, pero el androide no se sentó.
+
+—Siéntate.
+
+Se sentó. Doblar las rodillas le llevó tiempo y, mientras tanto, el eje del hombro sonó, pero ella no contó ese sonido. Sion miró a los dos y se dejó la hoja sobre las rodillas.
+
+Nadie descansó mucho.
 
 ---
 
-Detrás de una línea de mantenimiento estrecha, en el interior de la zona de la resistencia,
-había dos restos de androides, rotos hace un momento al empujar hacia adentro, apartados uno junto al otro.
+La capa oculta, detrás de la estrecha línea de mantenimiento.
 
-Quedaba la huella de una forma humana.
-El ángulo del brazo y la línea del cuello,
-un resto de imagen, como si al caer siguieran hasta el final apuntando a algún sitio.
+Allí yacían, uno junto al otro, los restos de dos androides que poco antes habían irrumpido por la línea gris. La primera mano de recogida había quebrado a uno; la segunda había empotrado al otro contra la pared con la pierna estirada, y la barra de hierro doblada de Luhai le había entrado en la rodilla. Los dos, caídos así, ya no se movían.
 
-Y algo apartado,
-había otro más.
+El ángulo de los brazos, la línea del cuello: la forma humana seguía ahí, intacta. La mano de uno de los restos estaba tendida hacia la pared; era la mano que se había vuelto hacia allí al caer.
+Hacia donde habían estado los niños.
 
-No era un androide.
-Tampoco tenía forma humana.
+Un poco más allá había otra cosa.
 
-Era más duro,
-más cerrado,
-hecho desde el principio, sin querer parecerse a nadie,
-para dejar solo la función.
+No era un androide ni tenía forma humana: era más duro y más cerrado. Donde debían ir los brazos no tenía brazos, sino una placa de empuje y una placa de cierre, y la mitad inferior faltaba, cortada. Las máquinas viejas lo habían arrastrado desde el vertedero del borde de la capa oculta; eran cosas que Serakion guardaba aparte en cada estrato.
+Algo desechado antes de completarse.
 
-Las máquinas viejas lo habían arrastrado
-desde el vertedero al borde de la zona de la resistencia.
+El niño del destornillador, el niño pequeño y el niño de ojos bajos estaban a buena distancia. Les habían dicho que no se acercaran, pero no se daban la vuelta.
 
-Un descarte fallido de la serie de robots
-que Serakion dispone aparte en cada estrato.
-Un resto abandonado sin llegar a completarse.
+Uno de ellos, el niño del destornillador, preguntó muy bajito.
 
-La mitad inferior ya estaba cortada,
-y hasta por la forma se notaba distinto de los androides.
+—Esos también… ¿sentían dolor?
 
-Los niños miraban esos restos de lejos.
+Luhai abrió la boca y la cerró. Miró los restos, el androide al que él mismo acababa de quebrarle la rodilla y la mano tendida hacia la pared, y soltó el aire, bajo.
 
-Aunque ya les habían dicho que no se acercaran,
-no lograban darles la espalda del todo.
+—No te acerques.
 
-Uno de los niños preguntó muy bajito.
+La voz no le salió áspera. El niño asintió y, aun así, miró la línea de la cara del androide, pero en la superficie lisa no había nada. Se miró la mano, sin tierra, y se la frotó en el pantalón.
 
-—Esos… ¿también sentían dolor?
+Aka estaba de pie un poco más allá, sin decir nada. No apartaba los ojos de la línea cortada del cuello, del hombro desgarrado, de los dedos medio enterrados en el polvo, y tampoco intentaba apartarlos.
 
-Luhai abrió la boca y la cerró.
-
-Bastaba con soltarles corto que no se acercaran a los restos,
-que se cortaban, y listo.
-
-Pero esa frase no le salió enseguida.
-
-Él mismo, hacía nada,
-vio con claridad que esos eran la fila que venía a matarlos.
-Y los rompió con sus propias manos.
-
-Y aun así,
-al ver aquellas formas cortadas y alineadas,
-no le brotaba fácil un insulto.
-
-Luhai soltó bajo el aliento.
-
-—No se acerquen.
-
-Dijo eso,
-pero la voz no le salió tan áspera como esperaba.
-
-Un niño asintió y aun así
-siguió mirando la línea del rostro del androide roto.
-
-La boca sonriente dibujada con tierra ya se habría borrado hace mucho,
-pero, por algún motivo, ante ese resto
-surgía primero la sensación de que quizá la hubo.
-
-Algo apartado,
-Aka también miraba aquel cuadro.
-
-No dijo nada.
-
-Solo miraba largo, en silencio,
-la línea del cuello cortada,
-la junta del hombro desgarrada,
-la forma de unos dedos medio enterrados en el polvo de arena.
-
-Era espantoso.
-Y aun así, el ánimo no se le movía hacia apartar la vista.
-
-Raro,
-como si algo perdido hacía muchísimo tiempo
-se le pusiera de nuevo delante con esta forma rota.
-
-No podía explicar por qué.
-
-Solo sentía pena,
-y una sensación de que ya era demasiado tarde.
-
-Luhai se acercó al lado y miró a Aka una vez.
+Luhai fue a ponerse junto a ella.
 
 —¿Qué te pasa?
 
-Aka tardó mucho en despegar la vista.
+Aka tardó mucho en apartar la mirada.
 
 —No lo sé.
 
-Luhai no preguntó más.
+Luhai se agachó a examinar la superficie de corte del robot de Serakion: a diferencia de la de los androides, las líneas eran profundas.
 
-En cambio dobló la rodilla
-y revisó una vez la superficie de corte del robot de Serakion parado en el suelo.
+Una capa.
+Dos capas.
+Tres capas.
 
-A la manera de la serie que Serakion maneja aparte por estrato,
-su modo de ensamblaje era del todo distinto al de los androides.
-La línea de señal estaba mucho más escondida,
-y llevaba varias capas de blindaje, como previendo interferencia externa.
+Cada capa tenía su cubierta, y cuando metió un dedo, se le atascó en la segunda falange.
 
-En ese instante,
-detrás, dos máquinas viejas intercambiaron un ruido bajo.
+Detrás, las dos manos de recogida emitieron un ruido bajo. La primera estaba sentada junto a los restos de los androides, y la segunda, con la pierna estirada, junto a la superficie de corte del robot. La máquina del lado de la pared estaba de pie detrás de ellas, con el ojo óptico puesto en la cara de los restos del androide.
 
-Una estaba pegada al resto de androide,
-la otra a la superficie de corte de la máquina de Serakion.
+La primera habló, breve.
 
-Eran las máquinas que quedaban en la zona de la resistencia.
+—A los dos androides se los puede sacudir. Poco rato.
 
-Una de las máquinas viejas dijo con una voz muy corta y firme.
+La segunda señaló la superficie de corte.
 
-—A los dos androides se los puede sacudir. Brevemente.
+—Esto es distinto. Más hondo. De la misma manera no se quiebra.
 
-La otra, señalando la superficie de corte del robot de Serakion, siguió.
-
-—Este es distinto. Más hondo. Con el mismo método no se quiebra.
-
-Luhai preguntó, mirando la superficie de corte.
+Luhai preguntó sin apartar la vista de la superficie de corte.
 
 —¿Hasta dónde se puede?
 
-La primera máquina respondió corto.
+La primera respondió.
 
-—El androide, el compás. Un instante.
+—Al androide, el compás. Un instante.
 
-La segunda máquina, con la mano en la superficie de corte del robot de Serakion, dijo.
+La segunda habló con la mano sobre la superficie de corte.
 
-—Eso no se detiene. Retraso. Desvío. Lectura errada del camino.
+—Eso no se detiene. Retraso. Desvío. Lectura errada de la ruta.
 
-A los androides, con la interferencia localizada de las máquinas,
-se les podía crear un breve colapso de compás o un temblor de reacción.
+—¿Eso es todo?
 
-La serie de robots de Serakion era distinta.
+—Así es el descarte fallido.
 
-Más cerrada,
-una estructura hecha previendo la interferencia.
+Lo dijo la segunda.
 
-Detenerla del todo era difícil.
-En cambio, solo muy brevemente
-se podía retrasar su juicio o hacerle leer mal la ruta.
+—El producto terminado es más hondo.
 
-Luhai miró alternando los restos de androide y la superficie de corte del robot de Serakion.
+Luhai miró alternando los restos del androide y la superficie de corte. Habían entrado el mismo día por el mismo camino, pero no se quebraban por el mismo sitio.
 
-Quería decir que, aunque entraran al mismo campo de batalla,
-no se sacudían del mismo modo.
+La máquina del lado de la pared habló por primera vez.
 
-Si hasta en algo tirado como descarte fallido había tanto blindaje,
-el producto terminado sería peor.
+—Los androides, de por sí, se dejan sacudir.
 
-Al final de la línea de comunicación de atrás,
-la señal corta del lado que había entrado en Serakion se agitó una vez.
+Luhai se volvió.
 
-Ante la próxima puerta.
-Realineación reanudada.
-Refuerzo de reacción a las variables conocidas.
+—Eso lo hicieron desde el principio para que no se dejara sacudir. Eso es de Serakion. En cuanto a los androides.
 
-El otro lado también estaba aprendiendo.
+Mientras las palabras se detenían, el ojo óptico seguía en la cara de los restos.
 
-Luhai dijo bajo.
+—¿Los androides qué?
 
-—El mismo truco se acabó.
+—No lo sé.
 
-Una máquina vieja lo tomó al vuelo.
+Lo dijo la máquina del lado de la pared.
+
+—Sé que no son de Serakion.
+
+Aka lo oyó y volvió a mirar los restos.
+
+—¿Cómo lo sabes?
+
+—No lo sé.
+
+Lo dijo la máquina del lado de la pared.
+
+—Cuando nos hicieron, esa forma ya existía. Solo sé eso.
+
+Aka miró la mano de los restos tendida hacia la pared y luego se miró la suya.
+
+Al fondo, en el extremo de la línea de comunicación, una señal de dentro se agitó una vez y la primera la recibió; era una señal corta.
+
+—Ante la siguiente puerta. Se reanuda la alineación. Se refuerza la reacción a la variable conocida.
+
+—¿Qué es la variable conocida?
+
+Lo preguntó Luhai.
+
+—Ese.
+
+Lo dijo la primera.
+
+—El otro lado conoce a ese androide. Si lo ve, lo ata primero.
+
+Luhai lo dijo en voz baja.
+
+—Se acabó la misma jugada, entonces.
+
+La primera lo recogió enseguida.
 
 —Se acabó.
 
-La otra siguió.
+La segunda continuó.
 
-—Esta vez sacuden nuestras máquinas. Dos androides. Dos máquinas de Serakion. No detención, sino desajuste.
+—Esta vez sacuden nuestras máquinas. Dos unidades de androide. Dos unidades de máquina de Serakion. Nada de detener: descuadrar.
 
-Las dos máquinas viejas emitieron a la vez un sonido de interferencia bajísimo.
+La primera y la segunda emitieron a la vez un sonido de interferencia bajo, y la superficie del sensor de los restos del androide tembló débilmente, una vez. La superficie de corte del robot respondió torpe, pero algo, dentro de las capas, encajó mal una vez, apenas. Sonaba como una puerta cerrada durante mucho tiempo que se torciera una vez por dentro.
 
-La superficie del sensor del resto de androide tembló débil una vez.
-El lado de la superficie de corte de la máquina de Serakion reaccionó mucho más torpe,
-mínimamente, como una puerta largo cerrada que se traba mal desde dentro.
+La diferencia era clara: Luhai la oyó, y los niños también. El niño del destornillador dio un paso hacia allí y se detuvo cuando Luhai levantó la mano.
 
-La diferencia de reacción era clara.
-
-Una máquina vieja miró a Luhai.
+La primera miró a Luhai.
 
 —Lo enviamos. Adentro.
 
-Luhai se detuvo un momento.
+Luhai vaciló.
 
-Significaba mandar una señal al interior de Serakion.
-A las máquinas que habían entrado con el grupo de Sion.
+—Adentro lo leen todo. Si mandan una señal, el otro lado la atrapa antes.
 
-Pero eso no era fácil.
+—No la enviamos por ese camino.
 
-El interior de Serakion era el centro mismo de una estructura que quería leer toda comunicación.
-Si se enviaba una señal por un método común,
-Serakion podía captarla primero.
+Lo dijo la segunda.
 
-Las dos máquinas viejas se miraron una vez.
+La primera y la segunda se miraron y emitieron un ruido. Bajo, no largo, un sonido que Luhai nunca había oído. La máquina del lado de la pared volvió el ojo óptico hacia ese sonido y lo emitió también.
+Tres.
 
-Y emitieron un ruido bajísimo,
-y no largo.
+—¿Qué es eso?
 
-No era una comunicación común.
+Lo preguntó Luhai.
 
-Una banda de frecuencia que el sistema de alineación de Serakion no lee.
-Un viejo modo de señal que solo entienden entre máquinas viejas,
-que existía desde antes de que se hiciera Serakion.
+—Lo que se usaba antes de Serakion.
 
-El ruido fue muy corto.
+Lo dijo la primera.
 
-Androide: temblor de compás posible. Breve.
-Robot de Serakion: detención imposible. Solo retraso, desvío, lectura errada de ruta.
-Base: descarte fallido. El producto terminado puede ser más difícil.
+—El otro lado no puede oír esto. Porque es de antes de que lo hicieran.
 
-Eso era todo.
+El ruido fue corto.
+Eso fue todo.
 
-No era información perfecta.
-Como estaba leída de un descarte fallido,
-quedaba una parte que aún no se sabía: cuánto serviría en combate real.
+—¿Eso es todo?
 
-Pero era claramente mejor que no tener nada.
+—Eso es todo.
 
-Cesó el ruido,
-y una máquina vieja dijo corto.
+Lo dijo la segunda.
 
-—Llegó.
+—Lo leímos de un descarte fallido. Lo de verdad hay que ir a verlo para saberlo.
 
-Luhai asintió.
+—¿Es mejor que nada?
 
-Y por último miró una vez más los restos,
-y dijo bajo.
+—Es mejor.
 
-—Lo que haya que retirar, retirémoslo. Pero no lo tiren de cualquier modo.
+Cuando se cortó el ruido, la primera habló, breve.
 
-Nadie objetó a esa frase.
+—Ha llegado.
 
-Los niños seguían mirando algo apartados,
-y Aka solo entonces despegó la vista muy lento.
+Luhai asintió y miró una vez más los restos, la mano tendida hacia la pared. No apartó esa mano con el pie.
 
-Y el aliento de la zona de la resistencia se contuvo de nuevo.
+—¿Y esos? ¿Los de dentro?
+
+—Avanzaron.
+
+Lo dijo la primera.
+
+—Hasta delante de la tercera. Todos juntos.
+
+—¿Y el hombro de ese?
+
+—Eso no ha llegado.
+
+Luhai bajó la vista a la barra de hierro doblada.
+
+—Recojamos lo que haya que recoger.
+
+Lo dijo en voz baja.
+
+—Pero no lo tiren de cualquier manera.
+
+Nadie le llevó la contraria. Mientras la primera agarraba del hombro uno de los restos de androide, la segunda se apoyó en la pared y se levantó con la pierna estirada. Luhai agarró al otro por la pierna y lo levantó.
+Pesaba.
+La máquina del lado de la pared fue hacia la superficie de corte del robot, pero no lo levantó: solo lo miró.
+
+Mientras los niños seguían allí de pie, el niño del destornillador se miró la mano vacía, sin tierra. Tocó con un dedo el polvo de una grieta de la pared, el polvo se le pegó, y el niño cerró la mano. Luhai lo vio, pero no dijo nada.
+
+Solo entonces Aka retiró la mirada, muy despacio. Donde habían quitado los restos, sobre el polvo, había quedado la forma humana, los brazos, el cuello y hasta la mano tendida hacia la pared, y ella volvió rodeando esa marca sin pisarla.
+
+El anciano de Hazran sostenía su placa, con un trazo en el reverso. Miró los restos del androide, miró la placa, pero no trazó nada.
+
+La lámpara amarilla parpadeó y la respiración de la capa oculta volvió a contenerse. La primera se apostó en la entrada de la línea gris; la segunda, apoyada en la pared, a su lado; y la máquina del lado de la pared, detrás. Luhai volvió a empuñar la barra de hierro doblada, se giró hacia los niños y contó.
+
+Tres.
+Contando al niño pequeño.
+
+No volvió a contar.
+
+El niño de ojos bajos se le acercó y miró la mano de Luhai que empuñaba la barra de hierro doblada.
+
+—Se torció.
+
+Lo dijo el niño, mirando el suelo.
+
+—Se torció, sí. Pero la sigo usando.
+
+El niño miró la barra y, sin decir más, se quedó a su lado.
 
 ---
 

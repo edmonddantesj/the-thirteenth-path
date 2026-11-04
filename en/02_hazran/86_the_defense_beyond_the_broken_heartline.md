@@ -1,14 +1,8 @@
 # Episode 86. The Defense Beyond the Broken Heartline
 
-After the central market line closed, Hazran seemed for a moment to have truly stopped breathing.
+After the central market line closed, Hazran stopped breathing for a moment.
 
-The sound of everything collapsing had been loud, but the silence that came after was strangely louder.
-
-Sion was afraid of that short silence. A silence in the middle of a war was not an end; it was closer to the time the next clash took to settle back into place—he felt he knew that now, with his body.
-
-And sure enough, that time was not long.
-
-Only, in between, one thing changed.
+In that pause, one thing changed.
 
 The wind began to come in.
 
@@ -66,9 +60,7 @@ Harun took it at once.
 
 "The first line feeds the passage, the second line bends them, the third line guards the people."
 
-Short words. But by now that was enough for the people of Hazran.
-
-The battlefield had changed completely. The market, which until just now had folded around a single central line, was now broken into small pieces beyond it: the inner alleys, the connecting passages, the narrow spaces in front of the hull sections. The big current was dead; in its place, several small fronts had come alive.
+The battlefield had changed completely. The market, which until just now had folded around a single central line, was now broken into small pieces beyond it: the inner alleys, the connecting passages, the narrow spaces in front of the hull sections.
 
 Hazran now had to hold out not as a whole city but on the small organs left inside it.
 
@@ -129,7 +121,7 @@ Harun answered without stopping his hands.
 
 "From the second time on, they know this shape."
 
-Sion thought that answer explained the whole city. Hazran had never raised a barrier meant to last. It raised something fast that would work once, and once it had worked, raised something else just as fast. Because it was made only of things that carried no price, there was no loss in throwing it away, and because throwing it away did not hurt, they could keep making new ones.
+Hazran had never raised a barrier meant to last. It raised something fast that would work once, and once it had worked, raised something else just as fast. Because it was made only of things that carried no price, there was no loss in throwing it away, and because throwing it away did not hurt, they could keep making new ones.
 
 The trouble was that people could not be used that way.
 
@@ -175,8 +167,6 @@ Nasim suddenly swung around toward the people.
 "Don't wear faces like it's over!"
 he shouted, sharp.
 "It isn't over. If it were over, we wouldn't be running like this!"
-
-It was close to forcing it. But even forcing it was needed. People who had watched something collapse could easily let their hearts go out along with it, if they let their guard slip for even a moment.
 
 Then Nasim added, very low, toward Sion alone.
 

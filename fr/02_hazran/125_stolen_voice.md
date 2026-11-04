@@ -1,224 +1,261 @@
 # Chapitre 125 — La voix volée
 
-Quand le couloir de gauche s'est ouvert,
-Le groupe de Sion n'a même pas eu le temps de juger s'il s'agissait d'un piège ou d'une aide.
+Quand le couloir de gauche s'ouvrit, il n'y eut pas le temps de juger.
 
-Les habitants de Hazran étaient déjà à moitié divisés.
-Les blessés étaient séparés.
-Les enfants étaient sur le point de pleurer de peur.
+Les gens venus de Hazran étaient à moitié divisés, les blessés d'un côté, les enfants de l'autre, et entre eux s'était creusé un écart de la largeur de deux machines. Un enfant était au bord des larmes ; sa bouche était ouverte, mais aucun son n'en sortait encore.
 
-Ce qu’il fallait maintenant, ce n’était pas une certitude, mais une direction.
-
-Ater tourna son corps en premier.
+Ater fut le premier à se tourner.
 
 « Les blessés d'abord. »
-dit-il, bas.
 
-Kael bougea immédiatement.
-Luhai se rendit chez la vieille femme qui essayait de ne pas perdre son enfant.
-Seorin a lié les gens dispersés ensemble, courts et rudes.
+Il parla à voix basse.
 
-Sion regarda encore une fois cette machine.
+Kael bougea aussitôt et passa son bras sous l'autre bras de l'homme qui boitait ; à deux avec Ater, ils marchèrent ainsi en soutenant un seul homme.
 
-L'extérieur était encore une machine à guider Serakion.
-Mais la voix à l’intérieur ne l’était pas.
+Luhai se colla à la vieille femme qui ne voulait pas lâcher un enfant. Les doigts de la vieille femme étaient serrés autour du poignet de l'enfant ; Luhai ne détacha pas cette main et poussa d'un même mouvement la vieille femme et l'enfant.
 
-Pas lisse.
-Ne faisant pas semblant d'être achevée.
-Surtout, une voix qui faisait sortir les gens avant qu’il soit temps de s’expliquer.
+Seorin regroupa, brièvement et rudement, ceux qui menaçaient de se disperser.
 
-« Dépêchez-vous. »
-Répéta la machine, faible.
+« Serrés. Une main sur les vêtements de celui de devant. »
+
+Les gens saisirent les vêtements de celui qui les précédait, et les seize ne formèrent plus qu'une file.
+
+L'espace d'un instant, Sion regarda de nouveau cette machine.
+
+Par son apparence — la taille, les proportions, le visage lisse —, c'était toujours une machine d'escorte de Serakion ; seule la lumière de son visage sautait. Les cinq autres étaient restées figées dans la posture de qui allait se mettre en marche, un pied levé.
+
+« Vite. »
+
+La machine reprit à voix basse.
+
 « Au prochain alignement, ce sera fermé. »
 
-Sern lisait les signaux environnants presque simultanément.
+Presque au même moment, Sern regarda son panneau d'enregistrement.
 
 « C'est réel. »
-dit-il, bref.
-« Seule cette ligne est claire pour le moment. »
 
-Jiwoo, toujours pas totalement confiante, a soutenu l'épaule d'un évacué et a demandé.
+Il le dit brièvement.
 
-« Qui es-tu. »
+« Seule cette ligne est libre en ce moment. »
 
-La machine tourna la tête, très faiblement.
+« Pour combien de temps ? »
 
-« Ce n'est pas important pour le moment. »
-Après ces mots,
-une très brève décharge d'électricité statique s'y mêla.
-« S'en sortir vivant passe avant tout. »
+Seorin posa la question.
 
-Cette seule phrase
-semblait encore plus étrange.
+« Je l'ignore. Je vois seulement qu'elle est vide. »
 
-Trop dur pour les machines de ce monde.
-Trop urgent.
-Trop vivant dans son phrasé.
+Han Jiwoo, qui marchait l'enfant dans les bras, la mère de l'enfant collée à son côté, regarda cette machine.
 
-Sion en était alors sûr.
+« Qui es-tu ? »
 
-Au moins, celui-ci
-était un grain différent de celui qui les avait reçus en premier.
+La machine tourna très légèrement la tête.
 
-Le couloir à l’intérieur était plus sombre qu’à l’extérieur.
-Mais bizarrement,
-le brillant éclatant typique de Serakion était en réalité moindre.
+« Pour l'instant, cela n'a pas d'importance. »
 
-Ce n’est pas que la lumière manquait…
-cela ressemblait plus à un couloir délibérément tracé à travers des surfaces mal polies.
+Après ces mots, un très bref grésillement se mêla à la voix.
 
-Jiwoo a frôlé un mur
-et remarqua une très petite égratignure.
+« Sortir d'ici vivants, c'est ça qui passe d'abord. »
 
-Une marque vraiment insignifiante.
-Mais cette égratignure insignifiante,
-à l’intérieur de ce monde parfait, c’était encore plus étrange.
+Si les pieds de Han Jiwoo s'arrêtèrent, ce fut à cause de cette façon de parler. Jusque-là, les machines ne parlaient pas ainsi. Elle cala mieux l'enfant dans ses bras et se remit en marche.
 
-Aka l'a vu et a dit très bas.
+Sion regarda encore une fois le visage de cette machine. Après avoir vu la lumière sauter, il s'engagea dans le passage de gauche.
 
-« Un chemin caché. »
+L'intérieur du couloir était plus sombre que l'extérieur.
+
+Les murs étaient argentés mais moins brillants, et une fine couche de poussière couvrait le sol. Luhai la poussa du pied ; elle se déplaça.
+
+« De la poussière. Il y a de la poussière, ici. »
+
+Le bout de son pied poussa encore une fois la poussière.
+
+Personne ne répondit ; Sern leva les yeux de son panneau d'enregistrement et regarda le sol.
+
+« Il n'y en avait pas, là-haut. »
+
+Il poursuivit.
+
+« Ce qui nettoie ne descend pas jusqu'ici. »
+
+Kael, qui soutenait l'homme qui boitait, regarda cette poussière en passant. Leurs traces de pas y restaient ; quand il se retourna, elles étaient toujours là.
+
+En frôlant le mur, Han Jiwoo aperçut une toute petite éraflure, de la longueur d'un ongle. Sans ralentir, elle passa le bout des doigts dessus, et l'éraflure les accrocha.
+
+Aka le remarqua et parla très bas.
+
+« Un chemin pour se cacher. »
 
 Sion la regarda.
 
-Aka a continué à regarder devant elle et a ajouté.
+Aka, les yeux toujours devant elle, ajouta autre chose.
 
-« Pas un endroit qui a été montré.
-Un endroit qui a été laissé. »
+« Pas un endroit qu'on montre. Un endroit qu'on a laissé. »
 
-C'était précis aussi.
+À l'endroit où le couloir tournait, l'angle n'était pas net. C'était le premier angle irrégulier qu'ils voyaient dans ce monde, et Seorin y posa la main, puis la retira.
 
-Ce couloir n'était pas un chemin officiellement laissé ouvert.
-On aurait dit que cela avait été fait en connectant
-les lacunes auxquelles Serakion prêtait moins attention,
-ou les endroits qu'il ne prenait plus la peine de garder beaux.
+Luhai, poussant la vieille femme, ravala un juron à voix basse.
 
-Luhai, soutenant un évacué haletant, avala un faible juron.
+« Ça aide, d'accord, mais ça me fout salement les jetons. »
 
-« Ils aident, bien sûr, »
-« mais le sentiment est sale et troublant. »
+Seorin enchaîna aussitôt.
 
-Seorin l'a pris immédiatement.
+« Que le truc le plus fiable de Serakion soit une machine qui porte le visage de Serakion, rien que ça, c'est dégueulasse. »
 
-« La chose la plus fiable à Serakion,
-c'est une machine affublée du visage de Serakion. Rien que ça, c'est sale. »
+La machine qui ouvrait la voie devant eux ne répondit rien et ne changea pas d'allure.
 
-La machine qui avait ouvert le chemin ne disait rien à cela.
-Mais au bout d'un moment,
-sans se retourner, il parlait à voix basse.
+Un instant plus tard, sans même se retourner, elle parla bas.
 
 « C'est une réaction normale. »
 
-Luhai laissa échapper un souffle d'incrédulité.
+Luhai laissa échapper un souffle.
 
-« Et il sort ce genre de truc en plein milieu de tout ça. »
+« En plein milieu de tout ça, ça trouve encore le moyen de sortir des trucs pareils. »
 
-« J'y suis habitué. »
-dit la machine.
+« C'est une habitude. »
+
+C'était la machine.
 
 Un court silence.
 
-Ces mots, étrangement,
-en ont dit plus qu'ils n'auraient dû.
+Luhai regarda la vieille femme, et la vieille femme le regarda, mais aucun des deux n'en dit davantage.
 
-Cette machine ne sauvait pas les humains pour la première fois.
-Cette méfiance.
-Ces réactions.
-Cela les avait probablement déjà traversés plusieurs fois.
+L'enfant de Hazran leva la tête dans les bras de Han Jiwoo et regarda la machine devant eux.
 
-Sern continuait à lire les signaux environnants,
-puis dit très bas.
+« Le monsieur, c'est le même monsieur que tout à l'heure ? »
 
-« Le suivi est en train de se rattacher. »
+Han Jiwoo baissa les yeux vers l'enfant.
+
+« Je sais pas. »
+
+« C'est le même visage, pourtant. »
+
+« Le visage, oui, c'est le même. »
+
+Ce fut tout ce que dit Han Jiwoo. Et pendant qu'elle se taisait, l'enfant continuait de regarder le dos de la machine.
+
+Sern, les yeux toujours sur son panneau d'enregistrement, finit par parler très bas.
+
+« Le pistage nous a repris. »
 
 « Combien de temps cela tiendra-t-il ? »
-demanda Ater.
 
-« Pas longtemps. »
-Sern répondit, bref.
-« On ne peut pas les tromper indéfiniment avec le même visage. »
+Ater posa la question.
 
-Quand ces mots sont tombés,
-la machine qui avait ouvert le chemin émit un son très bref qui ressemblait presque à un rire.
+« Cela ne durera pas longtemps. »
 
-Moins de rire
-et plus près d'un circuit usé quelque part tremblant un instant.
+Sern répondit brièvement.
 
-« Je n'ai jamais eu l'intention de les tromper longtemps. »
-dit la machine.
+« Le même visage ne trompera pas indéfiniment. »
 
-Au moment où ces mots se sont terminés,
-Jiwoo regarda à nouveau cette machine.
+À ces mots, la machine qui leur avait ouvert la voie émit pour la première fois un très bref grésillement. Quelque chose comme un rire : le son d'un circuit qui avait tremblé quelque part.
 
-L’extérieur était toujours lisse comme celui de Serakion.
-Mais l’intérieur ne l’était pas.
+« Je n'ai jamais eu l'intention de tromper longtemps. Ce visage, je l'abandonne deux tournants plus loin. »
 
-Les modèles de discours le disaient.
-Les priorités urgentes le disaient.
-Surtout, le premier commandement – ​​*prenez les blessés et partez* – le disait.
+« Et quand tu l'abandonnes, il se passe quoi ? »
 
-Il ne s’agissait pas d’une machine à classer les gens.
-C’était une machine de côté qui essayait avant tout de ne pas laisser les gens se séparer.
+C'était Seorin.
 
-Cette différence était vaste.
+« Ce corps retourne à sa place. Pas moi. »
 
-Alors que la fin du couloir approchait,
-La lumière froide et directe de Serakion diminua progressivement.
-Au lieu de cela, l'odeur du vieux métal
-et la faible température des vieilles machines – quelque chose d'impossible à rencontrer à la surface de ce monde –
-a commencé à se mélanger, très faiblement.
+Seorin ne demanda rien de plus et regarda droit devant elle.
 
-Jiwoo ralentit ses pas pendant un instant sans s'en rendre compte.
+Au moment où ces mots s'achevaient, Han Jiwoo regarda de nouveau le dos de cette machine. L'extérieur était lisse, mais la démarche n'était pas celle des machines qui les avaient guidés tout à l'heure : elle appuyait un pied un peu plus fort que l'autre. Les machines de Serakion ne marchaient pas ainsi, et Han Jiwoo regarda ce pied.
 
-Sion le vit immédiatement.
+À mesure qu'ils approchaient du bout du couloir, l'éclat argenté diminua, puis la couleur des murs vira au gris. On voyait des jointures, et de la rouille sur les jointures.
 
-« Quoi. »
+Han Jiwoo ralentit le pas un très court instant et inspira. Une odeur de vieux métal, l'odeur de machines que personne n'avait nettoyées.
 
-Jiwoo ne répondit pas tout de suite.
+Sion le vit aussitôt.
 
-Elle inspira encore une fois, comme si elle retrouvait cette légère odeur.
+« Quoi ? »
 
-L'odeur du métal qui s'était cassé et qui tenait.
-L'odeur des machines mal polies – et qui mentent moins à cause de cela.
-
-Et elle a dit très bas.
+Han Jiwoo ne répondit pas tout de suite ; tandis qu'elle inspirait encore une fois, l'enfant leva les yeux vers elle.
 
 « Pour la première fois… »
-Elle fit une pause, puis continua.
-« Depuis mon arrivée ici, quelque chose ressemble au côté vivant. »
 
-Aka a entendu ça
-et ferma les yeux pendant un bref instant.
+Elle s'interrompit, puis reprit.
 
-Puis dit, presque dans un murmure.
+« … depuis qu'on est ici, j'ai l'impression d'être du côté de quelque chose de vivant. »
 
-« Ouais. »
-« Ce côté imite moins. »
+En entendant cela, Aka ferma les yeux un très bref instant, puis les rouvrit.
 
-Cette phrase était courte,
-mais cela ressemblait à la ligne qui divise tout Serakion.
+« Oui. »
 
-La machine ouvrant la voie ne donna pas plus d'explications.
+Elle le dit presque dans un murmure.
 
-Cela n’exigeait pas de confiance.
-Ne demandait pas de gratitude.
-N'a pas révélé son identité en premier.
+« Ce côté-ci fait moins semblant. »
 
-C'est simplement
-retenait les personnes qui étaient sur le point d'être divisées en un seul groupe
-et les précipitait à travers les interstices de ce monde achevé.
+Luhai gratta du doigt la rouille sur le mur. Il regarda la rouille restée sur son doigt et ne l'essuya pas.
 
-Sion regardait cette silhouette de dos et réfléchissait.
+La machine qui ouvrait la voie devant eux ne donna plus aucune explication.
 
-La première machine différente qu'ils ont rencontrée à l'intérieur de Serakion
-était apparu de la manière la moins Serakion possible.
+Le sol s'inclina, vers le bas. C'était la première pente qu'ils foulaient à l'intérieur de Serakion. L'homme qui boitait glissa ; Kael et Ater le soutinrent de chaque côté, et ils descendirent la pente à trois.
 
-Avec une voix volée.
-Porter le visage d'un autre.
-Faire sortir les gens avant de leur expliquer.
+« Les enfants au milieu. »
 
-Et cette étrange méthode d'apparition à elle seule
-a clairement indiqué qu'à l'intérieur de ce monde,
-il y avait encore d'autres couches non encore révélées.
+C'était Seorin.
+
+La file se réorganisa. Devant, Ater et Kael ; au milieu, les enfants et la vieille femme, avec Luhai à côté. Derrière, Seorin. Han Jiwoo resta à côté de la mère de l'enfant.
+
+Sion, celui qui regarde en arrière, marchait en dernier. Derrière eux, il n'y avait personne ; seules les traces de pas des seize restaient sur la poussière.
+
+Sern vérifia son panneau d'enregistrement.
+
+« Le signal s'éloigne. »
+
+« Le pistage ? »
+
+Ater posa la question.
+
+« Ce sont tous les signaux de Serakion. Plus nous descendons, plus ils s'amincissent. »
+
+« En bas, hein. »
+
+Seorin répéta le mot.
+
+La machine parla, devant eux.
+
+« C'est en bas. C'est l'endroit que là-haut a oublié. »
+
+La machine n'expliqua rien de plus.
+
+Han Jiwoo rendit l'enfant à sa mère, et la mère reprit l'enfant dans ses bras. Han Jiwoo regarda un moment ses mains vides, puis saisit un tournevis et marcha en le serrant.
+
+Une fois la pente terminée, la couleur des murs fonça encore, et la rouille se fit plus abondante. Le plafond s'abaissa, au point qu'Ater dut baisser la tête. Le blessé glissa de l'épaule d'Ater et s'assit par terre ; Ater le releva.
+
+« Nous allons encore un peu plus loin. »
+
+C'était la machine.
+
+« Ce visage, je l'ôte là-bas. Ici, il ne sert à rien. »
+
+Luhai regarda ce dos qui marchait devant.
+
+« Et quand tu l'ôtes, il y a quoi dessous ? »
+
+« C'est une vieille chose. »
+
+La vieille femme tira Luhai par la manche.
+
+« C'est une personne, ça ? »
+
+« Non. Mais ça ressemble plus à une personne que les choses de là-haut. »
+
+Le doigt de Luhai portait toujours sa rouille.
+
+La vieille femme ne demanda rien de plus.
+
+Au bout du couloir, la lumière changea. Ce n'était plus de l'argent. C'était une lumière jaune et sombre, celle de vieilles lampes. Elle ressemblait à celle qu'on voyait à Hazran.
+
+La vieille femme pressa le pas en voyant cette lumière, Luhai pressa le pas à sa suite, et les enfants, au milieu, furent entraînés en serrant les manches des adultes.
+
+En queue, Sion se retourna encore une fois. L'argent ne descendait pas jusque-là ; le haut de la pente était sombre. Il se retourna de nouveau vers l'avant.
+
+Devant, la machine s'arrêta. La lumière de son visage sauta.
+Une fois.
+Deux fois.
+Puis elle fit un pas hors du couloir.
+
+Les seize la suivirent.
 
 ---
 

@@ -236,9 +236,9 @@ The old machine didn't answer. Of its two lowered hands, one finger was tremblin
 
 The dragging sound came right up to the inside of the gap and stopped.
 
-In the dark inside the gap, a light came on. One optical eye, an uneven light. It was this layer's light. Light that had been outside and come back.
+In the dark inside the gap, a light came on. First, one optical eye came into view. An uneven light. It was this layer's light. Light that had been outside and come back.
 
-That light looked at the six beyond the gap, looked at the old machine, and stopped.
+That light looked at the five beyond the gap, looked at the old machine, and stopped.
 
 The old machine laid its hands on the gap again. Six places.
 

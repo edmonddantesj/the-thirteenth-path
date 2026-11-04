@@ -26,7 +26,7 @@ Sion s'arrêta et repassa. La deuxième fois, pareil.
 
 Han Jiwoo y était déjà.
 
-Elle avait la paume collée contre un panneau, en bas à droite. Un panneau qu'elle avait touché plus de dix fois jusqu'à la veille. À chaque décollage, sa main avait été là.
+Elle avait la paume collée contre un panneau, en bas à droite. Un panneau qu'elle avait touché plus de dix fois rien qu'aujourd'hui. À chaque décollage, sa main avait été là.
 
 « Qu'est-ce qu'il y a ? »
 
@@ -213,7 +213,7 @@ Elle parla.
 
 À ces mots, Sion retint un instant son souffle.
 
-Han Jiwoo n'avait pas dit qu'elle ne pouvait pas réparer. Elle avait dit qu'il valait sans doute mieux ne pas réparer. C'était la première fois qu'il l'entendait dire une chose pareille à propos d'un vaisseau.
+C'était la première fois que Sion entendait Han Jiwoo dire une chose pareille à propos d'un vaisseau.
 
 « Alors on laisse comme ça ? »
 
@@ -245,11 +245,9 @@ Il lui semblait qu'il fallait au moins une personne, dans ce vaisseau, qui sache
 
 Le trait tracé, Sion le regarda longtemps.
 
-Ce n'était pas encore un chemin. Ni un sens, ni une explication.
+Ce n'était pas encore un chemin.
 
 Mais ce n'était pas non plus quelque chose qui était simplement passé.
-
-Le vaisseau, qui tremblait sous le poids des survivants, devenait en même temps un lieu où ce qui avait été laissé commençait doucement à s'accrocher.
 
 ---
 

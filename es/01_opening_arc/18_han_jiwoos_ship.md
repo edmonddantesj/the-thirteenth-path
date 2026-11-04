@@ -62,7 +62,7 @@ Seorin preguntó.
 
 —En eso tienes razón.
 
-Yona comprobó por el sonido que el anillo de acoplamiento se soltaba del todo y miró una vez a Han Jiwoo.
+Yona comprobó por el sonido que los anillos de acoplamiento se soltaban uno a uno y miró una vez a Han Jiwoo.
 
 —De aquí en adelante es tu tramo.
 
@@ -225,8 +225,6 @@ Entonces Han Jiwoo habló de repente.
 
 —¿Qué traes exactamente esta vez?
 
-El aire de la cabina cambió de forma mínima.
-
 Sion no respondió enseguida.
 Hasta dónde contar aquí lo del fragmento, cuánto decir delante de Ater y de Sern, dónde lo cortaría Seorin. En aquel breve silencio, cada uno hizo sus cuentas una vez.
 
@@ -273,7 +271,6 @@ Ella habló muy despacio.
 —Entonces es un nombre muerto.
 
 Nadie respondió enseguida.
-Pero que no hubiera respuesta ya era respuesta suficiente.
 
 Por fuera del casco pasó un largo roce.
 El barco ya se alejaba del punto de acceso, y el camino de vuelta volvía a oscurecerse.
@@ -286,7 +283,6 @@ Entonces, de aquí en adelante, habrá que ir más en silencio.
 Si el nombre es un nombre muerto, también cambia el motivo por el que los persiguen. Los que vengan a atraparlos no vendrán por una sola persona, sino también a cerrar los caminos que ese nombre puede abrir.
 
 Sion soltó un poco de aire al oírlo.
-La explicación no había terminado, pero al menos ya se había transmitido lo necesario por ahora.
 
 El barco salía cada vez más hacia fuera.
 Un camino que no era ruta oficial, un desvío que se encadenaba pisando balizas muertas, accesos que, en lugar de nombre, solo quedaban como huellas.

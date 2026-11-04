@@ -10,7 +10,7 @@ The hull dug deeper beneath the shadow of the wreckage. The gaps between the fra
 she muttered through clenched teeth.
 "Dying now would be a raw deal."
 
-It was hard to say who she was saying it to. The ship, the engine, or herself. But strangely, it sounded right for all three.
+It was hard to say who she was saying it to. The ship, the engine, or herself.
 
 Sern ran his eyes over the panel and spoke.
 
@@ -56,8 +56,6 @@ Seorin asked.
 Han Jiwoo didn't answer right away. Only after bending the stick once more did she speak, low.
 
 "Can't bring it down without breaking it."
-
-That one sentence was enough.
 
 This time nobody asked "Can it hold?" Asking wouldn't change the state they were in. There was nothing to do but get it down alive, somehow.
 
@@ -231,7 +229,7 @@ Ater pressed a hand to his knee, pushed himself upright, and spoke.
 
 Kael checked the fragment before answering. It was still inside his coat. Only then did he let out a very short breath.
 
-Sion took his hands off the handle too and slowly got up. He didn't put his hand inside his jacket. He knew where it was without checking.
+Sion took his hands off the handle too and slowly got up. He didn't put his hand inside his jacket. He knew where the note was without checking.
 
 **Hazran**
 **Aka**
@@ -267,10 +265,6 @@ Beyond the half-buried hulks, sand and heat and dead metallic glare went on with
 Elia had left only a name and a word.
 Han Jiwoo said she needed Etherite.
 And somewhere in this desert was Aka.
-
-Surviving didn't mean it was over.
-
-This was where it really began.
 
 ---
 

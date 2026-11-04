@@ -26,7 +26,7 @@ Sion stopped and passed by again. The second time was the same.
 
 Han Jiwoo was already there.
 
-She had her palm pressed to a panel low on the right. It was a panel she had touched more than ten times up to yesterday. Her hand had been there every time the ship lifted off.
+She had her palm pressed to a panel low on the right. It was a panel she had touched more than ten times today alone. Her hand had been there every time the ship lifted off.
 
 "What is it?"
 
@@ -213,7 +213,7 @@ she said.
 
 Sion held his breath for a moment at that.
 
-Han Jiwoo hadn't said she couldn't fix it. She had said it seemed she shouldn't. It was the first time he had heard her say something like that about the ship.
+Sion had never before heard Han Jiwoo say something like that about the ship.
 
 "So we just leave it?"
 
@@ -245,11 +245,9 @@ It seemed someone on this ship had to know where this was. The board was down th
 
 Sion scored it and looked at it for a long while.
 
-It wasn't a path yet. It wasn't a meaning either, or an explanation.
+It wasn't a path yet.
 
 But it wasn't something that had simply passed by, either.
-
-Carrying the survivors and shaking as it went, the ship was at the same time becoming a place where what had been left behind was quietly beginning to cling.
 
 ---
 

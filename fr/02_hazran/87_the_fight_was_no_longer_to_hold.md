@@ -2,13 +2,7 @@
 
 C'était le même champ de bataille, mais les corps ne se déplaçaient plus dans la même direction.
 
-Jusque-là, c'étaient des mains qui arrêtaient ce qui déferlait. Désormais, elles devenaient des mains qui calculaient quoi relier, jusqu'où, pour tirer qui des profondeurs de la ville vers l'extérieur.
-
-Un combat pour tenir et un combat pour faire partir se ressemblent, mais au-dedans ils n'ont rien de commun. Le premier consiste à s'agripper à une ligne ; le second, à l'abandonner pour ouvrir un chemin.
-
-Haroun fit passer cette différence dans son corps plus vite que personne.
-
-Il jeta un nouveau regard sur le couloir du premier rang qu'il venait de dresser, puis fit reculer trois habitants de Hazran.
+Haroun jeta un nouveau regard sur le couloir du premier rang qu'il venait de dresser, puis fit reculer trois habitants de Hazran.
 
 « Là, vous videz. »
 Il avait parlé bas.
@@ -23,8 +17,6 @@ Haroun lui coupa la parole.
 « Laissez-le s'ouvrir, et rabattez-les ici à la place. »
 
 Ce qu'il désignait, c'était un couloir latéral qui ne menait pas directement à la section de coque. Étroit, coudé deux fois, avec la charpente des tentes en haut et des plaques de métal basses qui se chevauchaient : un chemin où l'ennemi, une fois entré, aurait du mal à prendre de la vitesse.
-
-Hazran n'en était plus à arrêter l'ennemi. La ville entrait dans le moment où l'on décidait par où le laisser entrer.
 
 En voyant cela, Sion sentit un froid lui traverser la poitrine.
 
@@ -50,8 +42,6 @@ C'était l'homme à côté de lui.
 Haroun répondit sans détourner les yeux.
 
 « Si on tire avant, ils trouvent un autre chemin. »
-
-C'était exact. Ce qu'il fallait maintenant, ce n'était pas effrayer l'ennemi, c'était le tromper pour qu'il entre par le chemin qu'on voulait.
 
 À cet instant, au loin, le bruit du métal qu'on déchire retentit de nouveau.
 
@@ -135,7 +125,7 @@ Elle avait fini par parler.
 
 « Ici, ça s'appelle prévenir. »
 
-Seorin fit claquer sa langue. Mais elle n'insista pas davantage. Elle savait qu'il n'y avait pas de quoi insister.
+Seorin fit claquer sa langue. Elle n'insista pas davantage. Elle savait qu'il n'y avait pas de quoi insister.
 
 En écoutant cet échange, Sion comprit que la bataille venait encore une fois de changer de nature.
 
@@ -155,17 +145,15 @@ La femme demanda d'une voix tremblante :
 
 « Si on va à l'intérieur, on vivra ? »
 
-La question venait trop tard et elle était trop honnête ; pendant un instant, la réponse resta coincée.
+À cette question, pendant un instant, la réponse resta coincée.
 
 Seorin trancha à sa place.
 
 « Si tu restes ici, tu mourras plus vite. »
 
-C'étaient des mots cruels. Mais dans cette situation, il n'y en avait pas de plus justes.
-
 La femme se mordit la lèvre et hocha la tête.
 
-En revenant après avoir poussé les trois à l'intérieur, Sion regarda de nouveau le couloir qu'il venait de traverser.
+En revenant après avoir poussé les deux à l'intérieur, Sion regarda de nouveau le couloir qu'il venait de traverser.
 
 Tout à l'heure encore, c'était le chemin par lequel on faisait sortir les gens. Maintenant, le bout de ce chemin était ouvert, et personne ne s'y tenait.
 

@@ -38,7 +38,7 @@ This was all there was. Two plates and four people.
 
 "Got here and it was four."
 
-Sion started to ask what those days had been like, then let it go. If he asked, Kael would answer, and answering took time.
+Sion started to ask how things had gone on their side, then let it go. If he asked, Kael would answer, and answering took time.
 
 The end of the plate was torn. It had split from the corner inward, a long crack, and the split opened a little wider every time it was pressed.
 

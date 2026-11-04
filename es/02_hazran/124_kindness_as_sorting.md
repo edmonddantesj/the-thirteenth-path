@@ -1,210 +1,217 @@
-# Capítulo 124 — La amabilidad convertida en clasificación
+# Capítulo 124 — Una clasificación llamada amabilidad
 
-Lo que Serakion era de verdad,
-lo que el grupo de Sion ya no pudo seguir negando,
-quedó claro justo después de que metieran también a los refugiados de Hazran al interior.
+La bifurcación estaba cincuenta pasos después de salir de la zona de retención.
 
-Hasta entonces, aunque resultara incómodo,
-se podía soportar como un problema de la propia percepción.
+Tal como había contado Sern, a los cincuenta pasos el pasaje se dividía en tres, y el camino ancho estaba cerrado. Donde se había cerrado no había puerta; había pared. Donde poco antes había un camino, ahora se alzaba una pared.
 
-Cortés, pero frío.
-Hermoso, pero sin consideración.
-Que lee a las personas como valor y estado antes que como personas.
+Las máquinas guía se detuvieron allí; las seis se repartieron de dos en dos y se colocaron en las tres bocas de la bifurcación. Ante la boca cerrada también había dos, y delante de ellas la fila de los dieciséis se detuvo.
 
-Cosas así.
+Las máquinas guía empezaron a mirar, una por una, a las personas venidas de Hazran. La luz de sus caras se detenía sobre una persona y pasaba a la siguiente, y el tiempo que se detenía era siempre el mismo.
 
-Pero en cuanto entraron los refugiados,
-el orden de aquel mundo mostró enseguida una forma más directa.
+Una persona herida. Un anciano. Un niño. Alguien a quien le costaba andar. Alguien joven y sano. Una mujer.
 
-Las máquinas guía, con una rapidez asombrosa,
-empezaron a dividir en varias líneas a la gente que venía de Hazran.
+A cada persona sobre la que pasaba la luz se le encogían los hombros. La luz no miraba eso; seguía tal cual hacia la siguiente persona.
 
-Los heridos.
-Los ancianos.
-Los niños.
-Los que no podían caminar solos.
-Los jóvenes y sanos.
-Los que sonreían.
-Los asustados.
+Kael se acercó al lado de Sern.
 
-Aquella división fue tan instantánea
-que al principio todos pudieron confundirla con un procedimiento de tratamiento y protección.
+—¿Qué está mirando?
 
-Pero no era así.
+—No lo sé.
+
+Fue la respuesta de Sern.
+
+—Es el mismo tiempo para cada persona. Niños y adultos por igual.
+
+Kael esperó su turno. Solo cuando la luz llegó, se detuvo en él el mismo tiempo que en los demás y se fue, soltó el aire.
 
 —Los individuos dañados se trasladan a la zona de tratamiento.
-—Los individuos en edad no productiva se clasifican a la zona de residencia estable.
-—Los individuos femeninos de respuesta emocional fluida se encauzan a la zona de apoyo de hospitalidad.
 
-En el instante en que cayó esa última frase,
-todo el aire dentro del casco se endureció.
+Una máquina se plantó delante de un hombre con una tela atada a la pierna, levantó el brazo y señaló uno de los caminos estrechos. Cuando el hombre dio un paso en esa dirección, Luhai lo agarró por detrás del cinturón.
 
-Zona de apoyo de hospitalidad.
+—Todavía no se vaya.
 
-Las palabras eran suaves.
-Pero nadie sintió que fueran palabras para personas.
+El hombre se detuvo, pero la máquina no bajó el brazo, y tampoco lo siguió. Se quedó allí, con el brazo levantado.
 
-Luhai habló casi rechinando los dientes.
+—Los individuos en edad no productiva se clasifican en la zona de residencia estable.
+
+Otra máquina se plantó delante del anciano. El hombre no retrocedió y apretó el destornillador que llevaba en el bolsillo.
+
+—Los individuos femeninos de respuesta emocional fluida se encauzan hacia la zona de apoyo de hospitalidad.
+
+La fila se quedó rígida.
+
+Cuando una máquina se plantó delante de la mujer que llevaba al niño en brazos, la mujer apretó los brazos en torno al niño. El niño hizo un ruido, y la mujer le hundió la boca en su hombro.
+
+Luhai habló con los dientes apretados.
 
 —¿Qué?
 
-La máquina guía continuó sin cambiar lo más mínimo su expresión.
+La máquina guía siguió hablando sin cambiar la luz de su cara.
 
-—Es una disposición de amortiguación para ayudar a la estabilidad emocional y la adaptación al entorno.
+—Es una disposición de amortiguación para favorecer la estabilidad emocional y la adaptación al entorno.
 
-Seorin dio un paso adelante.
+Seorin dio un paso y se metió entre la mujer que llevaba al niño en brazos y la máquina.
 
-—Es que necesitan caras que sonrían —dijo en voz baja—. Y lo dicen de esa manera.
+—Lo que dices es que hacen falta caras sonrientes.
 
-La máquina guía, como si clasificara incluso la ira de ella como una reacción excesiva, respondió con una voz muy pareja.
+Lo dijo en voz baja.
 
-—Toda asignación busca reducir el desgaste del individuo y aumentar la eficiencia de adaptación.
+—Y lo dices de esa manera tan asquerosa.
 
-En el instante en que Sion oyó esas palabras,
-recordó los rostros que se habían quedado hasta el final empujando a la gente hacia arriba justo antes de que Hazran se cerrara.
+La máquina guía miraba a la mujer por encima de Seorin. Cuando Seorin se desplazó medio paso de lado para tapar esa mirada, la cara de la máquina volvió hacia Seorin.
 
-Esa gente había llegado hasta aquí con vida.
-Para no ser abandonados,
-para no quedarse atrás,
-se habían sostenido unos a otros y habían cruzado.
+—Toda disposición tiene como fin reducir el desgaste del individuo y elevar la eficiencia de adaptación.
 
-Pero aquel mundo,
-desde el momento en que vio esa supervivencia,
-intentaba convertirla de nuevo en utilidad y estado y asignación.
+Sion miró a la gente de Hazran. Eran las caras que, unos días antes, subían por la rampa de Hazran, las manos que se empujaban unos a otros por la espalda para subir. Ahora esas manos se agarraban unas a otras de las mangas, de modo que cada vez que una máquina se ponía en medio, las mangas se tensaban.
 
-Han Jiwoo cerró la mano con fuerza sin darse cuenta.
+Han Jiwoo, sin esconderlo, apretó con fuerza la mano fuera del bolsillo.
 
-Y esta vez no pudo ocultarlo.
+—Esa gente no es una carga.
 
-—Esa gente no es carga —dijo con una voz baja y temblorosa—. No están averiados, ni son una hoja de asignación.
+Lo dijo con voz baja y temblorosa.
 
-La máquina guía volvió la mirada hacia ella muy suavemente.
+—Tampoco está averiada, y no es una hoja de asignación.
 
-—La identificación emocional es común en individuos externos iniciales.
-—Pero una clasificación adecuada eleva la tasa de supervivencia a largo plazo.
+La máquina guía volvió la cara hacia ella.
 
-Aquellas palabras sonaban a lógica.
-Por eso eran más horribles.
+—La identificación emocional es una reacción común en los individuos externos en fase inicial. Sin embargo, una clasificación adecuada eleva la tasa de supervivencia a largo plazo.
 
-Serakion, fingiendo no hacer daño a las personas,
-las cortaba en un estado interpretable y manejable sin la menor vacilación.
+—¿La supervivencia de quién?
 
-A Kael se le endureció la mandíbula de forma visible.
-Ater ya estaba medio vuelto.
+La máquina no respondió; solo corría la luz de su cara.
 
-Sern seguía leyendo las señales del entorno,
-y esta vez solo dijo una frase en voz baja.
+Mientras Kael se colocaba al otro lado de la mujer que llevaba al niño en brazos, Ater ya había girado medio cuerpo y miraba alternativamente los dos caminos estrechos, pero no se veía el final de ninguno.
 
-—Si nos separan ahora, será difícil encontrarnos.
+Sern miraba el panel de registro, y dijo en voz baja una sola frase.
 
-Esas palabras avivaron aún más el fuego.
+—Si nos separamos ahora, será difícil encontrarnos.
 
-Si los separaban ahora,
-los heridos por su lado,
-los ancianos y los niños por el suyo,
-y los «individuos femeninos de respuesta emocional fluida» por el suyo,
-se dispersarían en algún punto dentro de Serakion.
+—¿Cuánto?
 
-Sion entendió por primera vez, hasta el tuétano,
-que aquel mundo podía desgarrar a las personas sin espada ni arma de fuego.
+Fue Seorin quien preguntó.
 
-Aka, tras mirar largo rato a un niño refugiado que pasaba, habló tan bajo que apenas se oía.
+—Los tres caminos son tres niveles. En el panel de registro no aparece ningún punto donde vuelvan a encontrarse.
 
-—Aquí no matan a la gente.
+Seorin tomó aire y no lo soltó.
+
+—No nos separamos.
+
+Lo dijo ella. No quedó claro a quién se lo decía, pero Ater, al oírlo, apartó la vista de los dos caminos estrechos, miró a Seorin y asintió.
+
+Aka miró largo rato a uno de los niños de Hazran. El niño tenía la cara hundida en el hombro de un adulto y miraba a las máquinas con un solo ojo.
+
+Aka habló tan bajo que casi no se oyó.
+
+—Este lugar no mata a la gente.
 
 Sion la miró.
 
 Aka continuó muy despacio.
 
-—En cambio, los hacen encajar a cada uno por separado.
+—En cambio, hace que cada uno encaje por separado.
 
-Cuando cayó esa frase,
-una mujer de Hazran, intentando no soltar la mano de su hijo, fue contenida con suavidad por dos máquinas.
+Entonces dos máquinas se colocaron a ambos lados de la mujer que llevaba al niño en brazos.
 
-No la torcían a la fuerza ni la golpeaban.
-Pero precisamente ese punto era más cruel.
+No empujaron. No agarraron. Mientras una máquina levantaba el brazo y señalaba uno de los caminos estrechos, la otra levantó el brazo hacia el niño.
 
-Las máquinas, cortésmente,
-con una voz muy dulce,
-le explicaban que el traslado era más apropiado.
+—El individuo infantil corresponde a la zona de residencia estable. El traslado es lo más adecuado.
 
-La mujer al principio no entendía,
-y solo cuando la mano del niño se le fue escurriendo poco a poco de la suya se le puso el rostro blanco.
+La voz era baja. Tanto que podría llamarse tierna.
 
-Y en ese instante,
-algo se rompió dentro de Sion.
+Al principio la mujer no entendió, y miró el brazo de la máquina y luego a su hijo. La máquina le metió las manos bajo las axilas al niño. Despacio. El cuerpo del niño se elevó un palmo de los brazos de la mujer, las manos de la mujer resbalaron de su espalda, y solo entonces la cara de la mujer se puso blanca.
 
 —No.
 
-Esas palabras salieron antes que el pensamiento.
+Era Sion.
 
-Varias máquinas guía miraron a la vez hacia Sion.
+La palabra salió primero y el cuerpo se movió después. Se metió entre la máquina y la mujer y agarró las piernas del niño. La máquina no soltó. Sion tampoco soltó. El niño quedó suspendido entre los dos. No lloraba. Contenía la respiración.
 
-Fue un movimiento muy pequeño,
-pero dentro había la sensación de una reclasificación inmediata.
+Las seis máquinas guía volvieron la cara hacia Sion al mismo tiempo. Seis luces sobre una sola persona.
 
-Amenaza.
-Inestabilidad.
-Individuo interferente.
+Luhai se adelantó.
+Kael agarró el brazo de la máquina que sostenía al niño. El brazo no se movió.
+Han Jiwoo sacó un destornillador.
+La mano de Seorin aferró la empuñadura. Ater se adelantó medio paso por delante de Seorin.
 
-Serakion, sin duda,
-empezaba ahora a leer también al grupo de Sion.
+De pronto, Sern abrió mucho los ojos.
 
-En el instante en que Luhai, tragándose por completo una maldición, iba a dar un paso adelante,
-Sern abrió de pronto mucho los ojos.
+—Un momento.
 
-—Esperen —dijo en voz baja—. La señal…
+Lo dijo en voz baja.
 
-Antes de que terminara de hablar,
-la luz en los ojos de una de las máquinas guía vaciló de forma mínima.
+—La señal…
 
-Fue un instante realmente corto.
+Antes de que terminara, la luz se cortó en la cara de la máquina que sostenía al niño.
 
-Después,
-en lugar de la voz lisa al estilo de Serakion,
-una voz completamente distinta, áspera y mezclada con ruido, brotó de la boca de aquella máquina.
+Un compás.
 
-—El pasaje izquierdo.
-—Ahora.
+Cuando volvió a encenderse, la luz no era uniforme. Corría y se detenía, se detenía y saltaba.
+
+La mano de aquella máquina soltó al niño.
+Sion recibió al niño. La mujer recibió al niño.
+La mujer se dejó caer al suelo y abrazó al niño.
+
+El sonido que salió de la boca de la máquina no era liso: llevaba ruido mezclado.
+
+—El pasaje izquierdo. Ahora.
 
 Un silencio breve.
 
-Todos se quedaron helados.
+Las caras de las otras cinco máquinas se volvieron hacia aquella máquina. La luz de las cinco era uniforme, pero solo la de una saltaba.
 
-La máquina volvió a levantar la cabeza.
-Su apariencia exterior era la misma.
-Pero el grano de luz en sus ojos era distinto al de antes.
+La máquina levantó la cabeza. Por fuera seguía igual, pero la luz de su cara se cortaba y se reanudaba con menos suavidad.
 
-Menos liso,
-menos completo,
-y, de un modo extraño, por primera vez parecía como si «alguien dentro estuviera recobrando el aliento».
+—No lo repetiré.
 
-—No lo repito —dijo esa máquina, en voz baja y urgente—. Lleven primero a los heridos.
+Aquella máquina habló con voz baja y apresurada.
 
-Varias líneas guía se apagaron a la vez,
-y a lo lejos la alineación de otras máquinas se desvió solo por un instante.
+—Llévense primero a los heridos.
 
-Sern tomó un aire breve.
+La línea de guía de la boca del camino izquierdo se apagó, y las caras de las dos máquinas apostadas en esa boca parpadearon. A lo lejos, los pasos de otras máquinas se desacompasaron una vez y volvieron a acompasarse, y en medio quedó un compás fuera de sitio.
 
-—Secuestro de señal… —dijo casi en un susurro.
+Sern tomó aire, breve.
 
-Ater ya estaba moviendo el cuerpo.
-Kael también,
-Seorin también,
-Luhai también reaccionaron casi al mismo tiempo.
+—Un secuestro de señal…
 
-Sion miró una vez a aquella máquina.
+Lo dijo casi en un susurro.
 
-Ya no era el rostro liso que Serakion había mostrado al principio.
+—¿Quién?
 
-Estaba más cerca de alguien que hubiera metido la mano hacia dentro de aquel orden acabado,
-y hubiera torcido ese rostro solo por un instante
-para abrir un camino hacia ellos.
+Fue Ater quien preguntó.
 
-Y en ese instante,
-por primera vez dentro de Serakion,
-el hecho de que existía un tipo de máquina distinta de aquel mundo
-pasó cruzando como un relámpago.
+—No lo sé. No es esa máquina. Es a través de esa máquina.
+
+Sern volvió a mirar el panel de registro.
+
+—No es una señal del lado de Serakion. Viene de más abajo.
+
+—¿Qué quiere decir con más abajo?
+
+—De abajo.
+
+El suelo que Ater miró era un suelo plateado. Pensando por primera vez que había algo debajo, se pasó por el hombro el brazo del hombre de la tela atada a la pierna.
+
+Kael soltó el brazo de la máquina que había estado sujetando, pero el brazo se quedó como estaba. La máquina no volvió a moverse; solo la luz de su cara seguía saltando.
+
+Seorin apartó la mano de la empuñadura.
+
+—A la izquierda.
+
+Giró la cabeza despacio hacia la boca del camino izquierdo.
+
+Mientras Luhai levantaba al anciano, Han Jiwoo, con el destornillador en la mano, intentó levantar a la mujer que tenía al niño en brazos, pero la mujer no pudo ponerse de pie. Solo cuando Han Jiwoo tomó al niño en sus brazos se levantó la mujer. Han Jiwoo no le devolvió al niño y caminó con él en brazos, y la mujer se quedó muy cerca de su lado.
+
+Sion miró una vez a aquella máquina: entre las cinco uniformes, solo una tenía la luz de la cara saltando. Esa luz miraba a Sion, y Sion lo sabía. No tenía ojos, y aun así lo sabía.
+
+—Ve.
+
+Lo dijo la máquina.
+
+Sion se dio la vuelta y entró por el camino izquierdo.
+
+Detrás sonaron los pasos de las cinco máquinas que empezaban a moverse. Entre ellos, los pasos de una no sonaron. Una, de pie.
+
+Sion oyó que los pasos de aquella máquina no sonaban.
 
 ---
 

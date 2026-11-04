@@ -1,176 +1,297 @@
-# Chapitre 151 — Qui extraire en premier
+# Chapitre 151 — Qui en premier
 
-Le plan de sauvetage quitta le stade des mots pour la première fois la nuit suivante.
+Ce ne fut que la nuit suivante que le premier plan de sauvetage quitta la forme des mots.
 
-L'équipe de reconnaissance et les mains de récupération choisirent l'un des passages les plus étroits et les plus anciens de la couche cachée, puis commencèrent à comparer la vitesse réelle de déplacement avec le temps de fermeture.
+Un passage étroit, au fond de la couche cachée, celui qu'on n'utilisait plus depuis le plus longtemps. Le plafond était bas et la poussière épaisse. La vieille machine désigna ce chemin où personne ne passait, et les cinq s'y placèrent. Sion se tint à l'entrée avec la planchette à points, Sern à côté de lui avec le panneau d'enregistrement.
 
-Face à Serakion, il ne suffisait pas que le raisonnement soit juste.
-
-Un demi-temps de décalage pouvait sauver une vie ou tout achever sur-le-champ.
-
-C'est pourquoi Kael, cette fois, fit bouger les corps avant les mots.
-
-« Encore. »
-Dit-il à voix basse.
-
-La seconde main de récupération bougea la première, Jiwoo suivit, et Ater se décala d'un pas en retard vers le flanc.
-
-Kael secoua aussitôt la tête.
-
-« Trop lent. »
-
-Ater se raidit.
-
-Kael dit, sans émotion dans la voix :
-
-« Si tu es en retard, ce n'est pas de la confusion que ça crée — c'est du soupçon. »
-« Il faut que ça ait l'air naturel. »
-
-Ces mots étaient froids, mais justes.
-
-Le rôle d'Ater n'était pas de se battre. C'était de produire un décalage suffisamment bref pour rester explicable, même aux yeux de l'ordre supérieur.
-
-Un blocage frontal déclencherait immédiatement l'alerte. Mais dans un monde suffisamment ordonné, la première réaction face à un léger déséquilibre est de le résorber en interne, par souci de cohérence.
-
-C'était ce demi-temps qu'il fallait créer.
+Kael fit bouger les corps avant les mots.
 
 « Encore. »
 
-Cette fois, Ater changea le rythme en premier.
+Il parlait bas.
 
-Sans trop de hâte, sans maladresse visible — juste assez pour troubler la réaction d'un androïde voisin, l'espace d'un instant.
+La seconde main de récupération bougea la première en traînant la jambe, et Han Jiwoo suivit. Ater se décala vers la ligne latérale avec un pas de retard.
 
-La première main de récupération observa et murmura très bas :
+Kael secoua la tête.
 
-« Ça, ça pourrait marcher. »
+« En retard. »
 
-Ater ne répondit pas. Mais son regard s'était encore assombri.
+Le visage d'Ater se raidit, mais aucune émotion ne se mêlait à la voix qui suivit.
 
-Le fait que ce qu'il devait accomplir n'était possible qu'en imitant précisément les habitudes de cet ordre — cela semblait le rendre un peu plus amer.
+« Si tu es en retard, ce n'est pas de la confusion, c'est du soupçon. Il faut que ça ait l'air naturel. »
 
-La part de Jiwoo était plus difficile encore.
+« Qu'est-ce qui est naturel ? »
 
-Elle devait lire en avance : qui suivrait si on lui prenait la main, qui réagirait physiquement même sans comprendre les mots, qui se figerait de terreur, qui courrait trop vite et mettrait tout le monde en danger.
+« La démarche de là-bas. Tu la connais. Tu l'as vue. »
 
-Le problème, c'est qu'à ce stade, rien de tout cela ne pouvait être confirmé avec certitude.
+Ater se tut et baissa les yeux sur ses pieds, puis tourna la pointe du pied vers l'intérieur, selon l'angle de la démarche de là-bas, vue depuis l'étage du dessus. Il fit un pas ainsi, et ce pas ne fit aucun bruit.
 
-Jiwoo s'adossa au mur, ferma les yeux un instant, puis les rouvrit.
+« Encore. »
+
+Cette fois, Ater changea le rythme le premier. Ni pressé ni lent. Il empiéta d'un demi-pas sur l'endroit où passait la seconde main, puis s'écarta. Une seule fois. Un décalage terminé avant qu'un témoin à côté ait fini de dire “Hein”.
+
+La première main de récupération, qui l'avait vu, parla très bas.
+
+« Ça, ça passera. »
+
+Ater ne répondit pas ; le regard éteint, il refit le pas qu'il venait de faire. C'était la démarche des machines qu'il avait vues en haut. Il s'arrêta.
+
+« Encore une fois. »
+
+Ater recommença, mais c'était toujours pareil.
+
+« C'est bon. »
+
+Ater n'avait pas le visage de quelqu'un qui pensait que c'était bon. Il s'adossa au mur et baissa les yeux sur ses pieds.
+
+« Savez-vous où j'ai appris cette démarche ? »
+
+Il ne s'adressait à personne en particulier.
+
+« En haut. »
+
+Kael répondit.
+
+« Avant cela. Chez moi. »
+
+Personne ne répondit, et Sern ne nota rien.
+
+La part de Han Jiwoo était plus difficile.
+
+Qui suivrait si on lui prenait la main, qui réagirait avec le corps même sans comprendre les mots. Qui se figerait de peur, qui courrait trop vite et deviendrait un danger. Les enfants à sauver n'étant pas là, impossible de s'y exercer maintenant. Il y avait bien les enfants de Hazran, mais elle ne se servit pas d'eux.
+
+Adossée au mur, elle ferma les yeux, puis les rouvrit.
 
 « Je sais qu'il faut commencer par ceux qui réagissent. »
-Dit-elle à voix basse.
-« Mais c'est la méthode la plus cruelle. »
 
-Personne ne répondit.
+Elle parlait bas.
 
-Car ces mots signifiaient qu'il y aurait des enfants qu'on ne pourrait pas emmener lors de la première extraction.
+« Mais c'est la façon qui fait le plus mal. »
 
-La première main de récupération parla très lentement.
+Personne ne répondit ; pendant ce temps, Luhai regarda du côté des enfants de Hazran endormis.
 
-« D'abord, il faut prouver. »
-« Prouver qu'on peut en sortir. »
-« C'est la seule façon d'ouvrir la suite. »
+La première main de récupération parla lentement.
 
-Kael acquiesça brièvement.
+« D'abord, il faut prouver. Prouver qu'on peut en sortir. C'est ainsi qu'il y aura une suite. »
 
-« C'est juste. »
+Kael approuva brièvement.
 
-Jiwoo le savait déjà. C'est justement pour cela que la colère se lisait sur son visage.
+« C'est vrai. »
 
-Commencer par ceux qu'on peut sauver — c'est la bonne décision. Mais pour ceux qui veulent sauver tout le monde, c'est aussi la phrase la plus cruelle qui soit.
+Ce n'était pas que Han Jiwoo l'ignorait. Son visage le disait. Elle pressa sa sacoche à outils.
 
-Ater rompit le silence en demandant :
+Ater parla comme pour rompre ce silence.
 
-« Fixons les critères. »
+« Fixons des critères. »
 
-Kael traça trois lignes courtes sur le sol.
+Du doigt, Kael traça trois courtes lignes dans la poussière du sol.
 
-« Premièrement : ceux qui ne sont pas encore complètement entrés dans le rythme supérieur. »
-« Deuxièmement : ceux dont la main ou le regard réagit encore à un stimulus extérieur. »
-« Troisièmement : ceux dont l'extraction ne fera pas s'effondrer toute la file. »
+« Un : un enfant qui n'est pas encore complètement entré dans le rythme d'en haut. Deux : un enfant dont la main ou le regard réagit à un stimulus extérieur. Trois : un enfant qu'on peut faire courir sans que toute la file s'effondre. »
 
-La seconde main de récupération murmura :
+La seconde main de récupération parla bas.
 
 « C'est le dernier critère qui fait le plus mal. »
 
-C'était vrai.
+« Pourquoi ? »
 
-Le sauvetage naît d'un élan tourné vers tous, mais sa première exécution commence par le choix de quelques-uns dont l'extraction ne détruira pas l'ensemble.
+Luhai posa la question depuis l'entrée.
 
-Alors certains enfants seront laissés en arrière — non parce qu'ils ne méritent pas d'être sauvés, mais parce que les emmener dans ce tempo-là pourrait tous les tuer.
+La seconde main regarda Luhai.
 
-Cette distinction est capitale, mais pour ceux qui restent, elle n'aura aucun sens.
+« Parce que cela veut dire qu'on laisse derrière ceux qui la feraient s'effondrer. »
 
-Jiwoo, les mâchoires serrées, dit :
+Luhai se tut et regarda de nouveau du côté des enfants.
 
-« Ajoute ceux qui peuvent se souvenir. »
+Han Jiwoo parla, les dents serrées.
 
-Kael la regarda.
+« Mets aussi ceux qui peuvent se souvenir. »
 
-Jiwoo parla lentement.
+Kael la regarda, et elle poursuivit lentement.
 
-« Ceux qui se souviennent de Hazran, ou de la main venue de l'extérieur, ou qui pourront garder en eux le fait que quelqu'un est venu les chercher. »
-« Même si la première extraction réussit, pour qu'il y ait une suite, il faut que ceux qui restent à l'intérieur en gardent une trace. »
+« Ceux qui se souviennent de Hazran, ou des mains du dehors, ou qui pourront retenir, même plus tard, que quelqu'un est venu les chercher. Même si le premier sauvetage réussit, pour qu'il y ait une suite, il faut que ceux qui restent à l'intérieur en gardent une trace, eux aussi. »
 
-Le silence s'installa un moment dans la pièce.
+Sern inscrivit ces mots à la quatrième ligne du panneau d'enregistrement.
 
-Ces mots semblaient dictés par l'émotion, mais en réalité, c'était un critère d'une froideur absolue.
+Ater parla bas.
 
-La première extraction ne se limite pas à sortir quelques personnes. Elle inclut aussi le fait de laisser, dans l'esprit des enfants qui ont vu la scène, l'empreinte d'un temps extérieur, d'une main tendue, d'une arrivée possible.
+« Ce n'est pas un sauvetage, c'est une fissure. »
 
-Ater dit à voix basse :
-
-« Ce n'est pas un sauvetage. C'est une fissure. »
-
-Jiwoo répondit brièvement :
+Han Jiwoo répondit brièvement.
 
 « Les deux. »
 
-Kael ne contesta pas.
+Kael ne le contesta pas et parla plus bas encore.
 
-Au contraire, il ajouta plus bas encore :
+« Alors on a encore moins le droit d'échouer. »
 
-« Alors on n'a plus le droit d'échouer. »
+À côté des trois lignes, il en traça une quatrième.
 
-Après cela, ils répétèrent le même parcours encore et encore.
+Ensuite, ils répétèrent le même parcours.
 
-Où fallait-il avancer d'un pas en premier. Sous quel angle entrer pour guider les enfants sans les bousculer. Au bout de combien de secondes de confusion l'alerte se déclencherait. Combien de personnes pouvaient suivre sur le chemin du retour sans que la vitesse ne chute.
+Où fallait-il partir un pas avant les autres. Ater d'abord. Qui devait entrer sous quel angle pour tirer les enfants sans les pousser. Han Jiwoo à gauche, la seconde main à droite.
 
-Tout fut calculé comme des chiffres, mais ce que ces chiffres contenaient, au bout du compte, c'étaient des corps humains.
+Au bout de combien de secondes de confusion l'alerte montait. Kael comptait. Trois. Combien pouvaient s'accrocher sur le chemin du retour sans que la vitesse baisse. La première main se plaça derrière.
 
-Après plusieurs répétitions, la seconde main de récupération dit très bas :
+Sans que personne le lui demande, Luhai joua l'enfant. Quand Han Jiwoo lui prit le poignet, il se laissa tirer, et quand la seconde main l'entoura par les épaules, il se raidit exprès.
+
+« Et si on se raidit comme ça ? »
+
+Kael répondit.
+
+« Tu pousses quand même. Ceux qui sont raides, on les pousse et ils avancent. »
+
+Luhai fut poussé de trois pas, s'arrêta et se retourna.
+
+« Et ceux qui ne sont pas raides ? »
+
+« Ceux-là, tu les tires. Par le poignet. Pas par le bras. »
+
+« Pourquoi le poignet ? »
+
+« Le bras glisse. Le poignet, non. »
+
+Luhai saisit son propre poignet et le tourna, mais le poignet ne glissa pas.
+
+« On pousse à faire mal ? »
+
+« À faire mal. Si ça ne fait pas mal, ils n'avancent pas. »
+
+Luhai toucha l'endroit où on l'avait poussé, son épaule.
+
+« Même les enfants ? »
+
+« Même les enfants. »
+
+Il reprit sa place d'enfant.
+
+Cette fois, Ater passa devant Luhai de la démarche de là-bas. Luhai regarda cette démarche et, sans le vouloir, ses pieds s'arrêtèrent.
+
+« Pourquoi tu t'arrêtes ? »
+
+Kael posa la question.
+
+« J'sais pas. Quand je vois cette démarche, je m'arrête. »
+
+Ater s'arrêta, mais ne se retourna pas.
+
+« C'est ce que cela fait. »
+
+Il parlait bas.
+
+« C'est pour cela que là-haut, tout le monde s'arrête. »
+
+Luhai regarda son pied immobile, puis, exprès, le leva du sol.
+
+Sans rien dire à voix haute, Sern comptait le temps sur ses doigts. La plupart du temps, c'était fini avant que ses doigts se soient tous repliés une fois. Une fois, cela dépassa, et il nota le nombre de dépassements.
+
+« Ça a dépassé combien de fois ? »
+
+Kael posa la question.
+
+« Cela a dépassé une fois sur trois. »
+
+Sern répondit.
+
+« La fois où cela a dépassé, c'était au moment où le troisième enfant entrait. »
+
+Kael regarda Luhai, qui jouait le troisième enfant, l'enfant rapide. Comme on le lui avait dit, Luhai s'était élancé le premier les trois fois.
+
+« Élance-toi plus vite. »
+
+« Plus vite ? »
+
+« Un vrai enfant est plus rapide. »
+
+Luhai reprit sa place d'enfant.
+
+Après plusieurs répétitions, la seconde main de récupération parla très bas.
 
 « Trois. »
 
-Tous le regardèrent.
+Tous la regardèrent.
 
-« La première fois, trois est la limite. »
-Dit-il.
-« Quatre si tout se passe bien. »
-« Au-delà, le chemin du retour s'effondre. »
+« La première fois, trois, c'est la limite. »
 
-Ce nombre était plus petit que prévu, et rendit la pièce plus lourde encore.
+Elle poursuivit.
 
-Trois. Quatre au mieux.
+« Quatre si tout va bien. Au-delà, le chemin du retour s'effondre. »
 
-Comparé à la vitesse à laquelle Serakion emmenait les enfants, c'était dérisoire. Mais la première brèche que les mains de cette couche pouvaient supporter était probablement de cet ordre.
+« Pourquoi trois ? »
 
-Jiwoo ne dit rien.
+Luhai posa la question.
 
-Elle serra le poing lentement, puis le rouvrit. Ce geste faisait plus mal que des mots.
+« Parce qu'il y a deux mains. »
 
-Ater s'adossa au mur et ferma les yeux. Kael regarda une dernière fois les lignes tracées au sol.
+La seconde main désigna Han Jiwoo, puis elle-même.
 
-Et à cet instant, tous comprirent la même vérité avec une netteté absolue.
+« Un enfant par main. Et un qui court. »
 
-La question n'était plus de savoir s'ils en étaient capables.
+Luhai regarda ses mains. Deux. Il fit un pas depuis l'entrée.
 
-Ils en étaient capables. Mais la première fois, trois — quatre au mieux — et le fait de devoir choisir ces quelques-uns serait ce qui les déchirerait en premier.
+« Moi aussi, j'ai deux mains. »
 
-Quand cette nuit toucha à sa fin, ils n'avaient pas encore fait face aux enfants, et pourtant ils portaient déjà des visages blessés.
+« Toi, tu restes dedans. »
 
-Le vrai sauvetage n'avait pas encore commencé.
+Han Jiwoo répondit.
 
-Mais à l'instant où ils avaient commencé à décider qui emmener en premier et qui laisser derrière cette fois-ci, ils portaient déjà entre leurs mains, de leur propre gré, une part de la cruauté de ce monde.
+« Les mains des enfants d'ici. »
+
+Luhai s'arrêta là, puis fit demi-tour et retourna à l'entrée.
+
+Trois.
+Quatre au mieux.
+
+Han Jiwoo ne dit rien. Elle serra la main, la rouvrit, puis la serra.
+
+Ater s'adossa au mur et ferma les yeux ; les yeux fermés, il bougea une fois le pied, de la démarche de là-bas, puis s'arrêta.
+
+Kael regarda de nouveau les quatre lignes dans la poussière et ne les effaça pas de la paume.
+
+Sur la planchette que regardait Sion, à côté des points des cinq, il y avait la place des enfants. Dans l'espace vide, il traça les points des trois qui n'étaient pas encore venus. Il regarda les points tracés, mais ne traça pas le quatrième.
+
+Seorin jeta un coup d'œil par-dessus la planchette.
+
+« Et le quatrième ? »
+
+« C'est “si tout va bien”, d'après eux. »
+
+« Alors trace-le, ton “si tout va bien”. »
+
+Sion ne le traça pas.
+
+« Je le tracerai quand l'enfant sera là. »
+
+Seorin n'insista pas ; à la place, elle posa le doigt dans la poussière à côté de la planchette et, sur le sol, hors de la planchette de Sion, marqua un point.
+
+« Un ici. »
+
+« C'est quoi ? »
+
+« Si tout va bien. »
+
+Sion regarda ce point, mais ne l'effaça pas.
+
+Sern parla en refermant le panneau d'enregistrement.
+
+« Les signaux ont encore augmenté. Cette nuit. »
+
+La première main parla en regardant vers la brèche.
+
+« Demain soir. Pas avant. »
+
+« Pourquoi ? »
+
+Han Jiwoo posa la question.
+
+« Cette nuit, les signaux ont augmenté. Demain, ils diminueront ou augmenteront encore. »
+
+« Et s'ils augmentent encore ? »
+
+« S'ils augmentent encore, après-demain. »
+
+C'était la première main.
+
+Pendant que la lampe jaune clignotait, Luhai alla s'asseoir près des enfants. Il avait deux mains. Il les posa sur ses genoux.
 
 ---
 

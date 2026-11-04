@@ -203,17 +203,6 @@ Lo dijo Aka.
 
 Han Jiwoo soltó un resoplido corto y volvió a bajar las manos.
 
-Hablaban poco. Pero las dos lo sabían.
-
-Que, fuera quien fuera el que trajera algo de fuera,
-quien viniera preguntando por alguna información,
-quien volviera viendo Hazran de un modo u otro,
-al final, al volver a unirlo todo aquí dentro, todo quedaría sometido a examen una vez más.
-
-Hazran le mostraba a cada uno algo distinto.
-
-Pero todos esos trozos distintos, por raro que fuera, se iban juntando poco a poco del lado de salvar el mismo barco.
-
 ---
 
 <sub>© 2026 Edmond Dantès J / Aoineco & Co. All rights reserved.<br>Solo se permite la lectura y el compartir enlaces. Quedan prohibidos la reproducción, la redistribución, la adaptación, el uso comercial y el uso para entrenamiento de IA/ML, conjuntos de datos o construcción de modelos sin autorización escrita explícita. Consulte <a href="../../COPYRIGHT.md">COPYRIGHT.md</a>.</sub>

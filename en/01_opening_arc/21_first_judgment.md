@@ -68,8 +68,6 @@ Sern cut in, very low.
 
 "The reaction is weakening."
 
-With those words the air changed.
-
 This reaction was not waiting for them. It was a habit something dying repeats a few last times.
 
 Seorin spoke.
@@ -126,8 +124,6 @@ Sion turned.
 Sion couldn't find an answer.
 
 "And," Seorin added, "going in was your call, and staying is mine. That much I get to call."
-
-If even one of the five dropped out, this threshold would not be crossed. Nobody said it out loud.
 
 Sion bent toward the structure again.
 

@@ -38,7 +38,7 @@ C'était tout. Deux plaques et quatre personnes.
 
 « En arrivant, on était quatre. »
 
-Sion faillit demander comment s'étaient passés ces quelques jours, puis renonça. S'il demandait, on lui répondrait, et répondre prenait du temps.
+Sion faillit demander comment ça s'était passé de leur côté, puis renonça. S'il demandait, on lui répondrait, et répondre prenait du temps.
 
 Le bout de la plaque était déchiré. Elle s'était fendue en longueur depuis le coin vers l'intérieur, et la fente s'élargissait un peu plus à chaque pression.
 

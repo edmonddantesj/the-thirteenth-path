@@ -138,7 +138,7 @@ The young human only smiled and gave no answer. While the one beside him straigh
 
 Han Jiwoo looked at the metal tags hanging at those humans' throats. All four were in the same spot, and the shapes differed a little, but the size was the same.
 
-Without meaning to, she clenched her hand inside her pocket, and the pocket cloth pulled tight. Luhai saw it but didn't ask; he looked at Han Jiwoo once, then out the door.
+Her hand clenched inside her pocket, and the pocket cloth pulled tight. Luhai saw it but didn't ask; he looked at Han Jiwoo once, then out the door.
 
 Sern kept reading the structure and the paths of movement. He was counting the people who passed outside the door, and with each one he counted, he drew a line on his record panel.
 

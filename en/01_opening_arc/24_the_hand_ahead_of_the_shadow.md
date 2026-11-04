@@ -66,7 +66,7 @@ Ater spoke quietly.
 Sion answered low as well.
 "But now that we're in this far, we can't not step on it."
 
-That held equally for the three on site and the two left on the ship. Touch this wrong and the remaining judgment response would die, and the hand holding the larger fragment would slip away with it. Too late, on the other hand, and the other would vanish down the next exit line. At this distance, hesitation was loss.
+That held equally for the three on site and the two left on the ship. Touch this wrong and the remaining judgment response would die, and the hand holding the larger fragment would slip away with it. Too late, on the other hand, and the other would vanish down the next exit line.
 
 Han Jiwoo's voice brushed through the comm-line, very quietly.
 
@@ -190,8 +190,6 @@ Ater was silent for a moment.
 
 Sion stepped one pace farther into the narrow junction inside the structure. The metal plates underfoot were unstable, but if he kept to the load lines Sern had marked earlier, they would hold. Sern kept watching the order of those footsteps from behind, and Ater read the wall marks and damage patterns, watching only for the next exit line the other might choose.
 
-The three of them moved far less clumsily now than at first. It couldn't be called a team yet. But at least here, inside this narrow structure, what each of them needed to be watching had almost come into line.
-
 At the end of the shadow ahead, metal grazed once more.
 
 This time a very brief afterglow followed the sound.
@@ -278,7 +276,7 @@ Sern took that up at once.
 
 "And that is when they are closest."
 
-Sion looked at each of the two in turn. One read structure, the other read sequence. Both spoke a language different from his, and yet right now, strangely, it was all gathering into the same answer.
+Sion looked at each of the two in turn. They were reading different things and arriving at the same answer.
 
 He said, very low,
 

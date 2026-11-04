@@ -1,257 +1,255 @@
 # Capítulo 195 — Los huecos que se acortan
 
-Tras cruzar la tercera puerta,
-el pasillo cambió otra vez.
+Tras cruzar la tercera puerta, el pasillo cambió otra vez.
 
-Se volvió más estrecho.
-Si dos se ponían lado a lado, los hombros se tocaban.
-Se volvió más liso.
-Se volvió más callado.
+Era más estrecho: si dos se ponían lado a lado, los hombros se tocaban, y cuando los hombros de Sion y de Sern se tocaron, Sern retrocedió medio paso. El pasillo era más liso, y más callado.
 
-Pero ese silencio no estaba vacío.
-Al contrario.
+Sion iba a dar un paso cuando una línea de luz de delante, que nadie había tocado todavía, se plegó y volvió a extenderse. El pasillo quedó de nuevo en calma, pero era la calma de algo que ya había terminado su reacción siguiente. Las paredes no tenían ni un defecto, y la luz del interior del techo era más baja y más uniforme que antes.
 
-En el instante en que Sion iba a dar un paso más,
-una línea de luz de adelante se plegó mínimo.
-Aún nadie había tocado nada,
-y el pasillo ya volvía a la calma con cara de haber terminado su próxima reacción.
+Sion miró esa luz y, sin apoyar el pie, retiró hacia atrás el pie que tenía levantado.
 
-Las paredes seguían sin una sola ranura,
-y la luz bajo el techo respiraba solo más bajo y más pareja que antes.
+—Se movió primero.
 
-Sion, mirando esa luz,
-entendió que ahora Serakion había reducido un grado más su propio modo de bloquearlos.
+Lo dijo él.
 
-Revela menos que antes,
-lee más rápido,
-cierra más corto.
+—Antes que nosotros.
 
 Seorin tenía cara de haber visto lo mismo.
 
-—De la próxima en adelante es más corto.
+—De aquí en adelante, más corto.
 
-Sern, mirando la línea mínima que corría bajo la pared, dijo bajo.
+Lo dijo Seorin.
 
-—Ya redujo el desvío de hace un momento. En este piso, aunque entre el mismo temblor, el tiempo que se mantiene será más corto.
+Sern habló en voz baja, mirando las líneas que corrían al pie de la pared.
 
-Kael se frotó una vez el borde de la boca con el dorso.
+—Ya ha reducido el error de hace un momento. En este estrato, aunque vuelva a entrar el mismo temblor, se mantendrá menos tiempo.
 
-—Qué bien. Nos va a dejar respirar menos.
+—¿Cuánto?
 
-Esa frase cayó como broma,
-pero nadie rió.
+—Será medio compás. Antes era un compás entero.
 
-Han Jiwoo miró las dos máquinas de atrás.
+Kael se frotó con el dorso de la mano el polvo de la comisura de la boca.
+
+—Qué bien. Encima vamos a respirar menos.
+
+Nadie se rio, ni siquiera Kael.
+
+Han Jiwoo se volvió hacia las dos máquinas de atrás y preguntó.
 
 —¿Esta vez también funciona?
 
-Una máquina respondió corto.
+Una de las máquinas respondió, breve.
 
 —Funciona. Corto.
 
-Otra lo retomó.
+La otra añadió.
 
-—Más corto. Lo reducen enseguida.
+—Más corto. Lo reduce enseguida.
 
-Sern tomó esa frase.
+—¿Cuánto es enseguida?
 
-—Entonces no queda más que cruzar antes de que entre la segunda corrección.
+—Antes de que lancemos el segundo.
+
+Sern recogió esas palabras.
+
+—Entonces no queda más remedio que cruzar antes de que entre la segunda corrección.
 
 Seorin asintió enseguida.
 
-—Esta vez no hagan camino. Tuerzan solo hasta justo antes de que surja. No esperen el instante en que se abre; empujen hacia el lado donde no puede sino abrirse.
+—Esta vez no abran camino. Tuérzanlo solo hasta justo antes de que se forme. No esperen el momento en que se abre: empújenlo hacia el lado por donde no le quede más remedio que abrirse.
 
-Sion oyó esa frase y volvió a mirar el fondo del pasillo.
+—¿Y qué diferencia hay?
 
-La puerta de este piso aún no se mostraba del todo.
+Lo preguntó Sion.
 
-En cambio, el pasillo entero se sentía ya como una puerta comprimida.
-No como en las puertas anteriores, en que se cruzaba una sola estructura concreta,
-sino que todo el tramo por el que caminaban
-se estrechaba como una garganta que se cierra de a poco.
+—Si vas después de verlo abrirse, llegas tarde. El cuerpo tiene que estar ahí antes de que se abra. Cuando se abra, ya estás dentro.
 
-Sern fue el primero en atrapar esa sensación en palabras.
+Con la punta del mentón señaló, breve, el fondo del pasillo.
 
-—El pasillo mismo es el eje de alineación. Cuanto más adentro, la línea de guiado y la de bloqueo se mueven superpuestas por tramos.
+Al fondo del pasillo, donde miró Sion, no había puerta ni pared. El pasillo se estrechaba y el techo bajaba, y seguía adelante como una garganta; al bajar la vista a sus propios hombros, vio que quedaba un palmo hasta cada pared.
 
-Serakion ahora, a los seres que subían por dentro de sí,
-quería asfixiarlos con respuestas correctas cortas y encadenadas
-en vez de bloquearlos en un punto.
+Sern habló primero.
 
-Kael repasó una vez la ranura del lado exterior del pasillo y dijo bajo.
+—El pasillo mismo es el eje de alineación. Cuanto más adentro, las líneas de guiado y las líneas de bloqueo se mueven superpuestas, tramo a tramo.
 
-—Si se cierra una vez, el siguiente cajón lo retoma enseguida.
+—¿No hay puerta?
+
+—El pasillo es la puerta.
+
+Lo dijo Sern.
+
+—No bloquea en un solo punto: bloquea sin parar mientras uno camina. En golpes cortos. Muchas veces.
+
+Kael lo repasó con la punta del pie: en el lado exterior del pasillo había muchas ranuras, una por cada paso.
+
+—Si se cierra una, la casilla siguiente toma el relevo enseguida.
 
 —Sí.
-Seorin respondió corto.
-—Por eso esta vez no basta con sacudir un solo cajón.
 
-Atrás, las dos máquinas intercambiaron un ruido bajísimo.
+Seorin respondió, breve.
 
-Han Jiwoo oyó ese flujo
-y notó que la onda ahora se repetía cortada mucho más breve que antes.
+—Por eso esta vez no basta con sacudir una sola casilla.
 
-Una máquina vieja dijo bajo.
+En el techo bajo, adonde miró Ater, no había líneas.
 
-—El androide primero. El robot justo detrás. El camino no dura mucho.
+—De arriba no vendrá nada.
+
+Lo dijo él.
+
+—Todo viene de los lados. No tengo adónde mirar.
+
+—Entonces mira atrás.
+
+Lo dijo Seorin.
+
+—Lo que se cierra por detrás.
+
+Ater fue atrás y se puso junto a las dos máquinas viejas.
+
+Atrás, las dos máquinas intercambiaron un ruido bajo; a oídos de Han Jiwoo, era un sonido cortado más breve que antes, que se repetía con la misma longitud.
+
+Una de las máquinas viejas habló en voz baja.
+
+—Androide primero. Robot justo detrás. Camino no dura mucho.
 
 Seorin alzó la cabeza.
 
-—Bien. Si sacudimos el compás del androide, el robot irá enseguida a rellenar ese hueco. Eso lo enredamos con el segundo temblor.
+—Bien. Si sacudimos el compás de los androides, los robots irán enseguida a rellenar esa brecha. Eso lo enredamos todo junto con la segunda sacudida.
 
-Sern siguió.
+Sern continuó.
 
-—Entonces no la línea central, sino la junta entre tramos queda vacía.
+—Entonces lo que queda vacío no es la línea central, sino la conexión entre tramos.
 
-Sion preguntó corto.
+—¿Dónde está la conexión?
 
-—Ese hueco, ¿sale tan grande como para que pase una persona?
+—Está entre un tramo y el siguiente. Justo antes de que se enlace el próximo eje de alineación.
+
+Donde señaló Sern, en el suelo del pasillo, la línea de guiado se cortaba y volvía a empezar: un punto del ancho de un dedo.
+
+Sion preguntó, breve.
+
+—Esa brecha, ¿se abre lo bastante para que pase una persona?
 
 Kael respondió primero.
 
-—Una persona sale. El problema es si pasan todos hasta atrás.
+—Para una persona, sí. El problema es si pasamos a todos, hasta los de atrás.
 
-Han Jiwoo tragó aire corto.
+Han Jiwoo contuvo el aliento. Nueve.
+Miró atrás, donde estaban el último androide, las dos máquinas viejas y Ater, y luego miró adelante.
 
-Quién primero,
-quién último,
-quién aguanta la línea que se cierra:
-ahora era un piso en que había que elegirlo más crudo.
+Quién primero.
+Quién último.
+Quién aguantaría la línea que se cierra.
 
-Pero Seorin no retuvo mucho esa pregunta.
+No lo dijo en voz alta, y Seorin no retuvo mucho esa pregunta.
 
 —Esta vez también vamos todos. Pero hay que ser más rápidos.
 
-Al caer esa frase,
-la luz de ambos lados del pasillo se partió fina.
+La luz de ambos lados del pasillo se partió, fina.
 
-Esta vez salieron primero dos androides,
-y detrás de ellos, casi solapándose, dos robots de Serakion.
+Primero aparecieron dos androides, y detrás, casi solapándose, salieron dos robots de Serakion. El intervalo era tan corto que entre la espalda de la unidad de delante y la placa del hombro de la de detrás no había ni un palmo.
 
-El intervalo era más corto que en el piso anterior.
-Entre la espalda de la unidad de delante y la placa del hombro de la de atrás no había ni un palmo.
+Sern habló al instante.
 
-Sern dijo al momento.
-
-—Reordenaron la disposición. Redujeron el intervalo.
+—Han modificado la disposición. Han reducido el intervalo.
 
 —Lo vi.
-Seorin lo dijo corto.
-—Así que se enreda más rápido.
 
-El primer ruido de las máquinas rozó el suelo del pasillo.
+Seorin habló con brevedad.
 
-El paso de un androide se sacudió medio compás.
+—Por eso se enredan más rápido.
 
-Pero esta vez de verdad fue breve.
+—¿Por qué?
 
-Apenas se sacudió, el robot de Serakion de atrás fue enseguida a rellenar esa línea.
+Lo preguntó Sion.
 
-En ese instante,
-Kael metió el pie en una ranura auxiliar del lado exterior.
+—Si están cerca, se leen primero entre ellos. Si están lejos, cada uno lee por su cuenta. Si están cerca, leen primero al de al lado.
 
-No la bloqueó del todo.
-Pero la línea de bloqueo auxiliar del robot que iba a retomar no logró plegarse en el ángulo exacto,
-y por un instante brevísimo se corrió hacia el exterior.
+El primer ruido de las dos máquinas rozó el suelo.
 
-—Ahora.
+El paso de un androide se sacudió medio compás, el robot que iba un palmo detrás quiso rellenar esa línea, y los dos se leyeron primero el uno al otro. El espacio entre tramo y tramo se vació, y el ancho de un dedo se volvió el ancho de unos hombros.
 
-La voz de Seorin cayó baja.
+Sion entró. Empujó el cuerpo antes de verla abrirse, y las aristas de las dos paredes le apretaron la espalda y el pecho hasta sacarle el aire.
+Pasó.
+A su espalda, la conexión se cerró; no tardó ni un compás. Al otro lado estaba el mismo pasillo, con el mismo ancho y la misma luz.
 
-El segundo ruido se coló casi a la vez entre el androide y el robot de Serakion.
+La conexión seguía allí, delante de los ocho que quedaban.
 
-La unidad de adelante debía restaurar al androide originalmente sacudido,
-y la de atrás debía rellenar ese hueco.
+—Cada apertura es una persona.
 
-Pero esta vez esas dos respuestas
-se solaparon un momento por leerse primero entre sí.
+Lo dijo Sern.
 
-Como Serakion había hecho rápida la restauración,
-también había crecido el margen de que las restauraciones chocaran entre sí.
+Seorin puso la hoja en vertical.
 
-Sern gritó corto.
+—Entonces, de uno en uno.
 
-—¡La junta se vacía!
+El ruido salió de nuevo. El androide se tambaleó, y el robot rellenó.
+Seorin torció los hombros y se metió por la brecha.
+Se cerró.
 
-Sion se agachó al momento.
+Otro ruido.
+Sern. El panel de registro raspó la pared.
+Se cerró.
 
-No cruzaba una puerta.
-Entre tramo y tramo del pasillo,
-el hueco fino justo antes de que el próximo eje de alineación se encadenara del todo.
+Otra vez.
+Ater.
+Se cerró.
 
-Se coló por ese hueco casi deslizándose.
-Las aristas de ambas paredes le apretaron a la vez la espalda y el pecho.
+Desde el otro lado, Sion agarraba del brazo a cada uno que pasaba y tiraba.
 
-Seorin lo siguió enseguida,
-y Han Jiwoo aguantó con el hombro el borde de la línea de luz que se cerraba.
+La apertura se iba estrechando. Las dos máquinas lanzaban el ruido por turnos, y mientras una lo lanzaba la otra descansaba; Han Jiwoo, que estaba al lado, sentía con el dorso de la mano el calor que subía del cuerpo de la que descansaba.
 
-Fue un instante brevísimo.
-Pero sin ese instante los dos de atrás no cruzan.
+A una de las máquinas viejas se le atascó el hombro al entrar, y giró el cuerpo para pasar.
 
-Un robot de Serakion fue enseguida a cerrar la línea de nuevo.
+Quedaban cuatro: Kael, la otra máquina vieja, el último androide y Han Jiwoo.
 
-Entonces se movió el último androide.
+Entonces la conexión se movió antes que el ruido e intentó cerrarse antes incluso de que la sacudieran. Era lo que había dicho la máquina: la segunda corrección, que entraba antes de que pudieran lanzar el segundo.
 
-Tampoco esta vez se puso al frente.
+Kael metió el pie hasta el tobillo en la ranura auxiliar del lado exterior, y la línea de bloqueo auxiliar que se estaba cerrando perdió el ángulo y se corrió hacia fuera.
+Medio palmo.
 
-Detrás del hueco ya creado,
-entró tarde en un ángulo en que la línea que se cerraba no lograba decidir a quién debía cortar primero.
+Han Jiwoo apoyó el hombro en el borde de la línea de luz interior. El hombro quedó aplastado, y la luz se detuvo sobre ese hombro. Apretó los dientes.
 
-Entonces el cálculo de Serakion volvió a partirse corto una vez más.
+—Ve.
 
-Si restaurar primero la reacción del androide,
-si completar primero el tramo que se cerraba,
-si leer como nuevo criterio al ser que había entrado en medio.
+La máquina vieja que quedaba giró el cuerpo dos veces y entró.
+Al entrar el último androide, el hombro de los nudos chocó con la pared.
+Han Jiwoo despegó una de las manos con que aguantaba y empujó ese hombro, y la luz bajó media falange.
+Pasó al otro lado.
 
-Mientras esos tres se solapaban,
-el ángulo exterior que Kael había sujetado,
-la línea interior que Han Jiwoo había aguantado
-y el próximo momento de recálculo que Sern había leído engranaron de una.
+En el instante en que el pie de Kael salió de la ranura, la luz le rozó el cuello de la ropa, la punta del brazo.
+Él pasó al otro lado.
 
-—¡Ahora!
+Han Jiwoo fue la última. Al retirar el hombro, la línea de luz bajó por ese sitio hasta el suelo.
 
-Esta vez gritó primero Sion.
+Un poco más tarde y ahí la habría cortado. En el hombro, cuando Han Jiwoo bajó la vista, la ropa aplastada había dejado una marca. Alisó la marca con la mano.
+No se alisó.
 
-Las dos máquinas de atrás montaron un tercer ruido brevísimo,
-y el último androide y hasta Kael metieron casi a la vez el cuerpo en el siguiente tramo.
+Una de las máquinas viejas apoyó la mano en la pared e intentó lanzar el ruido una vez más, pero no salió ningún sonido.
 
-La luz que se cerraba rozó el cuello de la ropa y la punta de los brazos al pasar.
+—¿Cuántas veces?
 
-Un poco más tarde y los habría cortado.
+Lo preguntó Seorin.
 
-Pero al final,
-el grupo había cruzado al interior del siguiente tramo.
+—La abrimos cinco veces.
 
-Tampoco hubo mucho respiro.
+Sern respondió.
 
-El pasillo se realineó enseguida,
-y el desajuste que había surgido hacía nada se borraba a una velocidad increíble.
+—La sexta, la cerraron primero los de allá.
 
-Serakion, de verdad, cuanto más arriba,
-no dejaba mucho el error.
+Seorin asintió y bajó la hoja.
 
-Seorin dijo corto.
+Más adentro del pasillo, donde miró Sion, no había final: solo paredes que se estrechaban y un techo que bajaba. Cambió el agarre de la hoja, con el lado mellado hacia dentro. Al mirarse la palma vio que no era sudor, sino un poco de sangre del roce con la arista de la pared, y se frotó esa mano en el pantalón.
 
-—Lo viste. Ahora ni el hueco respira largo.
+Han Jiwoo revisó el nudo del último androide: no se había soltado. Junto al nudo había un rasguño de la pared; lo tocó con la mano y la retiró.
 
-Sern respondió bajo.
+—Ve.
 
-—El próximo será más corto.
+Lo dijo ella.
 
-Sion miró más adentro del pasillo.
+Seorin echó a andar primero, y los nueve la siguieron en una sola fila por el pasillo estrecho. Quien rozaba la pared con el hombro se ponía de lado; las dos máquinas viejas giraban dos veces, y el último androide giraba una, hacia el lado del hombro caído.
 
-Todavía no se veía el final.
-
-Cuando al fin subieran hasta lo más alto,
-¿sería de verdad lo que allí los esperara un centro que valiera toda esta asfixia y esta pérdida?
-
-Esa pregunta crecía un poco cada vez que cruzaban un piso.
-
-Seorin dio el primer paso,
-y los demás pronto la siguieron detrás.
-
-Cuanto más alto el piso,
-los huecos que ellos podían robar se acortaban cada vez más.
+Las brechas se iban acortando, y esta vez Sern no anotó nada en el panel de registro. No le quedaba hueco para escribir, así que contaba mientras caminaba.
 
 ---
 

@@ -139,7 +139,6 @@ Esta vez Sion alzó la cabeza y lo miró de frente.
 —Alguien ha estado dentro.
 Y no hace mucho.
 
-El aire de la barandilla de arriba se detuvo un instante.
 Sern reaccionó antes que Ater.
 
 —¿Por qué lo juzga así?
@@ -201,7 +200,6 @@ Ater miró un momento a los dos y luego dijo, muy bajo:
 
 —Ahora lo de dentro va antes que las palabras.
 
-Con esa sola frase el aire se ordenó un poco.
 Eran palabras que esgrimían la autoridad, pero al menos eran las de alguien que no pensaba alargar una disputa inútil.
 
 Sion miró un momento la puerta, miró a Ater y volvió a mirar la puerta.

@@ -153,7 +153,7 @@ Lo preguntó Sion.
 
 —Siete, sí. A partir de ocho, no.
 
-—Antes dijiste siete, tres veces.
+—Antes dijiste que cortáramos en siete.
 
 —Por eso dije siete.
 Lo dijo Han Jiwoo.

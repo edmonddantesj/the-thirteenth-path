@@ -70,8 +70,6 @@ Zahir répondit brièvement.
 
 « L'intérieur. »
 
-Ce seul mot ne suffisait pas à tout expliquer, et pourtant, étrangement, chacun comprit qu'il ne désignait pas un simple emplacement. Un compartiment plus profond. Des archives mieux cachées. Ou bien l'endroit où Aka lisait réellement le chemin et la grammaire. Ce qu'on leur avait montré jusqu'ici n'était qu'un seuil ; pour voir ce qu'il fallait vraiment relier, il fallait aller plus loin à l'intérieur.
-
 Sern posa la question très bas.
 
 « Entrons-nous tous ? »
@@ -79,8 +77,6 @@ Sern posa la question très bas.
 Cette fois, avant que Zahir ne réponde, Aka parla la première.
 
 « Non. »
-
-Au fond de la cour centrale, l'air se figea, imperceptiblement.
 
 Aka avait toujours le même visage calme.
 Mais cette fois, ce calme contenait une ligne nette. Tout le monde ne pouvait pas entrer ensemble. Tout le monde ne devait pas voir la même chose. Qui entrait, et jusqu'où : c'était comme l'une des règles les plus importantes de cet intérieur.
@@ -92,8 +88,6 @@ Aka posa les yeux sur la braise dans la main de Sion, puis sur la coque non mort
 « Si on fait entrer tout le monde, ça redevient beaucoup. »
 Elle n'éleva pas la voix.
 « Et quand c'est beaucoup, ce qui fait semblant de mourir s'y colle. »
-
-La phrase était courte, mais elle contenait toute la manière dont Hazran avait tourné jusqu'ici.
 
 Trop de mains.
 Trop de prix.
@@ -108,9 +102,8 @@ Elle résuma ainsi.
 
 Aka hocha brièvement la tête.
 
-« La main qui tient la braise. »
+« La main qui tient la braise. La main qui voit le mort et le pas mort. »
 Elle regardait Sion en le disant.
-« La main qui voit le mort et le pas mort. »
 
 Cette fois, son regard alla vers Han Jiwoo.
 
@@ -212,7 +205,7 @@ Zahir la regarda et répondit bas.
 
 Le visage de Seorin se ferma aussitôt.
 
-Mais Aka posa, très doucement, un mot par-dessus.
+C'est alors qu'Aka posa, très doucement, un mot par-dessus.
 
 « Si vous n'attendez pas, on ne peut pas sortir. »
 
@@ -232,21 +225,10 @@ Sion eut lui aussi un frisson dans le dos. Leur demander d'attendre n'était pas
 
 Après ces mots, Seorin ne trouva pas non plus de réplique.
 
-Ce n'étaient pas des mots d'exclusion, mais des mots qui, selon les règles de cet intérieur, départageaient ceux dont on avait besoin et ceux qui devaient attendre.
-
 Sion regarda la braise au creux de sa main, puis de nouveau Aka.
 
 Aka n'expliqua rien de plus.
 À la place, elle se retourna et entra la première dans le compartiment plus profond, derrière la coque.
-
-À l'instant où il la vit faire, Sion comprit.
-
-Ce n'était pas ouvrir une porte.
-Aka avait toujours été ainsi.
-Elle n'ouvrait pas la même porte à tout le monde.
-Mais à la main capable de suivre jusqu'au bout, elle montrait le seuil suivant.
-
-Et maintenant, ce seuil s'ouvrait enfin.
 
 ---
 

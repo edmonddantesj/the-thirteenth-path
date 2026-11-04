@@ -205,7 +205,7 @@ Puis il descendit d'un barreau encore et ajouta :
 
 Personne ne répondit.
 
-Ater savait que ce silence aussi était le deuxième de la journée.
+Ater savait que ce silence aussi était le deuxième de la journée. Le premier, c'était à R-12, quand Sern avait demandé ce nom. Là aussi, tous deux s'étaient tus. Ce nom était un nom des Myo.
 
 « Dans les manuels de la Chambre de Reconnaissance, le seul nom, ou presque, que les Myo aient laissé est celui-là. Inscrit comme celui d'un traître. »
 

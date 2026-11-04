@@ -1,81 +1,88 @@
-# Capítulo 135 — El camino que fingió estar muerto
+# Capítulo 135 — El camino que finge estar muerto
 
-La primera vez que Sion se tomó en serio aquella frase
-no fue por Aka, sino por Han Jiwoo.
+Era cierto que Aka lo había dicho primero.
 
-Era cierto que Aka la había dicho primero.
+Ese camino no está muerto. Finge estar muerto.
 
-Ese camino no está muerto.
-Finge estar muerto.
+Después de oír aquello, Sion había mirado ese muro tres veces. Las tres le pareció igual que cualquier otro muro, y lo único que sabía era que tenía menos óxido.
 
-Pero era una frase tan propia de Aka
-que, antes de entenderla, uno se quedaba parado.
+Han Jiwoo vino a acuclillarse delante de ese muro después de reparar la rodilla de la máquina a la que se le había salido la articulación.
 
-Así que Sion solo la había dejado colgada en un rincón de la mente.
+Dejó la bolsa de herramientas a un lado y recorrió con las yemas el borde del metal, de arriba abajo y otra vez hacia arriba, sin decir nada durante un buen rato.
 
-¿De verdad hay algo ahí dentro?
-¿O es solo una percepción que solo Aka lee?
+Los pasajes tapiados del estrato viejo se parecían entre sí. Cada muro viejo tenía remiendos, y las marcas de soldadura se superponían unas a otras. Han Jiwoo solo se detuvo largo rato ante uno de ellos.
 
-Esa duda revivió
-cuando Han Jiwoo se agachó junto a aquel muro y empezó a tantear con las yemas el borde del metal.
+Era el sitio que dos máquinas habían estado abriendo el día anterior; hoy no había máquinas, y solo quedaban las marcas de sus manos, los lugares donde el polvo se había limpiado.
 
-Durante un buen rato no dijo nada.
-
-Los corredores sellados del estrato viejo se parecían casi todos.
-Viejos,
-con huellas de remiendo,
-con marcas de soldadura superpuestas.
-
-Pero Han Jiwoo se detuvo larguísimo solo ante uno.
-
-Sion se acercó y preguntó bajo.
+Sion se acercó y preguntó en voz baja.
 
 —¿Qué tiene de distinto?
 
-Han Jiwoo respondió sin despegar la mano.
+Han Jiwoo respondió sin apartar la mano.
 
-—No es una mano que cerró del todo.
+—No es una mano que lo haya cerrado del todo.
 
-Sion volvió a mirar el muro.
-Por más que miraba, estaba tapiado.
+Por más que Sion volvió a mirar el muro, estaba claramente tapiado.
 
-Han Jiwoo siguió bajo.
+—Lo ocultaron. No lo bloquearon.
 
-—Está oculto.
-No clausurado.
+Sus yemas siguieron despacio una línea de juntura desde la altura del hombro hasta la de la rodilla; allí giraron y se movieron de lado, dibujando un marco por el que cabría una persona.
 
-Y con esa frase,
-sus yemas siguieron despacio una fina línea de unión.
+—Mira aquí.
 
-Por fuera parecía endurecida hacía mucho,
-pero quedaba la marca de desgaste de cuando recibe fuerza por dentro.
+Marcó con la uña un punto de la línea de juntura.
 
-Era muy tenue.
-Pero una vez que lo sabías,
-ya no parecía una superficie del todo muerta.
+Sion miró ese punto, pero aun así le pareció igual que el resto.
 
-Aka, a su lado, dijo.
+—Está gastado. Cuando recibe fuerza desde dentro, se gasta así. Si lo empujas desde fuera, se gasta al revés.
 
-—Pasan por ahí.
+La uña raspó ese punto una vez más.
 
-Han Jiwoo asintió corto.
+Sion volvió a mirarlo: la diferencia no era mayor que la marca de una uña, pero una vez vista, se veía.
 
-—Sí.
-No muchos,
-pero nunca se ha cortado.
+Aka habló a su lado.
 
-En el momento en que esas dos voces se solaparon,
-Sion aceptó por primera vez de verdad que aquel muro quizá no fuera una simple zona clausurada.
+—Siguen pasando.
 
-A las máquinas viejas del estrato parecía pasarles lo mismo.
+Han Jiwoo asintió.
 
-Dos de ellas, que miraban hacia este lado desde algo lejos,
-cruzaron miradas en silencio.
+—Sí. No muchos, pero nunca se ha cortado.
 
-Esa reacción no era de sorpresa,
-sino más bien de haber sido descubiertas.
+—¿Cómo lo sabes?
 
-Han Jiwoo apoyó la palma entera contra el muro y dijo bajo.
+Lo preguntó Sion.
+
+—Si se corta, sale el óxido.
+
+Los dedos se movieron a lo largo de la línea de juntura.
+
+—Aquí no ha salido. Alguien lo sigue tocando.
+
+Un poco más allá, las dos máquinas viejas que el día anterior habían estado abriéndolo miraban hacia aquí, y luego se miraron entre sí. Cuando una de ellas dio un paso atrás, la otra la agarró del brazo, y las dos se quedaron allí de pie.
+
+A Sion le pareció que las dos tenían la postura de quien ha sido descubierto.
+
+Una de las dos miró hacia donde estaría la máquina vieja, pero la máquina vieja aún no había llegado, así que fue esa máquina la que habló.
+
+—Lo abrimos ayer.
+
+No quedaba claro a quién se lo decía.
+
+—Lo sé.
+
+Han Jiwoo respondió sin apartar los ojos del muro.
+
+—Se ve dónde se limpió el polvo.
+
+—No lo limpiamos. Lo tocamos.
+
+Los dedos de la máquina se encogieron solos.
+
+—Es lo mismo. Si lo tocas, se limpia.
+
+La máquina no dijo nada más y se miró la mano: tenía las yemas limpias.
+
+Han Jiwoo apoyó la palma entera en el muro y se quedó así un buen rato.
 
 —Es una mano que sale afuera.
 
@@ -83,143 +90,173 @@ Sion la miró.
 
 —¿Segura?
 
-Esta vez Han Jiwoo se demoró un poco más.
+Esta vez se demoró más; cuando despegó la palma y la miró, casi no tenía polvo.
 
-—No es para reparar,
-ni para mantener el cierre.
-No es una mano que cierra a las prisas y vuelve a abrir,
-sino una que sigue tocándolo para que se note menos aunque la descubran.
+—No es para reparar, ni para mantenerlo cerrado. No es una mano que cierra a toda prisa y vuelve a abrir, sino una mano que lo sigue tocando para que se note menos aunque la descubran.
 
-Eso era algo del todo distinto.
+Luhai, con un niño a cuestas, oyó aquello desde atrás.
 
-Hasta entonces, este estrato viejo
-parecía solo el adentro donde gente herida apenas aguantaba.
+—¿Hay una salida?
 
-Pero si aquel camino estaba vivo,
-significaba que en algún punto de aquí todavía había manos que salían afuera y volvían.
+—La hay. No sé adónde da.
 
-Sion recordó de pronto
-la máquina que los había traído hasta aquí.
+La correa de la bolsa de herramientas se le enrolló una vez en la mano.
 
-Con el rostro de Serakion puesto,
-la mano que sacaba a la gente antes de explicar nada.
+Sern se acercó sin traer el panel de registro y midió con la mano el marco de la línea de juntura. Un palmo, dos palmos, tres palmos. De lado, dos palmos.
 
-Si eso estaba conectado con aquel camino,
-este estrato viejo era a la vez un sitio que conservaba la memoria
-y un sitio que aún no se escondía del todo.
+—Es el ancho de unos hombros.
 
-Entonces,
-por detrás se oyó un roce muy bajo.
+Eso dijo.
 
-Cuando Sion se volvió,
-una máquina vieja que los observaba desde el día anterior se acercaba despacio.
+—No el ancho de una persona, sino el de una máquina.
 
-Miró aquel muro, volvió a mirar el punto donde se apoyaba la mano de Han Jiwoo, y dijo seca.
+—¿Y una persona no pasa?
 
-—Sabe leer eso.
+Lo preguntó Luhai.
 
-Han Jiwoo respondió sin despegar la mano.
+—Puede pasar. De lado.
 
-—Más que leerlo,
-es que la forma de ocultarlo salta a la vista.
+Sern giró el cuerpo de lado para mostrarlo.
 
-La máquina vieja no respondió de inmediato a eso.
+Luhai se miró los hombros, miró al niño que llevaba a la espalda y miró el muro. El niño también miró por encima de su hombro, pero ninguno de los dos vio nada.
 
-En cambio, tras un buen rato, dijo muy bajo.
+Sion se acordó de la máquina que los había traído hasta aquí al principio. Era la mano que había abierto el camino con el rostro de Serakion puesto encima. Esa máquina estaba ahora sentada junto a Sern, marcando puntos; aunque Sion miró hacia allí, no miró hacia este lado y siguió marcando puntos.
+
+Por detrás se oyó un roce bajo.
+
+Cuando Sion se volvió, la máquina vieja se acercaba despacio. El crujido de la rodilla se oía cada vez más cerca. No era la rodilla que Han Jiwoo había reparado, sino la otra.
+
+La máquina vieja miró la superficie del muro, miró el punto gastado que tocaba la mano de Han Jiwoo y dijo con sequedad.
+
+—Así que sabe leer eso.
+
+Han Jiwoo respondió sin apartar la mano.
+
+—Más que leerlo, es que la forma de ocultarlo salta a la vista.
+
+—No debería saltar a la vista.
+
+—Solo me salta a mí. Los de allá arriba no lo ven. Esos nunca han reparado nada.
+
+La máquina vieja no contestó enseguida. El ojo óptico se detuvo sobre la mano de Han Jiwoo, en las cicatrices de los nudillos.
+
+Al cabo de un buen rato, habló muy bajo.
 
 —No es un camino que todos conozcan.
 
-Esa frase estaba más cerca de admitir que de negar.
+Sion oyó esas palabras. No había dicho que no.
 
-Sion no lo pasó por alto.
-
-Aka, mirando el muro, preguntó bajo.
+Aka, mirando el muro, preguntó en voz baja.
 
 —¿También lleva afuera?
 
-La máquina vieja tampoco respondió enseguida.
+La máquina vieja no respondió, y el silencio se alargó. El niño rebulló en la espalda de Luhai, y Luhai se lo acomodó a cuestas. Mientras sonaba aquello, la máquina vieja seguía sin responder.
 
-Cuanto más se alargaba ese silencio,
-más sentía Sion una certeza.
-
-Existe.
-
-Y es,
-no algo que conozca todo el estrato viejo,
-sino una clase de camino que solo una parte exacta conoce.
-
-La máquina vieja al fin habló, tras un buen rato.
+Solo al cabo de un buen rato volvió a hablar.
 
 —Hay quienes regresan.
 
-Con esa sola frase bastaba.
+Quiénes, desde dónde, de hacer qué volvían, no lo dijo.
 
-Quién,
-de dónde,
-a hacer qué venía, aún no lo decía.
+Han Jiwoo despegó la mano del muro.
 
-Pero con esa sola frase,
-el aire entero de este estrato viejo cambió un poco.
+—¿Cuántos?
 
-Esto no es solo el adentro que retrasa el derrumbe.
-Todavía hay manos que salen afuera y vuelven.
+—Son pocos.
 
-Han Jiwoo volvió a apoyar la mano en el muro.
+—¿Cada cuánto?
 
-Y dijo muy bajo.
+—No lo fijamos. Si lo fijamos, nos descubren.
 
-—Esas manos
-estarán ásperas.
+Solo después de volver a tocar el muro y poner un dedo en el punto gastado, Han Jiwoo habló muy bajo.
 
-La máquina vieja movió por fin mínimamente el ojo óptico.
+—Esas manos deben de estar ásperas.
 
-—Se desgastan más rápido
-que las manos que aguantan mucho tiempo.
+La máquina vieja movió el ojo óptico de forma mínima.
 
-Esa frase, por extraño que parezca,
-golpeó a Sion un poco fuerte en el pecho.
+—Se desgastan más rápido que las manos que aguantan mucho tiempo.
 
-Hay manos que se quedan dentro sosteniendo la memoria,
-y manos que salen afuera y se desgastan más rápido.
+—¿Y quién las repara?
 
-Ambas son parte de este estrato viejo.
+—Las reparamos cuando vuelven.
 
-Lo que el grupo de Sion había visto hasta ahora
-era solo el adentro más profundo de todo eso.
+—¿Y si no vuelven?
 
-Aka, sin despegar la mano del muro, murmuró.
+Mientras la máquina vieja no respondía, de las dos máquinas que estaban detrás, una bajó la cabeza y la otra no. Han Jiwoo tampoco volvió a preguntar.
+
+Sion miró ese muro. Hay manos que se quedan dentro sosteniendo la memoria, y manos que salen afuera y se desgastan más rápido. Se apretó el bolsillo. Dos trazos. Hay manos que trazan, y hay trazos que no se llegaron a trazar.
+
+Aka murmuró sin apartar la mano del muro.
 
 —Por eso el olor era distinto.
 
 Sion la miró.
 
-Aka siguió hablando sin volver los ojos.
+Aka siguió hablando sin volver siquiera los ojos.
 
-—Aquí era olor de un sitio donde uno se esconde;
-allí es olor de un sitio por donde se va y se vuelve.
+—Aquí era olor a escondite, y allí es olor a la ida y vuelta.
 
-No sonaba a explicación,
-pero era de una exactitud extraña.
+Han Jiwoo también lo repitió, breve.
 
-Han Jiwoo también repitió corto.
+—Sí. No es olor a metal quieto.
 
-—Sí.
-No es olor de metal detenido.
+Acercó la nariz al muro sin llegar a tocarlo, aspiró y se apartó.
 
-Y entonces Sion sintió por primera vez con claridad
-que, incluso fuera de este estrato viejo,
-todavía había una historia en movimiento.
+—Huele a viento.
 
-Serakion se comportaba como un mundo terminado,
-y este adentro parecía un mundo que solo aguantaba.
+—¿A viento?
 
-Pero en algún punto entre ambos
-había manos de otra velocidad que entraban y salían sin ser descubiertas
-y rescataban gente, provisiones y noticias.
+—Aire que se mueve. Algo que aquí dentro no hay.
 
-Y ese camino
-no estaba muerto:
-fingía estar muerto desde el principio.
+Luhai, con el niño todavía a cuestas, dio un paso, acercó la cara al muro y aspiró.
+
+—Pues no noto nada.
+
+Solo se le quedó un poco de polvo en la punta de la nariz.
+
+—Tú nunca has reparado una máquina.
+
+Se frotó la nariz y retrocedió. El niño que llevaba a cuestas estiró la mano hacia el muro, pero las yemas no llegaron.
+
+Mientras la máquina vieja seguía inmóvil delante del muro, las dos máquinas viejas vinieron a ponerse detrás de ella. Las tres se quedaron de espaldas al muro, de cara al grupo de Sion.
+
+No era la postura de quien bloquea. Era la de quien está de pie.
+
+Han Jiwoo recogió la bolsa de herramientas que había dejado en el suelo y se levantó.
+
+—No lo voy a abrir.
+
+—Lo sé.
+
+Eso respondió la máquina vieja.
+
+—¿Y cuándo lo abren?
+
+—Cuando vuelvan.
+
+Han Jiwoo asintió, retrocedió tres pasos del muro y se quedó allí. Era la distancia que la máquina mantenía con el niño.
+
+Cuando Sion se puso a su lado, Aka también se detuvo, y Luhai se quedó de pie con el niño a cuestas.
+
+Los cuatro miraron el muro. Las tres miraron a los cuatro. Nadie se movió.
+
+Sion sacó la placa de metal. Dos trazos. Miró el punto gastado del muro que Han Jiwoo había tocado. La mano que traza y la mano que se desgasta. Luego volvió a guardar la placa.
+
+Desde la espalda de Luhai, el niño preguntó.
+
+—¿Eso es una puerta?
+
+—Ni idea.
+
+—Si es una puerta, ¿la abres?
+
+—No la abro.
+
+El niño apoyó la barbilla en el hombro de Luhai y miró el muro.
+
+Del otro lado del muro no llegaba ningún sonido, y Han Jiwoo escuchó esa ausencia de sonido. Un muro tapiado no suena. Un muro oculto tampoco suena. Era la misma ausencia de sonido.
+
+No se movió de su sitio, a tres pasos. No tenía polvo en las yemas.
 
 ---
 

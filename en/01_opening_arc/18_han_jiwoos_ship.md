@@ -62,7 +62,7 @@ Seorin asked.
 
 "Fair enough."
 
-Yona listened until the docking ring came fully loose, then looked at Han Jiwoo once.
+Yona listened to the docking clamps come loose one by one, then looked at Han Jiwoo once.
 
 "From here on, it's your leg."
 
@@ -225,8 +225,6 @@ Then Han Jiwoo spoke, suddenly.
 
 "What exactly did you bring this time?"
 
-The air in the cabin shifted, very slightly.
-
 Sion did not answer for a moment.
 How much of the fragment to lay out here, how much to say in front of Ater and Sern, where Seorin would cut it off. In that short silence, each of them ran their own calculation once.
 
@@ -273,7 +271,6 @@ She said, very slowly,
 "Then it's a dead name."
 
 No one answered right away.
-But the lack of an answer was answer enough.
 
 Outside the hull, a long grinding sound brushed past.
 The ship had already left the access point, and the way back was going dark again.
@@ -286,7 +283,6 @@ Then from here on we go quieter."
 "If it's a dead name, the reason you're being chased changes too. Whoever comes after you won't be coming for one person. They'll be coming to shut every road that name could open, too."
 
 Sion let out a small breath at that.
-The explanation was not finished, but at least what needed to be passed on for now had been passed on.
 
 The ship went farther and farther out.
 Off the official routes, a detour that ran on from dead marker to dead marker, connections that remained only as remnants instead of names.

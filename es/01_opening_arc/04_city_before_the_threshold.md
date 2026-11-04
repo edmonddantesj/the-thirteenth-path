@@ -16,7 +16,7 @@ Ater preguntó sin desviar la mirada.
 
 —¿Cuántos?
 
-—Deberían ser cuatro y cuentan cinco. A mitad de camino se sumó una mano que interceptó la mercancía.
+—Las manos metidas en el alboroto deberían ser cuatro y cuentan cinco. A mitad de camino se sumó una mano que interceptó la mercancía.
 
 —Un tercero.
 
@@ -69,7 +69,6 @@ Ater bajó la vista un momento a la pantalla del terminal y volvió a cerrarla.
 
 —Eso no es bueno.
 
-Sern no se molestó en desplegar el sentido que cabía en esa frase corta.
 El momento en que una persona pasaba por delante de un registro siempre era peligroso. A las personas se las borraba más tarde que a los registros, y se movían de un modo mucho menos previsible.
 
 Los dos dejaron atrás la pasarela de enlace y entraron en el estrecho pasaje entre el edificio administrativo del puerto y la zona de custodia civil.
@@ -154,8 +153,9 @@ Mejor dejarlos llegar ante el mismo umbral y ver allí quién intentaba abrir qu
 
 Ater reanudó la marcha.
 
-Mientras tanto, en el nivel de abajo,
-Sion acababa de descifrar el cartel del final del callejón.
+---
+
+En el nivel de abajo, Sion acababa de descifrar el cartel del final del callejón.
 
 **Pasarela de acceso a los restos R-12. Prohibido el acceso desde el exterior.**
 
@@ -194,9 +194,7 @@ Sion puso encima la yema de los dedos. No coincidían. Eran más estrechas que s
 
 Sion se levantó sacudiéndose el polvo de óxido de la yema de los dedos.
 
-—Además, la volvió a cerrar. El que huye a toda prisa no cierra la puerta.
-
-—Es aquí.
+—Además, la volvió a cerrar. El que huye a toda prisa no cierra la puerta. Es aquí.
 
 —¿Seguro?
 

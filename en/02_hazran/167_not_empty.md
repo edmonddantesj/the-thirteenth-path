@@ -8,7 +8,7 @@ No one stood there long; everyone passed by with their heads facing forward and 
 
 The old machines, the other way around, passed in front of it more often than the day before—the old machine at the pillar, the wall-side machine, and the other two that had stood behind them, one at a time. They neither went in nor touched anything, but they made as if to pass by and then looked once more.
 
-When Sion counted, it came to four times in the morning and six by midday.
+When Sion counted how many times those four went past, it came to four in the morning and six by midday.
 
 "Why are you counting?"
 
@@ -162,7 +162,7 @@ Luhai asked Han Jiwoo.
 
 "Why it keeps looking."
 
-"I asked. It says it doesn't know. It says its hand went up first."
+"Sion asked. It says it doesn't know. It says its hand went up first."
 
 "That's an answer?"
 
@@ -196,9 +196,9 @@ When the woman looked at her children, the child behind her was peeking out. Thi
 
 Sion stood beside the entrance, between the Hazran people and the sector. The old machine passed the entrance again.
 
-The seventh time.
+The eighth time.
 Sion counted.
-The eighth.
+The ninth.
 
 When the innermost one's surface trembled, the middle one trembled too, half a beat late.
 

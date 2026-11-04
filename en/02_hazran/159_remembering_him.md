@@ -36,7 +36,7 @@ The first looked at its own wrist, then touched the spot with its other hand.
 
 The first held out its hand again, and when Han Jiwoo took it and pulled, it came along. Less easily.
 
-Kael was sitting in front of the lines on the floor, where two lines and the short notch were drawn. He made a dot beside the notch, and beside that dot he drew one more line, shorter.
+Kael was sitting in front of the lines on the floor, where, this time, two lines and a short notch had been newly drawn. He made a dot beside the notch, and beside that dot he drew one more line, shorter.
 
 "What's this?"
 
@@ -84,7 +84,7 @@ The child looked at her.
 
 "At the foot of the ramp. What did you see?"
 
-The child didn't answer right away, and the hand on the screwdriver tightened. Aka put a hand on the child's back.
+The child didn't answer right away, and the hand on the screwdriver, the one they had gotten back from the fast child, tightened. Aka put a hand on the child's back.
 
 "Behind."
 
@@ -290,7 +290,7 @@ The child who looks down was watching Han Jiwoo close her hand very slowly and o
 
 "Let's go back in."
 
-No one said no, and the second came off the wall and took one step.
+The second came off the wall and took one step.
 
 "I will go as well."
 

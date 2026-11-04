@@ -44,7 +44,7 @@ El individuo que había perdido el ángulo se apartó solo hacia un lado.
 
 Ahí Sion dejó de respirar.
 
-Ayer no era así. Ayer, el que perdía el ángulo seguía arrastrado tal cual hasta que los de atrás lo pisaban y pasaban por encima. Hoy el de delante se apartó primero. Por el sitio que dejó, los de atrás entraron de inmediato, y para entrar no les hizo falta ni un paso.
+Antes no era así. Antes, el que perdía el ángulo seguía arrastrado tal cual hasta que los de atrás lo pisaban y pasaban por encima. Esta vez el de delante se apartó primero. Por el sitio que dejó, los de atrás entraron de inmediato, y para entrar no les hizo falta ni un paso.
 
 Sern soltó una frase en voz baja y bajó.
 
@@ -56,9 +56,9 @@ Ater no bajó.
 
 Sion oyó esas pocas palabras y no miró hacia fuera, sino hacia este lado.
 
-—¿Y lo de ayer, entonces?
+—¿Y lo de antes, entonces?
 
-—¿Lo de ayer?
+—¿Lo de antes?
 
 —Lo de que los dos de la derecha eran el mismo eje.
 
@@ -82,9 +82,9 @@ Ater se detuvo ahí un momento.
 
 Sion no oyó eso como un consuelo.
 
-Lo leído ayer prende menos hoy. Mañana no prenderá. Cada vez que el otro lado pasa una vez por Hazran, a Hazran se le acaba una de las cosas que puede usar.
+Lo leído antes prende menos ahora. La próxima vez no prenderá. Cada vez que el otro lado pasa una vez por Hazran, a Hazran se le acaba una de las cosas que puede usar.
 
-Sion volvió a sacar el cálculo que había hecho ayer.
+Sion volvió a sacar el cálculo que había hecho antes.
 
 Con una lectura se derriba a tres, y el otro lado los rellena en dos o tres pasos. Había pensado que, si se seguían ganando dos o tres pasos cada vez, eso al menos se iría acumulando.
 
@@ -120,7 +120,7 @@ Su voz no era la de siempre.
 
 Sion supo lo extraño que era eso.
 
-El hombre que mejor leía el precio en esta ciudad estaba diciendo que abandonaran el precio. Hasta ayer por la mañana, este hombre había visto el cordón térmico subir a cuatro la unidad y había descubierto lo que venía.
+El hombre que mejor leía el precio en esta ciudad estaba diciendo que abandonaran el precio. Hasta anteayer por la mañana, este hombre había visto el cordón térmico subir a cuatro la unidad y había descubierto lo que venía.
 
 Pero, justo por ser extraño, era lo correcto.
 
@@ -174,13 +174,13 @@ Alguien que pasaba le echó encima una tela. Lo hizo rápido. Si se cubre rápid
 
 Sion reconoció que aquella tela era tela aislante del calor. Venía del almacén que acababan de abandonar.
 
-Fue entonces cuando Sion recordó lo de ayer.
+Fue entonces cuando Sion recordó lo de antes.
 
-Ayer Luhai había contado con los dedos en la entrada. Al salir eran catorce y entraron trece. Sion no había visto a ese uno. Solo lo sabía por el número.
+Antes Luhai había contado con los dedos en la entrada. Al salir eran catorce y entraron trece. Sion no había visto a ese uno. Solo lo sabía por el número.
 
-Hoy lo había visto.
+Esta vez lo había visto.
 
-Ese uno de ayer también habría acabado así. Había acabado así donde Sion no lo veía, y no llegó en todo lo que Luhai esperó sin bajar los dedos.
+Ese uno de antes también habría acabado así. Había acabado así donde Sion no lo veía, y no llegó en todo lo que Luhai esperó sin bajar los dedos.
 
 Luhai seguía contando ahora.
 

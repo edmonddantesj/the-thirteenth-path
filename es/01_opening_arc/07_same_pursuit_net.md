@@ -205,7 +205,7 @@ Luego bajó un peldaño más y añadió:
 
 Nadie respondió.
 
-Ater supo que ese silencio era también el segundo de hoy.
+Ater supo que ese silencio era también el segundo de hoy. El primero había sido en R-12, cuando Sern preguntó por aquel nombre. También entonces los dos cerraron la boca. Aquel nombre era un nombre de los Myo.
 
 —En los manuales de la Cámara, casi el único nombre que dejaron los Myo es ese. Escrito como el de un traidor.
 

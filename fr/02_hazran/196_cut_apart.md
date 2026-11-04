@@ -215,7 +215,7 @@ Ater le dit.
 
 « C'est la lumière qu'a vue Aka. »
 
-Han Jiwoo se retourna : le dernier androïde regardait aussi cette lumière, et son œil optique cligna, puis revint. Elle refit une fois de plus son nœud, qui ne s'était pas défait.
+Han Jiwoo se retourna : le dernier androïde regardait aussi cette lumière, et son œil optique cligna, puis revint. Elle resserra encore une fois son nœud, qui ne s'était pas défait.
 
 « Pourquoi ? »
 

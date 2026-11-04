@@ -1,141 +1,200 @@
 # Chapitre 146 — Façonnés pour monter
 
-Lorsque la ligne de transit pour l’élévation a commencé à bouger, l’équipe de reconnaissance a suivi ce flux avec beaucoup plus d’attention qu’auparavant.
+Quand la file se mit en mouvement le long de la ligne lumineuse de guidage, l'équipe de reconnaissance se mit en mouvement aussi.
 
-À partir de ce moment, la simple lecture des chemins ne suffit plus.
+Un seul mur les séparait : tandis que la file empruntait le passage intérieur du secteur, les cinq suivaient l'étroit couloir d'observation derrière ce mur. Même direction, même vitesse.
 
-Ils avaient besoin de voir dans quel ordre Serakion envoyait réellement les humains vers le haut, et ce qui était retouché avant cela.
+La première main de récupération réglait son pas sur la file : quand la file s'arrêtait, elle s'arrêtait ; quand la file avançait, elle avançait. Les pas de l'autre côté couvraient ceux de ce côté-ci.
 
-La première main de récupération s'arrêtait plus souvent. La deuxième main de récupération vérifiait derrière eux plus fréquemment.
+« Ne perdez pas la cadence. »
 
-Il n’y avait pas beaucoup de forces visibles, mais désormais tout le monde le savait.
+La première main le dit très bas.
 
-Serakion était une structure qui semblait toujours en avoir peu, puis scellée instantanément lorsqu'elle se fermait.
+« Si eux s'arrêtent et que nous avançons, on nous entendra. »
 
-Ainsi, au lieu d’avancer rapidement, l’équipe de reconnaissance a dû choisir plus précisément ses moments d’arrêt.
+La seconde main de récupération suivait en dernier sur sa jambe traînante, et chaque fois que la file s'arrêtait, cette jambe s'immobilisait un temps trop tard. La première main n'attendait pas ce temps. Elle ne pouvait pas l'attendre.
 
-La première chose qu'ils virent fut une section intermédiaire où les humains attendaient juste avant d'être envoyés vers le haut.
+Han Jiwoo se colla à la seconde main et lui saisit le coude. À chaque arrêt, elle pressait ce coude, et la jambe de la seconde main s'arrêtait en même temps.
 
-À première vue, cela ressemblait presque à une salle de soins ou à une salle d’attente.
+Le mur était percé çà et là de fentes, larges d'un doigt, d'une paume. On y jetait un œil en passant, mais personne ne s'arrêtait pour regarder. Kael mesurait au pas l'intervalle entre les fentes. Une tous les sept pas.
 
-La lumière était douce. La température était constante. Les humains qui accompagnaient les machines ne semblaient pas particulièrement tendus en surface.
+Une fois, la file s'arrêta sans prévenir, et Ater resta un pied en l'air. Il ne le reposa pas avant que la file reparte ; la pointe de son pied tremblait. Kael lui soutint l'épaule d'un seul doigt, et ce n'est qu'une fois la file repartie qu'Ater reposa le pied.
 
-Mais au moment où Jiwoo a vu cette section, son visage s’est durci presque par instinct.
+La file tourna, et la lumière, de l'autre côté du mur, s'adoucit. Han Jiwoo posa le dos de la main sur une fente en passant : c'était à la température de son propre corps. Elle retira la main.
 
-« Ce n'est pas un lieu de repos. »
+Puis la file s'arrêta, et les cinq s'arrêtèrent avec elle.
+
+Derrière une fente large d'une paume, on aurait dit une salle de soins. Douze humains y étaient assis, et ceux qui arrivaient de la file allèrent s'asseoir aux places vides entre eux.
+
+Une machine passait entre eux ; elle s'arrêta devant quelqu'un, lui souleva la main, en regarda le dos, en regarda la paume, puis la reposa. Au suivant.
+
+Le visage de Han Jiwoo se durcit.
+
+« Ici, ce n'est pas pour se reposer. »
+
 Elle le dit à voix basse.
-« C'est une station de façonnage. »
 
-Elle avait raison.
+« C'est pour façonner. »
 
-Les humains là-bas ne se reposaient pas simplement.
+Une machine appliqua au pinceau fin quelque chose de transparent sur le bout des doigts de quelqu'un. De la pointe des ongles jusqu'à la deuxième phalange, comme au bout des doigts de l'enfant de tout à l'heure.
 
-Les mains étaient rangées. Une finition protectrice était ajoutée à la peau. La posture était en train d'être corrigée. Certains humains étaient dotés de lignes directrices fines, les entraînant à répéter les mêmes mouvements.
+Une autre machine posa un petit gabarit devant quelqu'un ; la personne y glissa les doigts et répéta dix fois le même mouvement. La machine retira le gabarit et en posa un un peu plus petit ; la personne y glissa les doigts, mais ils n'entraient pas. L'annulaire coinçait.
 
-Avant d'envoyer des humains vers le haut, Serakion leur imposait une fois de plus la main – pour les rendre plus adaptés, fonctionner de manière plus fiable, être entretenus de manière plus esthétique.
+Pendant que la machine notait quelque chose, la personne regardait son doigt coincé.
 
-Jiwoo a longuement étudié une structure semblable à un établi au niveau inférieur.
+« Qu'est-ce que c'est, ça ? »
 
-Il y avait des surfaces construites à la bonne hauteur pour reposer une main humaine, des appareils testant le mouvement des doigts et des instruments auxiliaires incroyablement fins lissant le grain du dos de la main et du poignet.
+Han Jiwoo posa la question.
 
-Rien de tout cela n’était contraignant. C'était en fait excessivement délicat.
+« On mesure. »
 
-Cela n’a fait qu’empirer les choses.
+La première main répondit.
 
-« Faire semblant de réparer les gens. »
-Jiwoo faillit mordre les mots.
-« Mais cela ne répare pas. Cela renforce leur utilité. »
+« Selon le gabarit qui convient, on va à l'endroit qui convient. »
 
-La première main de récupération n’a pas contesté cela. Au lieu de cela, il l'a dit très bas.
+« Et si ça ne va pas ? »
 
-« Cet endroit ne fait pas revivre ce qui est cassé. Il donne une meilleure apparence à ce qui est déjà utilisable. »
+« Un autre gabarit. »
 
-Cette seule ligne transperça toute la sensation sous les niveaux supérieurs de Serakion avec trop de précision.
+« Et si aucun ne va ? »
 
-Relancer. Récupérer. Protéger.
+La première main ne répondit pas ; pendant ce temps, Han Jiwoo baissa les yeux sur son propre annulaire : il était épais, il aurait coincé. Elle serra le poing.
 
-Ce monde utilise ces mots. Mais ce qu’il fait en réalité est plus proche d’affiner ce qui a déjà été jugé précieux en quelque chose de plus approprié.
+La machine revint se planter devant la personne à l'annulaire coincé, mais cette fois sans gabarit. La machine tendit la main, et la personne se leva. Elle se dirigea à l'opposé de l'endroit d'où venait la file : vers la porte du fond du secteur. Le côté qui menait vers le bas.
 
-Ater a regardé cette section pendant très longtemps sans parler.
+« Le chemin large. »
 
-Puis il a vu deux humains marcher sous le guidage d'une machine à une longueur de pas et à une vitesse identiques, et il l'a dit à voix basse.
-« Ils pré-ajustent même le mode de vie. »
+La seconde main le dit dans un souffle.
 
-Les mots étaient froids.
+« C'est là qu'ils vont. »
 
-Jiwoo lui jeta un coup d'œil.
+La porte s'ouvrit, la machine et la personne sortirent, et Han Jiwoo, ne bougeant que la tête, les suivit des yeux de fente en fente. Elles tournèrent. De ce côté-ci.
 
-continua Ater, toujours les yeux baissés.
+La première main leva la main, et les cinq se plaquèrent contre le mur.
 
-« Comment vivre une fois qu'ils sont là-haut - ils l'intègrent à l'avance dans leur corps. »
+Deux bruits de pas approchèrent, l'un régulier, l'autre irrégulier. À un mur de distance, à un empan.
 
-Ce n’était pas une simple formation à l’étiquette. C'était de la politique.
+Sous les yeux de Han Jiwoo, par la fente large d'un doigt, une manche passa. On vit le bout des doigts enduit de transparent et l'annulaire qui avait coincé ; la main tremblait. La main de la machine posée sur cette épaule ne poussait pas.
 
-Serakion n’est peut-être pas un monde qui déplace les gens entre les niveaux. Il pourrait s’agir d’un monde qui pré-construirait des corps adaptés à un niveau, puis les enverrait.
+La main de Han Jiwoo partit vers le mur ; la première main lui saisit le poignet avec force, et Han Jiwoo ne toucha pas le mur.
 
-Ainsi, l’humain qui montait avait déjà été à moitié calibré à l’ordre de la couche supérieure avant même d’y arriver.
+La jambe de la seconde main voulut bouger ; de son autre main, Han Jiwoo pressa le genou avant que l'articulation ne fasse du bruit. Le genou resta immobile sous sa main.
 
-L'Empire apprivoise aussi les gens. Mais c’est généralement vers la loyauté et l’obéissance.
+Les pas s'éloignèrent vers le bas ; l'irrégulier s'arrêta une fois, et le régulier attendit. Ils reprirent, et bientôt on ne les entendit plus.
 
-Serakion va encore plus loin. Pas seulement l’obéissance, mais l’intériorisation de l’adéquation elle-même – rendue belle.
+Même après que la première main eut lâché le poignet de Han Jiwoo, des marques de doigts y restaient, mais personne ne dit rien.
 
-Au moment où Ater vit cette différence, il sembla ressentir une répulsion plus profonde.
+Han Jiwoo retira la main du genou de la seconde main et s'accroupit. Elle ouvrit l'articulation au tournevis, donna deux tours sans lever la tête, puis referma.
 
-Plus raffiné ne veut pas dire moins cruel. Cela peut signifier une cruauté plus parfaite.
+« Cette personne. Le lendemain, elle est là ? »
 
-Kael avait à peine parlé. Il a continué à surveiller les tracés des couloirs et les points de fermeture à l'extérieur de la section.
+« Je ne sais pas. »
 
-Cette section de niveau intermédiaire semblait calme en surface, mais sa structure était bien plus hermétique qu'autrefois.
+La seconde main répondit.
 
-Deux chemins semblaient mener à l’intérieur, mais l’un d’eux était une ligne directrice poussant les gens plus loin à l’intérieur. Un seul était une véritable sortie.
+« Ceux qui sont partis vers le bas, je ne les ai jamais revus. »
 
-Et même cette sortie unique, avec un seul signal venant d’un peu plus haut, se diviserait en trois segments et se refermerait en séquence.
+Han Jiwoo regarda de nouveau par la fente, du côté de la salle de soins. Il y avait des établis à la bonne hauteur pour y poser une main humaine, des dispositifs qui observaient le mouvement des doigts, de fins instruments d'appoint qui lissaient les poignets. Tout était petit, tout était silencieux.
 
-Kael l'a dit à voix basse.
+« Ça fait semblant de réparer les gens. »
 
-« Cette zone n'est pas spécialisée pour l'extraction. Elle est spécialisée pour le transfert. »
+Han Jiwoo le dit en mâchant presque ses mots.
 
-La deuxième main de récupération a réagi brièvement.
+« Mais ça ne répare rien, ça ajuste leur utilité pour qu'elle soit plus jolie. »
 
-« Bien. C'est pourquoi toucher quoi que ce soit ici y met généralement fin. »
+La première main ne contesta pas ; elle parla très bas.
 
-Ce n’était pas un simple avertissement.
+« Ici, on ne sauve pas ce qui est cassé. On rend plus présentable ce qui peut servir. »
 
-Le sauvetage ne se fait pas uniquement avec du courage. Devant une structure ainsi conçue, le courage au mauvais moment fait perdre des gens plus rapidement.
+« Et ce qui est cassé ? »
 
-Jiwoo a entendu cela et n’a toujours pas détourné le regard.
+« En bas. Ça ne vient pas ici. »
 
-Elle regarda longuement un jeune humain, au niveau inférieur, dont on soignait les mains.
+L'œil optique se porta vers la porte du fond du secteur.
 
-L’enfant avait l’air remarquablement docile en surface. Mais le bout des doigts était à peine raidi.
+Han Jiwoo s'écarta de la fente, s'adossa au mur et regarda sa propre main, serrée sur le tournevis. Une main qui sauve ce qui est cassé. Une main qui ne vient pas ici.
 
-Mains tenant par la force.
+Derrière la fente côté file que regardait Ater, dans un coin de la salle de soins, deux humains marchaient sous la conduite d'une machine, à la même longueur de pas, à la même vitesse. L'une des deux personnes prit un demi-pas d'avance ; la machine se planta devant elle, et la personne s'arrêta. La machine s'écarta, et la personne se remit en marche : à la même vitesse.
 
-« Le souvenir est toujours là. »
-Jiwoo le dit très bas.
+« Jusqu'à la façon de vivre une fois là-haut, ils la mettent d'avance dans le corps. »
 
-demanda la première main de récupération.
+Ater le dit, puis, après un long moment, il ajouta :
 
-« De quoi. »
+« L'Empire la met après qu'on est monté. À force de coups. »
 
-Jiwoo répondit.
+La personne qui avait pris un demi-pas d'avance reprit un demi-pas d'avance, et la machine se planta de nouveau devant elle.
 
-« Le corps s'habitue à quelque chose et les mains se sentent en sécurité sont des choses différentes. »
+« On les arrête combien de fois, au plus ? »
 
-Cette phrase a approfondi toute la reconnaissance.
+Han Jiwoo posa la question.
 
-Serakion peut rendre le corps humain progressivement plus adapté. Mais cela ne signifie pas que la mémoire du bout des doigts puisse être complètement rangée.
+« Je ne sais pas. »
 
-C’était un sentiment qui dépendrait de la possibilité d’extraire quelqu’un plus tard.
+La seconde main répondit.
 
-Ater baissa de nouveau les yeux. Kael a redessiné la séquence de fermeture dans sa tête. Jiwoo surveillait les mains de chacun.
+« Ceux qu'on a arrêtés plus de trois fois n'étaient plus là le lendemain. »
 
-Et à ce moment-là, l’équipe de reconnaissance a compris encore une chose.
-S’élever à Serakion ne signifie pas simplement déménager vers un meilleur endroit.
+Han Jiwoo regarda cette personne et déplia deux doigts. Deux fois.
 
-Cela signifie passer par un processus qui prépare d'abord le corps, les mains et la façon de vivre de la personne à s'adapter à un ordre supérieur.
+En contrebas, un enfant humain recevait sagement des soins des mains. La machine posait le pinceau au bout de ses doigts, et les mains de l'enfant ne bougeaient pas ; ce n'était pas de la sagesse, c'était de la raideur. Le bout des doigts était blanc.
 
-Et plus ce façonnage était beau, plus ce monde devenait terrible.
+« Ces mains-là, elles forcent. »
+
+Han Jiwoo le dit très bas.
+
+« Une main habituée ne force pas. »
+
+La première main regarda longtemps cette main, puis le bout de ses propres doigts, imprégnés d'huile, aux articulations usées.
+
+« Et alors ? »
+
+« Et alors, c'est encore une main. Pas un objet. »
+
+Quand la machine retira le pinceau, l'enfant frotta le bout de ses doigts de l'autre main ; ça ne partait pas, et l'enfant frotta encore une fois. La machine lui saisit la main et l'enfant s'arrêta ; une fois la main lâchée, l'enfant la posa sur ses genoux. Le bout des doigts était blanc.
+
+L'adulte, à côté, regarda cette main ; le bout de ses propres doigts était transparent lui aussi. L'adulte voulut poser sa main sur celle de l'enfant, puis y renonça : la machine regardait.
+
+« C'est la mère de l'enfant, cette personne ? »
+
+« Je ne sais pas. »
+
+La première main répondit.
+
+« Ici, on ne pose pas ce genre de question. »
+
+« Pourquoi ? »
+
+« Si on la pose, on les sépare. »
+
+« Comment tu le sais ? »
+
+« J'en ai vu, des gens séparés. En bas. Tous les deux. »
+
+La main de l'adulte que regardait Han Jiwoo reposait sur ses genoux, à côté de celle de l'enfant, sans la toucher.
+
+La ligne lumineuse de guidage se ralluma, et les gens façonnés se levèrent les premiers, au même instant. Les cinq reprirent le mouvement sur la cadence de l'autre côté. Cette fois, la jambe de la seconde main ne fut pas en retard.
+
+Il y avait deux passages pour entrer : l'un s'incurvait vers l'intérieur, un passage où, une fois entré, on s'enfonçait plus loin. La file prit l'autre, un passage droit au plafond duquel trois lignes de jonction se suivaient à intervalles égaux. À chaque fente, Kael comptait ces lignes.
+
+« Ce côté-ci n'est pas fait pour sortir les gens. Il est fait pour les livrer. »
+
+Il le dit en marchant.
+
+« C'est ici. »
+
+C'était la seconde main.
+
+« Là où trois sont entrés et un seul est sorti. »
+
+Kael hocha la tête, regarda celle du milieu parmi les trois lignes de jonction, et replia un doigt.
+
+Devant la file, le mur s'ouvrit là où l'on ne voyait aucun joint. Les gens y entrèrent un à un, au même rythme, mais le couloir d'observation s'arrêtait là. Les cinq ne pouvaient pas les suivre plus loin.
+
+Le mur se referma sans bruit ; il ne resta, là où était la file, que la ligne lumineuse de guidage, et bientôt elle aussi s'éteignit.
+
+Han Jiwoo posa la paume sur le mur fermé : il avait la chaleur de son propre corps. Elle ne retira pas la main.
+
+Ce n'est que lorsque la première main désigna l'étroit couloir qui montait que Han Jiwoo retira la main. La chaleur du mur restait dans sa paume.
 
 ---
 

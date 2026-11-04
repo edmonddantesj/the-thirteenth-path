@@ -42,13 +42,13 @@ The commander asked nothing more.
 
 In place of a number, the records officer entered a single marker in that field. *Unknown.* Once that word went in, the field would never be opened again. Whoever opened this record later would find there not a number of people but *Unknown*.
 
-Someone inside Hazran had known that number. Every day it had been counted, scored on a board.
+Someone inside Hazran had known that number. It had been counted, scored on a board.
 
 That board now stood in the middle of a collapsed city, and in this record it was written as *Unknown*.
 
 The same thing was written down in two places, and only one would remain.
 
-The language was very smooth. That was exactly what made it crueler.
+The report's language was very smooth.
 
 No one in the commander's office rephrased those sentences.
 
@@ -86,8 +86,6 @@ It was not even a formal classification, but a mark whose meaning very few knew.
 He spoke low.
 
 "Taking it now is the poor move."
-
-The air in the commander's office stiffened, very slightly.
 
 The officer who had argued for immediate pursuit raised his head.
 
@@ -170,7 +168,7 @@ From the start, that city had been just one of the outer spaces where the Allian
 
 So what mattered now was not the fact that the city had vanished, but how far that vanishing had shaken the Empire's calculations.
 
-A woman whose gray hair looked as if it had gone white was listening quietly, only her fingertips resting on the report.
+A woman with gray hair and a young face was listening quietly, only her fingertips resting on the report.
 
 Kanus Han.
 
@@ -219,8 +217,6 @@ Kanus raised her eyes.
 she said.
 "It may not have missed it. It may have left it."
 
-Those words changed the air in the room at once.
-
 The Alliance caught on right there.
 
 The Empire was not chasing the survivors now. It was watching the next threshold the survivors would reach.
@@ -232,8 +228,6 @@ Kanus closed the report.
 "What we watch isn't the survivors,"
 she said.
 "What matters is where they open next."
-
-The words were very quiet, and that made them all the more decisive.
 
 Sion's party were no longer simple fugitives.
 Since getting out of Hazran,
@@ -267,15 +261,13 @@ Hazran was already a finished city. But that ending was the beginning of a new c
 
 ---
 
-The Empire chose pursuit in the language of order, and the Alliance chose watching in the language of practicality. They looked different on the surface, but the two were looking in the same direction—not at the people who had survived Hazran themselves, but at what they would open next.
+The Empire chose pursuit in the language of order, and the Alliance chose watching in the language of practicality. They looked different on the surface, but the two were looking in the same direction.
 
 And what the two had erased was the same too.
 
 One side wrote *Unknown* and the other called it a finished number. In neither record did it remain how many people had died in Hazran.
 
 The one who knew that number was sitting right now inside the ship they were both chasing.
-
-Hazran was closed. Now the eyes of the world were turning outside that closing.
 
 ---
 

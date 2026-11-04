@@ -123,7 +123,7 @@ Sion asintió.
 
 —¿Y Ater?
 
-—Tú, si entre las dos sale algo que no cuadra, lo cortas.
+—Tú, si entre nosotros dos sale algo que no cuadra, lo cortas.
 Seorin respondió.
 
 Kael, sin preguntar nada más, recorría con la vista los puestos y las manos de la gente alrededor. Quién tocaba la mercancía con sus propias manos, quién solo hablaba y se echaba atrás, quién no era el dueño de aquí pero fingía serlo. Cosas así. Eran los ojos de alguien para quien un mercado no era nada nuevo.
@@ -194,7 +194,7 @@ Al instante siguiente, otra mano le tapó la boca al niño.
 
 Era una voz baja y áspera.
 
-Las miradas de la gente se juntaron un momento en un solo punto y luego se dispersaron como si no hubiera pasado nada. Todos fingieron no haber oído demasiado deprisa. Y eso era una reacción todavía más reveladora.
+Las miradas de la gente se juntaron un momento en un solo punto y luego se dispersaron como si no hubiera pasado nada. Todos fingieron no haber oído demasiado deprisa.
 
 Sion lo supo dentro de aquel breve silencio.
 

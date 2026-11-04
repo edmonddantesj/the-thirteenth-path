@@ -38,7 +38,7 @@ Seorin l'avait dit presque tout bas.
 
 « Je sais pas. C'est pour ça qu'on attend. »
 
-À l'arrière, une vieille machine leva soudain la tête ; l'autre la leva aussi, du même côté : vers le bas.
+À l'arrière, une vieille machine leva soudain la tête ; l'autre tourna aussi la tête du même côté, vers le bas.
 
 Un grésillement passa. C'était un son bas et bref, mêlé aux vibrations du sol du couloir : à des oreilles humaines, il sonnait comme un écho du mur, mais les yeux optiques des deux machines s'y attardèrent.
 
@@ -125,7 +125,7 @@ Le même corps, un autre visage.
 
 Avec un temps de retard, deux robots de Serakion sortirent.
 
-Plaque qui pousse, plaque qui ferme, jusqu'aux articulations cachées à l'intérieur : rien en eux n'avait cherché à ressembler à un humain. Leurs surfaces en couches repoussaient la lumière avec lourdeur. La même forme que le raté vu dans la couche cachée, mais entière, non sectionnée.
+Plaque qui pousse, plaque qui ferme, jusqu'aux articulations cachées à l'intérieur : rien en eux n'avait cherché à ressembler à un humain. Leurs surfaces en couches repoussaient la lumière avec lourdeur. La même forme que le raté sorti de la couche cachée, mais entière, non sectionnée.
 
 Seorin parla brièvement.
 

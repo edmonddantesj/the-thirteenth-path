@@ -83,7 +83,7 @@ She didn't let go.
 
 At the rear, the first recovery hand cut the flow. It put its own body in the one path the alignment needed to fall back into line. Two of Serakion's machines tried to set the beat again, but the first was between them. Half a beat.
 
-While Han Jiwoo hugged the fast child to her and pulled inward, the second recovery hand passed the second child back. The first child was keeping up at the speed they were pulled, on their own feet.
+While Han Jiwoo pulled inward with a fistful of the fast child's clothes, the second recovery hand passed the second child back. The first child was keeping up at the speed they were pulled, on their own feet.
 
 The fourth child stood alone on the footprint shapes, head still turned. A machine stood beside them, half a step away.
 
@@ -149,8 +149,6 @@ The first recovery hand was the first to speak, low.
 
 "One has opened."
 
-It didn't sound like joy. It was confirmation.
-
 Sern looked at the record panel.
 
 "The signals."
@@ -185,7 +183,7 @@ Sern lowered the record panel.
 
 "Something always came after the quiet."
 
-The third child, the one who had been fast, sank down, panting. The second child stood under the yellow lamp, looking down. The first child was holding one of Han Jiwoo's fingers.
+The third child, the one who had been fast, was panting hard. The second child stood under the yellow lamp, looking down. The first child was holding one of Han Jiwoo's fingers.
 
 The old machine looked at the three, one beat per child, then looked at the board on the wall. Four faded dots, five clear dots. It made no mark.
 

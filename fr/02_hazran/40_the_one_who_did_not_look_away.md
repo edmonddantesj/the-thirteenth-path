@@ -38,7 +38,7 @@ Seorin répondit brièvement.
 C'était Nassim.
 « Et la main qui sépare le vrai du reste. »
 
-Que ces mots sortent si facilement mettait Sion plus mal à l'aise encore. Ce n'était pas que cet homme ne cachait pas le nom : il mesurait le prix d'un nom caché à qui le sortait, et d'où.
+Ce n'était pas que cet homme ne cachait pas le nom : il mesurait le prix d'un nom caché à qui le sortait, et d'où.
 
 Haroun écoutait l'échange sans s'en mêler. Il se tenait plutôt du côté de l'entrée et gardait à la fois le dehors et le dedans. Non pas comme un homme qui provoque les bagarres, mais comme un homme qui décide jusqu'où une bagarre peut gagner l'intérieur.
 
@@ -142,8 +142,6 @@ Mais l'instant suivant, quand son regard refit, très vite, l'aller-retour entre
 
 « Les deux, ils doivent pas être ici. »
 
-L'air de l'intérieur devint très calme.
-
 Le rire de Nassim s'arrêta, Haroun ne bougea plus, et Nahira, au contraire, effaça encore davantage son expression.
 
 Sion sentit cette seule phrase entrer plus profond qu'il ne s'y attendait.
@@ -204,9 +202,7 @@ Nahira ne recula pas.
 Elle parlait bas.
 « Si tu la traînes de force, elle se ferme. »
 
-Pour Sion, c'étaient les mots de quelqu'un qui connaissait trop bien Aka.
-
-Quelqu'un qui l'avait longtemps veillée, ici, à l'intérieur. Quelqu'un qui savait quand Aka parlait, et quand elle se taisait.
+Nahira était quelqu'un qui l'avait longtemps veillée, ici, à l'intérieur. Quelqu'un qui savait quand Aka parlait, et quand elle se taisait.
 
 Aka regardait toujours non pas le groupe de Sion, mais les choses qu'ils avaient apportées.
 

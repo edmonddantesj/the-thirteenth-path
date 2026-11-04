@@ -22,7 +22,7 @@ Et en dessous, il y avait quelque chose de plus net encore.
 
 C'était parce qu'ils étaient venus que la guerre avait commencé.
 
-Sion n'avait pas prononcé cette pensée, et pourtant il vit la même chose sur les visages à côté de lui. Seorin gardait les lèvres serrées, et la main de Han Jiwoo crispée sur la rambarde y mettait trop de force. Kael, revenu, n'arrivait pas à détacher ses pieds.
+Sion n'avait pas prononcé cette pensée, et pourtant il vit la même chose sur les visages à côté de lui. Seorin gardait les lèvres serrées, et la main de Han Jiwoo crispée sur la rambarde y mettait trop de force. Kael n'arrivait pas à détacher ses pieds.
 
 Même chez Sern et Ater, le regard resta accroché, une fois chacun, vers l'intérieur.
 
@@ -110,7 +110,7 @@ Après elle, Han Jiwoo continua de tendre le bras depuis l'intérieur.
 
 « La main. »
 
-Elle dit la même chose seize fois. Les seize fois, elle serra avec la même force.
+Elle dit la même chose encore et encore. Chaque fois, elle serra avec la même force.
 
 Luhai, qui suivait, s'arrêta au milieu de la rampe.
 
@@ -241,8 +241,6 @@ Nassim le poussa dans le dos.
 Il le dit d'une voix éraillée.
 « Ceux qui montent, ils montent. »
 
-Ces mots étaient cruels. Mais si on ne parlait pas ainsi, n'importe qui se retournerait. Se retourner, c'était retarder l'adieu d'un pas. À présent, Hazran n'avait plus ce pas-là.
-
 Sion posa le pied sur la rampe.
 
 Derrière lui, la voix de Zahir arriva.
@@ -303,7 +301,7 @@ Pour la première fois, le compte s'interrompit.
 
 Sion posa la main contre la paroi.
 
-Rien ne vint. Ce vaisseau était dehors jusqu'à tout à l'heure, et maintenant Sion était dedans, mais rien du tout ne lui venait au bout des doigts.
+Rien ne vint. Jusqu'à tout à l'heure, il touchait ce vaisseau du dehors, et maintenant il était dedans, mais rien du tout ne lui venait au bout des doigts.
 
 Et le vaisseau décolla.
 

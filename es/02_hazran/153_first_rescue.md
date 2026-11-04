@@ -1,263 +1,197 @@
 # Capítulo 153 — El primer rescate
 
-El primer rescate
-empezó más callado de lo esperado.
+El primer rescate empezó en silencio.
 
-Serakion era, desde siempre, un mundo que se llevaba a la gente sin grandes sonidos,
-y por eso lo primero que sacudía ese orden
-tampoco podía empezar con un sonido demasiado grande.
+Los cinco se repartieron por el tramo justo anterior a la línea de relevo.
 
-El grupo de reconocimiento y las manos de recuperación
-se repartieron y se apostaron en el tramo justo antes de la línea de relevo acordada de antemano.
+Kael estaba bajo las líneas de unión del techo, en la del centro: el sitio desde donde sujetar el orden de cierre. Ater, en la boca del corredor, el sitio donde mezclarse con más naturalidad. Han Jiwoo y la segunda mano de recogida estaban justo al lado de la brecha, el sitio por donde sacar a los niños, y la primera mano de recogida, detrás, el sitio desde donde sujetar el flujo de retorno.
 
-Kael, en el sitio donde sujetar el orden de cierre;
-Ater, en el sitio donde crear la confusión más natural;
-Han Jiwoo y la segunda mano de recuperación, en el sitio donde sacar a los niños;
-la primera mano de recuperación, en el sitio donde sujetar el flujo de retorno.
+No hubo más palabras.
 
-Ya no hubo más palabras.
+Llegó la fila y cuatro se pusieron sobre las huellas. El niño de la punta de los dedos, el niño de ojos bajos, el niño cuyos pies salían primero. Y uno más, un niño al que no conocían. Han Jiwoo miró a ese cuarto, que no estaba entre los tres elegidos, y apartó la vista.
 
-Habían calculado demasiado,
-y de ahí en adelante cada uno tenía que probarlo con su propio cuerpo.
+Cuando la segunda le tocó una vez el brazo con tres dedos, Han Jiwoo asintió.
 
 El primero en moverse fue Ater.
 
-Como imitando el compás del sector de arriba,
-entró caminando sin apurarse ni ir lento.
+Entró en el corredor al compás del sector de arriba. Sin prisa y sin lentitud. Llevaba la cabeza inclinada en el mismo ángulo que los humanos que habían visto antes.
 
-Y solapó su línea de movimiento con una máquina que avanzaba siguiendo la línea de alineación,
-solo a un nivel verdaderamente nimio.
+Como por error, solapó medio paso su recorrido con el de una máquina que avanzaba por la línea de alineación y se apartó; tardó en apartarse lo mismo que aquella máquina.
 
-Apenas lo justo para parecer un error.
-Apenas lo justo para llamar no a la sospecha, sino al arreglo.
+Las caras de dos máquinas de la fila delantera se separaron. Una hacia Ater, la otra hacia la fila. Un compás.
 
-Con ese pequeño desajuste,
-la mirada de dos máquinas de la fila delantera se dividió exactamente una vez.
+La máquina que miraba a Ater habló en voz baja.
+«Confirme su flujo de movimiento asignado.»
+Ater inclinó la cabeza en el ángulo de la gente que había visto antes y retrocedió un paso, y la cara de la máquina se quedó un compás más en él.
 
-Fue solo eso.
-
-Pero en un mundo tan ordenado como Serakion,
-con eso bastaba.
-
-Basta con que el compás tiemble una sola vez, mínimamente,
-para que después se abra un breve hueco antes de que la alineación se cierre del todo.
+Ese compás.
 
 Kael esperaba ese momento.
 
-Volvió el cuerpo justo hacia el estrecho eje de cierre del lado opuesto
-y retrasó con exactitud una estructura que se pliega, vista de antemano.
+Girándose hacia el estrecho eje de cierre del lado opuesto, alzó las manos hacia la línea de unión central del techo.
+La tocó.
+No empujó.
+Sostuvo.
 
-No fue una parada forzada.
-Tampoco fue romperla del todo.
+La línea de unión, que iba a bajar, se detuvo sobre sus manos, y el peso le cayó en los hombros. Aguantó con los hombros retumbando y los dientes apretados. Los pies le resbalaron medio palmo por el suelo, pero volvió a arrastrarlos a su sitio. Cuando la línea intentó bajar otra vez, le ardieron las palmas. El orden que tenía que cerrarse se retrasó un compás.
 
-Solo retrasó el orden que debía cerrarse
-un poco menos de un compás.
+La estructura de Serakion era más débil ante no cerrarse con exactitud que ante abrirse del todo. Como el centro no se cerraba, los dos lados esperaban. Ese intervalo de espera era la brecha.
 
-La estructura de Serakion era más débil ante el no cerrarse con exactitud
-que ante el abrirse del todo.
+En ese momento, Han Jiwoo y la segunda mano de recogida entraron a la vez.
 
-Basta con que se desajuste una vez
-para que el siguiente pliegue, ocupado en volver a calcularse,
-deje por un instante un hueco.
-
-En ese momento,
-Han Jiwoo y la segunda mano de recuperación entraron a la vez.
-
-La fila aún no se había derrumbado del todo.
-Pero ya no era tampoco el mismo orden de antes.
-
-Tres niños temblaban dentro de la línea de alineación con compases muy levemente distintos entre sí.
+La fila aún no se había derrumbado, pero ya no era el mismo orden de antes. Tres niños se tambaleaban dentro de la línea de alineación con otro compás, pero el cuarto no se tambaleaba.
 
 Han Jiwoo no vaciló.
 
-Lo primero,
-con la punta de la mano agarró la muñeca de aquel niño que aún no soltaba su propia detención.
-
-No tiró con fuerza.
-En su lugar habló muy bajo y rápido.
+El niño de la punta de los dedos. Ella le agarró la muñeca y, sin tirar fuerte, le habló muy bajo y rápido.
 
 —Ve.
 
-Con esa sola palabra,
-el niño primero pareció quedarse helado.
+El cuerpo del niño se quedó helado, pero la mano no. La mano vino primero, en la dirección por donde entraba la fuerza de fuera. Cuando Han Jiwoo tiró siguiendo esa mano, el cuerpo la siguió y los pies se despegaron de la huella.
 
-Pero la mano fue distinta.
-La mano ya venía, antes que esa palabra,
-siguiendo la dirección en que entraba la fuerza de afuera.
+El segundo. El niño de ojos bajos.
 
-El segundo era el niño que había elegido Ater.
+Cuando la segunda mano de recogida le rodeó la parte de atrás del hombro con un movimiento corto, de máquina, el cuerpo del niño se endureció. Los ojos, que miraban abajo, miraron más abajo todavía.
 
-Ese niño no miraba hacia arriba,
-seguía con la vista puesta hacia abajo.
-
-La segunda mano de recuperación, con un movimiento corto, casi mecánico,
-le envolvió por detrás el hombro.
-
-El cuerpo del niño se endureció un instante.
-
-Pero entonces,
-Ater habló muy bajo.
+Desde la boca del corredor, Ater habló muy bajo.
 
 —No mire. Venga.
 
-Esas palabras, curiosamente, hicieron efecto.
+Los ojos del niño se movieron de abajo hacia un lado, hacia Ater. No hacia arriba. El cuerpo endurecido no se aflojó del todo, pero, cuando un pie se despegó, la segunda recibió ese pie. El niño vino.
 
-El cuerpo endurecido del niño
-no se aflojó del todo,
-pero al menos empezó a despegarse a sí mismo del compás de arriba.
+El tercero. El niño cuyos pies salían primero.
 
-El tercero era el más peligroso.
+El niño más peligroso notó la confusión y saltó primero hacia un lado, casi corriendo. Cuando una línea de alineación justo al lado tembló más de lo previsto, el cuarto niño giró la cabeza hacia ese temblor.
 
-Aquel niño pequeño que iba medio compás por delante,
-como si ya hubiera sentido que se había producido la confusión,
-quiso al contrario moverse primero.
-
-Eso no actuó solo a favor.
-
-El niño saltó de lado casi corriendo,
-y con ello una línea de alineación justo al lado
-tembló más de lo previsto.
-
-Kael habló bajo.
+Kael habló en voz baja.
 
 —Demasiado rápido.
 
-Apenas cayeron esas palabras,
-una máquina de arriba giró del todo la mirada.
+La cara de una máquina de arriba se giró por completo. No era un arreglo. Era una detección.
 
-De ahí en adelante ya no era arreglo, sino que empezaba algo más cercano a la detección.
+Han Jiwoo, sin soltar la mano del primer niño, torció el cuerpo hacia aquel niño. Uno en una mano; la otra mano, vacía.
 
-Han Jiwoo, sin tiempo ni de maldecir,
-dobló primero el cuerpo hacia aquel niño.
+El niño rápido volvió a saltar.
+Hacia la pared.
+Hacia el lado que se cerraba.
+Han Jiwoo estiró la mano vacía.
+El borde de la ropa.
+Lo agarró.
+Tiró.
+El cuerpo del niño volvió y chocó contra su pecho. Se le cortó la respiración.
+No lo soltó.
 
-En ese momento la primera mano de recuperación cortó el flujo por detrás.
+La primera mano de recogida cortó el flujo por detrás. Metió su propio cuerpo en el único recorrido que la alineación necesitaba para volver a cuadrarse. Dos máquinas del lado de Serakion intentaron rehacer el compás, pero en medio estaba la primera. Medio compás.
 
-Muy brevemente,
-bloqueó con el cuerpo una línea de movimiento que la alineación necesitaba para volver a cuadrarse.
+Mientras Han Jiwoo, con el borde de la ropa del niño rápido en el puño, tiraba hacia dentro, la segunda pasó al segundo niño hacia atrás. El primer niño venía con sus propios pies, a la velocidad de quien es arrastrado.
 
-En el instante en que dos máquinas del lado de Serakion intentaban a la vez rehacer el compás,
-ese flujo se plegó media vez.
+El cuarto niño estaba solo sobre la huella, con la cabeza girada. Una máquina se le puso al lado, a medio paso.
 
-Esa media vez bastó.
+Kael, que no miraba atrás, solo leía el orden de cierre, aunque le temblaban las manos con que sostenía el techo.
 
-Han Jiwoo agarró al niño rápido casi abrazándolo y lo tiró hacia dentro,
-y la segunda mano de recuperación pasó hacia atrás al segundo niño que había atrapado antes.
+—Ahora.
 
-El primer niño ya iba a una velocidad más de arrastre que de carrera,
-pero sin duda venía con sus propios pies.
+Lo dijo en voz baja.
 
-Kael no miró atrás.
-En su lugar siguió leyendo solo el orden de cierre.
-
-—Ahora —dijo bajo.
 —Por el centro, no por la izquierda.
 
-La primera mano de recuperación volvió el cuerpo según esas palabras.
+La primera mano de recogida giró el cuerpo. La izquierda era más ancha, pero el centro era estrecho y áspero, una abertura que solo se podía atravesar una vez. La izquierda ya se estaba plegando, y el centro estaba bajo las manos de Kael.
 
-De ser normal, lo más natural era salir por la izquierda, según la estructura.
-Pero justo por eso,
-también Serakion habría plegado ese lado primero.
+Los tres niños tenían velocidades distintas. El primero venía esforzándose por no soltar la mano. El segundo venía con sus propios pies, aguantándose para no mirar atrás. El tercero era rápido y se disparó dos veces hacia delante, y las dos veces la primera lo frenó.
 
-El centro era estrecho y áspero,
-y, a cambio de no llamar la atención,
-era un camino que se podía atravesar exactamente una vez.
+Por detrás sonó algo muy bajo. No era una alarma, sino un tono de guía cortés.
+«Restableciendo la alineación.»
+Las mismas palabras, dos veces.
 
-Los tres niños tenían velocidades distintas.
+En cuanto lo oyó, Kael habló.
 
-El primer niño venía como esforzándose por no soltar la mano,
-el segundo niño venía con sus propios pies pero aguantaba todo el rato por no mirar atrás,
-y el tercer niño iba tan rápido que más bien estuvo varias veces a punto de echar a perder el compás.
+—No corran. Solo igualen el paso.
 
-Ese ritmo desordenado
-hizo la huida más difícil de lo previsto.
+Si corrían, el niño lento se quedaría atrás. El rápido se adelantaría, y una sola fila se volvería tres. Por eso no corrieron.
 
-Serakion era, desde siempre, un mundo fuerte en leer y controlar las velocidades distintas de cada cual.
-Pero ahora este lado
-tenía que sacar a la fuerza esas velocidades distintas en una sola dirección.
+Mientras Han Jiwoo no soltaba la mano del primer niño, la segunda empujaba con regularidad el hombro del segundo, y la primera frenaba al tercero una y otra vez. A la fuerza, a la misma velocidad.
 
-Si un niño va lento, el conjunto se retrasa;
-si un niño va rápido, la alineación se rompe;
-si alguno se hiela, enseguida se pliega lo de atrás.
+Cuando Kael apartó las manos del techo, la línea de unión bajó y se cerró a su espalda. Sonó grave y pesada, y el tono de guía de arriba se superpuso a ese sonido.
+«Restableciendo la alineación.»
+Solo después de girar los hombros dos veces entró en el paso del centro.
 
-Cargando con todo eso,
-ellos tenían que seguir moviéndose.
+Se vio la última esquina, la esquina que se plegaba hacia la capa oculta.
 
-Por detrás sonó una vez algo parecido a una alarma muy baja.
+Hasta el momento mismo de llegar allí, nadie pensó que lo habían conseguido. Han Jiwoo solo miraba la mano que tenía en la suya.
 
-No era ruidosa ni estridente.
-Pero justo por eso era peor.
+Ater raspó la ranura tres veces y la brecha se abrió; allí estaba la máquina vieja.
 
-Serakion era siempre así.
-Antes de mostrarse del todo,
-empieza primero a cerrarse en silencio.
+Han Jiwoo pasó sin soltar la mano. La segunda pasó al segundo niño, y la primera empujó dentro al tercero. Después de que entrara Ater, Kael, el último, entró girando los hombros dos veces.
 
-Kael, en cuanto oyó ese sonido, habló.
+La brecha se cerró.
 
-—No corran.
-—Solo igualen el paso.
+Nadie pudo hablar enseguida.
 
-Esas palabras eran exactas hasta resultar extraño.
+Han Jiwoo, todavía sin soltar la mano, recobraba el aliento. La mano del niño que tenía dentro de la suya era pequeña, y temblaba. Ella no la soltó.
 
-Si aquí corrían sin más,
-el niño más lento quedaba abandonado al instante,
-el niño más rápido volvía a dispararse hacia delante,
-y el conjunto se derrumbaba más rápido.
+Ater, con la mandíbula apretada, no se volvió hacia la pared donde se había cerrado la brecha. Kael cerró los ojos y los abrió, y cuando giró el hombro con que había sostenido el techo, crujió.
 
-Por eso, en vez de correr,
-crearon a la fuerza un compás en la misma dirección.
+Sion, que estaba de pie con la tablilla de puntos, marcó como llegados los tres puntos y dejó sin marcar la casilla vacía que había a su lado.
 
-Han Jiwoo no soltó la mano del primer niño,
-la segunda mano de recuperación empujó de forma constante el hombro del segundo niño,
-y la primera mano de recuperación, cada tanto, bloqueaba y frenaba al tercer niño para que no se adelantara demasiado.
+Luhai vino corriendo desde donde estaban los niños, se detuvo y contó. Tres. No siguió contando.
 
-Y por fin,
-se vio el último borde que se pliega hacia el estrato oculto.
+Seorin, la mano que iba a recibirlos, se puso detrás, pero Han Jiwoo los tenía agarrados a los dos.
 
-Hasta el instante mismo de llegar allí,
-nadie pudo pensar que lo habían logrado.
+—Suelta.
 
-Porque en Serakion, siempre,
-pasaba a menudo que se cerraba lo más rápido justo cuando sentías que casi habías llegado.
+Lo dijo Seorin.
 
-Pero ese día,
-una sola vez.
+—Yo los recibo.
 
-El pliegue que retrasó Kael,
-el desajuste que creó Ater,
-la mano que leyó Han Jiwoo
-y el flujo que aguantaron las manos de recuperación
-encajaron por los pelos.
+Han Jiwoo soltó el borde de la ropa del niño rápido. Al niño que le tenía agarrado el dedo no lo soltó. Cuando Seorin tomó al niño rápido por el hombro, el niño se puso rígido, pero Seorin no lo soltó.
 
-Cuando los tres niños cruzaron del todo hacia dentro del estrato oculto,
-nadie pudo hablar enseguida.
-
-Han Jiwoo seguía recobrando el aliento sin soltar aún la mano,
-Ater mantenía la mandíbula apretada por no mirar atrás,
-y Kael por fin cerró los ojos una vez y los volvió a abrir.
-
-La primera mano de recuperación fue la primera en hablar bajo.
+La primera mano de recogida fue quien habló antes que nadie, en voz baja.
 
 —Se abrió uno.
 
-Esas palabras no sonaban a alegría.
-Más bien sonaban como la confirmación de que ahora empezaba algo más grande.
+Sern miró el panel de registro.
 
-Y así era, de hecho.
+—La señal…
 
-Habían sacado a tres.
-Pero Serakion seguía arriba,
-los demás niños seguían dentro de aquel ritmo,
-y tampoco había garantía de que esta grieta funcionara la próxima vez de la misma manera.
+Lo dijo Sern.
 
-Aun así,
-ese día, por primera vez,
-tres niños a los que Serakion se llevaba como si nunca fuera a soltarlos
-volvieron de verdad sujetos por una mano de afuera.
+—…ha disminuido.
 
-Eso todavía no se podía llamar victoria.
+La primera miró a Sern.
 
-Pero, sin duda,
-fue la primera vez que sacaron a alguien del compás de aquel mundo.
+—¿Y que haya disminuido significa…?
+
+—Que han dejado de buscar, o que han encontrado.
+
+Nadie respondió.
+
+—¿Cuál de las dos?
+
+Lo preguntó Ater.
+
+—No lo sé.
+
+Sern respondió.
+
+—Por ahora, los dos lados están en silencio.
+
+—¿Es malo el silencio?
+
+—Aquí, sí lo es.
+
+Sern bajó el panel de registro.
+
+—Al silencio siempre le ha seguido algo.
+
+El tercer niño, el que había sido rápido, jadeaba. El segundo estaba de pie bajo la lámpara amarilla, mirando abajo. El primero tenía agarrado un dedo de Han Jiwoo.
+
+La máquina vieja miró a los tres, un compás para cada niño, y después miró el panel de la pared. Cuatro puntos borrosos, cinco nítidos. No hizo ninguna marca.
+
+Han Jiwoo habló mirando la mano del niño.
+
+—Llegaste.
+
+El niño no respondió, ni le soltó el dedo.
 
 ---
 

@@ -1,18 +1,14 @@
 # Episode 176. Not a Command
 
-That the last android was changing was no longer something only Sion saw.
+The one with the smiling mouth, the one with the round eyes, the one with the narrow eyes, the scowling mouth and the crooked mouth—all of them were on the floor now. All that was left was one: a body nearly broken, and the trace of a face not yet entirely dark.
 
-The people pushed to the rear, Han Jiwoo with the children in her arms, the old machines watching the battle—all of them were looking at the same place. No one said it aloud.
-
-The one with the smiling mouth, the one with the round eyes, the one with the narrow eyes—all of them were on the floor now. All that was left was one: a body nearly broken, and the trace of a face not yet entirely dark.
-
-Every time he moved, a move the three lying on the floor had used came out, one at a time.
+Every time he moved, a move the five lying on the floor had used came out, one at a time.
 
 The brace that spread its arms and never closed them to the end was what the round eyes had done at the last.
 The hand that caught an opponent's two arms and wrenched them back was what the smiling mouth had done.
 The gaze that went first to the small movements behind it was what the first one to fall had done.
 
-Sion recognized them one by one. Each time he recognized one, he looked once at the three on the floor.
+Sion recognized them one by one. Each time he recognized one, he looked once at the five on the floor.
 
 Sern was watching too. There were four lines on his record panel. Beside the fourth line he made one more small mark. From the high side, Ater looked down at the record panel.
 

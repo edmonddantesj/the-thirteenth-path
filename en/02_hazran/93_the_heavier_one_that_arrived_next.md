@@ -27,8 +27,6 @@ Sion said.
 
 "Those were only ever good for one time."
 
-Sion knew that answer was not comfort. Ater was not using any way of softening bad news right now. It meant there was no time for it.
-
 Han Jiwoo straightened up from the hull's outer wall.
 
 "If it hits here, it's over."
@@ -65,7 +63,7 @@ She lifted her chin a little toward the sound outside.
 
 Listening to that, Sion understood why she was so angry.
 
-Han Jiwoo was the hand that kept dying craft alive. Even on the first day they dropped into Hazran, she had picked the one that was dying most honestly, and when she tore off with her own hands the piece she had attached herself, she had said the ship doesn't hurt. And now, in front of that person, a thing built on the premise of its own breaking was walking toward her.
+Han Jiwoo was the hand that kept dying craft alive. Back at the race, too, she had picked the one that was dying most honestly, and when she tore off with her own hands the piece she had attached herself, she had said the ship doesn't hurt. And now, in front of that person, a thing built on the premise of its own breaking was walking toward her.
 
 "That thing doesn't hurt either,"
 Sion said.
@@ -219,7 +217,7 @@ Sion asked.
 
 Hearing that, Sion looked toward Aka again.
 
-Aka wasn't saying anything. But her hand had dropped lower than before.
+Aka wasn't saying anything. Instead, her hand had dropped lower than before.
 
 Sion looked at that hand for a long time.
 

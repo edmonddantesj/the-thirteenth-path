@@ -2,11 +2,9 @@
 
 Après que Luhai eut reçu sa moitié de bonne réponse, l'air de la cour centrale, au contraire, reprit vie.
 
-Tomber juste à moitié fait bouillir la partie plus longtemps que tomber juste en plein.
+Le brouhaha qu'on avait tenu bas jusqu'à l'instant d'avant s'étalait cette fois plus ouvertement. Un peu partout dans les gradins, les mises changèrent de nouveau de main. Quelques-uns de ceux qui avaient misé du côté de Luhai rendirent en riant ce qu'ils avaient reçu.
 
-Sion le sentit aussitôt. Le brouhaha qu'on avait tenu bas jusqu'à l'instant d'avant s'étalait cette fois plus ouvertement. Les gens se moquaient du demi-succès de Luhai et, dans le même temps, calculaient déjà jusqu'où enflerait la partie suivante. Si même une imitation avait un prix, et si l'on pouvait passer à une partie plus grosse tant que l'échec n'était pas complet, ce n'était pas un simple jeu de tri. C'était un tour de chauffe idéal pour faire monter d'un coup, plus haut, tous les regards, l'argent, les rumeurs et les attentes rassemblés dans la cour centrale.
-
-Le meneur au centre ne laissa pas Luhai planté là longtemps. Il ne lui laissa que deux phrases, la moitié est juste, même une imitation a un prix, puis l'écarta aussitôt sur le côté, et les trois socles couverts de tissu noir furent emportés sur-le-champ par des mains silencieuses. Ce milieu ne s'attardait pas sur les bonnes réponses. Il savait mieux relancer la mise avant que le rythme ne meure.
+Le meneur au centre ne laissa pas Luhai planté là longtemps. Il ne lui laissa que deux phrases, la moitié est juste, même une imitation a un prix, puis l'écarta aussitôt sur le côté, et le socle restant fut emporté sur-le-champ par des mains silencieuses.
 
 Luhai redescendit en marmonnant, le visage fermé.
 
@@ -16,13 +14,11 @@ Cette fois, ce fut Seorin qui lui répondit à voix basse.
 
 « Parce que ce n'est pas complètement faux. »
 
-Luhai tordit la bouche. Il ne trouva rien à répliquer. Si l'échec avait été complet, il aurait lâché un juron et c'en aurait été fini ; mais là, ce qui lui restait surtout, c'était d'avoir quand même flairé juste.
+Luhai tordit la bouche. Il ne trouva rien à répliquer.
 
 C'est alors qu'au plus profond, tout à l'intérieur, Zahir se leva très lentement.
 
 L'air de la cour centrale retomba d'un seul coup.
-
-Jusque-là, celui qui faisait tourner la partie était le meneur au centre, celui qui traduisait les règles en souriant était Nassim, et celui qui mettait de l'ordre parmi les mains était Haroun. Mais à l'instant où Zahir bougea en personne, Sion sut que ce qui commençait maintenant était une tout autre étape. Cet homme ne se contentait pas d'ajouter un mot aux résultats : il retournait la partie elle-même, en plus grand.
 
 Zahir ne descendit pas jusqu'au centre. Il resta debout au bord de la haute passerelle de métal, à l'intérieur, et regarda la cour centrale d'en haut.
 
@@ -48,13 +44,6 @@ Le souffle de Sion s'arrêta avant tout le reste.
 
 Han Jiwoo était vivante. Elle n'était pas tout à fait indemne, mais elle ne semblait avoir aucun mal à marcher. Son visage était macéré de poussière et de chaleur, et elle avait l'air de quelqu'un qu'on avait traîné de force et qui écrasait tout son agacement ; mais ses yeux n'étaient pas encore morts. Pour Sern, c'était pareil. Il avait l'air pâle, mais pas défait ; ses yeux, au contraire, lisaient la structure des lieux dès l'entrée. Ni l'un ni l'autre n'étaient ligotés. Ils avançaient plutôt vers l'intérieur entre les mains collées à leurs flancs, comme des gens dont on avait déjà fixé jusqu'où ils pouvaient bouger.
 
-À cet instant, Sion comprit une fois encore, plus profondément, quelle sorte d'homme était Zahir.
-
-Cet homme n'avait pas ignoré jusque-là Han Jiwoo et Sern.
-Il savait déjà,
-il les avait retenus juste autant qu'il fallait,
-et il ne les avait pas montrés avant le moment où leur prix serait le plus haut.
-
 Seorin lâcha un souffle très bas, comme un juron.
 
 « Dingue. »
@@ -66,7 +55,7 @@ Kael, qui se tenait sur une autre ligne, se tourna aussitôt, et Luhai regarda S
 Nassim eut un sourire très mince.
 
 « Maintenant, l'équipe est au complet. »
-Il l'avait murmuré.
+Ce fut un murmure.
 
 Zahir parla.
 
@@ -77,8 +66,6 @@ Il ne s'adressait pas au groupe de Sion, mais à toute la cour centrale.
 Il jeta un très bref regard vers Han Jiwoo et Sern.
 
 « Alors il faut deux mains de plus pour que le compte soit juste. »
-
-C'était le moment où Zahir appariait de nouveau, selon les règles de sa propre partie, les quatre étrangers tombés de l'extérieur de Hazran.
 
 Dès qu'elle vit Sion, Han Jiwoo plissa les yeux, très brièvement.
 
@@ -120,11 +107,6 @@ Tous les regards se tournèrent vers l'extérieur.
 
 Une partie de la paroi qui enveloppait la cour centrale s'ouvrit, et révéla la zone périphérique cachée derrière. Une piste de glisse collée au-delà du quartier des tentes rouges, la lisière d'une plaine que le vent de sable effleurait à peine, des hauteurs où s'enchaînaient des membrures de coques à moitié effondrées, et, au loin, sous la couche thermique, des parcelles de sol vitrifié qui luisaient sombrement. Toute la périphérie de Hazran s'enchaînait comme une seule arène.
 
-À l'instant où il vit cela, Sion comprit.
-
-Ce n'était pas une simple partie.
-C'était la course phare que Hazran avait toujours montrée aux gens.
-
 Le meneur au centre s'avança.
 
 « La course de la braise ! »
@@ -134,8 +116,6 @@ Il l'avait crié.
 Cette fois, la foule bouillonna pour de bon.
 
 Tout à l'heure, les gens ne jaugeaient le prix qu'avec les yeux ; maintenant, c'était le corps qui basculait le premier vers l'avant.
-
-Cette réaction était plus claire qu'une explication. C'était le vrai jeu que les gens de Hazran attendaient.
 
 Quand le meneur tendit la main, les esquifs du désert et les engins de glisse cachés à l'ombre, au-delà des tentes rouges, apparurent un à un.
 
@@ -164,8 +144,6 @@ L'équipe des téméraires de passage.
 
 Acclamations et huées se mêlèrent d'un seul coup.
 
-Ce n'était pas une partie montée sur-le-champ. C'était une course qui devait de toute façon avoir lieu, et Zahir y avait glissé les deux équipes d'étrangers comme les cartes les plus chères du jeu.
-
 Le meneur désigna trois directions.
 
 « Trois secteurs. »
@@ -187,10 +165,10 @@ Il précisa :
 « Il faut choisir une braise posée au point d'arrivée et la rapporter vivante. »
 
 « Et si elle est fausse ? »
-Quelqu'un l'avait crié dans la foule.
+Le cri venait de la foule.
 
 « Le prix est amputé. »
-Le meneur avait répondu aussitôt.
+Ce fut la réponse du meneur.
 
 « Et les mains vides ? »
 
@@ -200,14 +178,6 @@ Cette fois, ce fut Nassim qui s'interposa en douceur.
 
 « À Hazran, une main qui tient juste jusqu'au bout coûte plus cher qu'une main qui est seulement rapide. »
 
-C'était agaçant, mais exact.
-
-Ce n'était pas une partie où l'on regardait seulement qui jaillirait le premier.
-La main qui mène l'engin,
-la main qui lit le chemin,
-la main qui départage le vrai à la fin,
-et la main qui revient sans l'avoir laissé s'éteindre : une partie qui les regardait toutes ensemble.
-
 Sion chercha Aka d'instinct.
 
 Aka était toujours aux côtés de Nahira. Mais elle n'était pas tout à fait impassible. Chaque fois qu'un secteur était nommé, son regard bougeait très légèrement, et ce n'est qu'au nom de la zone des braises de la couche thermique que ses yeux s'y attardèrent un instant de plus.
@@ -215,9 +185,6 @@ Aka était toujours aux côtés de Nahira. Mais elle n'était pas tout à fait i
 Sern regarda dans cette direction presque au même moment.
 
 Sion ne laissa pas échapper cette brève coïncidence.
-
-La vraie épreuve était dans le dernier secteur.
-Et ces deux-là le savaient déjà.
 
 Le meneur cria.
 
@@ -231,12 +198,12 @@ Il tendit la main.
 
 Le cœur de Sion tomba d'un grand coup.
 
-C'étaient les noms qu'il attendait, et pourtant, à les entendre appelés ainsi, ensemble, son corps réagit avant lui. C'était la sensation d'avoir enfin, arrivé jusqu'ici, retrouvé sa place. Han Jiwoo et lui. Ce n'était pas une attribution tombée du ciel : c'était l'équipe qui aurait dû exister dès le départ.
+À les entendre appelés ainsi, ensemble, pour de vrai, son corps réagit avant lui. Comme si la plante de ses pieds touchait de nouveau le sable.
 
 Han Jiwoo souffla brièvement.
 
 « Là, ça a du sens. »
-Elle l'avait dit à voix basse.
+Elle le dit à voix basse.
 
 Sion faillit presque rire.
 Au milieu de la tension, ces mots, étrangement, lui redressèrent le dos.
@@ -247,7 +214,7 @@ Le meneur cria les seconds.
 
 Kael regarda aussitôt Sern, et Sern le regardait déjà.
 
-Ils n'avaient pas l'aisance de gens qui se seraient déjà accordés une seule fois. Mais, étrangement, ils avaient l'air d'avoir compris du premier coup l'axe dont chacun avait besoin chez l'autre. La main qui tient avec le corps, et la main qui lit la structure. Dans une partie comme Hazran, c'était une paire qui avait l'air lente, mais qui ne mourait pas.
+Ils ne s'étaient jamais accordés ensemble. La main qui tient avec le corps, et la main qui lit la structure.
 
 Luhai, en voyant ça, claqua doucement la langue.
 
@@ -282,17 +249,12 @@ Sion répondit aussitôt.
 « D'accord. »
 
 C'était bref.
-Mais ces deux mots suffisaient.
 
 Zahir parla une dernière fois.
 
 « Courez. »
 Sa voix restait basse.
 « Et prouvez pourquoi c'est dans vos mains que cette braise doit tenir. »
-
-Ces mots ne s'adressaient pas qu'aux deux équipes d'étrangers.
-Mais Sion le sentit clairement.
-C'était sur eux qu'ils tombaient, en ce moment, avec le plus de poids.
 
 Les douze équipes se séparèrent vers la ligne de départ, au-delà des tentes rouges.
 
@@ -301,25 +263,27 @@ Les équipes locales montèrent sur leurs engins d'une main familière.
 Han Jiwoo parcourut rapidement les rangées d'esquifs, puis s'arrêta, non devant le plus luisant, mais devant celui qui mourait le plus franchement. La plaque de sustentation droite se soulevait plus tard que l'autre, la vibration du moteur était irrégulière, mais la réaction elle-même ne mentait pas. Elle avait le visage de quelqu'un qui savait qu'un engin qui montre tout de suite où il est mort tient mieux en main qu'un engin qui cache de force sa puissance ou fait semblant d'être bon.
 
 « Celui-là tiendra une fois. »
-Elle l'avait dit très bas.
+Elle le dit très bas.
 
-En l'entendant, Sion regarda de nouveau, sans s'en rendre compte, cette vieille coque. N'importe qui l'aurait prise pour de la ferraille, mais les mains de Han Jiwoo semblaient déjà y avoir lu la ligne qu'on pouvait sauver et celle qu'il fallait abandonner.
+Sion regarda de nouveau cette vieille coque. N'importe qui l'aurait prise pour de la ferraille. Han Jiwoo en caressait déjà de la paume le flanc recousu.
 
 De l'autre côté, Kael s'arrêta non devant un engin de glisse effilé, mais devant un appareil à l'ossature épaisse et au châssis inférieur solide. À ne regarder que la vitesse, il risquait d'être distancé ; mais pour traverser une zone de débris, c'était ce genre d'engin qui ne se déchirait pas jusqu'au bout. Sern, à côté de lui, examina brièvement la charge de la coque et le jeu de l'axe de direction, puis hocha la tête en faveur de la probabilité de revenir vivant, plutôt que de la distance la plus courte.
 
 « Lent, mais on n'y mourra pas. »
-C'était Kael qui l'avait dit.
+C'était Kael.
 
 « Pour l'instant, c'est ce qui vaut le plus cher. »
-Sern lui avait répondu.
+Ce fut la réponse de Sern.
 
 Toute la cour centrale s'inclina avec ce mouvement.
 
-Et à l'instant où il vit la main qui tenait la charge incandescente s'élever au sommet du haut pilier, Sion le sentit encore une fois, sans aucun doute possible.
+Han Jiwoo posa la main sur la barre de direction. Elle ne la serra pas. Elle sentit d'abord combien l'engin tremblait sous sa main.
 
-Hazran, en ce moment,
-ne cherchait pas à les tuer :
-elle cherchait à voir quelles mains ils seraient, et ce qu'elles tiendraient jusqu'au bout.
+Sion apprit le chemin par cœur.
+La piste rouge.
+La zone des débris d'épaves.
+La zone des braises de la couche thermique.
+Trois fois.
 
 ---
 
