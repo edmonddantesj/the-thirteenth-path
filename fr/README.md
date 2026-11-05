@@ -218,3 +218,4 @@ Chapitres publics actuels :
 - [Chapitre 208 — Un présage, pas une destination](02_hazran/208_omen_not_destination.md)
 - [Chapitre 209 — Le signe devient direction](02_hazran/209_sign_becomes_direction.md)
 - [Chapitre 210 — La curiosité de Luhai](02_hazran/210_luhais_curiosity.md)
+- [Chapitre 211 — Triés sans haine](02_hazran/211_sorted_without_hatred.md)

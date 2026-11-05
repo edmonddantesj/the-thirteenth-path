@@ -218,3 +218,4 @@
 - [第二百八話　目的地ではなく徴](02_hazran/208_omen_not_destination.md)
 - [第二百九話　徴が方向になる](02_hazran/209_sign_becomes_direction.md)
 - [第二百十話　ルハイの好奇心](02_hazran/210_luhais_curiosity.md)
+- [第二百十一話　憎しみのない分類](02_hazran/211_sorted_without_hatred.md)

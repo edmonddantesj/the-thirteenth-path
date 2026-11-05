@@ -218,3 +218,4 @@ Current public English release:
 - [Episode 208. Omen, Not Destination](02_hazran/208_omen_not_destination.md)
 - [Episode 209. Sign Becomes Direction](02_hazran/209_sign_becomes_direction.md)
 - [Episode 210. Luhai's Curiosity](02_hazran/210_luhais_curiosity.md)
+- [Episode 211. Sorted Without Hatred](02_hazran/211_sorted_without_hatred.md)
