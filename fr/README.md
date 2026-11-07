@@ -219,3 +219,4 @@ Chapitres publics actuels :
 - [Chapitre 209 — Le signe devient direction](02_hazran/209_sign_becomes_direction.md)
 - [Chapitre 210 — La curiosité de Luhai](02_hazran/210_luhais_curiosity.md)
 - [Chapitre 211 — Triés sans haine](02_hazran/211_sorted_without_hatred.md)
+- [Chapitre 212 — Premier contact avec le Serment du Texte Noir](02_hazran/212_first_contact_black_oath.md)

@@ -219,3 +219,4 @@
 - [第二百九話　徴が方向になる](02_hazran/209_sign_becomes_direction.md)
 - [第二百十話　ルハイの好奇心](02_hazran/210_luhais_curiosity.md)
 - [第二百十一話　憎しみのない分類](02_hazran/211_sorted_without_hatred.md)
+- [第二百十二話　黒文誓約との最初の接触](02_hazran/212_first_contact_black_oath.md)

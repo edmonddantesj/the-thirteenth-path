@@ -308,6 +308,7 @@ Each language directory is organized by arc:
 - [209. 방향이 되다](ko/02_hazran/209_sign_becomes_direction.md)
 - [210. 루하이의 궁금증](ko/02_hazran/210_luhais_curiosity.md)
 - [211. 미움 없는 분류](ko/02_hazran/211_sorted_without_hatred.md)
+- [212. 흑문서약과의 첫 접촉](ko/02_hazran/212_first_contact_black_oath.md)
 
 ### English
 
@@ -526,6 +527,7 @@ Each language directory is organized by arc:
 - [209. Sign Becomes Direction](en/02_hazran/209_sign_becomes_direction.md)
 - [210. Luhai's Curiosity](en/02_hazran/210_luhais_curiosity.md)
 - [211. Sorted Without Hatred](en/02_hazran/211_sorted_without_hatred.md)
+- [212. First Contact: Black Covenant](en/02_hazran/212_first_contact_black_oath.md)
 
 ### Japanese
 
@@ -744,6 +746,7 @@ Each language directory is organized by arc:
 - [第二百九話　徴が方向になる](ja/02_hazran/209_sign_becomes_direction.md)
 - [第二百十話　ルハイの好奇心](ja/02_hazran/210_luhais_curiosity.md)
 - [第二百十一話　憎しみのない分類](ja/02_hazran/211_sorted_without_hatred.md)
+- [第二百十二話　黒文誓約との最初の接触](ja/02_hazran/212_first_contact_black_oath.md)
 
 ### Chinese
 
@@ -1175,6 +1178,7 @@ Each language directory is organized by arc:
 - [Chapitre 209 — Le signe devient direction](fr/02_hazran/209_sign_becomes_direction.md)
 - [Chapitre 210 — La curiosité de Luhai](fr/02_hazran/210_luhais_curiosity.md)
 - [Chapitre 211 — Triés sans haine](fr/02_hazran/211_sorted_without_hatred.md)
+- [Chapitre 212 — Premier contact avec le Serment du Texte Noir](fr/02_hazran/212_first_contact_black_oath.md)
 
 ### Spanish
 
@@ -1391,4 +1395,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 211 in Korean, Episode 211 in English, Episode 211 in Japanese, Episode 211 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 212 in Korean, Episode 212 in English, Episode 212 in Japanese, Episode 212 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

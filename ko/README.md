@@ -220,3 +220,4 @@
 - [209화. 방향이 되다](02_hazran/209_sign_becomes_direction.md)
 - [210화. 루하이의 궁금증](02_hazran/210_luhais_curiosity.md)
 - [211화. 미움 없는 분류](02_hazran/211_sorted_without_hatred.md)
+- [212화. 흑문서약과의 첫 접촉](02_hazran/212_first_contact_black_oath.md)

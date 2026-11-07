@@ -219,3 +219,4 @@ Current public English release:
 - [Episode 209. Sign Becomes Direction](02_hazran/209_sign_becomes_direction.md)
 - [Episode 210. Luhai's Curiosity](02_hazran/210_luhais_curiosity.md)
 - [Episode 211. Sorted Without Hatred](02_hazran/211_sorted_without_hatred.md)
+- [Episode 212. First Contact: Black Covenant](02_hazran/212_first_contact_black_oath.md)
