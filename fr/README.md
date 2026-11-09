@@ -221,3 +221,4 @@ Chapitres publics actuels :
 - [Chapitre 211 — Triés sans haine](02_hazran/211_sorted_without_hatred.md)
 - [Chapitre 212 — Premier contact avec le Serment du Texte Noir](02_hazran/212_first_contact_black_oath.md)
 - [Chapitre 213 — La prochaine profondeur](02_hazran/213_next_depth.md)
+- [Chapitre 214 — L'air qui se repliait vers l'intérieur](02_hazran/214_folding_inward.md)

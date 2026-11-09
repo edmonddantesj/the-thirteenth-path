@@ -221,3 +221,4 @@
 - [第二百十一話　憎しみのない分類](02_hazran/211_sorted_without_hatred.md)
 - [第二百十二話　黒文誓約との最初の接触](02_hazran/212_first_contact_black_oath.md)
 - [第二百十三話　次の深さ](02_hazran/213_next_depth.md)
+- [第二百十四話　内へ折れる空気](02_hazran/214_folding_inward.md)
