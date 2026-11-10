@@ -222,3 +222,4 @@ Chapitres publics actuels :
 - [Chapitre 212 — Premier contact avec le Serment du Texte Noir](02_hazran/212_first_contact_black_oath.md)
 - [Chapitre 213 — La prochaine profondeur](02_hazran/213_next_depth.md)
 - [Chapitre 214 — L'air qui se repliait vers l'intérieur](02_hazran/214_folding_inward.md)
+- [Chapitre 215 — Elia était encore là](02_hazran/215_elia_still_remained.md)

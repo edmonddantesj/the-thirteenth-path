@@ -223,3 +223,4 @@
 - [212화. 흑문서약과의 첫 접촉](02_hazran/212_first_contact_black_oath.md)
 - [213화. 다음 깊이](02_hazran/213_next_depth.md)
 - [214화. 안으로 접히는 공기](02_hazran/214_folding_inward.md)
+- [215화. 엘리아는 남아 있었다](02_hazran/215_elia_still_remained.md)
