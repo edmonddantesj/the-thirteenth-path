@@ -312,6 +312,7 @@ Each language directory is organized by arc:
 - [213. 다음 깊이](ko/02_hazran/213_next_depth.md)
 - [214. 안으로 접히는 공기](ko/02_hazran/214_folding_inward.md)
 - [215. 엘리아는 남아 있었다](ko/02_hazran/215_elia_still_remained.md)
+- [216. 침입자가 되다](ko/02_hazran/216_intruders.md)
 
 ### English
 
@@ -534,6 +535,7 @@ Each language directory is organized by arc:
 - [213. Next Depth](en/02_hazran/213_next_depth.md)
 - [214. Folding Inward](en/02_hazran/214_folding_inward.md)
 - [215. Elia Still Remained](en/02_hazran/215_elia_still_remained.md)
+- [216. Intruders](en/02_hazran/216_intruders.md)
 
 ### Japanese
 
@@ -756,6 +758,7 @@ Each language directory is organized by arc:
 - [第二百十三話　次の深さ](ja/02_hazran/213_next_depth.md)
 - [第二百十四話　内へ折れる空気](ja/02_hazran/214_folding_inward.md)
 - [第二百十五話　エリアはまだ残っていた](ja/02_hazran/215_elia_still_remained.md)
+- [第二百十六話　侵入者になる](ja/02_hazran/216_intruders.md)
 
 ### Chinese
 
@@ -1191,6 +1194,7 @@ Each language directory is organized by arc:
 - [Chapitre 213 — La prochaine profondeur](fr/02_hazran/213_next_depth.md)
 - [Chapitre 214 — L'air qui se repliait vers l'intérieur](fr/02_hazran/214_folding_inward.md)
 - [Chapitre 215 — Elia était encore là](fr/02_hazran/215_elia_still_remained.md)
+- [Chapitre 216 — Devenir des intrus](fr/02_hazran/216_intruders.md)
 
 ### Spanish
 
@@ -1407,4 +1411,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 215 in Korean, Episode 215 in English, Episode 215 in Japanese, Episode 215 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 216 in Korean, Episode 216 in English, Episode 216 in Japanese, Episode 216 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

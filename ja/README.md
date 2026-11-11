@@ -223,3 +223,4 @@
 - [第二百十三話　次の深さ](02_hazran/213_next_depth.md)
 - [第二百十四話　内へ折れる空気](02_hazran/214_folding_inward.md)
 - [第二百十五話　エリアはまだ残っていた](02_hazran/215_elia_still_remained.md)
+- [第二百十六話　侵入者になる](02_hazran/216_intruders.md)

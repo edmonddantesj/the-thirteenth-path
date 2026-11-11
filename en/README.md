@@ -223,3 +223,4 @@ Current public English release:
 - [Episode 213. Next Depth](02_hazran/213_next_depth.md)
 - [Episode 214. Folding Inward](02_hazran/214_folding_inward.md)
 - [Episode 215. Elia Still Remained](02_hazran/215_elia_still_remained.md)
+- [Episode 216. Intruders](02_hazran/216_intruders.md)
