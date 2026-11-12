@@ -313,6 +313,7 @@ Each language directory is organized by arc:
 - [214. 안으로 접히는 공기](ko/02_hazran/214_folding_inward.md)
 - [215. 엘리아는 남아 있었다](ko/02_hazran/215_elia_still_remained.md)
 - [216. 침입자가 되다](ko/02_hazran/216_intruders.md)
+- [217. 제국이 기억하는 방식](ko/02_hazran/217_empire_remembers_him.md)
 
 ### English
 
@@ -536,6 +537,7 @@ Each language directory is organized by arc:
 - [214. Folding Inward](en/02_hazran/214_folding_inward.md)
 - [215. Elia Still Remained](en/02_hazran/215_elia_still_remained.md)
 - [216. Intruders](en/02_hazran/216_intruders.md)
+- [217. Empire Remembers Him](en/02_hazran/217_empire_remembers_him.md)
 
 ### Japanese
 
@@ -759,6 +761,7 @@ Each language directory is organized by arc:
 - [第二百十四話　内へ折れる空気](ja/02_hazran/214_folding_inward.md)
 - [第二百十五話　エリアはまだ残っていた](ja/02_hazran/215_elia_still_remained.md)
 - [第二百十六話　侵入者になる](ja/02_hazran/216_intruders.md)
+- [第二百十七話　帝国が覚えているやり方](ja/02_hazran/217_empire_remembers_him.md)
 
 ### Chinese
 
@@ -1195,6 +1198,7 @@ Each language directory is organized by arc:
 - [Chapitre 214 — L'air qui se repliait vers l'intérieur](fr/02_hazran/214_folding_inward.md)
 - [Chapitre 215 — Elia était encore là](fr/02_hazran/215_elia_still_remained.md)
 - [Chapitre 216 — Devenir des intrus](fr/02_hazran/216_intruders.md)
+- [Chapitre 217 — La manière dont l'Empire se souvient](fr/02_hazran/217_empire_remembers_him.md)
 
 ### Spanish
 
@@ -1411,4 +1415,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 216 in Korean, Episode 216 in English, Episode 216 in Japanese, Episode 216 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 217 in Korean, Episode 217 in English, Episode 217 in Japanese, Episode 217 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

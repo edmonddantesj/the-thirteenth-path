@@ -224,3 +224,4 @@
 - [第二百十四話　内へ折れる空気](02_hazran/214_folding_inward.md)
 - [第二百十五話　エリアはまだ残っていた](02_hazran/215_elia_still_remained.md)
 - [第二百十六話　侵入者になる](02_hazran/216_intruders.md)
+- [第二百十七話　帝国が覚えているやり方](02_hazran/217_empire_remembers_him.md)

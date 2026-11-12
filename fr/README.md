@@ -224,3 +224,4 @@ Chapitres publics actuels :
 - [Chapitre 214 — L'air qui se repliait vers l'intérieur](02_hazran/214_folding_inward.md)
 - [Chapitre 215 — Elia était encore là](02_hazran/215_elia_still_remained.md)
 - [Chapitre 216 — Devenir des intrus](02_hazran/216_intruders.md)
+- [Chapitre 217 — La manière dont l'Empire se souvient](02_hazran/217_empire_remembers_him.md)
