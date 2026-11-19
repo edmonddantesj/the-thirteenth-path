@@ -225,3 +225,4 @@ Current public English release:
 - [Episode 215. Elia Still Remained](02_hazran/215_elia_still_remained.md)
 - [Episode 216. Intruders](02_hazran/216_intruders.md)
 - [Episode 217. Empire Remembers Him](02_hazran/217_empire_remembers_him.md)
+- [Episode 218. Imperial Silence](02_hazran/218_imperial_silence.md)
