@@ -226,3 +226,4 @@ Chapitres publics actuels :
 - [Chapitre 216 — Devenir des intrus](02_hazran/216_intruders.md)
 - [Chapitre 217 — La manière dont l'Empire se souvient](02_hazran/217_empire_remembers_him.md)
 - [Chapitre 218 — Le silence impérial](02_hazran/218_imperial_silence.md)
+- [Chapitre 219 — Avant le soulagement](02_hazran/219_before_relief.md)

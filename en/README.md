@@ -226,3 +226,4 @@ Current public English release:
 - [Episode 216. Intruders](02_hazran/216_intruders.md)
 - [Episode 217. Empire Remembers Him](02_hazran/217_empire_remembers_him.md)
 - [Episode 218. Imperial Silence](02_hazran/218_imperial_silence.md)
+- [Episode 219. Before Relief](02_hazran/219_before_relief.md)
