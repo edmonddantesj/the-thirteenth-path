@@ -227,3 +227,4 @@
 - [第二百十七話　帝国が覚えているやり方](02_hazran/217_empire_remembers_him.md)
 - [第二百十八話　帝国式の沈黙](02_hazran/218_imperial_silence.md)
 - [第二百十九話　安堵よりも先に](02_hazran/219_before_relief.md)
+- [第二百二十話　エリアが示したさらに奥](02_hazran/220_elias_deeper_point.md)

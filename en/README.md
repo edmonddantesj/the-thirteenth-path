@@ -227,3 +227,4 @@ Current public English release:
 - [Episode 217. Empire Remembers Him](02_hazran/217_empire_remembers_him.md)
 - [Episode 218. Imperial Silence](02_hazran/218_imperial_silence.md)
 - [Episode 219. Before Relief](02_hazran/219_before_relief.md)
+- [Episode 220. Elia's Deeper Point](02_hazran/220_elias_deeper_point.md)
