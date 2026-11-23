@@ -229,3 +229,4 @@ Current public English release:
 - [Episode 219. Before Relief](02_hazran/219_before_relief.md)
 - [Episode 220. Elia's Deeper Point](02_hazran/220_elias_deeper_point.md)
 - [Episode 221. The Nameless Man's Question](02_hazran/221_nameless_mans_question.md)
+- [Episode 222. What Empire Hid](02_hazran/222_what_empire_hid.md)

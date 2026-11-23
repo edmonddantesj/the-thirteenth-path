@@ -318,6 +318,7 @@ Each language directory is organized by arc:
 - [219. 안도보다 먼저](ko/02_hazran/219_before_relief.md)
 - [220. 엘리아가 가리킨 안쪽](ko/02_hazran/220_elias_deeper_point.md)
 - [221. 이름 없는 남자의 질문](ko/02_hazran/221_nameless_mans_question.md)
+- [222. 제국이 붙잡은 것](ko/02_hazran/222_what_empire_hid.md)
 
 ### English
 
@@ -546,6 +547,7 @@ Each language directory is organized by arc:
 - [219. Before Relief](en/02_hazran/219_before_relief.md)
 - [220. Elia's Deeper Point](en/02_hazran/220_elias_deeper_point.md)
 - [221. The Nameless Man's Question](en/02_hazran/221_nameless_mans_question.md)
+- [222. What Empire Hid](en/02_hazran/222_what_empire_hid.md)
 
 ### Japanese
 
@@ -774,6 +776,7 @@ Each language directory is organized by arc:
 - [第二百十九話　安堵よりも先に](ja/02_hazran/219_before_relief.md)
 - [第二百二十話　エリアが示したさらに奥](ja/02_hazran/220_elias_deeper_point.md)
 - [第二百二十一話　名のない男の問い](ja/02_hazran/221_nameless_mans_question.md)
+- [第二百二十二話　帝国が抱え込んだもの](ja/02_hazran/222_what_empire_hid.md)
 
 ### Chinese
 
@@ -1215,6 +1218,7 @@ Each language directory is organized by arc:
 - [Chapitre 219 — Avant le soulagement](fr/02_hazran/219_before_relief.md)
 - [Chapitre 220 — L'intérieur qu'Elia indiqua](fr/02_hazran/220_elias_deeper_point.md)
 - [Chapitre 221 — La question de l'homme sans nom](fr/02_hazran/221_nameless_mans_question.md)
+- [Chapitre 222 — Ce que l'Empire retenait](fr/02_hazran/222_what_empire_hid.md)
 
 ### Spanish
 
@@ -1431,4 +1435,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 221 in Korean, Episode 221 in English, Episode 221 in Japanese, Episode 221 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 222 in Korean, Episode 222 in English, Episode 222 in Japanese, Episode 222 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

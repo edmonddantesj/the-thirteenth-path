@@ -229,3 +229,4 @@
 - [第二百十九話　安堵よりも先に](02_hazran/219_before_relief.md)
 - [第二百二十話　エリアが示したさらに奥](02_hazran/220_elias_deeper_point.md)
 - [第二百二十一話　名のない男の問い](02_hazran/221_nameless_mans_question.md)
+- [第二百二十二話　帝国が抱え込んだもの](02_hazran/222_what_empire_hid.md)

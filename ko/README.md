@@ -230,3 +230,4 @@
 - [219화. 안도보다 먼저](02_hazran/219_before_relief.md)
 - [220화. 엘리아가 가리킨 안쪽](02_hazran/220_elias_deeper_point.md)
 - [221화. 이름 없는 남자의 질문](02_hazran/221_nameless_mans_question.md)
+- [222화. 제국이 붙잡은 것](02_hazran/222_what_empire_hid.md)
