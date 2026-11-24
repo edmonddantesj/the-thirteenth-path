@@ -230,3 +230,4 @@ Chapitres publics actuels :
 - [Chapitre 220 — L'intérieur qu'Elia indiqua](02_hazran/220_elias_deeper_point.md)
 - [Chapitre 221 — La question de l'homme sans nom](02_hazran/221_nameless_mans_question.md)
 - [Chapitre 222 — Ce que l'Empire retenait](02_hazran/222_what_empire_hid.md)
+- [Chapitre 223 — La Maison accusée](02_hazran/223_blamed_house.md)
