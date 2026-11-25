@@ -232,3 +232,4 @@
 - [221화. 이름 없는 남자의 질문](02_hazran/221_nameless_mans_question.md)
 - [222화. 제국이 붙잡은 것](02_hazran/222_what_empire_hid.md)
 - [223화. 가장 오래 맡아 온 집](02_hazran/223_blamed_house.md)
+- [224화. 기다리는 자의 문턱](02_hazran/224_waiting_ones_door.md)

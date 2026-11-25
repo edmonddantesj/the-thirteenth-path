@@ -231,3 +231,4 @@ Current public English release:
 - [Episode 221. The Nameless Man's Question](02_hazran/221_nameless_mans_question.md)
 - [Episode 222. What Empire Hid](02_hazran/222_what_empire_hid.md)
 - [Episode 223. Blamed House](02_hazran/223_blamed_house.md)
+- [Episode 224. The Waiting One's Door](02_hazran/224_waiting_ones_door.md)

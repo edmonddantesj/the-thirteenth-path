@@ -320,6 +320,7 @@ Each language directory is organized by arc:
 - [221. 이름 없는 남자의 질문](ko/02_hazran/221_nameless_mans_question.md)
 - [222. 제국이 붙잡은 것](ko/02_hazran/222_what_empire_hid.md)
 - [223. 가장 오래 맡아 온 집](ko/02_hazran/223_blamed_house.md)
+- [224. 기다리는 자의 문턱](ko/02_hazran/224_waiting_ones_door.md)
 
 ### English
 
@@ -550,6 +551,7 @@ Each language directory is organized by arc:
 - [221. The Nameless Man's Question](en/02_hazran/221_nameless_mans_question.md)
 - [222. What Empire Hid](en/02_hazran/222_what_empire_hid.md)
 - [223. Blamed House](en/02_hazran/223_blamed_house.md)
+- [224. The Waiting One's Door](en/02_hazran/224_waiting_ones_door.md)
 
 ### Japanese
 
@@ -780,6 +782,7 @@ Each language directory is organized by arc:
 - [第二百二十一話　名のない男の問い](ja/02_hazran/221_nameless_mans_question.md)
 - [第二百二十二話　帝国が抱え込んだもの](ja/02_hazran/222_what_empire_hid.md)
 - [第二百二十三話　最も長く預かってきた家](ja/02_hazran/223_blamed_house.md)
+- [第二百二十四話　待つ者の敷居](ja/02_hazran/224_waiting_ones_door.md)
 
 ### Chinese
 
@@ -1223,6 +1226,7 @@ Each language directory is organized by arc:
 - [Chapitre 221 — La question de l'homme sans nom](fr/02_hazran/221_nameless_mans_question.md)
 - [Chapitre 222 — Ce que l'Empire retenait](fr/02_hazran/222_what_empire_hid.md)
 - [Chapitre 223 — La Maison accusée](fr/02_hazran/223_blamed_house.md)
+- [Chapitre 224 — La porte de celui qui attendait](fr/02_hazran/224_waiting_ones_door.md)
 
 ### Spanish
 
@@ -1439,4 +1443,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 223 in Korean, Episode 223 in English, Episode 223 in Japanese, Episode 223 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 224 in Korean, Episode 224 in English, Episode 224 in Japanese, Episode 224 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

@@ -231,3 +231,4 @@ Chapitres publics actuels :
 - [Chapitre 221 — La question de l'homme sans nom](02_hazran/221_nameless_mans_question.md)
 - [Chapitre 222 — Ce que l'Empire retenait](02_hazran/222_what_empire_hid.md)
 - [Chapitre 223 — La Maison accusée](02_hazran/223_blamed_house.md)
+- [Chapitre 224 — La porte de celui qui attendait](02_hazran/224_waiting_ones_door.md)
