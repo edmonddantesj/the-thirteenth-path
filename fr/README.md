@@ -232,3 +232,4 @@ Chapitres publics actuels :
 - [Chapitre 222 — Ce que l'Empire retenait](02_hazran/222_what_empire_hid.md)
 - [Chapitre 223 — La Maison accusée](02_hazran/223_blamed_house.md)
 - [Chapitre 224 — La porte de celui qui attendait](02_hazran/224_waiting_ones_door.md)
+- [Chapitre 225 — La porte ouverte](02_hazran/225_door_opened.md)

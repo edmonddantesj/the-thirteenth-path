@@ -321,6 +321,7 @@ Each language directory is organized by arc:
 - [222. 제국이 붙잡은 것](ko/02_hazran/222_what_empire_hid.md)
 - [223. 가장 오래 맡아 온 집](ko/02_hazran/223_blamed_house.md)
 - [224. 기다리는 자의 문턱](ko/02_hazran/224_waiting_ones_door.md)
+- [225. 문이 열리다](ko/02_hazran/225_door_opened.md)
 
 ### English
 
@@ -552,6 +553,7 @@ Each language directory is organized by arc:
 - [222. What Empire Hid](en/02_hazran/222_what_empire_hid.md)
 - [223. Blamed House](en/02_hazran/223_blamed_house.md)
 - [224. The Waiting One's Door](en/02_hazran/224_waiting_ones_door.md)
+- [225. Door Opened](en/02_hazran/225_door_opened.md)
 
 ### Japanese
 
@@ -783,6 +785,7 @@ Each language directory is organized by arc:
 - [第二百二十二話　帝国が抱え込んだもの](ja/02_hazran/222_what_empire_hid.md)
 - [第二百二十三話　最も長く預かってきた家](ja/02_hazran/223_blamed_house.md)
 - [第二百二十四話　待つ者の敷居](ja/02_hazran/224_waiting_ones_door.md)
+- [第二百二十五話　扉が開く](ja/02_hazran/225_door_opened.md)
 
 ### Chinese
 
@@ -1227,6 +1230,7 @@ Each language directory is organized by arc:
 - [Chapitre 222 — Ce que l'Empire retenait](fr/02_hazran/222_what_empire_hid.md)
 - [Chapitre 223 — La Maison accusée](fr/02_hazran/223_blamed_house.md)
 - [Chapitre 224 — La porte de celui qui attendait](fr/02_hazran/224_waiting_ones_door.md)
+- [Chapitre 225 — La porte ouverte](fr/02_hazran/225_door_opened.md)
 
 ### Spanish
 
@@ -1443,4 +1447,4 @@ Each language directory is organized by arc:
 
 ## Status
 
-Public archive currently published through Episode 224 in Korean, Episode 224 in English, Episode 224 in Japanese, Episode 224 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.
+Public archive currently published through Episode 225 in Korean, Episode 225 in English, Episode 225 in Japanese, Episode 225 in French, Episode 206 in Chinese (Simplified), and Episode 206 in Spanish.

@@ -232,3 +232,4 @@
 - [第二百二十二話　帝国が抱え込んだもの](02_hazran/222_what_empire_hid.md)
 - [第二百二十三話　最も長く預かってきた家](02_hazran/223_blamed_house.md)
 - [第二百二十四話　待つ者の敷居](02_hazran/224_waiting_ones_door.md)
+- [第二百二十五話　扉が開く](02_hazran/225_door_opened.md)
