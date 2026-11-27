@@ -233,3 +233,4 @@ Current public English release:
 - [Episode 223. Blamed House](02_hazran/223_blamed_house.md)
 - [Episode 224. The Waiting One's Door](02_hazran/224_waiting_ones_door.md)
 - [Episode 225. Door Opened](02_hazran/225_door_opened.md)
+- [Episode 226. Names Returned](02_hazran/226_names_returned.md)

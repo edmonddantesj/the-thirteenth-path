@@ -233,3 +233,4 @@ Chapitres publics actuels :
 - [Chapitre 223 — La Maison accusée](02_hazran/223_blamed_house.md)
 - [Chapitre 224 — La porte de celui qui attendait](02_hazran/224_waiting_ones_door.md)
 - [Chapitre 225 — La porte ouverte](02_hazran/225_door_opened.md)
+- [Chapitre 226 — Les noms rendus](02_hazran/226_names_returned.md)
